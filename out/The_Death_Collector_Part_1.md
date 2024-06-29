@@ -26,7 +26,7 @@ Here's a rough approximation of what my sleep deprived brain came up with in the
 
 >\*Consent Form for Services Rendered\*
 
->1. I, \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_, hereby give Don\*\*\*\* \*\*\*\*\*\* permission to enter the home of the deceased, \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_, based on my authority as next of kin, administrator, or executor of their estate.
+>
 
 >2. In terms of furniture, I would like to keep the following furniture
 
@@ -206,6 +206,9 @@ But kept it. I kept the radio, the notes, the code, and the bible. As I finished
 
 It still kicks on now and again, but it hasn't screeched at me or destroyed any of the notes as far as I can tell since that day. Every time it does I try to change the channel, but the damn thing won't let me. It's usually a few snippets from the radio pastor but every once in a while there's a woman with a gentle voice talking about forgiveness and the Lord's kindness. It's only happened 2 or 3 times where it was that voice, but I definitely prefer it.
 
-God, that ended up being a lot longer than I thought! It feels better to talk about these than I expected. Friends and family don't exactly want to hear about a job like mine more than the bare minimum, and this is the first time I've felt like I can share some of my finds without risking someone discovering who the secrets I've collected are from. Thinking of who to talk about next though is surprisingly hard. I guess for anyone who wants to hear more just give me a name or a question about my job so I can narrow things down. I can promise you, things only get more strange from here. 
+God, that ended up being a lot longer than I thought! It feels better to talk about these than I expected. Friends and family don't exactly want to hear about a job like mine more than the bare minimum, and this is the first time I've felt like I can share some of my finds without risking someone discovering who the secrets I've collected are from. Thinking of who to talk about next though is surprisingly hard. I guess for anyone who wants to hear more just give me a name or a question about my job so I can narrow things down. I can promise you, things only get more strange from here.
 
 Shit, maybe talking about Teresa was a bad idea, at least so close to the radio. I can hear the fire and brimstone preacher talking about the devil's work, and it always feels directed at me somehow. Maybe tonight I'll keep the "museum" locked again. Just in case.
+
+  
+Part 2: [https://www.reddit.com/r/nosleep/comments/1dr2uzz/the\_death\_collector\_part\_2/](https://www.reddit.com/r/nosleep/comments/1dr2uzz/the_death_collector_part_2/)

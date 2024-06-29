@@ -1,103 +1,271 @@
-Trigger Warning: >!Portrayal of Mental Illness based on real life example (Schizophrenia)!<
+First: [https://www.reddit.com/r/nosleep/comments/1dp0rnv/the\_death\_collector\_part\_1/](https://www.reddit.com/r/nosleep/comments/1dp0rnv/the_death_collector_part_1/)
 
-Part 1: [https://www.reddit.com/r/nosleep/comments/1djy9bo/the\_death\_collector\_part\_1/](https://www.reddit.com/r/nosleep/comments/1djy9bo/the_death_collector_part_1/)
+After my last post I've been working on two things (aside from my job of course). The first is making a list of the people who have a spot in my "Museum". The second is keeping Lucky out of it.
 
-Thanks so much to the people who showed some love to the last part of this story, I made sure Lucky got some extra treats to pass on the kindness. I figured for the next part it makes the most sense to finish the story of Lucky's old residence and the secrets I found there.
+I should probably elaborate on the latter. In my last post I mentioned that Teresa's radio was on and preaching one of it's sermons when I finished up her story. What I didn't mention is that it's the loudest it had been in quite a while, and a bit more...aggressive? At the very least it felt more targeted and accusatory than usual. Almost beyond fire and brimstone, it felt like the end times. So I went to lock up the Museum after and give her a chance to calm down when Lucky raced past me into the room.
 
-So, to pick up where I left off, I went back to the house the next day while Lucky was asleep in what used to be the bed for my aunt's Boston terrier (I really appreciate how quick she brought it once I said what happened). My goal that day was simple enough: pack up anything that wasn't an appliance or furniture and divide the donatable from more trash. I didn't know it then, but this would end up being my favorite part of the job. This was when you start finding the real secrets.
+I don't know what came over him--he's always been pretty careful with the things in there anytime he followed me in, but this time he rushed at the radio and attempted to tackle it onto the ground. I barely caught it before it hit the floor and the dive to do so kind of knocked the wind out of me. Since then he's seemed a bit more anxious of the Museum but at the same time he's been scratching at the door whenever I'm near it.
 
-At first things were simple enough. I hadn't thrown out any legible papers in case there was something on them that Amy would need for the estate side of things, so I started there. Some of it was boring of course: half-finished to-do lists, numbers for god knows who scribbled on junk mail or old bills, doodles of varying quality. If I remember right my favorite thing in those categories was a really abstract looking drawing of a chicken. But there were a few little gems already peaking through in this pile.
+I know some of the items in the Museum do make him uncomfortable. He usually avoids those if he's in there, or if he really doesn't like something he'll hiss at it. But he's never actually tried to break something.
 
-On a piece of paper labelled "Code" there was an odd series of symbols or numbers. The symbols varied from what looked like meaningless jumbles of lines to small shapes to vaguely religious ones like a cross with a halo or a star with wings. It clearly had some value since it had been kept safe from the mess left on the kitchen table, but whatever it was had been lost on me. The lines of numbers and symbols were in clearly defined paragraphs and sequences, and I probably spent way to long trying my hand at code breaking before giving up and moving on, setting the paper aside. On the same table was a bible with dog-eared pages, a lot of them in the "book of revelations" or the old testament. I wasn't exactly the religious sort but I'd been raised Catholic and recognized bits and pieces. That got set aside too.
+Anyway, about my list. I think there are some names on here that aren't really likely to get asked for naturally in the comments, so I figured when I get the itch to tell a secret and there's no requests I'll pull from those names.
 
-When I moved on to the bedroom, the possibly useful separated from the less than helpful in a recycling bag, it was what I'll affectionately refer to as "haunting" sensation. Bedrooms are the best place for secrets and the worst place for peace of mind in a job like mine. Too easy to get a sense of the person whose life you're clearing away. A Snoopy stuffed animal. A few crosswords and word searches. The sizeable cluster of pills on the other hand was at least more "detective work" than "graverobbing" for me. They were mostly the same kind aside from some almost empty bottles of Olanzapine. Multivitamins, Metformin, and Vitamin D pill bottles were emptied and sometimes on their side, as if grabbed haphazardly. The several bottles of Risperidone, however, seemed untouched. Since there are regulations on medications that make disposing of them a bit harder I counted the pills left in the bottles that weren't empty, and while there as only one bottle of Olanzapine with more than a pill or two, there was either the same number or none at all missing from the Risperidone. No idea what they were for at the time, didn't think it was right to look it up.
+So, let me introduce you to Brigham.
 
-Another chunk of time taken up with the personal bits passed before I found anything that caught my curiosity, As I mentioned I try not to worry about appliances until later, but sometimes the smaller ones get gathered during the hunting bit. One of these was an old radio/cassette player that I was shocked still worked when I tested it, and when I opened the cassette deck to see if there were any tapes in it there was instead almost a dozen thinly folded notes stuffed inside that nearly popped out once it was opened.
+This was a couple years into my new career, so by this point I actually had started renting an office space for meetings and had a dedicated cell phone for business calls. I also had a bigger circle of funeral homes willing to hand out my info and recommend me, so while I wasn't exactly booked solid, I had fairly frequent jobs. But I still remember Cerys.
 
-I mean, who could blame me for focusing on that instead?
+She was Brigham's wife, and clearly was dealing with some intense grief surrounding his death. She still lived in the house with her youngest son, who was helping her with the necessary estate business whenever he could, so she actually wasn't calling me about the house. Instead, she wanted me to clear out his workshop out behind the house, a large shed where he kept all his tools and the things he needed for his hobbies. It was much harder to tackle than the house was and still felt like "his space". The kids were too upset to do it as well, and I quickly gathered that the family had been very close knit, with Brigham having been a doting husband and father to all 3 of their children. Hell, the youngest one was only a sophomore in college, so they certainly hadn't lost any of the spark in their marriage. So when she explained the job through several pauses for tears, I of course agreed to start as soon as she was ready.
 
-I unfolded the one at the back of the pile, hoping it was the oldest, and started to read.
+When I arrived just before afternoon the next day, when both of them would be home and easy to check in with about any important finds in his workshop, the son was the one to greet me. Before I could ask he clarified that he mom was going through pictures for the funeral that weekend and was having a lot of difficulty with it, so he was going to take over for any other business that day. He was nice enough, took me through the house and offered me a water before heading out to the shed, but he didn't seem to be handling his dad's death much better than his mom. There were deep, dark circles under eyes that were slightly red from either crying or rubbing at them, and when his stomach growled loudly enough for me to hear it I gently joked that while I was working he should have enough time to get some lunch in him. He just kind of smiled at me and I knew he probably hadn't had a meal he enjoyed in a few days.
 
->It's been four days since God blessed me by speaking to me again.
+When we got to the shed that served as his workshop I had to admit, I was a bit impressed. The shed seemed to have been a repurposed garage, at least judging by the door he had next to the main entrance, and through the window I could see an older red car that I couldn't quite identify from outside the building. If I had to guess it was a bit bigger than a two car garage with the part of the shed next to the garage door, and clearly had been customized by the man himself.
 
->I missed him so much, I thought he had abandoned his most faithful servant. But it was the poison those madmen gave me that did it. They tried to cut me off from our Lord and keep me from preventing the end times. Agents of the devil, that's all they are. But I forgive them. Forgive us our trespasses, as we forgive those that trespass against us. Though they lost their way, I will not.
+I whistled to myself in appreciation and got the first genuine smile since I'd met the kid.
 
->He told me today to begin transcribing his teachings into the language of angels, and I decided to also log the journey for myself for the future disciples to see how I struggled in the name of our Lord.
+"My dad did a good job, huh?" he asked with a hint of pride.
 
->I will not fail you.
+"Yeah, did you have the garage back here to start with?"
 
-I frowned and looked back at the bible and the paper filled with code on the table, wondering what these "teachings" were, before grabbing another. As I did I jumped as the radio crackled to life a moment and uttered a few garbled words before going quiet again.
+"A one car one with a path, but it's way past grown over now. It already was when I was old enough to play back here. So dad usually just put whatever he was working on in neutral and pushed where the path used to be to the workshop, and the grass would be flat for a few days whenever he did."
 
-"I...must have hit the button..." was all I could thing to say to reassure myself as I continued.
+I could see the kid's eyes glistening at the memory so I went back to business. "So I have the sheet your mom filled out, but is there anything you wanna add?"
 
->The agents of the devil have realized my mission.
+He rubbed his eyes with the heel of his palm roughly and shrugged, so I dug the form out of my backpack for him to look over as I checked to make sure I didn't need to bother the two of them for any supplies I'd forgotten.
 
->I've seen them at the window of my room, trying to listen in to the teachings of the Lord. They want to stop me. They want to sever my connection with Him again. They want the Antichrist to rise unopposed.
+"She doesn't want anything but the papers for his estate stuff?"
 
->They won't falter me! They can't have my soul!
+I stopped and leaned over to read it. "That's what it looks like, yeah. Didn't list any personal items or furniture anyway."
 
->He told me how to protect his words and his teachings from prying eyes. I will bombard them with the false news of the false idols, plaster it to distract them, and protect our future salvation.
+"What about his tools? The crafts he kept out there? Does she just want you to throw them out?!"
 
->Lord protect your faithful servant, and trust that I will follow your will.
+I could see he was getting heated and I put a hand on his shoulder. "Just tell me what you wanna add, I only throw out what's obviously trash before I move on to donations and such."
 
-False news of false idols? What the hell did that mean? As I looked at the windows I finally noticed that they were covered with newspapers the same way one of the windows in the front had been. I got up for a second and looked to see which of those front windows had been covered and realized it was directly behind one of the kitchen chairs. I couldn't remember if that chair had been the one where the code and the bible had originally been sitting, but it was likely a safe bet considering what I'd read.
+He took a deep breath before answering. "I...I want both of those. His tools and whatever crafts he had finished. I don't think I'd be able to finished any of the half-done ones."
 
-I sat back down and grabbed another, and was again interrupted by the radio crackling to life, this time somewhat intelligible.
+"Consider it done. Besides, you're both home so before I take anything with me that isn't trash I'll run it by whoever feels like they can handle checking."
 
-"...protect his children from..."
+He considered me for a moment before handing back the form, face calm again. "...Thanks. I appreciate that."
 
-I leaned in a bit, wondering if maybe it was some kind of religious broadcast that was feeding into these notes.
+"Of course. I've been here too, it's not the best position to be in. I promise I won't make it any harder."
 
-"...the Lord shields you from the devil's gaze..."
+He nodded a little and gestured at the shed as if to say "all yours then" before heading back inside. I couldn't tell if what I said had helped, but at least I hadn't made things any worse. I took a deep breath before heading in and immediately letting out a soft "whoa" under my breath.
 
-There was a loud smacking noise at one of the windows and I let out what I'm sure could have been mistaken for a little girl's scream. In the subsequent scramble to my feet I knocked over the radio and it again fell silent.
+It was certainly a sight to behold in there. Along with the car the Brigham had been working on, which I now recognized to be a 1998 Ferrari Berlinetta, he had shelves upon shelves of tools, things he had made, boxes of who knew what, and and a nice workbench right in the middle with a comfy enough looking chair. The side without the car and its tools and such made me think of Geppetto's workshop from the older Disney version, just with more variety than just toys. In fact, other than some scraps from whatever he'd been working on along with some sawdust and unusable bits scattered on the floor, there wasn't really a need for garbage to be collected.
 
-Worried that a bird had hit the window I put the note I was still holding in my pocket and headed outside to investigate. No bird, thankfully, but I almost wish there had been. Because on this side of the glass was the clear smudge of a hand and a slight crack that hadn't been there before.
+I can't say I didn't appreciate it, as I said my favorite part came after the first round of cleaning, and it took me less than an hour to get things sorted so I could start digging.
 
-Then again, it's not like there wasn't a broken window on the front side of the house. Maybe a kid had noticed someone was in the house and decided to mess with them. I frowned at the thought. If it was then they certainly hadn't helped this poor woman's mental health with their bullshit.
+Brigham certainly was a man who knew how to work with his hands. In one of the boxes marked "beauties" he had the folded up specs of the past cars he'd worked on along with a before and after picture, and damn, he cleaned those old girls up good. They damn near looked new by the time he was done. From what I could find he seemed to take them to car shows when he was done to sell them to someone who'd appreciate his hard work, and I nearly shed a tear when I found evidence that each sale had been stashed away for his kids, either for them to go to college or for them to get when they moved out. There were some woodcarvings he'd painted on the shelves, all arranged in a way that implied his progress (based on the quality anyway), and although the first few were pretty rough there was a bear one at the end with a cardinal on his outreached paw that I was tempted to take for myself. That's not how I work though. I couldn't imagine his family not wanting them, particularly considering how his youngest son acted. Some other highlights included a stack of finished and glued together puzzles that were in frames like portraits, some model planes that looked like they could take off any moment, and a single ship in a bottle that he'd somehow set up to look like it was on a stormy sea using some kind of material along the bottom and some careful painting on the bottle itself.
 
-With one more lap around the house just in case I returned to the woman's room to keep reading.
+They were all beautiful and a clear labor of love, but my things are secrets. I put each item I found in organized boxes that I'd either brought folded in my bag or happened to be in the workshop, taking great care to keep them intact and safely put away, and went on to the last thing I had to check aside from the car itself--that workbench.
 
->I have decided to keep my logs within the vessel of the Lord to further protect them from the prying eyes of the devil's servants.
+And I hit the goddamn jackpot.
 
->They cannot open the vessel. I have blessed it with the Lord's guidance.
+I know a lot of workbenches are different, so I'll describe this one really quickly so that everything makes sense.  It was made of dark wood, maybe mahogany or something, and while one side was just a tabletop and a chair, the other was a set of three drawers. Which means that was my main focus. The first drawer was pretty mundane if I'm being honest, mostly pencils, pens, and paintbrushes along with some scattered odds and ends like buttons, a small pocket knife, and a few screws. Probably just things he either only used at the desk or picked up and tossed in without thinking about it. The other two, though, had locks.
 
->As I have listened to His teachings I was told to begin collecting animals, as the world would be bathed in cleansing fire much like the flood of old and need to be reborn anew. I have been busy with my work but the Lord has helped me in this task by sending me one of his children. The creature has no name, as I'm only housing him for the new world, but I care for him as I would my own in the name of His glory.
+Now this was unusual, especially since they seemed to have been added later rather than coming with the workbench to begin with. I mean, made sense since the first drawer didn't have a lock to speak of. But there also hadn't been any keys in that first drawer, and that was more of an issue. I dug around that desk and a few of the individual boxes I had taken down from the shelves, despite knowing there was none in the boxes either, and was about to give up when I looked at the desk from the floor for the first time.
 
->I am your faithful servant, Lord. I follow your word to the letter.
+There, under the chair, was an out of place strip of silver duct tape that stood out against the otherwise soft grey of the swivel chair. I crawled over to check it out and ended up pulling the tape away all together, and my efforts were rewarded with a small key nestled in the tape that had been on the chair.
 
-So, that's why Amy didn't know about the cat. He must have been a stray that was just in the wrong place at the wrong time, and ended up entangled in whatever this woman had believed. As for "the vessel", I could only assume she meant the radio, after all that was where the notes had been.
+Not exactly a normal way to store a key.
 
-As if on cue the thing crackled to life a third time, scaring me a bit less this time around, and it was even clearer than before. 
+Which meant I absolutely \*had\* to see what was in those drawers.
 
-"As the time of reckoning approaches, heed the signs of the devil's work. He will try to tempt you, as he once tempted Eve, and will slowly drag you to hell with him and away from the healing light of the Lord. Do not be tempted my child. Heed the signs, and do not walk the path of sin. Do not eat the apple a second time."
+As the first unlatched, I was disappointed at first to see they appeared to be business-related letters from over the years along with progress notes for some of his projects and other paperwork. The guy had been a contractor up until retirement just a few years ago, and the paperwork appeared to be a mixture of personal jobs and ones he'd been hired on to. Still, my job was to sort these kinds of things. I started to separate the letters, invoices, and progress notes into personal and professional jobs along with sorting out the dates chronologically, when I actually paid attention to one.
 
-Something about the words made me feel a bit ill. Those radio pastors sure have a way with their fire and brimstone talk. He had an undeniable charisma that made it feel as if he were speaking to me personally rather than who knows how many listeners. As it died again, I promised myself I'd change the station if it came back on.
+>Incident Report for \[redacted address\] on the 8th of June, 1979
 
->I have received another blessing. I no longer need to sleep, and as His son before me I am no longer tempted by simple food and water. I can focus on my work. The end is coming. I must stop it.
+>On June 8th at approximately 9:13 AM, an unknown individual in a long jacket, hat, and sunglasses approached the site from the wooded area near the house. This man had not been scheduled to be there by any member of the crew, nor had the owners of \[redacted address\] let us know to expect anyone aside from the owners, Owen and Lara \[last name redacted\], their two children, and a medium sized dog that would be kept inside as a precaution while we were working.
 
->I must save Amy.
+>Being the lead contractor on the job, I approached the individual to ask him why he was there and, if necessary, request he leave the premises. Normally I wouldn't do this, since the owners could always have invited someone over or had an unexpected guest, but due to him having come from the woods in clothing that wasn't appropriate for that kind of activity, I wanted to be cautious.
 
-For some reason, at that moment, all hell broke loose. The radio kicked on at what had to have been its max volume with something between a screech and deafening static as the windows shook from the impacts on them from outside, a few pictures falling off of the wall they shared. I clamped my hands over my ears, overwhelmed by the noise and my racing heart. God, maybe this woman had been on to something, because it sure as hell felt like the world was ending in that moment.
+>When asked about his business, the man replied that he needed directions to the road.
 
-It stopped as suddenly as it started. I removed my hands shakily to check the radio, terrified of the idea of it making that horrible noise again. One of the notes that had still been in the tape deck was somewhat singed, presumably by the electricity that surged through the radio, and another had actually been burned through where it had made contact with the inner workings, making it impossible to read. 
+>The road in question was within sight of the home, though it was admittedly situated on a long driveway, and giving him the benefit of the doubt I pointed him in that direction and told him that if he followed the driveway down from the house it wouldn't take him more than a few minutes to hit the road.
 
-When I checked the photos for what fell, the two of the five that had were of a young girl I assumed to be Amy.
+>In response, he asked if I or one of the crew could walk him to the road.
 
-I stopped at that note. That was enough to tell me that these were not something Amy needed to see, not that the earlier ones had done some convincing already. I carefully folded each note and put it back in the radio before considering the thing. I could just throw it out of course along with the now meaningless "teachings" and the bible verses that inspired them, but...it felt wrong. In her last days this poor woman was lost in her frantic quest to serve God and save her daughter, and if I threw these things away then all that pain would be for nothing. At least, that's how I felt about it.
+>Again, this road is within sight and I had given him some fairly straightforward directions to get to it. I asked him if he could see alright and he responded that his eyes were sensitive to the light, hence the hat and glasses. Since he had said a bit more in order to explain this, it was about this time that I realized that something didn't feel right. I can't really explain it in words other than it was like when you watch one of those B movies where the actors don't seem to have a hang of acting yet. There was emphasis on weird syllables or his voice would be overemotional or monotone at what seemed like random intervals. It didn't feel right.
 
-God, thinking about my decision after all that makes me sound like I was asking for a poltergeist or a ghost or something.
+>I told him that he should be able to find the road just fine and that we were on the clock for a job and couldn't afford to talk too long or walk him down. He just kind of stood there for a moment, and I assume he was staring at me from behind those glasses, before nodding and letting me go back to work. I looked back once I got back to what I'd been working on to see if he was heading the way I'd told him and barely caught him stepping back into the tree line for the woods.
 
-But kept it. I kept the radio, the notes, the code, and the bible. As I finished the rest of the job and gave Amy the paperwork she hadn't known she needed as a first timer, I settled these items in my home along with Lucky and, out of respect, made a label for the radio that had the woman's name on it: "Teresa". I would keep this habit with future finds, labeling things with the names of the dead who owned them, and it's become a kind of ritual to show these people respect as I hold on to their secrets. 
+>If we could get a few cameras to monitor the site, with client permission of course, I think that might be wise.
 
-It still kicks on now and again, but it hasn't screeched at me or destroyed any of the notes as far as I can tell since that day. Every time it has I try to change the channel, but the damn thing won't let me. It's usually a few snippets from the radio pastor but every once in a while there's a woman with a gentle voice talking about forgiveness and the Lord's kindness. It's only happened 2 or 3 times where it was that voice, but I definitely prefer it.
+>Brigham \[Redacted\]
 
-I hope in some small way that taking in Lucky and saving the last things she had ever cared about helped Teresa feel at peace. I hope helping Amy helped her feel at peace.
+I read it over a few times, confused, before seeing if I could find the response. It was right next to it, and looked like it had been paperclipped to the report at one point.
 
-Secrets like these are actually more common than I'd have expected going into this, so in a way I'm glad that my first job was for someone who had struggles like this. It helped me appreciate what people in these situations really go through, and I think I'm a kinder person for it. And I hope I gave Teresa's story the respect it deserves. My first case. My first secrets. My first taste of the unexplained.
+>Brigham,
 
-God, that ended up being a lot longer than I thought! It feels better to talk about these than I expected. Friends and family don't exactly want to hear about a job like mine more than the bare minimum, and this is the first time I've felt like I can share some of my finds without risking someone discovering who the secrets I've collected are from. Thinking of who to talk about next though is surprisingly hard. Each case has it's own charms, for lack of a better word, and some I still can't really explain. Hell, I've had to call the cops for a few. I guess for anyone who wants to hear more just give me a name or a question about the job and I'll keep sharing.
+>As much as I appreciate you trying to look after the crew and the clients, a weirdo coming out of the woods and then going back in because he couldn't get back to the road isn't exactly a threat. And I sure as hell am not putting cameras up around these folks' house just for a weirdo.
 
-In the meantime, you all take care of yourselves, alright?
+>I'll tell you what though: those woods are public property about 50 yards in. If anything else happens, I'll give you one of my hunting cameras to set up out there as a favor.
 
-Maybe I'll try to finish the notes while I wait.
+>Keep up the good work,
+
+>Sean \[Redacted\]
+
+As dismissive as it was, I couldn't exactly blame the guy for brushing off a weird report like that. While I would probably be just as unsettled in that situation, Sean was right, it wasn't a threat.
+
+I picked up another paper and it was from the same job, but a week or two later.
+
+>Incident Report for \[redacted address\] on the 17th of June, 1979
+
+>On June 17th at approximately 6:28 PM, while the crew was wrapping up for the day, the individual described in a prior report (See Incident Report for \[redacted address\] from 8th of June, 1979) again approached the site from the woods. This time he only had his hat, seeing as it was late in the day, but had it pulled down so his eyes couldn't be seen without active effort. I approached the individual and asked why he was there, admittedly a bit harshly after his behavior last time, and he asked if there was a river nearby.
+
+>There was a stream not far from the property that cut through the wooded area he'd come from, so I told him so before adding that I wasn't sure where the nearest proper river was.
+
+>He asked if I or one of the crew could bring him there.
+
+>I can't explain it, but I got a chill up my spine. It felt like he was trying to think of a better way to get someone to go off with him alone, since the stream wasn't within sight like the road was. I sure as hell didn't trust it after how weird he acted last time.
+
+>I told him pretty firmly that we were about to wrap up and leave, and that we didn't have time to walk him however far we were from the stream.
+
+>Last time he seemed confused, but this time he was a bit more pushy. He insisted that if we were about to wrap up than he could wait for someone to walk him over after we were done, and that he would do his best not to take up too much time for whoever did. His voice had sounded pretty normal up until now but when argued with me it started to jump around again like a B movie actor. I told him a firm no and that the owners needed us off the property by 7:00 pm (which was mostly true) so he needed to leave.
+
+>He stared at me for a lot longer this time, or at least I assume he stared at me, before letting out a very slow and low "thank you for your time" and walking \*\*backwards\*\* into the woods. Just kept facing me the whole damn time until the trees blocked my view.
+
+>If you meant it about that camera, please, I'll even pay you for it.
+
+>Brigham {Redacted\]
+
+I dug into the pile a bit more eagerly now, but there didn't seem to be anything else from that job other than the breakdown of cost, general progress report, and a hand-written receipt for the camera that made it clear he really had bought it. No pictures though, which was a shame.
+
+Now there was a window above the workbench that was likely to help Brigham keep track of time and feel a bit less confined (though I might be projecting a bit), and I had been half-turned away from it at this point since I had just started sorting from the floor. As I went back to my normal pattern for sorting, maybe because of the letters, I didn't feel comfortable facing away from it anymore. Since I was sorting anyway I moved my operation to the bench itself and resumed what I was doing.
+
+After a few uneventful jobs worth of paperwork, there was another incident report from a different job a two years after the one I'd read.
+
+>Incident Report for \[redacted address\] on the 5th of September, 1981
+
+>Sorry Sean, but this is NOT going to be a normal incident report this time. I'm still pretty freaked out by this.
+
+>It happened just before 11:00 AM, I think 10:56 AM but I'm honestly just guessing. Do you remember that guy from the \[redacted address\] job? The guy in the woods? He showed up, Sean. He fucking showed up at this place, this place like 10 fucking miles away next to an entirely different set of woods. I looked up at one point and he was just...there. He was still in that long jacket with his hat pulled down over his eyes, and he had a  scarf now that hid his mouth a bit too. I immediately went over to the guy he was talking to, that new kid that started with us, and I managed to hear him asking the kid if he'd seen a dog.
+
+>I asked him what the hell he was doing on the property and I think he recognized me, because his whole demeanor changed. He went from a bit stiff but open to an almost defensive stance, and his voice was low.  He said he was seeing if anyone had seen a dog. I asked him what kind and he said a little brown one, but when he tried to describe it the thing sounded more like a deer. I told him no one's seen one and that he needed to leave, and he took a step towards me as he stared at me, like he was trying to intimidate me. I didn't back down and the kid was looking between us nervously and eventually the guy said he'd leave and nodded at the kid.
+
+>I tried to reassure the kid it was just some weirdo, same as you did after the guy first showed up, but when I looked behind him this guy looked wrong. Like his legs and arms were too long. And he was taking these huge backward steps while he looked at me, and I swear to god he fucking \*\*smiled\*\* at me.
+
+>I can't deal with this shit again, Sean. If he shows up again, I'm out.
+
+>Brigham \[Redacted\]
+
+A part of me remembered that whole "Slenderman" thing that was popular when I was younger and I almost laughed, but the fear in this report stopped me. The last two reports were a little shaken, especially the second one, but this...
+
+It sounded like he was terrified of this guy.
+
+As if by reflex I looked up at the window and felt a little dumb when it was the same as it had been before I started reading, aside from a bit darker. I probably would have to wrap up soon, but I desperately wanted to finish these so I'd know how many of these to put aside.
+
+The next paper was his letter of resignation.
+
+>Sean,
+
+>I'm sorry, it's been great working with you, but I'm done. I told you if that thing showed up again I was out, and I'm out. I know you don't believe me, even with the kid backing me up, and the fact you would say I was hazing him to make you believe this "prank" honestly was the last straw. You weren't there. You didn't talk to this thing, didn't see this thing, and you never believed the pictures from the last few days of the \[redacted last name\] job. So I'm done. I'll get my tools after the job is over so the guys can use them, but one it's over I'm picking them up.
+
+>I thought we were friends, Sean. I thought that you'd believe me with all the goddamn proof I put on your desk after the last time.
+
+>I guess I was wrong.
+
+>Best of luck, man.
+
+>Brigham \[Redacted\]
+
+The letter was handwritten in quick, shaky letters that made me think he had been upset when he wrote it, and the fact that it looked like it'd been crumpled up at one point gave the impression that this hadn't been the actual letter he turned in. Even if it wasn't, it said a lot about this thing and how much it bothered him.
+
+Not only that, it said there were pictures somewhere.
+
+Again I shuffled through the pile to see if there was anything there, and again I came up empty. Worse, I knew there wouldn't be anymore incident reports. I started organizing again, wanting to get to the last drawer, and something came up from a few years later that caught my attention.
+
+>Notice to All Employees of \[Redacted last name\] Contracting and Landscaping:
+
+>Effective on February 11th, 1987 the following protocol is now in place.
+
+>Any unfamiliar personnel approaching a site much be immediately reported to myself or the lead contractor for that particular site. All employees must also report any strange activity in the surrounding area or signs of tampering with any tools, equipment, or personal items. Anyone seen talking to unfamiliar personnel will receive a disciplinary warning, and anyone seen accompanying them off site will receive serious disciplinary action in addition to removal from the site for the remainder of the job.
+
+>This protocol is for the safety of staff and clients and will not be treated lightly.
+
+>Any questions about this change should be directed at myself by requesting a private meeting.
+
+>Thank you for your compliance and let's continue to do our best work.
+
+>Brigham \[Redacted last name\]
+
+What had happened in those six years that he would mention going with someone off site? Why did he emphasize it was for staff \*and\* client protection? I didn't know, and there was no guarantee that I would find out. But god did I hope so. After this there was a handful of reports, some from the same job and others from ones that were months to years apart, and they seemed short due to the fill-in form that Brigham had seemed to whip up after this notice. This is what the blank ones looked like:
+
+>Name: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+Position: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+Site: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+Date: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+Description of incident: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+It was roughly the sides of one of those feedback sheets you might get from a doctor's office, about half of a normal sheet of printer paper. Still, what there was to find was telling:
+
+>Name: Peter \[Redacted\]  
+Position: Apprentice Contractor  
+Site: \[Redacted address\]  
+Date: November 10th, 1987  
+Description of incident: While I was waiting for my trainer to get back from his lunch break a guy in a hat and jacket came up to me. I'm not sure where he came from since I just finished lunch too. He asked me if I knew where the nearest house, I'm assuming other than the one he was at, and when I told him how far it was he asked me to bring him over. My trainer came back around then and cussed him out and the guy walked off. No idea where to though, it was basically the opposite direction of the road.
+
+>Name: Morgan \[Redacted\]  
+Position: Painter  
+Site: \[Redacted address\]  
+Date: April 28th, 1988  
+Description of incident: While I was walking back to the site from my car a guy walked out from the woods and asked me for help. When I asked what was wrong he said he was lost and needed to use a phone. When I told him we didn't have permission to go in the house he asked me to drive him to a store or something to use their phone. I went to ask you about it and by the time I came back with you he was gone.
+
+>Name: Elliot \[Redacted\]  
+Position: Assistant Contractor  
+Site: \[Redacted address\]  
+Date: March 7th, 1992  
+Description of incident: My car had a slashed tire when I went to head out for the day and some guy in a coat came up and offered to help me fix it or bring me where I needed to go. He wasn't with us or the client so I have no idea where the hell he came from. I said no and went to go ask one of the crew for help and I saw him go into the woods.
+
+>Name: Theo \[Redacted\]  
+Position: Landscaping  
+Site: \[Redacted address\]  
+Date: March 10th, 1993  
+Description of incident: My wife came with the baby to drop off lunch and when she got back to the car some guy was holding my daughter. She started freaking out and shouting at him but he ignored her and started taking the baby towards the woods. Luckily I heard her and ran at the guy and it's kind of a blur after that. My wife can't really tell me what happened either. My daughter was in my arms and fine other than crying. The guy was gone.
+
+I stopped at that last one, it honestly made me a bit sick. I couldn't imagine being in that situation, seeing someone I cared about be so vulnerable and in such a strange position. I couldn't imagine what the hell happened to make him and his wife forget either.
+
+Again, I felt the urge to look back at the window. Nothing seemed disturbed, but the feeling of being watched didn't go away like it had before.
+
+I suddenly wanted to get through this as soon as possible.
+
+I finished organizing the papers, only finding a few more reports that were worth setting aside, and was finally ready for that last drawer.
+
+I wish I left it locked sometimes.
+
+The pictures that were mentioned before were there, presumably from the hunting camera he bought off of his old boss, and they were...unsettling to say the least. A few were just bits it had caught as the guy went by: a blurry hand at the end of a long sleeve, the top of a hat, a vague humanoid shape in the distance. But there were two that really stood out.
+
+In one, he was standing in front of the camera as if he was posing. He wasn't particularly tall or thin but something about his proportions just seemed off, and after looking at it for a bit I remembered what one of the reports had said and realized it was because his legs and arms were just a little too long for his body. The jacket was more like a trench coat and almost went to his ankles, a dark grey that was just light enough to not be black, and the hat he wore looked like a fedora. In fact, he kind of reminded me of the stereotypical detective in that get up aside from the coat not being brown or beige. Even the sunglasses fit with this look. While I was looking at the sunglasses I noticed his nose was barely differentiated from the rest of his face and his smile seemed too wide.
+
+The other picture on the other hand...I might as well be looking at it, even knowing it's in one of the decorative boxes the family didn't want. The man was on all fours, arms and legs twisted and in odd angles like a spider, and the glasses had fallen off to reveal he had no eyes. No fucking eyes. Just the indents where they were supposed to be in his skull and these small holes that reminded me of the dots you put on a smiley face. And god that smile...that smile was so wide it literally stretched from ear to ear, and the toothy grin felt like it had far more teeth than it should have, even though they didn't even look sharper than a normal human. It took a bit to realize his head was too far tilted as well, as if it had been glued to the side of his neck instead of attached normally.
+
+It felt like that fucking thing could see me through the picture. I hated looking at it. I hated it looking at me. I stuffed it somewhere in the center of the others.
+
+The only other thing in that drawer was a newspaper article from February 2nd, 1987. An article about a middle schooler who had gone missing right from her own yard. One who was last seen talking to a man in a jacket and hat according to her mother, who seemed to be asking the girl for directions.
+
+I was done. I couldn't read anymore. I put anything else that looked like it might make the family as sick as I felt and started to bring the boxes out to go over the contents with the family before nightfall.
+
+The son was at the door to the workshop as I opened it, looking like he had been about to knock.
+
+"Oh! Sorry man, I hope I didn't scare you," I apologized.
+
+"No uh...I was just wondering if you had anyone else working with you?"
+
+I felt cold. Ice cold. When I tried to swallow there suddenly wasn't enough spit to even do that. "Uh...no, why?"
+
+"There was this guy outside of the shed before I came out here to ask you if he was with you. Looked like a cop or something maybe? It seemed like he was looking in like he wasn't sure if he should knock or something," the kid explained, seeming as confused as I was.
+
+"A cop?"
+
+"Well, I mean, not like a normal cop. He had on one of those coats from old detective movies so I wasn't sure how else to describe him."
+
+I think that's the fastest I've ever wrapped up a job, though I did at least warn them that if they saw that guy that he wasn't with me and to call the cops. I wasn't sure what else to tell them. "Hey, your husband/dad seemed to have pissed off some Eldritch abomination, maybe it's not sure if he's dead"? What the hell is the point of taking those secrets with me then?
+
+The box stays in one of my shelves in the museum now.
+
+Usually I try to forget it's there.
+
+When I remember, I usually have nightmares, or get paranoid there's someone outside.
+
+I hope that's not the case tonight, especially since I had to get the notes to type them up.
+
+If you have any questions or a name you'd like to check, feel free. I might like the company, just in case I do have trouble sleeping.
