@@ -122,7 +122,7 @@ I picked up another paper and it was from the same job, but a week or two later.
 
 >Last time he seemed confused, but this time he was a bit more pushy. He insisted that if we were about to wrap up than he could wait for someone to walk him over after we were done, and that he would do his best not to take up too much time for whoever did. His voice had sounded pretty normal up until now but when argued with me it started to jump around again like a B movie actor. I told him a firm no and that the owners needed us off the property by 7:00 pm (which was mostly true) so he needed to leave.
 
->He stared at me for a lot longer this time, or at least I assume he stared at me, before letting out a very slow and low "thank you for your time" and walking \*\*backwards\*\* into the woods. Just kept facing me the whole damn time until the trees blocked my view.
+>He stared at me for a lot longer this time, or at least I assume he stared at me, before letting out a very slow and low "thank you for your time" and walking BACKWARDS into the woods. Just kept facing me the whole damn time until the trees blocked my view.
 
 >If you meant it about that camera, please, I'll even pay you for it.
 
@@ -132,7 +132,7 @@ I dug into the pile a bit more eagerly now, but there didn't seem to be anything
 
 Now there was a window above the workbench that was likely to help Brigham keep track of time and feel a bit less confined (though I might be projecting a bit), and I had been half-turned away from it at this point since I had just started sorting from the floor. As I went back to my normal pattern for sorting, maybe because of the letters, I didn't feel comfortable facing away from it anymore. Since I was sorting anyway I moved my operation to the bench itself and resumed what I was doing.
 
-After a few uneventful jobs worth of paperwork, there was another incident report from a different job a two years after the one I'd read.
+After a few uneventful jobs worth of paperwork, there was another incident report from a different job two years after the one I'd read.
 
 >Incident Report for \[redacted address\] on the 5th of September, 1981
 
@@ -142,7 +142,7 @@ After a few uneventful jobs worth of paperwork, there was another incident repor
 
 >I asked him what the hell he was doing on the property and I think he recognized me, because his whole demeanor changed. He went from a bit stiff but open to an almost defensive stance, and his voice was low.  He said he was seeing if anyone had seen a dog. I asked him what kind and he said a little brown one, but when he tried to describe it the thing sounded more like a deer. I told him no one's seen one and that he needed to leave, and he took a step towards me as he stared at me, like he was trying to intimidate me. I didn't back down and the kid was looking between us nervously and eventually the guy said he'd leave and nodded at the kid.
 
->I tried to reassure the kid it was just some weirdo, same as you did after the guy first showed up, but when I looked behind him this guy looked wrong. Like his legs and arms were too long. And he was taking these huge backward steps while he looked at me, and I swear to god he fucking \*\*smiled\*\* at me.
+>I tried to reassure the kid it was just some weirdo, same as you did after the guy first showed up, but when I looked behind him this guy looked wrong. Like his legs and arms were too long. And he was taking these huge backward steps while he looked at me, and I swear to god he fucking SMILED at me.
 
 >I can't deal with this shit again, Sean. If he shows up again, I'm out.
 
@@ -158,7 +158,7 @@ The next paper was his letter of resignation.
 
 >Sean,
 
->I'm sorry, it's been great working with you, but I'm done. I told you if that thing showed up again I was out, and I'm out. I know you don't believe me, even with the kid backing me up, and the fact you would say I was hazing him to make you believe this "prank" honestly was the last straw. You weren't there. You didn't talk to this thing, didn't see this thing, and you never believed the pictures from the last few days of the \[redacted last name\] job. So I'm done. I'll get my tools after the job is over so the guys can use them, but one it's over I'm picking them up.
+>I'm sorry, it's been great working with you, but I'm done. I told you if that thing showed up again I was out, and I'm out. I know you don't believe me, even with the kid backing me up, and the fact you would say I was hazing him to make you believe this "prank" honestly was the last straw. You weren't there. You didn't talk to this thing, didn't see this thing, and you never believed the pictures from the last few days of the \[redacted last name\] job. So I'm done. I'll get my tools after the job is over so the guys can use them, but once it's over I'm picking them up.
 
 >I thought we were friends, Sean. I thought that you'd believe me with all the goddamn proof I put on your desk after the last time.
 
@@ -188,7 +188,7 @@ Again I shuffled through the pile to see if there was anything there, and again 
 
 >Brigham \[Redacted last name\]
 
-What had happened in those six years that he would mention going with someone off site? Why did he emphasize it was for staff \*and\* client protection? I didn't know, and there was no guarantee that I would find out. But god did I hope so. After this there was a handful of reports, some from the same job and others from ones that were months to years apart, and they seemed short due to the fill-in form that Brigham had seemed to whip up after this notice. This is what the blank ones looked like:
+What had happened in those six years that he would mention going with someone off site? Why did he emphasize it was for staff AND client protection? I didn't know, and there was no guarantee that I would find out. But god did I hope so. After this there was a handful of reports, some from the same job and others from ones that were months to years apart, and they were short due to the fill-in form that Brigham had seemed to whip up after this notice. This is what the blank ones looked like:
 
 >Name: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
 Position: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
@@ -196,13 +196,13 @@ Site: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 Date: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
 Description of incident: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-It was roughly the sides of one of those feedback sheets you might get from a doctor's office, about half of a normal sheet of printer paper. Still, what there was to find was telling:
+It was roughly the size of one of those feedback sheets you might get from a doctor's office, about half of a normal sheet of printer paper. Still, what there was to find was telling:
 
 >Name: Peter \[Redacted\]  
 Position: Apprentice Contractor  
 Site: \[Redacted address\]  
 Date: November 10th, 1987  
-Description of incident: While I was waiting for my trainer to get back from his lunch break a guy in a hat and jacket came up to me. I'm not sure where he came from since I just finished lunch too. He asked me if I knew where the nearest house, I'm assuming other than the one he was at, and when I told him how far it was he asked me to bring him over. My trainer came back around then and cussed him out and the guy walked off. No idea where to though, it was basically the opposite direction of the road.
+Description of incident: While I was waiting for my trainer to get back from his lunch break a guy in a hat and jacket came up to me. I'm not sure where he came from since I just finished lunch too. He asked me if I knew where the nearest house was, I'm assuming other than the one he was at, and when I told him how far it was he asked me to bring him over. My trainer came back around then and cussed him out and the guy walked off. No idea where to though, it was basically the opposite direction of the road.
 
 >Name: Morgan \[Redacted\]  
 Position: Painter  
@@ -234,7 +234,7 @@ I wish I left it locked sometimes.
 
 The pictures that were mentioned before were there, presumably from the hunting camera he bought off of his old boss, and they were...unsettling to say the least. A few were just bits it had caught as the guy went by: a blurry hand at the end of a long sleeve, the top of a hat, a vague humanoid shape in the distance. But there were two that really stood out.
 
-In one, he was standing in front of the camera as if he was posing. He wasn't particularly tall or thin but something about his proportions just seemed off, and after looking at it for a bit I remembered what one of the reports had said and realized it was because his legs and arms were just a little too long for his body. The jacket was more like a trench coat and almost went to his ankles, a dark grey that was just light enough to not be black, and the hat he wore looked like a fedora. In fact, he kind of reminded me of the stereotypical detective in that get up aside from the coat not being brown or beige. Even the sunglasses fit with this look. While I was looking at the sunglasses I noticed his nose was barely differentiated from the rest of his face and his smile seemed too wide.
+In one, he was standing in front of the camera as if he was posing. He wasn't particularly tall or thin but something about his proportions just seemed off, and after looking at it for a bit I remembered what one of the reports had said and realized it was because his legs and arms were just a little too long for his body. The jacket was more like a trench coat and almost went to his ankles, a dark grey that was just light enough to not be black, and the hat he wore looked like a fedora. In fact, he kind of reminded me of a stereotypical detective in that get up aside from the coat not being brown or beige. Even the sunglasses fit with this look. While I was looking at the sunglasses I noticed his nose was barely differentiated from the rest of his face and his smile seemed too wide.
 
 The other picture on the other hand...I might as well be looking at it, even knowing it's in one of the decorative boxes the family didn't want. The man was on all fours, arms and legs twisted and in odd angles like a spider, and the glasses had fallen off to reveal he had no eyes. No fucking eyes. Just the indents where they were supposed to be in his skull and these small holes that reminded me of the dots you put on a smiley face. And god that smile...that smile was so wide it literally stretched from ear to ear, and the toothy grin felt like it had far more teeth than it should have, even though they didn't even look sharper than a normal human. It took a bit to realize his head was too far tilted as well, as if it had been glued to the side of his neck instead of attached normally.
 
@@ -242,7 +242,7 @@ It felt like that fucking thing could see me through the picture. I hated lookin
 
 The only other thing in that drawer was a newspaper article from February 2nd, 1987. An article about a middle schooler who had gone missing right from her own yard. One who was last seen talking to a man in a jacket and hat according to her mother, who seemed to be asking the girl for directions.
 
-I was done. I couldn't read anymore. I put anything else that looked like it might make the family as sick as I felt and started to bring the boxes out to go over the contents with the family before nightfall.
+I was done. I couldn't read anymore. I put anything else that looked like it might make the family as sick as I felt aside to take with me and started to bring the boxes out to go over the contents with the family before nightfall.
 
 The son was at the door to the workshop as I opened it, looking like he had been about to knock.
 
