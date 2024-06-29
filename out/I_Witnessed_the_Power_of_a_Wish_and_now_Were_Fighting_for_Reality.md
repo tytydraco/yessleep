@@ -1,4 +1,4 @@
-You'll need [Pt 1](https://www.reddit.com/r/AliasReads/comments/1dr8ltx/i_witnessed_the_power_of_a_wish_and_its/) and [Pt 2](https://www.reddit.com/r/nosleep/comments/1dodq66/i_witnessed_the_power_of_a_wish_and_its_eating/)   
+You'll need [Pt 1](https://www.reddit.com/r/AliasReads/comments/1dr8ltx/i_witnessed_the_power_of_a_wish_and_its/) and [Pt 2](https://www.reddit.com/r/nosleep/comments/1dodq66/i_witnessed_the_power_of_a_wish_and_its_eating/)  
 The void was an endless, featureless expanse. No sound, no touch, no smell. The silence was absolute, oppressive, wrapping around me like a shroud. It felt as if I were floating in a sea of nothingness, adrift and utterly alone. Panic began to set in, my breaths coming in rapid, shallow gasps, though I couldn't feel the air moving in or out of my lungs.
 
 My vision was the only sense left to me, but there was nothing to see. Just a vast, empty bright blackness stretching infinitely in all directions. It was disorienting, a nauseating sensation of being nowhere and everywhere all at once. I tried to scream, but no sound emerged from my lips. My voice, my existence, was lost to this place.
@@ -198,4 +198,4 @@ A slow clap resonated through the air, and a strange buzzing shook my eyes. The 
 
 I spun around and met a gaze with vorpal eyes and a mischievous grin.
 
-A god from my dream.
+A god from my [dream.](https://www.youtube.com/watch?v=RH1RqQrAyA0)
