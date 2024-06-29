@@ -184,4 +184,4 @@ I coughed up a bit of blood. I wondered when I’d been injured. I didn’t feel
 
 I nodded weakly.
 
-“We’ll get these two to their new… accommodations. And then we’re going to have a nice long chat,” said the Cardinal. “I’m starting to thing that St. Michael has big plans for [you](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).”
+“We’ll get these two to their new… accommodations. And then we’re going to have a nice long chat,” said the Cardinal. “I’m starting to think that St. Michael has big plans for [you](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).”
