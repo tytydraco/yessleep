@@ -1,4 +1,4 @@
-My ramblings will make no sense unless you've also read my [initial report](https://www.reddit.com/r/nosleep/comments/1dmqk1c/i_witnessed_the_power_of_a_wish_and_its_began_to/).
+My ramblings will make no sense unless you've also read my [initial report](https://www.reddit.com/r/AliasReads/comments/1dr8ltx/i_witnessed_the_power_of_a_wish_and_its/).
 
 “I wish I could undo it all. I wish I could take it back.” Without context, without direction. I wished to undo it all. Everything. I think I accidentally wished to undo everything that ever has been.
 
@@ -136,3 +136,5 @@ I glanced past her, at her baby, and remembered what had just happened to me bec
 I screamed, it came from somewhere visceral, it was a feeling of complete disbelief and rage. I lunged on to the back of the creature. It ripped away from the baby and the baby’s cries had sound again. I fell in to, through, with, against, and without the eater. We crashed to the ground and moments before I blacked out, I saw the mother holding her child.
 
 And the child’s head was poring blood.
+
+[Pt 3](https://www.reddit.com/r/nosleep/comments/1dr8ktr/i_witnessed_the_power_of_a_wish_and_now_were/)
