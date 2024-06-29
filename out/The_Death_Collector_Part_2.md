@@ -40,7 +40,7 @@ I stopped and leaned over to read it. "That's what it looks like, yeah. Didn't l
 
 I could see he was getting heated and I put a hand on his shoulder. "Just tell me what you wanna add, I only throw out what's obviously trash before I move on to donations and such."
 
-He took a deep breath before answering. "I...I want both of those. His tools and whatever crafts he had finished. I don't think I'd be able to finished any of the half-done ones."
+He took a deep breath before answering. "I...I want both of those. His tools and whatever crafts he had finished. I don't think I'd be able to finish any of the half-done ones."
 
 "Consider it done. Besides, you're both home so before I take anything with me that isn't trash I'll run it by whoever feels like they can handle checking."
 
@@ -50,7 +50,7 @@ He considered me for a moment before handing back the form, face calm again. "..
 
 He nodded a little and gestured at the shed as if to say "all yours then" before heading back inside. I couldn't tell if what I said had helped, but at least I hadn't made things any worse. I took a deep breath before heading in and immediately letting out a soft "whoa" under my breath.
 
-It was certainly a sight to behold in there. Along with the car the Brigham had been working on, which I now recognized to be a 1998 Ferrari Berlinetta, he had shelves upon shelves of tools, things he had made, boxes of who knew what, and and a nice workbench right in the middle with a comfy enough looking chair. The side without the car and its tools and such made me think of Geppetto's workshop from the older Disney version, just with more variety than just toys. In fact, other than some scraps from whatever he'd been working on along with some sawdust and unusable bits scattered on the floor, there wasn't really a need for garbage to be collected.
+It was certainly a sight to behold in there. Along with the car Brigham had been working on, which I now recognized to be a 1998 Ferrari Berlinetta, he had shelves upon shelves of tools, things he had made, boxes of who knew what, and a nice workbench right in the middle with a comfy enough looking chair. The side without the car and its tools and such made me think of Geppetto's workshop from the older Disney version, just with more variety than just toys. In fact, other than some scraps from whatever he'd been working on along with some sawdust and unusable bits scattered on the floor, there wasn't really a need for garbage to be collected.
 
 I can't say I didn't appreciate it, as I said my favorite part came after the first round of cleaning, and it took me less than an hour to get things sorted so I could start digging.
 
@@ -68,7 +68,7 @@ There, under the chair, was an out of place strip of silver duct tape that stood
 
 Not exactly a normal way to store a key.
 
-Which meant I absolutely \*had\* to see what was in those drawers.
+Which meant I absolutely had to see what was in those drawers.
 
 As the first unlatched, I was disappointed at first to see they appeared to be business-related letters from over the years along with progress notes for some of his projects and other paperwork. The guy had been a contractor up until retirement just a few years ago, and the paperwork appeared to be a mixture of personal jobs and ones he'd been hired on to. Still, my job was to sort these kinds of things. I started to separate the letters, invoices, and progress notes into personal and professional jobs along with sorting out the dates chronologically, when I actually paid attention to one.
 
