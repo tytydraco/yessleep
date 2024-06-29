@@ -6,7 +6,7 @@ I tried to reach out and get in contact with him, but the only thing I could fin
 
 Despite being registered as a missing person, years would pass before anyone would hear from my old childhood friend. It was around late Autumn when Doug returned. Turns out that he decided to travel across the country as a drifter since his career in the army didn't pan out. He called the whole thing a "soul searching" journey and had endless stories to tell about his travels and military service to those who listened.
 
-A couple of days ago, Doug and I spent some quality time together for the first time in decades. He told me all of his stories and I listened with intrigue. We were drinking a bit, not to get drunk but just ease the mood. Towards the end of the night, Doug's expression hardened, and he asked me if I could trust him.
+A couple of days ago, Doug and I spent some quality time together for the first time in over a decade. He told me all of his stories and I listened with intrigue. We were drinking a bit, not to get drunk but just ease the mood. Towards the end of the night, Doug's expression hardened, and he asked me if I could trust him.
 
 "Of course, why would you ask?"
 

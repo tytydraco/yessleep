@@ -10,6 +10,8 @@
 
 \[[Part 6](https://www.reddit.com/r/nosleep/comments/1dm99mi/we_joined_a_cult_as_a_joke_part_6/)\]
 
+\[[Part 7](https://www.reddit.com/r/nosleep/comments/1dqzw9h/we_joined_a_cult_as_a_joke_part_7_final_post/)\]
+
 The night air was thick with the cloying scent of incense, mingling with the soft, ominous chants of the others. Each breath felt heavy, tainted with the stench of decay and something ancient… malevolent. My mask stuck uncomfortably to my face, the chill night air dampening the fabric pressed against my skin.
 
 "Stay close," Tim whispered as we followed the procession into a vast courtyard, open to the night sky.

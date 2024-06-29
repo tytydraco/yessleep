@@ -6,9 +6,11 @@
 
 \[[Part 4](https://www.reddit.com/r/nosleep/comments/1daq9vc/we_joined_a_cult_as_a_joke_part_4/)\]
 
-\[[Part 5](https://www.reddit.com/r/nosleep/comments/1dhc4ww/we_joined_a_cult_as_a_joke_part_5/)\] 
+\[[Part 5](https://www.reddit.com/r/nosleep/comments/1dhc4ww/we_joined_a_cult_as_a_joke_part_5/)\]
 
 \[[Part 6](https://www.reddit.com/r/nosleep/comments/1dm99mi/we_joined_a_cult_as_a_joke_part_6/)\] <- You are here.
+
+\[[Part 7](https://www.reddit.com/r/nosleep/comments/1dqzw9h/we_joined_a_cult_as_a_joke_part_7_final_post/)\]
 
 The room exuded opulence. An ornate chandelier cast a soft, golden light over rich wood paneling and crimson velvet drapes. Voss sat behind an imposing desk, smoke from his cigar coiling around him like a serpent. Chloe perched beside him, her face unreadable. Tim and I were bound to heavy chairs, the ropes biting into our wrists.
 

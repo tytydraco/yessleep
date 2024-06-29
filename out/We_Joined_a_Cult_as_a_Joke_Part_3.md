@@ -10,6 +10,8 @@
 
 \[[Part 6](https://www.reddit.com/r/nosleep/comments/1dm99mi/we_joined_a_cult_as_a_joke_part_6/)\]
 
+\[[Part 7](https://www.reddit.com/r/nosleep/comments/1dqzw9h/we_joined_a_cult_as_a_joke_part_7_final_post/)\]
+
 The first thing that pierced the black veil of unconsciousness was the sharp, unyielding pain in my side, followed by the distant ringing of a phone at the night shift nurse's desk. I turned my head slowly, each movement sending waves of agony through my body, and saw a doctor reading from a manila folder. 
 
 “Oh, you’re awake,” he said with surprise, noticing my movement. “I was wondering when you’d come around. That knife did quite a bit of damage.” His nametag read “Dr. Wilcox”.

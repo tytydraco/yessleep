@@ -10,6 +10,8 @@
 
 \[[Part 6](https://www.reddit.com/r/nosleep/comments/1dm99mi/we_joined_a_cult_as_a_joke_part_6/)\]
 
+\[[Part 7](https://www.reddit.com/r/nosleep/comments/1dqzw9h/we_joined_a_cult_as_a_joke_part_7_final_post/)\]
+
 I sat in our dark bedroom, the computer screen glaring with a harsh, white light. A banner flashed before my eyes: “Seek wisdom by understanding yourself.” 
 
 “Chloe, check this out,” I called over my shoulder to my girlfriend playing The Sims on her laptop. 
