@@ -20,13 +20,13 @@ I took my opportunity, retraced my steps, and bolted back to the rickety wooden 
 
 Before I pushed myself back up, I peered back around my shoulder. The sounds of the woodpecker drumming started up again as he began crawling on all fours, continuing to rapidly beat his head into the rotting wood. I continued into the direction of my car. Now making sure to attempt to watch for any obstructions in front of me. 
 
-I jostled the keys from out of my pocket. Trying to keep my pace as I did so. I successfully got to my car. But the man in my side mirror continued to sprint toward me. Got inside, key in ignition, but before I could reverse... tap tap tap tap tap smash. The man had managed to drum the glass of my driver window so hard that it shattered all across my lap, his blood coming with it.
+I jostled the keys from out of my pocket. Trying to keep my pace as I did so. I successfully got to my car. But the man in my side mirror continued to sprint toward me, still keeping his perfect impersonation of a small chittering woodpecker. I got inside, key in ignition, but before I could reverse... tap tap tap tap tap smash. The man had managed to drum the glass of my driver window so hard that it shattered all across my lap, his blood coming with it.
 
  I floored it, dragging the man with me for a few feet, giving me enough time to fully see the things face. It had the face of my grandpa.
 
 I attempted to mutter his name, before a shard of glass still attached to the car quickly and silently drove into it's neck. The shard detached and he rolled away from the car. the thing just laid there, motionless. 
 
-I cried for what felt like hours. Losing someone you love and hold dearly is hard enough, but to witness it twice. And not only twice, but he second time holding in the guilt of feeling as though its your own fault. 
+I cried for what felt like hours. Losing someone you love and hold dearly is hard enough, but to witness it twice. And not only twice, but he second time holding in the guilt of feeling as though its your own fault. I haven’t been bird watching since the incident, and currently have no desire to.
 
 I don't know how much posting this will help, but all things considered. I actually do feel a bit better. If you decided to read up until this point. I appreciate you. 
 
