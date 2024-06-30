@@ -88,11 +88,11 @@ I don't know if i should reply or not. If this voice is only in my head and not 
 
 "Hey fucky fuck, I'm talking to you," to me says this rude ghost. "I'm asking you for a second time, who the fuck are you?"
 
-Maybe this just some prison hallucination that happen to some prisoners. Perhaps I am best to keep my mouth shut and try to fall asleep. Perhaps it is carbon monoxide poisoning. Against everything I had ever thought I knew, I wonder, perhaps it was an actual ghost.
+Maybe this just some prison hallucination that happens to some prisoners. Perhaps I am best to keep my mouth shut and try to fall asleep. Perhaps it is carbon monoxide poisoning. Against everything I had ever thought I knew, I wonder, perhaps it was an actual ghost.
 
 The apparition does not speak to me a third time, and vanishes.
 
-The ghost by the way, was androgynous and had medium ok care.
+The ghost by the way, was androgynous and had medium ok hair.
 
 That was my first encounter ever with this ghost and I have had a second one that I don't have enough time to tell you about in this one internet break. More to follow.
 
