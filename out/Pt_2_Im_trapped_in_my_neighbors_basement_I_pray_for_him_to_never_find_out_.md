@@ -77,7 +77,7 @@ We where like that until she suddenly went silent, wiped the tears of her face, 
 
 *How could I?*  
 
-I was confused. Very confused. Did that woman intended to turn me into Thomas or something? Was she delusional? Was that why she had kidnapped me? 
+I was confused. Very confused. And scared. Scared like I've never been before. Did that woman intended to turn me into Thomas or something? Was she delusional? Was that why she had kidnapped me? 
 
 It was so crazy, but I honestly would be surprised if it was the so named *truth*.  She looked so haggard. So pitiful. No matter how hard I tried, something in me couldn't hate her, even though, for starters, she was the one who took away my freedom and locked me in that place. Not that I felt sympathy for her,  but I had the feeling  that I was missing a piece of the puzzle. I felt like,  without it, I was in no position to judge yet.
 
@@ -87,7 +87,9 @@ Now, I deeply wanted to believe, once again, in the hope. The hope of one day be
 
 For the last time in my life, I was a child again.
 
-Just an innocent child who believed n fairy tales once more.
+Not a child who was afraid, but a child that knew she was safe.
+
+Just an innocent child who believed fairy tales once more. 
 
 [Part 1](https://www.reddit.com/u/Anitaruihi19/s/QXRAOfgS8c)
 
