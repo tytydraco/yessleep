@@ -8,7 +8,7 @@ How they tracked me down is pretty impressive, considering I followed other basi
 
 That same year I somehow got awarded a flat earth scientific achievement award based on that same meme.
 
-Within minutes, the meme was read and laughed by people who lived close enough to any bare bones library and by people who had at least once in their life looked at the sky for ten minutes.
+Within minutes, the meme was read and laughed at both by people who lived close enough to any bare bones library and by people who had at least once in their life looked at the sky for ten minutes.
 
 Flat earth critics had a field day with that one and the event made hundreds if not thousands of top tens across the globe.
 

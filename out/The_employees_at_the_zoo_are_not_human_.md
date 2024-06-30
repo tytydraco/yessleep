@@ -22,7 +22,7 @@ We walked up to the gate. Abby held my hand and resisted the urge to skip. We ma
 
 
 
-As we walked out of the booth. I wasn't fully paying attention. Typically, I like to give people who are working jobs like this my full attention and try to be as nice as possible. Make eye contact, be patient, not be on my phone. You know, the common courtesy you should pay to an employee like this. I try my best to make up for the annoying Karens who ruin their days by doing these things. However, I was fumbling with my wallet and Abby was behind me asking me something so I was awkwardly facing her as I walked up. As I was looking at my wallet for a credit card that I misplaced, I looked up at the employee to apologize for taking so long. After glancing at him for a second, I had to do a double take. Not on purpose or anything, my brain just did it automatically. 
+As we walked up to the ticket booth I wasn't fully paying attention. Typically, I like to give people who are working jobs like this my full attention and try to be as nice as possible. Make eye contact, be patient, not be on my phone. You know, the common courtesy you should pay to an employee like this. I try my best to make up for the annoying Karens who ruin their days by doing these things. However, I was fumbling with my wallet and Abby was behind me asking me something so I was awkwardly facing her as I walked up. As I was looking at my wallet for a credit card that I misplaced, I looked up at the employee to apologize for taking so long. After glancing at him for a second, I had to do a double take. Not on purpose or anything, my brain just did it automatically. 
 
 
 
