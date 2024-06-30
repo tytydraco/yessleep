@@ -1,0 +1,66 @@
+This is an account of some events that happened to me two years ago in New Orleans. I haven’t spoken about this to anyone. Like me, my friends and family are not believers in the paranormal. I just don’t have any explanation for what happened to me. 
+
+A few years ago, I took a series of jobs in hospitality as a way to travel to different parts of the USA. In 2022, I took a position at a small hostel in New Orleans. The hostel is a beautiful Victorian house just on the edge of the French Quarter, and I was really excited about using it as my base to explore the city and the state of Louisiana.
+
+Like most old houses, the building had some quirks. You know how wood settles in old houses? - sometimes it would sound like there were footsteps upstairs. Guests in Room 3 would always come down to reception to check if there was a problem with the air conditioning - that room was always cold. I remember the Yale lock on the front door would start whirring for no reason, despite changing the batteries and the lock itself.
+
+It was a few weeks into my stay there that things began to get strange. It started with the candlestick. It was autumn, and since the peak season was now done, we decided to deep clean the house, including the top floor which is not open to guests. I remember reaching up to dust the top of a bookshelf, when my hand hit something. There was a sudden crash that made me freak out that I’d broken something. I’d knocked something heavy-sounding off the top of the bookshelf, and it had fallen, luckily, into an open cardboard box instead of denting the wooden floors. I looked at it, turning it around in my hand. It was covered in cobwebs, and what looked like rust, but I could see that underneath all that was a beautiful ornate candlestick.
+
+I put my hand up on top of the bookshelf again, feeling around for its pair, but I couldn’t find it there, or anywhere else around the room. I’m pretty sure I went to look for the other staff right then, wanting to show them this beautiful candlestick, and to ask if they’d seen the other one. I thought it would be good to put them out on display. The first person I came across was a girl I’ll call Meghan. I showed it to her excitedly, asking if she’d seen the other one, but she just raised her eyebrows and said it was creepy and to chuck it out. I argued that it just needed cleaning up, and I ended up taking it to the bathroom, washing off all the cobwebs and the rusty stuff - which lucky washed off without any difficulty. I never did find the other one, but I found a candle for it and put it on display on the dining room table. 
+
+Around this time, I started sleeping badly. It wasn’t nightmares, exactly, I just never woke up feeling rested. It was like the feeling you get, right when you wake up, just after your dog dies or your got your heart broken - it’s a feeling of dread sinking in your stomach, just for a second, knowing something is wrong, waiting the memory to hit again. But it never did, and I never knew why I felt that way. It was just something I went through it every morning. 
+
+I don’t remember now if it was the next morning, or a few days later, but I went to put out the breakfast, and the candlestick wasn’t on the table anymore. I didn’t think anything of it - people get drunk on Bourbon Street, come back late and do weird things. I found it under the table, and put it back where it was. The next day though, it had moved again, and this time I found it on the other side of the room. And strangely, the rusty substance was there again, creeping slowly back up the base of the candlestick.
+
+A few days later, it had moved again, and I had to spend a good amount of time searching for it. I was already in a bad mood that morning because of something that had happened the night before. I’d wanted to go and see a friend’s jazz band that evening, and asked if someone would switch shifts with me. I’d switched shifts as a favour to them more times than I could count. Most people like to go out in the evening in New Orleans to enjoy the nightlife, but I was studying on the side, enjoyed the quieter night time shifts where I could sometimes read a little, and would often stay at the desk after the end of the shift to study in the peace and quiet. But I didn’t understand why it was that the one time I asked to go out in the evening, everyone avoided my eyes and just shuffled awkwardly. Why were they so selfish when I asked them to switch with me? After what happened to me later, I have an idea why they didn’t want to be alone there after dark.
+
+Anyway, on this morning, I was looking for the candlestick, I didn’t blame party-goers anymore, and had a good idea who kept moving it. A few nights ago, I’d come up from the evening shift to the kitchen. It was dark, all the lights off, and I’d come into the dining room. I’d glimpsed Meghan standing there looking at it. Even though I only saw her from behind, I knew it was her - she was the only girl here with long dark hair. And she’d said the candlestick was creepy the very first time she’d seen it.
+
+I found it again, this time, shoved in the bottom of the storage closet, and when I saw Meghan, I confronted her, telling her to stop moving the candlestick. She said she didn’t. I was holding it in my hand, and felt this consuming rage flow through me - honestly, a kind of anger way out of proportion to what was happening. It was just for a second, and I came to my senses. She was looking at me with wide eyes. I put the candlestick back on the table.
+
+After that, I kept seeing the candlestick in the dining room, and I felt little embarrassed about almost losing my temper with Meghan. I didn’t know why she lied about moving it, but I pride myself on being professional and I didn’t feel good about what had happened. I felt guilty every time I looked at it. Once day, while cleaning, I randomly moved it into Room 4, where I wouldn’t walk past it several times a day. I didn’t plan on keeping it there, but that room wasn’t going to be occupied for a few days. 
+
+A little while after this, something else happened. One night, I’d finished the evening shift, and began studying at the front desk. It was just after 1am when I heard footsteps in the corridor behind me. 
+I recognised the woman who came into the lobby - she was staying upstairs in one of the dormitories. Due to a missed flight, a party of four people who were due to stay in that dormitory had not arrived . They had phoned earlier, telling me they had decided to stay in Fort Lauderdale another week and wanted to reschedule their whole stay. So, this lady was staying alone in what I think was a 5-bed dormitory. When I saw her, her hair was messed up and she looked really tired, so I was immediately concerned. 
+
+I think I asked her if everything was all right, and she asked me if I could check on the person in the room next to hers, because it seemed like they had been crying for hours. She hadn’t been able to sleep because of the noise, and was pretty worried that the person in there was not doing ok. So, I followed her upstairs to knock on the door where she’d heard the crying, taking the keys with me in case I needed to let myself into the room. Next to hers was one of the dormitories - it had eight or so beds but tonight there were only a couple of girls staying there. I stopped outside, and raised my hand to knock on the door when she stopped me. She said the crying had been coming from the room opposite her, Room 4. Now I had assumed she meant the dormitory, because that room was occupied - Room 4 was not. 
+
+I told her this, but she seemed certain that the crying had been from coming from that room. Right then, there was nothing other than silence and the creaking of an old house. I tried to reassure her that the noise she heard was probably one of the hostel’s cats, or another animal. I’d heard that there’s a kind of swamp rat in Louisiana that can sound like a baby crying, and I’ve heard foxes in the woods before that sound like a woman being murdered. I’m no stranger to the unsettling sounds wild animals can make. But to put her mind at ease, I decided to check Room 4. I opened the door, and switched on the light.
+
+No one was there.
+
+I gave her my reassurances, and she went back to her room. Something else had caught my eye though.
+
+The lampshade on the far side of the bed was torn, and something was on the pillow. I walked around the bed, and saw what had happened. On the pillow were some small shards of broken glass, and on the floor was the candlestick. It was as if it had been thrown across the room at the lamp, torn through the fabric of the lampshade, and smashed the lightbulb. Something I probably should have mentioned…Meghan had returned to her home county before I took the candlestick in this room. I had a bad feeling right then that it had never been her moving it. 
+
+I didn’t see much of that woman over the next couple of days, up until one morning I was working reception. I heard the sound of suitcase wheels and quick footsteps coming down the tile corridor. It was her, the woman who had heard the crying, saying she wanted to check out. She still had three nights left on the reservation, so I asked lightly if there had been a change of plan. She just shook her head, and when I looked at her face, she looked pale, with dark circles under her eyes as if she hadn’t slept. I tried asking if there was a problem with the room or anything we could do to help her enjoy her stay, but she shoved the keys at me and was gone. Once she left, I went up to her room.
+
+I wondered what had made her act so weird. I checked all over the room, but I never found out.
+A few days later Room 4 was booked, and I meant to take the candlestick back to the dining room. Instead, I put it in the cleaning caddy, forgot about it, and it made its way downstairs with me. Rather than take it back upstairs, I decided to take it to my room, and return it to its spot tomorrow.
+
+Something happened that that night almost made me leave the hostel.
+
+Even writing about it now makes me feel uncomfortable. I woke up that night to the sounds of someone moving around in my room. I was still half asleep, and thought I was dreaming, but, in a way I can’t describe, I knew somehow that those noises weren’t coming from inside my mind. They were coming from somewhere in the room. I heard footsteps, rustling, and then finally the feeling of someone, or something, sitting down on the bed. I remember the weight of it, the way it depressed the mattress. And somehow, I just knew that whatever it was wasn’t human. I kept as still as I could, but my heart was beating so hard I was sure that whatever it was would hear it. It seemed to sit there for a long time, while I lay there, too afraid to move, my every nerve attuned to it.
+
+After a time, I felt the bed move again and it was gone. I never heard the door open or close. I remember lying there for a long time, the covers pulled over my head, hearing my heart beating against the mattress, sounding like footsteps. Too terrified to move.
+
+It was after this, I started looking into leaving New Orleans. I slept with the lights on, and only a kind of twitching, nervous half-sleep at that. My heart was always beating too fast and too hard in my chest. The lack of sleep wasn’t helping, I knew, but I was afraid of sleep. I felt constantly like there was someone behind me. I kept imagining footsteps coming down the corridor. 
+
+One morning, another staff member went to start their shift and the keys were gone. This irritated me because there were three sets when I’d finished my shift the night before. I can’t explain why this angered me as much as it did. I’m not usually quick to anger, but I just felt that rage building inside me again, and a sense of being so deeply wronged.
+
+Looking back, I’m pretty sure no one made any accusations against me or anyone else, but I just felt everyone was accusing me of having lost them because I was on shift the previous night. I started demanding to view the cameras to see who had taken the keys. I think everyone just wanted to calm me down, so the manager went and got the laptop and brought up the video feed. We found last night’s footage - there was me, getting everything done, three sets of keys hanging up. Me turning off the light, and leaving. We started skipping through the footage until we saw the door open again. 01:33am.
+
+That’s when I saw the worst thing I’d ever seen. 
+
+Myself.
+
+I saw myself enter the lobby, take the key off the wall, and head down the corridor. There’s a sick horror I can’t describe in seeing yourself doing something you have no memory of doing. Realising own body isn’t something you’re in control of.
+
+I think I apologised, I really hope I did. I left the same day.
+
+I’d never sleepwalked before, and I have no explanation for what happened. Thankfully, since I left, I haven’t had anything weird happen. I’ve been able to move on with my life and think about it less and less. But sometimes, I can still see that video in my mind’s eye, and the feel sensation of the mattress sinking as whatever it was sat watching me. New Orleans is amazing and the house was beautiful, but whatever happened to me was the most terrifying experience of my life.
+
+
+
+
+
