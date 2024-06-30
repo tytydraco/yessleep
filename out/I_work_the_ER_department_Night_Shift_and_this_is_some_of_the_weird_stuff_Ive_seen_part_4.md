@@ -121,3 +121,5 @@ In case you’ve forgotten, (G) was our janitor, who’d died of Covid complicat
 I know I sound stupid. I know I sound dumb. But I didn’t feel threatened. So I put him on the stretcher, covered a sheet over his body — sorry, it’s body, and now, I’m writing this, sitting in the morgue, waiting for something to happen. There’s a reason we aren’t supposed to be down here… be with them, but I feel strangely fine. Safe. 
 
 I’ll update you all when I can. 
+
+[Part 5.](https://www.reddit.com/r/nosleep/s/mOmeqJXz84)
