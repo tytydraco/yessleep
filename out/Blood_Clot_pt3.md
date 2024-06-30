@@ -1,5 +1,3 @@
-Blood clot pt3 definitive 
-
 Thank you for your kind words, I appreciate them. Now to pick up where I left off. You can catch up [here.](https://www.reddit.com/r/nosleep/s/fbutmtt2ra)
 
 After posting, I slumped into my seat, wrapped in my blanket, a few drops of water still running down my face from my damp hair. I was the most miserable I’d been in years. The only time I felt worse was when I found my brother’s body, a level of despair I highly doubt will ever be topped. I looked down at a patch on my blanket where my brother embroidered his name. It was the one patch that he contributed to.
