@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1ds89b1/lemme_tell_you_bout_my_swamp_towns_cryptid_part_2/)
+
 Nobody on earth needs to see The Mire Drip, wasn’t even like we was asking for it. Reminiscing now sends a shiver down my spine. Just thinking bout that thing—it gets the scars on my chest crawling. 
 
 Even still, it gets stuck in your head. Pheromones, something like that. Every time you gaze into its swamp, no matter who you are, you can’t help but feel the clammy air against your skin and that pungent odor: rotting vegetation, stagnant water and moldy vanilla that never truly leaves your nostrils. You have to ask about the thing no one wants to talk about, like an itch needing to be scratched.
