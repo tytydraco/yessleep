@@ -1,44 +1,41 @@
-I am a bird watcher. Initially, when my grandfather talked me into joining him one day, I was reluctant. If only I never listened to him and stayed home. I must admit that in the years following our first outing into the smaller wooded areas of Nebraska, I absolutely adored it. I know people find it cheesy (I still do as well) when some say "It's like I'm becoming one with nature" but in a way this is really what that felt like. Identifying bird species to the point of almost feeling like you know them on a personal level. It's refreshing in a way. That is until a few months ago.
+[Part 1](https://www.reddit.com/r/nosleep/comments/1drtxyy/redheaded_woodpecker/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-I began bird watching with my grandfather over 15 years ago, and being able to spend that time with him that I knew was dwindling felt like such a privilege. At least much more than others can say. He died last year, and I haven't been the same since. Not only mentally, the grieving process has never really hit me as hard as this. No losing family members as a child, no pets, and no friends. 
+Now for the people who have already read... I just had my second strange encounter with whatever this thing is last night.
 
-Just my grandpa. Although, in a strange, unexplainable way, I haven't lost him. At least that's how it seems. I guess that's why I (and apparently many others) am here to do. I don't know if I will receive any answers, but I'll ask anyways.
+first off, I notice a lot of people "introduce" themselves at the beginning of their posts. I haven't really introduced myself properly because I didn't want to risk any people like co-workers, or family stumbling upon this. And possibly pick up the idea that I'm not mentally well. But at this point, I don't really care how it may make me look. I just need to vent. My name is Jason and I am 25, that much I will say. I'm not sure if what I saw really was something that took the form of my grandpa, or my mind playing tricks on me while the grieving process was still in full force. For weeks since that first incident in the woods, I watched every local news channel I could almost every night. Spent countless nights looking up stories of a random man bleeding out in the parking lot of a random park. But nothing. Not a single source to validate my experience as real. But I know what I saw, and I know it was real.
 
-It all started about 2 months ago. I drove down to one of my me and my grandpas favorite locations to watch and listen for those magnificent winged creatures. It was a rather gloomy day. Clouds of fog filled the horizon, it was slightly drizzling, just enough to where I could feel it on my feet but not enough to fully soak my socks. Annoying to some, but to me... It just caused more memories of grandpa to flood back. Nearly ever spot I looked in that park reminds me of him. My mind connects words or sentences he finely crafted in his raspy, grunted voice with bark on specific trees I was looking at while listening to him.
+Although now I don't know what I saw, or rather, what I am seeing. Because it came back. Last week, I came home late after a nearly 9-hour shift where I am a gas station assistant manager. Consisting mostly of mopping, stocking, and helping customers when we get them. The normal work you'd expect from someone you'd see working that job. I carefully maneuvered my car right in front of my shitty, never renovated, and damp one floor house, and walked inside. Hoping whatever was leftover in my fridge that day hadn't gone bad yet. Thankfully, I had just enough to make a turkey sandwich. I hopped in the shower after my sandwich, and decided to watch some TV now that my roommate wasn't there to hog it like he usually is at this time. He's in Florida or some shit for Spring Break. Despite him being well out of college and having a full time job. But hey, who am I to stop him from giving me the house to myself. It wasn't until my eyes began blinking at different rates that I decided to go to bed. 
 
-That's when I heard it. My grandpas favorite bird. Even though it's technically against the parks rules (who follows them anyways), I decided to go off trail to see I could catch a glimpse at the red-headed woodpecker myself. I'm not sure why my grandpa was so infatuated with woodpeckers anyways. Not to say that they're boring, but I've always been more of a bigger bird person myself. The fog continued to cloud my vision, This has always been my favorite part. Playing a game of hide and seek with the birds, hearing it in your left ear, you turn left. then hear it on the right, you turn right. Like a different, more humane version of hunting. No need to harm... just to find. 
+Hours passed like seconds. Every hour waking up, positioning my head to the clock on my night stand. 9, 10, 11, 12. Finally. 1:26am. I didn't wake up to the normal restless kicking or constant dreams like I do most hours of the night. Instead, it was the sound of a chittering Red-headed Woodpecker. The same exact frequency, the same exact tone, coming from directly outside my window. I stayed in bed, anticipating to hear the sound of shattering glass following it. But I never got that. It may have been an actual Red-headed woodpecker, sure. But with that recent scuffle still terrorizing my thoughts, I don't know. 
 
-I heard it on my right, I turned right. Then on my left, I turned left. Then I found it. peered around at the tree with the bird. About 50 yards away, only it wasn't a bird. It was a man. He was completely naked. Heavily malnourished. His face was drenched in blood. Repeatedly smashing his head against the bark. At the same rapid speed as a woodpecker would, and making the exact sound a woodpecker does. I couldn't take my eyes off it. I watched in horror as more pools of blood cemented itself on the base of the tree. Slowly trickling down. Then, in my own normal stupidity, I attempted to help
+But what came next may have been the most disturbing part of this whole experience so far. 
 
-"Hey!" I bellowed in a cracked voice, knowing that at that exact moment, I shouldn't have said anything "are you ok sir?" 
+The chittering stopped. I continued to lay in my bed, listening to the hum of the AC. Painful seconds flooded by as I awaited the next noise. The drumming. The chittering. Anything. But instead, I began hearing pacing from outside my house, while whatever was out there started to speak my name. 
 
-The man continued to bash, until the sound finally ceased to echo and the sound finally got to him. The man slowly reeled his head around to me. A mix of blood, saliva, and wood, covered the entire circumference of his face. The excessive dripping from his forehead caused the vast majority of his face to be shrouded in a dark haze. As soon as he saw me he let out a perfect woodpecker call. A high pitched chittering sound, one that wouldn't be out of the ordinary for a bird. Yet much less ordinary coming our of a grown man.
+"Ja-a-a-a-a-ason J-a-a-a-a-ason" as if a bird was attempting to do its best impersonation of a human. Failing miserably. 
 
-He then proceeded to get into a sprinters start position for a track race. It seemed as though he was giving me a head start, and it didn't take long for me to register that.  
+I froze, the hairs standing on the back of my neck felt strong enough to lift my head off the pillow. I laid there, motionless, with my eyes glued to the curtain drawn window to my left. There was a figure. It was looking at my window like it knew my presence, but still hadn't found me yet. I heard a faint yet swift swoosh as the shadowy figure brushed past. Then I heard it to my right. So my head jolted right.
 
-I took my opportunity, retraced my steps, and bolted back to the rickety wooden trail. The wind against my face, mixed with my panicked and fatigued breaths we're loud enough to drown the out the world around me. Run. Just. Run. A loose nail jutted out from the damp wood caught the toe cap on my right foot. Causing my entire body to flail forward. The immediate rush of silence brought me back to reality. I began to hear the rapid wet slaps of bare feet against the wood. 
+"Ja-a-a-a-a-a-ason" the thing croaked, still sounding more bird than human. The thing had this raspy, almost mucous-y sound to it. Like the first cry you'd expect out of a new born baby. Crying and attempting to finally breath air. 
 
-Before I pushed myself back up, I peered back around my shoulder. The sounds of the woodpecker drumming started up again as he began crawling on all fours, continuing to rapidly beat his head into the rotting wood. I continued into the direction of my car. Now making sure to attempt to watch for any obstructions in front of me. 
+Whatever this thing is, it somehow knows me. it knows my name, it found where I live. It was too dark outside to completely make out whether or not it was the same man that looked like my grandpa. But there was a figure. Running past both of my bedroom windows. As if it were in a desperate panicked attempt to find me. This went on for nearly an hour. But no way was I going to risk my luck again, only to find out that I used up the last of it back on that trail. I don't know if it was the shock I was in, or what, but I finally decided to call 911 after 45 minutes. Something I obviously should have done two months ago.
 
-I jostled the keys from out of my pocket. Trying to keep my pace as I did so. I successfully got to my car. But the man in my side mirror continued to sprint toward me, still keeping his perfect impersonation of a small chittering woodpecker. I got inside, key in ignition, but before I could reverse... tap tap tap tap tap smash. The man had managed to drum the glass of my driver window so hard that it shattered all across my lap, his blood coming with it.
+"911 what is your emergency?" the operator questioned
 
- I floored it, dragging the man with me for a few feet, giving me enough time to fully see the things face. It had the face of my grandpa.
+Before I could get my words out, I heard the muttering of the creature in a more raspy, hushed, and almost hurt voice...
 
-I attempted to mutter his name, before a shard of glass still attached to the car quickly and silently drove into it's neck. The shard detached and he rolled away from the car. the thing just laid there, motionless. 
+"S-e-e-e-e  yo-u  tomo-r-r-r-r-ow  ni-i-i-i-ght-t-t  Ja-a-a-a-ason" 
 
-I cried for what felt like hours. Losing someone you love and hold dearly is hard enough, but to witness it twice. And not only twice, but he second time holding in the guilt of feeling as though its your own fault. I haven’t been bird watching since the incident, and currently have no desire to.
+The faint sounds of leaves and twigs crunching rapidly followed. I hung up the phone, not knowing how to explain what I'd just witnessed without the operator or police officers thinking I was high. Yet sure enough, the officers still arrived anyways. I explained the bare minimum. Seeing a figure outside my house. Worried of a forced entry. But since there wasn't actually an attempt, there was nothing they could do. Which I understand.
 
-I don't know how much posting this will help, but all things considered. I actually do feel a bit better. If you decided to read up until this point. I appreciate you. 
+But the way this thing is now going about deteriorating my mental state scares the shit out of me. If it was going all around the house saying my name, it must have been "looking for me". But the moment I call 911 to try and get help it immediately gives me a sign that it knows I'm here. Refusing to do anything. Like it wants to play this sick little game. Since I refused to participate last time. And since I seemed to have refused this time as well, I'm scared shitless of what it's willing to do next
 
-Please feel free to leave any questions, comments, or concerns in the comments.
+Again these are all just theories. I have no fucking clue what this thing is. I'm just scared shitless, and someone in the comments of my last post suggested I get a weapon. I've never been much of a pro gun person, hell, I've never even shot one. But at this point, I might do just that.
 
-Thanks.
+Anyways, I thought I should share this here just as an update. I'm currently at a hotel for the next few days. So I can at least be around people if anything goes wrong. And I'm going take off work for obvious mental health related reasons. 
 
+I'll update if anything else happens
 
+End of Part 2
 
-
-
-
-
-
-
+ 

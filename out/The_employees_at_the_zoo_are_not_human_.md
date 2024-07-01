@@ -178,7 +178,7 @@ Then we walked by some deer. Most of the people lying on the ground, but some tr
 
 
 
-After what felt like miles, we made it to the seal show. About 10 employees surrounded us. All of them with the same terrorizing futures. The setup for the show wasn't anything too crazy. Just a few bleachers lined up facing an in-ground pool and a platform where an employee stood with a microphone to talk about the show.  
+After what felt like miles, we made it to the seal show. About 10 employees surrounded us. All of them with the same terrible features. The setup for the show wasn't anything too crazy. Just a few bleachers lined up facing an in-ground pool and a platform where an employee stood with a microphone to talk about the show.  
 
 
 
@@ -274,7 +274,7 @@ The enclosure was easy for me to get into. It was just a big fence so I got in f
 
 
 
-I got to the person who called out to me and dropped to my knees. I couldn't believe how much worse it was up close. I was trying my best not to look at their deformed body, but it was like trying to look away from a car crash. I could see their once human body now sculpted into something unearthly. I could see where fake zebra ears were harshly sewn into the side of their head. Their hands sewn together in a fist to try and simulate a huff. Their body was painted in cheap white paint and black stripes were poorly brushed over it. A mane that looked like it was superglued to the back of their head and down the back of their neck made out of a cheap party wig. 
+I got to the person who called out to me and dropped to my knees. I couldn't believe how much worse it was up close. I was trying my best not to look at their deformed body, but it was like trying to look away from a car crash. I could see their once human body now sculpted into something unearthly. I could see where fake zebra ears were harshly sewn into the side of their head. Their hands sewn together in a fist to try and simulate a hoof. Their body was painted in cheap white paint and black stripes were poorly brushed over it. A mane that looked like it was superglued to the back of their head and down the back of their neck made out of a cheap party wig. 
 
 
 
