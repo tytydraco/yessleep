@@ -165,3 +165,5 @@ We watched it back at the apartment, on Cassie’s laptop.  I stared in breathl
 She couldn’t disguise the desperation in her voice.  Not this time.  She could be hurt, she could grieve, she could be angry, but rarely was she at a loss of what to do.  If she didn’t have the answers, then she at least had the confidence that she’d find them.  But our problems have been piling up and it felt like with this last discovery, the mountain was now insurmountable and we were left clinging for purchase, about to be blown away at the slightest breeze.
 
 For on the computer screen, we’d watched as I walked up to the black pool of water, knelt, [and](https://alderrayne.com/) [drank.](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1dsislv/how_to_survive_college_teamwork_makes_the_dream/)
