@@ -107,3 +107,5 @@ A tear spilled down her face her face.
 [Part 2](https://www.reddit.com/u/Anitaruihi19/s/sL8AKDQjDt)
 
 [Part 1](https://www.reddit.com/u/Anitaruihi19/s/QXRAOfgS8c)
+
+[Epilogue ](https://www.reddit.com/r/nosleep/s/QMDjDr3eWy)
