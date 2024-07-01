@@ -16,19 +16,19 @@ Then like it was on cue the lights in the vehicle started to flicker. At first t
 
 I quickly shifted into neutral to try and coast down the downhill stretch I was on, all the while trying to restart the ignition. It wouldn't give. I started out onto the road in disbelief as I guided the vehicle onto the shoulder. I slammed the steering wheel in anger and got out of the car. I heard my voice echo through the mountains, taunting me, my curse reverberating back to me.
 
-Clouds had rolled in and it was DARK out. I realized quickly, just because there was a paved road here didn't mean I wasn't alone in the woods at 1 in the morning encircled by remote wilderness. The last town was an hour back and the next on probably a 4 hour walk. I stared into the deep woods surrounding me on all sides, ears straining at every twig snapping, or leaf rusting. Wearily anticipating at any moment a cougar to pounce from the brush.
+Clouds had rolled in and it was DARK out. I realized quickly, just because there was a paved road here didn't mean I wasn't alone in the woods at 1 in the morning encircled by remote wilderness. The last town was an hour back and the next one probably a 4 hour walk. I stared into the deep woods surrounding me on all sides, ears straining at every twig snapping, or leaf rusting. Wearily anticipating at any moment a cougar to pounce from the brush.
 
 I wasn't going to make it to the show, I would have to wait here until tomorrow probably and get towed to the nearest shop. The whole trip was a wash. I popped the hood and looked over the internals but nothing seemed out of sorts. I put my hands on my head and walked defeatedly. Suddenly I was jostled out of my absent minded self pity as a massive 18 wheeler whizzed past, the gust of wind nearly knocking me over, knees weak from almost being turned to pavement pâté.
 
 **'HEY WATCH IT!'** I screamed as it zoomed off over the crest of the hill. Why didn't he stop to help? How did I not hear or see him? I was shaking from the adrenaline. How stupid could I be? I was in black jeans and a black leather jacket. He probably didn't even see me.
 
-Suddenly my car started up. My jaw dropped. I was confused because I didn't even turn the ignition on but I wasn't about to question the inner workings of vehicle mechanics. I hopped back in, ecstatic, the record that was playing resumed at full blast. I was in disbelief, but in my excitement didn't question how weird it was. I just put my foot on the gas and made up for the time I had just lost.
+Suddenly my car started up. My jaw dropped. I was confused because I didn't even turn the ignition on but I wasn't about to question the inner workings of vehicle mechanics. I hopped back in, ecstatic, the record that was playing resumed at full blast. I was in disbelief, but in my excitement didn't question how weird it was. I just put my foot on the gas and made up for the time I had lost.
 
 It was only about another half an hour or so when I saw it.
 
 ***"ROAD CLOSED DUE TO CONSTRUCTION, PLEASE USE FOREST SERVICE ROAD DETOUR IN 100M FOR NEXT 1KM FOR REROUTE".***
 
-*"What..."* I said in shock. Route detour? Forest service road? Out here? I had no other option. I had no idea if my vehicle would break down but I was also running low on gas and wouldn't make it to that last station if I turned around. I tried to make out the map in the little moonlight there now was. I couldn't see the FSR on my map but I looked over the geography and figured if it was only 1km it was probably fine.
+*"What..."* I said in shock. Route detour? Forest service road? Out here? I had no other option. I had no idea if my vehicle would break down but I was also running low on gas and wouldn't make it to that last station if I turned around. I tried to make out the map in the little moonlight there was now. I couldn't see the FSR on my map but I looked over the geography and figured if it was only 1km it was probably fine.
 
 What other option did I have? Give up? Park here and wait and miss the show? It would be unreasonable. I apprehensively slowed as I approached the road blocks and turned off onto the dirt road. There was flagging tape on the trees marking the route. I looked into the utter blackness that surrounded me, it was almost hypnotizing.
 
@@ -84,4 +84,4 @@ My blood ran cold. I looked at a map of where the general area of the supposed p
 
 I zoomed in, and somehow I just knew. That was it... The faint outline of a track in the mountains only a few kilometers from the main road. It was the road I had seen in that dream. The road where I had driven of the edge of the cliff... a place where I had never been. The place where those pioneers met that same fate so long ago.
 
-I don't like to drive anymore.
+I don't like to drive [anymore.next](http://anymore.next) on
