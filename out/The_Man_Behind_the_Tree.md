@@ -1,0 +1,16 @@
+I don’t know how much time I have left, it may not be much, so I’m typing this out while I can. It started a couple days ago one night when I fell asleep. I had a strange dream, one strange thing was I actually remembered the dream, which is strange.
+
+In my first strange dream, I woke up in my bedroom, but it was literally exactly how my bedroom looks in real life, down to where I placed the TV remote for the night. I remember I went downstairs because I heard a knock on my backdoor like someone was out there. I looked outside and saw nothing.
+
+In the morning I thought, “hm that was strange” but I just thought it was just some strange, weird dream. I carried on with my day waiting for night to come so I could get some glorious sleep.
+That night, I had yet another dream, in my second dream, this time, the remote was where I left it for the night, which was different from yesterday. I did the same exact things I did last night, except this time, I looked closer outside. I saw a man, absolutely covered in blood, outside peeking behind a tree staring in at me, just smiling. I then jolted awake, and somehow, it was perfectly time for me to wake up, I spaced setting an alarm but somehow, I woke up exactly when I needed to.
+
+I then remember turning on the news (a daily habit). I saw something that made my blood run cold. I saw a police sketch of a man in my area who’s been suspected to murder 15 different people. My naive and stupid self thought “It’s not the same person, just a coincidence, I’m gonna be fine”. After that I went to work and someone asked me if I saw the news, apparently someone who had dreams about him was just found dead, drowned in the nearby lake.
+That’s when I felt my blood run cold. I went home that night worried but I knew I was gonna be fine. On my drive home, I kept looking out every window thinking I saw something. 
+
+On the way home I stopped by my neighbors house to ask if they had also been having strange dreams (I was desperate to see if I were crazy). Once I got there I was met with police cars and an ambulance. My neighbor was dead, it was a sight truly horrific, blood everywhere and the message on the wall saying “Sleep Well”. I talked to an officer on the scene and he told me I was crazy. Of course our dreams can’t connect to real events. He told me unless I had any real leads, “go home, you’ll be fine” Once I got home I was petrified, I was overreacting, everything would be fine. Everything in my home was locked. 
+
+Call me stupid, but that night I went to sleep. This final time in my dream, everything happened but after I saw the man I ran upstairs. I barely remember the rest. All I remember is writing something on my computer, him breaking in, and as he was about to reach me I woke up.
+
+Once I woke up it was only 2:09 A.M., I had only been asleep for two minutes. I then went down to get water and you wouldn’t believe who was outside. This wasn’t a dream, this was real.
+I ran upstairs and hid in my room behind my bed, that’s where I am now, he’s breaking down the door and I know I have very limited time left before he kicks the door in. If I don’t make it please, if you have dreams of this man, seek help while you can, even though there may not be much you can do. 
