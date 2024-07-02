@@ -176,7 +176,7 @@ I feel something in here with me. I thought it was the dog but, I’m not so sur
 
 **January 20, 2018.**
 
-# I woke up to breathing on my neck. It felt like someone breathing. I need to get out. I lost my phone. It wasn’t where I left it last night. I keep hearing banging at the end of the hallway.
+I woke up to breathing on my neck. It felt like someone breathing. I need to get out. I lost my phone. It wasn’t where I left it last night. I keep hearing banging at the end of the hallway.
 
 I can’t open the door to get outside. It won’t open.
 

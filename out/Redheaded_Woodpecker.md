@@ -28,14 +28,12 @@ Before I could get my words out, I heard the muttering of the creature in a more
 
 The faint sounds of leaves and twigs crunching rapidly followed. I hung up the phone, not knowing how to explain what I'd just witnessed without the operator or police officers thinking I was high. Yet sure enough, the officers still arrived anyways. I explained the bare minimum. Seeing a figure outside my house. Worried of a forced entry. But since there wasn't actually an attempt, there was nothing they could do. Which I understand.
 
-But the way this thing is now going about deteriorating my mental state scares the shit out of me. If it was going all around the house saying my name, it must have been "looking for me". But the moment I call 911 to try and get help it immediately gives me a sign that it knows I'm here. Refusing to do anything. Like it wants to play this sick little game. Since I refused to participate last time. And since I seemed to have refused this time as well, I'm scared shitless of what it's willing to do next
+But the way this thing is now going about deteriorating my mental state scares the shit out of me. If it was going all around the house saying my name, it must have been "looking for me". But the moment I call 911 to try and get help it immediately gives me a sign that it knows I'm here. Refusing to do anything. Like it wants to play this sick little game. Since I refused to participate last time. And since I seemed to have refused this time as well, I'm scared shitless of what it's willing to do next.
 
-Again these are all just theories. I have no fucking clue what this thing is. I'm just scared shitless, and someone in the comments of my last post suggested I get a weapon. I've never been much of a pro gun person, hell, I've never even shot one. But at this point, I might do just that.
+I have no fucking clue what this thing is. I'm just scared shitless, and someone in the comments of my last post suggested I get a weapon. I've never been much of a pro gun person, hell, I've never even shot one. But at this point, I might do just that.
 
 Anyways, I thought I should share this here just as an update. I'm currently at a hotel for the next few days. So I can at least be around people if anything goes wrong. And I'm going take off work for obvious mental health related reasons. 
 
-I'll update if anything else happens
-
-End of Part 2
+I'll update if anything else happens.
 
  
