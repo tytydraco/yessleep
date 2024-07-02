@@ -60,14 +60,11 @@ That visit was two months ago, and I don't believe they're doing anything with t
 
 **January 5, 2018**
 
-  
 Hi I don't really know what to say. Its weird just talking to myself. I guess its not really talking to myself. My therapist will eventually take a look at these. She’s the one who suggested that I do this. Hi Dr. Sano. Or just Kyra if you prefer. Hopefully you don't have a hard time reading this. I'm still getting used to typing on a keyboard again. The screen reader I got has been useful. I really don't like that I can't see. Obviously. It fucking sucks. But I'm alive. Great. Besides getting better at reading braille and having my dad pack my stuff for when I go dog sitting. Nothing has really changed. I still miss Zach.
 
-# January 8, 2018
+**January 8, 2018**
 
- 
-
-# Hi, I’ve acquired the power of the COMMA! Along with other punctuation marks, of course. I’m still not sure how long I should make these entries. Kyra said I should track my feelings and use this to work through my grief. Not sure how exactly I’ll do that yet, but I’ll also write down what happens each day. I don’t really have anyone else to talk to right now. After the car crash, I pretty much pushed everyone away. The only people who are still around are my ex-boyfriend Tyler and my dad. Tyler doesn’t tell me what’s happening in his life anymore. I’m guessing he’s moved on; it’s been over a year since I lost my vision. I don’t blame him, but he still comes by and checks on me.
+Hi, I’ve acquired the power of the COMMA! Along with other punctuation marks, of course. I’m still not sure how long I should make these entries. Kyra said I should track my feelings and use this to work through my grief. Not sure how exactly I’ll do that yet, but I’ll also write down what happens each day. I don’t really have anyone else to talk to right now. After the car crash, I pretty much pushed everyone away. The only people who are still around are my ex-boyfriend Tyler and my dad. Tyler doesn’t tell me what’s happening in his life anymore. I’m guessing he’s moved on; it’s been over a year since I lost my vision. I don’t blame him, but he still comes by and checks on me.
 
 My dad and I were never that close, and we’ve only grown further apart. I know he blames me for Zach’s death. The only reason we talk at all is because of my disability. I feel lost.
 

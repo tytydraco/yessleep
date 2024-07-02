@@ -109,3 +109,5 @@ I still know that they're watching me. Even with the pills and the therapy and e
 There's a flake of gold. It's under the fingernail on my middle finger of my left hand, it must have gotten lodged there when I was scratching those patches off my neck. I could probably get it out, if I wanted, but I don't want to. The flake reminds me that they're here, the width of a shadow away. I don't think I could stand to forget.
 
 **["Beth" has since passed away due to an apparent accidental overdose of psychiatric medication, given by a newly hired member of staff. No investigation has been conducted to date.]**
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1dtt0om/this_is_why_you_dont_get_brain_chips_the_numind/)
