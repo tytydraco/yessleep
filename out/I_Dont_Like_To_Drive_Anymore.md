@@ -84,4 +84,4 @@ My blood ran cold. I looked at a map of where the general area of the supposed p
 
 I zoomed in, and somehow I just knew. That was it... The faint outline of a track in the mountains only a few kilometers from the main road. It was the road I had seen in that dream. The road where I had driven of the edge of the cliff... a place where I had never been. The place where those pioneers met that same fate so long ago.
 
-I don't like to drive [anymore.next](http://anymore.next) on
+I don't like to drive anymore.
