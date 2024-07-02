@@ -1,6 +1,6 @@
 
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1dpekqq/the_satan_gene_community/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1dpekqq/the_satan_gene_community/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 Good news, I’m not dead. Bad news, things have gotten stranger… I’ll fill you in. I'm writing this to you now. I won't go back in the closet to audio record. So, there I was facing off with the scientist in the devil mask and a dead body hung above me. I asked the scientist in the devil mask what they wanted. They didn’t answer. They dropped the rope that held the body and ran. It fell with a *thud* and a *splatt*. My professor’s head bounced on the floor, free of his body, and it felt like his eyes were trained on me. We held eye contact for what felt like too long and then I ran after the devil-masked man.
 
