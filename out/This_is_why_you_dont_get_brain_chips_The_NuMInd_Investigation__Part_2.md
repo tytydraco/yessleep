@@ -45,7 +45,7 @@ S: [To doorman] 'If this man tries to enter, remove him forcefully.'
 
 INTERVIEW 2
 
-Subject is a junior engineer and NuMind, designated 'Adam' for this interview. Interview takes place in a fast food restaurant a short distance from NuMind headquarters.
+_Subject is a junior engineer and NuMind, designated 'Adam' for this interview. Interview takes place in a fast food restaurant a short distance from NuMind headquaters some months ago when the company was still active and performing closed beta testing with subjects like Beth._
 
 Adam: 'Fully anonymous yeah? And I want to be paid first.'
 
@@ -119,38 +119,45 @@ A: We had names for them too, trying to take the edge off it. We got better at s
 
 I: 'What happened to the testers who didn't get better, where the personality stayed?'
 
-[Adam's phone beeps]
+[Adam suddenly looks across the restaurant, and his face goes pale. I follow his eyeline and catch a NuMind employee looking away.]
 
-A: 'Shit, I've gotta go. I've emailed you some stuff, I'll send you another report tonight.'
+I: 'Adam, are you okay?'
 
-[Adam hurriedly pulls on his coat and leaves the restaurant.]
+[Adam does not respond, his eyes flicking between the stranger and me]
 
-_After following Adam out, I waited outside the front door and saw two other patrons follow Adam back inside NuMind headquarters. Adam has subsequently not responded to any followup attempts at contact, although I have observed him entering and leaving the building.
-Adam now wears a NuMind patch._
+I: 'Adam, what happened to the testers?'
+
+A: 'Shit shit shit. I've...I've got to go. I've got to go. Shit...'
+
+[Adam hurredly pulls on his coat, his hands shaking, and leaves the restaurant. The stranger gets up to follow him, talking quietly on a phone. I attempt to follow them, but am stopped by a waiter demanding payment. In the moments it takes me to sort this out and hurry from the restaurant, the stranger has a firm hand on Adam's shoulder and is leading him inside the NuMind building. I am once again forcefully denied entry when I try to follow my terrified source]
+
+_Adam has subsequently not responded to any attempts at contact, ignoring all texts, calls, and emails. After scouting the location for some days I observed him leaving NuMind headquaters. When I went to speak to him he did not recognise me, and quickly ended the interaction in a hostile way. Adam was wearing a NuMind patch._
+
+
 
 NOTE 1
 
-Email from Adam immediately prior to interview
+Email from Adam prior to interview
 
 _Subject: Some Stuff_
 
 _Hi Ian,_
-_I'm happy to talk to you and tell you what I can, but I won't be able to give you hard proof because the company tracks any files that are transferred off the servers._ 
+_I'm happy to talk to you later today and tell you what I can, but I won't be able to give you hard proof because the company tracks any files that are transferred off the servers._ 
 
 _I've attached some bits you may or may not use. If you do use them then you don't know me. Follow up the invoice too, I don't know what it means._
 
 _Don't trust anything that comes from the company._
 
 _Adam._
-Attachments were as follows:
 
-A scan of a NuMind ID card
+Attachements were as follows:
 
-Floor Plans of NuMInd headquarters, with the rear vehicle entrance circled and a note reading
+Floorplans of NuMInd headquaters, with the rear vehicle entrace circled and a note reading "Alarm will sound if you don't scan a company ID card"
 
-"Security open gate if you flash ID card. All other doors need scanning"
+A link to a video filesharing site, displaying a company publicity event
 
-An invoice to an organisation that supplies human tissue and cadavers for research purposes.
+An invoice to an organisation that supplies human tissue and cadavers.
+
 
 
 NOTE 2
@@ -163,5 +170,8 @@ _Hopefully this note will answer any further questions._
 
 _With love_
 
-Some important information: I tend to open my post as soon as I come home, meaning I was still wearing my gloves as I read this letter. Afterwards I found that the back of the paper stuck to the leather. Investigation revealed microneedles and femtoprocessors used by the NuMind corporation embedded in the paper. The purpose of the technology could not be ascertained.
-The investigation continues.
+The day had been cold, and I had not yet taken off my gloves when I opened the envelope. The letter had no identifying marks, however it was not until I tried to put the mysterious paper down that I realised I had potentially just saved my own life. Sticking to the leather of my gloves, jutting out from the paper, were a series of barely visible barbs. I'm sure I don't need to tell my readers that my blood ran cold at the sight. The letter, the whole paper, was a patch. Basic technology, but enough to tap into my nervous system. 
+
+Hands shaking, I put on an over mitt over my glove and carefully peeled the sticker away. Under a microscope there was no doubt.
+
+The investigation continues, though I am now aware that there is a target on my back from some remenants of this company. Despite this danger, jounalism shall not be silenced.
