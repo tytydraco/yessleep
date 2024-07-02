@@ -1,5 +1,7 @@
 [Inital investigation notes found Here](https://www.reddit.com/r/nosleep/comments/1dl6ter/their_brain_chip_will_destroy_you_the_numind/)
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/1dtr60l/this_is_why_you_never_get_a_brain_chip_the_numind/)
+
 **No wordy intro this time, there is something big coming. I have them scared. While I get the final parts together, I'd like to share some correspondence from a victim of NuMind, transcribed exactly as written, though with the names changed.**
 
 **Stay vigilant, stay hungry, and STAY AWAY from any NuMind tech that's still floating about. Not everything got recalled.**
