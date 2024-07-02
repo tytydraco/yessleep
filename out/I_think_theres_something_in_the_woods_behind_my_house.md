@@ -1,0 +1,28 @@
+To give context, I moved to Oregon a little over a year ago now. The house I moved into is down a hidden driveway and has a house in front and to the right. Everywhere else surrounding the house, however, consists of a forest (I believe it has a name but I don't want to reveal it on here since you know.. Privacy)
+Being quite frank, I've always been someone who tends to find fun in scary ghost stories, but I've never truly believed in anything like skinwalkers, dogmen, etc etc.
+
+I was smoking on my back porch one night with the kitchen light on. With the way my house is, when the kitchen light is on at night, it lights up the whole porch but makes the forest look like a black abyss.
+I remember firstly hearing a few child-like giggles and footsteps sort of circling near the entrance of the woods but I genuinely didn't care. Yes, no one's allowed in those woods (especially kids practically in my backyard), but hearing kids play isn't concerning.
+Even when a faint "hello" ringed through the night air, I wasn't that alarmed.
+I began hearing "Hey you, help me." over and over which slightly scared me.
+Since I assumed the voice was coming from a young girl as it sounded, I ducked down behind my porch furniture, not wanting a child to see me smoking. Right then, I heard the voice shout "You, ducked down, help me."
+I vividly remember INSTANTLY putting my cig out on my hands and grabbing my dog, running for the back door. Heavy HEAVY steps sounded behind me, and once I got in my house and began locking the door, I heard the footsteps begin to climb the stairs to my porch.
+I was SUPER freaked out about it but once I started playing video games with my friend, my mind wasn't really on it. In the middle of me laughing I just remember LOUD BANGS coming from my window (that is right next to me and has no blinds) and I spent the rest of that night hugging my legs in a corner just staring at the dark window.
+
+After that, there was knocking on my window (on the second floor) once every few days and I learned to ignore it. I also began hearing heavy footsteps walk around my yard often. Around this time, I began being open with my step sister about this stuff and she mentioned one night when she went downstairs to get water, she heard loud steps walking around our wooden porch. So basically a lot of foot steps up to this point lol
+
+Around two weeks ago I was outside and I saw a TLL white figure just standing in the woods. I didn't feel scared though if that means anything? I didn't feel in danger but I was kind of creeped especially aly since the be figure slowly stepped behind a tree after I spotted it.
+That same week, My sister came to visit with her roommates and one night I was standing outside with them smoking and chatting. I don't know why, but 2 of them went inside, leaving my sister, one of her roommates, and I. 
+
+I went inside quickly to do something and I heard my sister calling for me from the porch so I came out. All she said was she "heard something" in the trees and wanted me out there for comfort.
+I remember looking past her to the trees as she and her friend continued nud talking, and I saw a black figure. I BEGAN TO HEAR A WOMEN FAINTLY CRYING and i just said "run" to my sister and all three of us TUMBLED inside screaming. 
+When we got inside we landed in the floor near my sister's make-shift bed in my living room, and we heard her friends laughing about something ing. My sister was super freaked when I said I heard someone crying, but I told her that maybe we heard her friends laughing. I didn't tell her or anybody as a matter of fact about the figure at that time because she's always been a more anxious person who HATES stuff like horror movies, and Ididn't  want her to lose sleep since she had a plane ride in the morning.
+
+Finally, yesterday I was outside AGAIN smoking when my dog began sitting next to me and panting. My dog is a small corgi who usually acts very brave and aggressive and I've NEVER SEEN HIM SHAKE THAT MUCH OTHER THAN THE TIME HE ACCIDENTALLY INGESTED  THC. So, me thinking he ingested thc again, I started to frantically search his mouth and around him for anything, but he began climbing into my back ad standing on my shoulders as if the floor was lava. Another thing about my dog is he HATES being on somebody or showing a lot of physical affection so I knew something was wrong. I picked him up and put him on the grass in front mt of the forest line and he stared straight at the forest before running to the backdoor and clawing it like his life depended on it. 
+I let him in and he immediately ran to the corner of my living room, BUT i just went back out and sat where i was previously: My back to the forest, sitting on the mossy stone bench in my garden. 
+
+I heard footsteps circling but didn't think much of it until I began bearing the lowest growling sound I have ever heard in my life. I slowly turn my head and i just see the bush violently shaking while ghe growling gets more intense. I literally FELT THE VIBRATIONS in the bench i was on.
+I didnt even put my cig out, I just ran jnside and didn't sleep AT ALL that night. 
+This mornin i facetimed my sister and told her all of this, and she said when I told her to run and she looked into the trees before taking off, she saw a black figure. She said she just didn't think it was real since I didn't seem to see it.
+
+This was the longest thing I've types, especially in english as It's not my first language. So I'm sorry if this is a mess, I just want to see if anyone has advice?
