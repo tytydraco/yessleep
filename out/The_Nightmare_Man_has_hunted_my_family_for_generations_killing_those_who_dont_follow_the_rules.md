@@ -160,7 +160,7 @@ It had been nearly two decades since I saw my father. The towering monument to c
 
 “I think I was there,” I said. “As a boy, I got trapped… somewhere else. It felt like I was there for days, but the Sun never rose.”
 
-“You need to fight fire with fire. Purify the Nightmare Man with the flames. End it, son. Avenge your mother and myself and kill this evil bastard.” 
+“You need to fight fire with fire, Tommy. Purify the Nightmare Man with the flames. End it, son. Avenge your mother and myself and kill this evil bastard.” 
 
 \*\*\*
 
