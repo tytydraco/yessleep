@@ -46,7 +46,7 @@ Eventually, I worked up the courage to ask my roommate about it.
 
 His answers were dismissive and suspicious, to say the least.
 
-I thought about calling the police, but realized I had no proof that any of these women were actually disappearing, or that any fowl play was really going on.
+I thought about calling the police, but realized I had no proof that any of these women were actually disappearing, or that any foul play was really going on.
 
 So I did what any right minded roommate would do, and rather than call the cops, I decided to investigate myself.
 
