@@ -62,7 +62,7 @@ The pictures sprawled out like a slideshow across my screen. They showed the tru
 
 He had been outside. 
 
-As I swiped through the images the truck got farther and farther away. Each image clear, taken with his new Android phone; the license plate perfectly readable. It said simply: U R I E L
+As I swiped through the images the truck got farther and farther away. Each image clear, taken with his new Android phone; the license plate perfectly readable. It said simply: URIEL
 
 I knew immediately it was a fake plate, it almost looked sharpied on in the pictures, minute inconsistencies with the lettering and spacing. The question is why? A liscense wouldve been something tangible, an actual thread to yank on. This was almost nothing. And why did I care so much?
 
@@ -72,13 +72,15 @@ He would have sudden, fuming outbursts screaming about random things in "words t
 
 And that was it. She went home shortly after and packed a bag. Apparently the apartment was too much for her then, so she was staying with her mom a state over for the foreseeable future. 
 
-It was past eight when she left, and I could already feel the warnings presence looming overhead, counting down the seconds until it could make it's voice heard. Lex settled back down into bed and started clicking through YouTube once more. We had both called into work for the next couple days, much to the disdain of my manager, so I was prepared to hibernate another day at least. 
+It was past eight when she left, and I could already feel the warning's presence looming overhead, counting down the seconds until it could make it's voice heard. Lex settled back down into bed and started clicking through YouTube once more. We had both called into work for the next couple days, much to the disdain of my manager, so I was prepared to hibernate another day at least. 
 
 Before I joined her though, I got on my computer and ran a search for the words "URIEL", "TRUCK", and any combination of the words I could think of. Absolutely nothing. Aside from a company called "Uriel Trucking", the Internet was just as empty-handed as me. Two hours later and knowing no more than I had previously, I retreated to the bedroom and prepared for another sleepless night. I thought about making an update once more, but just couldn't get in the right mindset. 
 
-I didn't even know if I had an update, let alone the energy to write one. I mean, so what, the guy went outside while the truck was here. I had no evidence to suggest that meant anything. I'm sure dozens of people get home late and step outside when the trucks there. 
+I didn't even know if I had an update, let alone the energy to write one. I mean, so what, the guy went outside while the truck was here. I had no evidence to suggest that meant anything. I'm sure dozens of people get home late and step outside when the truck's there. 
 
-Except no they didn't. It hit me then like a freight train on NOS. Aside from the cars parked along the border of the lot, I had never, EVER, seen anyone come or go from the other buildings in the complex. I had always chalked up the lack of people to my own introverted mindset but no, I hadn't physically seen another tenet in all my time here. Had I really been so caught up in my own existence I failed to notice the others around me?
+Except no they didn't. 
+
+It hit me then like a freight train on NOS. Aside from the cars parked along the border of the lot, I had never, EVER, seen anyone come or go from the other buildings in the complex. I had always chalked up the lack of people to my own introverted mindset but no, I hadn't physically seen another tenet in all my time here. Had I really been so caught up in my own existence I failed to notice the other ones around me?
 
 I told lex I'd be right back and hopped out of bed. Checking the time, I ran outside, hopped in my car, and headed to the gas station. Twelve bucks later I was driving home with a bag of coffee and monster. I finally had something I could do. 
 

@@ -45,7 +45,7 @@ I was panting now. This guy stressed me out. And where the hell was Sam at?
 
 “W-what did you do to him?”
 
-“I did him justice. I can promise you Mr Aldin, he did not suffer greatly.”
+“I did him justice. I can promise you Mr Aldin, he did not suffer greatly. The man was guilty of infidelity toward his beautiful wife.”
 
 “You're crazy, Silas.” I said. “I'll be glad to see you go.”
 
