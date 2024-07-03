@@ -386,10 +386,40 @@ I tried to move on, to forget. But how do you forget the love of your life? How 
 
 I couldn't handle it. Ended up checking myself into a psychiatric hospital. Spent two months there, trying to convince myself it wasn't real, that I hadn't lost everything.
 
-It's been eight weeks since I got out. I'm writing this because... I don't know. Maybe I need someone to believe me. Maybe I just need to get it out.
+But...
 
-But here's the thing. I can't let it go. I can't let her go. I'm thinking of moving back into Skyline Towers. I know it's fucking crazy, but I have to try. I have to see if I can recreate the loops, if I can get my Emma back.
+I couldn't let it go. I couldn't let her go. So, against my better judgment, I found myself back at Skyline Towers.
 
-I'll keep you updated, Reddit. If you don't hear from me again... well, you'll know I succeeded.
+My old apartment was occupied, but luck was on my side. The new tenant, a sweet old lady named Dorothy, was more than happy to let me in when I spun a cheerful story about having lived there before.
+
+"Oh, how lovely! I always enjoy a bit of building history," Dorothy said, ushering me inside. "Why don't I put on some tea while you look around?"
+
+As she bustled off to the kitchen, my eyes were drawn to the wall where I'd scribbled my frantic calculations. It was a different color now, noticeably off from the rest of the room. A sofa had been pushed up against it.
+
+I moved closer, running my hand over the paint. It felt... uneven.
+
+"That paint doesn't match the room, does it?" Dorothy's voice made me jump.
+
+"Yeah," I said, trying to keep my voice steady. "It was a different color before."
+
+Dorothy nodded, setting down the tea tray. "Oh yes, the landlord told me about that. Said someone had vandalized the wall with scribbles. When I moved in, it was just black stains – probably someone tried to wash them off. So I had my grandson paint over it. This was the only color he had in his garage, and I didn't want to bother him to buy a different one."
+
+My heart was pounding. "Did you... did you see any of the writing before it was painted over?"
+
+"Hmm..." Dorothy frowned, thinking. "Oh! You know, I did find some papers under the mattress when I first moved in. Full of weird scribbles, text, and numbers. Couldn't make heads or tails of it, except for one word that kept repeating – 'loop' or something like that. I just threw it in the trash, didn't know what to make of it."
+
+I felt like I couldn't breathe. It was real. It had all been real.
+
+I made my excuses to Dorothy and left as quickly as I could without seeming rude. My mind was racing. The scribbles on the wall, the papers with calculations – it was all proof that I hadn't imagined it. The loops, Emma, our child... it had all happened.
+
+Now, sitting in my current apartment, I'm writing this all down because I need someone to know. Because I'm scared of what might happen next, but even more scared of doing nothing.
+
+I have to go back. I have to try to recreate the events, to get back the love of my life. To get back Emma. It sounds crazy, I know. Hell, maybe I am crazy. But with this proof, I can't just let it go.
+
+I'm going to dig deeper. There has to be more evidence, more clues about what really happened in Skyline Towers. About the AI I created and the nightmare it spawned.
+
+I'll keep you updated, Reddit. If I find anything interesting – or if something goes terribly wrong – you'll be the first to know.
+
+If you don't hear from me again... well, either I've succeeded in going back to the loops, or something much worse has happened.
 
 Wish me luck. Or don't. I'm not sure which is worse anymore.
