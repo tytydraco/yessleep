@@ -100,7 +100,7 @@ I was fucking right.
 
 ~
 
-Now I sit here, five days after my original post, in my home which eeks ever closer to liminality. My thoughts are disjointed, messy. There's too many threads to pull, too many questions unanswered. 
+Now I sit here, five days after my original post, in my home which ekes ever closer to liminality. My thoughts are disjointed, messy. There's too many threads to pull, too many questions unanswered. 
 
 I'm writing this now not because I have anything concrete to report, not to gain clicks on an update that asks more questions than it answers, but because my phone rang a couple of minutes ago. 
 
