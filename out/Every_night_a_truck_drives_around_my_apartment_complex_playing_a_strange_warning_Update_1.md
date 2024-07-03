@@ -1,3 +1,5 @@
+Part One: https://www.reddit.com/r/nosleep/s/QGiakyhkNV
+
 Sorry it took so long for me to push this update out, we've been... busy to say the least. First of all, I promised I would go straight over to the reception building and ask the staff what they knew. I did this, though it was certainly underwhelming.
 
 The waiting room was bland; set up like a doctor's office from the 70s, I had to approach a small window set into the wall to the left of the door. I had been here previously when the app we pay rent through was down and we had to manually hand over a check. Unfortunately, a different person sat behind the pane, unfamiliar.

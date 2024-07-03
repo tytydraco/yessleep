@@ -1,0 +1,51 @@
+I've always been a night owl, usually finding myself wide awake well past midnight. It’s a habit I've carried since my college days, where late-night study sessions were the norm, and it’s never really left me. After graduating, I moved to Los Angeles for a job, hoping the city’s endless energy would suit my nocturnal lifestyle. But despite the time that’s passed, I’m still not used to everything—the sprawling neighborhoods and the constant noise.
+
+My initial plan was to move in with my parents, but we had a falling out just before my move. The argument stemmed from my grandmother’s will. When she passed, I was left out entirely while my parents inherited everything. Feeling betrayed and resentful, I decided I couldn’t live under their roof. With limited options and time running out, I had to settle for a crummy apartment in the shadier part of town. My apartment overlooks one of the busier streets in the area, so I've become quite accustomed to the sounds of traffic at all hours. The constant hum of engines and distant sirens have become a kind of white noise that usually lulls me to sleep. However, something strange has been happening lately that's left me unable to sleep.
+
+It started a few weeks ago. I'd be up late, reading or watching TV, and I'd hear the buses going by. Normally, the last bus in our town runs until 11 p.m., but recently, I've been hearing buses rumble by well past that time. At first, I brushed it off, thinking maybe the city extended the hours or added a new route. But curiosity got the better of me.
+
+One night, around 1 a.m., I got the courage to peek out of my window. The streets were quiet, almost eerily so, and the air was heavy with that peculiar stillness only found in the dead of night. As I scanned the street, I saw it—a bus, idling at the stop on the corner, its interior lights flickering dimly. I watched for a few minutes, waiting to see if anyone would get on or off, but the bus just sat there. The sight left me unsettled, but I couldn't muster the nerve to go outside.
+
+Over the next few nights, the bus kept appearing at the same time, idling at the same spot. Each time, I would watch from my window, my curiosity and unease growing with every sighting. Finally, one night, I decided enough was enough. I threw on a jacket and headed downstairs. The streets were just as silent and still as before, amplifying the sense of dread that had been building inside me. As I reached the corner of my block, I saw the bus again, its lights still flickering, and I knew I had to find out what was going on.
+
+Approaching the bus, I took a closer look. It looked like a standard city bus—nothing about it screamed unusual or out of place. Its exterior was weathered, the paint chipped and peeling in spots, but otherwise, it seemed like any other bus. My heart pounded as I hesitated, standing just outside the door. The door creaked open on rusty hinges, the sound piercing the stillness of the night and sending a shiver down my spine.
+
+Without hesitation, I climbed aboard, dropping an old worn dollar bill  into the box as I made my way to the back of the bus. The driver, a shadowy figure in a worn uniform, didn't speak or even look at me, just stared straight ahead as if I didn't exist. I settled into one of the seats near the rear, feeling a sense of unease creeping over me.
+
+The bus interior was dimly lit, with flickering lights casting eerie shadows on the worn, cracked seats. The air smelled faintly of mildew and old leather, mixing with the metallic scent of rust. Graffiti covered the walls and the backs of seats, some of it recent, some of it old and faded. I noticed a few seats with stuffing spilling out, torn from years of use and neglect. The windows were grimy, and cobwebs clung to the corners, swaying slightly with the motion of the bus. The floor was littered with old ticket stubs, wrappers, and other debris, adding to the sense of decay and abandonment.
+
+As the bus started moving, I glanced out the window, expecting to see familiar streets. Instead, the scenery quickly changed to a desolate area filled with old warehouses and empty roads. The warehouses were dilapidated, their windows broken and walls covered in graffiti. Rusted machinery and abandoned vehicles littered the grounds, creating an eerie, post-apocalyptic landscape. My heart began to race, and a cold sweat broke out across my forehead.
+
+I looked around, noticing the eerie emptiness outside. Not a single car or person in sight. I pulled out my phone, hoping to check my location, but there was no signal. Oddly enough, I noticed the battery was at 2%, even though it had been fully charged when I left. The screen flickered uselessly before going dark. Panic surged through me as I realized something was terribly wrong.
+
+Desperate, I tried to walk toward the front of the bus, but my legs felt like they were made of lead. Each step was a struggle, my movements slow and labored. I reached out to steady myself, my fingers brushing against the cold, worn metal of the seats. The air inside felt heavy, as if it were pressing down on me, making it even harder to move.
+
+"What's going on?" I demanded, my voice trembling, but the driver remained silent, his eyes fixed on the road ahead, completely unresponsive. His face was partially obscured by the dim light, giving him an almost ghostly appearance.
+
+I fumbled for the door, trying to push it open with all my might, but it wouldn't budge. Panic rising, I glanced around and spotted the emergency release lever. I grabbed it, yanking hard, but nothing happened. The lever felt rusted, stuck in place, as if it hadn't been used in years. I pounded on the window, hoping to attract someone's attention, but the streets outside were deserted, the buildings looming like silent sentinels in the dark.
+
+As I continued to struggle, I noticed the bus seemed to be moving faster, the scenery outside blurring into a nightmarish haze. The desolation and decay of the warehouses gave way to an even more unsettling landscape, one that seemed to shift and change with each passing second. My heart pounded in my chest, a frantic drumbeat of fear and desperation.
+
+Desperate, I turned back to the driver, only to find the seat empty. My stomach dropped, and panic washed over me like a tidal wave. Sweat started to bead on my forehead as my breath came in shallow, rapid gasps. The reality of the situation hit me hard, and I felt a cold dread creeping up my spine.
+
+I looked around frantically, my eyes darting to the windows and the door, seeking any way out. The windows were clouded with grime, and the door remained stubbornly shut. I noticed the dashboard covered in strange, glowing symbols that I couldn't understand. The symbols pulsed with an unnatural light, casting eerie shadows on the cracked vinyl of the driver's seat. The sight of them made my skin crawl, a deep sense of unease settling in my gut.
+
+Desperation mounting, I pressed buttons and pulled levers, hoping to stop the bus or open the doors, but nothing worked. Each button I pressed gave a faint, unresponsive click, and the levers felt stiff and immovable under my trembling fingers. My heart pounded louder with each passing second, the fear gripping me tighter. The symbols on the dashboard seemed to glow brighter, as if mocking my futile attempts to escape.
+
+My mind raced, filled with a thousand thoughts and none at all. I was trapped, and the bus hurtled forward into the unknown, carrying me with it. I could feel the oppressive weight of the situation pressing down on me, suffocating me with its intensity. Every creak of the bus, every flicker of the lights, only served to heighten my terror.
+
+Suddenly, I felt a blunt force hit the back of my head. Pain exploded in my skull, and my vision blurred. I tried to stay conscious, but the darkness quickly swallowed me. It felt like being submerged in a black, icy sea, the sound of my own heartbeat echoing in my ears.
+
+I woke up with a start, drenched in sweat, my heart pounding in my chest. For a moment, I couldn’t move, the terror of the dream still gripping me. The memory of the bus and its ominous interior flashed through my mind, mixing with the lingering pain in my head. Slowly, I glanced around, disoriented, before realizing I was safe in my own bed. The familiar sight of my room provided some comfort, but the remnants of fear lingered like a haunting shadow.
+
+As I sat up, I felt something crumpled in my hand. Pulling it out, I found a dollar bill—the same one I had mechanically dropped into the fare box on the bus. Its edges were creased and the surface slightly worn, as if it had seen many hands before mine. But what froze my blood was the message scrawled across it in shaky handwriting: "Next time you won't wake up." The words seemed to burn into the paper, each letter a twisted promise of something malevolent lurking just beyond my perception.
+
+Fear clenched at my heart as I stared at the words, the memory of the nightmare still fresh in my mind. Had it all been just a dream? I turned the dollar bill over in my hands, the chilling message glaring up at me. A shiver ran through me. I had to know—was there really something sinister at play, or was my mind simply playing tricks on me?
+
+As the days passed, the memory of the nightmare lingered, haunting me like a shadow. I found myself avoiding the late-night streets, the once familiar sounds now tinged with an unsettling edge. The city's nocturnal symphony of distant sirens and the hum of traffic became a haunting backdrop to my paranoia. No matter how hard I tried to distract myself, the image of that empty bus and the chilling message on the dollar bill remained etched in my mind like a sinister graffiti.
+
+Then, one night, as I lay awake in bed, the silence was shattered by a distant rumble—the low growl of an engine, unmistakably the sound of a bus pulling up to the stop outside my window. My heart froze in my chest as I listened, the fear creeping back in like an unwelcome specter.
+
+
+
+hello! Thank you for readingt, this is my first publishes story so feedback would be appreciated!

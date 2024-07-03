@@ -166,3 +166,5 @@ That leads me to now.
 The reception building, if it's even staffed today, opens in less than an hour. I'm going to take a second to screw my head back on and go ask them straight. Considering the truck leaves when it's broadcast is over, I don't have high hopes for the complex staff knowing anything, but I have to do something.
 
 I feel like I'm going mad.
+
+UPDATE: https://www.reddit.com/r/nosleep/s/bWhpxPTYlb
