@@ -34,7 +34,7 @@ I walked faster and faster up the road, hoping to meet a car, a jogger or a hike
 
 Fortunately, I soon reached the address. Inmuter Str. 2, I didn't see another house with the number 1. The house was a classic Alpine house, a little outdated. The dark wood gave the building a strange aura. Like an animal lying in wait for its prey in the forest.   
 
-The small key box hung outside. I typed in the numbers 0349. The key fell out like a chewing gum machine. I opened the door. Inside, it looked very quaint and classic. There was no reception on the lower floor, just two locked doors. There were deer antlers hanging on the wall and some stuffed animals opposite. A maggot, a fox and a stuffed wild boar's head. They looked as if they had been taxidermied right in the face of death, just before the shot was fired. Their eyes were wide open and for a moment I thought they were chasing me. I shook myself and goose bumps ran all over my body.   
+The small key box hung outside. I typed in the numbers 0349. The key fell out like a chewing gum machine. I opened the door. Inside, it looked very quaint and classic. There was no reception on the lower floor, just two locked doors. There were deer antlers hanging on the wall and some stuffed animals opposite. A marmot, a fox and a stuffed wild boar's head. They looked as if they had been taxidermied right in the face of death, just before the shot was fired. Their eyes were wide open and for a moment I thought they were chasing me. I shook myself and goose bumps ran all over my body.   
 
 I quickly went up the stairs and found the door labeled 1, my room. There were two more next to it.  
 
