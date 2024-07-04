@@ -42,3 +42,31 @@ Needless to say, I was slightly disturbed. That sounded terrifying to me, but ki
 He hopped up to the kitchen table, looking defeated, and started eating his toast. I won’t lie—I got kind of freaked out. I peered into the hallway, into the cloakroom; nothing seemed amiss. It was dark, as it needed a lightbulb, but nothing out of the ordinary. My wife’s words ran through my head: this was a good thing.
 
 That night, he was rather tuckered out from his day at the park. My wife and I were excited to have a full night together and were going to make the most of it, eating junk food in bed while watching a movie—something we hadn’t been able to do since our son was born. Suddenly, all the fizzy pop hit me, and I got up to go to the bathroom. I hopped out of bed and made my way to the bathroom. I thought maybe I’d check on our little man and his “friend” on the way. I placed my hand on the door knob, and my blood ran cold. Before I got a chance to open the door, I heard tap, tap, tap. It sounded just like nails on wood.
+
+I froze, my heart thumping wildly in my chest. The sound was unmistakable: a slow, deliberate tapping, like fingernails drumming against the wooden bedframe. My hand trembled as I finally mustered the courage to turn the knob and push the door open.
+
+The room was bathed in a soft, eerie glow from the nightlight. I scanned the room quickly, my eyes darting to the wardrobe first. It stood slightly ajar, casting a long shadow across the floor. But it was the bed that held my attention. There he was, my son, sound asleep, a peaceful expression on his face. But the tapping continued, rhythmic and persistent.
+
+I swallowed hard and took a cautious step towards the wardrobe, my mind racing with every conceivable explanation. Perhaps it was a branch tapping against the window, or maybe a loose floorboard. I needed to see, to reassure myself that it was nothing more than a child's vivid imagination.
+
+With each step, the tapping grew louder, more insistent. I reached out and pulled the wardrobe door open, expecting to see nothing but a collection of small clothes and toys. Instead, my breath caught in my throat. The wardrobe was empty, save for a few hangers swaying slightly, as if disturbed by a breeze.
+
+And then, a chill ran down my spine. From behind me, I heard a soft, almost inaudible whisper, “I told him not to tell you.”
+
+I spun around, my heart pounding so hard I could hear it in my ears. The room was empty, apart from my son, still sound asleep. I backed away slowly, unable to tear my eyes away from the dark corners of the room. It felt as though something was watching me, something unseen and sinister.
+
+I closed the wardrobe door firmly, trying to steady my breathing. Just then, my son stirred and opened his eyes, looking straight at me. “Daddy,” he murmured sleepily, “my friend says you shouldn’t be here.”
+
+I forced a smile, my voice trembling. “It’s alright, buddy. Go back to sleep.”
+
+He nodded and closed his eyes again, a serene smile on his face. I backed out of the room, closing the door behind me as quietly as possible. As I stood in the hallway, the tapping came to a halt.
+
+I hurried back to our bedroom, my mind racing. My wife looked up from her book, concern etched on her face. “Everything alright?” she asked.
+
+I nodded, though I was far from convinced. “Just a branch against the window,” I lied, trying to convince myself as much as her.
+
+But as I lay down next to her, I couldn’t shake the feeling that something was terribly wrong. The house, which had once seemed so perfect, now felt ominous and foreboding. And the words of my son echoed in my mind: “I wasn’t alone.”
+
+As I drifted off to sleep, I couldn’t help but wonder about the friend who only came out of the wardrobe when it was dark, with a big smile and long fingernails. The friend who tapped on the edge of the bed to help him sleep.
+
+And for the first time since I was little, I found myself petrified of the dark. Suddenly, a creek of the wardrobe sounded. My eyes snapped open to stare at the ceiling. I couldn’t move as my chest began pounding. Tap, tap, tap. 
