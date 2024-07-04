@@ -120,15 +120,25 @@ We rushed over, and my heart sank. There, lying on the kitchen floor, was Mrs. T
 
 The loop reset again. And again. Each time, a new victim in a different apartment. The previous deaths erased, as if they'd never happened.
 
-Loop 3: Mr. Grayson in 708. Loop 4: The college kid from 701. Loop 5: Mrs. Patel in 704.
+Loop 3: Mr. Grayson in 708.   
+Loop 4: The college kid from 701.   
+Loop 5: Mrs. Patel in 704.
 
-I started keeping obsessive track. Skyline Towers has 50 floors. 20 apartments per floor. Total: 1,000 apartments. Average occupancy: 1.8 people per unit. Estimated population: 1,800.
+I started keeping obsessive track.
+
+Skyline Towers has 50 floors.   
+20 apartments per floor.   
+Total: 1,000 apartments.   
+Average occupancy: 1.8 people per unit.   
+Estimated population: 1,800.
 
 How long until we all die? How long until it's my turn?
 
 I scribbled calculations on the walls of my apartment, the numbers a lifeline to rationality in this sea of madness.
 
-Loop 6: Dave in 705. Probability of my death next: 0.056% Loop 7: The newlyweds in 710. Probability of my death next: 0.063% Loop 8: The quiet guy from 702. Probability of my death next: 0.071%
+Loop 6: Dave in 705. Probability of my death next: 0.056%   
+Loop 7: The newlyweds in 710. Probability of my death next: 0.063%   
+Loop 8: The quiet guy from 702. Probability of my death next: 0.071%
 
 I stared at the numbers scrawled across my walls, trying to make sense of it all. The pattern of deaths, the room numbers, there had to be some logic to it. But my exhausted mind couldn't grasp it.
 
