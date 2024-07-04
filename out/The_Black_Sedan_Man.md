@@ -10,7 +10,7 @@ We charged for another 30 minutes before hitting the road again. Around 8:00 PM,
 
 When I woke up, we were in New York. I was surprised we hadn’t stopped to recharge in Pennsylvania, but we needed to find a charging station soon. I glanced in the mirror and saw the same black sedan still behind us. My anxiety spiked, but I convinced myself it was just a coincidence.
 
-Jason suggested we find a hotel with a charging station since he was exhausted and I couldn’t drive due to my medication. We found one in Massachusetts. After a quick stop at a gas station for coffee and snacks, we headed to the hotel. Jason dozed off again as I watched some Netflix, trying to keep my nerves in check.
+Jason suggested we find a hotel with a charging station since he was exhausted and I couldn’t drive due to my medication. We found one in Massachusetts. After a quick stop at a gas station for coffee and snacks, we headed to the hotel. While Jason drove, I watched some Netflix, trying to keep my nerves in check.
 
 The hotel turned out to be more of a motel, old yet modern. Jason collapsed onto the bed the second we entered our room. I went out to the balcony to admire the night sky and get some fresh air. From there, I could see the parking lot. Four vehicles were parked: presumably the receptionist’s, the caretaker’s, our car, and a black sedan. My heart sank. It was the same car.
 
