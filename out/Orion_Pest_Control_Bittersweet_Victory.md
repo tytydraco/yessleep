@@ -478,4 +478,8 @@ I've got some time to figure it out. Pushing myself so hard made the pneumonia a
 
 Edit: The beginning of the mechanic's name starts with an "I" even though it looks like an "L," thanks to this typeface. It's some old Welsh name. 
 
+[I'm sick and bored, here's a story from my childhood. ](https://www.reddit.com/r/nosleep/s/lY85ZUJkKQ)
+
 [(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
+
+
