@@ -45,7 +45,3 @@ Fear clenched at my heart as I stared at the words, the memory of the nightmare 
 As the days passed, the memory of the nightmare lingered, haunting me like a shadow. I found myself avoiding the late-night streets, the once familiar sounds now tinged with an unsettling edge. The city's nocturnal symphony of distant sirens and the hum of traffic became a haunting backdrop to my paranoia. No matter how hard I tried to distract myself, the image of that empty bus and the chilling message on the dollar bill remained etched in my mind like a sinister graffiti.
 
 Then, one night, as I lay awake in bed, the silence was shattered by a distant rumble—the low growl of an engine, unmistakably the sound of a bus pulling up to the stop outside my window. My heart froze in my chest as I listened, the fear creeping back in like an unwelcome specter.
-
-
-
-hello! Thank you for readingt, this is my first publishes story so feedback would be appreciated!
