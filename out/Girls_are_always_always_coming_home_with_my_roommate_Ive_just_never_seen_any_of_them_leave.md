@@ -134,29 +134,15 @@ I laughed nervously, waiting for him to crack a smile…
 
 …But he never did.
 
-He just walked over to the sink and threw up, before turning back to me.
+Instead, he removed a knife from the kitchen cabinet and place it against my neck.
 
-“And if you ever tell anyone I said any of that. You’ll end up like them.”
+"I swear, if you keep asking about the girls I bring home. I'll kill you too."
 
-My heart stopped. He wasn’t kidding. And I had been right about what was going on in his bedroom all along.
-
-My palms started sweating, my heart began to race, and I grew short of breath, as I waited to see what he’d do next…
+My heart stopped, my palms started sweating, and I grew short of breath, as I waited to see what he’d do next…
 
 …But he simply turned around, walked to his bedroom, and closed the door behind him.
 
-I could barely sleep that night… and the next morning… I ran into him in the kitchen again.
-
-He looked like shit, clearly hungover from the night before.
-
-“Hey. Did I say anything weird to you last night? I know we were talking, but I can’t remember what about?”
-
-“I don’t think so. Just small talk.” I lied, before excusing myself to my room.
-
-That’s when I realized that he must have blacked out, and had no recollection of the ominous things he had told me the night before.
-
-In theory, that meant I was safe. But I didn’t care to risk it. And after what he had told me, I couldn’t bear to live in that apartment anymore.
-
-So the next day, I packed my bags, and moved out.
+I could barely sleep that night… and the next morning… I packed my bags, and moved out.
 
 I know in that moment, I should have called the police. Or told someone. Anyone.
 
@@ -172,18 +158,90 @@ But once again, I came up empty handed and, emotionally exhausted, decided I had
 
 Weeks became months. Months became years. And I finally found myself, forgetting about what I’d heard in the apartment…
 
-…Until today… when I matched with my old roommate on a dating app.
+…Until last week… when I matched with my old roommate on a dating app.
 
 I’m not exactly sure how it happened. I must have just swiped on him accidentally. But all I know is, he left me a message.
 
-“Hey! Been a while! Miss having you around the house. To be honest, I had a crush on you back then. Let me know if you’d want to come back over sometime.”
+“Hey! Been a while! Miss having you around the apartment. To be honest, I had a crush on you back then. Let me know if you’d want to come back over sometime.”
 
 My hands began to shake as I read the message, and considered my options…
 
-…Visit him, maybe armed, and find out once and for all, what’s going on over there…
-
 …Finally, after all these years, report him to the police…
 
-…Or…
+...Unmatch him...
 
-…Just unmatch him.
+...Or...
+
+…Visit him and find out once and for all, what’s really going on over there…
+
+And no matter how hard I tried to resist the last option, I felt compelled to return to my old apartment, and the next day, found myself standing in his bedroom, as he closed the door behind us.
+
+We spent the first hour or two watching a movie, during which time it became very obvious, as I had expected, that he intended to sleep with me.
+
+But when I made it clear that I had no interest in sex, he got frustrated, and moved his agenda along.
+
+"Wanna see the roof?"
+
+"The roof?"
+
+In all my years living in the apartment, I had always been under the impression that no one in the building had access to it. Apparently I was wrong.
+
+He then proceeded to open his closet door, and revealed a ladder to the roof.
+
+"Yeah I want to show you something."
+
+"Okay, sure." I replied, somehow at the same time playing along as if I didn't know his intentions, realizing that the roof must be where all the bodies of those girls are, and terrified by what was about to happen. But I had to find out.
+
+A few minutes later, I climbed up the ladder and onto the roof, to find...
+
+...Nothing, yet again. Just an empty rooftop.
+
+It just didn't make sense. I was sure that the girls would be up there.
+
+I looked out at the skyline of the city, unable to not compare its striking beauty with the horror that was sure to unfold.
+
+"Beautiful view."
+
+"Oh, that's not what I wanted you to see." He replied, as he walked over to the side of the building and gestured for me to follow.
+
+"Take a look."
+
+There, between my old apartment building and the neighboring one, was a square fence, separating us from the space between the buildings.
+
+I walked over to the edge and looked down, careful to keep an eye on him in my peripherals, and sure enough...
+
+...Saw it...
+
+...The very answer to the mystery...
+
+...A hollow, brick shaft with no windows, that went straight to the ground, four stories below...
+
+...And at the bottom...
+
+...Were the countless bodies of the women that my roommate had brought home, stacked on top of each other, each one clearly brought up to the roof just as I had, and each one clearly pushed off the roof and down to the bottom.
+
+I turned to my old roommate, a look of horror washing over my face, as he charged at me and tried to push me down.
+
+We grappled for what felt like minutes, as I teetered on falling off the edge, struggling to grip onto the edge of the building.
+
+But what he didn't know, is that I had come prepared.
+
+Suddenly, blood started spraying out of his body, as I removed the very steak knife he had once threatened me with.
+
+He gave me a look of surprise. As if he had never, in his wildest dreams, expected that one of the women he brought up to the roof, would ever be capable of putting up a fight, let alone putting an end to it all.
+
+He was wrong.
+
+I simply looked on, as he clenched his wounds, and took a few steps back, tumbling down the shaft between the buildings and landing at the bottom, his body splattering beside the mound of his victims.
+
+I stood there, frozen and shaking, terrified by what I had encountered, but at the same time, relieved to have discovered where all those women had gone.
+
+I called the police immediately.
+
+But the thing about my roommate was. It turned out he was the son of a very rich politician. 
+
+And the thing about the sons of very rich politicians is. No matter how much evidence there is against them, sometime their crimes can just... disappear.
+
+So when the police recovered the bodies, it was no surprise that no mention of what had happened was ever reported or published in the news.
+
+So here I am, the sole survivor of my roommate's killing spree, and the only one with any knowledge of what happened to all those women, left with only my memory, my words, and the hope that someone will believe me.
