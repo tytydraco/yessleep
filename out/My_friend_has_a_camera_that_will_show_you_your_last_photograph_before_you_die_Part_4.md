@@ -167,3 +167,7 @@ I stared at the two dots. There was something about them that unsettled me. I co
 Two lights…
 
 Almost like *eyes,* staring back up at me through the glossy photo [paper.](http://www.reddit.com/r/blairdaniels)
+
+---
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1dupi3m/my_friend_has_a_camera_that_will_show_you_your/)
