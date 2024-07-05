@@ -1,0 +1,18 @@
+Written in his memory: Mogu don't do anything.
+
+(An annoying sound comes from somewhere, as if someone is throwing something heavy tied with a lot of chains.)
+He opens his eyes and looks in front of him. He looks around and finds himself locked in a small, dark room. He gets up from his place and begins to look at his hands, surprised by his behavior, but he ignores the matter. Then he begins to wander around the room to see what place he is in.
+
+A small, dark room. He found that there were many black bags present in each corner of the four rooms. He went to inspect them and found that they were full of bird heads, some of which were eaten and others were intact. He did not pay attention to them because he found nothing in the bags other than the heads. Among the things he also found was that there were many Of the writings, symbols and drawings on the walls, among these drawings and symbols there was a recurring symbol, which was a circle with a radiant ball in the middle, and there was nothing exceptional other than that.
+
+The boy noticed that he could not raise his head up; Because of something behind his back, the boy felt his back to find that there was something like a wooden pole attached to his skull and heading a little below his back. He tried to grab it from his head, but he could not because it brought him pain every time he tried to pull it, but he was able to look at the ceiling through it. Lying on his back, despite feeling pain, what he found was worth it. He found that there were holes in every corner of the ceiling the size of his body, meaning that he could pass through them.
+
+He got up from his place and quickly went towards one of those openings. He tried to reach it, but he was unable. He looked around him to find anything that would help him reach the opening, but he did not find anything other than black bags, so he collected them and then piled them at the corner so that he could climb on them, but that did not work either. Because he was short, he tried several times, but he did not succeed, so he lost hope of reaching it. The boy went to the corner, then lay on his side and fell asleep.
+
+After some time had passed while he was sleeping, he opened his eyes to the sound of feet coming from the ceiling. The boy quickly got up from his place and began to hear the sound of something footsteps. He was approaching one of the openings with steps as if he was walking slowly. Something arrived. Then he stopped in the middle of the ceiling and threw a black bag out of each opening. He started walking again, heading in the opposite direction from where he came from. The boy quickly went towards the bags and found nothing but bird heads in them. The boy sat in his place and began to wait.
+
+After a short period of time had passed, the boy began to hear the sound of something else from the ceiling. This time he was running quickly towards the boy's room, coughing as if something was following him. He arrived at the opening and threw a wooden key through it, then he started running again, but before his voice disappeared, he heard... The sound of something hitting a wall, then it was quiet again as if nothing had happened. The boy picked up the wooden key and began to examine it. He did not find anything special about it, except that there was a crack dividing the key into two halves. 
+
+He did not know what to do with it, so he split it from the place of the crack after a short while. From his section of the key, he heard the sound of something coming from one of the openings. It was a ladder leading him out of the opening. He quickly climbed out of this room, and the first thing he saw when he stuck his head out was complete darkness...
+
+top continue.
