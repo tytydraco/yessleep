@@ -86,13 +86,13 @@ They threw me into the seat, turning and walking away immediately after. From th
 
 I found out the boy’s name was Ian, and I told him mine was Landon. He said he was from the other end of Frost Hollow, and that he had been on the bus for days without food or water.
 
-“It circles around to different towns,” Ian whispered. I looked out the window, seeing a dark desert all around us. Sand dunes swirled on both sides of an endless highway. I hadn’t noticed when the world outside had shifted from forest to desert. “Those things without faces, they come in people’s houses, get inside their head and their dreams. They make you think horrible things. They used to scream at me that I needed to kill myself, to hang myself or slit my wrists. I call them the Skulkers.”
+“It circles around to different towns,” Ian whispered. I looked out the window, seeing a dark desert all around us. Sand dunes swirled on both sides of an endless highway. I hadn’t noticed when the world outside had shifted from forest to desert. “Those things without faces, they come in people’s houses, get inside their head and their dreams. They make you think horrible things. They used to scream at me that I needed to kill myself, to hang myself or slit my wrists. I call them the Stalkers.”
 
 “That’s a good name for them,” I said listlessly, still staring out the window at the shadowy, endless dunes. “We’re not getting out of this, are we, Ian? I mean alive.”
 
 “Probably not,” he said, his voice hopeless and dead. On the horizon of the dead, dark desert, a black monolith rose high in the air. In general shape, it looked like a lighthouse, but it had no windows and its outer walls looked like polished obsidian or onyx. It appeared to rise hundreds of stories into the cloudless sky.
 
-The bus started slowing down. The crimson lights lit up overhead. I looked forward, realizing that all the Skulkers had turned their blurry heads now to stare straight back at me and Ian. The driver, too, continuously looked at us through the rearview mirror as the bus came to a stop.
+The bus started slowing down. The crimson lights lit up overhead. I looked forward, realizing that all the Stalkers had turned their blurry heads now to stare straight back at me and Ian. The driver, too, continuously looked at us through the rearview mirror as the bus came to a stop.
 
 “Now arriving: the Playpen,” a robotic female voice intoned calmly through speakers built into the walls. The door at the front flew open. Except for the idling of the engine, everything had gone deathly silent.
 
@@ -110,7 +110,7 @@ As I stepped down onto the inky pavement of the street, I realized that this des
 
 It wasn’t long before we found our first body. A mummified corpse lay on the side of the street, its dried flesh sticking tightly to the bone. Its eyeless sockets stared straight up. Its open mouth looked like it was frozen in a silent scream, a black hole filled with sand. Ian gave a strangled cry as he saw it, falling back.
 
-“Hey, buddy, it’s OK,” I said. “It’s just a dead body.” He shook his head, pointing vigorously at the dessicated corpse. I followed the line of his finger, realizing something odd was happening.
+“Hey, buddy, it’s OK,” I said. “It’s just a dead body.” He shook his head, pointing vigorously at the desiccated corpse. I followed the line of his finger, realizing something odd was happening.
 
 The corpse had begun to shake and rattle, its splayed-out limbs jumping up and down. The ragged strands of cloth still covering its chest and legs ripped apart with a soft tearing sound. Wet, black tentacles covered in dozens of eyes rose up, snapping apart the remaining bones and flesh with ease. As the ribs jutted up like spikes, something hellish slithered out.
 
