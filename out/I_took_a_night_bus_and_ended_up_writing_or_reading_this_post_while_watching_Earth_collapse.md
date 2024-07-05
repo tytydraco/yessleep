@@ -243,3 +243,37 @@ Welcome to the night bus.
 Welcome to eternity.
 
 Welcome home.
+
+The words echoed in the vastness of the void, each syllable stretching into infinity. I felt myself dissolving, becoming one with the endless night, the cosmic horror, the very fabric of this twisted reality. Just as I was about to lose the last shred of my identity, a familiar sound cut through the chaos - the hiss of bus doors opening.
+
+Suddenly, like a lightswitch flicking on, the void, the cosmic horrors, the endless night - all of it vanished in an instant. I found myself standing at a bus stop, the same one where this nightmare began. But I wasn't alone. The bus was there, right in front of me, its doors wide open in silent invitation.
+
+The night was quiet, unnaturally so. No breeze, no distant traffic, just... stillness. My suitcase stood beside me, just as I'd left it. The bus idled, its engine a low, almost subliminal hum that I felt more than heard.
+
+The driver sat motionless, his face obscured by shadow. He didn't speak, didn't move, just... waited. I stood frozen, my heart pounding in my chest. Everything looked normal, felt normal. But I knew better now. I understood the price of this journey.
+
+Time seemed to stretch. It could have been minutes, could have been hours. The bus didn't move. The driver didn't speak. It was as if the whole world was holding its breath, waiting for my decision.
+
+My mind raced, replaying the horrors I'd experienced, the cosmic truths I'd glimpsed. The bus promised an escape, a return to normalcy. But I knew that promise was a lie.
+
+Finally, after what felt like an eternity, I made my choice.
+
+"No," I said, my voice barely above a whisper. "No, I don't think I will."
+
+I grabbed my suitcase and turned away, walking back towards the city lights. With each step, I felt a weight lifting from my shoulders. The job in Chicago, the fresh start - none of it mattered anymore. What mattered was that I was here, now, in control of my own journey.
+
+As I walked, I heard the bus doors close behind me, the engine revving as it prepared to depart. Curiosity got the better of me, and I turned to watch it leave.
+
+But the bus was gone. The street was empty, as if it had never been there at all.
+
+I shook my head, trying to make sense of it all. That's when I noticed something odd about my suitcase. It felt heavier than before. I set it down and unzipped it, my hands trembling.
+
+Inside, nestled among my clothes, was a heart-shaped box I'd never seen before. I opened it with shaking fingers. Two screens flickered to life, one on each side. On one, I saw the old woman, her yarn writhing impossibly. On the other, the businessman, his suit rippling with hidden tentacles.
+
+hey smiled at me, their eyes reflecting impossible colors.
+
+I slammed the box shut, my breath coming in short gasps. This was real. It had all been real. I learned something on that impossible night ride. Sometimes, the journey you think you need isn't the one you should take. Sometimes, the bravest thing you can do is to stop, turn around, and forge your own path - even if it means walking alone through the dark.
+
+If you're reading this, remember: not every opportunity is meant to be taken. Trust your instincts. And if you ever find yourself at a bus stop late at night, faced with a choice that seems too good to be true... maybe consider walking instead.
+
+After all, you never know where that night bus might really be headed. Or what souvenirs it might leave behind.
