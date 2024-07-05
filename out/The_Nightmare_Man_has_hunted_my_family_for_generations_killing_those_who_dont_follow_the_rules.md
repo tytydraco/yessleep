@@ -86,7 +86,7 @@ He towered over me with skin as dull and black as shadows. In the center of his 
 
 Reaching blindly in my pockets in my manic, delusional state, I felt the small flashlight my father had given me. My instincts screamed at me that it was my only salvation. As the Nightmare Man lowered his spinning face down towards me, I pulled away, clicking the flashlight on and shining it in its enormous eye.
 
-Though the Nightmare Man had no mouth, a scream ripped its way out of his eldritch body. The inky shadows forming his emaciated, rail-flesh body rippled and spun faster and faster. The black skin of his head started to drip and rip apart wherever the light touched it. 
+Though the Nightmare Man had no mouth, a scream ripped its way out of his eldritch body. The inky shadows forming his emaciated, rail-thin flesh body rippled and spun faster and faster. The black skin of his head started to drip and rip apart wherever the light touched it. 
 
 A banshee wail emanated from all around him, radiating out of his skin. He struck out at me as sharp fingers like railroad spikes dug into my neck. I felt my breath get choked off. A pressure like a metal band crushed my windpipe. I continued shining the light on his body, hearing his shrieks of pain. Then his long, twisted fingers brushed against the silver necklace my father had given me.
 
@@ -110,7 +110,7 @@ The hissing of the strange wind in this dark world abruptly escalated to a waili
 
 Bleeding heavily, I fell back, my screams mixing with the gurgles of the Nightmare Man. I felt my back foot touch empty air as I hovered over the edge of Frost Hollow, leaning down over that seemingly never-ending abyss. My arms windmilled as I tried to catch myself, but at that moment, the Nightmare Man lunged forward, aiming another powerful blow at my head.
 
-They barely missed me, whipping through the air like sword blades. Thrown totally off-balance, I disappeared over the edge, descending into a freezing blackness that swirled and jumped all around me.
+It barely missed me, whipping through the air like sword blades. Thrown totally off-balance, I disappeared over the edge, descending into a freezing blackness that swirled and jumped all around me.
 
 \*\*\*
 
