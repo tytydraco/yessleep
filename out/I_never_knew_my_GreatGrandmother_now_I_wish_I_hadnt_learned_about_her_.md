@@ -66,4 +66,4 @@ I knew then that this was not the end. The darkness had been a part of my family
 
 The photograph may have been destroyed, but the shadows left their mark on me. I could feel them lurking in the corners of my mind, whispering their promises of peace. And deep down, I knew that one day, I would have to face them again.
 
-For now, I keep the journal close, a reminder of the darkness that haunts my family. And every night, as I lay in bed, I listen to the whispers, knowing that the shadows are always watching, always waiting.
+For now, I keep the journal close in my thoughts, a reminder of the darkness that haunts my family. And every night, as I lay in bed, I listen to the whispers, knowing that the shadows are always watching, always waiting.
