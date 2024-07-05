@@ -118,3 +118,4 @@ My tears stopped as I heard that. The words filled me with chills and dread. I r
 I didn’t know how to answer, so I just sat in the corner of the room furthest from the screen, sat on the floor and hid behind my knees. The voice called my name, or rather the name he chose, but I didn’t answer back. He stopped after a while and I was finally able to doze off. But as I drifted into sleep, I heard it murmur something.
 
 “One day you’ll love me as much as I love you, Eddie.” It sang.
+ Link for part2  https://www.reddit.com/r/nosleep/s/kdE0lbgDPT
