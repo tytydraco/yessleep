@@ -122,6 +122,6 @@ I took the water and devoured the whole thing.
 
 “So,” I asked after placing the water bottle in the trash beside me. The dressing room was too nice to litter. “You’re just not going to answer any questions. You’re going to toss me in an Old Navy dressing room and expect me to be happy.”
 
-“Old Navy?” This got a reaction from her. Her eyes bulged and her lips tightened, a sense of disbelief was all over her face. “You’re in Louis Vuitton. She pulled an iPad off the wall behind her. “This is today’s catalog. Pick what clothes you want. I’ll grab them for you and then tell you what I am and what just happened to you. Oh and don’t forget your lunch order when you spend as much as I do they deliver food. I suggest the omakase sushi. It’s locally sourced. Anything else? Your wish is my command.”
+“Old Navy?” This got a reaction from her. Her eyes bulged and her lips tightened, a sense of disbelief was all over her face. “You’re in Louis Vuitton. She pulled an iPad off the wall behind her. A normal IPad, a shockingly normal IPad considering all that happened beforehand. I watched as it had everything mine had; Twitter, Reddit, instagram. It all felt so insane to be back to the normal world. She continued as if everything was normal. “This is today’s catalog. Pick what clothes you want. I’ll grab them for you and then tell you what I am and what just happened to you. Oh and don’t forget your lunch order when you spend as much as I do they deliver food. I suggest the omakase sushi. It’s locally sourced. Anything else? Your wish is my command.”
 
- End of Part 1
+ 
