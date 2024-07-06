@@ -58,7 +58,7 @@ I landed on the Earth, confused. Nothing made sense. I have been dead. I have be
 
 I was somewhere cold. I was cramped. I was naked. I sat at the bottom of ten coarse stone steps that led to a single wooden door. A bulb glowed too high above me and its faint glow was the only thing that brought light. There was a bowl with bread to my right and water with a faint brown tint.
 
-The room was not quiet. The walls made noise. *Skitter-Scatter. Skitter-Scatter.*  Something dripped behind me. My attempt to turn and find out made me realize my neck was chained,  as well as my wrist but my neck’s chains were much tighter. I could only look forward and listen to the strange *drip* and to the *skitter-scatter* behind me.  I opened my mouth and my tongue was assaulted by the filth and musk in this room. In my peripheral vision, something shuffled in a cardboard box. Was it a victim of wind or was it moved by another life in this dank space?
+The room was not quiet. The walls made noise. *Skitter-Scatter. Skitter-Scatter.*  Something dripped behind me. My attempt to turn and find out made me realize my neck was chained,  as well as my wrist but my neck’s chains were much tighter. I could only look forward and listen to the strange *drip* and to the *skitter-scatter* behind me.  I opened my mouth and my tongue was assaulted by the filth and musk in this room. In my peripheral vision, something shuffled in a cardboard box. Was it a victim of wind or was it moved by another life in this dank space?
 
 “Help!” I screamed. “Help!”
 
@@ -96,7 +96,7 @@ He waited for me to reply. I shook my head as much as I could within the restrai
 
 A blur rushed into the room. It practically flew down. It took the steps in two leaps and slammed something into the skull of the large man. The sound of metal against skin rang through the room. The big man did not collapse.
 
-*Bang, Bang,* and *Bang* again was what it took to drop him. The girl from the roof, still in the purple dress, was my hero today. In seconds, she pulled the keys from the man and thrust them into the locks.
+*Bang, Bang,* and *Bang* again was what it took to drop him. The girl from the roof, still in the purple dress, was my hero today. In seconds, she pulled the keys from the man and thrust them into the locks.
 
 I had so many questions for her and thanks so much thanks. I’m sure it all waterfalled out of me. She did not respond to any, she merely grabbed my hand and we were gone. Literally gone. We appeared somewhere else in three seconds.
 
@@ -122,6 +122,4 @@ I took the water and devoured the whole thing.
 
 “So,” I asked after placing the water bottle in the trash beside me. The dressing room was too nice to litter. “You’re just not going to answer any questions. You’re going to toss me in an Old Navy dressing room and expect me to be happy.”
 
-“Old Navy?” This got a reaction from her. Her eyes bulged and her lips tightened, a sense of disbelief was all over her face. “You’re in Louis Vuitton. She pulled an iPad off the wall behind her. A normal IPad, a shockingly normal IPad considering all that happened beforehand. I watched as it had everything mine had; Twitter, Reddit, instagram. It all felt so insane to be back to the normal world. She continued as if everything was normal. “This is today’s catalog. Pick what clothes you want. I’ll grab them for you and then tell you what I am and what just happened to you. Oh and don’t forget your lunch order when you spend as much as I do they deliver food. I suggest the omakase sushi. It’s locally sourced. Anything else? Your wish is my command.”
-
- 
+“Old Navy?” This got a reaction from her. Her eyes bulged and her lips tightened, a sense of disbelief was all over her face. “You’re in Louis Vuitton. She pulled an iPad off the wall behind her. A normal IPad, a shockingly normal IPad considering all that happened beforehand. I watched as it had everything mine had; Twitter, Reddit, Instagram. It all felt so insane to be back to the normal world. She continued as if everything was fine. “This is today’s catalog. Pick what clothes you want. I’ll grab them for you and then tell you what I am and what just happened to you. Oh and don’t forget your lunch order when you spend as much as I do they deliver food. I suggest the omakase sushi. It’s locally sourced. Anything else? Your wish is my command.”
