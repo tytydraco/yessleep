@@ -4,7 +4,7 @@ I mean I can recall some moments, here and there. Compared to most, I actually h
 
 It saddens me to think about it. 
 
-There was a day, or rather a night that changed everything for me. I don't know why it happened or whatever the fuck it was! I just remember it, and no one believed me...
+There was a day, or rather a night that changed everything for me. I don't know why it happened or whatever the fuck it was. I just remember it, and no one believed me...
 
 I mean of fucking course, right? Shit like that just isn't real. And if it is, well fuck me for not wanting to believe it Thomas, right!?!
 
@@ -12,7 +12,7 @@ I mean of fucking course, right? Shit like that just isn't real. And if it is, w
 
 No one believed me. 
 
-I wouldn't bother telling you, whoever you are, if I didn't feel like my days were numbered... It keeps getting closer, and louder.
+I wouldn't bother telling you, whoever you are, if I didn't feel like my days were numbered...
 
 I've been seeing them, it. Again. I'm getting tired of running, avoiding it. I don't know anymore, I don't know if I'm crazy but, at this rate, I'll be getting there...
 
@@ -28,7 +28,7 @@ We had played for a time, all of the time really. We'd whip up a wide array of s
 
 My Dad popped in, and he had gotten me the Xbox I had been asking for. Many of the other kids have something similar. They'd talk about how fun it was to play online, I never did get around to that part... 
 
-Needless to say, I had dropped what I was doing and spent the rest of the afternoon playing on it. I was even allowed to eat dinner in room for once. The time flew by, and before I knew it, it was bedtime. 
+Needless to say, I had dropped what I was doing and spent the rest of the afternoon playing on it. I was even allowed to eat dinner in my room for once. The time flew by, and before I knew it, it was bedtime. 
 
 I turned off the Xbox and went to brush my teeth. Mom made sure of it, constantly reminding me of what my teeth could look like had I opted, not to care for them. She always made sure I was taking care myself, she'd practically engrained it in me. After having done that, I went back to my room and got in bed. 
 
@@ -66,7 +66,8 @@ When I heard their steps racing against the wooden floors, I took a chance and l
 
 I wasted no time in telling them, I saw a monster in my closet and it took Milo. Despite me, remaining fearful, my parents nerves eased as they figured nothing serious, was wrong.
 
-I had never done anything like that, screaming for them in the night... I'm guessing they were glad it was just some figment of my imagination, maybe just some, bad dream. It wasn't...
+I had never done anything like that, screaming for them in the night... I'm guessing they were glad it was just some figment of my imagination, maybe just some, bad dream. It wasn't...  
+
 
 As my Dad picked me up, the two of them walked into my room. I hadn't noticed it, but the closet door had been closed and Milo was placed atop my bed, like he was there all along. When my mother grabbed my teddy bear, Milo. 
 
@@ -90,7 +91,8 @@ And Mom went on to tell me, "Goodnight Thomas."
 
 For a few moments all seemed fine, Dad was soon off to snoring and so was Mom. Despite that, I couldn't help but stay up for a bit. I didn't dare move let alone look around, I didn't want to risk seeing it again. I closed my eyes, telling myself, it's okay and that I'll be fine, and that maybe, just maybe, it was, just in my imagination. I found comfort in the snores of my parents. My worries were eased by it. Knowing that they could sleep, I felt that maybe, I could too.
 
-That moment of reprieve was short lived... I was woken up by the shuffling of my Dad, his movements led to him pinching the skin on my arm. We all sat up...
+That moment of reprieve was short lived... I was woken up by the shuffling of my Dad, his movements led to him pinching the skin on my arm. We all sat up...  
+
 
 "Jacob! Look-Jacob!! Look!!" Shouted Mom, as she frantically pointed at the closet door.
 
@@ -132,7 +134,8 @@ Did he know?
 
 I mean, how did he know to do that? Could've been luck? 
 
-I'm not sure if I should be thanking my Dad or cursing him...
+I'm not sure if I should be thanking my Dad or cursing him...  
+
 
 When I flew out that window, I saw the darkness swallow my Dad. More crunches of bone followed his agonizing scream. His face was peeling and stretched in violent way. I had closed my eyes out of fear. When I hit the ground, I opened them and screamed. 
 
@@ -160,7 +163,8 @@ Terribly, disfigured versions of my Mom and Dad peaked from the front door's dar
 
 You'd might've expected me to have been happy or to run toward them but I didn't. My parents swayed and called as though they were being puppeteered...
 
-Those weren't my parents... It couldn't have been. Or maybe, through all that agony, they were there, calling for me...
+Those weren't my parents... It couldn't have been. Or maybe, through all that agony, they were there, calling for me...  
+
 
 I don't know what to do anymore, I've been in and out of foster care homes ever since, still dealing with the thing... Thing is, no else see's it. I mean, it can't just be me. Me and my parents saw it too. There's no way we all could've just imagined it together...
 
@@ -169,3 +173,5 @@ It keeps coming still, and every fucking time it shows, it's, what ever it is, a
 And each time, it gets closer... 
 
 I fear that soon, it wont be confined to the darkness it resides in...
+
+  
