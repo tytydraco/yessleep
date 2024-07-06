@@ -269,7 +269,7 @@ Tranquility ingurgitated the house as i switched the lights on, the shadows dyin
 
 
 
-I set one foot on the edge of the stairs and climbed up, each step creaking in pain as i finally made my way to the top, peering at each room which was replaced by the couple.
+I set one foot on the edge of the stairs and climbed up, each step creaking in pain as i finally made my way to the top, peering at each room which was replaced by the couples belongings.
 
 
 I then turned my head, peering at the now rusty ladder that was propped evenly against the wall, which lead to the attic.
