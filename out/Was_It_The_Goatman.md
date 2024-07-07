@@ -2,7 +2,7 @@
 
 
 
-Normally I wouldn’t post stuff like this, let alone believe in it, but I feel like I need to let this off my chest. Maybe not for answers, because I doubt anyone will have any, but perhaps it will make me less uneasy. 
+Normally I wouldn’t post stuff like this, let alone believe in it, but I feel like I need to let this off my chest. Maybe not for answers, because I doubt anyone will have any, but perhaps it will make me less uneasy. Does anyone have any idea what this could be? Or maybe some Swede out there that has seen something similar?
 
 Just a few weeks ago I got my drivers license and I’ve even bought an old car right after. I’ve almost been out driving every single day and pretty much always alone, since I don’t have any friends, only acquaintances. Most of the time, I drive on kind of off grid roads and foresty roads, since that’s what most roads are around me (I live in one of the most sparsely populated area in northern Sweden). 
 

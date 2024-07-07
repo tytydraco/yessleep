@@ -167,7 +167,7 @@ Delivered in unmarked envelope through my letterbox
 
 _Dear Ian Secondname_
 
-_Hopefully this note will answer any further questions._
+_Hopefully this note will answer any further questions. Tell Lucy we said hello._
 
 _With love_
 
