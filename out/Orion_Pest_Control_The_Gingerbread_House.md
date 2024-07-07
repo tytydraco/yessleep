@@ -187,7 +187,7 @@ I do warn yinz that one of the rituals regarding Weepers is strange, to put it l
 
 In Scottish tales, Weepers were thought to be women who died during childbirth, dooming them to an afterlife of grieving until the day comes that her life would've ended normally. As such, some Scotsman got the brilliant idea to sneak up on a Weeper and suckle on her breast to trick her into thinking he was her lost baby. Yes, really. What's even worse is that this allegedly worked. The Weeper not only told him how to avoid his own death, but offered him a wish. 
 
-I have *so many questions.* Who discovered this and why was *that* their first instinct? And most importantly, *...why?* Just why? 
+I have *so many questions.* Who discovered this and why was *that* their first instinct? And most importantly *...why?* Just why? 
 
 The Irish interpretation of Weepers is a bit different. They are said not to be the spirits of expecting mothers who passed before their time, but to be keening women who failed their duties, thus cursing them to spend an eternity atoning for it. For reference, keening women played a big role in ancient Irish funerary traditions, their vocalizations thought to protect the spirits of the dead until they could reach their final resting place. 
 
