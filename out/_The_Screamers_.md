@@ -1,0 +1,39 @@
+In my town, an urban legend has been around for decades. People around here call them many names. The most common being the screamers. I lived in this town with my father Frank and sister Angie my whole life. My mother Abigail, died when I was a baby, I don’t have many memories of her but my father and sister miss her greatly. At first I was told that she had a brain aneurysm, her death being wildly unexpected. We didn’t have any pictures of mom around the house, I gave up asking when my questions were easily diverted to something else. As I grew older, and my knowledge of the screamers increased, my father one night let me know the truth. Mom had not followed the rules about the screamers and she paid the price with her life.
+
+Dad first told me about the screamers when I was 10 years old, they don’t seem to target children any younger than that. I remember my dad knocking on my door late one evening. I was playing videogames, had my head set on and everything. Dad asked me kindly to turn it off and have a seat on the bed. The serious tone of his voice gave me the willies, as he is usually quite cheery and goofy.
+
+Dad and I sat close on the bed, I could smell the heavy menthol on his breathe. He reached in his pocket and produced a worn polaroid of a young woman. She had long auburn hair and very fair skin similar to mine. A plump baby rested his head on her shoulder. She looked happy, a bright wide smile strewn across her face. *“Mom?”* I said, feeling the tears starting to bubble in my eyes.
+
+Dad scooted closer to me *“Yes son, your mother. She loved you dearly”*.
+
+*“Why are you showing me this now dad?”* I asked, wiping the racing tears down my cheeks.
+
+*“Because they are coming son, I don’t know when or where but they will be coming”* Dad replied, his hand firmly grasping my shoulder.
+
+*“Whose coming?”* I asked. Dad sighed, nervously scratching his head *“They have many names son. If you mention one name, most folk around here will know what you’re talking about. We call them screamers”*.
+
+*“Screamers? What are they”* I asked, my hands slightly trembled holding the picture.
+
+Dad held my hand steady, looked me square in the eyes *“Yes screamers son, you will have a lot to learn about them. You’re ten now boy, that means they may start revealing themselves to you. What you must do is follow the rules and they will not harm you"*.
+
+*“What are the rules dad?”* I asked. *“Well get to that son soon enough. I want to tell you about your mother. She loved you so much, she never let you out of her sight for more than a second. When she died, the whole town mourned for months. The screamers son, they got her”*.
+
+Dad and I sat there for some time, he told me the story of my mother’s death. He went over the rules for dealing with screamers. My memory from that first night with my dad is a bit hazy. What stuck out to me the most is how my mother died.
+
+Dad took a deep breath, rolled up his sleeves and told me how she passed in his gravely voice. *“After dark is not a safe time to be outside in town son. That’s why we never drive or go out after dinner. Sure, summer is ok when its lighter out for most of the day but when winter hits, we make sure to bunker down. It’s not just us, it’s the whole town. Every store is closed before nightfall. Folks make sure to keep their kids and pets inside and safe. The screamers, what folks like to call them look just like us"*.
+
+*"Like normal people, everyday folk you’d see walking down the street. They may seem friendly, they probably will call you by your name and know where you live but that is just about it. They won’t know any of your relatives, or how old you are or what you’re studying. The biggest rule is to not engage with them. Once they get your attention, and you start getting flushed into their wicked eyes. Then they already got you"*.
+
+*"You’ll feel like you’re being sucked into them, almost drawn to their existence. Their mouths open up real wide and they out this horrible scream. It sounds like a cougar mating call, a high pitch shriek that echoes and reverbs inside of you. By that point, it’s too late. When you hear that scream in the middle of the night, you know a screamer got someone. You just have to wait till morning and see whose missing"* Dad stared blankly at the wall wide as he recounted the tale.
+
+*"Well, when I heard that howling scream right here in our backyard. I jolted out of bed as my heart sank that your mother was not there sleeping next to me. I stumbled through the cold house, calling out to her. A cool breeze flowed through the house, the back-sliding door was open wide. Words cannot describe son, the way your mother was left in that yard son. The police just shoveled her body into little bags"* Dad wiped the tears from his eyes.
+
+Dads voice faded somewhere deep inside of me. His voice resonating around me while I felt like I had been dunked under water. My head was cloudy. Time seemed to stand still as dad wrapped his arms around me and hugged me tight. We cried together that night, I don’t know for how long but we did. I was scared, scared and angry that they got her. We woke up sprawled on my bed in the AM. Dad and I washed our dry faces and headed downstairs where Angie was eating breakfast alone.
+
+After that night with dad, the nightmares started. I’d be walking down our block towards home. The sun was just setting behind the mountain range. The last bits of light hanging on for dear life. As nightfall settled, my walking picked up. That sinister feeling in my stomach began to rise. I started to run, but I wasn’t making any progress. Like I was running on a treadmill, the house just out of reach. With fear rising inside me, I begged and wailed till my throat rain hoarse. That’s when he revealed himself to me.
+
+A man stepped from within tall bush. He wore a dark black coat and a fedora that hung low covering his eyes. He was much bigger than me, he casted a large shadow from the moonlight. I froze in front of him, feeling like my feet were stuck in cement. He slowly rose his head, his pale skin slick and shiny. With his deadpan face, his wicked green eyes met mine. Fear bubbled inside me, I couldn’t move or scream. A smile grew wide across his face. His mouth opened wide, revealing rows of sharp yellow teeth. That drowning feeling swept over me again, like someone pushed my head underwater. That feeling was short lived as the man cracked his neck backwards, his bones crunching.
+
+His mouth opened wider, wider than I thought humanely possible. He let out a wailing scream, it shattered inside my eardrums. I felt the pressure rise inside my head as his wail echoed around me. I pressed my hands against my ears tightly, his scream still seeping in. I collapsed to the floor, looking up at the man as he lunged for me.
+
+I woke up that night covered in sweat, my heart racing. I struggled to catch my breath, feeling the warmth of urine within my shorts. As I calmed down, surrounded by the quiet night, I looked out the window to the full moon high in the sky. My fears quickly spiked again when something caught my attention. I saw the shadow of a man walk just out of sight behind a bush, gone like a ghost. I quickly dove back in bed, not getting much sleep the rest of the night. This screamer in particular has followed me for many, many years. The man in the dark coat and fedora. I wondered if he was the one that got mom. While my first face to face encounters with the screamers were quite horrifying, I learned how to coexist with them. If anyone has had experiences with these beings before, please reach out to me. I’d love to offer what I know and hear your advice as well.
