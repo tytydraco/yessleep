@@ -12,19 +12,19 @@ Yeah, The ‘80s. Grandma. She was like *crazy* obsessed with handwashing.
 
 I tried to make mine spotless, but no dice.
 
-Grandma would always make that face. 
+Grandma would always make that face.
 
-That face like someone was force-feeding her a lemon while dragging their fingernails across a chalkboard. 
+That face like someone was force-feeding her a lemon while dragging their fingernails across a chalkboard.
 
-Then Grandma would take me hard by the hand, marching me right back to that turquoise bathroom, with the turquoise sink in that little apartment in Bensonhurst they rented that smelled like mothballs and liver. 
+Then Grandma would take me hard by the hand, marching me right back to that turquoise bathroom, with the turquoise sink in that little apartment in Bensonhurst they rented that smelled like mothballs and liver.
 
 God, I came to despise that sink. Especially, the plastic cup that sat in the center of the turquoise toothbrush holder built into the tiled wall. The plastic cup in which sat Grandpa's teeth gooey with Poligrip. I would just stare at the teeth while Grandma reminded me what a bad, bad, bad little hand-washer I was turning out to be.
 
 Then, Grandma would begin scrubbing my hands furiously, scolding me, muttering to the tiled walls about, well, who really knows what?
 
-Then, when I was in the first grade Grandma and Grandpa had some kind of trouble and abruptly closed their jewelry shop in Queens. That was right about the time when my parents started arguing constantly. That was just before Dad moved out to Newark. 
+Then, when I was in the first grade Grandma and Grandpa had some kind of trouble and abruptly closed their jewelry shop in Queens. That was right about the time when my parents started arguing constantly. That was just before Dad moved out to Newark.
 
-After Dad left, Mom blithely told me she was having an affair one night, over TV dinners and bad sitcoms. That was what passed for Family Night with Mom. She said it was with some big-shot judge and we might even be moving to a big, fancy house. She said the judge was hot. I didn’t say anything. 
+After Dad left, Mom blithely told me she was having an affair one night, over TV dinners and bad sitcoms. That was what passed for Family Night with Mom. She said it was with some big-shot judge and we might even be moving to a big, fancy house. She said the judge was hot. I didn’t say anything.
 
 I remember thinking what an absolute pain in the neck my family could be.
 
@@ -82,15 +82,15 @@ I remember those months for being so happy until they weren't.
 
 When my sister, Esther, was born something wasn't right.
 
-Dad finally figured out that Esther wasn't his because of the red hair. There was only one ginger player in the picture and that would be the honorable, Judge \[redaction\] who sported the same shade of Bozo as what turned out to be my half-sister. 
+Dad finally figured out that Esther wasn't his because of the red hair. There was only one ginger player in the picture and that would be the honorable, Judge \[redaction\] who sported the same shade of Bozo as what turned out to be my half-sister.
 
 Crestfallen and cuckolded yet again, Dad suffered a nervous breakdown and Mom responded by divorcing him stat.
 
 When Dad finally got out of the hospital, he ended up marrying one of the nurses who had cared for him. I never saw Dad again.
 
-By the sixth grade, my mother's relationship with the judge had been discovered by the judge's wife. 
+By the sixth grade, my mother's relationship with the judge had been discovered by the judge's wife.
 
-After his wife was through threatening to have her husband's title changed for free to The *Dishonorable* Judge \[redacted\], my mother was unceremoniously dropped, and we never did get that big house. And Esther never did get to grow up with a father. 
+After his wife was through threatening to have her husband's title changed for free to The *Dishonorable* Judge \[redacted\], my mother was unceremoniously dropped, and we never did get that big house. And Esther never did get to grow up with a father.
 
 My mother and I really did not get along well after all that drama and still don't. I tried to have some kind of relationship with Esther, but we never really bonded, and I feel like my Mom poisoned her against me.
 
@@ -98,7 +98,7 @@ By eighth grade Mom and I were at each other like two cats. Finally, I just left
 
 If it wasn't for meeting Blaine in high school, I don't know what I would have done for human connection. It was almost too good to be true the day he asked if the seat next to me was taken in art class.
 
-Blaine was a kind-hearted, smart and a good athlete. From the day we met he'd do anything in the world for me. And, there was more. Blaine had had the kind of family I always thought was only in movies and on the Hallmark channel and shit. Big and loving and stylish. 
+Blaine was a kind-hearted, smart and a good athlete. From the day we met he'd do anything in the world for me. And, there was more. Blaine had had the kind of family I always thought was only in movies and on the Hallmark channel and shit. Big and loving and stylish.
 
 They always made me feel like I belonged and when Blaine proposed to me during Thanksgiving weekend during our senior year of college I was over the moon. I looked down at him on bended knee.
 
@@ -160,7 +160,7 @@ And for a lonely second the necklace loosened its grip. I coughed and sputtered.
 
 "What?" he asked staring blankly running nowhere perfectly.
 
-And then I closed my eyes. I saw something that made me nauseous. 
+And then I closed my eyes. I saw something that made me nauseous.
 
 It was my next husband. He was a senator maybe. There was a flag on the walnut wood paneled walls of his office and the lapel of his fancy, tailored suit. He had silver sideburns just the right length for TV. He was clearly someone with money. Clearly someone with power. He clearly was old too, maybe late 70s, early 80s. And then I saw it. What looked like a mushroom cloud behind him.
 
@@ -199,3 +199,5 @@ Blaine said, "Heyyy. Heyyyy. Shhhhh. It's gonna be okay. But look, I promised Ka
 "Working too hard can give you a heart attack. You ought to know by now."
 
 Now, I recognized the voice! It was Grandma. And it wasn't a very nice voice. It whispered passive-agressively in my ear: *You can take the necklace off Grandma, but you can't take Grandma off the necklace...*
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1dxrf8j/80s_kid_ii/)
