@@ -1,6 +1,6 @@
 The worst part of my job is having to talk to the distraught families. The look on their faces when you have to tell them that their son, daughter, brother, whatever it may be isn’t coming home, it just tears me up inside. The case of Willie Rightman was no different.  My name is Samuel Grant, and I am a Private Investigator. I was retired from the Oakfield police department, so I had a fair bit of experience. Plus I had helped over a dozen people and families solve crimes ranging from break-ins, theft, to disappearances and even a murder case.
 
- I had help from the cops on that one. Even though I was independent, I did often work with the Oakfield PD to get recourses and whatnot. I had their trust, and they had mine. 
+ I had help from the cops on that one. Even though I was independent, I did often work with the Oakfield PD to get resources and whatnot. I had their trust, and they had mine. 
 
 Oakfield was a small mountain community, situated at the base of a heavily forested valley. It has a residence of only about 2,000 people, with a relatively small police force. The only big attraction we have is the worlds biggest stalk of corn. Anyway the parents of Willie Rightman, Will and Sasha came to me after apparently being disappointed by the police forces lackluster response.  I promised them I would do the best I could. I felt personally responsible for finding the missing girl. 
 
