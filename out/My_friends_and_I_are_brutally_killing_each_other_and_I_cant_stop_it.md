@@ -1,6 +1,6 @@
 Maybe this is all because I called my ex-girlfriend a bitch on her wedding day.
 
-Today is July 7th, two months after my best friend’s wedding.
+Today is July 6th, two months after my best friend’s wedding.
 
 I'm not one to believe in fate, but as a kid, I was sure I had found my soulmates. 
 
