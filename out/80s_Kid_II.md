@@ -16,9 +16,11 @@ Did you know that most accidents happen in the house? I think I heard that once 
 
 Anyway, when I discovered Blaine on the floor of the tub, barely breathing, with some kind of sputum bubbling up from his mouth and down his chin while the shower water made pink spirals around the drain; I knew something was wrong. Really wrong.
 
-"You not wash, right!" I heard myself scold. Only the voice was not mine.
+Thank God the boys had slept over a friend's house.
 
-I turned off the shower and surveyed the situation. Blaine was still breathing though it was very shallow and raspy. I took a handful of his gorgeous locks and lifted his head off the slippery, with soap scum, porcelain surface. The claws feet in our ancient Brooklyn apartment's tub seemed to show off their talons, like an angry wolverine, before quickly retracting back into claws feet.
+"No. Thank Grandma. And you *still* not wash, right!" I heard myself scold. Only the voice was not mine.
+
+I turned off the shower and surveyed the situation. Blaine was still breathing though it was very shallow and raspy. I took a handful of his gorgeous locks and lifted his head off the slippery, with soap scum, porcelain surface. The feet of our antique clawfoot tub I got Blaine for our anniversary seemed to suddenly flash their talons, like an angry wolverine, before quickly retracting back into claws feet.
 
 I shook my head. Fucking SSRIs were fucking with me again. Felt like little micro-explosions in my brain.
 
@@ -34,39 +36,39 @@ So much darker.
 
 I knew the voice. It had been a constant companion as of late. Was the same voice that had instructed me to remove the daisy shaped, anti-slip stickers, from the bathtub floor. Same voice told me about the best way to save soap scum until it was at maximum slipperiness. Same voice that wanted to keep playing 80s music day and night.
 
-I had spent the morning ensuring there was just the right amount of soap scum. Then I spent the night drinking champagne with Blaine and sex bombing him. I knew he had a big meeting the next morning and I knew he had to be up at exactly 7am.
+I had spent the previous evening ensuring there was just the right amount of soap scum. Then I spent the night drinking champagne with Blaine and sex bombing him. I knew he had a big meeting the next morning and I knew he had to be up at exactly 7am.
 
 Which is why, at 7:15 am that hot Monday morning, the radio alarm went off playing, "I'll Tumble For Ya!" by Boy George.
 
-Blaine was out cold. I went to the half-bathroom and found the pack of unfiltered Camels Grandma had requested. I shook one loose from the pack. I heard Grandma scold Camel Joe in my head for pandering to children.
+Blaine was out cold. I went to the garage and found the pack of unfiltered Camels Grandma had requested. I shook one loose from the pack. I heard Grandma scold Camel Joe in my head for pandering to children.
 
 "*So wronnnnnng!*" the voice scolded.
 
-I pried open the old window to the back of the building. I got the cigarette lit with a strike anywhere and took a long drag. I looked at myself in the half-bathroom mirror. The jade was.... glowing, illuminating in the eddying curls of cigarette smoke that drifted around my scrunched-up face.
+In the garage I got the cigarette lit with a strike anywhere and took a long drag. I looked at myself in the long mirror above the washer and dryer. The jade was.... glowing, illuminating the eddying curls of cigarette smoke that drifted around my scrunched-up face.
 
-I heard myself say, "I'm tired of fucking you, Blaine," in Grandma's voice. I felt a wave of nausea come and go. I waited for the vertigo but it didn't come.
+I heard myself say, "I'm tired of fucking you, Blaine," in Grandma's voice. I felt a wave of nausea come and go. I waited for the vertigo but it didn't come; this time.
 
 "*So wronnnnnng!*" the voice scolded again.
 
 I would have objected but I was already choking on the blue cigarette smoke and really couldn't take anymore upset in my manic Monday morning.
 
-I finished the cigarette and then flicked it out the window into the backyard. A tinge of guilt for littering and smoking passed across my person before;
+I finished the cigarette and then crushed it in the garage sink. I put the filter in the garbage. A tinge of guilt for smoking passed across my person before I was interrupted yet again, that morning;
 
-***"Wash your hands!!!!!!! Filthy!!! Filthy like your net worth! You no 80s kid. You know nothing! Greed is good! Smoking good! Fucking good! Winning is best and winners keep their hands spotless! Spot! Less!"***
+***"Wash your hands!!!!!!! Filthy!!! Filthy like your net worth! You're not authentic '80s kid. You know nothing! Greed is good! Smoking good! Fucking good! Winning is best and winners keep their hands spotless! Spot! Less!"***
 
 ...
 
-Back in the bedroom it was 7:28am. I gently whispered in Blaine's ear,  "Good morning, GLORY!"
+Back in the bedroom it was 7:28am. I gently whispered in Blaine's ear,  "Good morning, morning glory!"
 
-Nothing.
+*Nothing.*
 
-I shook him gently.
+I shook my husband gently.
 
-Nothing.
+*Still nothing.*
 
 I grabbed the speaker from the night table and gently put it on the pillow next to Blaine's head. I then left the room and gently closed the door. I pulled my iPhone from my pocket and within a few taps had some *James Brown* ready to play.
 
-I turned the volume to make and tapped play.
+I slid the volume up to max and tapped play. I noticed my nail polish was chipped. I'd need a mani/pedi later.
 
 ***Get up (Get on up)***  
 ***Get up (Get on up)***  
@@ -150,7 +152,7 @@ Five minutes later I was finished dressing and putting on my face. On my way out
 
 *Twenty minutes later*
 
-I was washing down a second handful of antidepressants and sipping a mocha oat latte with three extra shots on one of the benches along Prospect Park West. I heard a siren and turned my head fast to see two firetrucks hauling ass and blowing that big horn. The necklace felt loose.
+I was washing down a second handful of antidepressants and sipping a mocha oat latte with three extra shots on one of the benches along the little park by the town square's, *Coffee Shoppe*. I heard a siren and turned my head fast to see two volunteer firetrucks hauling ass and blowing that big horn. The necklace felt loose.
 
 I began sobbing hysterically through sips of coffee. I closed my eyes and saw eddying pink swirls go down two drains that were my eyes. They swallowed the bloody water and when they were done Grandma said, "Good job. Let's go wash your hands and get insurance money!"
 
