@@ -22,9 +22,9 @@ The next day I returned to the scene of the crime alone to try and get more evid
 
 I was shocked by the sheer size. I mean, they weren’t ridiculously huge, however they were large enough to be concerning. The heel alone was probably about the size of a softball, maybe a little larger. They had 4 toe prints on the front end, and were ultimately probably about 16 inches in length. What shocked me the most was the stride length. At least 6 feet but the thing was that these prints were fresh. They were not there the day before, so something made these prints in this area in the last 24 hours. 
 
-Suddenly I felt very unvcomfortable. Goosebumps covered my skin. I felt like I was being watched from every direction. My heartbeat and breathing quickened. I stayed only long enough to snap a photograph of the prints, the I hauled ass out of their as fast as I could. 
+Suddenly I felt very uncomfortable. Goosebumps covered my skin. I felt like I was being watched from every direction. My heartbeat and breathing quickened. I stayed only long enough to snap a photograph of the prints, the I hauled ass out of their as fast as I could. 
 
-My black car rolled into my driveway at about midnight on Tuesday. Or I guess it would be Wednesday morning. Sleepily I shuffled out of my car  and into the cool, crisp night air. I noticed a small, white rectangle on my door. Upon closer inspection I found that it was an envelope labeled “GRANT” in marker. Annoyed I pulled it from the door and opened it. Inside was a single piece of paper. In Pen it read
+My black car rolled into my driveway at about midnight on Tuesday. Or I guess it would be Wednesday morning. Sleepily I shuffled out of my car  and into the cool, crisp night air. I noticed a small, white rectangle on my door. Upon closer inspection I found that it was an envelope labeled “GRANT” in marker. Annoyed I pulled it from the door and opened it. Inside was a single piece of paper. In Pen it read:
 
 “Greeting, detective Grant. I’m going to be honest, I didn’t expect you to find her so quickly. It was only a matter of time I suppose. Anyway it is a pleasure to be working with you once again, detective. But watch your back, you never know when you might be next.
 
