@@ -467,7 +467,7 @@ Sobriety crashed into the shores of my mind like a rogue wave. I shot upright, m
 
 
 
-"No no no no no no no no no" I repeated, tears treating to dislodge themselves from the corners of my eyes.
+"No no no no no no no no no" I repeated, tears threatening to dislodge themselves from the corners of my eyes.
 
 
 
