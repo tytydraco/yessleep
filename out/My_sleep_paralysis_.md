@@ -1,0 +1,17 @@
+One night, I settled into my favorite Lazy Boy recliner, ready to dive into the surreal world of *JoJo's Bizarre Adventure: Stardust Crusaders*. After a couple of episodes, my eyelids grew heavy, and I succumbed to sleep. Unbeknownst to me, my night was about to take a terrifying turn.
+
+I woke up abruptly in the dead of night, my body frozen in place. I tried to move, but it felt like invisible chains bound me to the recliner. Panic surged through me as I realized I was experiencing sleep paralysis, an eerie sensation that left me both awake and immobilized. I felt like I was trapped in a scene from the movie *Nope*, unable to move or call for help.
+
+As my eyes darted around the room, a chilling transformation began to unfold. The once familiar surroundings of my living room started to morph, bathed in an unsettling shade of pink. My heart raced as fear gripped me. Suddenly, a humanoid figure, covered in a black, viscous liquid, emerged from the shadows. It stared at me with an intensity that pierced my soul. I wanted to scream, to flee, but my body refused to obey.
+
+The room around me shifted once more, transporting me to a place filled with objects that seemed oddly familiar. It felt like a collection of memories, each item triggering a vague sense of recognition. I saw my childhood toys, old photographs, and mementos from forgotten moments in my life. Despite the terror, a strange sense of nostalgia washed over me. It was as if I was journeying through my past, yet I couldn't fully grasp the significance of what I was seeing.
+
+Just as quickly as it began, the vision ended, and I jolted awake for real this time. My heart pounded in my chest, and I was drenched in sweat. The room was back to normal, the eerie pink hue and the black liquid-covered figure gone. I took a moment to catch my breath, trying to make sense of the bizarre experience. Sleep paralysis? A vivid nightmare? I wasn't sure, but it had felt all too real.
+
+Desperate for reassurance, I rushed to find my dad. I recounted the harrowing ordeal, my words tumbling out in a rush. He listened patiently, nodding as I described the strange pink light, the ominous figure, and the room filled with familiar objects. It was my first encounter with sleep paralysis, and the fear still lingered.
+
+As I spoke, my gaze fell to the floor. There, on the carpet, was a black stain that I didn't recall seeing before. My dad noticed it too and raised an eyebrow. It was a small, dark spot, almost as if something had leaked onto the carpet. A shiver ran down my spine as I remembered the black liquid covering the figure in my vision. Could it be connected? The logical part of my mind dismissed it as a coincidence, perhaps one of my siblings had made the mess. Yet, the timing was unnerving.
+
+I couldn't shake the feeling that my experience was more than just a dream or a case of sleep paralysis. It felt like a glimpse into another reality, a brush with something unknown and inexplicable. As the days passed, the memory of that night lingered, a haunting reminder of the strange and terrifying places our minds can take us.
+
+Whether it was a trick of my mind or something more, that night left an indelible mark on me. I learned that our subconscious can conjure the most vivid and unsettling experiences, blurring the line between reality and imagination. And sometimes, those experiences leave behind traces that make us question everything we thought we knew.

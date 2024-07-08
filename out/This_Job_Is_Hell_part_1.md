@@ -6,7 +6,7 @@ I immediately shoved my suit on and grabbed my resume. I rushed to the nearest L
  
 The office made me feel like I was walking into a hospital lobby; it was very sterile with its pale walls. There were six other people there hammering away at their computers, it smelled of cleaning products, and the fluorescent lights hummed and flickered. 
  
-A tall, clean-cut man with his head held high led me to a backroom. He told me she’d be here soon, I assumed she was in a meeting or something. I plopped myself down in a spinny chair with wheels and fought the urge to swivel in it. 
+A tall, clean-cut man arose from his desk and with his head held high led me to a backroom. He told me she’d be here soon, I assumed she was in a meeting or something. I plopped myself down in a spinny chair with wheels and fought the urge to swivel in it. 
  
 When she finally arrived I began to feel ill. The office walls seemed to whirl and my gut dropped. I wanted to run as a deep sense of animalistic fear consumed my body. I shrugged it off. It was just nerves, it had to be, right?
  
@@ -92,7 +92,7 @@ I guess if you answer an unknown number you gotta be a dumb fuck anyway, so I de
  
 “You’ve heard of…” I looked at the list to double check. “Alaska cruise lines? They changed their price from 5 grand to only 2 grand for a week’s trip,”
  
-“You know Kelsey’s in the hospital, I can’t be spending that type of money, man,” I was about to tell him how sorry I was, but then the fancy champagne (whose brand I didn’t know) sprung into my mind.
+“You know Kelsey’s in the hospital, not doing great. I can’t be spending that type of money, man,” I was about to tell him how sorry I was, but then the fancy champagne (whose brand I didn’t know) sprung into my mind.
  
 “I think it would be nice for you and the…” Fuck. I hope he has kids. “Kids to get away. It’s a mental detox, you know? It’s not easy with what they’re going through,”
  
@@ -102,7 +102,7 @@ I guess if you answer an unknown number you gotta be a dumb fuck anyway, so I de
  
 “I thought you and Christine split?”
  
-“Oh uh, we’re back together,” Each breath I took felt as though I was swallowing little pebbles. “Listen. You need to get your mind off Kelsey, you need to do something for yourself for once. It’s been so long where you’ve had any bit of joy. I’m sorry, but I’m so tired of seeing you suffer,”
+“Oh uh, we’re back together,” Each breath I took felt as though I was swallowing little pebbles. “Listen. You need to get your mind off Kelsey, you need to do something for yourself for once. It’s been so long since you’ve had any bit of joy. I’m sorry, but I’m so tired of seeing you suffer,”
  
 “Maybe you’re right,”
  
@@ -130,7 +130,7 @@ Our 6 month relationship came to an end soon after that. But maybe it was for th
  
 After the breakup they asked me if I could begin working overtime. The hours flew by like seconds there, I’d get extra money, and it’s not like I had anything else to do so I agreed. 
  
-About a month later I was there at 5:00 clacking away at my keyboard. The entire office was cleaned out, the lights droned, and the only noise I could hear was a printer puking out pages. 
+A few more weeks slipped me by. I was still there at 5PM clacking away at my keyboard. The entire office was cleaned out, the lights droned, and the only noise I could hear was a printer puking out pages. 
  
 “We need to talk,” Sam somehow appeared behind me.
  
