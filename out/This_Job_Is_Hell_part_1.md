@@ -46,7 +46,7 @@ So there I was, three days later, marching through the midtown crowds with my bl
  
 I felt a foreign sense of importance even though my job title was only ‘Bargain Specialist’, which I guessed was professional speak for ‘Pencil Pusher’. 
  
-I stomped into the sterile world of menial office work, adjusting my stiff sleeves as an old woman screamed at someone on the phone and some guy gulped down his chips at a desk.
+I stomped into the sterile world of menial office work, adjusting my stiff sleeves as an old woman screamed at someone on the phone and some guy gulped down chips at his desk.
  
 “This is Luke, he’s going to be training you,” It was the same clean-cut man I barely met on the day of my interview. I think he was a manager.
  
@@ -130,7 +130,7 @@ Our 6 month relationship came to an end soon after that. But maybe it was for th
  
 After the breakup they asked me if I could begin working overtime. The hours flew by like seconds there, I’d get extra money, and it’s not like I had anything else to do so I agreed. 
  
-One day a month later I was there at 5:00 clacking away at a keyboard. The entire office was cleaned out, the lights droned, and the only noise I could hear was a printer puking out pages. 
+About a month later I was there at 5:00 clacking away at my keyboard. The entire office was cleaned out, the lights droned, and the only noise I could hear was a printer puking out pages. 
  
 “We need to talk,” Sam somehow appeared behind me.
  
@@ -172,7 +172,7 @@ I knew nothing else but to squint my eyes. I mean, how do you reply to that?
  
 “What?”
  
-“Eh,” She shrugged. “Nothin,”
+“Eh,” She shrugged. “Nothin’,”
  
 “No, tell me,” I crinkled up my face, the great magnet of ego had lugged out my words.
  
