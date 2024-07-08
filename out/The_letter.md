@@ -1,26 +1,23 @@
-My dear boy,
+I just moved into this old place in London had to be from 18 or 19th century So I started to go through the attic just to clean up and repair but I found this letter it’s very old and ripped but I managed to figure out what was being said I asked around and people don't seem to want to talk about it maybe you all can help it seems like the rambles of a mad man but here is what is says “My Dearest Eliza,
 
-If you are reading this, the priests have read me the holy rites and I am dead. I am writing to let you know what you must do and why.
+It is with trembling hands and a mind burdened by dread that I pen these words to you. I implore you, do not dismiss this missive as the ravings of a man unhinged, for what I am about to recount is the absolute truth, and my very soul depends on your belief.
 
-When I was a young man I entered into a seminary in Rome. I was widely considered one of the brightest and acclaimed students in the school. It was assumed I would become a priest and work my way up to eventually becoming the bishop in some place where the holy church could make use of my talents. It was therefore a bit of a surprise when I was suddenly sent to the Vatican to meet with the archbishop of Rome and the office of the grand inquisitor.
+For months now, I have sensed an otherworldly presence shadowing my every step. The specter that haunts me is no mere figment of a troubled mind, but a wraith of unimaginable terror. The people of Whitechapel speak of it in hushed tones, calling it the Wraith of Whitechapel, a creature born of the deepest shadows, a monster that thrives on fear and despair.
 
-After the introductions were made I was told a frightful story sent to Rome from the abbot of  a Jesuit monastery in Romania. 
+It began with a chill, an unnatural cold that seeped into my bones as I walked the fog-bound streets. At first, I dismissed it as a consequence of the biting winter, but soon the signs became undeniable. I would catch fleeting glimpses of a gaunt figure, eyes glowing with an eerie luminescence, disappearing into the mist whenever I tried to approach. At night, as I lay in bed, the whispers would come, soft and insidious, calling my name.
 
-An evil wizard less than a days ride from the monastery was said to have conjured the demon Baal, who was dictating book of spells to the wizard. If recited at midnight on the winter solstice, a spell in the book would give him complete control over every man, woman and child within a thousand miles. While the spell would only last a year so long as a virgin were sacrificed on the day of the solstice the spell would be renewed so long as the incantation were also recited at midnight.
+Last night, the wraith drew closer than ever before. As I wrote by candlelight, I felt its presence materialize in the corner of my study. I turned, and there it was—a spectral form, pale and ethereal, hovering just beyond the reach of the light. Its hollow eyes bored into mine, and I felt an overwhelming wave of dread.
 
-The thought of the mind of every person within a thousand miles being in complete control of a single person indefinitely was to terrifying to contemplate. Because of my reputation as a brilliant scholar in the peak of my youth led head if my seminary to recommend that I be trained to go to Romania.
+"Leave me be," I pleaded, though my voice was barely more than a whisper. "What do you want?"
 
-It was 9 months till the winter solstice which gave me 6 months to prepare, and 3 months to reach the wizard  to dispatch Baal back to hell, kill the wizard and destroy forever the awful book.To this end I spent 8 hours a day studying with the most experienced excorsists in the church. After a Short period for rest and prayer I spent the next 4 hours studying with the finest swordsmen who could be hired train me.
+The wraith smiled, a ghastly sight that chilled my very soul. "I seek not your body, but your mind," it hissed. "You are mine, a writer whose words will carry my legend far and wide. Your despair will feed me, and your fear will be my sustenance."
 
-The 6 months past in a blur with hardly an hour of time to my own pursuits. To important was my mission. At last I was given a 6 fast horses and a sturdy solid carriage driven by an experienced driver and I departed.
+Desperation seized me, and I reached for the revolver I keep in my desk drawer. But as I aimed, the wraith dissolved into the shadows, leaving me alone and trembling. I knew then that no weapon of man could banish this horror.
 
-We rode the horses to near exhaustion every day till we reached some distant monastery. There I would spend the night and exchange horses at first light. I would be given a basket of food for the next day and at noon my driver and I would stop somewhere say a prayer and have lunch till we reached the next  monastery. My driver knew the path intimately and we never got lost or spent the night in the ever thickening forest. So we continued without event till we reached the Jesuit monastaryabout the beginning of December.
+Eliza, I write to you now, not only to warn you but to leave behind a testament of my ordeal. Should I disappear, as others before me have, know that it is the wraith that has taken me. I beg of you, protect yourself and our children. Do not come to Whitechapel; do not search for me. The wraith is relentless and will stop at nothing to consume the light within us.
 
- The abbot who had sent word to the Vatican welcomed me. My driver departed to Rome without delay. I was shown my small cell where I prayed and slept. I took meals with the other monks.  The abbot showed  me a map of the area that marked the castle where the wizard lived and communed with demons.
+Pray for me, dearest love, and believe my words. For though the wraith may have claimed my body, my spirit clings to the hope that my warning will save you from the same fate.
 
-On the 15th, I left the monastery with the blessing of the Abbot and the hope that I could defeat the wizard and destroy the book lest every soul in a thousand miles be under his evil spell for his foul purposes and some poor virgin sacrificed yearly to maintain his realm. 
+Yours in eternal fear and love,
 
- The training I had received proved more than adequate for Baal fled from me immediately after I read the sacred rites. The wizard was an old man and he fell by my sword just as quickly. The book of spells was fascinating and before destroying it I sat in the library and read for many hours before deciding what to do next. 
-
-So here at the end of my days, my son, I wish you to understand why it is necessary to sacrifice a virgin on the day of the winter solstice and recite the spell just as I have done since that fateful day when I inherited my kingdom here in the heart of Romania.
-
+Jonathan” As I reread this I hear my name and the room has gotten cold I feel watched I hear the creaking of the floors I see a shadow as I walk down these haunting halls the house energy has shifted am I going mad help me..I fear I am next
