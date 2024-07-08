@@ -1,0 +1,36 @@
+07/06/2024
+
+My depression goes back as far as I can remember.    The last year has been rough.    I got fired, found a new job, moved to the Sierra Nevada foothills, and was separated from my family for months.    The new house is beautiful.    It was built in the '40s but has been updated and well-maintained.    It's settled on top of a hill overlooking 10 acres of pine forest. 
+
+I'm a skeptic in the truest sense.  I don't dismiss the possibility that things exist beyond our scientific understanding.    It is evident that there are phenomena that we haven't yet explained.   I always look to the known before allowing my thoughts to dive into the unknown.   When strange things started to happen around the property, I wasn't concerned.  They were small things.
+
+First, there was a call.  A sound out of the forest unlike any I had ever heard.  Something like the squawk of the crow but more guttural and gruffer.  It was a combination of a bird call and the call of monkeys I'd heard in the Panamanian rainforest.  I was on my way to work the first time I heard it.  Somehow, I could sense my name in that obscure sound.  I could feel it pulling me toward the forest.  The second time I heard it was even stranger.   My saint bernard started barking on my deck.  When I opened the door, she ran into the house and tried to herd me away from the opening.   Stepping out, I saw two young mule deer grazing in our field.  But then I heard the call again.  The deer rushed off into the dense thicket.    Everything went quiet.  Again, I felt summoned.
+
+It wasn't just sound.  Sometimes, I'd wake up and find lights on in the house when I was sure I had shut them all off. Other times I'd find doors wide open without a breeze.  In these moments I could feel something reaching out for me.   I dismissed everything.  I had been taking edibles to deal with my loneliness and assumed they were causing my forgetfulness.
+
+My family moved back in with me about a month ago.    The new job is going very well, but somehow, I'm not. 
+
+Night after night, I lay in bed next to my wife, feeling alone.  I listen to the soft call of owls and stare out the window at the shadows of trees.  It is beautiful, but I can't feel beauty right now.  Nietzche once said, "When you look long into an abyss, the abyss also looks into you."  He was right, but I've gazed into the abyss so long that it has entered me; I've become the abyss.   There is no greater loneliness than being alone, surrounded by people who should love you.  That was the loneliness I had fallen into.
+
+Last Saturday, I walked into the heart of our forest with a shotgun.  It was an abnormally warm night for the foothills, probably in the upper 80s.  As I passed the largest field on our properties, I saw the bats diving to snatch insects midflight.  A large owl flew by in the unique silence of the night bird.  Perhaps another night, I would have stopped in awe to admire my surroundings.   It was a life I had always envisioned.  Saturday night was not such a time.  I shrunk myself to a singular point.  Like a black hole drawing in light, I drew in despair.  I had given up.
+
+As I reached a remote part of our property, I took a long breath, closing my eyes.  I could smell the pine.  I could hear the crickets and other insects calling to the night.   It was a night to die.  As I took the gun off my shoulder, an owl hooted in the distance.  I wondered if it was the same one I had seen a few minutes before.  My thought evaporated as the forest fell silent.  No bugs, no birds, only a deep silence matching the abyss I had become.    Anyone who has spent time in the woods knows this silence.  It indicates a large predator has entered the area.  Bears, coyotes, and mountain lions are all common in the foothills.  Though I knew attacks from any would be rare, I couldn't help but hope this predator would do my work for me.  Perhaps God was finally answering my prayers.
+
+I opened my eyes to see some brush in the distance move.    I could see something as my eyes strained to focus in the uneven light of the woods.    A shape.  No, less than a shape but more than a shape.  It struck me that I wasn't looking at a cougar or coyote.  It was far too tall.    Far too thin to be a bear.
+
+It stepped into a beam of moonlight filtered through the pine needles momentarily.  It was tall and thin, so pale it almost glowed.  It stood about 8 feet high on long, slender legs.  Its torso was thin and emaciated.  Bones pressed against its nearly translucent skin.  There was no muscle definition.   Its arms were far too long, reaching past its knees.  The dark, sunken eyes seemed to stare right through me.  There were no other features upon its face.    In all my time knowing depression, I have never felt such despair.  Every wrong in the world fell on me.  Every mistake of a life pounded in my brain.  I wasn't afraid to die.    I was ready.  I embraced it.
+
+As this creature walked toward me, its movements were erratic.  It seemed to phase in and out of being like a film with a low frame rate.  No matter how hard I tried, I couldn't bring it into proper focus.  It stopped more than 6' from me and let out that strange screech I had heard before.  I took a deep breath, drawn to this creature.  It brought one bony hand to the left side of my chest.  It was cold, ice cold.  I could feel a slight pressure as that pale hand moved through me like a ghost.  The icy cold was inside me, and I could feel the sharp fingers gripping my heart.  They slowly wrapped around it and began to squeeze.  My "thank you" escaped my lips as a breathy whisper.  The pain intensified.  Before the world went black, I could have sworn there was a smile in the cold, lifeless eyes.
+
+ 
+
+07/07/2024
+
+I awoke as the first hint of sun found its way through the trees.  I was alone, lying on the ground.  I slipped twice, trying to rush to my feet.  Nothing seemed right.  I felt like I was somewhere else and nowhere at the same time.  Brushing pine needles off my clothes, I saw the shotgun in a nearby bush.  
+
+Picking up the gun, I sat back down.  I placed the barrel on my chin, angled toward the center of my skull, and I pulled the trigger.  My ears rang with the sound of the gun.  I could feel the weapon surge back out of my hands.  I could feel the slug enter the bottom of my chin and exit through the tip of my head.  I was still alive.  I reached down and touched the barrel of the shotgun.    It was hot.  The smell of gunpowder burnt my nose.  Looking behind me, I could see the bark missing from a tree where the bullet had hit it.  How can this be?
+
+I'm going to do some research and see what I can find.  I will update this as I learn more.    I hope someone here has some information that I'm missing.  The attached picture is AI-generated; I'm not an artist, and it was the best I could do.    It's an accurate representation, but I couldn't get the arms long enough.   I'm afraid for my family, fearful for others in these woods, but more than anything else, I'm scared that I cannot die.  
+
+  
+[https://imgur.com/a/q6hjgqV](https://imgur.com/a/q6hjgqV)
