@@ -8,7 +8,7 @@ Listen. I need your help. My sister’s missing and I’m afraid that there’s 
 
 She shrugged. “Lots of things,” she said. “It’s hard to explain. But he does want me to be a part of his family. He’s doing his best.”
 
- It was one of her rare visits to the apartment we used to share with our college friends. Most of the time, she was at her husband’s penthouse in the city’s financial district. He rarely let her go anywhere without his permission. He was twelve years older than my sister, and up to now I wonder how they even got together.
+It was one of her rare visits to the apartment we used to share with our college friends. Most of the time, she was at her husband’s penthouse in the city’s financial district. He rarely let her go anywhere without his permission. He was twelve years older than my sister, and up to now I wonder how they even got together.
 
 I never trusted Byron Ruthven. Not from the start. I didn’t care that he was an incredibly wealthy industrialist, specializing in the trade of medical technology and tools. I didn’t care that he belonged to a really old, prominent clan, with family members in different areas of business, trade, and politics. I didn’t care if the Ruthvens practically ruled the country’s economy. All I knew was that my sister was slowly being controlled, brainwashed, and made to surrender her individuality from the moment she became part of their family’s clutches. Before she married Ruthven, she was a successful lifestyle journalist in her own right. She had a job she enjoyed, and she hung out a lot with me and our friends. Then he made her quit her job. He controlled her finances, tracked her movements, and was wary of her personal circle, particularly me. It didn’t help that Sally and I had been orphans ever since she was eight and I was twelve respectively. We only had each other as family, and I was starting to lose her too.
 
@@ -32,7 +32,7 @@ But that wasn’t last time she would show up wearing a jacket, or long sleeves.
 
 Our conversation then shifted to other topics, such as the latest town gossip and my work at a nearby architectural firm, where I was due promotion anytime. She wished me good luck, and shortly afterwards, left, and that was the last time I saw or heard from her.
 
-That was a week ago. My messages were unread. My calls, unanswered.. When I went to check on them at the penthouse, the maid said that the entire family – including Sally – was out. 
+That was a week ago. My messages were unread. My calls, unanswered.. When I went to check on them at the penthouse, the maid said that the entire family – including Sally – was out.
 
 “If I were you, I’d stop asking too much,” she said, slamming the door on my face. Two bodyguards personally hoisted me to the elevator, so there was no choice but to leave.
 
@@ -73,3 +73,5 @@ I’m afraid that my sister’s in grave danger. No, I’m sure. While typing th
 Below it was an address to the oldest town in the city. I guess that’s where I’ll be heading next. Wish me luck.
 
 Help me bring Sally back home.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/rZV3kFcsGi)
