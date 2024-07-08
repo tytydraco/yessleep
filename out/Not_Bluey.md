@@ -245,7 +245,7 @@ We look at each other for a minute.
 
 I look at the unholy abomination in front of me. It was the creature from the tape…the one eating the dead body.
 
-The creature tries To grab me…it was tightening it grip. I begin to scream in pain and grab the nearest kitchen utensil I can find. I grabbed a fork and stab its hand 4 times…It roars in pain as I grab the tape. 
+The creature grabs me…it was tightening its grip. I begin to scream in pain and grab the nearest kitchen utensil I can find. I grabbed a fork and stab its hand 4 times…It roars in pain as I grab the tape. 
 I was still confused why joffrey wanted me to destroy the tape. But I try my best to appease my friends request.
 
 “GIVE ME THAT!”
