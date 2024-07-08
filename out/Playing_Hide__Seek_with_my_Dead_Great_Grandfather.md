@@ -1,0 +1,17 @@
+A few years ago, a bunch of my family was visiting, and we decided to have a late night campfire. The adults would sit around the fire, and catch up with one another, talking about whatever they talked about, while the kids and teenagers would all hang out together. The group of kids and teenagers I was with consisted between the ages of 8 - 15 years old. I was one of the oldest, so me and two of my other cousins (one older, and one younger) would have to watch the rest.
+
+It was around 10 at nights, and we never went far. The campfire was in our backyard, so we made sure not to leave our front yard onwards. One of our old neighbour’s was my grandfathers dad, my great grandfather. He died the very beginning of 2020 (a few days after new years) and his house was on the market. It wasn’t sold at the time, so we figured we could go on his property, since no one lived there, and so we did.
+
+We all decided to play hide and seek in the dark, and we chose 2 people to count first. One of the was my younger brother, and one of my younger cousins, around 9 at the time. We all ran away, and found hiding spots. We have the seekers have 5 minutes to find us, otherwise the hiders would win, so I had to have the best spot.
+
+We had an old camper we kept on my great grandfathers lawn, for space, so I hid behind it. It was right in front of the back of his house, and when I ran to hide behind it, another one of my cousins was there, so I stayed with her.
+
+Everything was going fine, until I heard a tap at the window from behind me. Her and I spun our heads around to look up at the window, and saw a hand on the window from inside the house. When we were gonna run and alert everyone else at what we had just saw, my brother jumped out at us and screamed “FOUND YOU GUYS!” We didn’t care though, and pointed out the hand on the window, which was still there, and my brother looked up at it, and yelled out at everyone to come here.
+
+A couple more of the kids came running, and they still looked at the hand in there, as we never broke eye contact with it, and eventually, the hand slowly removed itself from our view, and we all screamed and ran back to our front yard.
+
+By then, we were all still staring at the window, and told everyone else (as in all the lids and teenagers) who weren’t there what had happened. My great grandfathers downstairs windows were boarded up, but the lights had flicked on, hence the cracks of light coming from below, and we knew that no one was in the house, since all the adults were in the backyard, but we all saw this dark thing moving downstairs. I wouldn’t call it a figure by any means, since the view from the basement was far, and hard to look into, but we saw this dark movement from below.
+
+We keep away from that house now, but I still believe my great grandfather haunts the home to this day. The new neighbour’s that have bought that home only a few weeks after that incident have had a few incidents of their own there, but still live there to this day. Or, neighbour now.
+
+They were only in their 40’s, but the man’s wife died there 2 years ago from a heart attack. She had no heart problems before, and no major health issues as well, and the man speaks with my grandfather from time to time. I hope that the man is doing well now, and hope that nothing is going on in that home with him
