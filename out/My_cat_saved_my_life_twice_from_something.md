@@ -60,7 +60,7 @@ One night, he came to me in a dream. He took my hand, looked me in the eye, and 
 
 “God, I’ve missed you,” he sobbed.
 
-It was the first time he seemed to acknowledge what happened. He leaned. Kissed me gently on the lips. He hugged me, and that cheap familiar cologne scent filled my nostrils. I felt a tear go down my cheek. I missed this. He leaned closed, and I felt his breath in my ear as he whispered the words that snapped me awake.
+It was the first time he seemed to acknowledge what happened. He leaned in. Kissed me gently on the lips. He hugged me, and that cheap familiar cologne scent filled my nostrils. I felt a tear go down my cheek. I missed this. He leaned closed, and I felt his breath in my ear as he whispered the words that snapped me awake.
 
 “You should come with me.”
 
