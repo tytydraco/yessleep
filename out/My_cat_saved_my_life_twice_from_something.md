@@ -102,7 +102,7 @@ I heard the honk and instantly got out of the street just in time for a minivan 
 
 The ball of fur that saved my life rubbed itself on my legs, purring. It snapped me back to reality. I looked down at him, and he looked back at me, expectedly.
 
-It was 3 am. I was tired. Everything felt heavy but I looked down at this guy, and I knew not to fight it. I walked back to my place, and sure as a shit, he followed suit, meowing loudly and what sounded suspiciously cranky at the same time.
+It was 3 am. I was tired. Everything felt heavy but I looked down at this guy, and I knew not to fight it. I walked back to my place, and sure as a shit, he followed, meowing loudly and what sounded suspiciously cranky at the same time.
 
 I walked inside, and he followed instantly.
 

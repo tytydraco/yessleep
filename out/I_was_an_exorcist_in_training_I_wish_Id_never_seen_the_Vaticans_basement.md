@@ -50,8 +50,6 @@ The Cardinal’s eyes lit up.
 
 “Yes!” He shouted. And then he began to recite:
 
-
-
 In the third circle I arrive, of show'rs
 
 Ceaseless, accursed, heavy, and cold, unchang'd
@@ -63,8 +61,6 @@ Large hail, discolour'd water, sleety flaw
 Through the dun midnight air stream'd down amain:
 
 Stank all the land whereon that tempest fell.
-
-
 
 I struggled to remember where he was quoting from. Certainly not the Bible this time. 
 
@@ -112,11 +108,7 @@ Cardinal Robles held up a hand.
 
 “Don’t answer yet,” he said. “It’s enough to know you’re considering it. Before your answer, you need to see the reality of what we’re up against.” He swept his arm out with a flourish. “Follow me.”
 
-
-
 \*
-
-
 
 “Do you believe in god? Any kind of god?” 
 
@@ -160,11 +152,7 @@ She was crying now. For a second, I wondered if I was on a date with an insane p
 
 “Don’t be,” she said. “It was a gift. After that, I didn’t have to believe anymore. I knew there was something out there. A bad thing. And a good thing. I’ve gotten to carry that with me every day of my life.”
 
-
-
 \*
-
-
 
 I followed Cardinal Robles through a series of rooms and doors, each less grand than the last. Gone were the frescos and magnificent tapestries. Instead, we weaved through corridors of simple brick. 
 
@@ -190,8 +178,6 @@ I took a step back in revulsion. But when I looked again, I saw now a handle, bu
 
 I walked forward and opened the door. 
 
-
-
 We entered a room built of ancient stones. It was perhaps as large as a high school gymnasium but perfectly round, with many doors extending in all directions. To one side sat a man in priest’s robes and a thick leather apron. Nearby, a cauldron of molten silver sat over a roaring fire. 
 
 As I watched, the priest said a blessing over the silver, then poured it into a large, cross-shaped mold. Soon, he was pounding on the surface. Beside him, in neat stacks, lay perhaps a hundred such crosses, all neatly stacked.
@@ -205,8 +191,6 @@ He gestured to the blacksmith, who set aside his hammer for a moment.
 “Where are the new prisoners? Or–just the girl, actually,” asked the Cardinal, and the man gestured silently to one of the doors, adorned with gold inlay and flanked by small, silver gargoyles. 
 
 The man resumed his work as we walked to the door and opened it.
-
-
 
 On the other side, I found out what the crosses were for. 
 
@@ -291,3 +275,5 @@ On the other side was a dark tunnel leading downward. A waft of sulfur hit my no
 I could barely speak. My throat went dry. My vision blurred. Somehow, I still managed to speak her name. 
 
 [“Sofia?”](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/nosleep/comments/1dz9xl4/i_was_an_exorcist_in_training_i_learned_the_truth/)
