@@ -1,6 +1,6 @@
 Last month, my little brother was hit and killed by a drunk driver while walking home from a friends house at night.
 
-After about a half an hour of waiting for him to get home so we could all eat dinner together, my mother went from angry to concerned and went out to look for him. She found him crumpled in the street, his legs twisted to an impossible angle.
+After about a half an hour of waiting for him to get home so we could all eat dinner together, my mother went from angry, to concerned and went out to look for him. She found him crumpled in the street, his legs twisted to an impossible angle.
 
 The driver was found a few blocks away, he had hit a tree and totaled his car. He died on impact, robbing us of any closure we may have had.
 

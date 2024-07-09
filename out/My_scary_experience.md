@@ -1,49 +1,7 @@
-I'm not sure if it was real. Maybe I was just high. But that doesn't matter for now, and I will post my story here just in case.
+this happened to me a few years back. For some background My family had just moved into a new house it was in a good neighborhood it had good people and low crime just the perfect neighborhood. I had some trouble getting used to the new house since I grow up in our old one. I also had my own room which was a first for me. I was always scared of being alone at time which I got over eventually. The first month went good we all got used to the area. I started to go outside and made friends with the kids in the area. One day I went around the block on my skate board I saw from the corner of my eye a black car just sitting there.
 
-I work as a delivery man, bringing every type of food from the kitchen to someone's house. It doesn't pay much, but it's enough to pay my part of the rent.
+I didn't think much of it until it came closer I started to go faster it keep coming as soon as I look at the diver they drove off from what I saw the diver looked to be male his windows where tinted so it was hard to make out features. I thought the experience to be just weird not thinking much of it. At the time I thought it was a great neighborhood and nothing bad could happen. A week later my dad brought me to the park. This park was big it had a playground and skate park also a basketball court. I was riding around the skate park while my dad and brother where at the playground when I saw the car I saw a week ago this time I started to think something was wrong I got a better look at the car. I tired to see the license plate but the car was gone pretty fast, I started to feel uneasy and felt like I was getting stalked. I told my friends about it and they thought it wasn't real as I was the joker of the group. I asked them to help me catch them and they somehow agreed. We had made a plan to use bait to lure them in. We spent hours outside but finally the car had been spotted. It cams around the corner but as soon as it came close my friends jumped out and got pictures. We all then ran to my friend Diego's house after looking through all the pictures we had actually gotten a good picture of the licence plate.
 
-But, I think that after what happened to me, a new job is something to focus on. 
+It was getting late though and we decided to all go home and deal with it in the morning. That night I woke up at 2am to go to the bathroom. Our bathroom had a tiny window high up to get steam out from the shower so you could hear some stuff outside. As I was doing my business I heard footsteps from the backyard I was thinking it was a cat as there is A lot of stray cats around my street but they seemed to loud and I was highly unlikely a big animal had gotten into my back yard. I ended up going to my bed when I heard the noise of glass breaking I was pretty young but I knew what had happened whoever was in that car knew where I lived knew we had his license plate on a picture. I could think to hide in my closet. Now I liked to be prepared for anything so I had a hiding spot where it was hard to find it was behind my brothers toy box covered with some toys in the back. I quickly got in and stayed quiet. Seconds felt like hours as I heard the foot steps draw closer I knew any second they would enter my room. I was there in my closet trying not to freak out I felt my heart beating fast I was resisting the urge to scream. At that moment the door opened very slowly to not draw attention of my parents. The man was around 5'7 with curly black hair. I was peaking out of a small hole I made with the toys to get a good look he looked around my bed. He looked around my desk.
 
-It all started last week. I needed to deliver some food to an apartment that looked normal and somewhat modern from the outside. Going to the entrance, I said to the security person working there that I had to deliver food to apartment 225 and waited some time so he could say that they would come down and get the food, like a normal delivery. Instead, he said something strange.
-
-"Take this ticket and do not do anything to it, just go to floor 25th and you will find what you want." as I was grabbing the paper, I noticed his black suit.
-
-"Thanks mister." I said, not trying to sound rude. "Just call me Etaf." He said, smiling.
-
-After that first weird encounter, I got inside the building and into the elevator, clicked the button and waited as it was going up until it stopped at the 2th floor.
-
-As the metal doors opened, it was almost impossible to see outside, just a little from the light coming from the elevator.
-
-After two seconds of silence, I was able to hear the sound of dragging, there was someone coming to the elevator and it was dragging something, or better say, someone. I don't know why, it was just instinct, but I grabbed the ticket and held it in front of me, and I thank god for that.
-
-The first thing I saw was a woman. She was sweating and on one of her hands were some wings. They were obviously fake, but I didn't know the material to be exact. Maybe porcelain, plastic. For me it didn't matter after I saw what she was dragging.
-
-A person, a man to be more exact. I am not sure if he was dead or just unconscious, but what i could see was that he had bandages covering his head, which were useless since it was still leaking blood, leaving a trail from the corridor to the elevator, a trail that was being cut by the closing of the doors. I was paralyzed, I couldn't move or speak, that was until I noticed the woman looking at me. She looked at me, the ticket, and the food I was carrying and asked me a simple question.
-
-"Which floor?"
-
-I was resilient at first, but after remembering all the horror stories I used to read, I decided to speak (didn't want to get her angry).
-
-"The 25th. Apartment number 225." I said, not trying to look at the man on the floor.
-
-She smiled at me, like everything happening was normal. "That's me!" She said, pausing and looking at what she was carrying. "I can't take the food now, but you can follow me to my apartment and I take the food there. Don't worry, you won't get hurt."
-
-The rest of the elevator ride was agonizing to say the least, and when I came to the 25th floor, it got much worse.
-
-As the doors for the elevator opened, she started walking to the right. The person she was dragging made her go slowly and I followed her from behind, maintaining a short distance. Once she gets to the apartment, she drops the person's legs and grabs her keys from the pocket, places them on the door, opening it.
-
-What I saw inside wasn't something forgettable.
-
-Hooks hanging from the ceiling, at least two more bodies both in strange positions and a lot of blood everywhere. She noticed my distress and looked at me with a compassionate face. "You don't need to enter if you don't want to, just leave the food by the door and leave this cursed place." She said and, without a doubt, I dropped the food and ran away.
-
-I entered the elevator and punched the ground floor button, shortly after the doors closed and I knew I was safe. Once I came to the ground floor, Etaf was waiting for me with his hand extended. "Could you please return the ticket?" He said.
-
-That's when I noticed that I dropped it on the 25th floor. I looked at him and said, "I dropped it and forgot to pick it up."
-
-The man just gave a small chuckle and said to me. "You are lucky that she didn't see you dropping it or that no one else found you on the way down Mister." I looked at him without knowing what to do. "Now, I think it is for the best if you run away now, if someone find you without the ticket you are dead meat." 
-
-I followed his instructions without even thinking. I ran to the entrance and out of the building, got in my car and drove all the way to the restaurant. I quitted on the spot and left for my home.
-
-I'm just writing this because one of my friends said that it helps to forget about it. I'm not sure how but I hope it works.
-
-And I hope to not see that building ever again.
+. .    I knew any second he would find me. Now this next moment might have been the work of an angel but somehow my dad who was a very deep sleeper had heard the glass and called the police as the man was looking under my bed sirens could be heard. As soon as they became louder the man had heard them he ran out of my room and left the house.he managed to escape before the police got to my home. I told the police about the picture of his license plate and they where able to track down the man the scary thing is he lived a few blocks away and had probably been Watching me as soon as we moved in. The man turned out to be a big drug user and was on them during the break in. I had found out that he had also gotten in jail multiple times for DUIs. I get goosebumps just typing this thinking how lucky I I'm to be alive I'm not sure what the mans intentions where but I'm sure it was something bad. 4 years later and where still in the same house I now make sure to always watch my back because of that experience I now I'm forever changed always make sure to tell a trusted adult when you feel scared or suspicious. If I had done that the first time it happened he wouldn't ever came to my house. STAY SAFE!
