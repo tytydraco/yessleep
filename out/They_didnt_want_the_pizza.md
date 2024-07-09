@@ -1,4 +1,4 @@
-I clocked into my shift, I prepared to deliver some pizzas in the dark. It was like any ordinary shift at this pizza joint. We were open till midnight. I had prepared myself some extra sleep so I had some leftover energy to deliver pizzas all night. I only worked here on the weekends and it also pays good for night shifts which is the only reason I work here so late. I sighed in dissapointed as the other employee hadn't shown up for the secondth time again.
+I clocked into my shift, I prepared to deliver some pizzas in the dark. It was like any ordinary shift at this pizza joint. We were open till midnight. I had prepared myself some extra sleep so I had some leftover energy to deliver pizzas all night. I only worked here on the weekends and it also pays good for night shifts which is the only reason I work here so late. I sighed in dissapointment as the other employee hadn't shown up for the second time again.
 
 "I might need to ask my employer to fire them." I thought
 
@@ -50,4 +50,4 @@ The next morning, I texted my boss about the incident and quit to pursue a new c
 
 I was also informed by the police that there were multiple reports of missing people in several different towns and that I was just lucky enough to make it out alive.
 
-This incident still scares me today and I am taking therapy to try and forget about it, I sometimes take drugs so I can doze off and not memorize what I just seen.
+This incident still scares me today and I am taking therapy to try and forget about it, I sometimes take drugs so I can doze off and not remember what I had just seen.
