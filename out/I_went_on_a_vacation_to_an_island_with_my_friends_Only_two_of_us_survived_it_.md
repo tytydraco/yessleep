@@ -30,7 +30,7 @@ It wasn’t too long before the island appeared on the horizon, and as we got cl
 
  
 
-By the time we finished talking we were basically at the beach of the island, so Tom and Dave docked the boat and then we grabbed backpacks and joined them on the beach. It was still beautiful. The water at the coast of the island was crystal clear and trimming with life. Small fish swam around the rocks and crabs run back to the safety of the ocean from the sand as we walked through the lush forest which started surprisingly close from the beach. A raven sized, black bird with a really long tail jumped deeper into the branches as we approached, while it made a weird, clicking sound.
+By the time we finished talking we were basically at the beach of the island, so Tom and Dave docked the boat and then we grabbed backpacks and joined them on the beach. It was still beautiful. The water at the coast of the island was crystal clear and trimming with life. Small fish swam around the rocks and crabs run back to the safety of the ocean from the sand as we walked towards the lush forest which started surprisingly close from the beach. A raven sized, black bird with a really long tail jumped deeper into the branches as we approached, while it made a weird, clicking sound.
 
  
 
@@ -152,7 +152,7 @@ Cate’s eyes widened, but she still stood by the dinosaur.
 
  
 
-And then she reached out to the creature’s head. The pupils of the raptor constricted as the hand got closer, and then it snapped. It was as fast as a striking snake as it grabbed Cate’s hand and dragged her to the ground. Cate screamed and fought as the creature started dragging her into the forest. Tom rushed out from the bushes, but five other dinosaurs appeared from the other side of the clearing, and three of them stood in his way. The other two helped the first one drag Cate into the darkening shadows of the jungle, while the remaining surrounded Tom. At this point Dave and I snapped out of our frozen state, and run towards him, kicking the beasts of his body. They let out terrible screeches as their bodies fell to the ground, then got up, and disappeared into the forest. Tom tried to get up, but one of the raptors managed to bite deeply into his left leg, and he collapsed. He tried again immediately, and that time he managed to get up, and started limping towards the forest.
+And then she reached out to the creature’s head. The pupils of the raptor constricted as the hand got closer, and then it snapped. It was as fast as a striking snake as it grabbed Cate’s hand and dragged her to the ground. Cate screamed and fought as the creature started dragging her into the forest. Tom rushed out from the bushes, but five other dinosaurs appeared from the other side of the clearing, and three of them stood in his way. The other two helped the first one drag Cate into the darkening shadows of the jungle, while the remaining surrounded Tom. At this point Dave and I snapped out of our frozen state, and run towards him, kicking the beasts off his body. They let out terrible screeches as their bodies fell to the ground, then got up, and disappeared into the forest. Tom tried to get up, but one of the raptors managed to bite deeply into his left leg, and he collapsed. He tried again immediately, and that time he managed to get up, and started limping towards the forest.
 
 
 
@@ -200,7 +200,7 @@ Tom eventually agreed with the plan, and after locating where the sounds were co
 
  
 
-After this conversation, we continued our trip in silence. The screams around us eventually got louder, echoing from closer and further between the branches. At one point we even heard a clean ‘Help!’ and Dave had to hold back Tom, looking into his exes, and telling him multiple times that what we heard, wasn’t his girlfriend. But eventually, we got closer to the calls. At some point, the trees around us started to thin out, and we eventually noticed that we were walking on a path. It was grown in with weeds, and filled with holes, but it was still there. As we followed it further, a huge, dark shape appeared between the trees. We were heading towards the mansion. It was a huge, old building, taken back by nature. Small trees were growing from the empty windows, and vines run all over the walls, racing for the sunlight. Orchids were blooming on the roof; their red flowers made the roof tiles look like they were sprayed with blood. We were so focused on the building, that we only noticed the skeleton when Chris silently pointed it out. It was laying beside the trail. The skull was a bit away from the rest, and moss slowly took over it as its empty eyes stared into the sky above. The rest were really fragmentary, apart from the ribcages and the pelvic bone only half a leg, and two arm bones were left.
+After this conversation, we continued our trip in silence. The screams around us eventually got louder, echoing from closer and further between the branches. At one point we even heard a clean ‘Help!’ and Dave had to hold back Tom, looking into his eyes, and telling him multiple times that what we heard, wasn’t his girlfriend. But eventually, we got closer to the calls. At some point, the trees around us started to thin out, and we eventually noticed that we were walking on a path. It was grown in with weeds, and filled with holes, but it was still there. As we followed it further, a huge, dark shape appeared between the trees. We were heading towards the mansion. It was a huge, old building, taken back by nature. Small trees were growing from the empty windows, and vines run all over the walls, racing for the sunlight. Orchids were blooming on the roof; their red flowers made the roof tiles look like they were sprayed with blood. We were so focused on the building, that we only noticed the skeleton when Chris silently pointed it out. It was laying beside the trail. The skull was a bit away from the rest, and moss slowly took over it as its empty eyes stared into the sky above. The rest were really fragmentary, apart from the ribcages and the pelvic bone only half a leg, and two arm bones were left.
 
 -Well, looks like the first owners didn’t really leave after all. -said Dave.
 
@@ -228,7 +228,7 @@ The barinashuchus had enough as one raptor accidentally backed into it, and let 
 
 
 
-While we were all busy with saving our lives, the dinosaurs which held Cate hostage, fled the scene, as the clearly annoyed croc bust into the field, pushing everything over in its way. Cate managed to get up, and started running towards Tom. I don’t know where she still got enough strength after being pulled across half of the island. As the raptors notice the giant crocodile on the loose, they started fleeing the scene. I didn’t really understand, as the pack would surely have been enough to bring it down, but for some reason they seemed to avoid every confrontation with it. As Cate run towards Tom, se lifted a branch from the ground, and tried to knock off the last remaining raptor from his body. I don’t know how it was possible but at this point, Tom was still moving. As the deinonychus rolled off him, with a huge chunk of meat in its mouth, leaving only a bloody mess in where Tom’s neck used to be, he lifted his arm with one last burst of energy, and tried to point behind Cate’s back.
+While we were all busy with saving our lives, the dinosaurs which held Cate hostage, fled, as the clearly annoyed croc bust into the field, pushing everything over in its way. Cate managed to get up, and started running towards Tom. I don’t know how she still got enough strength after being pulled across half of the island. As the raptors notice the giant crocodile on the loose, they started fleeing the scene. I didn’t really understand, as the pack would surely have been enough to bring it down, but for some reason they seemed to avoid every confrontation with it. As Cate run towards Tom, se lifted a branch from the ground, and tried to knock off the last remaining raptor from his body. I don’t know how it was possible but at this point, Tom was still moving. As the deinonychus rolled off him, with a huge chunk of meat in its mouth, leaving only a bloody mess in where Tom’s neck used to be, he lifted his arm with one last burst of energy, and tried to point behind Cate’s back.
 
  
 
@@ -238,7 +238,7 @@ But by this point, it was too late. The barinasuchus, as at this point, there we
 
  
 
-We run. I don’t know how Dave didn’t faint, but he kept up behind me. The shock of seeing his friends torn apart probably made his brain too numb to register the pain. Fortunately, the barinasuchus seemingly decided that we didn’t worth the trouble, since it didn’t follow us. But no matter the reason, we were able to race to the front. Where a deinonychus was sitting on Chris’ body, tearing chunks of meat and organs from his open chest. It looked at us, then the bloodstained jaws opened, and a perfect replica of Chris’ voice screamed at us.
+We run. I don’t know how Dave didn’t faint, but he kept up behind me. The shock of seeing his friends torn apart probably made his brain too numb to register the pain. Fortunately, the barinasuchus seemingly decided that we didn’t worth the effort, since it didn’t follow us. But no matter the reason, we were able to race to the front. Where a deinonychus was sitting on Chris’ body, tearing chunks of meat and organs from his open chest. It looked at us, then the bloodstained jaws opened, and a perfect replica of Chris’ voice screamed at us.
 
 -Guys! Please! Please!
 
@@ -254,11 +254,11 @@ It was a lot later, but we somehow managed to get to the beach. We made a bandag
 
 -Beaver offered it.
 
--Beaver?! Were you out of your fucking mind? Beaver offers something and you accept it?
+-Beaver?! Were you out of your fucking mind?! Beaver offers something and you accept it?
 
--Hold your horses, please. I know he hates, us but honestly, I don’t think you would’ve refused it either. Like would you thought that he hates us so much that he wants us dead, or I don’t know maybe just wants us to sleep in shitty tents for a week while being eaten alive by mosquitoes.
+-Hold your horses, please. I know he hates us, but honestly, I don’t think you would’ve refused it either. Like would you thought that he hates us so much that he wants us dead, or I don’t know maybe just wants us to sleep in shitty tents for a week while being eaten alive by mosquitoes.
 
--Yeah, you’re probably right. I’m worry.
+-Yeah, you’re probably right. I’m sorry.
 
 -Hmmpf.
 
