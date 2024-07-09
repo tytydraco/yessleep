@@ -20,7 +20,7 @@ I used to be a cop, so I’ve seen my fair share of sickos and freaks, but this 
 
 The dead guy’s body was still twitching when the men loaded it into the back of the cart. His pink polo turned red, but his gray shorts looked better than ever. Stain-free fabric. Just like the website advertised. Ponytail took one look at the torn up grass and shook his head. He took a shovelful of sand from a compartment on the side of the cart and filled in the divots before offering the club president a thumbs up and driving away towards the clubhouse. 
 
-The rest of us were under no illusions after that.
+The rest of us were under no illusions after that, and I realized, for the first time, what would happen to me if I didn’t win this tournament. I felt my stomach roil with hot fear as I bent over and threw up the enchiladas I had for lunch.
 
   
 \*\*\*
@@ -39,7 +39,7 @@ He paused after this statement. His lips began to curl towards the ends. The res
 
 “You got a death wish, idiot?”
 
-I shook my head and turned back.
+I shook my head and turned back, thinking of what they did to the khakinator, and imagining how they would probably enjoy beating my brains in with a nine iron if I gave them a reason. Even though I emptied my stomach, my gut wasn’t feeling up to par. Excuse the bad pun. Staring down the barrel of death is something you never get used to. Even if you put on a brave face, it’s scary every time. I only hoped I’d be able to relax in time for the game. If I took my first stroke while I was still shaking, I might as well ask them to run me over with one of the carts. At least I’d save myself the embarrassment of loosing by double digits.
 
 Dan continued. “The top two scorers advance to the back nine, where they will duke it out between each other. The man with the lowest score per foursome at the end of 18 holes will be granted admission into the membership of Preacher’s Pulpit. Any debts you owe to society will be erased by our legal team and you will inherit all rights, honors, and privileges associated with membership. As the kids say, ‘if you want more deets,” hit up Deb Rhiner. She will be available for one hour after the tournament to help fit you for a robe and answer any questions you have about the induction ceremony. If you want a tournament ring, you have to let Deb know. She will be placing our order tomorrow morning so the company we use will be able to make and ship them before the ceremony. Okay?”
 
@@ -63,13 +63,15 @@ Dan asked the computer programmers to go first since Ponytail had blown the head
 
 Our group leaders were supposed to remain objective, which meant they couldn’t follow us or give one guy advice that they weren’t giving to the others. Preacher’s Pulpit touted their strict meritocracy with great fervor. Only the best man for the job! 
 
-“I’ll see you all on hole 10.” 
+“I’ll see you all on hole 10. Or, at least, I’ll see two of you.”
 
-Ryan slipped away, hands in his pockets, head down. The three of us stared at each other, then at the ground, then back at each other. 
+My hairs stood on end as the words left his mouth. Ryan slipped away, hands in his pockets, head down. The three of us stared at each other, then at the ground, then back at each other. The thing that terrified me the most was that I had no idea how good the other two guys in my threesome were. What if they just happened to be scratch golfers? I didn’t want to think it, but a little voice in my head told me anyway: “Ponytail is going to shoot you in the face.”
 
 “I’ll take the first shot,” one guy said. 
 
-He was tall and dressed in a black polo and checkered black and white pants despite the sun which hung heavy off in the distance. It was just beginning to get hot. Bugs nipped at the back of my neck. I had to swat them away every 30 seconds. Sometimes they’d fly in my ear or get caught in my hair and I’d have to pick them out. In all the excitement, I couldn’t believe I didn’t pack any bug spray. I had sun block, water, protein bars, but no bug spray. Great. The tall guy in black teed up and gave it a few practice swings. 
+Poor word choice. I grimaced. I probably looked weaker in that moment than I had ever looked before. My shoulders dropped over. My eyes were the size of silver dollars and I could feel the tears welling up behind them. I didn’t want to die. 
+
+The guy lining up to take his shot was tall and dressed in a black polo and checkered black and white pants despite the sun which hung heavy off in the distance. It was just beginning to get hot. Bugs nipped at the back of my neck. I had to swat them away every 30 seconds. Sometimes they’d fly in my ear or get caught in my hair and I’d have to pick them out. In all the excitement, I couldn’t believe I didn’t pack any bug spray. I had sun block, water, protein bars, but no bug spray. Great. The tall guy in black teed up and gave it a few practice swings. 
 
 “Hey,” whispered the guy next to me. He was a real fat guy wearing an XXL Hawaiian button-up with large pineapple decals on it. “My name’s Kevin Johnson. What’s yours?”
 
@@ -81,13 +83,15 @@ He was tall and dressed in a black polo and checkered black and white pants desp
 
 “Nice to meet you, Brent McCloy,” he said. Then, as if I forgot, as if I was a moron, he repeated himself. “I’m Kevin Johnson.”
 
+I don’t know what’s wrong with me. Normally, I wouldn’t be so arrogant and rude. I guess we all change a little when we’re scared for our lives. Manners go out the window.
+
 The tall guy took his shot. Solid connection. The ball screamed through the air, sailed 150 yards, and started making its descent. It landed on the fairway in front of a sand trap about 80 yards from the green. Not a bad shot. Kevin Johnson went next. His wind-up was big and clunky and probably could’ve been picked up on the Richter scale. His shot was worse. He shanked it past the cart path and into the rough about 120 yards from the green.
 
 He wet his lips and started walking away from the box. The scorekeeper, an old hag in a short white skirt and a pink top whistled at him. “Hey, Fatso. Your tee.” Kevin doubled back, grabbed his tee, and retreated behind the guy in black as fast as he could. His cheeks were red as blood. 
 
 My turn. 
 
-I stood in the box and did a couple of stretches. Twisted my abdomen back and forth like old guys do, holding onto their club for dear life, hoping they don’t throw out their back. 
+I stood in the box and did a couple of stretches. Twisted my abdomen back and forth like old guys do, holding onto their club for dear life, hoping they don’t throw out their back. In high school I remember reading a book called The Prince. I can’t remember who wrote it, but he advised would-be princes to care deeply about their perceptions. Particularly how they were perceived by their enemies. It was basically an elaborate argument for acting strong when you are weak and acting weak when you are strong. My knees were shaking. My lips were quivering, but I knew I needed to show myself strong. If I had any hope in the world, it would be in faking it until I made it.
 
 “Ever heard of the movie Turbo?” I asked.
 
