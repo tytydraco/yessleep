@@ -327,7 +327,7 @@ We were done. 
 
 
 
-\~
+~
 
 
 
@@ -433,7 +433,7 @@ I backed out of the building, hands held up. When I was back through the door, I
 
 He continued screaming as I peeled out of the lot. Continued screaming in my head even as I sped through the city, putting miles of asphalt between myself and whatever the fuck that was. 
 
-
+~
 
 I couldn't handle this anymore. I would never look back. Id hire movers if it meant I never had to go back to that enigma made of brick and tar. 
 
