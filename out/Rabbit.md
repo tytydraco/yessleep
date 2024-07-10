@@ -111,7 +111,7 @@ Last night, I asked it something in return.
 
 “Why?” It said again. “Why did you leave me?”
 
-“Because of what you did,” I answered, tearing in my eyes. “Because of what you did to Jimmy.”
+“Because of what you did,” I answered, tears in my eyes. “Because of what you did to Jimmy.”
 
 “I only tried to help,” It said. “I only wanted to play with you.”
 

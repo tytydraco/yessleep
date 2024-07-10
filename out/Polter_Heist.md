@@ -178,7 +178,7 @@ Dread, foreboding, and the overwhelming presence of pure evil permeated my psych
 
 In front of me as if in slow motion the other three men jogged through the haze alongside the brick-wall of the camera shop towards the road. Nathan was leading. As he cleared the building and stepped down into the street a body sized cloud of mist swept through him, pulling him to the left and knocking him to the ground about fifteen feet to the side.
 
-I only saw it for a moment but it seemed to have robe shrouded arms with claws  spread like fingers on end of each arm. It was all just mist but it took on the form of a hooded figure. As it passed it turned it's head towards me and I could see it's skeletal face and soft green glowing eyes.
+I only saw it for a moment but it seemed to have robe shrouded arms with claws  spread like fingers at the end of each arm. It was all just mist but it took on the form of a hooded figure. As it passed it turned it's head towards me and I could see it's skeletal face and soft green glowing eyes.
 
 We kept running as if on autopilot from some internal instinct programmed to save ourselves, but I managed to turn my head slightly to try to see if Nathan had survived. He lie there on his side holding his stomach and curled up in fetal position. His face was red and frozen in a contorted scream of terror. The thought crossed my mind to go check on him but as soon as it did I noticed the spectre was still there hovering over his body.
 
