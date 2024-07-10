@@ -182,7 +182,7 @@ I only saw it for a moment but it seemed to have robe shrouded arms with claws  
 
 We kept running as if on autopilot from some internal instinct programmed to save ourselves, but I managed to turn my head slightly to try to see if Nathan had survived. He lie there on his side holding his stomach and curled up in fetal position. His face was red and frozen in a contorted scream of terror. The thought crossed my mind to go check on him but as soon as it did I noticed the spectre was still there hovering over his body.
 
-The rest of us reached the other side of the road and went round the side to get to the rear door. The drizzle had built up a field of moisture on my face, speckled across it like a sweat from a summer day. It was blurring my vision by the time we rounded the back corner of the bank building and headed down the alley to the rear door.
+The rest of us reached the other side of the road and went round the side to get to the rear door. The drizzle had built up a field of moisture on my face, speckled across it like sweat on a summer day. It was blurring my vision by the time we rounded the back corner of the bank building and headed down the alley to the rear door.
 
 Garry reached the door first, flung it open, and shot inside in one fluid motion. Tyson stopped at the door to briefly look back behind us. The look on his face caused me to do the same.
 
