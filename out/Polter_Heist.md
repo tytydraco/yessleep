@@ -174,7 +174,7 @@ As the men in front of me penetrated the veil of white one by one, I swear I cou
 
 Some ball of pure fear formed in my belly and pushed upwards towards my throat. My instincts set off alarms of unrecognizable emotions informing me in some unspoken primal language that my time had finally come.
 
-Dread, foreboding, and the overwhelming presence of pure evil permeated by psyche and for the first time I understood what it meant for a intelligent entity to exist with absolutely no compassion at all. In fact, instead the thing seemed to exist as a force of complete malice. This gut wrenching realization was so intense that it caused immediate trembling throughout my body to the point where it had become hard to run.
+Dread, foreboding, and the overwhelming presence of pure evil permeated my psyche and for the first time I understood what it meant for an intelligent entity to exist with absolutely no compassion at all. In fact, instead the thing seemed to exist as a force of complete malice. This gut wrenching realization was so intense that it caused immediate trembling throughout my body to the point where it had become hard to run.
 
 In front of me as if in slow motion the other three men jogged through the haze alongside the brick-wall of the camera shop towards the road. Nathan was leading. As he cleared the building and stepped down into the street a body sized cloud of mist swept through him, pulling him to the left and knocking him to the ground about fifteen feet to the side.
 
