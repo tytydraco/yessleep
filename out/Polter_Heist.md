@@ -188,7 +188,7 @@ Garry reached the door first, flung it open, and shot inside in one fluid motion
 
 At the end of the alley where we had just been mere seconds before, stood three cloaked figures. Again, they were made of the mist but in the shape of cloaked figures. Each one had a hood over skeletal faces with dull green glowing eyes.
 
-We darted inside and shut an locked the steel door behind us. We found Garry hiding in the stairwell motioning us to come to him. We did so. I asked him why. He replied by pointing to the front lobby window. I peeked around the corner of the stairwell and saw several of the figures at the window staring in as if looking for us.
+We darted inside and shut and locked the steel door behind us. We found Garry hiding in the stairwell motioning us to come to him. We did so. I asked him why. He replied by pointing to the front lobby window. I peeked around the corner of the stairwell and saw several of the figures at the window staring in as if looking for us.
 
 I told Tyson we really need to check out the vault. Maybe we could hide in there in case the things managed to get in. Tyson's hands were shaking so bad he could hardly get the film into the camera. I took the camera and held the bit of film over the lens as Tyson lit up a cigarette. He blew smoke across the floor and I took the photo.
 
