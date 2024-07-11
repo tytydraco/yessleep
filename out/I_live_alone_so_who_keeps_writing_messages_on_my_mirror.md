@@ -76,7 +76,7 @@ I looked around the room. Surely, I'd misheard him. Either that or he was confus
 
 "Sure it does. Just to the left of the vanity." 
 
-I looked at the mirror. At that long, oversized mirror. I'd always found it odd, for a bathroom of that size, to have a built-in floor-to-ceiling mirror. What was it that Anders had said when he'd first visited? That something had looked different about the bathroom? 
+I looked at the mirror. At that long, oversized mirror. I'd always found it odd for a bathroom of that size to have a built-in floor-to-ceiling mirror. What was it that Anders had said when he'd first visited? That something had looked different about the bathroom? 
 
 Setting my phone down next to the sink, I stepped up close to the glass. I spent a few moments feeling around the frame, looking for a latch, then I grabbed a portion of the right side of the frame in two hands. After one hard yank, the "mirror" swung open like a door, revealing a large walk-in closet. 
 
