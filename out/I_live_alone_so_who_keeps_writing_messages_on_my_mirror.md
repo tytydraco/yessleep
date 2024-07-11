@@ -40,7 +40,7 @@ When morning came and I had to leave the house for work, I genuinely considered 
 
 After work, when I reluctantly returned home for the night, I ate a quick dinner and hopped in the shower. I remember standing in the tub for a long time, mulling over my predicament. I'd heard horror stories about people secretly living in other peoples' homes. Maybe I had become a victim of a phrog without even knowing, but if that was the case, then where the hell were they? There was nowhere to hide in that tiny house. I'd torn the place apart multiple times by then, checking every cabinet and closet. The inside of the house couldn't be accessed from the crawl space, and the air vents were too small for a person to fit in. 
 
-Suddenly, I heard a *click*, so tiny that I'd almost missed it entirely. I tore back the shower curtain, gripping the shampoo bottle like I was about to bludgeon an intruder to death with it. As I'd come to expect, there was no one in the shower, but there was a new message on the mirror. This one was bold, the easiest to read of any of the messages I'd received so far. It was three words long:
+Suddenly, I heard a *click*, so tiny that I'd almost missed it entirely. I tore back the shower curtain, gripping the shampoo bottle like I was about to bludgeon an intruder to death with it. As I'd come to expect, there was no one in the room, but there was a new message on the mirror. This one was bold, the easiest to read of any of the messages I'd received so far. It was three words long:
 
 *I see you*
 
