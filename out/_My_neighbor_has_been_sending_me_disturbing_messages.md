@@ -1,7 +1,5 @@
 
 
-My neighbor has been sending me disturbing messages.
-
 A few months ago, someone new moved into the neighborhood. I didn't pay much attention; people come and go all the time. However, from the first day they moved in, they never left their house, at least not during the day.
 
 Every night, I'd hear the start of a car engine at 9:54 pm sharp. By morning, the car would be back in the driveway. I figured they worked a graveyard shift and slept during the day. That seemed like a plausible explanation until one night. While binge-watching Miami Vice, I got up to make popcorn and heard the engine start.
