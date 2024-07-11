@@ -253,3 +253,5 @@ It’s dangerous and there’s no guarantee it’ll work.  But it’s better th
 Rule #2: If you fall asleep in class and no one is around when you wake up, stay at your desk. Pretend you’re taking notes. Don’t look up and don’t look around, no matter what you hear. You’ll be returned to your classroom when it leaves.
 
 Rule #2a: If someone does look at the creature in the hallway, everyone in the class must stop them from leaving.  Grab hold of them, grab hold of each other, and pull them away from the door.  Do not let go until the creature retreats.  This is the only way to save [their](https://alderrayne.com/) [life.](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Next post.](https://www.reddit.com/r/nosleep/comments/1e0h7yp/how_to_survive_college_professor_monotone_is/)
