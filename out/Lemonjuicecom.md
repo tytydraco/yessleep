@@ -13,7 +13,7 @@ On the right I saw make your profile icon. I did and after that I stared at the 
 
 A window notification popped up that said "what will be your anonymous name?" 
 
-I wrote redfower11 I then clicked confirm and on the bottom a message bar popped up for typing messages and a big text box for conversation was shown, on the left I saw two icons, the one on the bottom was mine and had a duck from the you got grapes video while the profile above mine had a Russian blue cat holding her face, her name was written as yellow lavender 22. 
+I wrote redflower11 I then clicked confirm and on the bottom a message bar popped up for typing messages and a big text box for conversation was shown, on the left I saw two icons, the one on the bottom was mine and had a duck from the you got grapes video while the profile above mine had a Russian blue cat holding her face, her name was written as yellow lavender 22. 
 
 I chatted with the person behind the account and I then added her on social media. 
 
@@ -38,7 +38,7 @@ Johnny was correct I wore a red shirt! I quickly grabbed a tape and placed that 
 "Johnny the video game maker: i can still see you!" 
 
 
-Sweat started to pour down, my heart beaten more and more faster. My hand started to shake.
+Sweat started to pour down, my heart beated more and more faster. My hand started to shake.
 
 "Redflower11:who are you? How do you know who I am? How can you see me?" 
 
