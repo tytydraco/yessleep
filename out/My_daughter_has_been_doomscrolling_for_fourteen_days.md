@@ -14,7 +14,7 @@ But two weeks into camp, when I called to check in on her, I was shocked by what
 
 My mind began to race. If Rebecca hasn't been at summer camp for the past fourteen days, where has she been?
 
-I began to panic. Calling every one of her friends’ parents until eventually speaking with friend Lisa's mother.
+I began to panic. Calling every one of her friends’ parents until eventually speaking with her friend Lisa's mother.
 
 "That's concerning." She said, "Lisa told us she was going on a family vacation with Rebecca, and presumably you?"
 
@@ -28,21 +28,21 @@ According to one friend, Bobby, it turned out that several of her friends and cl
 
 —
 
-After returning home, I discovered that my wife, who had also been temporarily possessed by the cursed cell phone, had also begun to fiend over it, her teeth chattering, her body covered in sweat.
+After returning home, I discovered that my wife, who had also been previously possessed by the cursed cell phone, had also begun to fiend over it, her teeth chattering, her body covered in sweat.
 
 That's when I knew what I had to do. I had to destroy the old cracked cell phone.
 
-And after locking her away, with her own permission, so that she too wouldn't set out looking for the app, I did just that, following in the footsteps of my daughter and her friends, to the abandoned train station in the woods
+And after locking my wife away, with her permission, so that she too wouldn't set out looking for the app, I did just that, following in the footsteps of my daughter and her friends, to the abandoned train station in the woods.
 
 —
 
-After hopping a chain link fence, and  trespassing, I eventually found the entrance to the station, its facade crumbling, its surface covered in spray paint.
+After hopping a chain link fence, and trespassing into the premises, I eventually found the entrance to the station, its facade crumbling, its surface covered in spray paint.
 
-I looked down at the crowbar I was holding, an instinct grab on my way out of the house, and gripped it in my hand, as my body trembled in fear, and adrenaline.
+I looked down at the crowbar I was holding, an instinct grab on my way out of the house, and gripped it in my hand, as my body trembled from fear and adrenaline.
 
 If dealing with two individuals possessed by the phone had been a terrifying ordeal, then I could only imagine what would come of confronting five or even ten of them.
 
-Luckily, it was only one possibly for one cursed phone, and one possessed person to be inside at any given time. I reasoned.
+Luckily, it was only possibly for one cursed phone, and one possessed person, to be inside at any given time. I reasoned.
 
 —
 
@@ -54,29 +54,27 @@ There wasn't one cell phone. There were many. Each one held in the hand of what 
 
 Someone must have found a way to copy the app to other phones. I thought to myself, before walking through the station, as they all swiped away, and ignored me.
 
-Eventually, I stopped at Becca, who, sure enough, was sitting next to her friend Lisa, her eyes fixated on the app, as she doomscrolled away.
+Eventually, I stopped at my daughter Rebecca, who, sure enough, was sitting next to her friend Lisa, her eyes fixated on the app, as she doomscrolled away.
 
 "Becca," I whispered, looking back to see if anyone else had heard me. But her friends were too hypnotized by their own phones to care.
 
 That is, until I tried to pry the phone out of my daughter's hand.
 
-"Rebecca, just let go!" I said, as I managed to pull it out of her grasp, and step far enough away, so that I could toss it to the floor and smash it to bits with the crowbar.
+"Rebecca, just let go!" I cried out, as I managed to pull it out of her grasp, and step far enough away, so that I could toss it to the ground and smash it to pieces with the crowbar.
 
-Rebecca howled out in pain, as if my blows to the phone had struck her instead, passing out when the phone was destroyed.
+Rebecca howled out in pain, as if the blows I had struck to the phone had struck her instead, passing out when the phone was destroyed.
 
 I placed the broken phone in my pocket.
 
-Suddenly, all of the teenagers stopped doomscrolling on their phones, and looked up. Their hollow eyes locked in on one thing now and one thing only.
+Suddenly, all of the teenagers stopped doomscrolling on their phones, and looked up. Their hollow eyes locked in on one thing and one thing only. Me.
 
-That's when they all stood up, and began hobbling over in my direction, like zombies in the night, as they growled and hissed, their arms extended, clawing away at the air.
+That's when they all stood up, and began hobbling  towards me down the shadowy platform, like zombies in the night, as they growled and hissed, their arms extended, clawing away at the air.
 
-I picked up my daughter, and began backing away to what I thought was safety, but suddenly heard another of her possessed friends emerge from the darkness behind me and claw at my back, his nails tearing through my shirt and digging through my back.
+I picked up my daughter, and began backing away to what I thought was safety, but suddenly heard another of her possessed friends emerge from the darkness behind me and claw at my back, his nails tearing through my shirt and digging through my skin.
 
-"Aaaaaargghh!" I cried out, remembering the pain I had felt when my daughter had done the same to face just a couple weeks prior.
+"Aaaaaargghh!" I cried out, remembering the pain I had felt when my daughter had done the same to my face just a couple weeks prior.
 
-"Give us the phone
-
-Not knowing what else to do, I temporarily placed Becca down, hopped into the old train tracks, and threw her body off her shoulder, carrying her off through the dark tracks as Becca's possessed friends chased behind me.
+Not knowing what else to do, I temporarily placed Becca down, hopped down into the old train tracks, and threw her body over my shoulder, carrying her off down the tracks and into the darkness, as Becca's possessed friends chased after me.
 
 —
 
@@ -86,6 +84,6 @@ I had nearly made my way out, when standing there, at the entrance of the tunnel
 
 I looked down at the crowbar and thought about what I might have to do to get my daughter to safety.
 
-But when I got closer, I realized it wasn't one of the possessed teens, but instead Bobby, the very friend who had told me about the train station in the first place.
+But when I got closer, I realized the silhouette wasn't that of one of the possessed teens, but instead Bobby, the very friend who had told me about the train station in the first place.
 
-"Come on, Mr. Silver!" Bobby called out, as I made my way over to him, and he helped me carry my daughter off into the woods.
+"Come on, Mr. Silver!" Bobby called out, as I made my way over to him, and he helped me carry my daughter off into the woods, away from the possessed horde of teenagers.
