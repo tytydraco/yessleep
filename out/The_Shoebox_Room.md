@@ -16,7 +16,7 @@ At the time of this particular summer trip, I was 11-12 years old. My cousin (wh
 
 **Night 1:** The first night of the trip, my cousins and I stayed up talking and playing games, then all went to sleep in our respective rooms. My cousin asked that we leave the door cracked so the night light in the hall would come into the room, just a little bit. I obliged as we were in a creepy basement in an unfamiliar place, and went to sleep unbothered.
 
-I woke up in the middle of the night to see my cousins bed empty, which upset and scared me (I then had the realization that I was alone in an eerie basement (save for the other cousins on the other side in their bedroom). I struggled to get back to sleep, but managed, and woke up feeling more on edge. I went up for breakfast to find my cousin had gone up to the top floor to sleep in his parents room. During breakfast, he claimed to have gotten scared in the night -- which I forgave.
+I woke up in the middle of the night to see my cousins bed empty, which upset and scared me (I then had the realization that I was alone in an eerie basement, save for the other cousins on the other side in their bedroom). I struggled to get back to sleep, but managed, and woke up feeling more on edge. I went up for breakfast to find my cousin had gone up to the top floor to sleep in his parents room. During breakfast, he claimed to have gotten scared in the night -- which I forgave.
 
 **Night 2:** The second night went similarly. I cracked the door by my bed to let some light in, and went to sleep. This time, I woke up in the morning to find his bed empty, and was now a little angry that he would leave me again--I did NOT like the idea of being alone in a creepy room (a basement room no less).
 
