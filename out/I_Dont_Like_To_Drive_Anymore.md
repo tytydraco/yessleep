@@ -14,7 +14,7 @@ Then like it was on cue the lights in the vehicle started to flicker. At first t
 
 *You have got to be kidding me.*
 
-I quickly shifted into neutral to try and coast down the downhill stretch I was on, all the while trying to restart the ignition. It wouldn't give. I started out onto the road in disbelief as I guided the vehicle onto the shoulder. I slammed the steering wheel in anger and got out of the car. I heard my voice echo through the mountains, taunting me, my curse reverberating back to me.
+I quickly shifted into neutral to coast down the downhill stretch I was on, all the while trying to restart the ignition. It wouldn't give. I started out onto the road in disbelief as I guided the vehicle onto the shoulder. I slammed the steering wheel in anger and got out of the car. I heard my voice echo through the mountains, taunting me, my curse reverberating back to me.
 
 Clouds had rolled in and it was DARK out. I realized quickly, just because there was a paved road here didn't mean I wasn't alone in the woods at 1 in the morning encircled by remote wilderness. The last town was an hour back and the next one probably a 4 hour walk. I stared into the deep woods surrounding me on all sides, ears straining at every twig snapping, or leaf rusting. Wearily anticipating at any moment a cougar to pounce from the brush.
 
