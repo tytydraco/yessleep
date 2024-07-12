@@ -71,3 +71,5 @@ I remained in shock awe at what my father was accusing me of.
 “I don’t want to see you for the rest of night, go upstairs and go to bed!”
 
 He released my arm and remained standing at the curtain watching my surrender as I kissed my mother goodnight and exited the room. I don’t know what to make of the whole thing, but one thing is sure, nothing about this place is normal. The following morning my parents acted as if nothing had happened the previous night. I even laughed to myself thinking the whole thing was a dream concocted by the recesses of my mind, but my fears were soon realised when I glimpsed two more cats dead outside our kitchen window. My question as to why no one had moved Luna as I mention previously was what followed. Ill update anything I find here and again, if there’s any suggestions you can give me it means more than you think.
+
+**- Part 2**- [https://www.reddit.com/r/nosleep/comments/1e1jp39/my\_neighbours\_dead\_cat\_has\_not\_been\_moved\_in/](https://www.reddit.com/r/nosleep/comments/1e1jp39/my_neighbours_dead_cat_has_not_been_moved_in/)
