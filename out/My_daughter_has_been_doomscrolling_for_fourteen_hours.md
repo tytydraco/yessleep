@@ -214,4 +214,4 @@ But the truth is, it only took a day before she was back to doomscrolling on her
 
 Now every time she does, and her dinner gets cold, I can't help but fear that she's been possessed again, but then I realize...
 
-...She's just a teenager.
+[...She's just a teenager.](https://www.reddit.com/r/nosleep/comments/1e1i8eb/my_daughter_has_been_doomscrolling_for_fourteen/)
