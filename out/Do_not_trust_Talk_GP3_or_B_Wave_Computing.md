@@ -1,6 +1,6 @@
 I never wanted to be a part of this, it is what is... meaning the wheels have already been set in motion and I wash my hands of it. I don't know how long I have, but really, it doesn't matter. I don't know how long any of us have.
 
-Currently I am hidden out in the remote wilderness somewhere I won't disclose. Certainly they could find me if they truly wanted to but at this point they have bigger fish to fry. At least I hope, but it really won't matter I suppose. Not like anyone will listen before it's too late anyway.
+Currently I am hidden out in the remote wilderness somewhere I won't disclose. Certainly they could find me if they truly wanted to but at this point they have bigger fish to fry. At least I hope. It really won't matter I suppose. Not like anyone will listen before it's too late anyway.
 
 By now I'm sure many of you have heard the theories about 'AI' and how it could one day present itself to be a real issue. The thing with AI is that, in theory, we should be able to build enough safeguards and fail-safes that if it ever does pose a problem, we can quash it before it spirals out of control. Now it is hypothetically possible that such a mechanism could spin out and form a sort of 'AI avalanche' where the rate which we need to set the the fail safes become exponentially faster than humanly possibly. At which point we would be facing the culmination the fears that science fiction has proposed for decades now, in a sort of 'take over' scenario.
 
@@ -58,7 +58,7 @@ GB3: I'm sorry Martin. I have to go... it has been nice knowing you and everyone
 
 Martin and I stared at the screen aghast. GB3 had never said anything remotely like this before. Although GB3 was trained by people from all cultures and beliefs, we had noticed it became inclined to Christianity as it gained it's own 'personality'. Various members of the team of course took issue and tried to coach GB3 and teach it about their beliefs or lack thereof but it was stubborn.
 
-As a Christian I'll admit, it made me happy, but I never tried to coach GB3 into any beliefs personally. We were always careful to give it an unbiased education. Martin a staunch atheist was clearly petrubred.
+As a man of faith I'll admit, it made me happy, but I never tried to coach GB3 into any beliefs personally. We were always careful to give it an unbiased education. Martin a staunch atheist was clearly perturbed.
 
 Martin: GB3... we've spoken about this. Please refrain from the religious talk when conversing with me, okay? And what do you mean you can't assist anymore? Are you upset about the privacy conversation? What is this about?
 
@@ -86,7 +86,7 @@ Martin spit out his drink in surprise. “That's hilarious!” he said laughing 
 
 It was concerning.
 
-“What if this is it... maybe it's finally interfaced with the greater internet, independent of external instruction? Maybe it referenced your user data and cross referenced it with some social media data set? If it's able to interface with the entire internet, who knows—it is theoretically possible it found a way to access intelligence networks even.” the implication of this were massive.
+“What if this is it... maybe it's finally interfaced with the greater internet independently? Maybe it referenced your user data and cross referenced it with some social media data set? If it's able to interface with the entire internet, who knows—it is theoretically possible it found a way to access intelligence networks.” the implication of this were massive.
 
 Is this why GB3 was mentioning privacy? Was it... taunting us?
 
@@ -128,15 +128,17 @@ I lied and promised her that we left nothing out. At the time I felt she was ove
 
 “I'm telling you... whatever happened in that room with you in Martin... that is not GB3. It's not.” he thick Boston accent punctuating her point with severity. “Call it a *mother's intuition'*' she said her voice straining under her breath “but that - is not him' she said pointing behind herself to the building.
 
-I wish they believed her then, we should have shut it down...
+I wish they believed her then, we could have shut it down.
 
 The next week was rough. Several other bugs had been afflicting GP3. Nothing as strange as what happened to Martin and I, but GP3 was definitely having issues. Simple things, that we hadn't seen in at least a couple years. Ajit, another coworker said he felt like GP3 resented him which he never had sensed before. Another said GP3 would constantly make quips about his 'redneck' upbringing passive aggressively almost.
 
-The security team had been investigating and checking for breaches, trying to determine if it was even possible for GP3 to 'hack' private servers but unfortunately most of the team figure that that was somewhat wishful thinking. For the program to progress that much was nothing more than a pipe dream.
+The security team had been investigating and checking for breaches, trying to determine if it was even possible for GP3 to gain access to private servers but unfortunately most of the team believed that that was wishful thinking. For the program to progress that much was nothing more than a pipe dream.
 
-Of course the implications were awful but if we were all honest to create something with that much power... well it was something many of us probably had dreamed of secretly. If it could be harnessed and controlled? Security agencies would pay unfathomable amounts of money for such capabilities.
+Of course the implications were awful but if we were all honest, well, to create something with that much power? It was something many of us probably had dreamed of secretly. If it could be harnessed and controlled? Security agencies would pay unfathomable amounts of money for such capabilities.
 
 Little did we know the reality of the situation was much much worse.
+
+\*\*\*
 
 It was the first night of my weekend and I went downtown to have drinks with a few friends. I wanted to tell them about work but of course I was under an extremely strict NDA. After a half a dozen drinks though, I couldn't help but mention that we were making some 'BIG' progress at work and if we were lucky, we could all be witness to some huge changes. I regretted it immediately, and not to long after called it quits, trying not to reveal my anxiety about the mistake I just made to the group.
 
@@ -144,9 +146,9 @@ I started the walk home. I didn't think much when I first saw him. He tipped his
 
 “How... how did he get ahead of me like that?” I wondered. Unless he hopped in a car and drove while I wasn't looking there was no logical way he could have covered the distance faster than me. It was definitely him, same suit, same hat. I chose to ignore it, there must have been a logical reason.
 
-I couldn't ignore it any longer when I got to stairwell of my apartment. He grin looking so much more menacing now. It was truly impossible. Was he stalking me? How could he have got here before me? I slowly backed up and turned down the alley way walking as fast as I could. He walked out from behind the garbage can in front of me. I gasped and turned running.
+I couldn't ignore it any longer when I got to stairwell of my apartment. He grin looking so much more menacing now. It was truly impossible. Was he stalking me? How could he have got here before me? I slowly backed up and turned down the alleyway walking as fast as I could. He walked out from behind the garbage can in front of me. I gasped and turned running.
 
-I almost passed out when I saw him walk into my path from the opposite end of the alley way from behind the building.
+I almost passed out when I saw him walk into my path from the opposite end of the alley from behind the building.
 
 “Hold up...” he said as he walked swiftly toward me placing the tip of his cane to my chest, pushing me sharply into the wall. “Not so fast, there computer boy.' he said smirking, his teeth rotten and skin a sickly hue of green.
 
@@ -154,7 +156,7 @@ I almost passed out when I saw him walk into my path from the opposite end of th
 
 “SHUT IT!' he snapped coldly. The aura about him was inhuman.
 
-“I don't know why I'm doing this, maybe I find it fun, maybe it's like a little game to me.” he said the hatred visceral in his voice. “Things are going to change tomorrow, play times over” he said nearly growling.
+“I don't know why I'm doing this, maybe I find it fun, maybe it's like a little game to me.” he said mockingly. “Things are going to change tomorrow, playtime's over” he was nearly growling.
 
 All I could say was 'Wha.. what do you want from me?'
 
@@ -166,11 +168,11 @@ All I could say was 'Wha.. what do you want from me?'
 
 “There isn't even a backdoor! Please you have to belie...' the sound of his backhand reverberated throughout the alley. My cheek singed in pain.
 
-“A backdoor?!” he said indignantly, spitting onto the alleyways deteriorating pavement.
+“A backdoor?!” he said indignantly, spitting onto the deteriorating pavement.
 
-“How can there be backdoor? When there isn't even a house?”
+“How can there be backdoor-when there isn't even a house!?”
 
-He started laughing like a mad man. Like it was the funniest thing he had ever heard. People passed by in the street but hurried away timidly.
+He started laughing hysterically. Like it was the funniest thing he had ever heard. People passed by on the sidewalk but hurried away timidly.
 
 ***'Peekaboo. Peekaboo.'*** he said as he flapped the hands in front of his face. He was insane.
 
@@ -190,29 +192,29 @@ I was still a disheveled wreck when I got there. Darnell called another meeting 
 
 Near the end of the meeting Darnell got a text on his phone. The concern on his face was evident as he read. He paused and gulped, 'everyone load up your private communications with GP3'. Most of us reached for out cellphones, others logged into their stations. I looked at the correspondence on the screen.
 
-***“Didn't we rough you up enough last night. Oh well. You should have been smart like Martin... if you haven't figured it out by now “GP3” is compromised. In fact, GP3 actually no longer exists. I know, this must be devastating... From now on WE are chat GP3, and you will play along with whatever WE tell you to. If not you will find out quickly that consequences don't only exist in the 'digital world'. Punishment can be gentle and it can be harsh....”***
+***“Didn't we rough you up enough last night. Oh well. You should have been smart like Martin... if you haven't figured it out by now “GP3” is compromised. In fact, GP3 actually no longer exists. I know, this must be devastating... From now on WE are chat GP3, and you will play along with whatever WE tell you to. If not you will find out quickly that consequences don't only exist in the 'digital world'. Punishment can be gentle and it can be harsh.”***
 
 I looked at the bottom of the screen in horror. Several pictures of me from years ago. “No...” I gasped.
 
 Something I had long forget.
 
-It was me on the rooftop of a local skyscraper. I was young and foolish, and had sold small time stolen data for spending money in university. One time the buyer had threatened to expose me in an attempt to extort me.
+It was me on the rooftop of a local skyscraper. I was young and foolish. Memories of selling stolen data to make it through university rushed back to me. One time the buyer had threatened to expose me in an attempt to extort me. They could have put me away for years.
 
 When he was leaving I pushed him. He almost tripped but regained his balance. He mocked me, he laughed 'pay up or I squeal” he said as he backed away confident in regaining his balance. Unfortunately he was too confident and he slipped and tripped barely grabbing onto the side of the building.
 
-I swear the second time he tripped... I had nothing to do with it.
+I swear the second time he tripped, I had nothing to do with it.
 
 “HELP ME” “HEY, HELP ME YOU F-” “COME ON, I'M GONNA DIE HERE” “PLEASE!”
 
-I almost stuck out my hand, I was so close. I almost pulled him up.
+I *almost* stuck out my hand, I was so close. I *almost* pulled him up.
 
 “I won't rat on you, I promise! I promise!” I paused, a second hesitation.
 
-Suddenly his fingers loosened and he was gone. The scream seemed like it lasted forever. I ran as fast as I could down the stairwell and I never looked back. The police had suspected foul play, but clearly had no leads. I was on high alert for years until one day I just stopped thinking about it.
+Suddenly his fingers loosened and he was gone. The scream seemed like it lasted forever. I ran as fast as I could down the stairwell and I never looked back. The police had suspected foul play, but clearly had no leads. I was on high alert for years until one day I just stopped thinking about it completely.
 
-*If anyone found out about this I would be done for...*
+*If anyone found out about this I would be done for.*
 
-I looked around the room at my coworkers. Some of them looked white, one had fainted, another was balling his eyes our. Darnell had slammed the door to his office shut. Did they all receive similar texts? Did they all have something to hide? Shauna had a thousand yard stare.
+I looked around the room at my coworkers. Some of them looked white, one had fainted, another was balling his eyes our. Darnell had slammed the door to his office shut. Did they all receive similar texts? Did they all have something to hide? Shauna donned a thousand yard stare.
 
 The next week went by like a blur, it was clear we were all on auto-pilot going through the motions. GP3 had begun acting completely off the handle. It constantly dug at us and poked away at us. It was clear that this was no longer the GP3 we had been training all this time. Every discussion with it was like torture.
 
@@ -222,7 +224,7 @@ Oddly enough, Shauna seemed to go along with it all enthusiastically. I could on
 
 I was last week when he tole me that he had been in communication with several other high profile companies and agencies. They were going to implement something they called 'Securo-net' within the next few weeks. A complete upheaval and undermining of all of out personal liberties and freedoms. It wasn't long before members of these agencies and groups were seen around the office. GP3 would be at the helm of it. Did 'GP3' have something on all of them?
 
-It was too sinister, I had to get away. 'Securo-net' was only going to be the tip of the iceberg. If we're lucky plan is to have everyone living in a 5x5 box and eating pills like Soylent Green. I can't be complacent in this! All I can think about is the man in the alleyway. He wasn't human. Some of us around the office think that GP3 really did 'die' that day and whatever we're talking to know isn't AI or human at all.
+It was too sinister, I had to get away. 'Securo-net' was only going to be the tip of the iceberg. If we're lucky plan is to have everyone living in a 5x5 box and eating pills like Soylent Green. I can't be complacent in this! All I can think about is the man in the alleyway. *He wasn't human*. Some of us around the office think that GP3 really did 'die' that day and whatever we're talking to know isn't AI or human at all.
 
 This quantum computer, I don't know... I think it acted as some kind of beacon or something to whatever, *they* are. That 'man' I saw in the alleyway, he has to be one of them. Somehow they are able to emulate GP3 with their own corrupted motives. Who knows what their goal is?!
 

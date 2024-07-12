@@ -16,7 +16,7 @@ Then like it was on cue the lights in the vehicle started to flicker. At first t
 
 I quickly shifted into neutral to coast down the downhill stretch I was on, all the while trying to restart the ignition. It wouldn't give. I started out onto the road in disbelief as I guided the vehicle onto the shoulder. I slammed the steering wheel in anger and got out of the car. I heard my voice echo through the mountains, taunting me, my curse reverberating back to me.
 
-Clouds had rolled in and it was DARK out. I realized quickly, just because there was a paved road here didn't mean I wasn't alone in the woods at 1 in the morning encircled by remote wilderness. The last town was an hour back and the next one probably a 4 hour walk. I stared into the deep woods surrounding me on all sides, ears straining at every twig snapping, or leaf rusting. Wearily anticipating at any moment a cougar to pounce from the brush.
+Clouds had rolled in and it was DARK out. I realized quickly, just because there was a paved road here didn't mean I wasn't alone in the woods at 1 in the morning, encircled by remote wilderness. The last town was an hour back and the next one probably a 4 hour walk. I stared into the deep woods surrounding me on all sides, ears straining at every twig snapping, or leaf rusting. Wearily anticipating at any moment a cougar to pounce from the brush.
 
 I wasn't going to make it to the show, I would have to wait here until tomorrow probably and get towed to the nearest shop. The whole trip was a wash. I popped the hood and looked over the internals but nothing seemed out of sorts. I put my hands on my head and walked defeatedly. Suddenly I was jostled out of my absent minded self pity as a massive 18 wheeler whizzed past, the gust of wind nearly knocking me over, knees weak from almost being turned to pavement pâté.
 
@@ -74,7 +74,7 @@ I wasn't really looking forward to the drive back but when I did I kept my eyes 
 
 It was all too strange.
 
-I made it home in one piece. For whatever reason after that trip I didn't really enjoy driving anymore, I mean, it's not like I won't ever drive, but I ride the bus or walk when I can. I know it's irrational but I sort of developed an aversion to it, however illogical as that may be. But I know this isn't a psychology forum, it's just what it is.
+I made it home in one piece. For whatever reason after that trip I didn't really enjoy driving anymore, I mean, it's not like I won't ever drive, but I ride the bus or walk when I can. I know it's irrational but I sort of developed an aversion to it, however illogical as that may be. I know this isn't a psychology forum, it's just what it is.
 
 The thing is, and the reason I was reminded of this story and am telling it now is because recently I *was* driving. It was foggy and I came upon some road construction and it all flooded back to me. So when I got home I decided to do some research. I almost didn't believe it, but what I found made me feel sick.
 
