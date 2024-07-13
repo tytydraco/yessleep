@@ -1,6 +1,6 @@
-My name is Jason Potter. I am twenty three and recently got out of college in Washington. The reason I am writing this is because I found some oddly creepy photos and began to remember what happened in those small woods. My mother and father decided to invite me back out to my childhood home in Stowe, Vermont. We lived on the outskirts of the main town and lived near the woods. I used to explore the woods with my father and we would create paths so we could find our way back home. We used to go out looking for mushrooms a lot and we would cook them with most of our dinners. 
+My name is Jason Potter. I am twenty three and recently got out of college in Washington. The reason I am writing this is because I found some oddly creepy photos and began to remember what happened in those small woods. My mother and father decided to invite me back out to my childhood home in Stowe, Vermont. We lived on the outskirts of the main town and lived near the woods. I used to explore the woods with my father and we would create paths so we could find our way back home. We used to go out looking for mushrooms a lot and we would cook them with most of our dinners.
 
-I decided to travel back and visit my parents for a couple of days. The first day I had arrived, they took me into town to visit all of their friends and show them how big I had gotten. Then we visited some of my friends, (mainly my former girlfriend who wasn't too thrilled to see me.) 
+I decided to travel back and visit my parents for a couple of days. The first day I had arrived, they took me into town to visit all of their friends and show them how big I had gotten. Then we visited some of my friends, (mainly my former girlfriend who wasn't too thrilled to see me.)
 
 Once we got back, I asked if I could go out towards the woods with my father, just like old times. He agreed and we went to the back porch where I could see three separate trails that led in different directions. They were all labeled after different kinds of fungus. The one on the far right was called 'Witches Butter' and had a picture of said fungus. The middle one was called 'Puffball' and seemed to branch out into two more different directions. The last one on the far left was named 'Dead Mans Fingers' and seemed to just go straight.
 
@@ -8,7 +8,7 @@ Once we got back, I asked if I could go out towards the woods with my father, ju
 
 "Is that another trail?" When I asked him the question, he seemed almost hesitant to answer. He continued to look down the next trail. It was cut off from the original, but still close enough to be considered a part of the same one. "Dad?"
 
-"I think that one must be connected to one of the others. It is getting a little to late now so I think we should head back to the house. Your mother is probably getting worried." He began to walk the other way without me. I continued to stare at the separated path, wondering where it would lead. 
+"I think that one must be connected to one of the others. It is getting a little to late now so I think we should head back to the house. Your mother is probably getting worried." He began to walk the other way without me. I continued to stare at the separated path, wondering where it would lead.
 
 Just when I was about to turn around, I swear I saw someone running towards me on that same path. "What the fuck," I yelled as I fell to the ground. The figure began to get closer and closer, before it stopped. I still couldn't see it because of the shade that had surrounded it, but it looked human. It then bolted to the right and dissipated into the trees.
 
@@ -26,13 +26,13 @@ When we got back home, my mother had cooked us dinner and we began to eat. We ta
 
 My father choked a bit on his food and then said while pounding his chest, "Yeah. I just call it that because it doesn't connect to the original one." He continued to cough some more as my mother asked if he needed some water. He eventually stopped.
 
-After dinner I went to be as my parents began to head to bed. I wished them goodnight as they did the same and we went in our separate directions. I could barley sleep that night. All I could think about was the person that had been running at me in the woods. What did dad mean when he said false trail? I had heard about them on the news. People would create these trails that branched off from the original one so people could get lost. It was a weird occurrence, yet it still happened around the woods. I started to wonder if there may have been some killer in the woods near my parents house. 
+After dinner I went to be as my parents began to head to bed. I wished them goodnight as they did the same and we went in our separate directions. I could barley sleep that night. All I could think about was the person that had been running at me in the woods. What did dad mean when he said false trail? I had heard about them on the news. People would create these trails that branched off from the original one so people could get lost. It was a weird occurrence, yet it still happened around the woods. I started to wonder if there may have been some killer in the woods near my parents house.
 
 Then I heard a light tapping from my window. I looked up and saw two pairs of bunny ears sticking out from outside the window. I jolted up and turned on my lamp, but then they were gone. They didn't move, didn't glide across the frame, just disappeared. I stood up and practically ran to the window, looking for any sign of a person. I couldn't see anyone though. Nothing indicated that there had been something, and I had no courage to go outside to check. I walked back to bed, turned off the light, took some melatonin, and began to drift off to sleep.
 
 When I woke up around six, I began to make my way to the kitchen. I slowly made it to the kitchen where I was wanting to start a pot of coffee, then realized that a pot was already being made. I thought that my father may have been awake, so I walked around trying to find him. When I made my way to the back porch, I could see that the sliding glass door was open. I walked outside feeling the cool January night breeze wash across my face. I shivered a bit before I continued out onto the porch. I could hear rustling from the side of the house as I made my way further onto the porch.
 
-I started to get freaked out and quickly brought out my phone so I could turn on the flashlight. As the light enveloped the majority of the forest front, I couldn't find anything alarming that was near the trails. I slowly began to walk towards the side of the house. The fidgety sounds got louder as I got closer. I wondered if it was a bad idea to try and continue, but something inside of me beckoned me to follow the sounds. 
+I started to get freaked out and quickly brought out my phone so I could turn on the flashlight. As the light enveloped the majority of the forest front, I couldn't find anything alarming that was near the trails. I slowly began to walk towards the side of the house. The fidgety sounds got louder as I got closer. I wondered if it was a bad idea to try and continue, but something inside of me beckoned me to follow the sounds.
 
 Eventually I found the source of the sound. It was my father who was near the window to my room holding a dirty shovel with dirt covered hands. He looked up and gasped as he fell to the ground. "Goddammit Jason," He said as he massaged his back. "You about killed me."
 
@@ -50,11 +50,11 @@ He began to reach into his back pocket and pulled out two square pieces of what 
 
 "What the fuck? So some kid took my picture and then ran back into the woods?"
 
-"You should come inside. We can talk about this a bit more." I agreed and we walked into the house. Before I entered the door, I swear I could hear branches break from behind me. I whipped around right as my flashlight cut out. As I tried to turn it back on, a bright flash had blinded me again. Before I was completely blinded though, I saw three children in animal masks. One of them was in a fox mask, the next looked like a bear mask, and the one who took the picture was in the owl mask from before. 
+"You should come inside. We can talk about this a bit more." I agreed and we walked into the house. Before I entered the door, I swear I could hear branches break from behind me. I whipped around right as my flashlight cut out. As I tried to turn it back on, a bright flash had blinded me again. Before I was completely blinded though, I saw three children in animal masks. One of them was in a fox mask, the next looked like a bear mask, and the one who took the picture was in the owl mask from before.
 
 I could hear my dad rush out onto the porch with something in his hand. "Get the hell out of here you damn kids. I thought you were happy with us." I could hear laughing and then more branches snapped as my dad began to breathe heavily. When I could finally see again, I saw that he had a gun in his hand. It was a little revolver that he waved vigorously in the air.
 
-"Jesus dad! Put that thing down before it goes off." I led him into the house, closed the door and then the curtains and sat him down on the couch. I walked around and closed every curtain that I could. 
+"Jesus dad! Put that thing down before it goes off." I led him into the house, closed the door and then the curtains and sat him down on the couch. I walked around and closed every curtain that I could.
 
 When I finished I finally sat down next to him as I brushed my hair with my hands. "It's fine," He said still breathing heavily. "It wasn't loaded. I just use it to scare the little bastards."
 
@@ -70,7 +70,7 @@ On the next page was more photos of the children in their masks. There was fox m
 
 I started to think about what he had first said when he ran out onto the porch. "What did you mean when you said 'I thought you were happy'? Did you give them something?"
 
-He froze and looked back at the photo book. "Do you remember the masks that you would bring home when you were younger?" He didn't look up at me when he said it. "You would tell us that you were going to go play in the woods, then come home after about two hours. When you would come home, you would have little photos of these children in the woods. They wore the same masks that you saw out there." He flipped to the next page and I saw photos of me with little photos. Sure enough, I had pictures of the animal children in their strange masks. 
+He froze and looked back at the photo book. "Do you remember the masks that you would bring home when you were younger?" He didn't look up at me when he said it. "You would tell us that you were going to go play in the woods, then come home after about two hours. When you would come home, you would have little photos of these children in the woods. They wore the same masks that you saw out there." He flipped to the next page and I saw photos of me with little photos. Sure enough, I had pictures of the animal children in their strange masks.
 
 "Why can't I remember that? I can't remember anything like that."
 
