@@ -1,3 +1,7 @@
+CONTENT WARNING: Child Abuse 
+
+
+
 I was no stranger to the glitz and grime of Hollywood. At 45, I'd seen it all – from drug overdoses to high-profile murders. Specializing in celebrity crimes, I'd built a reputation as the go-to detective when the rich and famous found themselves in serious trouble. Arrogant? Maybe. But I often found myself critiquing the very arrogance I saw in the stars I investigated. It was a job for me, and the glittering façade of fame held no allure.
 
 It was a crisp morning in 1999 when I received the call that would plunge me into one of the most bizarre cases of my career. The phone rang shrilly on my desk, piercing the quiet hum of the precinct. I picked it up, expecting another overdosed starlet or a drunken brawl between A-listers. Instead, the voice on the other end spoke of a death in the notorious mansion of Rachel Matheston, a young actress whose meteoric rise had captivated Hollywood.

@@ -1,12 +1,4 @@
-I used to work as an OnlyFans chatter.
-
-&#x200B;
-
-I say *‘used to’* as if it was a long time ago. Truth is, I only really quit a couple of weeks ago for reasons that I think will soon be very obvious.
-
-&#x200B;
-
-I really don’t think that there’s any job more emblematic of how fucked up our society has become (sexually speaking) than the one I had. I mean… really. My job was to sext strangers who thought I was their favorite OnlyFans model. Some days, I couldn’t shake the feeling that I was part of some sort of scam, but no. As far as I knew, the company I worked for was completely legitimate and everything I did was, (again, as far as I could tell) completely legal. Dystopian as fuck. *But legal*!
+I really don’t think that there’s any job more emblematic of how fucked up our society has become (sexually speaking) than the one I had. An OnlyFans chatter. I mean… really. My job was to sext strangers who thought I was their favorite OnlyFans model. Some days, I couldn’t shake the feeling that I was part of some sort of scam, but no. As far as I knew, the company I worked for was completely legitimate and everything I did was, (again, as far as I could tell) completely legal. Dystopian as fuck. *But legal*!
 
 &#x200B;
 
