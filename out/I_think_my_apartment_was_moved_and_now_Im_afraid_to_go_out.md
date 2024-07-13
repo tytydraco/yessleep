@@ -182,7 +182,7 @@ Panic took over. I opened my browser and began searching. EZ-Shifters, EZ-Movers
 
 EZ-Shifters did not appear once.
 
-I wasn’t expecting a glamourous Instagram or anything. Or even an updated website. Just the words. The name. The number. A shitty review. Anything. But it was as if it didn’t exist. I could not find a single trace of it.
+I wasn’t expecting a glamorous Instagram or anything. Or even an updated website. Just the words. The name. The number. A shitty review. Anything. But it was as if it didn’t exist. I could not find a single trace of it.
 
 Nothing.
 
