@@ -319,3 +319,16 @@ I don't know what will happen next. But I do know one thing - I'm going to bring
 If you have any information that might help, or if you've experienced something similar, please reach out. But be careful. They're watching. They're always watching.
 
 And to James, if you're reading this - I loved you. I really did. But I will never, ever be part of your "legacy." You chose the wrong bride to sacrifice.
+
+  
+Update:
+
+For those asking - yes, I've managed to contact some friends and family. Sarah, whose car I took, is safe. She got out during the chaos. Others... I'm not sure. Some act like nothing happened, others have vanished. I don't know if they're threatened, recruited, or worse.
+
+I've moved again. Kept seeing a black SUV outside my motel, and one night, I swear I saw someone in an animal mask watching my room. Paranoia? Maybe. But I'm not risking it.
+
+The journalist, Elena, and I are making progress. We've found financial records hinting at a network of families like the Blackwoods in other towns. It's not enough yet, but we're getting there.
+
+Oakwood seems fine so far. No catastrophes. Did they find another "sacrifice"? Or was it all just for power? I don't know.
+
+I'm exhausted, scared, and some days it's hard to keep going. But I think of potential victims out there and I know I can't stop. 
