@@ -1,0 +1,27 @@
+THIS IS FICTION. MY WRITING WEBSITE IS CURRENTLY DOWN, SO I'M WRITING ON HERE, SET IN 2013 -sadie <3
+
+I remember how we found out, vividly, my sister and I, it started with the scratching on the dining room floor. I didn't think Kelly was telling the truth for a long time, I guess I was in denial. Michigan was my home, it always had been. The adjustment to Los Angeles had been hard, but it was necessary for Kelly to go to UCLA, since mom and dad were still in rehab. I tried to look on the brightside, there were bigger labs for my research with more tools. When I was 18, I started working with some friends of mine, Digger and Ada, on a cancer cure.
+
+I remember waking up one morning, I think it was a Thursday, I turned over to my diploma, sitting in a frame on the nightstand. "We present Ms. Diana Woodbead with the degree of Genetics" was all I saw, with "Wayne State University" on the top. I heard banging on my door, I had been hearing it alot, most of the time nothing was there. I was living with Kelly, my younger sister, because I love her and she hates living alone. We were renting a house in Los Angeles together, it wasn't huge, it wasn't small. It was "Working-Class" as my dad would say.
+
+Just a few weeks before we left for LA, My parents got back into drugs and were in a rehab center Kelly and I practically forced them to go to. That particular morning, it was Kelly who was banging on my bedroom door, She was yelling "Happy 24th birthday sis!" and had french toast with candles in her hands. I was groggy, in my pajamas and too tired for Kelly's gleeful self.
+
+I got out a "thanks" and an "I'll be down in a sec" before closing the door on my noisy sister. Just then, my Motorola Moto X, starting ringing. It was Ada, probably calling to wish me a happy birthday. I answered it and just as I thought, Ada, Digger and another one of our friends from HS, Jade, started singing happy birthday. I thanked them and said I would call them back after I got ready, 7 AM was early for me, and most people, just not them. I hung up and put on a white tank top, a grey cardigan, and some jeans.
+
+I was still having a hard time believing I wasn't living in a place where it was cold in November. I combed my hair, and then I heard scratching in my closet. I played it off as the cat, even though we didn't have one, we had one named Timmy back in Detroit, I would often forget he was still *in* Detroit. It probably would have been better if I had checked in my closet that day, but I didn't and put on my mascara instead. We would have found out sooner that way. I went downstairs and Kelly and her boyfriend Greg, were sitting at the table. We had a nice breakfast, and I was on my way to the biology center I was working at. 
+
+3 weeks later, in the middle of the day, noon, I think. Kelly called me in a panic.
+
+"No Dia, It was scratching, it was in YOUR room, and then an hour later, there was scratching in the kitchen!" I let out a scoff, I was very skeptical. It was Kelly's mission to scare me growing up, when I was younger it would scare me more. "Diana please! I need you to come home, I don't want to be here alone." She cried, it was starting to sound sincere. I agreed to come home, there was no one at our lab, nothing to study. 
+
+When I arrived, Kelly was leaning on the laundry room door, with a skillet in her hands, her hair was up in a clip, her makeup was running, as if she had been crying.
+
+"WOAH!" I said, in surprise, of course. "What happened?" I followed up with. She started sobbing, it sounded like she had been doing so before. "Basement, footsteps, door opened" She pointed at the basement door, next to our downstairs bathroom. With that, we called Greg and asked him to check it out with us. When he got their, Kelly handed me the frying pan, refusing to go down there. Greg and I slowly walked down the concrete steps. "Hello?" Greg called, "Anyone down here?" I continued walking down the stairs, faster, Greg sped up too. We heard crying, it sounded far away, so we thought it was Kelly upstairs crying again, until we realized, it was down there, with us. I flipped on a light switch that was in the corner, and then we saw it.
+
+Kelly and I never came down here, there was no reason. It was just full of boxes we never unpacked full of things from out childhood. Then, we saw her. A girl, looked like she was in her late-twenties, behind a box that was under a shelf my Uncle Drew had made for our move. She had long, black hair, raggedy old clothes, and green eyes you could spot from a mile away.
+
+"Oh my god.." I said, my mouth hanging open. Greg told me to go upstairs, so he could handle the situation. So I did, I obviously didn't want to be down there. I called the police and took Kelly outside with me so we weren't in the same house as that, squatter..I guess. The police showed up and took her out, her name was Quinn Brooks, a convicted murderer, she killed her best friend. Kelly, Greg and I, plus anyone who had stayed in our house with us were very, very lucky. 
+
+Kelly and I moved out and separated, I went back to Michigan, not to Detroit, but to a smaller town in a rural area where I rented an apartment. Kelly started living in a dorm a UCLA, desperate for nothing like that to ever happen again.
+
+HOPE YOU LIKED IT, BYE
