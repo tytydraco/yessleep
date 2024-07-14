@@ -46,7 +46,7 @@ We saw Ms.williams in handcuffs screaming many things, and when she was placed i
 
 She wore a yellow body fur suit. 
 
-
+A day later I heard the judge sentenced her to 20 years in jail.
 
 
 
