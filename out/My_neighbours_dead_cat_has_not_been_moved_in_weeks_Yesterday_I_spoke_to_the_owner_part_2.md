@@ -124,4 +124,6 @@ Before I could reply he had walked out and closed my bedroom door. I’m no wise
 
  
 
-**~PART 1~** [https://www.reddit.com/r/nosleep/comments/1dzoaqb/my\_neighbours\_cat\_is\_dead\_update/](https://www.reddit.com/r/nosleep/comments/1dzoaqb/my_neighbours_cat_is_dead_update/)
+**\~PART 1\~** [https://www.reddit.com/r/nosleep/comments/1dzoaqb/my\_neighbours\_cat\_is\_dead\_update/](https://www.reddit.com/r/nosleep/comments/1dzoaqb/my_neighbours_cat_is_dead_update/)
+
+**\~PART 2\~** [https://www.reddit.com/r/nosleep/comments/1e32rga/my\_neighbours\_cat\_is\_dead\_its\_now\_moved\_on\_to/](https://www.reddit.com/r/nosleep/comments/1e32rga/my_neighbours_cat_is_dead_its_now_moved_on_to/)
