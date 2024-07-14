@@ -187,3 +187,5 @@ I wasn’t expecting a glamorous Instagram or anything. Or even an updated websi
 Nothing.
 
 And now someone is knocking on my front door.
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1e3f49l/i_think_my_apartment_was_moved_and_now_im_afraid/)
