@@ -233,5 +233,7 @@ The Weeper has already saved me from Iolo once before, so it won't be hard for h
 
 At the time of writing this, I'm getting to the end of that Z-Pak. My back and shoulders still ache, but it's faint. Slowly, but surely, I'm getting better. Once I get well enough, I can figure all of this out. Maybe. I'll try to figure it out, anyway. But in the meantime, a Nyquil nap is calling my name. 
 
+Update: [Shockingly enough, my first week back at work wasn't peaceful. ](https://www.reddit.com/r/nosleep/s/CynRJlwopB)
+
 [(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
