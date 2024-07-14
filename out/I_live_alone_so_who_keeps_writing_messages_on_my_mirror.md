@@ -94,5 +94,5 @@ Unfortunately, the man was never found. For all I know, he's still in that same 
 
 It's not just houses that the incident soured for me, but mirrors as well. These days, when I visit a friend or stay at a hotel, I always have to carefully inspect the bathroom mirrors—shining a light directly into their faces and tapping a finger against the glass. Because the worst detail of the whole ordeal was that, when revisiting the bathroom with the police officer, I stepped into the old closet, closed the door, and looked into the mirror.
 
-Instead of my reflection, I saw the officer's face on the other side of the glass.
+Instead of the mirror backing, I saw the officer's face on the other side of the glass.
 
