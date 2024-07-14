@@ -269,3 +269,5 @@ When I remember, I usually have nightmares, or get paranoid there's someone outs
 I hope that's not the case tonight, especially since I had to get the notes to type them up.
 
 If you have any questions or a name you'd like to check, feel free. I might like the company, just in case I do have trouble sleeping.
+
+Part 3: https://www.reddit.com/r/nosleep/comments/1e2pqo3/the_death_collector_part_3/

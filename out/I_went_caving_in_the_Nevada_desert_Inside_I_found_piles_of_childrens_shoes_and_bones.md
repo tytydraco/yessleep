@@ -84,7 +84,7 @@ In front of us, Emily gave a panicked shriek. Nate and Emily stood, shell-shocke
 
 An infant with bone-white skin and a cavernous, toothless mouth like that of an obscene old man slunk across the wall. It scurried forward like a salamander, clinging to the irregular granite surface with no apparent effort. Its naked hands and feet were formed into sharp, claw-like points. It gave a scream like a witch being burned alive, gurgling with deep, resonant notes of agony. Its naked body seemed twisted and deformed, and patches of what looked black mold ate away at its arms and legs.
 
-“Go back, go back!” Melissa wailed, slamming into me in her frantic attempt to move away from the abomination. “Oh God, go back! What the hell is that thing?!” It never stopped screaming, never paused to inhale, as if it didn’t need to breathe at all. I didn’t need any motivation. I shoved my body through the tight tunnel, forming my way back around the steep corner. The shrieking infant was only a stone’s throw away Nate and Emily, who pushed forward at Melissa’s heels. I felt new scrapes and gashes tear across my body from the sharp rocks of the cave, but with the rush of adrenaline, I wouldn’t notice the pain until later.
+“Go back, go back!” Melissa wailed, slamming into me in her frantic attempt to move away from the abomination. “Oh God, go back! What the hell is that thing?!” It never stopped screaming, never paused to inhale, as if it didn’t need to breathe at all. I didn’t need any motivation. I shoved my body through the tight tunnel, forming my way back around the steep corner. The shrieking infant was only a stone’s throw away from Nate and Emily, who pushed forward at Melissa’s heels. I felt new scrapes and gashes tear across my body from the sharp rocks of the cave, but with the rush of adrenaline, I wouldn’t notice the pain until later.
 
 As soon as we made it around the corner, the shrieking cut off as suddenly as if a record had been stopped. A man in front of us, blocking the way. He had a rounded moon face and close-cropped black hair. His dark eyes twinkled merrily as he shone the flashlight into our faces.
 
@@ -126,7 +126,7 @@ I put my arms around Nate and Emily, pulling us close together. I could feel the
 
 “Daddy, I’m scared,” Emily whispered in a quavering voice. “I want to go home.”
 
-“We’ll go home, I promise,” I said, thought, in reality, I could do no such thing. For all I knew, we would all die within the next few moments. I was afraid to look up from the faces of my children, afraid to look at the semi-circle of undead abominations staring at us with their milk-white skin and filmy ghost eyes.
+“We’ll go home, I promise,” I said, though, in reality, I could do no such thing. For all I knew, we would all die within the next few moments. I was afraid to look up from the faces of my children, afraid to look at the semi-circle of undead abominations staring at us with their milk-white skin and filmy ghost eyes.
 
 “Is this staring into the abyss?” Nate asked. “Am I going to come out on the other side?” I opened my mouth to respond when an icy hand grabbed my shoulder. Its claw-like fingers dug into my flesh, turning me around. Standing in front of me stood the apparent leader of the undead children, the teenage boy with the rotted clothes.
 
