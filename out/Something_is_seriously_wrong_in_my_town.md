@@ -1,0 +1,21 @@
+I live on the outer edge of a small, plains area farming town. Not many people, not many things to do, but it works great since the oil place i work for is close by. Tonight at about 9 pm, i got a voicemail from the county reverse 911 that genuinely scared me. Not a tornado warning, or any kind of severe weather alert like it usually is. It was something else entirely.
+
+
+
+The automated message transcription my phone made said "A message from county police. Go indoors and do not go outside. Close and lock all doors and windows. Shut all blinds. There is a threat to your safety. Call 9 1 1 if there is someone on your property that you do not know. Do not interact with anyone on your property that you do not know. If you are traveling, do not return home. This is not a test. There is a threat to your safety." This message made me instantly get that "Oh shit!" sinking feeling in my stomach. Imagining for 10 seconds what could possibly be outside was scary enough that i did close and lock everything.
+
+
+
+About 30 minutes later, the power cut, and the only thing alive was the rapid beeping of the UPS system i hooked to my satellite modem and the green glow of the modems power light. I whipped out the giant ass flashlight my police officer friend jim gave me, and went to reset the breaker. The breaker didnt pop. Everything was set exactly as its supposed to be. Thats when i realized it might not just be my house that no power. I had 0 cell service, and the only remaining things with any power were my flashlight, the modem, the battery system, a small battery powered lantern I found, and my laptop. Only things with batteries. I made the real bold (and stupid) decision to peek outside the blinds towards the rest of town to see if there was anything lit up out there. Why not? If I did it quick, should be an issue, right? I regret doing that. It was almost just light enough to see the outline of things around. When i took a look towards town, i first noticed that the area the town center is in (sorta like where all the businesses are lined up for non small town people) was dead.
+
+
+
+The only light was coming from one building, as though a generator was keeping their porch lights alive for some reason. But then i noticed, off in the distance 200 or so feet away from my house, just barely visible, a person, or at least, something like a person. Someone just kinda standing out in the field looking toward the road. But as i tried to figure out who it was, i noticed that it started turning my way, followed by it walking my way as well. As soon as i noticed it moving i jumped back from the blinds and ducked. I had to work up the guts to even move away and go back to the room i was keeping lit up.
+
+
+
+Since then, ive heard knocking at the front and back door. But not like the regular knocking people do, where they knock a couple of times then give up and leave, this has been like someone smacking the door as hard as possible a few times every couple of minutes, then running back around to try the other. I genuinely do not know what's out there or what they want, but this has been going on for over 2 hours now. Ive been hiding under my desk with an old rusted crowbar thing i took off the ground at work a few days ago, hoping whoever it is doesnt try to brute force their way in and that if they do they'll be stupid enough to not check under the desk before i whack its knees.
+
+
+
+Im hoping the routers battery system stays alive long enough for this to upload. I've been charging my phone with my laptop, and sending things through email and the web using the satellite modem. If i stop responding to this, its likely becauss the modem finally died out. The county website isnt even online for me to check if theres been an all clear, and I have no service to call for help with. Hopefully one of the officers comes by patrolling and arrests whoever or whatever is outside my house. They'd be sending the cops out right, given the message they sent? Or are they hiding too?
