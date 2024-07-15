@@ -1,6 +1,5 @@
 [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1e1wzdd/i_think_my_apartment_was_moved_and_now_im_afraid/)
 
-  
 I should have listened. All the concerns, the suggestions, the advice. Maybe I wouldn’t be in this mess right now. I had the opportunity to let things be, to leave good enough alone. To not involve anyone else. But I didn’t listen. And I am in a mess. A considerably nastier and more confusing mess. 
 
 Now, what point had I got up to?
@@ -161,7 +160,7 @@ I hit voice-call. My phone started to connect. Calling. Calling. Calling. Nothin
 
 I was cursing him and thinking about other options when a message popped up.
 
-***Gabe****: I’m gaming, wassup?*
+***Gabe***: I’m gaming, wassup?
 
 I tapped into the message and immediately began typing back.
 
@@ -333,7 +332,7 @@ They came up with me to 155. Whilst they wandered around with no real purpose, I
 
 That couldn’t be right. Someone had missed something. Why wasn’t anyone even willing to entertain the possibility? Did I need to show them the bag, the murder kit? Oh. That’s right. The police took it.
 
-The agent and the property manager must have thought I was just a dunce and had moved into the wrong apartment. Maybe I got the wrong key, the numbers were similar after all, the complex has a lot of apartments, it’s an easy mistake (they delicately avoided mentioning *how* I got the wrong key or whose *“*mistake” that could have been).
+The agent and the property manager must have thought I was just a dunce and had moved into the wrong apartment. Maybe I got the wrong key, the numbers were similar after all, the complex has a lot of apartments, it’s an easy mistake (they delicately avoided mentioning *how* I got the wrong key or whose \*“\*mistake” that could have been).
 
 In the end, possibly because they were worried about me trying to call the owner or leaving a one-star review of the agency, they said they would help me move all my stuff into the correct apartment.
 
