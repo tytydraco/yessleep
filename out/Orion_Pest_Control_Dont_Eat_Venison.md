@@ -390,7 +390,7 @@ As Reyna started to approach, he cried out in agony as he fell to the ground.
 
 Black thorns wrapped around his ankle. Briar had found who he'd come here for.
 
-Instinctively, I stepped forward, but then Reyna’s fingers dug into my shoulder. I saw then that Briar had left his hammock, standing with arms crossed over his chest, eyes fixed on me, silently daring me to try him. 
+Instinctively, I stepped forward, but then Reyna’s fingers dug into my shoulder. I saw then that Briar had left his hammock, standing with his arms crossed over his chest, eyes fixed on me, silently daring me to try him. 
 
 “We can't interfere with the Hunt.” I reminded myself numbly. “Not unless we want things to get bad again.”
 
