@@ -191,7 +191,7 @@ The whole time my mind felt numb and blank. I felt like I’d swallowed TV stati
 
 
 
-As the light in the house grew brighter I could finally see the beast more clearly. It was about twice the size of a tiger and had dark patterned fur. Its head was enormous, ears were long with tufts of fur sticking out. The snout was stained red with dried blood. It was busy licking its enormous clawed paws when it stood up and fixed gigantic yellow eyes on me. “C-Casper?” I said looking directly at the beast. It looked just like him. I mean, like he would look if he was a giant tiger. I felt my heart accelerate. The blood pumping faster and harder through my veins. 
+As the light in the house grew brighter I could finally see the beast more clearly. It was about twice the size of a tiger and had dark patterned fur. Its head was enormous, ears were long with tufts of fur sticking out. The muzzle was stained red with dried blood. It was busy licking its enormous clawed paws when it stood up and fixed gigantic yellow eyes on me. “C-Casper?” I said looking directly at the beast. It looked just like him. I mean, like he would look if he was a giant tiger. I felt my heart accelerate. The blood pumping faster and harder through my veins. 
 
 
 
