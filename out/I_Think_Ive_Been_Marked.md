@@ -23,3 +23,7 @@ Gasping for air, I awoke with a start, drenched in a cold sweat, heart pounding 
 There were no messages, no missed calls—just the faint glow of the screen illuminating my trembling fingers. As realization dawned, a chilling certainty settled in my mind. Whatever had haunted me in those restless nights was no mere dream.
 
 And as my phone buzzed once more, the air thickened with an unspoken dread. I didn't dare look. For in that moment, I knew that whatever had marked me with those red slashes was still watching, still waiting—for me.
+
+The proof came the next morning, when I hesitantly reached for my phone again. The device, which had been dead the night before, now powered on without issue. My heart raced as I navigated to the photo gallery, praying for some explanation.
+
+There it was—a single, haunting photo timestamped from the previous night. The image was dark and grainy, but unmistakable: a pale, clawed hand reaching out from the screen, frozen mid-swipe. The three red slashes were visible on the glass, exactly as I had seen them.
