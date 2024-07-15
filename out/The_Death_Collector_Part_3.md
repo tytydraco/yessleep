@@ -77,23 +77,13 @@ Why was he being so stubborn? Was it really his kids he was so adamant against? 
 
 >They're trying to keep me from sleeping. They seem to be hoping I'll crack and open the door to make it stop. You can knock all night you little bastards. I'm not opening that fucking door.
 
----------
-
 >It's the windows and the backdoor now too. I keep the curtains on the backdoor drawn so I don't see their faces. The windows are all usually closed at night anyhow, but the backdoor curtains are so damn sheer that I can see the outlines of them out there. I almost made eye contact with one of them and I damn near pissed myself. Please, just go away. Just leave me alone.
-
-------
 
 >Why won't they just leave? Why won't they stop? I don't know if it's the stress but I'm getting sicker. The doctor said I need more rest, but I couldn't tell him why I can't sleep. At least he gave me some sleeping pills.
 
--------
-
 >I can't take the pills. After a few nights I woke up at the door with my hand on the handle. I don't remember if sleep walking was one of the side effects but I won't risk it. The only thing keeping me sane is writing this down and looking at all the old journals in the clutter room. It's the only reason I know that I'm not imagining this, that the cancer isn't taking my mind from me.
 
-------
-
 >I'm going to die soon and they can't even let me die in peace. It's rest in piece you little shits, let me rest in peace. I just want peace. After all these years, please, just let me have some peace.
-
-------
 
 >I'll have my peace one way or another. Either you're going to kill me, or I'm going to kill you. Either way, the next time you come will be the last. Burn in hell you little demons.
 
@@ -115,8 +105,6 @@ It was pretty easy to find. Kids write pretty big after all.
 >Deer jurnal  
 Today i got u frum my mom as a birfday prezent. she sed that I shood practis my riting evre nite so i can b reddy for furst grayd next yeer. Adam sed that evreone passes kindergarden but i bet he only sed that becuz i werked xtra hard and he wants to mayk fun of me. im gunna practis lots and ill b the bestest riter in furst grayd.
 
-------
-
 >Deer jurnal  
 Today i whent swiming with Adam at the pond neer Judys hows. Judy is reely nice even tho she iz a big kid like Adam. He told me big kidz dont like to play wif littl kidz becuz we rnt as smrt but Judy sed that she thawt I wuz  fun. I hope we go swiming at the pond wif Judy agn reel soon.
 
@@ -124,8 +112,6 @@ The next few passages were cute but more of the same. Adam seemed to be his olde
 
 >Deer jurnal  
 I had to play at home by myslf today. Adam sed that he wantd to do sumthin wifout havin to bring a littl kid. Its not fair. Lucky for me Judy wuz home and she sed she wood play wif me. we made drawins at her howse on the sydewalk wif chawk.
-
-------
 
 >Dear jornal  
 I fownd a spellin book frum wen Adam wuz in furst grade and ive ben practising sum of the harder werds. But im tryin not to cheet when im writin in you so i can see how much better im doin. That way i have sumthing to do wen Adam gos to play without me.
@@ -145,8 +131,6 @@ Wait...even the white part of the eye was black? I hadn't heard of that before. 
 >Dear journal  
 My new frend asked me about my eyes today and why they were so many colors. I said thats how everyone i news eyes were. He asked me if I wanted to have eyes like him instead and i said that he was being silly becuz you cant make your eyes difrent. He said he had brothers and sisters who had eyes like him and that sum of them didnt have eyes like that befor. I asked what they were like befor and he sed they were like mine but that they were biger kids so he didnt no how they did it and he cood ask if they wood make mine like his. I asked if they cood make them go bak after but he sed he didnt no. i sed it was ok to ask becuz id like them to be all black for a littel wile but if they can make them all blue insted that i wood do it even if they stayed that way.
 
----------
-
 >Dear journal  
 My new frend isnt my frend anymore.  
 when i went to see him at the park there was a bunch of kids with him that had all black eyes like he did. he sed that they wanted to meet me. i was a littel scared but I sed hi my name is Allen like your suposed to do wen you meet someone new. They didnt say anything but they all looked at each udder and some of them noded and looked at the kid. the kid sed they liked me and wanted me to be his new brother. I said i alredy had a brother and i thawt they were gonna see if i cood have black eyes for a littel bit. he sed itd be forever but it wood make us brothers and theyd all be nicer than Adam and wood never leeve me by myself like Adam. it sownded nice but all of them looking at me made me feel all cold so I sed no. The kid got reel mad and i got scared and ran home. they fallowed me and kept noking on the door and telling me to let them in and mom was at work and i started crying becuz i was so scared. then Adam came in in the back door and asked me why i was crying. i sed i was scared of the kids outside with black eyes and when he looked they were gone. i thawt he wood make fun of me but he gave me a hug and said i cood play with him so i woodnt see them agen. i love Adam and im glad hes my brother and not the kids with black eyes.
@@ -160,8 +144,6 @@ Today was the first time I've looked at my old journal in a long time. I had to 
 While I was walking home today from school with Kyle and Owen like usual, and we were talking about the cute new girl in our math class and guessing who she was going to end up liking. I said it was gonna be me and when Kyle went to argue he stopped and was looking across the street. I looked to see why he looked so scared and I saw three kids our age looking at us from across the street. They had black eyes, and it all hit me about what happened the summer before first grade. I forgot all about it until now. But the kid in the middle, it was the same one from the park. He was older, but I knew it was him. He looked happy but it didn't feel like he was *really* happy. It felt like the way my uncle's hunting dogs look when they're chasing a rabbit.  
 They started to cross the street and I told Kyle and Owen to run and started booking it home. They must have felt the same way I did because they didn't ask any questions and just ran away too. And those kids were chasing us until we split off to go to our houses. Then they just followed me and were slamming on the door telling me to open up and that they needed me to let them in. Mom was working for a few more hours and I didn't know where Adam was, probably at Judy's, but when I thought about going outside and running over to check it made my legs shake. They kept at it for a while but they gave up eventually and left, and I was so relieved I cried. I haven't cried like that in a long time. Probably since the last time I saw them.
 
---------
-
 >Dear journal,  
 Kyle and Owen were really weird today when I asked about what happened on the way home. They acted like they didn't know what I was talking about and when I kept trying to ask about it they got mad and walked to school without me. Why would they act like it didn't happen? We all saw those kids. I had to read yesterday and the old journal again to make sure I wasn't remembering wrong or I didn't dream the whole thing. But I know I didn't. I just want them to admit it happened. I don't understand why they won't do it.
 
@@ -173,8 +155,6 @@ We were watching a movie and eating popcorn my mom made us when someone knocked 
 And then he was inside my house.  
 I couldn't stop shaking as he came in, and he just kept looking around with that shark grin like he was ready to take a bit out of something. My mom nudged me to bring him to the living room with my friends but I didn't want to. I begged her to tell him to leave, that I didn't want him here, and she yelled at me so loud that my friends came to see what was going on. They got all pale when they saw the kid and I knew. I knew I was right and they remembered the kid and they saw him that afternoon. But it didn't matter. I had to bring him in or else mom said Owen and Kyle would have to go too.  
 We all sat as far away from him on the couch as we could but either he didn't notice or didn't care. Just kind of looked around when he wasn't looking at the TV and mostly looked up at the ceiling. When the movie was over he didn't say anything and just walked out into the darkness before my mom could come out and take him home. When Mom didn't come out at all I went to talk to her about it but she acted like she didn't know what I was talking about. Owen and Kyle talked about what happened a little to say how creepy it was and said that after they went home tomorrow they didn't want me to talk to them ever again. I don't blame them.
-
----------
 
 >Dear journal,  
 Dad's sick. After Owen and Kyle left this morning we heard him coughing and Mom checked on him and screamed. Adam and I went up too and saw he had coughed up blood on his pillow and was having a hard time breathing. He's in the hospital now and mom won't tell us what's wrong with him.  
@@ -219,3 +199,5 @@ How the fuck could anything worse that this happen, huh Christian? How the fuck 
 How can things be worse when I killed my own fucking nephew?
 
 My heart dropped. I could see where he got the idea from, shooting the kid leading to his nephew getting shot too, but...I couldn't imagine that weighing on me. The idea that I killed my own family. That I killed a *toddler*. And it didn't get any better. There wasn't an entry, but another prayer card...a card for a woman named Judy, who hade been in her early 20s.
+
+Next part: [https://www.reddit.com/r/nosleep/comments/1e3j6b8/the\_death\_collector\_part\_4/](https://www.reddit.com/r/nosleep/comments/1e3j6b8/the_death_collector_part_4/)
