@@ -101,3 +101,5 @@ A prank notebook wouldn’t just wind up in our locker unless there was somethin
 If nothing turns up from this post in a few days, I may sit down to transcribe more. There’s some stuff in the later entries that have more information, I think. It’s honestly hard to tell when I’m forced to look at it through the eyes of a girl who can’t be any older than 5 or 6 years old. Either way, it might help. But from what I’ve given you so far, can anyone answer my original question?
 
 What the hell are flashlight goggles?
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1e4am1h/im_beginning_to_realize_what_flashlight_goggles/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
