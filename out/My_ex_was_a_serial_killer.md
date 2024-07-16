@@ -1,0 +1,17 @@
+I didn't know where to start telling this. I've been in therapy for years because of this incident and I thought it would be a relief to share it anonymously. I better start without giving up or I might stop writing.
+
+
+
+Okay, firstly, I met him in a friend environment after university. He had an ordinary type and he was quite calm and didn't talk much. That night, which happened 6-7 months after we became lovers, was the moment I suspected everything, and I only found out years after that night. I still get goosebumps when I think about it. Anyway, I left my shift at work that night, I was terribly tired, but I didn't want to cancel our meeting because I had promised. At that time, we could rarely meet because neither of our calendars fit each other. He came to pick me up with his car around 8-9 at night.
+
+ I sat inside and we started talking about my daily complaints and what happened, but there was a problem. That night, it was as if someone else had replaced my normally calm lover. He was driving the car fast and rudely and seemed to enjoy it. In addition, it was not only the driving that changed, his whole behaviour had changed. He was talking excitedly and his face was full of smiles. When I asked him about it, he said it was nothing important, he was just in a good mood today. He pulled over to the side of the road and kissed me, and although I was surprised that he suddenly did this, I continued, but there was something that attracted me. 
+
+He had just showered and I could tell by the smell of soap, but he said he was at work today. If he was at work, it was impossible for him to go home and take a shower. Our jobs were close and our leaving times almost overlapped. It wasn't that that made me nervous, when I sniffed her a little more I knew something was wrong. There was a deeper smell, the metallic smell of blood. Although I found this smell strange because I didn't know what was going on at the time, I thought it was a game my mind was playing with me and I let it go. The night passed somehow. We dispersed to our homes. Months after this incident, he suddenly disappeared. He disappeared without saying a word to me. When I asked my mutual friends, we learnt that none of them had heard from him. We panicked, his boss was my distant friend. I asked him, and he told me that he quit his job suddenly, saying that he had to go out of town and resigned.
+
+
+
+From that moment on, I couldn't forget him for months, even though I cried and whined, somehow this too passed. I met someone else and was in a good relationship. I had erased him from my memory until I saw the news on TV about 3 years ago. He appeared when I least expected it. I learnt that he had sacrificed 6 people. My head was boiling. I quickly looked it up on the internet, he had indeed done it. I watched him in court and he didn't look remorseful. He had that smile on his face from that night. That creepy smile that was so out of character. The really traumatic part of it, the part that affected me, I learnt when I got deeper into it. The night I told you about, he didn't come home from work. He had assaulted and killed a girl in her 20s. And then he met me.
+
+
+
+I hated him... I hated myself. I was with a mental patient who had done this to 6 people. Especially that night... after doing that to one person...
