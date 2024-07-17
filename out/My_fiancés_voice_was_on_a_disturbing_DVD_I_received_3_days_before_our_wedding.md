@@ -331,3 +331,7 @@ The journalist, Elena, and I are making progress. We've found financial records 
 Oakwood seems fine so far. No catastrophes. Did they find another "sacrifice"? Or was it all just for power? I don't know.
 
 I'm exhausted, scared, and some days it's hard to keep going. But I think of potential victims out there and I know I can't stop.
+
+-----------------------------------------------------
+
+[X](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/)
