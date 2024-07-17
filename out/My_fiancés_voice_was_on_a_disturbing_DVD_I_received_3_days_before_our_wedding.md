@@ -320,7 +320,6 @@ If you have any information that might help, or if you've experienced something 
 
 And to James, if you're reading this - I loved you. I really did. But I will never, ever be part of your "legacy." You chose the wrong bride to sacrifice.
 
-  
 Update:
 
 For those asking - yes, I've managed to contact some friends and family. Sarah, whose car I took, is safe. She got out during the chaos. Others... I'm not sure. Some act like nothing happened, others have vanished. I don't know if they're threatened, recruited, or worse.
@@ -331,4 +330,4 @@ The journalist, Elena, and I are making progress. We've found financial records 
 
 Oakwood seems fine so far. No catastrophes. Did they find another "sacrifice"? Or was it all just for power? I don't know.
 
-I'm exhausted, scared, and some days it's hard to keep going. But I think of potential victims out there and I know I can't stop. 
+I'm exhausted, scared, and some days it's hard to keep going. But I think of potential victims out there and I know I can't stop.
