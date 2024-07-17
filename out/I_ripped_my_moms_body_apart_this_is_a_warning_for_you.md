@@ -1,5 +1,7 @@
 You might wanna read this because this CAN happen to you. You want proof? Go read some other guy's post about them on here. It's called *I'm being hunted, this is a warning for you.* SOMEONE doing this is paying attention to the comments after what happened.
 
+[Link to the post](https://www.reddit.com/r/nosleep/comments/1d9lss2/im_being_hunted_this_is_a_warning_for_you/)
+
 I worked as a security guard in Buffalo over in New York in one of those casinos near Niagara Falls. Given that this was one of the closest places to stay by the landmark, it was one of the heaviest parts to work for, at least from my experience. I got used to the usual one could expect in this type of job, but certain events have changed so quickly that I can’t tell what is real except for my incoming doom.
 
 I was working in the early afternoons, around 1 PM, give or take, and I was walking about when I saw a group of friends - I assumed - taking pictures. They were somewhat uncomfortable because a man in that picture looked to have one too many drinks at the time, rambling in some hysteria in the most annoying tone I ever heard.

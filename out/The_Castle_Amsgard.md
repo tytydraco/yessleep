@@ -1,6 +1,6 @@
 I am prone to nightmares. I have been since I was a child. But while others have different nightmares each night, I suffer from the same recurring dream that comes to me once every year.
 
-The dream always starts out the same. I am in the courtyard of a large castle. The first time I had the dream, I remember the experience being tranquil. Of enjoying the rosebushes beneath the silver moonlight and noticing the crisp cool of the night air mix in sweetly with the scent of the flowers. I must’ve only been four years old at the time, but I enjoyed the scene as deeply as though I were a much older man. But in subsequent dreams the sight of rosebushes would come to haunt me, for each time I saw them, and the marble steps of the walkway, I would know at once what was to follow, and would begin to search the courtyard frantically for who I next expected to see.
+The dream always starts out the same. I am in the courtyard of a large castle. The first time I had the dream, I remember the experience being tranquil. Of enjoying the rosebushes beneath the silver moonlight and noticing the crisp cool of the night air mix in sweetly with the scent of the flowers. I must’ve only been four years old at the time, but I enjoyed the scene as deeply as though I were a much older man. But in subsequent dreams, the sight of rosebushes would come to haunt me, for each time I saw them, and the marble steps of the walkway, I would know at once what was to follow, and would begin to search the courtyard frantically for who I next expected to see.
 
 She doesn’t always appear in the same place each time. At times, she would be lurking behind the statues in the courtyard, and other times I could see her up on a faraway balcony. But most often she appeared walking down the corridor that ran along the parameter of the courtyard, from between the rows of arched columns. Every time I saw her there was a ping of recognition, as though she were familiar to me. She was hauntingly pale and wore a white gown that appeared almost to fluoresce. Beneath her eyes, she bore the dark rings of smeared mascara, though her face was emotionless as she walked with the calm cool of a person whose mind was well and truly made up. Spots of blood stained her white dress.
 
@@ -22,7 +22,7 @@ I am now a schoolteacher, and for years have been teaching a class in History at
 
 I read on:
 
-*On Thursday the 22**^(nd)* *at 8:32 p.m., police were called to the scene of a highway accident along the M8. A young woman, believed to be on route to her wedding, was found dead.*
+*On Thursday the 22\*\***^(nd)* *at 8:32 p.m., police were called to the scene of a highway accident along the M8. A young woman, believed to be on route to her wedding, was found dead.*
 
 I stopped here, for there was an eerie feeling of recognition that came over me. The paper went on to say that she had been speeding along a cliffside road, when she failed to make a turn. Her car smashed through the guard rails and fell a hundred meters down to the stony coastline. There was no mention of a name.
 
