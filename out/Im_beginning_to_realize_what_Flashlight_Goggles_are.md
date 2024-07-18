@@ -14,8 +14,6 @@ If you were on the same line of thinking that I originally was, then all of that
 
 I’ll have my thoughts for you at the end, but for now, here it is:
 
-
-
 *Daddy and I are hiding in a shed with Aunt Sarah. It’s the shed behind her and Uncle Charles’ house. It's very cool to be allowed in here because normally Abby and I aren’t allowed when we play in the backyard. I am getting to do so many fun things tonight that I don’t normally get to!*
 
 *Uncle Charles says there are too many dangerous things in here and that's why I’m not allowed to come inside. He probably means things like the big sword Daddy is holding. Daddy calls it a ‘macshety’, but it looks more like a sword to me. He's still shaking very badly, but it’s not even cold in here. I wonder if Daddy is sick. I shiver a lot when I’m sick too.*
@@ -104,7 +102,9 @@ You know the strangest part, though? It’s not necessarily true that there wasn
 
 Well, I went digging, and still didn’t find anything. None of those “Washington's” match up with any sort of outbreak or mass death that has ever occurred, and when I ditched that path and just started looking into abandoned towns and cities in general, that turned up even more dead ends. Whatever happened to this town—to these people—It was wiped off the face of the Earth, and with how horrifying the implications of this journal are, I can’t even blame whoever did it. My only hope is that they got whatever happened under control. What I don’t understand, though, is if that’s what somebody was trying to do, then why even have a case file in the system in the first place? Why not just delete it from the servers entirely? Was there some sort of encryption I missed?
 
-So where does all of this leave me? More lost, confused, and freaked out than ever, for sure. I can’t even trust my own department at this point… This Journal is consuming my every waking thought, and while I know I’m running the risk of getting caught up in something I don’t want to be a part of the more I keep looking, I can’t help it. This changes so many things if this is real, and I just… I need to know if it is. I need to know if this poor girl escaped whatever got her town.
+So where does all of this leave me? More lost, confused, and freaked out than ever, for sure. I can’t even trust my own department at this point… This Journal is consuming my every waking thought-- even my unconscious ones. I'm still having nightmares, although now, they've been getting more vivid. Darkness with strange shapes writhing and twisting within. I can't make out what they are through the murky abyss, but I have a guess, and I always wake up with that same awful feeling in my stomach. It draws me back to my computer every time. It begs me to keep searching...
+
+I know I’m running the risk of getting caught up in something I don’t want to be a part of the more I keep looking, I can’t help it. This changes so many things if this is real, and I just… I need to know if it is. I need to know if this poor girl escaped whatever got her town.
 
 The thing that scares me the most now is that I may not like the truth I find at the end of all this—if there is one.
 

@@ -51,18 +51,29 @@ I stopped trying to catch it after that. If I woke up in the middle of the night
 
 Eventually, as I got older, I managed to convince myself that it had been a dream. What else could it be? Just the overactive imagination of a tired little girl in a new house. Because it had to be a new house, it was just similar to the old one, that was all. 
 
-Fast-forward to now and the reason why I’m writing this down. I just moved into my own place. I got a job a state away and found a place nearby that I could–miraculously–afford. 
+But then when I was sixteen it happened again. 
 
-I’m sure you can see where this is going, and you’re right. When I pulled up the driveway there was the same house looking back at me, peeling yellow paint, rotten porch and all. 
+I was following Mom into the kitchen for breakfast when she stopped abruptly in front of me. I peered around her rigid body and was just in time to see the kitchen island move across the floor into the proper place. No noise, no dragging sound of wood against tile. The island just slid into place like a lagging asset in a video game. 
+
+I looked at Mom and she looked at me, and I knew she had seen it too. Her eyes were big and watery, but her mouth jerked up into a shaky smile.
+
+"How about we have pancakes this morning?" she asked in a voice full of false cheer.
+
+I didn't answer. I didn't dare say anything for fear I might be whisked away to bed again like nothing had happened. 
+
+Mom knew. She was afraid of the house too. She couldn't say anything, or the house would punish her the same way it had punished me when I was ten. And it had only put me to bed; who knew what it would do to an adult?
+
+So why am I only writing this now? Well, I just moved into my own place. A chance to get away from this house that had silently haunted me my whole life. I got a job a state away and found a place nearby that I could–miraculously–afford. 
+
+I’m sure you can see where this is going, and you’re right. When I pulled up the driveway, there was the same house looking back at me, peeling yellow paint, rotten porch and all. 
 
 I sent a panicked text to Mom, asking her to send me a picture of their house. A few painful minutes later I got a picture and a concerned question in reply.
 
-The same house. How could the same house be in two places at the same time?! I hadn’t looked like that when I saw it online while I was house-hunting, right? But the more I thought about it the more I realized…I don’t remember house hunting. And once I realized that the more holes I find in my memories. I know that I went to school but I have no memories of it; no friends, no teacher’s names, nothing. If you asked me if I dated anyone in highschool I would say yes, because I know I did, but if I couldn’t tell you who they were, what they looked like, or what we did.
+The same house. How could the same house be in two places at the same time?! I hadn’t looked like that when I saw it online while I was house-hunting, right? But the more I thought about it, the more I realized…I don’t remember house hunting. And once I realized that the more holes I find in my memories. I know that I went to school, but I have no memories of it; no friends, no teacher’s names, nothing. If you asked me if I dated anyone in highschool I would say yes, because I know I did, but if I couldn’t tell you who they were, what they looked like, or what we did.
 
-I have an awareness of doing things, but if I have to think any deeper on anything more than whether or not something happened it’s a blank. Like in movies when there’s a scene change and you know something happened off camera but you didn’t actually see what it was. 
+I have an awareness of doing things, but if I have to think any deeper on anything more than whether or not something happened it’s a blank. Like in movies when there’s a scene change and you know something happened off camera, but you didn’t actually see what it was. 
 
 Did any of those things actually happen? Did I go to school? Did I have friends? A boyfriend? 
 
 I’m sitting in bed right now, the only light is the glow of my phone screen, and I can feel the house watching me. I think it knows.
 
-Please, if you have any idea what might be going on, please tell me! I feel like I’m going crazy. Am I crazy? 

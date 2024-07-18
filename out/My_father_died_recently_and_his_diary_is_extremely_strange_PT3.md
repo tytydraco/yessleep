@@ -17,3 +17,6 @@ October 1st 2022 (Entry 15)
 I'm so sorry... They've gotten in... Frank and at least 20 of the cultists are in... They're upstairs searching for me... I'm hiding in the basement... Audrey, my beautiful daughter... Please, don't ever come to this ranch or house... I'll miss you... I'm sorry... Know I'll always be with you... Oh God, they're her
 
 That's the last entry. They got my dad, I know it wasn't a bear attack that killed my father. I know what I have to do. I'll finish the final ritual. From now on, these posts will no longer be my father's diary entries. I'll kill Frank, make sure no one ever has to go through this again, I'll make sure to do it. I don't care if it kills me, I'll kill Frank. I'll update you all soon, if I don't, know that Frank got me.
+
+[Part 1](https://www.reddit.com/r/nosleep/s/ImAP3XyAQF)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1dxk9gk/my_father_died_recently_and_his_diary_is/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1)
