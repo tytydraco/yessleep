@@ -276,8 +276,4 @@ I slammed the box shut, my breath coming in short gasps. This was real. It had a
 
 If you're reading this, remember: not every opportunity is meant to be taken. Trust your instincts. And if you ever find yourself at a bus stop late at night, faced with a choice that seems too good to be true... maybe consider walking instead.
 
-After all, you never know where that night bus might really be headed. Or what souvenirs it might leave behind.
-
------------------------------------------------------
-
-[X](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/)
+After all, you never know where that night bus might really be headed. Or what souvenirs it might leave [behind](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/).

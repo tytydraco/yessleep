@@ -138,8 +138,4 @@ Please, if you have any information or can point me in the direction of someone 
 
 I will try to keep you posted on any developments. Thank you for reading and for your support.
 
-Edit 1: Thank you all for the responses. I’ve received some advice and some potential leads on what might be happening. I’ve also had a few people reach out claiming to have had similar experiences. I’m trying to follow up on everything, but it’s a lot to process. Please be patient as I try to sort through all this.
-
------------------------------------------------------
-
-[X](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/)
+Edit 1: Thank you all for the responses. I’ve received some advice and some potential leads on what might be happening. I’ve also had a few people reach out claiming to have had similar experiences. I’m trying to follow up on everything, but it’s a lot to process. Please be patient as I try to sort through [all this](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/).

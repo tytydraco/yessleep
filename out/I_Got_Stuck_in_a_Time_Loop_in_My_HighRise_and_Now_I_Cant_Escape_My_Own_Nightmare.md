@@ -432,8 +432,4 @@ I'll keep you updated, Reddit. If I find anything interesting – or if somethin
 
 If you don't hear from me again... well, either I've succeeded in going back to the loops, or something much worse has happened.
 
-Wish me luck. Or don't. I'm not sure which is worse anymore.
-
------------------------------------------------------
-
-[X](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/)
+Wish me luck. Or don't. I'm not sure which is worse [anymore](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/).

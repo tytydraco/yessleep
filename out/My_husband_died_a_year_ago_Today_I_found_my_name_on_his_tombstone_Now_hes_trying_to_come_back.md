@@ -1,46 +1,36 @@
-Hey Reddit. I've been trying to work up the courage to share this for a while now. It's been six months since it all started, and I still can't wrap my head around what happened. I guess I'm hoping that by writing it all down, maybe someone out there can help me make sense of it. Or at least tell me I'm not going crazy.
+I never thought I'd be that person posting on Reddit about ghost stories or paranormal experiences. Hell, I used to roll my eyes at those posts. But here I am, hands shaking as I type this, desperately hoping someone out there can help me make sense of what's happening.
 
-So, here goes. My name's Sarah, and up until last year, I was just your average 28-year-old trying to figure out life. I had a decent job at a local bookstore, a tiny apartment that I shared with my cat, Mr. Whiskers, and a husband I loved more than anything in the world.
+My name's Sarah. I'm 32, work as a graphic designer, and up until a year ago, I was happily married to the love of my life, Tom. We met in college - he spilled his entire tray of food on me in the cafeteria, and somehow that led to a first date. Eight years later, we were saying "I do" under an old oak tree in his parents' backyard.
 
-Tom and I met in college. He was this goofy guy with messy brown hair and the kindest green eyes you've ever seen. We clicked right away, bonding over our shared love of bad horror movies and even worse puns. We got married two years after graduation, in a small ceremony with just our closest friends and family. It wasn't fancy, but it was perfect.
+Life was good, you know? We had our little house in the suburbs, our grumpy cat Mr. Whiskers, and plans to start trying for a baby. Then, last June, everything went to hell.
 
-For three years, life was good. Sure, we had our ups and downs, but we were happy. We were talking about starting a family, maybe buying a house. You know, all those grown-up things you're supposed to do.
+It was a Tuesday. I remember because we were supposed to have tacos for dinner - it was our little weekly tradition. Tom called around 5:30, saying he'd be home late. Some big project at work needed finishing. I was annoyed, I'll admit it. We'd been like ships passing in the night lately, both of us working too much.
 
-But then, last year, everything changed.
+"Don't wait up," he said. "I'll make it up to you this weekend, promise."
 
-It was a rainy Tuesday in October. Tom had gone out to grab some groceries. He was supposed to be back in time for us to watch the latest episode of our favorite show. I remember sitting on the couch, scrolling through my phone, wondering why he was taking so long.
+Those were the last words I ever heard him say.
 
-Then the doorbell rang.
+At 11:42 PM (funny how your brain holds onto details like that), there was a knock at the door. Two police officers stood on our porch, their faces grim. Before they even opened their mouths, I knew. You always think you'll scream or faint when you get news like that. I just felt... numb.
 
-I opened the door to find two police officers standing there, their faces grim. My heart dropped before they even opened their mouths. I knew. Somehow, I just knew.
+Drunk driver. Head-on collision. Dead on impact.
 
-"Mrs. Thompson?" one of them asked. I nodded, my throat too tight to speak.
+The next few weeks passed in a blur of funeral arrangements, well-meaning casseroles from neighbors, and sleepless nights staring at Tom's side of the bed. I kept expecting to wake up and find out it was all a horrible dream.
 
-"I'm sorry to inform you, but there's been an accident."
+But it wasn't. Tom was gone, and I was left trying to figure out how to live in a world without him.
 
-The rest of that night is a blur. I remember bits and pieces. The officers telling me that a drunk driver had run a red light, hitting Tom's car. That he died instantly. That they were so, so sorry.
+For a year, I went through the motions. I went back to work. I fed Mr. Whiskers. I even started seeing a grief counselor. Slowly, painfully, I was learning how to be Sarah-without-Tom.
 
-I remember calling Tom's parents, my voice breaking as I tried to explain what happened. I remember my best friend, Lisa, rushing over and holding me as I sobbed until I had no tears left.
+Then came the day that changed everything. Again.
 
-The funeral was three days later. It was a beautiful service, I guess. People kept telling me how lovely it was, how Tom would have appreciated it. But honestly? I barely remember any of it. I was like a zombie, going through the motions, shaking hands and accepting hugs from people whose faces I couldn't even focus on.
+It was the one-year anniversary of Tom's death. June 15th. I decided to visit his grave, like I'd been doing every month since the funeral. It was a beautiful summer day, warm but not too hot. The kind of day Tom would have loved.
 
-We buried Tom in Oakwood Cemetery, under a big oak tree. His tombstone was simple, just like he would have wanted. "Thomas Thompson, Beloved Husband and Son. 1995-2023."
-
-For months after, I was lost. I'd wake up in the middle of the night, reaching for Tom, only to find his side of the bed cold and empty. I'd catch myself picking up my phone to text him about something funny that happened at work, only to remember he wasn't there to read it.
-
-But slowly, painfully, I started to put my life back together. I went back to work. I started seeing a grief counselor. I even managed to smile again, now and then.
-
-And then came the day that changed everything. Again.
-
-It was the one-year anniversary of Tom's death. October 15th, 2024. I decided to visit his grave, like I'd been doing every month since the funeral. It was a crisp autumn day, leaves crunching under my feet as I made my way through the cemetery.
-
-I brought flowers - sunflowers, Tom's favorite. As I approached his grave, I rehearsed in my head what I was going to say. It sounds silly, but I always felt like I was really talking to him when I visited.
+I brought sunflowers - his favorite. As I approached his grave, I rehearsed in my head what I was going to say. It sounds silly, but I always felt like I was really talking to him when I visited.
 
 But when I got to the grave, the words died in my throat. I blinked, sure I must be seeing things. I rubbed my eyes, but the image didn't change.
 
 There, on Tom's tombstone, right below his name, was mine.
 
-"Sarah Thompson, 1995-"
+"Sarah Thompson, 1991 - "
 
 The date of death was blank, but my name was there, clear as day. Carved into the stone as if it had always been there.
 
@@ -54,21 +44,27 @@ I fumbled for my phone, nearly dropping it as I pulled it out of my pocket. With
 
 But it was. And little did I know, it was only the beginning.
 
-I'll post the next part soon. Writing this has brought it all back, and I need a minute to collect myself. But there's so much more to tell. God, I hope someone out there can help me make sense of this.
+Writing this has brought it all back, and I need a minute to collect myself. But there's so much more to tell. God, I hope someone out there can help me make sense of this.
 
-After I found my name on Tom's tombstone, I kind of lost it. I mean, wouldn't you? I remember sitting on the ground next to his grave, my brain trying to make sense of what I was seeing. I must have been there for hours, because when I finally snapped out of it, the sun was setting.
+After I found my name on Tom's tombstone, I kind of lost it. I mean, wouldn't you? I remember sitting on the ground next to his grave, my brain trying to make sense of what I was seeing. I must have been there for hours, because when I finally snapped out of it, the sun was setting and my ass was numb from the cold ground.
 
-I stumbled home in a daze. As soon as I got in, I called Lisa.
+I stumbled home in a daze, nearly getting into an accident when I ran a red light. As soon as I got in, I called Lisa, my best friend since high school.
 
 "Sarah? What's wrong?" she asked as soon as she picked up. I guess my voice gave me away.
 
 "Lisa, I... I need you to come over. Please. Something's happened."
 
-She was at my door in fifteen minutes. I showed her the pictures on my phone, my hands shaking so bad I nearly dropped it.
+She was at my door in fifteen minutes, still wearing her scrubs from the hospital. I showed her the pictures on my phone, my hands shaking so bad I nearly dropped it.
 
 "Oh my God," she whispered, her eyes wide. "Sarah, this... this isn't possible."
 
 "I know," I said, my voice cracking. "But it's there, Lisa. I touched it. It's real."
+
+Lisa insisted on going to the cemetery with me the next day. When we arrived, my heart was pounding so hard I thought it might burst out of my chest. But as we approached Tom's grave, I saw Lisa's face pale.
+
+"Sarah," she said, her voice barely above a whisper. "Your name... it's really there."
+
+Hearing Lisa confirm it made it real in a way that even seeing it myself hadn't. This wasn't just in my head. It was actually happening.
 
 We spent the next few hours calling everyone we could think of. The cemetery office (closed for the day), the company that made Tom's headstone (also closed), even the police (who basically told us that unless someone was actively trying to kill me, there wasn't much they could do).
 
@@ -126,17 +122,25 @@ I ran. I ran faster than I've ever run in my life. I didn't stop until I reached
 
 As I drove away, I caught a glimpse of something in my rearview mirror. A figure, standing by Tom's empty grave. A figure with messy brown hair and familiar green eyes.
 
-I'm at Lisa's place now. I can't go back to my apartment. I don't know what to do. Am I going crazy? Is this really happening?
+My hands shook as I called Lisa. "I need to stay with you," I blurted out as soon as she answered. "And I need to grab Mr. Whiskers from my apartment."
 
-And the worst part? A small, terrible part of me wants it to be real. Wants Tom to really be coming back. Even if... even if he's not the same Tom I knew.
+"Of course," Lisa said, concern evident in her voice. "Do you want me to come with you?"
 
-God, what's happening to me?
+I hesitated, then agreed. Having Lisa with me made me feel a little safer as I quickly packed a bag and coaxed a very unhappy Mr. Whiskers into his carrier.
 
-I'll update again when I can. If I can. Please, if anyone has any idea what's going on, help me. I'm scared. I'm so, so scared.
+The whole time, I couldn't shake the feeling that something was watching me from the shadows of my own home.
 
-EDIT:
+Now I'm at Lisa's place. I couldn't go back to my apartment. I didn't know what to do. I thought I was going crazy. But at least I had Mr. Whiskers curled up next to me, his familiar purring a small comfort in the midst of this nightmare.
 
-I don't know how much longer I can keep this up. It's been three days since I last posted. Three days of pure hell. But I promised I'd keep you updated, so here goes.
+Lisa suggested I try to get some sleep, but how could I? Every time I closed my eyes, I saw Tom's face - not as I remembered him, but as that ghastly figure by the grave.
+
+"We'll figure this out," Lisa assured me, but I could see the worry in her eyes. She didn't understand what was happening any more than I did.
+
+As I sat there, absently stroking Mr. Whiskers, I couldn't help but wonder: What was coming for me? And how long did I have before it arrived?
+
+And the worst part? A small, terrible part of me wanted it to be real. Wanted Tom to really come back. Even if... even if he's not the same Tom I knew.
+
+God, what was happening to me?
 
 After I fled to Lisa's place, things got worse. So much worse.
 
@@ -172,9 +176,7 @@ I showed Lisa. She immediately turned the car around, heading back to the police
 
 That night, I couldn't sleep. Every time I closed my eyes, I saw Tom's face. Not the Tom I loved, but the... thing from my dream. I sat in Lisa's guest room, lights on, jumping at every little sound.
 
-Around 3 AM, I heard it. Scratching. Coming from inside the walls.
-
-Scratch. Scratch. Scratch.
+Around 3 AM, I heard it. Scratching. Coming from inside the walls. Scratch. Scratch. Scratch.
 
 It got louder. More frantic. Like something was trying to claw its way out.
 
@@ -184,17 +186,37 @@ I backed into the corner of the room, my heart pounding so hard I thought it mig
 
 The wall started to bulge.
 
-I watched in horror as the wallpaper stretched and tore. A hand pushed through. Gray, decayed, with long, twisted fingers.
+I watched in horror as the wallpaper stretched and tore. A hand pushed through.
+
+Gray, decayed, with long, twisted fingers.
 
 I screamed. I screamed so loud I thought my throat would tear.
 
-Lisa came running in. The moment she opened the door, everything stopped. The hand disappeared. The wall was intact. Like nothing had happened.
+Lisa came running in, her eyes wide with panic. "Sarah, what's wrong? I heard—" She stopped mid-sentence, her gaze fixed on the wall. "Oh my God," she whispered.
 
-But I knew what I saw. I knew it was real.
+The hand was still there, clawing at the air, trying to push through further. Lisa saw it too. She wasn't imagining it.
 
-Lisa didn't believe me. How could she? It sounded insane. She suggested I see a doctor, maybe get some sleep medication.
+"Tom?" Lisa's voice was barely audible, a mix of fear and disbelief.
 
-I nodded, agreed to whatever she said. But inside, I knew. This wasn't in my head. This was real. And it was only getting worse.
+The moment his name left her lips, the hand retreated, sucked back into the wall like a video played in reverse. The wallpaper smoothed over, erasing any evidence of the tear.
+
+Lisa fumbled for the light switch, her hands shaking. As soon as the room flooded with light, the bulging wall completely disappeared. It looked perfectly normal, like nothing had ever happened.
+
+We stood there in stunned silence, both of us staring at the now-intact wall. Lisa turned to me, her face pale. "Sarah," she said slowly, "what the hell was that?"
+
+"You... you saw it too?" I asked, my voice trembling.
+
+She nodded, running a hand through her hair. "I saw... something. A hand. The wall moving. But now..." She gestured helplessly at the normal-looking wall.
+
+"You believe me now?" I asked, a hint of desperation in my voice.
+
+Lisa took a deep breath. "I... I don't know what I believe. But I know what I saw. And it wasn't normal."
+
+We spent the rest of the night huddled together on the couch, jumping at every creak and groan of the house. When morning came, Lisa looked at me with bloodshot eyes.
+
+"Maybe... maybe we should talk to someone about this," she suggested hesitantly. "A medium or a paranormal investigator or... I don't know. Someone who might understand what's happening."
+
+I nodded, too exhausted to argue. But deep down, I knew. This wasn't something that could be explained away or exorcised. This was Tom, or whatever was left of him, trying to come back.
 
 Yesterday, I went back to my apartment to grab some clothes. As soon as I walked in, I knew something was wrong. It was cold. So cold I could see my breath.
 
@@ -215,3 +237,7 @@ I'm losing my mind. I know I am. But I also know this is real. Tom is coming bac
 If anyone out there knows what's happening, please help me. Please. I don't know how much longer I can hold on.
 
 I'll try to update again. If I can. If I'm still here. God help me.
+
+EDIT:
+
+Also, an update: This morning, I woke up to find wet footprints leading from the front door to my bedroom. They look like Tom's shoe size. I'm staying at a motel now. I don't know what to do. I loved Tom, I really did. But the thing trying to come back... I'm not sure it's really him [anymore](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/).

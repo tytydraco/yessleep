@@ -250,8 +250,4 @@ Or is Emily trying to change us?
 
 The forest is patient. It can wait.
 
-And it's always, always hungry.
-
------------------------------------------------------
-
-[X](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/)
+And it's always, always [hungry](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/).

@@ -66,8 +66,4 @@ We didn’t stop running until we reached the nearest bus stop. Emily was in tea
 
 Twenty years have passed since that terrifying summer. Emily, who was only ten at the time, has struggled with trauma ever since. She refuses to speak about it and avoids any contact with our grandparents. As for me, I meet them occasionally, but only in broad daylight and never at their house. The fear and confusion from that night still linger, and I often wonder what dark secrets our grandparents were hiding.
 
-Sometimes, I lie awake at night, replaying the events in my mind, trying to make sense of it all. But no matter how much time passes, one thing remains clear: that summer changed everything. The memory of that sinister ritual will forever haunt our dreams.
-
------------------------------------------------------
-
-[X](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/)
+Sometimes, I lie awake at night, replaying the events in my mind, trying to make sense of it all. But no matter how much time passes, one thing remains clear: that summer changed everything. The memory of that sinister ritual will forever haunt our [dreams](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/).

@@ -92,8 +92,4 @@ I tried to tell myself that I had no choice, that it was him or me, but the guil
 
 In the end, I could only hope that the rapper would find a way to survive, to escape as I did. But deep down, I knew the truth. The Grove's grasp was relentless, and it would take much more than a simple invitation to break free from its chains. And as I turned off the television, the shadows in my room seemed to close in, a silent acknowledgment of the price we pay for our dreams.
 
-\[Edit: Money and fame don’t matter. I’ve had it all—Ferraris, Lamborghinis, huge villas, beautiful girls, and more money than I could ever spend. But why do you think all these celebrities turn to drugs, soulless sex, wild parties, and alcohol? It’s because that’s how they try to work out their trauma of what they had to do to get there. Behind the glamour and the flashing lights, there’s a darkness that consumes. The price of fame is paid in nightmares and broken souls, and no amount of wealth or luxury can ever fill the void left by the horrors endured to achieve it.\]
-
------------------------------------------------------
-
-[X](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/)
+Edit: Money and fame don’t matter. I’ve had it all—Ferraris, Lamborghinis, huge villas, beautiful girls, and more money than I could ever spend. But why do you think all these celebrities turn to drugs, soulless sex, wild parties, and alcohol? It’s because that’s how they try to work out their trauma of what they had to do to get there. Behind the glamour and the flashing lights, there’s a darkness that consumes. The price of fame is paid in nightmares and broken souls, and no amount of wealth or luxury can ever fill the void left by the horrors endured to [achieve it](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/).
