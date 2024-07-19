@@ -110,7 +110,7 @@ It felt like he inserted something in my head.  I couldn’t tell other than t
 
 “Try to move this around”, the person said.  I could see they were wearing a non-descript paramedic type uniform.  I could also see that I was inside of an ambulance at this point.
 
-I looked over to a laptop screen where I could move around a mouse pointer with no problem.  
+I looked over to a laptop screen where I could move around a mouse pointer with my thoughts with no problem.  
 
 “It worked!!!”, I heard someone shout, followed by what I could only assume were high fives being distributed around.  
 
