@@ -34,7 +34,7 @@ I must've made it to floor 1 in record time for that building. Believe me, I fle
 
 I burst out the front door and didn't breathe easy again until I was safely back home.
 
-The tape was so flipping weird, man. I'm not sure if it's connected to why Steve and Geg went missing, though. Luckily, I happen to have a VHS to digital recording device, [so I can link a recording of it](https://drive.google.com/file/d/1WY0BTWL-K2rRzhwEqfVl7UwQXLGe0AL7/view?usp=drivesdk) so that and you can see it for yourself! :)
+The tape was so flipping weird, man. I'm not sure if it's connected to why Steve and Greg went missing, though. Luckily, I happen to have a VHS to digital recording device, [so I can link a recording of it](https://drive.google.com/file/d/1WY0BTWL-K2rRzhwEqfVl7UwQXLGe0AL7/view?usp=drivesdk) so that and you can see it for yourself! I hope it's not illegal for me to share it.
 
 Ugh... I'm just missing Steve a lot rn. Steve. If you're out there. I'm hugging you hard!
 
