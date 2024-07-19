@@ -22,7 +22,7 @@ I am now a schoolteacher, and for years have been teaching a class in History at
 
 I read on:
 
-*On Thursday the 22\*\***^(nd)* *at 8:32 p.m., police were called to the scene of a highway accident along the M8. A young woman, believed to be on route to her wedding, was found dead.*
+On Thursday the 22*^(nd)* *at 8:32 p.m., police were called to the scene of a highway accident along the M8. A young woman, believed to be on route to her wedding, was found dead.*
 
 I stopped here, for there was an eerie feeling of recognition that came over me. The paper went on to say that she had been speeding along a cliffside road, when she failed to make a turn. Her car smashed through the guard rails and fell a hundred meters down to the stony coastline. There was no mention of a name.
 
