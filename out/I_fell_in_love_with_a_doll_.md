@@ -200,10 +200,10 @@ All of that was back in October. I sold the house to a family friend who reached
 
 I don’t regret what I did. Even if I wish my mother was still the person she was before we moved into that house, I know that all of that was a lie. She was a killer the whole time. Anyone who would rob the world of an angel like Calliope deserved what they had coming. 
 
-I’m making this post because I recently got a call from the guy who bought that old house. He usually calls me every other week, sometimes to check in, ask if I heard from my mom (who is technically wanted for murder, so why would I tell him if I did?) and sometimes to ask  mundane questions about the house. This time was different though. After his usual small talk, he asked me about the doll I left among my mom’s stuff,
+I’m making this post because I recently got a call from the guy who bought that old house. He usually calls me every other week, sometimes to check in, ask if I heard from my mom (who is technically wanted for murder, so why would I tell him if I did?) and sometimes to ask mundane questions about the house. This time was different though. After his usual small talk, he asked me about the doll I left among my mom’s stuff,
 
 “You know, the one that kind of looks like her. Except for the yellow eyes,”
 
-I’m leaving now, before Mom’s doll can get me like Calliope fot her. I’m never setting foot in that house again, and I hope when I’m gone this post can maybe clear things up a bit. I’m not scared though; Cautious, sure, but I have Calliope here to protect me.  We’re together now, and nothing is going to tear us apart. 
+I’m leaving now, before Mom’s doll can get me like Calliope got her. I’m never setting foot in that house again, and I hope when I’m gone this post can maybe clear things up a bit. I’m not scared though; Cautious, sure, but I have Calliope here to protect me.  We’re together now, and nothing is going to tear us apart. 
 
 As I’m writing this, though, I keep glancing out my window. I can’t help but feel anxious about how unseasonably yellow the moon is tonight. 
