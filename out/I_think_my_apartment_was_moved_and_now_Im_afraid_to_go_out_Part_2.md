@@ -353,3 +353,5 @@ A car. A big, boxy, brown-paint-peeling-off-it, Volvo wagon. I recognized it ins
 Gabe’s car.
 
 It’s parked outside my apartment.
+
+[\[Part 3\]](https://www.reddit.com/user/buryknowingbone/comments/1e6pggr/i_think_my_apartment_was_moved_and_now_im_afraid/)
