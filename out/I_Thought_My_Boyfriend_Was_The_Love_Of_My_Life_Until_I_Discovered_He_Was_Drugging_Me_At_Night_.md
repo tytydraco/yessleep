@@ -8,7 +8,7 @@ The only recent change in my life was my boyfriend who had moved in and I was sh
 
 Stephen was the first love of my life and this was my first serious relationship. I didn’t want to spoil things by making him sleep in the spare room. 
 
-I liked having Stephen around. He made a real fuss over me and he would me camomile tea every night before bed. 
+I liked having Stephen around. He made a real fuss over me and he would bring me camomile tea every night before bed. 
 
 The pain in my hip was sharp and pulsated up the right side of my body.  I jumped from my bed and nearly collapsed to the floor as I struggled to get to the bathroom. 
 
@@ -74,7 +74,7 @@ I had purchased a hidden camera and set it up in the bedroom, pointing it toward
 
 I woke up exhausted as usual, which unfortunately meant you had done something to me while I slept, but I had it on camera. 
 
-I opened my laptop to check the footage. For the first couple of hours of sleep, nothing happened. For a moment I had hoped I was imagining everything until I watched myself Jolt from the bed. 
+I opened my laptop to check the footage. For the first couple of hours of sleep, nothing happened. For a moment I had hoped I was imagining everything until I watched myself jolt from the bed. 
 
 At first, I couldn’t believe what I was doing. It felt like I was watching a horror movie as I watched myself crawl up the bedroom wall like some possessed demon. I continued to crawl up the wall onto the ceiling looking down over Stephen like I was ready to pounce on him. 
 
@@ -88,7 +88,7 @@ As soon as Stephen came home from work I ran and threw my arms around him. “Wh
 
 Stephen shrugged his shoulders.
 
-“I thought you knew, and usually the drugs I was giving made things a little easier.”
+“I thought you knew, and usually the drugs I was giving you made things a little easier.”
 
 “Why are you even still with me?”
 

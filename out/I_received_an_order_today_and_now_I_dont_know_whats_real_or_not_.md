@@ -14,7 +14,7 @@ My first two orders were simple. The first was an order for three dolls and a pi
 
  
 
-I placed the order down, picked up my scanner, and scanned the bar code the pleasant beep stirring to life from the machine. The order of missing segments on paper was strange but I assume not completely out of the realm of reason, but what appeared on my scanner was impossible. None of the products were listed. Where the products should be was rather the dark abyss that backgrounded anything that was inputted on the scanner. What there was, however, was the subsequent locations for where these nothingness orders were.  The first location was simple enough, **LA L01 P01.** I walked over to my trolley and placed a large box on top as I was unsure how many products I would need to get**. LA L01 P01**, a stack of A4 paper. Simple enough but it must have been sat there for a while since there was a thick coating of dust. Now this isn’t unheard of in a warehouse but a product this close to the main floor would usually be seen and taken care of within seconds to avoid being marked down by inspectors. Taking initiative I walked back to my station grabbed a cloth and cleared the dust. Due to the scanner only telling me the location I was unsure how many products were needed and so I only grabbed one. In a field like ours, a mistake in quantity could mean hundreds in lost profit if oversupplied.
+I placed the order down, picked up my scanner, and scanned the bar code the pleasant beep stirring to life from the machine. The order of missing segments on paper was strange but I assume not completely out of the realm of reason, but what appeared on my scanner was impossible. None of the products were listed. Where the products should be was rather the dark abyss that backgrounded anything that was inputted on the scanner. What there was, however, was the subsequent locations for where these nothingness orders were.  The first location was simple enough, **LA L01 P01.** I walked over to my trolley and placed a large box on top as I was unsure how many products I would need to get. LA L01 P01, a stack of A4 paper. Simple enough but it must have been sat there for a while since there was a thick coating of dust. Now this isn’t unheard of in a warehouse but a product this close to the main floor would usually be seen and taken care of within seconds to avoid being marked down by inspectors. Taking initiative I walked back to my station grabbed a cloth and cleared the dust. Due to the scanner only telling me the location I was unsure how many products were needed and so I only grabbed one. In a field like ours, a mistake in quantity could mean hundreds in lost profit if oversupplied.
 
  
 
@@ -139,8 +139,6 @@ The scanner read, **LF L06 P06**. There is no level 6… unless… it meant the 
  
 
 “Wh- What are you?”
-
-
 
 He, or rather it, didn’t respond. It just remained standing, staring right at me inches away. I looked down at my scanner which still displayed **LX L01 P05.** There was no point trying to reason with it as I turned on my heels and made for the exit. It was fast. Unexplainably fast as it appeared just as suddenly as it had before in front of me. I broke down into tears again.
 
