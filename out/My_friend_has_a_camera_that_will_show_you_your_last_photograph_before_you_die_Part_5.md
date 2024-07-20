@@ -378,4 +378,4 @@ She’d kissed me.
 
 I’d eaten Thai peanut noodles.
 
-And Maribel was deathly to [peanuts.](http://www.reddit.com/r/blairdaniels)
+And Maribel was deathly allergic to [peanuts.](http://www.reddit.com/r/blairdaniels)

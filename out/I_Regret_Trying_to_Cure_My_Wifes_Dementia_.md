@@ -86,7 +86,7 @@ My heart ached for a brief second. She had forgotten all about it.
 
  
 
-“Yes dear. I let him out yesterday lunchtime. Maybe he just hasn’t come back yet”.
+“Yes dear. I let him out yesterday lunchtime. Maybe he hasn’t come back yet”.
 
  
 
@@ -134,7 +134,7 @@ She snapped her head up launching herself towards me as I ducked. Flying overhea
 
  
 
-“Lisa! Come back! Come back please!”
+“Lisa! Come back! Come back! Please!”
 
  
 
