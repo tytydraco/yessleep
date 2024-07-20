@@ -1,0 +1,21 @@
+I've always wondered and was curious about the whole sleep paralysis phenomena. Reading stories online then watching videos on YouTube. Sleep paralysis stories always piqued my curiosity. 
+
+I've read so many stories and watched countless videos that I noticed a trend. No two stories were the same. That's when I began to sew the seeds of doubt that such a phenomena was even a thing. Yes, granted that no two stories were the same but all sleep paralysis stories were similar. "Person wakes, or "wakes" from sleep only to find they are unable to move. Massive weight on their chest or elsewhere on their body or they notice a pair of eyes watching them from the corner of their room. Moments pass and then they sit up or startle to, only to find themselves rested or hours have passed. Usually the recommended hours of sleep. 
+
+I think it was around the time I joined reddit that I experienced my first. Been about 5 or 6 years and I still recall everything. This is one of those things you cannot forget. 
+
+My night ended with a couple few rounds of CoD followed by a couple few rounds of zombies. I'll admit I'm not the greatest or the best but I am paying a yearly Playstation subscription. That and it helps me unwind after a day's work. I turn in after my K/D rounds average 1/1.25 and the highest round I make on zombies is 35.
+
+I turn everything off. Plug in my phone. Set my alarm. Shower. Brush my teeth and go to bed. By then it is probably 11 pm. Waking to for work in about 6 hours.
+
+About 2 hours in, my first time starts. I'm startled awake. My eyes dart open, but my body doesn't move. I feel like I should have gasped but I notice me breath is steady. I blink my eyes a couple times to adjust to the darkness of my room and that's when I notice a peculiar scene. The light pouring in my room from the street light outside is no longer orange but had the tinge of night vision goggles. I've served in the army for 3 years, and that light source is one of the things I never forgot. All the light from the street light had or gave my room a green tinge.
+
+By this time I feel like I should be panicked or stressing but my breath is still calm and steady. I close my eyes and attempt to roll over to readjust my position and go back to sleep, but I notice I cannot move. I open my eyes again, light still has that green tinge to it. I try to grab my phone to look at the time but my arm doesn't move. I don't sleep with a lot of blankets so I know I wasn't stuck. I try to move my head, doesn't move. At this time I'm getting annoyed. I'm all WTF. As I'm beginning to disregard the whole event my body becomes noticeably cold or chilled. From my head to my feet. And yet, my breathing remains calm. I'm not shivering or shaking but I do know I'm cold or chilled. And that's when I feel it.
+
+It starts at my feet, even though my feet are under my blanket, I feel what could only be described as fingers, cold fingers, caressing my heel to my ankle. Then up along my calf to the joint of my knee along, my quad then to my hip and then I feel it touch every rib then caress my shoulder to the nape of my neck outer edge of my ear, then I feel the fingers run through my hair then I felt the oddest feeling of it pulling a string through the top of my head and then the whole sensation of cold/chill leave my body, through my head.
+
+I blink a few times and the tinge of green leaves my room and the familiar orange light from the street light is back. I blink a few more times and my alarm goes off. I sit up, turn off my alarm but I notice I'm neither groggy nor exhausted, but I do vividly remember what I just experienced. I clearly remember the cold fingers running along the entire side of my body. I distinctly recall the feeling of a string being pulled out the top of my head. I clearly remember the green tinge of light in the room. 
+
+What I don't remember is the feeling of sleep. Just my eyes shooting open, that experience, blinking a few times and the alarm going off. 
+
+But, yeah. That's my sleep paralysis story. Crazy. 
