@@ -1,4 +1,4 @@
-**(content warning - Homophobic Behavior, drug use, gore, animal brutality)**
+[Preamble](https://www.reddit.com/user/HeritorTheory/comments/1e7sysw/limb_structure_preamble/), **Content warning:** >!**Homophobic Behavior, Drug Use, Gore, Animal Brutality**!<
 
 Death, the first one that hits you in the throes of tumultuous youth, is a real kick to the nethers. I was super close to my grandmother when she passed a little after the start of my sophomore year. It put me in a daze till the beginning of November, just sort of going through the motions. A mournful ghost filling a slot in a factory of the mundane.
 
