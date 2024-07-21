@@ -211,3 +211,5 @@ I admit I looked up symbolism around the alder tree online afterwards, but I don
 “What’s most interesting to me,” Professor Monotone continued, “is that the alder wood holds up remarkably well to water.  And what is the biggest problem on this [campus](https://alderrayne.com/)?”
 
 [Rain](https://www.reddit.com/r/goatvalleycampgrounds/).
+
+[Next post.](https://www.reddit.com/r/nosleep/comments/1e8dwin/how_to_survive_college_the_devils_gift/)
