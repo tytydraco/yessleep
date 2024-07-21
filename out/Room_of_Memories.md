@@ -72,7 +72,7 @@ A snap-The evil scissor boy proudly holds a red curl of my hair in his hand.  
 
 Sounds of little footsteps are fading. I feel my vision getting blurry. Still one thought is haunting my mind.  
 
-- Why?  
+Why?  
 
 I open my eyes, trying to adjust my vision to the cold light. After blinking a few times, I’m able to see more clearly. In front of me was a classroom. Even though the rooms seemed clean; it gave off a freezing cold. I keep looking around. The wooden tables and chairs seemed a little taller now. On the wall is a colorful poster. It’s the only thing that gives off some kind of warmth. I remember! - I created that poster in art class. My lips turn into a smile. It’s one of my happiest memories. My art teacher always encouraged me to draw how I feel. Lonely, I felt lonely. Everyone was afraid of me since nasty rumor spread about me killing my father. I didn’t want to be alone anymore. A warm hand reaching out to me, asking if I want to be their friend. My teacher was incredibly impressed by my work that they put my poster up for everyone to see. I felt special for once, in a good way. I keep walking around the cold room, shaking and freezing. My eyes scanning my old middle school classroom. My gaze catches a few written words on the blackboard.  
 

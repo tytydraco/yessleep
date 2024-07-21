@@ -1,0 +1,19 @@
+2015 - Kaziranga, Assam.
+
+We, family of 4 + 4 + 2, went on a two week trip across Assam from Kolkata. It's my parents, grandmother, paternal aunt and her husband and their two kids along with the travel agent/ family friend and his wife. We booked two cars and reached the bungalow in Kaziranga at around 8 pm in the night. I vividly remember the night because it was the first time I had seen a moon that bright red. It was Purnima and the surroundings were lit with this light golden light from the moon. It was breathtaking.
+
+Our bungalow was located near the edge of the National Park - it was a one-storeyed house which had its own lawn in the front. There were only 5 rooms along with a big restaurant and a large sitting room. Right in front of the bungalow, there was an unfinished house, two of whose rooms were left bare with two walls still undone. Right next to it, there was a big coconut tree, in whose shade we would sit in the front lawn.
+
+Before I start retelling the incident, I need you all to know that my uncle claims to see the super-natural. We have grown up hearing this, listening to him recall his experiences in various situations in the most dark/ empty of places. None of our trips as a family were complete without us kids cornering him and making him tell us a ghost story that he swears came from experience. But we also believed that he made most of those up. As it seemed quite difficult for us to believe that he has actually experienced all of those situations.
+
+Coming back to the incident, it seemed that everything was normal when we reached the bungalow that night. The cook, the manager and his wife welcomed us and after a brief rest, we had a light dinner as we were planning to wake up early the next day for our elephant safari.
+
+Next morning, when we met at the car, I was still drowsy. When I was sitting in the car, I saw something in white stand behind the car next to the edge of the property staring at us. Thinking it was probably the cook's wife, I gave it no thought. On way to the Park, my uncle was asking my aunt in hushed whispers if everything was alright with her. It was on our way back from the safari that my uncle confessed that he couldn't sleep last night because he heard sniffling sounds all through out the night. Obviously it wasn't my aunt, that and coupled with the fact that he saw a silhoutte in white run past the lawn back and forth (there were sheer curtains drawn), it was a very spooky situation.
+
+After having our breakfast, it was the travel agent's wife who asked the cook if the other lady (managers wife) stays in the bungalow at night. He replied in the negative saying she goes back to their house which is next door to take care of the kids. All of us recounted the creepy incidences that happened and I kid you not, the man ran inside and came out the manager.
+
+Their first response was to convince us not to leave! They kept saying that the area of the bungalow is protected, there was nothing in here that could harm us. We forced them to tell us everything after threatening them that we would leave if he doesn't.
+
+Basically the story goes like this - this lady killed herself in the small under constructed building right next to the bungalow a couple decades back. Since then, that building is haunted and the lady is seen often by tourists and villagers crying and screaming. Several months back, some tourists had a terrible time when they saw the lady inside the bungalow - she had climbed up on the coconut tree and according to the driver of that tourist family, he could see her swing the tree back and forth. After that incident, the manager had done a bit puja in the property and even tried to reconstruct that building next door but after the construction workers fell sick, they stopped the project and let it be that way.
+
+We finished our evening car safari and hightailed our ass out of that hotel that night.
