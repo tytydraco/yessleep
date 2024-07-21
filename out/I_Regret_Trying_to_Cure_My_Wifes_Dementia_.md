@@ -62,7 +62,7 @@ Lisa turned around. Her eyes a pale yellow instead of her ocean blue that used t
 
  
 
-She looked down at Willow as a look of shock shot across her face. Holding the Willow close to her chest as tears streamed down her face mixing with her blood-stained cheeks washing it away. My heart thumping in my chest I reached a weary hand out towards her.
+She looked down at Willow as a look of shock shot across her face. Holding Willow close to her chest as tears streamed down her face mixing with her blood-stained cheeks washing it away. My heart thumping in my chest I reached a weary hand out towards her.
 
  
 
