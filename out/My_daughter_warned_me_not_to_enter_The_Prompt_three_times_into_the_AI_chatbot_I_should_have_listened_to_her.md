@@ -8,7 +8,7 @@ I was sitting at the dinner table with my eight year old daughter, Emma, when sh
 
 I knew what she meant by "went away," but those words didn't exactly do justice to what had really happened. Truth is, just a week earlier, Emma's friend's parents, The McClarrens, left their house and ended up drowning in a river nearby. Leaving the walls of their apartment marked with the words  "Drove she ducklings to the water" and their seven year old son parentless. 
 
-And the scariest thing of all... police found no evidence of fowl play.
+And the scariest thing of all... police found no evidence of foul play.
 
 "Oh yeah, and why's that, Emma?"
 
