@@ -1,3 +1,12 @@
+ORIGINAL POST: https://www.reddit.com/r/nosleep/s/QGiakyhkNV
+
+UPDATE #1: https://www.reddit.com/u/TomWritesTrash/s/wGhO2vj5HE
+
+UPDATE #2: https://www.reddit.com/r/nosleep/s/lEwYBBIoZZ
+
+~
+
+
 Sick.
 
 That's how I felt watching the truck crawl across the parking lot of the motel.
