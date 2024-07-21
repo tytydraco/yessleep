@@ -78,7 +78,7 @@ The final entry of Patrick’s diary is transcribed below.
 
 *Fr. Joseph O’Reilly, our pastor, suffered from a heart attack the previous night. I was assuming his duties in the parish until he made a complete recovery. Yet something bothered me.*
 
-How could she possibly know about it?
+*How could she possibly know about it?*
 
 *No one in the parish knew of his heart attack. I had yet to tell them.*
 

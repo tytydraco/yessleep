@@ -62,7 +62,7 @@ I went to my bag and I pulled out my clothes and I put them on, then I heard thr
 
 There was no one in the hallway. 
 
-I put the duct tape on the peeping hole, I then went to bed.
+I felt fear wash over me,I put the duct tape on the peeping hole, I then went to bed, hoping that i am safe.
 
 I heard knocking again but I ignored the knocking and in the morning when I opened the door I saw on the ground a iron tray which had food,I picked up the food and locked the door. 
 
@@ -137,6 +137,8 @@ As soon as he went to call the cops I started walking towards the second floor a
 "Hey, are you the resident in the room 36? You should later this day leave your door unlocked so that the staff can enter and bring you food" 
 
 I stared at him, I didn't make any facial expression or say anything, but I clearly noticed that his left eye was noticeably larger than the other eye and that his left arm is slightly longer than his right arm, he didn't have any eyebrows and. his left foot also is clearly broken but he walked completely normal when he approached me.
+
+I have to be honest,I was scared,my heart was beating fast and when I spoke I felt as if I would let out a high pitch yelp.
 
 "Where is the hotel snack machine? I want to buy some snacks to eat" 
 
