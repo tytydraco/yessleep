@@ -206,7 +206,7 @@ It was about 11:00 pm and things were going okay. Some of the managers were poki
 
 “Ah come on man, lighten up. I see you are new here, what’s it like working here? You see any real action?”
 
-Mr response was simply asking,
+My response was simply asking,
 
 “What type of bag would you like sir?”
 
@@ -322,4 +322,4 @@ I did not think anything of it at first but I looked closer at the Kanji by the 
 
 I had worked almost an entire month at “Death’s night time convenience and grocery”.
 
-I did not go back, I quit. I will find another way to make the rest of the money I need. My family's safety is what is important now and I know it is not safe for me and Dani here anymore. How could it be? When Mr. Death knows where you live.
+I did not go back, I quit. I will find another way to make the rest of the money I need. My family's safety is what is important now and I know it is not safe for me and Dani here anymore. How could it be? When Mr. Death knows where we live.
