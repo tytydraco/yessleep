@@ -57,12 +57,11 @@ The creature swayed from side to side in rhythm with my husband's dancing before
 
 I was suddenly sick to my stomach as he started having sex with the creature. Just as I was about to run back to my car in disgust, I watched as the Praying Mantis bit down on his head and began chewing it like an apple as my husband came. 
 
-When the whole mating ritual ended the men in white overall dragged my husband’s headless body to another room. 
+When the whole mating ritual ended the men in white overalls dragged my husband’s headless body to another room. 
 
 I was overwhelmed with a barrage of emotions, fear, disgust, and grief, that I didn’t know whether to cry or scream. 
 
-My legs felt like jelly as I made my way around the back to see what they were doing with my husband's body. 
-
+My legs felt like jelly as I made my way around the back. 
 A bright light radiated from one of the windows at the back of the building. The source of the light came from large heat lamps that hovered over a group of large eggs. 
 
 Some seemed to be rattling as if they were ready to hatch. The torment of watching my husband die barely sank in when all of a sudden a man who looked identical to my husband emerged from one of the eggs. 
@@ -91,6 +90,6 @@ That Praying Mantis was the answer to my prayers. I’m cured and feel better th
 
 “A part of me believed him and he did look healthier,” I thought to myself as I walked over and threw my arms around him. 
 
-But just as I was about to forgive I watched as a green translucent film of flesh spread across his eyeballs as he blinked, sending a shiver of dread down my spine. 
+But just as I was about to forgive him I watched as a green translucent film of flesh spread across his eyeballs as he blinked, sending a shiver of dread down my spine. 
 
 
