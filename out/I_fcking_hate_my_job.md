@@ -1,0 +1,31 @@
+ Content Warning:  >! adult language and mention of children in possible distress.!<
+
+I know, so does everyone else, but this is getting ridiculous. This job involves long days, unruly clientele and micromanaging higher-ups. It’s not even just me, the other employees are just as miserable. We’re heavily understaffed and underpaid. We’re told that it’s because “nobody wants to work” and “nobody has applied”…but, those are bullshit excuses. Corporate doesn’t do shit for morale, we stopped getting pizza parties months ago. The pizza tasted like it was dug out from a dumpster, anyway, so it wasn’t really a loss. I’m sorry in advance, I just need to rant.
+
+ I’m called Rags. I work in a high-end assisted living facility, called HomeSafe Living, owned by HomeSafe Industries. This facility is a solid concrete building that exists underground. Its cold, soulless rooms and halls are unsuccessfully disguised by gaudy wallpaper, and mismatched carpets. No matter how thoroughly the place is maintained, it all seems to stain so easily.
+
+ Our building’s layout is broken up into 3 floors. “A” is the top floor; it’s where the kitchen and storage room are, as well as the entrance. “B” is the middle floor where all of our live-units are located. “C” is the bottom of the facility; that’s where you can find the Community Center and the Clinic.
+
+Our roster is compiled of; a Runner, Cook, Cleaner and a Medic. I’m a Runner, which means I have to routinely deliver food and supplies to all units’ drop-boxes in a timely manner. This involves constant running up and down stairs while our residents behave like animals. Last week I delivered dinner to Mrs. Fink in unit B2; and when I returned the following morning to drop off breakfast, I noticed her dinner was smeared all over the carpet. I honestly would quit, if I didn’t also live here.
+
+ Employees are required to live within their HomeSafe Living facility. We are on-call for every small request, so it doesn’t make sense to live outside of the building. Whereas some might label us as “caregivers”,  we are treated more like indentured servants. We sleep on cots in the main storage room, and shit in a bucket that we rarely get time to empty. Though our living quarters are noticeably of lower quality than those belonging to our residents; getting to live somewhere rent-free is still a pretty sweet deal these days.
+
+Mind you, HomeSafe Living facilities are not for getting rid of grandmas, they are for housing the most prominent elites of society and their families. They are our “Members”. These folks willingly paid unbelievable amounts of money to live in these fancy units. It is our job to make the experience feel like a never ending vacation, until they return to their real homes. We have yet to be informed on when that might be.
+
+ \~Every\~ module and hall in the facility has a screen that keeps track of everything going on at all hours; it’s running on a system called the Telly. She’s our “boss” and enforces expectations set by HSI. The system communes like an AI, but also controls the functions of the whole building. Her screens broadcast everything from short-form content and cartoons for the kids, to government propaganda and porn for adults. Her screens are how we receive assignments. Once an assignment has come through, we have ten minutes to get to the corresponding module. If a caregiver is late while rendering service, it is reflected in their monthly performance review.
+
+ Any pay we receive is a stipend that can only be used at the facility’s commissary. The commissary is located in the kitchen; stale snacks and toiletries are available there at market prices. We are not allowed to partake in any of the fresh food that is located in the kitchen; it’s to be prepared for members only. The amount of the stipend we receive, depends heavily on our score from the performance review. Last month I got a 90/100, which got me $90 for commissary until the following month. The less-than-perfect score was due to an assignment where I tripped on the stairs while running to a unit, and twisted my ankle. This made me late by 6 minutes.
+
+ We get major holidays off; but if we work on those holidays, we get double the stipend after our next review…we can’t afford not working those days. Our Members wouldn’t ever take care of themselves for a day, so I think it’s set up that way on purpose. None of them care to interact with “the help”…but, sheesh, some of their kids sure love to yell when the box is open.
+
+ In fact, I can’t remember the last time I’ve even *seen* one of our Members up close. I’m not permitted to enter the units. All I know is that they stink…or at least their homes stink. Our Cleaner, Louse, is always hard at work keeping things spiffy from what I can see; so I doubt it’s from job negligence. Earlier tonight,I was bringing the Taylor family their dinner, and this awful sour smell almost knocked me on my ass when I opened their box. However, it’s not nearly as bad as the sticky sweat smell coming from the Community Center.
+
+Recently, one of my coworkers have stopped showing up for work. Our Cook, Mar, hasn’t been seen in the kitchen or our living quarters. Mar’s Employee account was erased completely, including her stipend balance. I worked with her more directly than the others, she had the most optimistic attitude out of anyone else. “It could always be worse”, she would tell me when I’d complain. I never would have guessed that she would be one to quit. Nobody even saw her leave.
+
+ The most fucked up part is that the Telly never even bothered to tell us what happened to Mar, or find a proper replacement. All we got was an update that came through on the Storage Room screen; I was to be shackled with doing the duties of a Cook ONTOP of my Runner duties. All I eat is junk food from the commissary, I barely remember *how* to cook. I now am responsible for preparing meals for Members as well as delivering supplies, within the same ten minute timeframe. Louse and our Medic, Roach, were sympathetic yet relieved that their jobs were unaffected. I am beyond pissed.
+
+ Thanks for letting me vent! – Rags
+
+ 
+
+By G. Baker
