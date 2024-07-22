@@ -410,6 +410,8 @@ Construction has been halted. Can only imagine why.
 
 In the meantime, I’ll be returning with more offerings for the False Tree. It's hurt, too. The only way we can stop more attacks like this is to rebuild our relationship with the forest. I'm also going to try to get in touch with that construction company, try to get them to reconsider. Maybe if they won't listen to the locals, they'll listen to someone who saw what happened to their workers. 
 
+Edit: [More worms! Yay! Just what I wanted!](https://www.reddit.com/r/nosleep/s/n7yL49hsUg)
+
 [(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
 
