@@ -78,7 +78,7 @@ It was late by the time I finished, and I was just as confused as when Detective
 
  
 
-“Really dad? You couldn’t do that yourself”
+“Really dad? You couldn’t do that yourself?”
 
  
 
@@ -101,4 +101,3 @@ I opened the front door and carefully closed it behind me before bolting up the 
 File 1 was named "Warning". My hands trembled as I clicked on the video. My fears were soon realised as a figure wearing the same costume as the figure from the video "Prophecy", shuffled into frame. The camera was facing the door that opened outside the shed as the figure stood within the door frame holding their hands together just as the video "Prophecy" started. It was dark outside. The figure stood in the doorway for 2 minutes before entering the building and walking over towards the camera. Just before reaching the camera, red and blue lights flashed in the background from within the forest. The light seemed to fill the whole room inside as the figure broke into a sprint towards the camera. They picked up the camera and positioned it to face the baby before panning the frame towards the door as the person filming made a sign as if to cross themselves . The video ended with the figure picking up the baby and making their way to the door.
 
 I was crying at this point. Why did my dad have this? I wasn't convinced. Surely, this wasn't my dad. Surely it was just like how the "Born Tapes" were found and he had just bought them at a flea market... Right? I frantically clicked on file 5, which was titled "Proud." There seemed to be a passage of time by this point as the camera started from within a dark room in front of an open door. In the room beyond, the camera showed a boy sat on the edge of a motel bed. The boy looked roughly around the age of eight.... it was me. My stomach dropped. My mind raced. I don't know what to do, but I have to watch the rest. I have to get the rest of those cameras from under my Dad's bed.
-
