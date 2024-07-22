@@ -2,7 +2,7 @@
 
 As the sun begins to rise, casting an eerie glow through the dense fog, the crime scene becomes a flurry of activity. CSI teams in white suits swarm the area, their movements meticulous as they comb through the marsh, documenting and collecting every scrap of evidence with clinical precision.
 
-Audry and I watch them from a distance, our hands stuffed into the pockets of our jackets as a shield against the morning chill. Their careful movements unearth more than just the sad remnants of hurried flight. With each brush and marker set down, the layers of the night's horrors peel back, revealing deeper, darker secrets etched into the earth and trees around us.
+Audrey and I watch them from a distance, our hands stuffed into the pockets of our jackets as a shield against the morning chill. Their careful movements unearth more than just the sad remnants of hurried flight. With each brush and marker set down, the layers of the night's horrors peel back, revealing deeper, darker secrets etched into the earth and trees around us.
 
 One of the forensic technicians, a young woman with sharp eyes and a steady hand, calls us over. "Hey, detectives, you need to see this!"
 
