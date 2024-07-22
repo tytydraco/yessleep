@@ -90,7 +90,7 @@ My heart ached for a brief second. She had forgotten all about it.
 
  
 
-She shrugged her shoulders and went back to cooking. She asked about Willow every morning and every morning I played into the narrative that he was missing. I stopped my rituals for a while but then her dementia started to get worse again. I couldn’t bear to see her that way. No matter what I had to do I wouldn’t just sit by and let her slip away again. I went back to my rituals. I performed them twice a day now, once in the morning and again at night. I bought weighted blankets to make sure she wouldn’t get up in the middle of the night, but it only got worse. I woke up in the middle of the night to her thrashing unable to free herself from the blanket as she swung wildly, yellow glistening across her eyes. I had to jump on top of her and pin her arms down keeping her there until she exhausted herself and went back to sleep.
+She shrugged her shoulders and went back to cooking. She asked about Willow every morning and every morning I played into the narrative that he was missing. I stopped my rituals for a while. I think they were doing something to her. Possession maybe? It never happened during the day, only ever at night. Her dementia started to get worse again. I couldn’t bear to see her that way. No matter what I had to do I wouldn’t just sit by and let her slip away again. I went back to my rituals. I performed them twice a day now, once in the morning and again at night. I bought weighted blankets to make sure she wouldn’t get up in the middle of the night, but it only got worse. I woke up in the middle of the night to her thrashing unable to free herself from the blanket as she swung wildly, yellow glistening across her eyes. I had to jump on top of her and pin her arms down keeping her there until she exhausted herself and went back to sleep.
 
  
 
@@ -98,11 +98,12 @@ I couldn’t ignore it anymore. If I were to keep my rituals going, then she nee
 
  
 
-I had set a hitchhiker up in the guest room just as I did for the past couple of weeks. I didn’t ask his name, but he was just as eager as the rest at the chance of free accommodation. My alarm was set for 3 AM. I had done this a couple of times now; my body had adjusted to this new sleep schedule and my life was beginning to have some sense of normality back to it despite the morbid situation. I didn’t wake to my alarm that night. I felt something wet drip onto my forehead. Out of all the places in my house I just had to have a leak above my pillow as the storm raged outside my window. I tried to dismiss it, but it grew more gradual and the droplets larger. Wiping my eyes with my hand I looked up…. my stomach dropped. Lisa was on the ceiling above me, her limbs arranged like a spider’s would be, thick strands of drool streamed from a malformed snout; her dirty blonde hair hanging downwards seemingly encasing her entire head, and her glistening yellow eyes. She was wearing her white nightgown, but it was stained with blood. Had she already killed the hitchhiker? Had she forgotten she’d already had a sacrifice?
+I had set a hitchhiker up in the guest room just as I did for the past couple of weeks. I didn’t ask his name, but he was just as eager as the rest at the chance of free accommodation. My alarm was set for 3 AM. I had done this a couple of times now; my body had adjusted to this new sleep schedule and my life was beginning to have some sense of normality back to it despite the morbid situation. I didn’t wake to my alarm that night. I felt something wet drip onto my forehead. Out of all the places in my house I just had to have a leak above my pillow as the storm raged outside my window. I tried to dismiss it, but it grew more gradual and the droplets larger. Wiping my eyes with my hand I looked up…. my stomach dropped. Lisa was on the ceiling above me, her limbs arranged like a spider’s would be, thick strands of drool streamed from a malformed snout; her dirty blonde hair hanging downwards seemingly encasing her entire head, and her glistening yellow eyes. She was wearing her white nightgown, but it was stained with blood. Had she already killed the hitchhiker? Had she forgotten she’d already had a sacrifice? That thing had taken hold of her.
+
 
  
 
-“Lisa! Lisa don’t!”
+“Lisa! Lisa don’t! Let go of her!”
 
  
 
