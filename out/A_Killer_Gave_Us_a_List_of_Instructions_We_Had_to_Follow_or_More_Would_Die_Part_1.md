@@ -286,34 +286,32 @@ She's dressed in the Santa Muerte costume, seated on a wooden chair in a dimly l
 
 She glances off-camera nervously, as if awaiting a cue or fearing a reprimand, before her eyes return to focus on the camera. Her hands tremble slightly as she holds up a piece of worn paper, reading from it in a shaky voice.
 
-"Mi nombre... mi nombre es Lucía Álvarez. Tengo catorce años y soy de Zamora, Michoacán," (My name... my name is Lucia Alvarez. I am fourteen years old, and I am from Zamora, Michoacan,) she begins, her voice a whisper.
+"Mi nombre es Lucía Álvarez. Tengo catorce años y soy de Zamora, Michoacán," (My name is Lucia Alvarez. I am fourteen years old, and I am from Zamora, Michoacan,) she begins, her voice a whisper.
 
-She swallows hard, her eyes darting off-camera again before continuing, "Tengo un mensaje del Dispersador de Cenizas para aquellos que han visto la muerte de cerca pero han sobrevivido.” (I have a message from the Scatterer of Ashes to the ones who have seen death closely but survived.)
+She swallows hard, her eyes darting off-camera again before continuing, "Tengo un mensaje del Dispersador de Cenizas para aquellos que han visto la muerte de cerca y han sobrevivido.” (I have a message from the Scatterer of Ashes to the ones who have seen death and survived.)
 
 "Dice que deben seguir estas instrucciones exactamente como los describo," (He says… he says you must follow these instructions exactly as I describe them,) she reads, her eyes scanning the paper.
 
 Lucía's voice grows even more tremulous as she reads from the crumpled sheet, each word spoken with reluctant precision.
 
-"Paso uno: Vayan a la vieja capilla de San Pedro, en las afueras de Calexico. Allí, encontrarán una cruz invertida enterrada en el desván." (Step one: Go to the old chapel of San Pedro, on the outskirts of Calexico. There, you will find an inverted cross buried in the attic.)
+"Paso uno: Vayan a la vieja capilla de San Pedro, en las afueras de Otay Mesa. Allí, encontrarán una cruz invertida enterrada en el desván." (Step one: Go to the old chapel of San Pedro, on the outskirts of Otay Mesa. There, you will find an inverted cross buried in the attic.)
 
 Audrey pulls out a pen and notepad, jotting down each word with meticulous care. Her hand moves swiftly, ensuring nothing is missed.
 
-"Paso dos: Enciendan una vela negra al pie de la cruz y reciten el Salmo 23 al revés." (Step two: Light a black candle at the foot of the cross and recite Psalm 23 backwards.)
+"Paso dos: Debajo de la cruz, encontrarán una caja de huesos pertenecientes a la Serpiente Emplumada, Quetzalcóatl." (Step two: Beneath the cross, you will find a box of bones belonging to the Feathered Serpent, Quetzalcoatl.) Lucía’s voice shakes as she continues, her fingers clutching the paper tightly.
 
-"Paso tres: Traigan la tierra de la tumba de un asesinado y esparzanla en un círculo alrededor de la cruz." (Step three: Bring soil from the grave of a murdered person and scatter it in a circle around the cross.)
+"Paso tres: Coloquen los huesos sobre el altar de piedra que verán en el centro de la capilla. Ordenen los huesos en forma de espiral, desde el más grande hasta el más pequeño, hacia el centro." (Step three: Place the bones on the stone altar you will see at the center of the chapel. Arrange the bones in a spiral form, from largest to smallest, towards the center.)
 
-"Paso cuatro: Ofrezcan sangre de tres animales distintos—un cuervo, un perro y un caballo—en el mismo lugar." (Step four: Offer the blood of three different animals—a crow, a dog, and a horse—at the same place.)
+"Paso cuatro: Enciendan una vela en las cuencas de los ojos del cráneo en honor al Señor del Día y de los Vientos." (Step four: Light a candle in the eye sockets of the skull in honor of the Lord of the Day and the Winds.)
 
-"Paso cinco: Esperen hasta la medianoche y luego quemen una efigie del Señor del Inframundo mientras todos los presentes pronuncian su nombre tres veces." (Step five: Wait until midnight and then burn an effigy of the Lord of the Underworld while all present chant his name three times.)
-
-Lucía’s eyes brim with tears as she concludes, "Esto debe hacerse antes de la próxima luna nueva para aplacar al que cosecha almas." (This must be done before the next new moon to appease the one who harvests souls.)
+Lucía’s eyes brim with tears as she concludes, "Esto debe hacerse antes de la próxima luna nueva para aplacar al dios desollado." (This must be done before the next new moon to appease the Flayed God.)
 
 "Si no cumplen con exactitud," she adds, her voice breaking, "más como yo morirán." (If you do not comply exactly, more like me will die.)
 
-Lucía's eyes widen with a dawning realization of her fate. She glances off-camera again, her voice trembling as she implores her captor, "Por favor, hice lo que pediste. ¡No quiero morir!” (Please, I did what you asked. I don’t want to die!)
-
-Her plea is desperate, raw with the terror of a girl who knows she is speaking her last words.
+Lucía's eyes widen with a dawning realization of her fate. She glances off-camera again, her voice trembling as she implores her captor, "Por favor, hice lo que pediste. ¡No quiero morir!” (Please, I did what you asked. I don’t want to die!) Her plea is desperate, raw with the terror of a girl who knows she is speaking her last words.
 
 Tears stream down her face, smudging the white paint and dark lines, transforming her death mask into a tragic, melting visage. Her small frame trembles with sobs, and she clutches at the paper, crumpling it in her hands. The desperation in her eyes is unbearable.
 
 The screen goes black suddenly, the abruptness of it like a door slamming shut, leaving only the hollow echo of Lucia's screams in the otherwise silent predawn. The cries taper off, dwindling into a stifled whimper that chokes off mid-breath, leaving a chilling silence in [its](https://new.reddit.com/r/PageTurner627Horror/comments/1cu31vv/broken_dawn/) [wake](https://new.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/).
+
+[Part 2](https://new.reddit.com/r/nosleep/comments/1e8cj5m/a_killer_gave_us_a_list_of_instructions_we_have/)
