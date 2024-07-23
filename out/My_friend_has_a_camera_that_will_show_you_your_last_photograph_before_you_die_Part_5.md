@@ -379,3 +379,7 @@ She’d kissed me.
 I’d eaten Thai peanut noodles.
 
 And Maribel was deathly allergic to [peanuts.](http://www.reddit.com/r/blairdaniels)
+
+---
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1e9x2e4/my_friend_has_a_camera_that_will_show_you_your/)

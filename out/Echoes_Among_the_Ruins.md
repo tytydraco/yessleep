@@ -1,4 +1,4 @@
-What I'm about to recount happened to me in late summer 2021, and it's something I haven't been able to stop pondering. The prologue, as we could call it, happened back in spring 2020, and it has actually been explained. But the rest... I wonder if I'll ever get any answers to that.
+What I'm about to recount happened to me in late summer 2021, and it's something I haven't been able to stop pondering. It happened back in spring 2020, and it has actually been explained. But the rest... I wonder if I'll ever get any answers to that.
 
 There are really only two things you need to know about me. Firstly, I love hiking in the woods and fields. Without my daily walks, I feel like I'm climbing the walls. I'm no wilderness expert, and it's not about exercise or any kind of digital detox; it's just about being alone in environments where I always feel safe. My daily hiking excursions take place in my local area and rarely last more than a couple of hours, so I don't need to carry a lot of gear. In summer, it's just a water bottle, and maybe a notebook if I spot something interesting.
 
@@ -90,8 +90,4 @@ I can't help but wonder why. In an area that has been inhabited for so long and 
 
 There is indeed something strange about the lake. I've been back several times since last summer and never seen a single bird on the water or in the air above it. It's always eerily calm, regardless of the wind, and last winter when even the nearby sea and the inflow to the marshes started to freeze, the lake remained unfrozen. It's as if the world is holding its breath there.
 
-I don't know if what Lass and I found in the stone cottage should be described as illegal, supernatural, or just secretive. All I know is that in the forest where I live in Maryland, there's a piece of land that seems unusually resistant to change. Where the berries grow larger than anywhere else, and where there's a lake that resists any name. Where dead birds point the way to a house where someone - or someones - with unusual hunting luck feast the ravens.
-
-Thank you for reading.
-
-Follow me on my social "YT" Lurid Hub
+I don't know if what Lass and I found in the stone cottage should be described as illegal, supernatural, or just secretive. All I know is that in the forest where I live in Maryland, there's a piece of land that seems unusually resistant to change. Where the berries grow larger than anywhere else, and where there's a lake that resists any name. Where dead birds point the way to a house where someone - or someones - with unusual hunting luck feast the [ravens.](https://www.youtube.com/channel/UCAKDy2C2epnlNnlwYJa32aQ)
