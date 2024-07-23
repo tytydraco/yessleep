@@ -52,7 +52,7 @@ I looked down at the speaker next to me as the song ended. A sticker was stuck o
 
 “Nah, no way dude. No way.” I shook my head several times.
 
-“I don’t know man the coincidence is too freaky. I mean look at how weird this setup is anyway. I think I saw that speaker the other day too, retails for about 1000 dollars. Top of the line stuff. Why would anyone just leave out here, playing a song way past the middle of the night?”
+“I don’t know man the coincidence is too freaky. I mean look at how weird this setup is anyway. I think I saw that speaker the other day too, retails for about 1000 dollars. Top of the line stuff. Why would anyone just leave it out here, playing a song way past the middle of the night?”
 
 At that moment, my faint flashlight flickered dead. I swore under my breath and tossed it to the side, seized by the sudden darkness we were pitched in. The half light of the moon hardly shone through the cover of clouds. A shroud of bushes not too far away rustled, followed by the sharp snap of a twig. Not a moment later, footsteps. My blood ran cold.
 
