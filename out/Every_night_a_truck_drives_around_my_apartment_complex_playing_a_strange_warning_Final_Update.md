@@ -89,7 +89,7 @@ A handful of satellite dishes and antennae protruded from the trailers flat roof
 
 The trailer itself had been painted a matte jet black, seperating itself from the whites and browns of every other one. Uriel, as if reading my mind, said:
 
-"EMF paint." *click* "keeps the signals out" *twitch*
+"EMF paint." *click* "keeps the signals out" *twitch* "it messes with technology, breaks things."
 
 He opened the driver door and stepped out, motioning for me to follow. I obliged. Up a short staircase we went, the porch piled high with boxes and trash bags. I tried to wait patiently as he unlocked the door, suddenly feeling very exposed outside.
 
