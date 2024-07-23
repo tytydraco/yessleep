@@ -104,9 +104,9 @@ Her grin widened. “$40 for the room.” She offered the key to us, seemingly p
 
 “Eat?” She seemed surprised. “Best not to linger when it gets dark. There’s a vending machine with snacks. I’m sure you’ll be okay.”
 
-I glanced outside; darkness had fallen swiftly, cloaking the town like a shroud. “Okay…” I nodded.
+I glanced outside; darkness had fallen swiftly, cloaking the town like a shroud. “Okay…” I nodded. “Do many people come this way?” I asked thinking back on the ledger.
 
-The woman took the money. “Have a great day, sir.”
+The caretaker paused before she took the money, her smile widening slightly. “They come when they are needed.” She took the money. “Have a great day, sir.”
 
 “Sure.” I turned to step away, but her grip suddenly tightened on my wrist, making me look back. Her eyes pleaded, and her teeth gleamed brightly as her smile stretched her wrinkled skin. I stood there in confusion as her grip tightened. “Have a great day, sir.”
 
@@ -346,10 +346,12 @@ He handed me the papers, which I gladly took. But they didn’t move. He was gri
 
 “You got anything to say to me, sir?”
 
-My neck craned again, as if an unseen force was controlling my movements. My entire body was on fire from fear. My muscles ached as the invisible claws dug deeper into my shoulders. My eyes shook from the pain as my cheeks tightened, pulling further and further apart in a smile too large for my own face.
+There was a menacing threat in the tone of his voice. I glanced down and saw he was gripping his pistol still in the holster. 
+
+My neck suddenly craned upwards, as an unseen force began controlling my movements. My entire body was on fire from fear. My muscles ached as the invisible claws dug deeper into my shoulders. My eyes shook from the pain as my cheeks tightened, pulling further and further apart in a smile too large for my own face.
 
 “Have a great day…sir.”
 
-The policeman smiled widely back, almost in wicked greeting. His grin was unsettlingly familiar.
+The policeman smiled widely back, almost in wicked greeting. His hand left the gun as his smile grew wider to match my own.
 
 “And you have a great day too, sir.”
