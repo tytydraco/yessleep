@@ -110,7 +110,7 @@ The line goes dead, leaving a small echo of static that fades into the stillness
 
 — We spend the early part of the afternoon gearing up, pouring over maps and checking our equipment twice. Audrey and I, along with a couple of seasoned officers from Martinez's team, load up our SUVs with everything we might need—night vision goggles, body armor, and more firepower than I'd like to think necessary.
 
-As the morning sun lifts the dense fog just enough to lend an eerie glow to the surroundings, our convoy heads out. Audrey and I are in the lead SUV, the mood tense but focused. We're heading to the chapel, the supposed site of the next ritual according to Lucia's chilling message. Meanwhile, the second team is making their way to the quarry, moving in quietly with the hopes of catching our suspect off guard.
+As the late afternoon sun lifts the dense fog just enough to lend an eerie glow to the surroundings, our convoy heads out. Audrey and I are in the lead SUV, the mood tense but focused. We're heading to the chapel, the supposed site of the next ritual according to Lucia's chilling message. Meanwhile, the second team is making their way to the quarry, moving in quietly with the hopes of catching our suspect off guard.
 
 We maintain open lines of communication, each vehicle fitted with radios tuned to a secure channel. The static crackles occasionally, the voice of Sergeant Rodríguez from the Sheriff’s Department checking in, his tone clipped and business-like. "Team two approaching the quarry perimeter. All quiet so far."
 
@@ -134,7 +134,7 @@ I gesture to Audrey, pointing towards the cross. "There," I whisper, my voice ba
 
 With a nod, I crouch down, pushing aside a pile of debris to reveal a small, rectangular area that's been disturbed recently. The dirt is looser here, contrasting with the compacted filth around it. I use my hands, the cool soil sifting through my fingers, until they meet the hard edges of something solid.
 
-"Found something," I announce, my voice low and steady despite the pounding in my chest. The others gather around as I pull out a small, wooden box. It's old, the wood swollen from moisture, but it's what's inside that counts.
+"Found something," I announce, my voice low and steady despite the pounding in my chest. The others gather around as I pull out a large, wooden box. It's old, the wood swollen from moisture, but it's what's inside that counts.
 
 I open the box slowly, hinges creaking quietly in the heavy silence of the chapel. Inside, a collection of bones lies in disarray—femurs, ribs, vertebrae, each more chilling than the last. They are not uniform; their sizes and shapes vary, suggesting they belong to different individuals. Each bone bears the scars of violence, with cut marks and scrapes where flesh was once forcibly stripped. It's a gruesome patchwork of human remains, each piece telling a silent, horrific story of its own.
 
