@@ -14,7 +14,7 @@ The gigantic trees loomed into each other at the tops, creating a canopy of dark
 
 It was almost pitch black now and I flipped on my flashlight as I began thinking about bears or whatever else I could bump into out here, then at the exact same time, I saw another flashlight flicker to life somewhere down the trail.
 
-It was kind of weird, because there were all the reasons to head *into* town, but heading out this way? There were only a couple other houses by my friends that seemed to be inhabited by retirees with lawn ornament obsessions, and I doubted they had the youthful energy to be doing a beer run. Nevertheless, I continued walking, with only the sounds of my footsteps and blood in my ears to keep me company with my new acquaintance.
+It was kind of weird, because there were all the reasons to head *into* town, but heading out this way? There were only a couple other houses by my friends that seemed to be inhabited by retirees with lawn ornament obsessions, and I doubted they had the youthful energy to be doing a beer run themselves. Nevertheless, I continued walking, with only the sounds of my footsteps and blood in my ears to keep me company with my new acquaintance.
 
 I could make out a silhouette of the stranger now, he appeared to be my height, but my flashlight wasn't the strongest and there wasn't much for the weak beam of light to bounce off of in the darkness.
 
@@ -24,7 +24,7 @@ I could feel my heart rate picking up as we got closer and closer, I stepped to 
 
 There was maybe 12 feet between us now. I took a step back. And so did the man. I shined my flashlight at his feet, he however, didn’t copy me. I noticed we were wearing the same adidas sneakers. I started to slowly raise my flashlight and realized we were wearing the exact same outfit, but he was filthy, like he had been buried for a few days then dug up.
 
-With a shaking hand and my heart in my throat, I slowly raised the flashlight to his face and blinked twice. I had never felt fear so cold and blunt. It was like somebody had ran a bath filled with every nightmare I had ever had in my life, then held my head under the water.
+With a shaking hand, I slowly raised the flashlight to his face and… kind of blanked out. I had never felt fear so cold and blunt. It was like somebody had ran a bath filled with every nightmare I had ever had in my life, then held my head under the water.
 
 I was staring back at myself. My face. Even the little scar on my chin I had gotten from falling into my parents coffee table as a kid was there.  But this wasn't me, it *couldn't* be me.
 
