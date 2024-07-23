@@ -20,6 +20,6 @@ I was about to be sick when my daughter slowly turned to face me. Her face had c
 
 She danced in horribly perfect lockstep with the man. Though she didn’t seem to be processing pain, I could hear her joints snap due to the unnatural range of motion the dance demanded. 
 
-Neither of them blinked or broke eye contact as they backed into the woods together, their movements perfectly synchronized.
+Neither of them blinked or broke eye contact as they backed into the woods together, their movements perfectly synchronized. 
 
-It’s been three years. No trace of my daughter or the dancing man has ever been found. 
+No trace of either my daughter or the dancing man has ever been found.
