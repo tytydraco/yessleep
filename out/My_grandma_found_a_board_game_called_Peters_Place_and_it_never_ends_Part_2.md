@@ -94,7 +94,7 @@ He grabbed a clump of my grandmother’s hair and dragged her towards the churni
 
 “*Every* day with you is a bad day,” He said. “No wife of mine will entertain wild ideas of working in the *city*. If you were to let others gaze upon you, I… I… Well, I would do something worse than this, Belle. Something far worse. Better that it end this way, my darling. *I will make it quick.*”
 
-In a moment of violent abandon, driven by some primal urge to survive, Grandma transformed from a timid girl into an emboldened fighter. She snatched her husband’s lower arm, halting him moments before the first blonde strand was bitten by the frightful metal jaws of the machine. Reflexively,the man’sfingers loosened, releasing her hair.
+In a moment of violent abandon, driven by some primal urge to survive, Grandma transformed from a timid girl into an emboldened fighter. She snatched her husband’s lower arm, halting him moments before the first blonde strand was bitten by the frightful metal jaws of the machine. Reflexively, the man’s fingers loosened, releasing her hair.
 
 Gerald eyed her fearfully, stunned by her sudden counter-move. “What the *devil* are you doing, Annabelle? Unhand my arm, or I’ll make it far slower. Far—”
 
@@ -118,7 +118,7 @@ Moreover, she finally *saw* me. Wherever we were, present or past, she saw me.
 
 “HELP!” She wailed.
 
-“Grandma!” I cried,desperate to save her.
+“Grandma!” I cried, desperate to save her.
 
 But my eyes were drawn to the open factory doors. A second scream had sounded from outside, and the doorway revealed a forest. The woodland behind Grandma’s house. My chest started to rapidly pound as I distinguished two shapes bobbing clumsily above the tree line, disturbing leaves as they came closer. *Two gargantuan heads*, belonging to things that lurched towards a girl in the grass. She lay in a clearing just before the tree line, arms raised to defend herself from the misshapen horrors.
 
@@ -132,17 +132,17 @@ As the factory doors closed behind me, I swivelled around to find not a building
 
 She was gone.
 
-I screamedfor her, tears staining my face, butGrandmadid not answer my call. Instead,pluckedfromadarkcreviceof the field, came a black stallion. One withan eyeless face andskinpeeling fromits bones.A steadthat Idid not wantto approach.However,whenI noticed the holstered sword tied to its reins, and heardanotherscreamfromMikayla, I realised I’d already chosenthis fate.
+I screamed for her, tears staining my face, but Grandma did not answer my call. Instead, plucked from a dark crevice of the field, came a black stallion. One with an eyeless face and skin peeling from its bones. A stead that I did not want to approach. However, when I noticed the holstered sword tied to its reins, and heard another scream from Mikayla, I realised I’d already chosen this fate.
 
 The horse and the broadsword.
 
 I mounted the unholy creature, which came from some world below or parallel to ours. Then, facing the looming terrors, I booted the stirrups and galloped ahead. The vile entities came into view, and I recognised their tattered rags. The navy uniforms from our old high school. Beneath the warped faces, with bleeding eyes and terrifying, fanged smiles, I sensed something familiar about the monsters.
 
-“Emmett?” My sistergaspedas Idismountedthe horse,clutchingthe broadsword in a shaky hand.
+“Emmett?” My sister gasped as I dismounted the horse, clutching the broadsword in a shaky hand.
 
 I tried to stop the tears. Tried to swing the blade and bring the nightmare to an end, but some invisible, impenetrable obstacle stood in my way. I let a cry slip free as the abominations started to stagger towards me, the insect standing between them and Mikayla.
 
-“Emmett…”Shewhimpered. “It said*I*had to wield it.”
+“Emmett…” She whimpered. “It said *I* had to wield it.”
 
 With eerie ease, I found that I dropped the weapon into my sister’s arms, and she quickly stumbled to her feet. My head throbbed as I stepped backwards. Beads of sweat trickled down my brow.
 
@@ -156,19 +156,19 @@ Grandma had died a horrible death.
 
 And I had chosen that.
 
-“They tormented meat school,” Mikayla finally blubbered, dropping the sword to the ground and running into my arms.
+“They tormented me at school,” Mikayla finally blubbered, dropping the sword to the ground and running into my arms.
 
 Then my sister raised her sleeve, revealing healed scars. The marks of ancient cigarette burns.
 
 “Not just physically, but…” My sister tapped her head, sniffling into my jacket. “And none of this is real, is it? It’s all that awful game. That–”
 
-“–Oh, it’s real,” Iinterrupted. “Grandma’s dead. And I killed her. I… I…”
+“– Oh, it’s real,” I interrupted. “Grandma’s dead. And I killed her. I… I…”
 
 “You chose to save me,” Mikayla finished, finally understanding. “You didn’t know. You didn’t know what you were choosing!”
 
 “I know,” I whispered.
 
-She clutched me tightly. “Have wefinished the game, Emmett? Weall reached The House. Wecompleted thefinalEvent. We–”
+She clutched me tightly. “Have we finished the game, Emmett? We all reached The House. We completed the final Event. We–”
 
 My sister was not interrupted by a sound, but a dull ringing. One that replaced all other noise. In my peripheral vision, I saw Mikayla’s lips continue to move, but I heard only static. A flurry of wasps in my brain, swarming to signal the arrival of something from a place beyond Hell.
 
@@ -176,7 +176,7 @@ I eyed a dark shape that emerged from the tree line. A silhouette I recognised f
 
 He was little more than a black outline, but the motion of his form was well-communicated. He was strolling with insidious intent. Strolling towards us. Or, rather, towards *The House*. My head snapped around to face Grandma’s property hundreds of yards behind us.
 
-“RUN!” Iyelled.
+“RUN!” I yelled.
 
 My sister lifted her head, eyes not quite meeting the forest, but I know she saw it. She pretended not to see, but I read her face.
 
