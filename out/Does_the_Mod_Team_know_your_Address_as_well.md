@@ -1,18 +1,18 @@
-Hey guys, I just wanted to ask a question of the community as I'm having a bit of a weird experience. Everyone knows that the mods of this sub are fairly strict, right? If you've ever written a story for the forum then you'll almost certainly have fallen foul of one rule or another and seen that dreaded  "Your post has been removed from r/nosleep" message pop up a few minutes after you hit submit. They're pretty cool normally and let you rework whatever didn't fly, setting up your series properly or making sure there's plot or whatever, but this situation has me a little concerned.
+Hey guys, I just wanted to ask a question of the reddit community as I'm having a bit of a weird experience. Everyone knows that website mods are fairly strict, right? If you've ever written a story for a writing forum then you'll almost certainly have fallen foul of one rule or another and seen that dreaded  "Your post has been removed" message pop up a few minutes after you hit submit. They're pretty cool on most sites and let you rework whatever didn't fly, setting up your series properly or making sure there's plot or whatever, but this situation has me a little concerned.
 
-I recently popped out a story about a sort of grey laziness-ghost. Bit of a commentary on my own procrastination tendencies, it was this creature that sapped the protagonist's will to do things and made him into a pile of goo - I'll fully admit it was self-indulgent and not my best work. Anyway I put it up a week ago and not a minute later saw the damn notification pop up. Checking what was wrong though I found it was a rule I hadn't noticed before:
+I recently popped out a story about a sort of grey laziness-ghost for one of the horror forums. Bit of a commentary on my own procrastination tendencies, it was this creature that sapped the protagonist's will to do things and made him into a pile of goo - I'll fully admit it was self-indulgent and not my best work. Anyway I put it up a week ago and not a minute later saw the damn notification pop up. Checking what was wrong though I found it was a rule I hadn't noticed before:
 
-_"Not a scary personal experience"_
+_"Not scary enough."_
 
-Obviously since this is a horror sub the scariness of stories is a given, so this was a rule I hadn't broken before. I asked what they meant exactly, and the message came back:
+Obviously since it was a horror forum the scariness of stories is a given, so this was a rule I hadn't broken before. Confused, I asked what they meant exactly, and the message came back:
 
-_"Your story needs three things: A horror-themed event, a consequence, and Fear"_
+_"Your story needs the character to show Fear to post here. Please show us the Fear."_
 
 Weird. My story had my character being scared of the lazy ghost, but re-reading showed me that it was more about the procrastination than the fear and it could honestly have done with him reacting more. Grumbling a little I made the edits and re-submitted. The notification popped up again, even quicker this time.
 
-_"You're still missing the Fear, Alex."_
+_"You're still missing true Fear, Alex."_
 
-This is where I started getting concerned and wanted to ask opinions from the community. I don't have my name on my profile anywhere and haven't mentioned it in any posts, and yet the nosleep mod seemed to know it. Maybe I'd linked to something connected to my name in the past, but it's strange for a mod to find that and then use my first name in an official message, right? It came from the proper nosleep account and everything.
+This is where I started getting concerned and wanted to ask opinions from the community. I don't have my name on my profile anywhere and haven't mentioned it in any posts, and yet the moderator seemed to know it. Maybe I'd linked to something connected to my name in the past, but it's strange for a mod to find that and then use my first name in an official message, right? It came from the proper account and everything.
 
 Either way I was creeped out, and also annoyed that this person was seemingly targeting my story. I lashed out a little, editing the work to make the MC almost comically terrified, screaming and gibbering at the sight of a dumb ghost that definitely didn't merit the reaction. Submitting again, I specifically asked for a different mod to review it.
 
