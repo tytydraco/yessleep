@@ -1,6 +1,6 @@
 *The following contains a transcript from a short radio broadcast that has been picked up by various listeners across the continental United States. Many have been perplexed by its sudden appearance and how it seems to preempt whatever song or radio program they are listening to at the time. It has even been known to appear on streaming programs such as podcasts or Spotify. Listeners have described hearing different episodes and there have been many different situations and incidents.*
 
-*Stephanie and Jennifer were two sisters in their early twenties. They had both been together when they heard the program known as* The Rules of the Road. *I spoke with both of them to get a separate account of their experience with the cursed rule.* 	
+*Stephanie and Jennifer were two sisters in their early twenties. They had both been together when they heard the program known as* The Rules of the Road. *I spoke with both of them to get a separate account of their experience with the cursed rule.*
 
 *I was unavailable when Stephanie first contacted me. Her message was skeptical, with a hint of distress underneath. Unfortunately, I didn't get a hold of her until a few weeks later, after the rule had already decided what it was going to do.* 
 
@@ -8,7 +8,6 @@
 
 *But my therapist says I shouldn’t beat myself up over this. I’m only one person. I deserve a break every now and then.*
 
-  
 **Jennifer**
 
 When I was in fifth grade, this one kid would always tell the same dirty joke. Back then, we all told inappropriate jokes, sharing them in the back of the class with whispers and giggles, even though we didn’t understand them half the time. 
@@ -23,8 +22,6 @@ I remember it to this day. 
 
 The joke goes something like this:
 
-
-
 *There's this old married couple. They're sitting on a porch, rocking in their rocking chairs, drinking lemonade, watching the sunset.*  
 
 *All of a sudden, the wife gets up out of her chair and smacks her husband in the face, really packs a wallop.* 
@@ -37,9 +34,7 @@ The joke goes something like this:
 
 *"What was that for?" she sputters, taking off her glasses and wiping her eyes.* 
 
-*"*That*," he says, "is for knowing the difference."*
-
-
+*"That," he says, "is for knowing the difference."*
 
 The joke didn't really land back in fifth grade. We hardly knew what sex was and definitely not *bad* sex. 
 
@@ -57,8 +52,6 @@ Because, yeah, Jen was really insecure. She kinda went unnoticed in high school 
 
 I'm not going to say it's an ugly duckling situation, because she was never *ugly* to me, but she really came into her own once she hit college, at least I think so anyways. 
 
-
-
 **Jennifer**
 
 Before college, I had never had a boyfriend. Not really. 
@@ -74,8 +67,6 @@ Easy for her to say. She had always been the pretty one. The skinny one. Little 
 I wish she had told me before I got to college to not fall too hard for the first guy that paid me any attention. 
 
 Because, maybe I would've had my guard up. Maybe I would've taken things more slowly. Maybe I wouldn't have gotten so involved so soon,with a deep and unhealthy attachment.
-
-
 
 **Stephanie**
 
@@ -217,8 +208,6 @@ My stereo was on low, yet the quacks drowned out the music. It was coming from t
 
 Then, this old-timey happy cowboy guy got on the radio, started talking.
 
-
-
 ***Howdy folks! We’re taking a little detour from our regularly scheduled programming of “The Rules of the Road” to try a lil’ something different. Today I’d like to introduce y’all to a new segment called “Duck Facts.” Yes, it’s time to learn about our fair feathered friends.***
 
 ***Did ya know a boy duck is a drake and a girl duck is a hen? Did ya know that drakes have corkscrew shaped dongs? And there is a purpose to it and it’s not just because they’re big fans of cabernet. The hens have little ducky hoohas that are the reverse of that corkscrew. Like the rest of us they’re out here trying to find the right fit, the one that will fit them like a key to a lock.***
@@ -283,8 +272,6 @@ At dinner she was distracted, constantly checking her phone. 
 
 We didn’t pass any of the signs on the way back to her apartment. When I dropped her off, I told her I loved her.
 
-
-
 **Jennifer**
 
 There was this oppressive sense of dread when Stephanie dropped me off. Toward the end of the day, I had received some cryptic texts from Zach and I just wasn’t in the mood to face whatever was in store for me at our place. But as I crossed the courtyard to our place, I could see something scattered on the walkway, something red leading in a trail toward our apartment. 
@@ -341,7 +328,7 @@ Zach was in his usual place. Parked on the couch with his eyes glued to the TV s
 
 “Hey,” I said. “You know when I told you about that radio broadcast that Stephanie and I heard?”
 
-“The Rules of the Road? The fanmade thing?” 
+“The Rules of the Road? The fanmade thing?”
 
 “I mean, I guess it could’ve been fanmade. It was pretty creepy.”
 
@@ -367,7 +354,7 @@ He sighed, set his controller on the coffee table, blinked a few times. “Okay,
 
 “I know, I know. I’ve been slacking. Gotta keep it in check. Hey, how about you give me the list of duck approved foods? I’ll take care of everything.”
 
-#
+# 
 
 The day was hot as hell. Miserably humid with air you could practically drink. A heat that clung to you and made every corner of your body sticky with sweat.
 
@@ -415,8 +402,6 @@ The engine just clicked and wouldn’t turn over. I tried again and again. Nothi
 
 I didn’t even have the energy to scream. Could only sink into the driver’s seat, my legs melting into the floorboards. 
 
-
-
 **Stephanie**
 
 Jen called me that night. A complete mess. She was certain that this was the end. I tried to talk her through it, tried to make the notion of a killer radio broadcast as absurd and ridiculous as it sounded. 
@@ -430,8 +415,6 @@ Jen called me that night. A complete mess. She was certain that this was the end
 “I guess.”
 
 But what really pissed me off was Zach. Of course he would find a way to fuck this up.
-
-
 
 **Jennifer**
 
@@ -449,13 +432,9 @@ There in the parking lot, while we waited for a jump, I lost it on him. Not even
 
 “Whatever. You’re overreacting.” 
 
-
-
 **Stephanie**
 
 Later, I got to doing my own searching for “The Rules of the Road.” This was against all rational thought. I found your blog and series of posts on all of the previous cases. Even though these case studies seemed outrageous, it honestly started to freak me out a bit. 
-
-
 
 **Jennifer**
 
@@ -467,3 +446,4 @@ Later, that shape I had seen previously? It was getting closer. 
 
 I could see the ridged spine of its back as it slithered through parked cars, platypus-like on four legs, legs that ended in clawed, webbed feet. It faded out from this plane to the next, gone in an instant, but I knew that it was only a matter of time before it got closer, before it was time for it to feed.
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/1e9sl78/the_duck_feeds/)
