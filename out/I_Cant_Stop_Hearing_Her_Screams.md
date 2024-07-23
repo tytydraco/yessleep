@@ -6,7 +6,7 @@ At first, it was the memories. They slipped into my mind so gently that I mistoo
 
 Then came the pain. It wasn't mine—no, it was Élodie's. Her migraine, a crushing vice around the skull, shared generously among us. It was then we realized what had happened; the spores had bound us together, not just in memory, but in body and soul.
 
-The escape from those cursed tunnels was a nightmare. Every scrape and fall was felt by all. When Tom twisted his ankle, the shared agony almost brought us to our knees. But the worst was the fear, multiplied by four, a looping feedback that grew with each shadow and echo in that godforsaken labyrinth.
+The escape from those cursed tunnels was a nightmare. Every scrape and fall was felt by all. When Matthieu twisted his ankle, the shared agony almost brought us to our knees. But the worst was the fear, multiplied by four, a looping feedback that grew with each shadow and echo in that godforsaken labyrinth.
 
 Getting out into the open air didn't help as we'd hoped. The connection didn't fade as we'd prayed it would. Instead, it solidified, deepened. We became unable to function alone. We moved together, ate together, slept together. Individuality was slipping away, a sandcastle at high tide.
 
