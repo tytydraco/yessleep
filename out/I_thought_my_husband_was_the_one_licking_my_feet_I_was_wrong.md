@@ -14,7 +14,7 @@ Yup, really getting in there with his tongue and slobbering all over each of my 
 
 Now, it took me years of exploring my husband's kink, to build up enough tolerance not to burst out laughing from the tickling sensation within 30 seconds.
 
-And after four years of dating, and nearly ten years of marriage, I eventually became something of a pro at getting my fight licked and maintaining my composure.
+And after four years of dating, and nearly ten years of marriage, I eventually became something of a pro at getting my feet licked and maintaining my composure.
 
 In fact, I got so good at it, that whenever my husband would lick my toes, I could completely tune it out, often multitasking things like filing my nails, reading a book, and streaming a show, as he licked away. Heck, sometimes I'd even fall asleep while he did it.
 
