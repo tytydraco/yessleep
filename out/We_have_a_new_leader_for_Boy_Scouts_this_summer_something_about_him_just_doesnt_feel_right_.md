@@ -1,7 +1,7 @@
 
 I've always loved the Boy Scouts. The campfires, the badges, the camaraderie – it was my escape from the monotony of small-town life. But that summer, the summer of 1994, everything changed. It was the summer that never really ended, at least not in my mind.
 
-My name's Jack, and I was twelve years old when Mr. Coldwell became our new Scout leader. Looking back, I should have known something was off from the very beginning.
+My name's Jack, and I wa fourteen years old when Mr. Coldwell became our new Scout leader. Looking back, I should have known something was off from the very beginning.
 
 It was late May, and our troop was gathering for the first meeting of the summer at the old community center. The peeling paint and musty smell were as familiar to me as my own bedroom. I took my usual seat between my best friend, Thatcher, and the ever-fidgeting Spork (yeah, that was his real name – his hippie parents had a lot to answer for).
 
@@ -264,10 +264,6 @@ As I sat there in the early morning light, turning the stone over in my hands, I
 The hunt was on. And this time, I wouldn't be the prey.
 
 Little did I know, this decision would lead me down a path darker and more terrifying than anything I had experienced so far. The true nature of the lake, the cosmic horror that lurked beneath its placid surface, was something my young mind could scarcely comprehend.
-
-But that's a story for another time. For now, let me just say this: if you ever find yourself camping near a lake that seems just a little too perfect, if you meet a Scout leader whose smile doesn't quite reach his eyes, run. Run as fast and as far as you can.
-
-Because once the lake chooses you, it never truly lets you go.​​​​​​​​​​​​​​​​
 
 As I sat there, the lake stone cold in my palm, a grim determination settled over me. I knew what I had to do.
 
