@@ -32,7 +32,7 @@ The next morning we were greeted by bird song and a bright morning sky, the rain
 
 My parents and I moved away soon after, thus going to stay at my grandmother’s home during summer was no longer possible. As time went on, memories of my grandmother’s house began to fade, until they were no more than a blur in the collection of memories that made up my childhood.  The beast and the door were forgotten, and those eyes ceased to plague my nightmares. 
 
-That was until today, however, when they all came rushing back. 
+That was until today, however, when it all came rushing back. 
 
 My grandmother passed away last week, you see. As such, the entire family has flown out to her house for the funeral, including myself. While wandering around on the first floor today, I found that same hallway from all those years ago. That stench of mold still dominated the air as though it were sealed within the walls, making my stomach churn. 
 
