@@ -38,7 +38,7 @@ I only had to glance at the screen to know it was my father.
 
 The phone vibrated again. 
 
-“Noah Joseph Prestley.” Dad’s voice was like nails on a chalkboard when I finally gave up and answered my phone. “What on *earth* do you think you are doing?”
+Dad’s voice was like nails on a chalkboard when I finally gave up and answered my phone. “What on *earth* do you think you are doing?”
 
 “I have a better question.” I said, stirring my dregs. “Who wrote those texts?”
 
