@@ -1,3 +1,5 @@
+I've been trapped in an alternate dimension for 2 months [part 2]
+
 [part 1](https://www.reddit.com/r/nosleep/comments/1e8bzho/ive_been_trapped_in_an_alternate_world_for_2/)
 
 # part 2
