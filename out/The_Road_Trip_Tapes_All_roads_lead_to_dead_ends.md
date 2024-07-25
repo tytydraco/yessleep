@@ -134,4 +134,4 @@ I’ve contacted Detective Crawford. We’re currently investigating both the �
 
 Part 1- [https://www.reddit.com/r/nosleep/comments/1e9jhdz/the\_born\_tapes\_my\_life\_has\_been\_changed\_forever/](https://www.reddit.com/r/nosleep/comments/1e9jhdz/the_born_tapes_my_life_has_been_changed_forever/)
 
- 
+Part 3- [https://www.reddit.com/r/nosleep/comments/1ec8phz/the\_second\_born\_i\_wasnt\_the\_only\_one\_to\_be/](https://www.reddit.com/r/nosleep/comments/1ec8phz/the_second_born_i_wasnt_the_only_one_to_be/)
