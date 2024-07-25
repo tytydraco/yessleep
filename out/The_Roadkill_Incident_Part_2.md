@@ -120,7 +120,7 @@ The light from within spilled out and he stood there, a haunting figure in the d
 
 Kevin’s screams were shrill, bloodcurdling. He was being brutally mauled by the thing. It picked him up, shaking him like a dog toy, then dropping him and repeating. His flesh was torn and flung all over the place. Amidst his screams, he shouted things that saddened me deeply. 
 
-“MOMMY! NO MOMMY NO I LOVE YOU!” Kevin’s cries echoed through the room as the creature continued to maul him. After a minute or so, he was dead, his body flopping to the floor like a ragdoll, blood pooling. The creature then turned its attention to me, giving me that same, godforsaken smile it gave me earlier.
+“MOMMY! NO MOMMY NO I LOVE YOU!” Kevin’s cries echoed through the room as the creature continued to maul him. After a minute or so, he was dead, his body flopping to the floor like a rag doll, blood pooling. The creature then turned its attention to me, giving me that same, godforsaken smile it gave me earlier.
 
 I turned and ran for my shotgun. Just as I grabbed it and turned around the thing was right behind me. I fired, the blast sending it reeling, but it was still alive. Struggling to get up, I realized I had no more shots on me. I dropped the gun and reached for the crowbar. The abomination rose to its feet glaring at me with a malevolent intensity. It began to step towards me slowly, growling, its teeth vibrating ominously. 
 
@@ -170,5 +170,4 @@ I’m sorry, Kevin. I’m sorry about your mom and all the pain you endured toni
 
 Every time I close my eyes I can see the weeping willow. In the corner of my eye in the hallway, I think I can see my grandmother peeking her head around the corner smiling at me unnaturally. I can catch a glimpse of a blue butterfly fluttering in her direction. I think I’m going to find some shells for my shotgun because I can hear them outside now. I don’t want to burn alive in my last moments. To everyone who knew me, and everyone who didn’t, goodbye.    
 
-
-
+[The Roadkill Incident (Part 1)](https://www.reddit.com/r/nosleep/comments/1eas9mm/the_roadkill_incident_part_1/)

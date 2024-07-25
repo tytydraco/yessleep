@@ -238,7 +238,7 @@ The mechanic began to play a song then, its slow melody sinister as it reverbera
 
 My flashlight picked up the glow of eyes in front of us. I directed its beam to illuminate what they belonged to. At first, it looked like a white deer, but the longer I stared at it, the less sure I was. 
 
-Its white fur looked slimy, spotted with dirt and dried blood, most of the grime situated around its long neck. Unlike the animals I've seen infected in the past, its stomach wasn't bulging. Its pale blue eyes were clear rather than wild and confused. I noticed then that the white stag’s antlers were in strange jagged patterns, all sharp angles in contrast to a typical buck's curved ones. The shape of its skull was weird as well, the nose more sloped, the eyes seeming to sit closer enough to face forward.
+Its white fur looked slimy, spotted with dirt and dried blood, most of the grime situated around its long neck. Unlike the animals I've seen infected in the past, its stomach wasn't bulging. Its pale blue eyes were clear rather than wild and confused. I noticed then that the white stag’s antlers were in strange jagged patterns, all sharp angles in contrast to a typical buck's curved ones. The shape of its skull was weird as well, the nose more sloped, the eyes seeming to sit close enough together to face forward.
 
 It stood unnervingly still, not blinking as it watched us. Slowly, the skin on its face peeled away like the petals of a meaty flower, revealing the largest worm I’d seen yet, roughly the diameter of a grown man's thigh. 
 
