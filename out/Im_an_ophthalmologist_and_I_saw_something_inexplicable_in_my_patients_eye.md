@@ -1,6 +1,6 @@
 "Anna, can you room the next patient?" I asked, glancing up from my notes.
 
-"Sure, he'll be in Room 5," she replied, heading down the hallway.
+"Sure, she'll be in Room 5," she replied, heading down the hallway.
 
 I quickly reviewed the patient's history that Anna had written up. The lady had been complaining of a haze that seemed to come and go and occasional stabbing pains in her left eye that began several days ago. Nothing way out of the ordinary, really. It was probably just a combination of floaters and dry eye. In my mind, the diagnosis was already locked and loaded, but just out of precaution, the patient was dilated to make sure there wasn’t anything going on with her retina. Satisfied with my guess, I took off my readers, picked up my laptop, and entered Room 5.
 
@@ -8,7 +8,7 @@ I quickly reviewed the patient's history that Anna had written up. The lady had 
 
 "It’s nice to meet you too," she replied, her voice tense.
 
-Mrs. Myers was a young lady, her hands clutching her handbag in the exam chair, her face hidden behind a pair of sunglasses far too large for her face.
+Mrs. Myers was a young lady, her hands clutching her handbag in the exam chair, her eyes hidden behind a pair of sunglasses far too large for her face.
 
 "Sorry for the sunglasses, doc. Since yesterday, my eyes have been really sensitive to light."
 
@@ -18,7 +18,7 @@ Faint alarm bells started to ring in my head, but I pushed the thought aside for
 
 "Well, it’s just my left eye, really. Since Saturday, I feel like my vision's been getting worse, like a fog's been building up. And I get these shooting pains from time to time. It almost feels like someone is poking my eye from the back. I had lunch with a friend on Friday who had similar symptoms at the time. I was wondering if it’s a weird form of pink eye or something?"
 
-"Alright, Mrs. Myers, let’s take those sunglasses off, and we'll get a look at what’s going on with your eye."
+"Could be. How about let’s take those sunglasses off, and we'll get a look at what’s going on with your eye."
 
 "Oh, of course," she said, removing the oversized sunglasses.
 
