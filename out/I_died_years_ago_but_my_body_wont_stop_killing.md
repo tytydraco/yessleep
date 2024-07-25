@@ -12,7 +12,7 @@ Here I was. I shook the mans hand. He wasn't disgusted by me. Why?
 
 I used it to buy food and sent the rest to my daughter. I just stared at him.
 
-We went through security. They searched every inch of me. Guard tried to take off my wedding ring. Punched him in the jaw. They pinned me down. The doctor waved them off. Said to let me pass.
+We went through security. They searched every inch of me. Guard tried to take off my wedding ring. Punched him in the jaw. They pinned me down. The man waved them off. Said to let me pass.
 
 A room. Steel table, steel chairs. Single light above. Felt like an interrogation. Felt like a trap.
 
@@ -72,7 +72,7 @@ I was confused, but I said yes anyways. I looked up at the man.
 
 "Good."
 
-The room was completely silent. The guards left. It was dark. I felt alone.
+The room was completely silent. It was dark. I felt alone.
 
 Tester: "You're at a farmers market next Sunday morning. It's hot out. You're examining a display of homemade jams when you overhear an elderly woman asking the vendor about the difference between boysenberry and blackberry preserves. Ezekiel.
 
@@ -94,7 +94,7 @@ Me: Eggek.
 
 Another flash.
 
-Tester: Ezikel.
+Tester: Ezekiel.
 
 Me: Ez..ikiel.
 
@@ -150,7 +150,7 @@ They threw me out. In the street. In the rain.
 
 I tried to run. I tried to get away. They found me. 9:30 a.m. I was there. They summoned that thing again. The thing inside me. They talked to it. It knew things. Knew things nobody could know. They made me look at things. It knew what it was. It knew where it was.
 
-Once they knew they had me under their control they sent me out. They gave it control. Memory comes in waves. Everyone died. I killed people. I ate people. I forced myself to vomit the next morning. Tried to empty my stomach of the flesh and sinew.
+Once they knew they had me under their thumb they sent me out. They gave it control. Memory comes in waves. Everyone died. I killed people. I ate people. I forced myself to vomit the next morning. Tried to empty my stomach of the flesh and sinew.
 
 I can't die anymore. I've tried. First thing I did was cut my wrists. Woke up the next day with "Not letting you go." painted on my wall. Pills. Asleep. Awake. Tried a gun. Blacked out before I loaded it. Woke up with it disassembled on the floor.
 
