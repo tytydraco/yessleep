@@ -62,3 +62,5 @@ Although I did offer, Alicia refused to see the letter, and actually got aggress
 Of course. Right on cue. No idea how they end up coordinating the knocking so that it's in so many places at once, and I'm not sure if's the boy from the house or one of the other ones that come around, but it's about the time of year they start trying to get in. Hopefully I still have a bag of assorted candy in the cabinet I can leave out after they go away for the night.
 
 In the meantime, I look forward to answering your questions and seeing the names you give me. Even if it riles things up off schedule here.
+
+Next part: [https://www.reddit.com/r/nosleep/comments/1ebl1xm/the\_death\_collector\_part\_6/](https://www.reddit.com/r/nosleep/comments/1ebl1xm/the_death_collector_part_6/) (I didn't realize I miscounted until too late, sorry!)

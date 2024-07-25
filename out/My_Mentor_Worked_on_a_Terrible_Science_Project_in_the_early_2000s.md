@@ -118,4 +118,4 @@ His words drift again. The machines he is hooked up to start to quicken their pa
 
 He shakes his head again.
 
-‘And now we just have to hope we never see Professor Willow’s vision of the final century [come to fruition](https://www.reddit.com/r/MJLPresents/comments/q2qjz1/%D2%93%D1%8B%D0%BB%D1%8B%D0%BC%D0%B8_%D2%9B%D0%BE%D0%BD%D0%B4%D1%8B%D1%80%D2%93%D1%8B/.%E2%80%99).
+‘And now we just have to hope we never see Professor Willow’s vision of the final century [fruition](https://www.reddit.com/r/MJLPresents/comments/q2qjz1/%D2%93%D1%8B%D0%BB%D1%8B%D0%BC%D0%B8_%D2%9B%D0%BE%D0%BD%D0%B4%D1%8B%D1%80%D2%93%D1%8B/.%E2%80%99).
