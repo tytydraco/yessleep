@@ -26,7 +26,7 @@ With that, he left. I picked up the camera, the USB cord already attached, and f
 
  
 
-The first file was titled “Meal”. The video was shot from a first-person perspective and lasted all of 1 minute. The person filming was sitting in a café as a waitress walked over to their table and placed down a coffee and 4 slices of toast on a plate. The camera was then placed down on the table as the person’s hands came into the frame above. They had brown sleeves, and their hands were impossibly grimy. They picked up a slice of toast and began to tear away the crust. Once done, they picked up the coffee and placed the crustless toast on the plate beneath. They then slid the plate to the side of them in front of the seat beside them in the booth. The camera was then picked back up and was now facing the empty space beside them where the plate was placed in front of. The camera remained in this position for 10 seconds before the person reached out their hand and patted the empty seat. The video then ended.
+The first file was titled “Meal”. The video was shot from a first-person perspective and lasted all of 1 minute. The person filming was sitting in a café as a waitress walked over to their table and placed down a coffee and 4 slices of toast on a plate. The camera was then placed down on the table as the person’s hands came into the frame above. They had brown sleeves, and their hands were impossibly grimy. They picked up a slice of toast and began to tear away the crust. Once done, they picked up the coffee and placed the crustless toast on the plate beneath. They then slid the plate to the side in front of the seat beside them in the booth. The camera was then picked back up and was now facing the empty space beside them where the plate was placed in front of. The camera remained in this position for 10 seconds before the person reached out their hand and patted the empty seat. The video then ended.
 
  
 
@@ -102,5 +102,4 @@ File 1 was named "Warning". My hands trembled as I clicked on the video. My fear
 
 I was crying at this point. Why did my dad have this? I wasn't convinced. Surely, this wasn't my dad. Surely it was just like how the "Born Tapes" were found and he had just bought them at a flea market... Right? I frantically clicked on file 5, which was titled "Proud." There seemed to be a passage of time by this point as the camera started from within a dark room in front of an open door. In the room beyond, the camera showed a boy sat on the edge of a motel bed. The boy looked roughly around the age of eight.... it was me. My stomach dropped. My mind raced. I don't know what to do, but I have to watch the rest. I have to get the rest of those cameras from under my Dad's bed.
 
-  
 Part 2- [https://www.reddit.com/r/nosleep/comments/1eak6t3/the\_road\_trip\_tapes\_all\_roads\_lead\_to\_dead\_ends/](https://www.reddit.com/r/nosleep/comments/1eak6t3/the_road_trip_tapes_all_roads_lead_to_dead_ends/)
