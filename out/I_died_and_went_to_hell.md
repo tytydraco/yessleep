@@ -1,6 +1,6 @@
 Me and a few of my friends decided to meet up the other day and after a few drinks started talking about weird things that happened to us during our high school years. One of them brought up the time I “technically” died and it got me thinking about it, so I decided write down what happened and share it with you guys.
 
-I believe it was my junior year that it happened, the exact day is still kinda fuzzy to me. I played football since I was in 4th grade and it was a no brainer that I would do it in high school. I wasn’t any Tom Brady but I’ll say I was a pretty good center. I remember it was a night game cause the stadium lights were on and our running backs were complaining that they couldn’t see the ball because of the glare from them.
+I believe it was my junior year that it happened, the exact day is still kinda fuzzy to me. I played football since I was in 4th grade and it was a no brainer that I would do it in high school. I wasn’t any Tom Brady but I’ll say I was a pretty good center. I remember it was a night game cause the stadium lights were on and our receivers were complaining that they couldn’t see the ball because of the glare from them.
 
 You know that feeling you get when you did something you weren’t supposed to do? Like when you lie to your parents or break something and try to hide it? That’s what I felt like the entire day before the game. Something felt wrong. Even minutes before the game while the usual music played in the stadium speakers, it still felt wrong. 
 

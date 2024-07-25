@@ -26,7 +26,7 @@ Under the slit lamp, her eyes seemed normal enough, with the exception of her le
 
 I had caught no more than a glimpse of her retina before she shrieked and slapped the lens, knocking it rattling onto the floor. But even without that abrupt interruption, I would have dropped the lens in shock. In that brief, horrifying instant, I saw something that defied all logic—her optic nerve was a pitch-black void, an abyss that seemed to swallow light itself.
 
-The optic nerve usually looks like a donut, with a dark orange outer ring surrounding a brighter inner circle. The inside of Mrs. Myers' optic nerve was pitch black. A perfect little black circle, almost like a miniature black hole had manifested in the back of her eye, absorbing all light passing into it.
+The optic nerve usually looks like a donut, with a dark orange outer ring surrounding a brighter inner circle. The inside of Mrs. Myers' optic nerve was pure darkness. A perfect little black circle, almost like a miniature black hole had manifested in the back of her eye, absorbing all light passing into it.
 
 As my mind spun in a whirlwind of confusion, Mrs. Myers tumbled from her chair, collapsing onto the floor with a shriek that pierced the air. She clutched her hand over her eye, her voice rising in a crescendo of panic. Just then, Anna burst into the room, snapping me out of my stupor. We rushed to her side, dropping to our knees to help Mrs. Myers.
 
