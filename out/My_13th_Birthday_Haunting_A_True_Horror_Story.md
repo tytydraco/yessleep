@@ -1,3 +1,4 @@
+
 Growing up, I was always obsessed with Halloween. Every birthday, I'd throw a spooky-themed sleepover, complete with scary movies and ghost stories. My 13th birthday was no different, or so I thought.
 
 That night, we decided to watch *The Exorcism of Emily Rose*. My aunt, who was living with us at the time, kept warning us that we were inviting bad energy by watching such movies. We brushed it off as superstitious nonsense.
@@ -22,4 +23,3 @@ When I recently spoke to my mom about it, she revealed a chilling detail. The ni
 
 Since that fateful birthday, I haven't celebrated. The fear and the memories are too real, too raw. Was it anxiety or something supernatural? I still don't know. But one thing is certain – some stories stick with you forever.
 
-Here is the video of the same story which will help you to understand the story in a better way, https://youtu.be/zzwXeBHX0Qc?si=wHSQTIbkbWfZC9Nz
