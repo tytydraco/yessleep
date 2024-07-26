@@ -252,7 +252,7 @@ I didn’t even hesitate. I shot up and ran like hell out of the door and into t
 
  
 
-When the sun came up, I wandered around the woods more and eventually made it back to the road. When I made it back to the police department, I told them everything. We’ve had a search party since of everyone from our and the neighbouring department. No one managed to find the shed, or the figure, or Crawford. I don’t know what to do. I can’t look at those videos again. I wish I never did, to begin with. I should have never joined the police. I haven’t been able to sleep since. I still see them. That figure. I don’t know what’s real, but I see them everywhere. I hope you understand why I can’t continue to post about this anymore. I’ve given the cameras to the new guy to have a look at since officers have had to move on to more pressing matters. I’m sorry…. I’m sorry.
+When the sun came up, I wandered around the woods more and eventually made it back to the road. When I made it back to the police department, I told them everything. We’ve had a search party since, of everyone from our and the neighbouring department. No one managed to find the shed, or the figure, or Crawford. I don’t know what to do. I can’t look at those videos again. I wish I never did, to begin with. I should have never joined the police. I haven’t been able to sleep since. I still see them. That figure. I don’t know what’s real, but I see them everywhere. I hope you understand why I can’t continue to post about this anymore. I’ve given the cameras to the new guy to have a look at since officers have had to move on to more pressing matters. I’m sorry…. I’m sorry.
 
 
 
