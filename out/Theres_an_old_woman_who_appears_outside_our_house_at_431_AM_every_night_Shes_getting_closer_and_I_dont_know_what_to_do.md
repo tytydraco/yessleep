@@ -192,4 +192,4 @@ I can hear whispers now. They're coming from everywhere and nowhere at once. I c
 
 There's something moving in the shadows of my room. I can't quite see it, but I know it's there. Watching. Waiting.
 
-Goodbye, NoSleep.
+[Goodbye](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/), NoSleep.
