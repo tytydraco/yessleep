@@ -1,3 +1,7 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1ecitgn/i_stopped_a_serial_killer_but_i_might_have/)
+
+
+
 This is my first time, and likely only time, sharing something here. I’m not even sure what is compelling me, but I’ve got a story that needs to be told, and everyone else I’ve tried to share it with has left me alienated. The department has me on a ‘Mental Wellbeing’ break, clinical talk for ‘suspended until I get my shit together.’ Two counselors I’ve spoken with have said it is PTSD, but I know that isn’t the case. My wife said I was being obsessive and losing touch, but now she has gone to stay with her mom, and based on the manilla envelope the post office informs me is due to arrive soon, I’ve got divorce papers en route. So here I am, writing down what sounds like absolute lunacy while I keep an eye on my surroundings, because in a day or two, I might not be able to bother anyone with this story again.
 
 
@@ -23,8 +27,6 @@ Without further ado, let me tell you the story of how my life has fallen into ru
 
 
 **August 02nd, 2023**
-
-
 
 Summertime in Helox County is unbearably hot, such is life in a high desert. The thermometer topped out at 115 degrees that day, which suspended any planned training for the day, instead we just went through gear checks and hung around the station waiting for any potential callouts. Frankly, I was hoping we would have a peaceful day. There is a weird kind of compromise for a Tactical Team during heatwaves. Usually the vast majority of our callouts is for a barricaded suspect, which during days like these amounts to establishing a perimeter, killing their air conditioning, and letting them swelter until they give up; the other side of that coin is we have to endure that same heat in tactical gear and heavy metal vehicles.
 
@@ -71,8 +73,6 @@ It was 2:15PM when we arrived on scene, entering the hottest part of the day. Th
 
 
 Those words led to an uncomfortable silence, all of us well aware that as we stood there one of our colleagues was now fighting for their life. After a moment, I broke the silence.
-
-
 
 “So what happened here, Lieutenant?”
 
@@ -311,3 +311,6 @@ It is getting late, however. Time for me to try and sleep, and I never know when
 
 
 Cliff B. (07/17/24)
+
+  
+  
