@@ -1,68 +1,131 @@
-I needed closure, I had spent so long slogging through life because of what might have happened that night. I needed to know. 
+I couldn’t go home. Even if this was all in my head I couldn’t get myself to trust Rachel, not after what just [happened](https://www.reddit.com/r/nosleep/s/SxkcgSasg0)
 
-I followed the instructions on Rachel’s note [context](https://www.reddit.com/r/nosleep/s/sSDU4WqZeI) 
+I took an Uber to the police station, I was going to tell them I saw someone breaking into the house. If they didn’t see anything then I would know it was all in my head. 
 
-Maybe I was being stupid. I didn’t care, I was ready for this to end. 
+I paced in front of the building probably looking suspicious as hell. My whole body was a mess of nerves and anxiety. I couldn’t stop moving. 
 
-The address she gave me was that of an older home across town. It wasn’t run down or giving off any massive red flags but it was well last its prime. 
+I just needed to get on with it. I was so deep in my own inner monologue I hadn’t noticed the female officer walking up until she spoke.
 
-I walked up the worn concrete steps, I knocked on the front door. My heart was beating painfully, my anxiety was at a peak. 
+“You doing alright there bud?” I nearly jumped out of my own skin. “Hey now, I didn’t mean to scare you. You’ve been out here awhile, everything ok?” 
 
-Actually I wasn’t ready for this to end, I could happily live my life not knowing for sure. The door opened. 
+It felt like I had just arrived, was I losing track of time? Was she lying? Was I lying? 
 
-Rachel stood there in sweatpants and a T-shirt, she looked disappointed to see me. “You came”. There was a slight tremble to her voice. Her fists were clenched and she stood unnaturally stiff. 
+My silence seemed to worry her, her stance shifted ever so slightly from concern for me to concern for herself. 
 
-Unsure of what to do I just stood there, both of us looking at the other and neither speaking. 
+I tried to force out the words but they died in my throat as soon as I looked at the station. Standing inside looking out one of the windows was the man from the house. He was in a police uniform. 
 
-Rachel shuddered, almost violently. It seemed to snap her out of her weird trance. She waved me forward before walking back inside. She left the door open, I wanted to close the door and go home. But I also wanted answers. And Rachel didn’t seem to be doing so well, if she needed help I couldn’t just leave. 
+I had to focus on literally not shitting my pants. My guts twisted painfully and my heart did that thing where it painfully skipped a beat.
 
-Frustrated with myself I followed her. None of the lights in the house were on. It was lit by some windows but not very well, it had a dim atmosphere that put me off. 
+“I… I just got confused”. I wasn’t sure what I meant by that but it’s all I could get out. She looked at me quietly, I couldn’t read her face. 
 
-My hand instinctively dropped to my waist, I felt the unfamiliar handle hidden under my shirt. It brought me some relief to know I wasn’t helpless. That morning on my way to Rachel’s I made a pit stop at Walmart and bought the biggest cleaver I could find 
+“I’m sorry, I need to go”. I backed away praying she wouldn’t stop me. She glanced up at the man in the window before looking back to me. There was a question in her eyes but I wasn’t going to wait around for it. 
 
-Rachel was waiting in a bare room. She stood with her back to a hallway. There was no mistaking it, she was trembling to the point her knees were almost knocking together. 
+I hobbled as best I could down the street. No one stopped me or followed me. 
 
-I felt the surge of unholy energy swell up inside me, the tightening of my lower back, the lump in my throat. I hate suspense. 
+I didn’t know what to do. 
 
-Every speck of bravado fled my body. From the dark hallway behind Rachel emerged a single thick, wet tentacle. I got a better look this time, the top of it was a dark green and the bottom a lighter green. It looked very similar to the skin of a crocodile. 
+If Rachel was dangerous I couldn’t leave my brother alone with her. But if what I suspected was true and this was all a figment of my imagination, then maybe I was the dangerous one? Did I have some sort of undiagnosed mental illness? 
 
-A tear slipped down Rachel’s face. Her bottom lip quivered as the tentacle slowly wrapped itself around her neck. With a sudden yank Rachel was ripped off her feet and into the dark hallway. 
+I couldn’t go to the police, they would either lock me up for being insane or turn into monsters and tear me apart. Probably the first one. 
 
-I fumbled for the cleaver, I needed to go. I got the cleaver out just as a figure revealed itself. My body locked up, I didn’t know his name but I recognized the guy from around town. 
+I needed to get things straight, I went over that night this all started. I hadn’t drank much, maybe my drink had been spiked? Possibly. But what about today? Just a mental snap from seeing Rachel again? But there was my obviously hurt leg. 
 
-Four of those awful tentacles protruded from bloody holes in his shirt. He spoke, I don’t know why I assumed he couldn’t but I had. 
+I should have recorded the meeting with Rachel, than I would have had video proof of what happened. 
 
-“Welcome, you have been lost for a very long time. Come, return to your home”. I focused on not wetting myself. One of the tentacles reached out for me, it wasn’t moving very fast but it was enough to break my stupor and spur me into action. 
+That’s what I would do, I would go home and talk to Rachel while recording her. And my brother would be there as a witness. 
 
-Dropping down I grabbed the cleaver, I felt the damn thing try to grab my shoulder. I swung with everything I had, the cleaver cut into the tentacle. It wasn’t a deep cut but the monster recoiled in shock. 
+I started walking home. It wasn’t terribly far and I wanted the time to think. 
 
-The man snarled in disgust, “you dare refuse our offering?” The injured tentacle curled up against his body. The other three flailed wildly about the room. 
+Sooner than I would have liked I was at the steps to our house. 
 
-I tried to crawl away, the thing grabbed my leg. It squeezed so damn hard. I hacked at it but it wouldn’t let go. It flung me into the wall. My body ended up crashing all the way through it and I landed dazed in another room. 
+I took a breath to steady myself before opening the door and walking in. The house was quiet, it threw me off, John always had music going or something on the TV. He hated the quiet. 
 
-Tentacles began ripping away drywall and boards enlarging the hole. I scrambled to my feet. My leg was bruised and didn’t feel good but I pressed on. 
+I tried to calm myself but I could feel my heart beating painfully already. I almost walked right past it, in the kitchen sink amongst all the dishes was a towel. It had red splotches on it. 
 
-I made it out the door before the thing got in. Doing my best to run I finally made it to my car. The keys were missing, I had left them in the ignition just in case I had to make a quick getaway. I couldn’t stay, that thing was coming.
+Oh shit, it was blood. It was totally blood. 
 
-Getting out of the car I made my way down the street, I turned down random alleys and hopped fences when ever I could. 
+I needed to chill, if it was blood. And it totally was. It wasn’t much, definitely nothing life threatening. 
 
-After a bit I felt like I was somewhat safe. I hadn’t seen anyone following me. 
+I found John in the living room, he was sitting in his gaming chair. Well not so much sitting as tied to it and gagged. I rushed forward, he mumbled furiously into the gag. 
 
-I felt like I was going crazy, there was no way that all just happened. 
+Right before I reached him I was blind sided by someone. I crashed onto the floor with them on top of me. It was Rachel, she forced her forearm against my throat and shoved her hand into my pocket. She pulled out my phone and jumped to her feet. 
 
-Those kids that were at the party where this all started weren’t missing, I looked them up before going to meet Rachel. They were all living normal lives. This had to be a mental breakdown. 
+I coughed for air while scrambling away from her. She put my phone in the microwave and turned it on. I nearly whimpered but managed to retain my manhood momentarily. 
 
-After walking for an hour the pain in my leg convinced me to call an Uber to get home. 
+She walked up to me, squatting at my level she shook her head in disappointment. “I’ll probably die for this but it’s my fault you got involved in the first place”. 
 
-I pulled out my phone and saw I had ten missed calls from my brother, panic swept through me. He left a voicemail. Shaking I opened it. 
+She grabbed my shirt and pulled me to my feet. Then she flicked open a pocket knife and walked over to John. 
 
-“Yo pick up your damn phone, that girl is here again”. 
+“Wait!” I yelled out. She didn’t stop, using the knife she cut the ropes holding him then returned the knife to her pocket. 
 
-I called him back over and over but it went straight to voicemail. 
+John jumped to his feet, he was pissed. Really pissed. I could see the blood still trickling from his nose. He took a menacing step towards Rachel before she pulled a gun and pointed it at his head. 
 
-Fuck me. 
+“Both of you sit, we don’t have much time. I’m going to catch you up as quick as I can and then we need to move”. 
 
-Now what? 
+I lost it, I just started yelling at Rachel, “why do you have a gun? What the hell is wrong with you? Get out of our house!” I stepped towards her, seemingly unfazed she didn’t even bother to take the gun off of John. 
 
+“Dax I’m not here to hurt you” I cut her off, “then go! Drop the gun and leave!” 
 
-[UPDATE](https://www.reddit.com/r/nosleep/s/L21PntmZs7)
+Surprisingly it was John that calmed me down. “Relax little bro, people don’t smash you up, tie you to a chair then let you go if they plan on hurting you. That kind of tactic is used by people that need someone to shut up and listen because all parties involved are in danger. So why don’t you do just that, shut up and let her talk”. 
+
+I didn’t know what to say so I didn’t say anything, I sat next to John on the couch. Rachel put the gun back into the holster she had hidden in her waist band. 
+
+“Your buddy is right, were all in danger and really should be going as soon as possible”. “He’s my brother” I told her, I don’t know why I felt the need to correct her. 
+
+Rachel looked at John, there was no family resemblance between us. My skinny build and red hair had nothing in common with John’s broad chest and curly black hair. 
+
+ “You remember John right? He was deployed while I was in school”. 
+
+John nodded, “yeah I was speed running my way to a double purple medal while Jodi was swinging by my place, thanks for the lovely reminder”. “See? He’s a trained fighter!” 
+
+John let a joyless chuckle slip out, “oh yeah I’m real good at mag dumping at muzzle flashes while my friends turn into pink mist. Top notch government training”. He turned to Rachel, “Let’s cut the crap, what did my brother get himself tangled up in?” 
+
+Rachel glanced outside, “we can talk in the car, I’m sure they’re on their way here”. John groaned as he stood up, “alright, let me grab my foot”. 
+
+While John retrieved his prosthetic from his room I sat in awkward silence. 
+
+Rachel kept checking different windows as well as her wristwatch. She suddenly ducked down, “shit they’re here. This is bad”. 
+
+Just then John returned, shotgun in one hand and duffle bag in the other. I heard car doors slamming outside. 
+
+“Get down!” Rachel hissed at John. He glanced out the window before dropping to a knee. He shot me an annoyed look, “seriously Dax, what have you done?” 
+
+I didn’t know where to start, or even if we had time. 
+
+Turns out we didn’t. Something slammed into the front door. There were surprised grunts before more impacts rattled the door. 
+
+I was real glad John had insisted on upgrading our deadbolt. 
+
+I jumped as John yelled out, “hey! Identify yourself!” The assault paused. John turned to the back door, from my angle I could see the doorknob turning back and forth ever so slowly! Thank God we had locked it. 
+
+John was thinking, that was probably his strongest feature. The dude was always playing four dimensional chess while others were playing checkers. 
+
+Reaching over he grabbed Rachel’s shirt and pulled her close, I couldn’t hear what he said as he whispered to her. Rachel nodded then made her way to me, “we’re going to get in the car and get out of here, he’s going to meet up with us later”. 
+
+I tried to protest but Rachel didn’t give me a chance, before I knew it we were in the car counting down. Suddenly Rachel floored it and we went crashing through the garage door. I was surprised at how little damage it did to the car. 
+
+There was a couple of shouts but we were gone before anyone could do anything. 
+
+I wanted to scream, I wanted to take it all out on Rachel. My life was flipped upside down and getting crazier every minute. I couldn’t take much more of this. 
+
+Rachel pulled onto the highway. “Shouldn’t we wait for John?” I asked, Rachel gave me a strange look but didn’t reply. I shoved her, “hey, we need to wait for John!” 
+
+Rachel turned to me, “what the hell dude? What are talking about?” I hesitated, had I missed something? “My brother John, the one we left at the house. We need to wait for him so he can catch up”. 
+
+Rachel didn’t say anything for a bit. Without looking at me she said something that chilled me to my bones, “Dax you don’t have a brother”.
+
+“Of course I have a brother! You just met him at our house. You know right after you tackled me and broke my phone?” I felt my face getting red, I was pissed off. 
+
+“Dax you live alone, you have ever since you inherited your parents house”. 
+
+“No that’s not right, I…” 
+
+She cut me off, “if I broke your phone then what’s in your pocket?”
+
+I pulled my phone from my pocket, “but, that’s not possible I saw… I mean you…” 
+
+She was crying now, “seriously Dax, I want to help you and be your friend. Really I do, but you make it so freaking hard sometimes”. 
+
+I don’t know what’s real right now, I need to get out of this car. I need some distance so I can think. 
+
+[UPDATE](https://www.reddit.com/r/nosleep/s/0qM4IS71w0)
