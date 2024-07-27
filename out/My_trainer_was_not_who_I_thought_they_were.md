@@ -22,7 +22,7 @@ She told me how back in the day, they used to have prison inmates volunteer at t
 
 
 
-After that week, I never saw Dorothy again.
+After that, I never saw Dorothy again.
 
 
 
