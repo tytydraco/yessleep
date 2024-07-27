@@ -38,6 +38,6 @@ I creeped over to the tank, my barrel focused on it the entire time. After flick
 
 My finger was tightening around the trigger as the water exploded upward, showing me in that unholy filth. Before I knew it, the man had pushed me to the ground, and was sprinting towards the tree line. As soon as I regained my balance, I unloaded every shot I had. Then, I reloaded and did it again.
 
-The cops were there shortly, given they received over a dozen calls of rapid fire shotgun blasts in the middle of the night. I explained everything to them as they looked at me incredulousness and disgust. A few more cars arrived with dogs, but they never found him.
+The cops were there shortly, given they received over a dozen calls of rapid fire shotgun blasts in the middle of the night. I explained everything to them as they looked at me with incredulousness and disgust. A few more cars arrived with dogs, but they never found him.
 
 I'm not a wealthy man, but I spent every last dollar I had hooking up that house to city sewer, and paying a company to come with an excavator to rip that entire fucking septic system out of my yard. I still get ill thinking of my son cooking up concoctions for that bastard to feast on his excrement. I tried my best to forget. To try and wipe it from my memory. That was until I found a package at my door containing $10,000 and a note saying "For my little chef."
