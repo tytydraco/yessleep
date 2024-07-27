@@ -1,6 +1,6 @@
 I got bored last night in late July and started driving with no particular destination. I live in the middle of nowhere in Kentucky, so there are alot of winding country highways with very little traffic. I enjoy going on night rides to clear my head and de stress. A few years ago, when I was very depressed, I would do this nightly.
 
-I decided this particular night I would go farther than normal. I would drive pretty far, then when I hit either the Ohio river, or, a place I could consider memorable enough to consider an experience to go to, I would tirn around and go to, I would go home.
+I decided this particular night I would go farther than normal. I would drive pretty far, then when I hit either the Ohio river, or, a place I could consider memorable enough to consider an experience to go to, I would go home.
 
  I ended up about an hour and a half from home in a town I don't know the name of, at a little shop with a single gas pump, on the roadside by a very tall hill, at roughly 10:30 PM. It was pitch black outside.
 
