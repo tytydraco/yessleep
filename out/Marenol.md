@@ -10,7 +10,7 @@ These tablets weren't prescribed. I bought them myself. I'm depressed. Hospital-
 
 Desperation led me to the internet, where a certain antidepressant caught my eye. I was researching suicide methods—without real intent—when I stumbled upon it on a morbidly helpful page. Marenol promised significant antidepressant effects, mood elevation, and nutritional adjustment. Its side effects? "Severe nightmares that can lead to death." Suspiciously enticing, its main effect recovery, its side effect death—ideal for someone contemplating suicide. I found the prospect of nightmare-induced death almost... amusing. So, I took it, not bothering to read the dosage carefully, as I've overdosed on meds before.
 
-In hindsight, it's clear Meanol was meant for those ready to embrace death. Its nightmares are hellish, each death within as agonizing as in reality. Pills make suicide painful, a fact I foolishly tested. Ironic, isn't it? I wanted to die, but not suffer. Yet these pills have trapped me, making me feel good when awake, filling me with energy and false cheer.
+In hindsight, it's clear Marenol was meant for those ready to embrace death. Its nightmares are hellish, each death within as agonizing as in reality. Pills make suicide painful, a fact I foolishly tested. Ironic, isn't it? I wanted to die, but not suffer. Yet these pills have trapped me, making me feel good when awake, filling me with energy and false cheer.
 
 This is the trap: the pills' primary effect is death, their side effects a cruel simulation of life. Dying in a dream might seem trivial, but the pain feels real. Rumors suggest that dreams can shock the brain to death if too intense. Perhaps that's why I wake each time, still alive but carrying the agony of dream deaths.
 

@@ -1,0 +1,31 @@
+Me and my friends went camping and it was the worst mistake of my life! (Part 2)
+
+This is a continuation of the story of Me and my friends went camping and it was the worst mistake of my life!
+
+link to part 1 [https://www.reddit.com/r/nosleep/comments/1edc9j4/me\_and\_my\_friends\_went\_camping\_and\_it\_was\_the/](https://www.reddit.com/r/nosleep/comments/1edc9j4/me_and_my_friends_went_camping_and_it_was_the/)
+
+
+
+The creature that stood holding my friend’s lifeless body in his hand truly was an awful thing, it stood at around 8 feet tall its body was a pale almost white but not quite it had large claws on both its hands and feet, it had a thin almost emaciated body but large rotund gut. its eyes were sunken and black they were the darkest black I had ever seen, like see into the depths of your soul black and a thin crooked smile with blood dripping. It dropped his body and sprinted at inhuman speed right at me luckily T had the good sense to fire at it before it got to me, he hit it in the leg and it let out a blood curdling scream in the voice of our recently departed friend, the blood that dripped wasn’t red but pure black it turned to T and hit him so hard he flew into the trees and got impaled on a branch, the thud rang out amongst the silent trees, no scream, no nothing just that thud echoing, it seemed to go on for ever then a scream like a woman dying from the creatures still closed smiling mouth. L scream like a mother who had lost her child the creature chose her next, it moved towards her with impossible speed picked her up by her head and looked at her in the eyes still smiling and ripped her in half showering the grass turning the beautiful fields of grass into seas of red. She was left crawling on the floor dragging her torso, leaving behind a trail of blood as she tried to move away screaming in pain.
+
+ 
+
+I was stunned it had all happened so fast I didn’t know what to do, just laid there with a horrified look on my face, so shocked I could do nothing but look on in fear as it slaughtered my friends. The monster for some reason decided that it was time to run off it climbed the tree that had T’s body in it and drug his limp body off into the forest, just as the sun fell beneath the horizon and it turned to night. It moved so quick i could barely track it with my eyes as I watched it take my friend into the night, I turned to the only other remaining member of the group J, he was in the floor in the fettle position crying. I picked him up and dusted him off I looked right in his eyes, wrapped my hand round the back of his neck and pulled him in as tight as I could, after what seamed like a long time he pulled back and said, “what are we going to do?”. I had no answer for him, this wasn’t some movie where I stand up in defiance and say “were gonna kill that thing”, I was so scared I could barely stand my legs were shaking so badly, all I knew was I didn’t want to die in this field.
+
+ 
+
+We decided the only way out of this was to make a run through the woods to the car, at least then we could get out of here and get help, it was only 3 miles but 3 miles through the woods in the direction that the monster ran off in. slowly trudging our way through the forest on high alert, rifle aimed up in the trees looking for the slightest sight of movement, as we moved gingerly there was a sound of leaves rustling behind us, then on the left, in front, right its encircling us. We just keep moving forward eventually developing into a sprint, why hasn’t it attacked yet? at first, I thought it was because it was trying to split us up but we’ve kept moving and the same thing is happening, right, behind, left, front nothing it wasn’t until we were around half a mile away that the sound just stopped. Not the sound of it running, but everything the sound of the wind in the trees, even the bird and insect noises that came back around a mile back, nothing…
+
+ 
+
+ 
+
+Then everything came back all at once when it attacked I managed to pull J forward far enough that it missed a killing blow, but it still took out his ankle the foot was practically severed, he screamed in pain he was bleeding out and fast, I grabbed him over my shoulder and carried him as far as I could I don’t know how but we made it back out the clearing just off the road where we left the cars, I pulled out my keys and place J on the ground while I unlocked the car, i look at his face and he was pale as a ghost hardly able to move, I turned to unlock the car it must have been 2 seconds at the most I turn back and then it was standing at the tree line watching. I don’t know why but it never crossed the tree line it just stood and watched, waiting for us to pass back over, not shouting or screaming just watching it almost looked scared, looking around at the outside world until it ran back into the forest.
+
+ 
+
+I loaded J into the car I pulled off as fast as I could and I pulled into the closest hospital I could find and unloaded him yelling for help, he had bled out on the back seat as we drove through the night, I’m surprised he lasted as long as he did with that wound, I looked on in as they loaded him onto a gurney to take him to the morgue, I sat a lump on the floor watching as they wheeled away my last remaining friend.
+
+ 
+
+Of course the police were called to investigate but they found no evidence that I had any involvement in the killing of my friends, obviously I tried to warn them about the monster but they found no evidence of that either, not that I think they believed me anyway, it got chocked up as some pycho out in the woods killing people, there still a man hunt out looking for him but they wont find anything so this is my warning to anyone willing to listen, DON’T GO INTO THE WOODS.
