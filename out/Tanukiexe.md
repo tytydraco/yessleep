@@ -1,4 +1,4 @@
-Growing up, "Super Mario Bros. 3" was always my favourite game. The joy of seeing Mario fly with the Tanuki Suit was unparalleled. I had the original NES cartridge and, later, emulated versions to play on my PC. One day, nostalgia hit me hard, and I decided to dive back into the Mushroom Kingdom. Little did I know, this decision would lead me into a nightmare I could never have imagined.
+Hi, I'm jack, growing up, "Super Mario Bros. 3" was always my favourite game. The joy of seeing Mario fly with the Tanuki Suit was unparalleled. I had the original NES cartridge and, later, emulated versions to play on my PC. One day, nostalgia hit me hard, and I decided to dive back into the Mushroom Kingdom. Little did I know, this decision would lead me into a nightmare I could never have imagined.
 
 It started innocently enough. I was browsing an old gaming forum when I came across a post titled "Super Mario Bros. 3 – Rare ROM Hack." The poster claimed this version had enhanced graphics, new levels, and a surprise. Curious and a bit sceptical, I downloaded the ROM file named "Tanuki.exe" and loaded it into my emulator.
 
