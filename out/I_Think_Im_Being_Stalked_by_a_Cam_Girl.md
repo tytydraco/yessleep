@@ -77,7 +77,7 @@ I’m going to be doing squats at the gym today, think you can spot me? ;)
 
  
 
-I never reply to her. Why would I? She’s clearly a bot and that link is clearly just going to be some sort of virus. As you can tell I wasn’t popular at school. From the messages she sent, you may have gleaned that I started to take better care of myself. I went to the gym, I did cardio, I ate better, and I even started to wear contact lenses instead of my thick, black-rimmed glasses. I started to feel good about myself. Something I hadn’t done in a very long time. Because of the rumour I never had a girlfriend. I never had my first kiss or a high school sweetheart. I had no one. I year ago I received a message from Tracy Lin. I had, had a crush on her for a long time. We worked on a group project together and when I contributed, she called me the “smart one”. I think about that compliment a lot.
+I never reply to her. Why would I? She’s clearly a bot and that link is clearly just going to be some sort of virus. As you can tell I wasn’t popular at school. From the messages she sent, you may have gleaned that I started to take better care of myself. I went to the gym, I did cardio, I ate better, and I even started to wear contact lenses instead of my thick, black-rimmed glasses. I started to feel good about myself. Something I hadn’t done in a very long time. Because of the rumour I never had a girlfriend. I never had my first kiss or a high school sweetheart. I had no one. A year ago I received a message from Tracy Lin. I had, had a crush on her for a long time. We worked on a group project together and when I contributed, she called me the “smart one”. I think about that compliment a lot.
 
  
 
