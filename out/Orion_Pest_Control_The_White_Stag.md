@@ -378,6 +378,8 @@ It's been a few days since then and so far, so good. But yinz better *believe* t
 
 Something I should also mention is that the white stag is there when I dream. I don't know what to make of that. The dreams themselves are normal, but it's always just there in the corner, watching with deathly stillness. 
 
+Update: [The white stag isn't gone. ](https://www.reddit.com/r/nosleep/s/RCSuaI74xq)
+
 [(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
 
