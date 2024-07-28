@@ -157,7 +157,7 @@ Don’t mind if I do
 
  
 
-This is as far as the conversation went.  I assume Bradders566 or Brad had opened the link. Maybe he just got some free content or maybe he saw something he really shouldn’t have. Either way, he went radio silence on all his platforms. Believe me, I checked. I looked at his profile from where he sent the message, and he was an avid poster. Anything and everything no matter how uninteresting he would post about. Sometimes 3 times a day. His last post was a month ago same day as his message in the group chat.
+This is as far as the conversation went. I assume Bradders566 or Brad had opened the link. Maybe he just got some free content or maybe he saw something he really shouldn’t have. Either way, he went radio silence on all his platforms. Believe me, I checked. I looked at his profile from where he sent the message, and he was an avid poster. Anything and everything no matter how uninteresting he would post about. Sometimes 3 times a day. His last post was a month ago same day as his message in the group chat.
 
  
 
@@ -165,7 +165,7 @@ She keeps sending me messages. It's not even a message anymore it’s just the l
 
  
 
-I’ve been falling asleep at my computer for a couple of nights now. I’ve got a pretty big assignment, and the deadline is only getting closer. I keep having the same nightmare. In the dream, I click the link. The computer loads for a few seconds and then turns black before thick black cables launch from out of the screen and wrap around my wrists and ankles. Like snakes, they wrap around my limbs tightening until my fingers turn blue. My heart racing I gasp for air, but the cables keep coming. They enter my mouth. I choke as they tunnel down my throat and into my intestines. Lastly, they go for my eyes. Two cables each with a clip on the end which project into my sockets and clamp down. I wake up when this happens. Drenched in sweat and gasping for air. Call me paranoid but I swear the computers never the same as when I fell asleep. Whether it’s the keyboards in a different spot the mouse being moved or a different window being open, it always different.
+I’ve been falling asleep at my computer for a couple of nights now. I’ve got a pretty big assignment, and the deadline is only getting closer. I keep having the same nightmare. In the dream, I click the link. The computer loads for a few seconds and then turns black before thick black cables launch from out of the screen and wrap around my wrists and ankles. Like snakes, they wrap around my limbs tightening until my fingers turn blue. My heart racing I gasp for air, but the cables keep coming. They enter my mouth. I choke as they tunnel down my throat and into my intestines. Lastly, they go for my eyes. Two cables each with a clip on the end which project into my sockets and clamp down. I wake up when this happens. Drenched in sweat and gasping for air. Call me paranoid but I swear the computers never the same as when I fell asleep. Whether it’s the keyboards in a different spot, the mouse being moved or a different window being open, it always different.
 
  
 
