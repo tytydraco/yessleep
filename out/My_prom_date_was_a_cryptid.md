@@ -10,7 +10,7 @@ Whatever our label, we all had one thing in common...
 
 ...So we had to stick together.
 
-Which is why, when Franklin showed up to freshman homeroom in the spring of 1995, every inch of his body completely wrapped in gauze from head to toe, including his abnormally large potbelly, I couldn't help but be intrigued.
+Which is why, when Franklin showed up to junior homeroom in the spring of 1995, every inch of his body completely wrapped in gauze from head to toe, including his abnormally large potbelly, I couldn't help but be intrigued.
 
 No one knew where he came from or why, but the running theory was that his childhood home had burned down, and he barely survived, leaving his body covered in burns, that he covered up in gauze to prevent unwarranted ridicule.
 
