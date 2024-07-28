@@ -16,7 +16,7 @@ No one knew where he came from or why, but the running theory was that his child
 
 I would have asked him myself, since he sat directly in front of me in homeroom, but the thing about Franklin was, he didn't really talk. Or communicate in any way, sign language or otherwise.
 
-So during lunch break, I found other ways to communicate with him, like drawing pictures of things, which he seemed to like, often noding and grunting when happy.
+So during lunch break, I found other ways to communicate with him, like drawing pictures of things, which he seemed to like, often nodding and grunting when happy.
 
 Now, I don't know if it was because I was just a hopeless romantic emo girl, or missed my best friend and childhood crush, Brian, who had gone missing just a few weeks prior, but Franklin very quickly filled the void that Brian once did.
 
@@ -100,7 +100,7 @@ Franklin simply looked up at me, a look of sadness in his insectoid eyes.
 
 That's when I noticed something dangling from one of his severed arms.
 
-Upon further inspection, I saw that it was one of the drawings I made for him, when I first asked him to the Prom. A drawing of him and me, in a suit and dress respectively, holding hands, a ray of sunshine in the sky above us.
+Upon further inspection, I saw that it was one of the drawings I had made for him, when I first asked him to the Prom. A drawing of him and me, in a suit and dress respectively, holding hands, a ray of sunshine suspended in the sky above us.
 
 But before I could react, my Prom date's eyes closed, and his body stopped moving.
 
@@ -110,8 +110,8 @@ A tear rolled down my cheek, as I dropped the butcher knife, my hands still shak
 
 And despite the fact that I felt terrible for doing what I had done, deep down inside I knew that he had killed Brian, and a couple other classmates, and surely wouldn't have stopped any time soon.
 
-A little while later, I dragged Franklin's body and likbs out one of the side doors and buried him in the woods behind the high school, where a large stone still marks his grave to this day.
+A little while later, I dragged Franklin's body and limbs out one of the side doors and buried him in the woods behind the high school, where a large stone still marks his grave to this day.
 
-Years later, while the disappearances of those few students still remains a mystery to the police, only I know the identity of the monster that was responsible for their deaths...
+Years later, while the disappearances of those few students still remain a mystery to the police, only I know the identity of the monster that was responsible for their deaths...
 
 ...Franklin, my cryptid Prom date.
