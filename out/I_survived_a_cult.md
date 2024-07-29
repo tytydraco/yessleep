@@ -106,7 +106,7 @@ I elbowed him in the ribs knocking the wind out of him momentarily.
 
 “Yeah dummy cmon let’s go.” I say shuffling him into the prayer hall that was right next to Father Williams room. 
 
-Father Williams took my sister into his room and I knew I needed to stop it as soon as he closed the door I told Caleb to stay put and that I would be right back. I went the boot and started banging on it. Father Williams opened it a crack just to let his head out.
+Father Williams took my sister into his room and I knew I needed to stop it as soon as he closed the door I told Caleb to stay put and that I would be right back. I went to the door and started knocking on it. Father Williams opened it a crack just to let his head out.
 
 “Austin I told you that me and your sister need privacy for our chat.” He said annoyed 
 
@@ -114,7 +114,7 @@ Father Williams took my sister into his room and I knew I needed to stop it as s
 
 “It can wait son it won’t be long.” He said slamming the door in my face. 
 
-I pounded and kicked on the door for minutes on end. I felt tears building up and I started crying knowing that there was nothing I could do to stop this monster. Caleb came running to me asking what was wrong. Just then the door opened and my sister walked out in front of Father Williams. Staring blankly with no expression on her face. The kind of look you see in old world war 2 documentaries of shell shocked soldiers. She walked past me and Caleb without saying a word and out the door the door of the church. 
+I pounded and kicked on the door for minutes on end. I felt tears building up and I started crying knowing that there was nothing I could do to stop this monster. Caleb came running to me asking what was wrong. Just then the door opened and my sister walked out in front of Father Williams. Staring blankly with no expression on her face. The kind of look you see in old world war 2 documentaries of shell shocked soldiers. She walked past me and Caleb without saying a word and out the door of the church. 
 
 “Caleb. I think it’s your turn now. Would you like to play a little game with me” Father Williams looked at Caleb with a menacing grin on his face. Caleb smiled back and was about to speak when I pushed him away. 
 
@@ -122,7 +122,7 @@ I pounded and kicked on the door for minutes on end. I felt tears building up an
 
 “Oh do you now Austin. I’m so glad to hear. Why don’t you come on in. Caleb why don’t you go run on home we will have to play some other time. For now me and Austin are going to play.” Father Williams grabbed me by my shoulders and shuffled me into his room and closed the door behind him. I played his game with him. I lost.
 
-Walking home after I felt empty. Walking past all the same cookie cutter homes that lined the Main Street i felt alone because no adult believed me, I felt scared because I could only do so much to protect myself and my siblings, and most of all I used. Used by this wolf in sheep’s clothing that had my family and every other family here fooled. Turning on our cul-de-sac I walk up to my house and see my sister sitting on our front porch. It’s late at this point probably around 9 pm she just sat there staring off into the distance. I walk up to her and ask her if she was ok. 
+Walking home after I felt empty. Walking past all the same cookie cutter homes that lined the Main Street i felt alone because no adult believed me, I felt scared because I could only do so much to protect myself and my siblings, and most of all I felt used. Used by this wolf in sheep’s clothing that had my family and every other family here fooled. Turning on our cul-de-sac I walk up to my house and see my sister sitting on our front porch. It’s late at this point probably around 9 pm she just sat there staring off into the distance. I walk up to her and ask her if she was ok. 
 
 “He touched my privates Austin.” She said blankly 
 
@@ -150,7 +150,7 @@ Body’s started dropping and chaos was still ensuing. I watched as my family dr
 
 I was on my knees in prayer. Praying to god to get me through this nightmare. Praying that my family may enter the kingdom of heaven and most of all praying that none of this was real. However the last part of my prayer would go unfulfilled. The level of fear I had at this point was overwhelming. Should I run? Should I fight back? I laid down pretending to be dead among the chaos and prayed again that the guards wouldn’t notice I was not actually dead and kill me. In the distance I hear police sirens and helicopters getting closer and closer. I open my eyes slightly to see everyone in the church dead with some gunfire coming from the outside from the guards chasing down would be escapees. The only person left alive in the church is me and the Father. He picks up his bible and starts heading towards the door. 
 
-I stand up surrounded by the 100s of bodies of men women and children around me. The sirens and helicopters grow closer and the gunfire still rings throughout the night. I stare dead at the Father and he stares back at me and smiles. He falls over the radio for some guards to the church immediately.
+I stand up surrounded by the 100s of bodies of men women and children around me. The sirens and helicopters grow closer and the gunfire still rings throughout the night. I stare dead at the Father and he stares back at me and smiles. He calls over the radio for some guards to the church immediately.
 
 “You had a wonderful family Austin. I’m sorry it has to be this way. I truly am.” He says softly and mockingly with one hand over his heart
 

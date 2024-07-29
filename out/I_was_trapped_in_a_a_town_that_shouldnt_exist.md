@@ -1,0 +1,29 @@
+My name is Daniel, and I'm a trucker. Throughout my job, I've seen my fair share of weird things on the road, but this was the weirdest by far. I was on a delivery trip to a place called Evergrove, which I had never heard of before. My boss said that the path was pretty simple, but the GPS led me down a series of increasingly remote roads. Just when I thought I must have taken a wrong turn, I saw an old, weathered sign that read “Evergrove – 5 Miles.” My curiosity piqued, and I decided to follow the sign.
+
+The road seemed to narrow and twist, with trees growing so thick they almost seemed to close in around me. As I drove through the town, my surroundings changed in a way that was very confusing. The expansive fields and forests turned into strange, sprawling neighborhoods with buildings that looked modern and ancient at the same time.
+
+When i finally reached the outskirts of Evergrove, I realized just how big it really was- it was much bigger than any town had the right to be. Roads stretching on to infinity, and the suburban houses towering above me in a way that wasn't right considering their size, and yet there was no people walking, no faces in the windows. I tried to call my dispatcher, at this point my heart was racing. My phone had no signal, the only sound around being the humming of my truck.
+
+I pulled into a small rest area, hoping to get my bearings. The town’s layout seemed to defy logic; streets looped back on themselves, and landmarks that should have been familiar were nowhere to be found. As I stepped out of the truck, a chill ran down my spine. Everything felt oddly still, as if the town was holding its breath, waiting for something.
+
+I drove through the town, looking for the increasingly elusive delivery address. The streets turned through each other in ways that didn't obey the laws of 3d space. Buildings on one side looked brand new, and on the other, ruins. At last, a street sign, evergreen row... something about it made my heart drop... as I drove closer, it changed... no longer evergreen row, it now said twisted pine ave. The more I drove, the more confused I became, and the more scared I got.
+
+At some point, I saw a massive skyscraper in the distance, only for it to vanish into thin air the second I turned, replaced by a row of quaint, small, old fashioned houses. The town's scale was immeasurable, it was as if the more I drove, the more town there was, as if it made more of itself, just for me. The buildings and streets seemed to be shifting and reshaping themselves, a phenomenon that made me question my own sanity.
+
+As night fell, the town’s surreal nature intensified. The streetlights flickered erratically, casting eerie shadows that danced on the walls. I decided to head back to my truck and try to contact my dispatcher again. The feeling of being watched was palpable, and I noticed a peculiar, faint hum resonating through the ground, like the entire town was vibrating at a frequency just out of sync with reality.
+
+While navigating a particularly twisted part of the town, I suddenly felt a jarring shift. The road in front of me seemed to ripple, like a mirage, and the surroundings became a blur of impossible angles and colors. I struggled to keep control of the truck as the road appeared to dissolve into an inky void. The sensation was disorienting, as though the fabric of space was unraveling around me.
+
+In a moment of panic, I glanced at the dashboard and noticed that the time had stopped, or at least the digital clock was no longer updating. My truck’s engine sputtered, and the familiar hum of the motor became a cacophony of distorted sounds. It was as if I was on the edge of some boundary, a precipice between dimensions.
+
+As I drove, I felt myself being pulled forward by an invisible force. The surroundings shifted rapidly, and I was unable to control the truck’s direction. The road seemed to fold in on itself, creating a tunnel of swirling lights and shadows. Just before I lost consciousness, I saw the entire town collapsing into a vortex of impossible geometry and chaotic energy.
+
+The next thing I knew, I was being pulled down, out of this confusing town. Out through the floor of my truck. The air in my lungs seemed to disappear, and my eyes started to sting. Above me, the inky blackness was pierced by a blinding white. I scooped desperately through the... air? water? around me, attempting to claw my way, desperately towards the light, the sun.
+
+I was running out of air. I was going to die. Hah, I thought, so this is how it ends, this is how I die. Suddenly I thrust myself out of the inky blackness of the water into warm light, and fresh air... as I looked around, treading water I made a shocking realization, I was lost at sea.
+
+In the distance, I saw a boat. I flagged it down with all my might, kicking and yelling at the top of my lungs. Thankfully, the white fishing boat seemed to notice me, and seemed to right it's course towards me. The fishermen were confused by my story and the state I was in. They pulled me aboard and took me back to shore, but I was sure that I would, thankfully never find Evergrove again.
+
+I know it sounds crazy, but I swear Evergrove was real, and it felt like it was trying to keep me there forever. There were moments when I felt like the town itself was alive, watching me, manipulating my reality. Now, all I have left are fragmented memories and a lingering sense of dread.
+
+So here I am, asking if there’s anyone out there who’s had a similar experience or who can offer any insight into what I went through. I’m hoping that by sharing my story, I might find some answers or at least some understanding. Thanks for reading, and please, if you’ve encountered anything like this, let me know.
