@@ -80,4 +80,4 @@ I think I'm catching glimpses of it, in the corner of my eye. The same face that
 
 I fear I accidentally let something sinister into my house. As I'm typing this, I can see something reflected in my monitor.
 
-It lets out a playful whistle, but this time I don't respond.
+It lets out a playful whistle, but [this time I don't respond.](https://www.reddit.com/r/nosleep/comments/1eea0nr/please_whistle_back_part_2/)
