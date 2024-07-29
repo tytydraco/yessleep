@@ -1,0 +1,139 @@
+“This is very important, so listen carefully. This text describes the current state of affairs of our small village. The air was quiet, peaceful even. The grass, green, the trees, tall. I felt free. At least, free-er than I had been.” I pause. “It’s been 4 years since the white-men came across the sea, since they tortured and captured our people. There are few left in the village now, some were killed by the white-men, some were killed by a mysterious sickness we can only assume was wrought by the evil white-men, only they might be capable of such a heinous act.”
+
+After I finish my translation, I look up to see a group of 8 unimpressed scientists, #3 was even starting to slump a little. “I thought you said this was important and interesting.” said #5, “all I'm hearing is what we already know. The Indians were decimated when the Spanish landed in florida.” my heart sank. Could they not see it? “But why then, did they write this down?” I ask. #7 appears taken aback. “Excuse me?” he asks. I continue, “Why would this text be important enough to write down, after all, the native americans didn’t even record their own gods! Much less, record them using a concept introduced to them by their oppressors!” #7 pauses for a second. After a few fleeting seconds #1, taking advantage of the sudden silence, rises from her seat. In a commanding, booming voice, she says; “Dr Thrith provides an interesting point. I call a vote.” with that, she turns around, sweeping out the door. The rest of the council soon followed. 
+
+In reality, I think I know exactly why this was written down.  The Spaniards rubbed off on them, they learned a written language, even if they modified it a little. But what actually bothered me? I… I’m not sure actually. And honestly, I think that makes me even more afraid of what secrets I might find on this ancient tablet. I just have a feeling something on the tablet was important. Dangerous. Unknown. And yeah, the blood stains probably didn’t help. 
+
+The door opens back up. The 8 council members leave the small chamber known as the voting room. #4 remains standing, while the others sit. “According to our vote, you will be allowed to continue your investigation and translation of hamomanachi texts and culture. You have discovered many important things about Hamomanachi, and we thank you, but now you have 10 days, doctor. Meeting adjourned.”
+
+BANG! the door slams. All the council men and women have left. I must have gone into a trance. 10 days? That's all the time I have to uncover the secrets and decipher an entire village and language. I leave the room as well, I’m going to have to start now. On my way out, I pass many men in black, some with their hands on their guns. These men had accompanied many of the members of the council I had just seen. Most council members are extremely high profile. I exit into a van that was waiting for me outside. As I get in, I don’t need to tell them where I'm going, it has been preplanned days in advance. They’re taking me to the airport, which I will fly to Hamomanachi, the place I will spend the next 10 days researching. Luckily for me, the plane ride over was extremely smooth.
+
+Upon landing I get straight to work. I poured over everything I already knew. 
+
+
+
+The village was discovered two months ago by some free hikers. They managed to recognize the remains of Native American civilization in the area. They immediately reported it to local officials, who reported it to the smithsonian. They sent me down to investigate the ruins. By the time I had arrived, the houses were torn all over the place. After some investigating, it was determined that a large animal, such as a bear could have done this type of damage. Likely, it had contracted rabies and attacked the villagers. But I don’t know, something feels… off. The slashed shelters had anywhere between one and five tears. Why would a bear want to attack the tent multiple times? Almost like it was desperate, which it shouldn’t be. The woods here are rich in life. I’m probably just digging too deep into it. And yeah, many of the objects and houses had some blood stains on them. Either way, the investigation really picked up two days ago when we discovered scripts, likely written by the natives that lived here. Usually, Indians wouldn’t write things, they couldn’t. But the clue was in the language itself. The language was a mixture of Spanish and a few drawings that resembled the environment around them. And that language also revealed something else shocking too. This village wasn’t purely indian. Guessing off the language, It’s likely that the villagers were offspring of the Spanish and the captured Native Americans. They must have escaped their Spanish captors, and fled into the woods, where they started their own village. 
+
+The terrain around the village is incredibly interesting as well. There is no surface water for miles around. But what they did have was an open cave system. Last week we mapped the system using echolocation. Turns out the cave is extremely open, with tunnels spreading for miles. Who knows what's down there? We will, in under 9 days.
+
+Just as I arrive, another vehicle shows up, another black government owned van, but this one had a trailer attached. The spelunkers. They were hired to examine the cave system under the village. I walk up to meet them. One of them, the leader I assume, notices and approaches me. We shake hands. “Dr Thrith?” he asks, “the one and only.” I respond. With a quick introduction, he introduces himself, and his three accomplices, greg, himself, fred, scott, and kevin. They apparently specialize in open cave safety inspections. Today however, they will be doing open cave exploration too.
+
+But that can wait for tomorrow. Instead of exploring huge cave systems, we’re going to eat dinner. Even though the day felt short, the sun was already falling under the horizon, swallowed by the mountains in the distance. Dry leaves and sticks crunch under my feet as I traverse the rough, uneven ground. Within minutes, we reach the tent set up by Christina, our survival expert, who thankfully managed to set up the entire camp by herself in two days. If it was me, I'd take two days to learn what a tent is. Its like she’d been preparing for this her whole life almost.
+
+For dinner, she made a delicious potato soup. After dinner, I naturally didn’t go to sleep after that, instead I did one of my assigned jobs, translation. As I sit down at my desk, I know what’s about to happen, the last page of the recordings of hamomanachi. 
+
+I begin reading. “I have ordered my citizens to evacuate, but I am not sure how many will leave. Some have lived here their whole lives, and are not likely to leave this place. I” an large slash is present on the paper at this point, it then continues, “I am sorry, I must leave.”
+
+How... cryptic. But that will be another problem for another me.
+
+DAY 1
+That night, my sleep was dreamless. Some say that dreamless sleep is a sign of an unhealthy mind, some say It’s a sign of an unhealthy body. Particularly spiritual folk claim it is a herald of doom to come. But one thing is for certain. It was very unsettling. I woke up in a cold sweat. Usually I have ridiculous lucid dreams. Human-sized cats surfing, talking wolves at the dinner table, and so on. But tonight, I had nothing.
+
+“Good morning doctor!” Christina says as I walk into the tent. While serving breakfast, she goes on “The spelunkers came out of their tent around 3:25 to eat breakfast, and started exploring that cave.” I reply between bites, “yeah, they are apparently on a tight schedule. I don’t think they expected big cave to really mean big cave.” after my late breakfast at 11, I set off to the cave entrance. After a while of walking, I saw it, the cliff face wide open. Inside the cavern, is a single wide tunnel, this tunnel goes on for hundreds of feet in many directions, with many other equally large tunnels splitting off from it the entire length of the tunnel. Of course, I’ve never actually entered the caves myself, our radar scans told us that, but unfortunately, the scans aren’t sensitive enough to show us what the cave walls look like. None of the crew present really wanted to go into the cave. For one, caves are often extremely muddy, for two, something about the cave felt unnatural. Like the cave itself was made to be a death trap.
+
+I entered the cave for the first time. The air was damp and thick, it smelled somewhere between a corpse and a pottery class, small lamp lights were set up all the way down the cave. Following the lights eventually, I finally reach the spelunkers. Dr. Whitney was with them. Dr. Whitney is our resident geologist, she may look and sound like a dumb blonde stereotype but don’t be fooled, she studied for two year, she really jumped at the chance to come here.
+
+She walks up to me looking really excited. “I haven’t seen caves like this since I was in school! This tunnel was dug.” startled, I reply “what? Ho-” “look at these markings!” she continues, rushing to a cave wall, shining her flashlight on it. Running her hand across the wall, “these marks are faint, probably from water erosion, but it is definitely evident of excavation!” I respond, if to get her off my back more than anything else. “interesting.” Moving on, I walk up to the caving crew as they begin excavating a wall that looks different. This one wasn’t smooth like the other walls, but gravely, almost like a cave-in was blocking the way forward. As I walked up, he turned toward me. “Hey doc! Any idea what this says?” he ushers me over toward a rock embedded into a wall of the cave. Wait no, a tablet. I start the translation process as the team continues excavating. Luckily, it wasn't very difficult, the language was basically just an extremely stylized version of spanish. The only real difference really, is that every letter is warped to look like a creature, a mix of language and art. The only real difficult thing is that each time something is written in the language, it’s written a different way. One letter may resemble a bear, the same letter may be a badger. “Here lies the remaining skinwalkers. The disease will destroy everything.” the spelunker team leader looks up seemingly unimpressed “nice prophecy, want to see what’s behind this wall they don’t want us to find?” “really?”, I retort, seems like they didn’t want us to find rab- ”STOP HIM NOW!” I yell, but it was too late. The walls come crumbling down.
+
+
+“GET OUT!” I yell, “EVACUATE IMMEDIATELY!” the evacuation was almost like a three step process. First came the confusion, the entire chamber pauses, a calm before the storm. Then the chaos. Everyone begins running, some even began screaming. All the equipment was left where they were. Then after the entire cavern was evacuated came the final stage, the questions. “So, uhh why did we leave all the equipment?”I didn’t even look back to see who asked. “The tablet says they trapped the disease in that cavern. If that’s true, then that means that chamber is likely contaminated with whatever killed the villagers. We can’t be sure what the disease is. My best guess is rabies, and if that chamber is filled with rabies, I don’t want anyone getting close to the place. Get Richard over here, he’s our disease expert, right?”
+
+Suddenly, the sun shifts in the sky, the world darkens, the ground rises to meet my face. When I woke up, it must have been late, the sun was already approaching the horizon. “Finally, awake.” standing just above me was him, Dr. Will. “2 hours.” he said.
+he must have seen the confused look on my face, because he elaborates, “how long you were out for.” sitting up, I realized that everyone else was beginning to rise as well. Something else I noticed, a small crate. “What’s in the box?” opening the box, he takes out a pristine white radiation suit. “Can never be too careful. Christina insisted that I have these taken here when she learned about the caves.” taking the radiation suit, I turn around. “we need to get back into those caves to figure out what we’re dealing with.” 
+
+“Is it empty?” The chamber was entirely empty. Sure there was a shallow lake in the middle of the chamber, but there was nothing else in the chamber. No vegetation, no cave fish, no cave anything. And while it may seem contradictory, the most worrying part was that there weren't any bodies. Not even skeletons. The tablet specified ‘remaining skinwalkers’ I assume they meant infected individuals, but now… I’m not too sure. What did they trap here? I turn around. “Let’s go, it’s late and there is nothing here for us right now.” “but doctor” Dr. will says, “this place has remained untouched for literal centuries. Are you sure we should just-” “we can wait till tomorrow!” I snap. The room goes silent. After my ears start ringing, I begin to crack. “Listen, it’s been a strange day, and this room is starting to… chill me.” 
+
+Through the corridor caves we traveled, but the chilling feeling only got worse and worse, until we were outside. The snow starts falling. Not good. I start speeding up from a walk to a jog. Until…
+
+“Ay Doc, why’d we stop?” “I-I think someone is dead.” someone, something was lying there, dead. It was black with frostbite. It was just curled up in the middle of the path, a dark blotch amidst a sea of blinding white. “What is it?” 
+
+Almost like the voices had activated the creature, it slowly unfurled its legs, using the thin malnourished limbs to raise itself off the ground. It was humanoid in appearance, but no one could mistake it to be human it was black, with malnourished limbs and skin clinging to bone in Its abdomen. Its fingers ended in long claws, and its head was looking in the wrong direction. It was 180 degrees in the wrong direction. Slowly,  it turns it’s head. Only one thing, its body didn’t move with it. 
+
+Its face was skeletal, decrepit. And as it turned toward us, I could feel my skin warm, while the air around us freezes, hypothermia. The world falls out of focus, as the creature dissolves in the cold wind.
+
+DAY 7
+Waking up on the morning of the 60th day of the investigation, a couple things occurred to me. One was that I was knocked out twice in the same day, and two that I somehow knew I was out for 6 days, then I realized where I was, I was in the spelunkers van.
+
+The van had been converted into a sort of infirmary, in the back were the beds, three were strapped to both walls, with three more laying across the floor. Everyone seemed to be there, everyone except Christina. Did she do all of this? She was the only one who didn’t go into the cave, and she did convince Dr. Will to bring those full exclusion suits. The cave, the suits… the realization hit me dead on, that thing, the zombie, spirit, apparition, was it real? Looking over to the front of the van, there appeared to be a load of assorted first aid items neatly placed across the floor of the van. The windows were also completely blacked out. Groggily, the others begin to rise, all looking just as confused as I was. After a brief recap, the group confirms that, yes the THING that attacked us wasn’t imagined. After a quick vote, 5 were in favor of leaving, while three (including myself) voted to stay put. 
+
+Exiting the vehicle, the air was filled with quiet murmurs. The area surrounding the van had been made into a temporary fort using all the various tents and some extra materials that I hadn’t seen previously. The surrounding forest was a cold, almost lifeless husk of what it had been before. The trees were leafless, the ground was covered in pristine, white snow. No animals moved in the trees, but we knew in some primal, instinctive part of our brains, that there was something out there, and that it could end us very easily, and worse, it wanted to.
+
+Dredging out into the forest, the entire group must have walked for 15 minutes before Dr. Whitney stops. “Did you hear that?” she asked. The group stops in its tracks. The sounds of the forest, natural and unnatural, are all that can be heard in the air, the wind in the trees, the chirping of the few birds who dare remain, the soft crunch of snow under foot. I turn around, quicker than I’d ever turned before! What I saw terrified me. 
+
+Just behind Dr. Whitney, almost touching her, was the thing. Standing silently, with its terrible face looking directly away from me, while its body was ready, poised to attack.
+
+Thinking back to the moment, only one thing of the situation truly stood out to me. The fear on her face. Up until this point, she hadn’t frowned once, in fact, it was almost uncanny sometimes, how much she smiled. But now? All there was was fear.
+
+“Run! now! “ I yell. This time, no one stopped to question me. Even while running, the forest was nearly silent. No creature noises, no monsters (that we could hear), and no screaming. At least, no one was screaming, not until it came back.
+
+Almost 10 minutes later, while resting near a newly frozen creek, they returned. 
+
+It started with my heartbeat. My heartbeat, roaring in my ears, louder than anything else. Correction, almost everything else. Suddenly, a scream echoes through the forest. It must have found us! But the thing that had grabbed Fred was more terrifying than it was before. It was almost seven feet tall, but its hands… 
+
+And its head, its head had something familiar, two wide blue eyes, and a single strand of yellow-white hair.
+
+It wasn’t the original one. Another scream sounds from behind me. The group scatters, running in almost every direction. All except one, Dr. Will, who had stayed behind frozen with fear, or perhaps disbelief. Maybe both. 
+
+What did I do next? The heroic thing and arm myself? The smart thing and go back to the camp-turned-fort? No, I fled. I tried to hide. But, clearly it must not have been very effective, because at sundown that evening, someone found me.
+
+DAY 8
+At breakfast the next morning, it actually came as a great surprise when out of nowhere, someone new appeared. After Christina found me last night, I left to go to bed early, or at least tried to. But waking up in the morning, I saw someone who I'd never expected to see here. Tamya Northwest. Expert in native american lore, and professor. Otherwise known to you as #1, the person who called for me to have more time exploring these cursed ruins. 
+
+“You?” 
+
+One long explanation later, it turns out that the both of them have relations to this very village, and according to them, this place was abandoned after the monsters in those caves were trapped there by a small group of villagers, sealing the cave from the inside with all of the creatures in there. The few survivors were forced to move because the monsters scared off all of the wildlife, and their water source was sealed. They traveled for years, no tribe accepted them believing their presence would bring the beasts to them, but eventually, they met with a french expedition, they were able to travel with them for much of their trip, before breaking off, eventually settling with the navajo tribe, their tales change slowly form from the disease that wiped out the settlement in these woods, to stories of corrupted witches, changing shape into whatever form suits them. And those tales of monsters in the woods? They almost disappeared entirely. But when Tamya had learned of this place, she had started researching, and she uncovered the original story of this place. And contacted her cousin. Who? Christina. 
+
+
+
+Unfortunately, the records of how they killed the things have been all destroyed. All except for one clue. The color brown. “We haven’t been able to figure out what the color is meant to signify, but it did come with this text.” Tamya unfolds the crinkled picture of an old dusty script, revealing text written in the old hamomanachi language. 
+
+After two minutes of translation, the text is revealed. “Beasts bane?” the words echoed through the forest, almost like the forest wanted us to know it was important. “That brown color, it looks almost familiar.” Christina started. “It can’t be the trees, it doesn’t make sense for forest creatures to be weak to the trees.” “maybe fire?” I ask, “ the paper may be degraded, that could have been orange, like fire!” “It’s worth a shot.” said Tamya. 
+
+just then, the ground started to shake violently. “Earthquake!?” yelled Tamya. “No, it can’t be! We’re hundreds of miles away from the nearest fault line!” I yell back. Christina joins in, “well I don’t think this area was marked for zombie risk either!” “get to the campfire!” we all quickly run to the campfire, the fire starts shaking, log starts rolling off the fire,surrounded by dry leaves, and then…  
+
+Nothing. The quakes stopped, and the world returned to the eerie stillness and anticipation it had held before. Then the van disappeared. Suddenly, I remembered. Something,  ‘Look at these markings!’ she had said. ‘These marks are faint, probably from water erosion, but it is definitely evident from excavation!’ “they’re below us! I yell. Just then something rises from where the van used to be, not something. It was them. The infected. First was one I hadn't seen before, this one was smaller, it was four legged, and it looked almost dog-like, with a rotted snout. Then came the white-haired one, then the one that destroyed our lives, then more came. One that looked oddly human, one that… was on fire?
+
+Thinking quickly, Christina had  thrown a flaming stick from the fire into the crowd of zombie-like creatures slowly making their way to us. The fire spread quickly, engulfing every creature in flame. All the way back to the hole. And to the van. The fire kept burning, that is, until it wasn’t. The fire suddenly goes out with a gust of wind. If fire hadn’t worked, what would? 
+
+BOOM
+
+The van explodes, causing one of the Things to go flying into the trees on the other side of the hole they dug into the camp. It might have been funny if they weren’t so dangerous. But now, no place is safe anymore. That being said, there was now only one place I could think of to go.
+
+DAY 9
+That night we slept in the trees. It took much longer than I would like to admit to find the cave. In the 7 days I’d been asleep, the beasts had managed to remove all of the trail markers and paths we had set up including the lights in the cave, so finding the cave, or burrow more like,  and navigating it had been unnecessarily difficult, even though we’d already been here over two months.
+
+I breathed a massive sigh of relief as the cave that reminded me too much of a mouth came into view. We passed into the cave, barely talking throughout the Journey, for last night we had decided only to talk when we needed too. I had to bite my tongue to stop myself from speaking when we found the place that served as the plague’s prison. I never, never in a million years wanted to see this place again. 
+
+This is where we had to make our stand.
+
+The cave rumbled. They were starting to close in. I had to think. I had too. Brown! Brown! What about that color could stop these things? Why did it look familiar? Turning around, I look into the cave. We HAD to figure this out quickly, if we don’t, when the team comes to check on the operation, this… this… INFECTION is going to be much, much, much worse. This cave had somehow trapped them before. How could it do that when these guys can dig so quickly? They dug out these tunnels, how did a small cave contain them, and more importantly, could they do it again?
+
+It had been hours. The shaking had stopped for who knows how long, and that could only mean one thing. They. were. Inside.
+
+We are starving, limited battery in our flashlights, and surrounded by creatures that aren’t even in the nightmares of the human race. This cave had kept them contained for years, what made this cave so different? “Is the wall shining?” the words caught me off guard. I hadn’t actually heard anyone speak since last night. But Tamya was right, the walls appeared to be shining with a very interesting color. “Are the walls here made of copper?” I ask. Christina responds, “I don’t know, you’re the scientist!” the tablet marking the entrance of the chamber clatters to the floor. 
+
+Walking over to examine it, I had a feeling that the “beast's bane” was really hiding under our noses this entire time. “This is what they’re after.” my voice echoes through the cave. “This is what kills them. It’s copper.” “they’ve been after the copper this entire time!” that's why I was the one who survived, I hadn't had any electronics on me when they found us in the woods! The cavers had their backpacks full of equipment, the others had their phones.” I explain. “But why did it take so long for them to get to the site then?” someone asked. “We don’t know how far their territory expands, do we? Maybe they got to a campsite, or sites, with more copper than there was in the van.” “He's right.” said Tamya, “copper being their weakness is the only reason that they could’ve been trapped here for three centuries.” “grab some rocks from the walls, we stop them here, or die trying.” 
+
+Within hours, the unlikely team had turned from prisoners into a militia, armed only with an wide array of primal copper spears. (they were more like long, sharp, stones.) 
+
+By what we assumed to be nightfall, the creatures still hadn’t made a move.
+
+Then, by what we assumed to be midnight, we made a decision, and a plan. To escape the tunnels. We left our devices in the cave carrying only our spears and moved down the tunnels. Multiple new tunnels had appeared since our departure, each one likely dug by the infected legion. By the time we were at the end of the cave, it was midnight exactly, and a full moon lit up the sky. But even as we rose to the surface, we could feel their presence. 
+
+Emerging at the top, the entrance was surrounded by a wide ring of infected. There must have been 30 individuals, a far cry from the 9 people who discovered the cave. 
+
+Upon seeing us, the original one, the one in the middle made a terrible screeching sound. And by terrible sound, It was barely recognizable as human, if the thing ever was human to begin with. It was dry, like it hadn’t touched water for millenia, but it also sounded like chalk scraping on a whiteboard.
+
+In seconds, the group was upon us, the only thing keeping them back, the spears we were pointing at them. Just according to plan. We back up into the cave. As suspected, the lesser versions of the creature were following us. At about 3 AM, they were right were we wanted them. 
+
+“MAKE A RUN FOR IT!” we bolt down the hall, just barely ahead of the creatures as they chased us. Then, just as they were about to get us, we were there. The water chamber, gilded with copper.
+
+The first three creatures screamed in pain as they entered the room. They tried backing up as their hands melt into the floor, but the other 26 creatures in there with us were also moving too. By the time they had stopped, only ten of the creatures remained. They weren’t there for long though. In seconds, we used our spears to destroy the remaining creatures.
+
+And then there was one. 
+
+CRACK
+
+Hours later, we would’ve reached the entrance, or we would’ve would’ve, if not for the fact it had been closed off. The original must have blocked the entrance while we killed its underlings. But luckily, we weren’t actually going there. We were already up. We took one of the many connecting tunnels dug by the legion. Leaving IT defenseless when it attacked us for our copper spears. To think how quickly the tides turned! One day we were only alive because it thought we were funny, and the next day we killed it with sharp rocks! And so, as the sun rose, the nightmare was over. How long had it been since I ate? I was hungry. Very hungry. I’m gonna go eat a cheese burger now. 
+
+goodbye.

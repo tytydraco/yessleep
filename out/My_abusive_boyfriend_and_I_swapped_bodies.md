@@ -1,16 +1,19 @@
-He pummelled me with purpling knuckles, reducing both my face and his fists to pulp. And when my body lost the ability to protect me, I let my soul wander to the thought plane. Horrifyingly, however, I no longer recognised it. My inner utopia, once a pleasant field from my childhood memories, was infested with black and blue weeds. Long tendrils that grew and grew, obscuring my vision in a way that returned me to the agony of reality.
+He pummelled me with purpling knuckles, reducing both my face and his fists to pulp. And when my body lost the ability to protect me, I let my soul wander to the thought plane.
 
-Even my mind had been desecrated by him. And I wondered, as always, whether Jenson’s torture hurt more physically or psychologically. Not that it mattered. *Nowhere* was safe. I longed for more than mere detachment from my body. I longed for detachment from myself. To be someone else. Anyone else.
+Horrifyingly, however, I no longer recognised it.
+Even my mind had been desecrated by him. And I wondered, as always, whether Jenson’s torture hurt more physically or psychologically.
+
+Not that it mattered. *Nowhere* was safe. I longed for more than mere detachment from my body. I longed for detachment from myself. To be someone else. Anyone else.
 
 And that wish was granted.
 
 “You’re pathetic,” Jenson whispered.
 
-The man’s outline was silhouetted by the harsh glare of his headlights. A colourless hulk looming over me, the wounded woman at his feet. His balled fists spilt droplets onto the deserted road, and I felt his revulsion, without seeing his eyes. All I thought to do, whilst he paused, was finally roll onto my front and shield my face from his fists.
+The man’s outline was silhouetted by the harsh glare of his headlights. A colourless hulk looming over me, the wounded woman at his feet.
 
 “*Look at me when I’m talking to you*,” He barked.
 
-I gasped as he pressed the ridged sole of his boot onto my neck, pancaking me to the gravel. With sprawled limbs, compressed painfully against the road, I fought fearfully to cherish those final few moments of life. Succeeding only to steep into a deeper level of fear.
+I gasped as he pressed the ridged sole of his boot onto my neck, pancaking me to the gravel.
 
 “I’m… trying…” I spluttered.
 
@@ -18,27 +21,31 @@ I gasped as he pressed the ridged sole of his boot onto my neck, pancaking me to
 
 I cried. “You always say you like these shorts. You say–”
 
-Jenson constricted my throat more forcefully with his boot, obstructing my airway. My eyes watered. Snot clotted my nose. Lights and colours danced as my head started to feel airy.
+“— You were *tempting* them,” He claimed. “Putting ideas in their heads. I really thought you were different, but you’re just like every other woman. Cheap, brainless meat. Only good for one thing, and you’re not even good at *that*.”
 
-“You were *tempting* them,” He claimed. “Putting ideas in their heads. I really thought you were different, but you’re just like every other woman. Cheap, brainless meat. Only good for one thing, and you’re not even good at *that*.”
+Terror is one thing, but there is no word for the primal powerlessness that immediately precedes death. The moment at which I realised that neither fight nor flight would save me. The moment at which a cloaked shape appeared in the distance, striding down the road with intent.
 
-Terror is one thing, but there is no word for the primal powerlessness that immediately precedes death. The moment at which I realised that neither fight nor flight would save me. The moment at which a cloaked shape appeared at the end of the road, striding towards me with intent. But that deep, subconscious horror consumed my soul as the hooded figure approached. His form lost shape as my vision shrank and my lungs deflated.
+Striding towards *me*.
+
+That bottomless, subconscious fear engulfed my soul with every step the hooded figure took. His form lost shape as my vision shrank and my lungs deflated.
 
 Then came its voice. The shadow spoke not with words, but a *promise*. It called to me, and I answered.
 
 *I wish I weren’t Bethany.*
 
-The cloaked figure stopped walking. For an eternal second, it watched me squirm beneath Jenson’s boot, then the thing allowed itself to be swept away by the bitter breeze of that ferocious night. The thing that may have been a reaper, a genie, or a figment of my oxygen-depleted imagination. And before I had time to process what I’d witnessed, the world distorted.
+The cloaked figure stopped walking. For an eternal second, it watched me squirm beneath Jenson’s boot, then the thing allowed itself to be swept away by the bitter breeze of that ferocious night. It may have been a reaper, a genie, or a figment of my oxygen-depleted imagination.
+
+Whatever the truth, the world distorted.
 
 As if torn by a riptide, I felt my soul warp upwards and tunnel through a blackened spiral of air. My essence brushed past a red, writhing droplet of light, moving in the opposite direction. A non-physical force with which I felt some frightful kinship. And then my soul rejoined the tangible world. Slipped behind wide, terrified eyes.
 
 But they were not my own.
 
-I looked down at the boot pressing on a compressed neck, and my eyes swam in abject dread. I was viewing the assault through the eyes of Jenson. Yelling deeply as the body beneath my boot shrieked at a sharp pitch.
+I looked down at Jenson’s boot, and my eyes swam in abject dread. I was viewing the assault through *his* eyes. And I yelled deeply as the body beneath my boot shrieked at a sharp pitch.
 
 “What the *fuck* is happening?” She hoarsely cried from below.
 
-I jerked backwards, lifting the boot, and then watched my former self gasp for air, before rising on unsteady legs to face me. As my own body turned to face me, I finally saw the full extent of Jenson’s assault. The excruciating collage of colours. Of course, it was not that callous act which horrified me.
+I jerked backwards, lifted my foot, and watched my former self gasp for air. Then my own body rose to face me.
 
 “That’s me…” The girl in front of me, wearing my face, wailed. “*THAT’S ME!*”
 

@@ -78,7 +78,7 @@ And behind the gauze that was once wrapped around his face, which had now come u
 
 Franklin dropped the girl, whose mangled body fell to the floor with a splash, as it landed in her own pool of blood.
 
-He then proceeded to stare at me, as the gauze covering his pot belly unraveled, and two more sets of arms unfolded.
+He then proceeded to stare at me, as the gauze covering his pot belly unraveled, and a second set of arms unfolded.
 
 That's when I realized that Franklin was no burn victim. He was a cryptid. And the bodies that had been disappearing, were surely his doing. Bodies that included my former best friend Brian.
 
