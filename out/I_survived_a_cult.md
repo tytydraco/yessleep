@@ -42,7 +42,7 @@ My sister giggled. “My names Mary and I’m 3 years old.” She said with her 
 
 “You will be staying in cottage 145. You will see it’s a lovely little home just like all our other member’s in one of the cul-de-sac’s off of our main road.” He said to my parents 
 
-“Thank you Father it was a pleasure meeting you.” my mother said looking deeply appreciativinto Father William’s sunglass covered eyes. 
+“Thank you Father it was a pleasure meeting you.” my mother said looking deeply appreciative into Father William’s sunglass covered eyes. 
 
 “It’s my pleasure now go settle into your new home and welcome to Canaan.” Father William’s said with a cheesy smile then turned around and walked back into his big concrete church building.
 
