@@ -237,3 +237,5 @@ I wiped my mouth and held the shotgun up facing the door. “That goddamned thin
 “It’s fucking alive! It’s in there!” 
 
 His eyes widened in shock and turned his head towards the garage. The silence was deafening, each moment stretching out painfully. He slid down the wall, sinking to the floor in shock and exhaustion. Minutes dragged by as we waited anxiously, expecting the creature to slam into the door or attempt to break through in some way. But nothing happened. The first light of dawn began to filter through the windows, casting long shadows across the kitchen. Exhaustion weighed heavily on us both. My eyelids drooped, and I found myself slowly lowering my gun, dozing off. 
+
+[Part 2](https://www.reddit.com/user/Apprehensive-Cell-39/comments/1eem9a6/the_roadkill_incident_part_2/)
