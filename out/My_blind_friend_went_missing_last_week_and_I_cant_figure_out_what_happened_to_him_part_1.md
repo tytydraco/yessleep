@@ -1,0 +1,18 @@
+so last week one of my best friends went missing, his name was Jonah, and he was blind. now I don't have a whole lot to say on this matter, iv e approached his family, the police, that's about everybody I knew to contact. my hope here is that the internet will help me divulge something from the audio diary he kept on tape up until the day he went missing, please I just want my friend back.
+
+  
+from here on I'll be writing down what he recorded
+
+  
+"Hey, I'm... uh... i need to get today's events compiled into something for me to show to the police, i was attacked earlier by a... uh... well i don't know what but it did attack me. i came home after a day trip with a buddy of mine. i walked into my apartment the familiar sounds and smells helping me relax as i went to put my handbag on the chair i keep next to my front door, but instead of feeling my bag quietly hit the chair i instead heard the jarring sound of my bag falling to the floor. from that moment on i felt an incredible sense of dread overwhelmed me. 
+
+something had been in my house.
+
+  
+i took a step forward as i heard the loud slapping footsteps move across the ground on the other side of the room into the hallway leading to the bathroom. as it walked it snorted like a pig without a snout. i reached to the left side of the door which is where i keep my umbrellas and where a friend of mine left a baseball bat, i felt a small comfort in holding the bat and identifying the thing in my house as a pig, it wasn't a pig.
+
+  
+i moved through the living room tripping over my coffee table that was moved from where it was. the noise caused the creature to make a loud gurgling grunt as it ran out of the hallway i decided to take a blind swing as the creature approaches, the bat made contact. i felt the shock of the impact jolt through my arm it felt as though i had hit a wall, the creature was right in front of me i could feel heat and sweat radiating off of it, it was far too tall to be a pig its hot stinking breath pushing against my forehead and for a brief terrifying moment an intense stillness filled the air as the creature just stood in front of me its bones popping and its throat gurgling after that i felt a heavy impact in my stomach pushing me to the ground, as my back hit the ground i reflexively put my arms backwards to try to stop myself. a pain ran through my left wrist as a heavy pillar of hot flesh hit my chest i put both my hands on it, but they slipped off because of the sweat. i tried to grab the pillar again this time grabbing a fold of skin. as i tried to pull it away the skin i grabbed tore off of the pillar as the creature let out a high-pitched screech. another pillar hit my right arm and slammed it against the ground and my bones snapped under the creature's weight, i then started ripping skin off of the creatures pillars it shrieked in pain the same way as before but i didn't stop i felt hot liquid pool on top my chest, suddenly in one motion the two pillars lifted and oxygen refilled my lungs i heard something big hit the ground i assumed it was the creature and began to crawl away from it as i heard it get up, luckily it didn't approach me instead i heard it crash through my backdoor. i was safe.
+
+  
+i crawled to my bag in order to get my emergency lifeline to the hospital that i keep on my keys, and here i am leaning against a wall in a daze waiting for the hospital i just needed to say what happened to me since i probably won't be doing a lot of talking in the hospital. all i can do is hope people will believe me"
