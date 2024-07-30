@@ -52,9 +52,9 @@ She had seen flying snakes. Twice. They swooped at her this time. They meant her
 
 The trail cameras showed her fright as well, but they were vaguer about the source of it. Much like the internet connection hiding in the apple tree, the image was spotty. On the screens I could see Veronica. I could see her wide-open eyes and flailing hands and terror. What she was screaming at, however, was just a blur.
 
-‘Are you sure it wasn’t just a bunch of bees or something?’ The words left my mouth without much though. All of my attention was focused on resisting the idea of winged serpents. I didn’t mean any offense with my suggestion. The fuzzy images on the screen *could* have, realistically, been a particularly large swarm of bees. I meant no offense with my suggestion, but that didn’t matter.
+‘Are you sure it wasn’t just a bunch of bees or something?’ The words left my mouth without much thought. All of my attention was focused on resisting the idea of winged serpents. I didn’t mean any offense with my suggestion. The fuzzy images on the screen *could* have, realistically, been a particularly large swarm of bees. I meant no offense with my suggestion, but that didn’t matter.
 
-She became furious. If I wanted to get bit to death by a bunch of flying snakes, that was my imperative. She, however, wanted out. If I wasn’t going to drive her to the nearest airport immediately, she would drive herself. I could take the bus to the city when it was my time to go home.
+She became furious. If I wanted to get bit to death by a bunch of flying snakes, that was my pregorative. She, however, wanted out. If I wasn’t going to drive her to the nearest airport immediately, she would drive herself. I could take the bus to the city when it was my time to go home.
 
 It was getting dark out. I told Veronica I wouldn’t risk our lives on the hilly roads. If she still felt that strongly in the morning, I would drive her. There was some resistance, but finally she acquiesced.
 
