@@ -1,10 +1,8 @@
-This is the story of how my Dad was taken away.  
+I continue to visit him where he's kept, from time to time, and I can say he even appears to have found some sort of peace. But he will never be released.  
 
-I continue to visit him, from time to time, and I can say he even appears to have found some sort of peace. But he will never be released.  
+At the end of each visit, he always grips my hands and tells me to watch out for that giant moose. He does that every time, even though so many years have passed since that summer when we first saw the giant moose.  
 
-At the end of each visit, he always grips my hands and tells me to watch out for that giant moose. Every time, even though so many years have passed since that summer when we first saw the giant moose.  
-
-My family -Mom, Dad and Robbie and I- had first seen the injured giant moose a few weeks before Dad’s final breakdown, during a visit to a local wildlife park in our region. We had wandered round the grassy enclosures, looking at the animals, nothing especially exotic. I remember beavers and otters and deer and a couple of wolves, lying back from the wired fences and watching us indolently through their sharp yellow eyes. Birds too- eagles and hawks and others with bright feathers, flitting around their large dome-shaped cages. Peacocks wandered freely on the narrow open trails, and Robbie toddled about, feeding them, or trying to. 
+My family -Mom, Dad and Robbie and I- had first seen the injured giant moose a few weeks before Dad’s breakdown, during a visit to a local wildlife park in our region. We had wandered round the grassy enclosures, looking at the animals, nothing especially exotic. I remember beavers and otters and deer and a couple of wolves, lying back from the wired fences and watching us indolently through their sharp yellow eyes. Birds too- eagles and hawks and others with bright feathers, flitting around their large dome-shaped cages. Peacocks wandered freely on the narrow open trails, and Robbie toddled about, feeding them, or trying to. 
 
 The wounded giant moose was not in an open enclosure. It was housed in a small shed, and a notice by the door alerted visitors that the moose was injured and receiving veterinary treatment. There was a sharp horrible smell hanging around the hut, and flies buzzed around us.  
 
