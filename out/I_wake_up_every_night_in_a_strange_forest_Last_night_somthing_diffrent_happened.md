@@ -35,3 +35,5 @@ However this time something Differed from my usual waking. I felt a tinge of pai
 I glanced down to see the driving force of my Writings now. From ribcage to ribcage, neckline to navel. I was covered in small thin scratches that each bled a small amount of my vital life. As if something Had barely marred The surface of my skin.
 
 I have to dress my wounds again. I'll be back to update this thread tomorrow morning with my findings
+
+[[part 2]](https://www.reddit.com/r/nosleep/s/MftiZPzP8l)

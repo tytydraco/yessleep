@@ -181,3 +181,5 @@ Sometimes, late at night, I hear whispers coming from the basement. And in my dr
 I don't know if the creature will find another way back. I don't know if it's truly gone, or if it's just biding its time. All I know is that every night, I check on Ethan at 2:12 AM.
 
 And every night, I pray that the knocking doesn't start [again](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/).
+
+[What happend next](https://www.reddit.com/r/nosleep/comments/1efqzop/my_son_looks_outside_the_window_every_day_at_212/)
