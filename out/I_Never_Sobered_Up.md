@@ -4,7 +4,7 @@ Sitting around in a circle on the floor of the cabin, my friends passed around a
 
 I sat still for a moment, listening to the conversation around me, and watching the pen pass from hand to mouth to hand. Carter, above anyone else, was used to his own substances, and fought down numerous hits before pocketing his little device and ending the circle. I stared at him as he patted his shorts… and then I realized I was staring. The realization. It was hitting me. 
 
-The ringing in my ears came first. Then the rapid heart beat, like a wild hare being chased by a coyote. The room around me blurred, my breathing became labored, and I cursed myself for my irresponsibility.
+The ringing in my ears came first. Then the rapid heartbeat, like a wild hare being chased by a coyote. The room around me blurred, my breathing became labored, and I cursed myself for my irresponsibility.
 
 I looked up at Jamie, who was conversing with someone else in the circle (I didn’t care to analyze too thoroughly), and said, 
 “Fuck. I’m high.” How astute of me. 
