@@ -224,5 +224,7 @@ I'll admit that I'm scared. I've been in some rough situations before, but this 
 
 Looks like it's go time. 
 
+Update: [The outcome. ](https://www.reddit.com/r/nosleep/s/9Vh6sY8hEd)
+
 [(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
