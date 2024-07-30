@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1ef1xkj/my_friend_has_been_sick_for_a_while_now_please/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ef1xkj/my_friend_has_been_sick_for_a_while_now_please/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1efw3kh/my_friend_has_been_sick_for_a_while_now_please/)
 
 Hi everyone! I didn’t expect my previous post to get as much attention as it did, so i just wanted to thank you for all of your suggestions on what to do and give you an update on what’s happened since my original post.
 
