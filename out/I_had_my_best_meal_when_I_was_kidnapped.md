@@ -1,0 +1,15 @@
+I couldn’t even hear the words but the insistent yapping of his voice was starting to give me a headache. It wasn’t even his voice that annoyed but something about being lectured always ticked me off. I was tied to a chair and it seems I had no choice. Stupid bastard probably didn’t even kill me because he wanted to tell some stupid story. As I fully regained consciousness, he seemed excited to tell me all the ways he would kill me and how my suffering would be his triumph.  
+ 
+The pale faced, rotten teeth killer was so happy with himself. He said some people paid him a whole lot of money to kill me. But he didn’t even care about that, he just wanted to make me suffer. It was in his blood he said; he would feed off my pain. I wouldn’t dignify him with a response, I mean for all that is lovely his house looked like shit. All the money from killing people and he couldn’t even get out of a shithole. But not to be rash this could have been his killing spot, even though I personally think this was his dwelling.
+ 
+The pale face balding man with long but thinning hair elevated himself to a god by presiding over my death. It seems hygiene and proper manners didn’t matter if you are about to murder. But I think he was just a slob. He told me an intricate story about something or other, I didn’t really care, but it was time.
+ 
+This inbreed psychopath came close to my ear to whisper something profound or dramatic, but then I took a bite out of his neck and boy was it delicious. He fell back and chocked his own neck to stop the bleeding. I watched him struggle to breath, and the absolute panic on his face. The terror in his eyes made me feel like this guy didn’t believe what he preached. I mean if death was his shtick, he certainly didn’t take dying all that well.
+ 
+The clown fell to ground, bleeding out. He tried to make a few noises for perhaps the people upstairs, if there were any, but he quickly realized that only released more blood from arteries in his throat. I removed the ropes from my arms and legs and I sat on the floor watching him bleed out. The disbelief in his eyes of his ultimate demise gave me an idea.
+ 
+Now, I am not one for inflicting unnecessary damage but when an opportunity for mischief presents itself, I just can’t help it. So, in the last few minutes of him dying I put my hand behind his head I brought to my chest. I felt some comfort in his eyes until I bit his chin off. I chewed the bones of his lower jaw and ate them until he was jawless and only his tongue stuck out, looking huge because the bottom of his face was missing.
+ 
+It was the last minute before his death when his eyes looked at me in disbelief. Then I ate his left eye and part of his cheekbone. Then I ate his right eye and part of his brain. I was still feeling a little grumpy like I usually do when I am hungry so I hate his head, and upper part of his torso. I was never one for eating limbs, it seemed like empty calories to me and eating his heart filled me up.
+ 
+I heard a few vehicles approach from a far and it made me super excited. I was no longer cranky because I had a warm meal so I was about to play with my new friends. 
