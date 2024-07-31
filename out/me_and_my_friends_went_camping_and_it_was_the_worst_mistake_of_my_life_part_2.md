@@ -1,7 +1,3 @@
-Me and my friends went camping and it was the worst mistake of my life! (Part 2)
-
-This is a continuation of the story of Me and my friends went camping and it was the worst mistake of my life!
-
 link to part 1 [https://www.reddit.com/r/nosleep/comments/1edc9j4/me\_and\_my\_friends\_went\_camping\_and\_it\_was\_the/](https://www.reddit.com/r/nosleep/comments/1edc9j4/me_and_my_friends_went_camping_and_it_was_the/)
 
 

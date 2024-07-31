@@ -1,0 +1,50 @@
+Here is what originally started off the possible nasty ending to my life:  
+[https://www.reddit.com/r/nosleep/comments/16v6f36/if\_you\_like\_to\_shop\_for\_holiday\_decorations/](https://www.reddit.com/r/nosleep/comments/16v6f36/if_you_like_to_shop_for_holiday_decorations/)
+
+I'm going to try and catch everyone up on the whirlwind my life has been for the last 3 quarters.  When I last signed off I was waiting to hear back from risk management. I finished posting my frustrations about people decorating for the holidays with cursed items, then I went to have a single drink.  From this point on think of me as "Jay".
+
+I went to the fridge and very reached far into the back for my can of beer behind all the bottles, I then got out a plastic kids sippy cup, rinsed out the dust and then poured my beer (well half of it) into the soft non breakable toddler cup and screwed the lid on.  One thing I have learned in my years on curse cleanup squads is to not tempt fate.   No glass bottles,  no breakable or spillable glasses,  nothing to give the curse I am carting around an easy opportunity to off me.  
+
+If you even think you might be cursed, one of the best ways to not die is to  channel a helicopter parent! My entire apartment is toddler-proofed just for events like this one.  My limited furniture is ovoid, and even then protected with toddler edging cushions. All furniture is bolted to wall studs. Any guest that come to my apartment look at my place and me like I am odd, but its not their life and limb I care about. My cover when I feel like explaining is I have a niece I watch occasionally who is 5, has downs syndrome and has epileptic seizures. Full transparency I only use this cover story when I have a non-work company over. Always putting my best foot forward I am! I even have a lot of photoshopped pictures to share that are cute as hell, of me spending time with my "niece".  The reason I am telling you all this is, well, I mean it does get me odd looks when I'm a full grown ass man living in what looks to be a day care place.  I want to lean more towards loving and devoted uncle rather than aging creepy pop star... If you know what I mean.
+
+Anyways  I sat down in my jumbo beanbag to drink my beer out of the sippy cup, being careful not to agitate the cup too much and have the carbonation spray beer all over myself when my phone rang.
+
+I saw that the number was unknown so I picked up the phone on speaker while holding my breath, hoping that this call was not with the devil or the girl from "The Ring" or, hell I don't know, I was freaking out still.
+
+"Jay, this is Roger, with Corporate Cleaning Solution Risk management we just received your voicemail,  I want you to be aware this call is being recorded for legal reasons. Do you consent?" a very nondescript voice said over the line.
+
+"Yes Roger, I do consent to being recorded"
+
+"How are you doing, Jay? What seems to be the issue?"
+
+"Roger, I am fine, but very stressed out at the moment. Something from my last job site might have been transported to my home by accident, so I decided to reach out to get advice on how to proceed. What do you need from me?" I responded.
+
+"Well Jay, just start from the beginning and we will go from there. I assume that this call is regarding the last work site you visited today? We show you leaving the site at around 4:45 PM.  At what time did you realize you had brought possible evidence or contamination home?"
+
+I wont bore you with all the rest of this LONG and PAINFUL call, we have to talk in very broad, general terms just in case the real world government gets involved. It is great that it keeps us from having to worry about police and lawyers looking too close at our "extra-curricular" activities. And if they do we can explain it away, as I had a tear in my suit, and per regulations I have to notify my management, blah, blah, corporate BS, HR crap, blah, blah. It is horrible in that it took almost a half an hour for me to get them a good idea of what was going on.  All I wanted to do was scream out that there is a damned cursed book on my shelf that has followed me home!
+
+But I can not. It's not only the government I have to worry about, some curses are intelligent, think of them as well.. Evil GPT.  Artificial, mystical "intelligences" that can speed up if they know they have been detected, or can even approximate anger or what we would call rage if they are actively being contested.  Its all very confusing, and to me right now it feels like I am walking a tightrope blindfolded. Anyways, by the end of the call "Roger" and I were on facetime, and I had shown him the book in the video stream so that they could at least get an idea of what they were up against. All in the guise of showing him the damaged respirator I have set aside just for this occurrence.
+
+"Ok, Jay thanks for reaching out to Risk Assessment.   We will open a new workers compensation case and schedule a doctors visit for to establish your new health baseline. Lets get this scheduled, and since this was a possible biohazard cleanup, let's get this scheduled for tonight. I'm showing your last TB test was in 2022, is that correct?"
+
+I felt a cold chill, this is code/ not code. Workers comp means that they are footing the bill on this one, I didn't screw up as far as they see it. This is meant to calm me down and let me know that I'm still gonna have my same crappy pay, and crappy apartment, and that my pets will be cared for while they figure this out while I can't work. A doctor means a specialist is needed. Health baseline means I am in some real danger possibly. Scheduled for tonight and biohazard means, well, they are coming to pick up my cursed ass tonight and remove me from the cursed items location in a truck where I will have no interaction with anyone or anything to "reduce the chances of possible contagion spread".  TB test means they need to check me out and see what is different from my last health checkup to see if I am now "infected". None of this is good.
+
+"Roger, that is perfectly fine, just send whomever you need to at your earliest convenience" I said, trying to keep a tremor out of my voice.
+
+The line clicked and I sat there wondering if it was worth it to try and get some real food in me before getting picked up for a "medical checkup".  I had about 10 seconds before there was a knock on my door.
+
+"Jay, we are here to transport you to the clinic. There is a suit on the doorway, please put it on and the come on out and we will take you to the doctors office. There are anti-viral and antibiotic prophylactics as well we would like to get you started on at the top of the care package as well. See you outside in a bit." a muffled female voice with a heavy southern drawl said through my door.
+
+Not gonna lie that cold chill went all the way into my chest once my brain registered what they were really saying to me, and with the urgency they got to my apartment. But I calmed myself, and told myself this is just the usual precautions. I counted to 20 as slowly as I could to get them the time they needed to get away from the door to maintain the "contagion" cover story for any nosy neighbors, or ring doorbells recording nearby. Then opened the door.
+
+I opened the door and I'm not gonna lie, I felt like a Pekinese in a bear trap when I saw what waited there for me.  Vacuum sealed Level A hazmat suit and a small medical transport box just sitting there.  At this point I am pretty sure there was also a sniper rifle trained on me in the event I had horns or acted aggressive at all, so I was doing everything i could to not get sick to my stomach while I silently said a quick prayer thanking God for not giving me time to eat, because in no way would throwing up look good to the extraction team watching my every move. I brought it in and started suiting up and opened the sorter and took out 2 pills, and a syringe. Those pills were definitely not made in any pharmacy.  1 was horse pill sized, metal and inscribed front to back with crucifixes. The other was a nondescript gel pill. The syringe  was labelled "Thiopental Sodium for Injection, USP", whatever the hell that is, and was tied to a single use alcohol swab, with stretchy medical rubber, which means i now have to inject it into a vein. It took about a minute to calm down enough to get it all done. I swallowed the pills and  injected the contents of the syringe in and walked out of my apartment.  I'll admit  the trip out to the ambulance they had parked in the fire lane was getting fun at this point,  I was feeling lightheaded and getting calmer by the second.  I was helped into the ambulance and then handcuffed to the waiting gurney inside. I didn't care that they were all wearing hazmat suits at this point,  good on them for being careful!  I was feeling great about my prospects, I was getting the help I needed and good on these guys for being so fast and helping me out!  I loved my job and the perks!
+
+It was at this point when the walls were getting fuzzy and my feet were floating that that cold chill came back to my entire body.  With the last vestige of my consciousness I felt that chill drop into the low teens... on the Kelvin scale. The one item I could see that wasn't wavy and glowing, there on the shelf next to the defibrillator, was a book that had no place in the ambulance.  The book I was trying to escape from.  So yeah that was my last conscious thought that I can remember from the ride in the ambulance.
+
+"That motherfu.." And then nothing.
+
+  
+The next thing I can clearly recall is waking up with a splitting headache, gasping  on a cot in a dimly lit  furnished room.
+
+  
+"Well, hon looks like you had a heck of a rotten day, huh" remarked the same voice I had heard through the door. 

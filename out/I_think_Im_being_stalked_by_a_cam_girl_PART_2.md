@@ -136,7 +136,7 @@ He was silent for a while.
 
 
 
-“Are you real?” His voice broke a little as he tried holding back his tears.
+“Are you real?” His voice broke a little as he tried to hold back his tears.
 
 
 
@@ -160,7 +160,7 @@ He broke into a sprint as he retreated into the darkness his screams echoing thr
 
 
 
-“Ian are, okay?”
+“Ian are you okay?”
 
 
 
@@ -230,7 +230,7 @@ I said placing a hand on her shoulder.
 
 
 
-Ian was dead. From what I gathered he had tripped in his room and fell into a pile of cables. With how dark it was he likely scrambled to get up only to get further and further wedged and entangled as the cords held him down and.... his neck. He probably had a cable stuck wrapped around his neck. Each struggle and thrash only causing it to tighten. I fought back the urge to be sick. The image burned into me by my imagination sending shivers down my spine, but this wasn't the worst of it.
+Ian was dead. From what I gathered, he had tripped in his room and fell into a pile of cables. With how dark it was, he likely scrambled to get up only to get further and further wedged and entangled as the cords held him down and.... his neck. He probably had a cable stuck wrapped around his neck. Each struggle and thrash only causing it to tighten. I fought back the urge to be sick. The image burned into me by my imagination sending shivers down my spine, but this wasn't the worst of it.
 
 
 
@@ -244,4 +244,4 @@ I fix computers same day and to an exceptional standard, click the link to visit
 
 
 
-He's sent it over a 100 times. My heart skips a beat every time I see a notification come up or hear my phone buzz. It's too much of a coincidence. Rebecca, the dream, Ian. Ian. I can't do it. The cyber police won't get involved since it's just a bot and the police would never believe my theory. I think Ian clicked the link.... and I think the virus killed him. I just pray Rebecca's tricks don't catch me out. I can't just quit the internet either. The internet is my life now. It's my education, my social life, and it's everywhere. Links to report suspicious activity on trains, links to get a discount at McDonalds, links to join the gym, links, links, links! I don’t know what to do. It sounds weird to say but it feels biological. It's relentless, it's "ability to learn "a mutation of some kind, but I don't know I think I'm losing it and grabbing at clues that aren't really there. I'm terrified and I need your help again.
+He's sent it over a 100 times. My heart skips a beat every time I see a notification come up or hear my phone buzz. It's too much of a coincidence. Rebecca, the dream, Ian. Ian. I can't do it. The cyber police won't get involved since it's just a bot and the police would never believe my theory. I think Ian clicked the link.... and I think the virus killed him. I just pray Rebecca's tricks don't catch me out. I can't just quit the internet either. The internet is my life now. It's my education, my social life, and it's everywhere. Links to report suspicious activity on trains, links to get a discount at McDonalds, links to join the gym, links, links, links! I don’t know what to do. It sounds weird to say, but it feels biological. It's relentless. It's "ability to learn "a mutation of some kind, but I don't know. I think I'm just losing it and grabbing at clues that aren't really there. I'm terrified and I need your help again.
