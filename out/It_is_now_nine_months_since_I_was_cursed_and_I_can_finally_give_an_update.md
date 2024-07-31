@@ -5,7 +5,7 @@ I'm going to try and catch everyone up on the whirlwind my life has been for the
 
 I went to the fridge and very reached far into the back for my can of beer behind all the bottles, I then got out a plastic kids sippy cup, rinsed out the dust and then poured my beer (well half of it) into the soft non breakable toddler cup and screwed the lid on.  One thing I have learned in my years on curse cleanup squads is to not tempt fate.   No glass bottles,  no breakable or spillable glasses,  nothing to give the curse I am carting around an easy opportunity to off me.  
 
-If you even think you might be cursed, one of the best ways to not die is to  channel a helicopter parent! My entire apartment is toddler-proofed just for events like this one.  My limited furniture is ovoid, and even then protected with toddler edging cushions. All furniture is bolted to wall studs. Any guest that come to my apartment look at my place and me like I am odd, but its not their life and limb I care about. My cover when I feel like explaining is I have a niece I watch occasionally who is 5, has downs syndrome and has epileptic seizures. Full transparency I only use this cover story when I have a non-work company over. Always putting my best foot forward I am! I even have a lot of photoshopped pictures to share that are cute as hell, of me spending time with my "niece".  The reason I am telling you all this is, well, I mean it does get me odd looks when I'm a full grown ass man living in what looks to be a day care place.  I want to lean more towards loving and devoted uncle rather than aging creepy pop star... If you know what I mean.
+If you even think you might be cursed, one of the best ways to not die is to channel a helicopter parent! My entire apartment is toddler-proofed just for events like this one.  My limited furniture is ovoid, and even then protected with toddler edging cushions. All furniture is bolted to wall studs. Any guest that come to my apartment look at my place and me like I am odd, but its not their life and limb I care about. My cover when I feel like explaining is I have a niece I watch occasionally who is 5, has downs syndrome and has epileptic seizures. Full transparency I only use this cover story when I have a non-work company over. Always putting my best foot forward I am! I even have a lot of photoshopped pictures to share that are cute as hell, of me spending time with my "niece".  The reason I am telling you all this is, well, I mean it does get me odd looks when I'm a full grown ass man living in what looks to be a day care place.  I want to lean more towards loving and devoted uncle rather than aging creepy pop star... If you know what I mean.
 
 Anyways  I sat down in my jumbo beanbag to drink my beer out of the sippy cup, being careful not to agitate the cup too much and have the carbonation spray beer all over myself when my phone rang.
 
@@ -43,8 +43,6 @@ It was at this point when the walls were getting fuzzy and my feet were floating
 
 "That motherfu.." And then nothing.
 
-  
-The next thing I can clearly recall is waking up with a splitting headache, gasping  on a cot in a dimly lit  furnished room.
+The next thing I can clearly recall is waking up with a splitting headache, gasping on a cot in a dimly lit furnished room.
 
-  
-"Well, hon looks like you had a heck of a rotten day, huh" remarked the same voice I had heard through the door. 
+"Well, hon looks like you had a heck of a rotten day, huh" remarked the same voice I had heard through the door earlier.

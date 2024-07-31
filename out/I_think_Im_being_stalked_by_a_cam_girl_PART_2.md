@@ -10,7 +10,7 @@ I contacted cyber police, and they told me they’d investigate at some point. D
 
 
 
-I decided to go back to my parents for a while after making the first post. Something about staring at screens all day with little to no friends and being able to add variety to my day really started to weigh on my well-being. I needed a routine. I needed contact. I needed my parents. I didn’t tell them about Rebecca. Why would I? She was a bot posing as a cam girl. A smart one at that with how personalised her messages became. It would just worry my parents or more likely result in them sitting me down and giving me a lecture on internet safety and avoiding certain "adult" sites. I think they’re still struggling with the idea that I’m now 20 and not exactly a kid anymore.
+I decided to go back to my parents for a while after making the first post. Something about staring at screens all day with little to no friends and not being able to add variety to my day really started to weigh on my well-being. I needed a routine. I needed contact. I needed my parents. I didn’t tell them about Rebecca. Why would I? She was a bot posing as a cam girl. A smart one at that with how personalised her messages became. It would just worry my parents or more likely result in them sitting me down and giving me a lecture on internet safety and avoiding certain "adult" sites. I think they’re still struggling with the idea that I’m now 20 and not exactly a kid anymore.
 
 
 
