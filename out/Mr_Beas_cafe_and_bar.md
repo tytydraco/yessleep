@@ -1,0 +1,21 @@
+Around mid-July of 2018, I had just started my new job in a town I moved into roughly 2 weeks ago. I had finally made the leap of faith to move far away from my family home and into my own place. My mother worked a very low-salary fast food job, and my father passed when I was in my first year of university. Since then she was very skeptical in the belief he truly was dead. Whether it was some form of unknown mental illness, general grief or she knew something I didn't, for years she refused to accept it. My siblings and I grew apart pretty quickly after his accident. Everyone blamed each other, I couldn't handle it anymore so I got my necessary items in a suitcase and a bag, and I got the closest train, as far away as it would take me. I ended up on a train to London, it had taken me roughly 7 or 8 hours to get there, and I arrived around 10pm. 
+
+The city was very dark, I didn't really even know where I was until I saw a direction sign lit up by someone on their phone. Their aura felt unsafe, however paying no attention to me, I felt as though they were staring right at me. I gathered my belongings and headed towards one of the open cafes. “Mr. Bea’s cafe and bar”. I headed over slowly, minding my business about the slowly becoming busier nightlife. There were many groups of 6 to 10 people, in the general area. Most of them were drunk girls or high guys. I didn't feel safe in the streets, but the warm lights and quiet, very empty cafe looked safe and warm. 
+
+I approached the building, it had just started raining, and the previous groups of people had begun running inside other clubs or bars, but keeping away from this one. In a way I was glad, I was already quite tired and didn't want to have to put up with a group of not sober people.
+
+The cafe had low lighting, it felt warm and safe. An old radio was playing oldies in the background, it was comforting. The ceiling was light with blue fairy lights, though some were broken. The walls were quite bare, with a few portraits of various people, none I recognized. I sat down at the sofas furthest from the door, just to make sure I was far from anyone who wandered in, and so I could assess the room if things got busy or whatever. I pulled my phone from my pocket, 38 missed calls from my mother, 16 voice calls, and an unbelievable amount of messages from her, a mix of her yelling, apologizing, and then yelling more. Good thing my phone was on silent mode on the train. I swiped the notifications away and muted her calls and messages when a tall, large-built man approached where I was sitting. He startled me, I didn't even hear him approach. He apologized for spooking me and asked if there was anything he could get for me to drink or eat. I requested a hot chocolate and a cream cheese bagel. He said he would return very shortly with my items.
+
+I must've fallen asleep, as I woke up to the man tapping my shoulder, and telling me the cafe was about to close. I looked at him with confusion and apologized. He assured me it wasn't an issue, and told me I was welcome to stay until I finished my food and drink, which could tell had gone cold. I didn't know how long I was asleep, but given the man's rushed look, it must've been a while. I checked my phone, 02:46am. Strangely, I was asleep for almost 3 hours. I must've been really exhausted from the train. 
+
+I finished my drink and ate the bagel, the man once again appeared from wherever he was and was now removing the empty cup and plate. I thanked him and made my way out of the building.
+
+Today I visited the cafe again, it's been a few weeks since I last visited.
+
+I was greeted by the man once again and ordered a hot chocolate and cream cheese bagel. I've been reading my favourite book series, as it's much earlier in the day now, and there's plenty of time for me to finish.
+
+After about 2 hours of hanging out here, I'm going to head back to my apartment.
+
+A huge thump hit me just as I exited. I had no time to react or think, I was out faster than a lightbulb.
+
+I've woken up in a tiny, daunting room. I have no idea where I am but I can hear the familiar radio playing. I must be somewhere near the cafe, or inside it? For now though, I'm really tired, and this buzzing noise is draining me. I'll update again soon
