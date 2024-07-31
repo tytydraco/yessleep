@@ -37,3 +37,5 @@ I asked Anita about it on Friday night when I went in. Made sure I was out by ni
 I don’t know that I really believe him. That sounded bigger than any possum I’ve ever seen, even the one that gets into my garbage every night I started calling Round Ronald. No way a possum was going to get that fierce with a door. 
 
 They canceled service Sunday so I was off. Going back in tonight after the prayer meetings and doing a little cleaning, so I’ll update if there’s anything that happens. I want to chalk it up to just being in a strange place at night but there’s no way those chills were based on nothing. This shit keeps up I might start praying while I’m there[…](https://www.reddit.com/u/googlyeyes93/s/op3l7rncxz)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/kpLPbq2vz0)
