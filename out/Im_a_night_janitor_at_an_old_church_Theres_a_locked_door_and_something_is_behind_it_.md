@@ -59,3 +59,5 @@ I’m going to do some research, maybe see if I can find anything on the cemeter
 Anyway, I’m off until tomorrow night after Wednesday's service. I’ll probably try to do an early clean again in the daylight so I don’t deal with this again. I’ll update if anything happens but I really don’t plan on being there overnight again until I absolutely HAVE [to](https://www.reddit.com/u/googlyeyes93/s/MGJr3fuXLF).
 
 Edit: hey y’all Reddit gave me a seven day ban. I’ll update when I can. 
+
+Edit for the edit: We’re back, bitches.
