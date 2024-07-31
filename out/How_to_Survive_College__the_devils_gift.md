@@ -219,3 +219,5 @@ That was the smile Maria had given me, in the power station basement, when she t
 That’s not Maria anymore.
 
 [It’s](https://alderrayne.com/) [James](https://www.reddit.com/r/goatvalleycampgrounds/).
+
+[Next post.](https://www.reddit.com/r/nosleep/comments/1ege9si/how_to_survive_college_no_good_choice/)
