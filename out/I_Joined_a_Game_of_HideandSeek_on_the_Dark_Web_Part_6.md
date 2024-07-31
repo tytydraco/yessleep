@@ -1,4 +1,4 @@
-Hey guys, I know it's been a while since I [last posted](https://www.reddit.com/r/nosleep/comments/1blchcg/i_joined_a_game_of_hideandseek_on_the_dark_web/) anything about what's happening to me, and my posting of updates throughout this entire thing has been sporadic at best, but I promise we’re getting near the end now.
+Hey guys, I know it's been a while since I [last posted](https://www.reddit.com/user/DantesGhost92/comments/1egjxu1/i_joined_a_game_of_hideandseek_on_the_dark_web/) anything about what's happening to me, and my posting of updates throughout this entire thing has been sporadic at best, but I promise we’re getting near the end now.
 
 So the last time I posted, it was just after I’d managed to get away from that security guard after that masked brute had cut off two of my fingers on the Walmart roof. I’d managed to hide in the alleyway from the police, but I was still on the streets, still exposed.
 
