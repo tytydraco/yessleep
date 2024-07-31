@@ -57,3 +57,5 @@ I got a text from William. Know what it said? Because I expected it to read alon
 I’m going to do some research, maybe see if I can find anything on the cemetery or the church. Hell, I’m about to look into William himself. Something doesn’t sit right about him. And yes, I know, there are going to be some people asking me why I don’t just quit or break the lock. Number one: I am so damn poor y’all. Like I get why the job pays so much now, but the chances of me finding anything else right now are slim. My landlord is chomping at the bit to evict me so he can raise the rent again. Second of all Honestly if it gets down to it, I might. I don’t know what the hell is past that door, but if things start looking like there may be someone, I’m not past some vandalism. 
 
 Anyway, I’m off until tomorrow night after Wednesday's service. I’ll probably try to do an early clean again in the daylight so I don’t deal with this again. I’ll update if anything happens but I really don’t plan on being there overnight again until I absolutely HAVE [to](https://www.reddit.com/u/googlyeyes93/s/MGJr3fuXLF).
+
+Edit: hey y’all Reddit gave me a seven day ban. I’ll update when I can. 
