@@ -96,3 +96,5 @@ I don't know how long I laid there crying in silence and fear, listening to this
 When the sun came up around 5 am, the shadow shifted. It seemed to slowly drag itself away from the window and off my porch.
 
 It's now 6 am as I write this. Bella and I are still shaking. Jake should be getting off work soon. When he gets here, I'm telling him I want to fucking move.
+
+[part 2](https://www.reddit.com/r/nosleep/s/yoIqcv9sWB)
