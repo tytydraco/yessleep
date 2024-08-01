@@ -74,6 +74,6 @@ Jake doesn't seem to really beleive what i told him. He's treating me like I had
 
 But I know what happened. Something crawled up the side of my house last night and tried to look in at me. Something that slapped at my windows and spoke in my voice. I wasn't asleep. And it wasn't a dream.
 
-I know this for a fact. Because in the light of day I went back into that horrible bedroom and looked at that window. I saw the greasy proof that coated the outside of the glass window.
+I know this for a fact. Because in the light of day I went back into that horrible bedroom and looked at that window. I saw the greasy proof that coated the outside of the glass.
 
 There's a handprint on it.
