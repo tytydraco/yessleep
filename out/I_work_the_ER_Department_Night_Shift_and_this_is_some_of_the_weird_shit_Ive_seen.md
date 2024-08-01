@@ -1,0 +1,29 @@
+As the title states, I’m a nurse who works the night shift in ER. During my time here, I’ve seen some pretty horrendous stuff. I’ve been at this job only a year now, and honestly, I’m surprised I’ve lasted this long.
+
+I suppose the majority of the time it’s rather…rewarding, you know? Saving people, especially kids. But some of the things I’m about to tell you, and despite how unrealistic it is, is enough to outweigh that fulfilling feeling enough to make anyone quit for good. I’m used to it now, plus, I’ve only encountered milder stuff compared to my colleagues, but a certain recent event has made me question where I stand. So [](https://web.archive.org/web/20190827032212mp_/https://www.reddit.com/r/nosleep/), I ask you to help me understand what the hell is going on here.
+
+One of the first things I experienced on the job was more bizarre than scary. She wasn’t an old woman, but her hefty and stout stature, with a few wrinkles here and there inferred a few years of unhealthy legal substance abuse. She came in complaining of pins and needles all over her body. She stated, “it doesn’t hurt too bad, but I can’t move.” And, “static is inside of me.”
+
+Of course, I immediately thought she was having a stroke — numbness, tingling, and an inability to communicate properly all pointed to it. A group of more experienced doctors came to run some checks. A few days later, I heard from one of the nurses that the woman died, but not of a stroke.
+
+She had died of organ failure, because all of her organs were as old as an extremely elderly individual, as if someone had put the insides of a 90 year old’s into a 30 year old woman. We’re talking every single organ too. The nurse thought that the “static” sensation the woman was trying to explain was like an increased ageing sensation, like growing pains. I laughed, but it still unsettled me. This woman was healthy, no history of drug use, alcohol abuse, or smoking. Not that they could find, despite her outward appearance. It was just purely unexplainable, but that’s medicine for you. I found it weird that she didn’t seem to have any family, but this is a running trend in these inexplicable experiences.
+
+None of the patients ever have any family.
+
+After that, things became scarier, weirder. A guy came in, bleeding from both eye sockets, no eyes present, but complains about stomach pains. Obviously, everyone on the night shift is more concerned about stopping the bleeding from his empty sockets, and when I say bleeding, I mean this guy was absolutely going to die from blood loss if we didn’t stop it. He really didn’t seem to care about his eyes, or notice it, and instead was losing his mind about the pain in his stomach, and how we had to get “it” out of him.
+
+I remember the urgency in our voices; telling him how we will sort his stomach out once we stop the bleeding. He starts becoming aggressive, and he was restrained and pulled into an empty room, and the responsibility of keeping this guy alive was no longer in my hands anymore. One of my colleagues, we’ll call her (A), came out of that room around 45 minutes later, pale as a sheet, and just says one of the most horrific sentences I’d ever heard at that point.
+
+“His eyes… they were in his stomach.”
+
+When she’d finally settled down, I pressed her about what exactly happened in there. Apparently the guy went totally insane, and just ripped into his torso with his bare hands, tearing into his flesh and ruptured his stomach. He died almost instantly. One of the doctors (I won’t say who because he could get into real trouble with this), curiously looked into the stomach, and found the guys eyes swimming around in there. This lunatic ate his own eyes. (A) didn’t quit, but a few other nurses did. Like always, the patient had no family.
+
+I think I should mention I don’t work in a big city, I work in one of those hospitals that lay in the middle of three small towns, and we’re very much in the middle of nowhere. We’re not exactly the busiest ER department, but we do get a fair share of people who get into accidents on the roads, and so we receive patients from all over the state. Nearly every single one of these “horror story” patients seem to come from nowhere — we put their name into a database and nothing shows up. The names they give us lead to nowhere. People from the towns don’t know them when their obituaries turn up in the paper, and ambulances never bring them to the hospital. It’s like they walked straight out of dense forest to get here.
+
+(A) told me another story of a patient that really creeped her out. I’ll be transcribing it from the voice recording I managed to take. I believe it’s easier to show the raw experience that way:
+
+“So, its like 3am, and this woman walks in with an arrow straight through her neck. Obviously I’m running checks on her to see how the heck she’s walking around with an arrow through her neck, how she’s literally acting like nothing is wrong, but she doesn’t speak, she’s just smiling at me. All these other doctors rush over trying to figure out what to do but she’s just motionless, staring and grinning at me.”
+
+“She was a Miss \_\_\_\_\_\_\_ (blanked out name for privacy reasons, can’t discuss patient information) and she was 37 years old, and extremely tall. Basketball player tall, which made me feel even more on edge. Out of nowhere, staring right at me, she just pulls this arrow straight out of her neck, and her neck snaps and she falls to the ground, still grinning. There’s no blood, as though the arrow was some built in support to her neck, and removing it would break it. I just can’t get her smile out of my mind, it was as if she was taunting me, like something that wasn’t human. As if she knew exactly how to get under my skin.”
+
+That’s all I’ve got for now, but I’ll try keep you guys updated with more stuff I hear about or remember.
