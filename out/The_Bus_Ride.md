@@ -1,33 +1,225 @@
-I (18F) am Native American, Hispanic, and Irish. This means because of my different cultures present in my upbringing we are very superstitious and believe in creatures such as Skin walkers, La Llorona, spirits, wisps, and the list goes on. So from a very young age my mother and grandparents instilled in me that we all needed to abide by certain rules in order to stay safe. 
+I kept telling the emergency doctor, but this imbecile was not listening. I told her many times that I neither was diagnosed nor  have any history of mental disorder. Also these milk-dribbling-good-for-nothing police, why can’t they find that bus? And that driver? I swear. Oh, I really swear. I was not imagining those. 
 
-No whistling ever, no going out after dark, never answer when your name is called, because it might not be who it sounds like is calling you, if you see something trying to get your attention don't let it know you can hear or see it, if you see something creepy do not speak about it( hopefully this doesn't count because I'm typing ), don't go into the forest alone( were from Colorado), if nature goes quiet that's unnatural and you are unwelcome there leave and most of all never run from anything! 
+It happened during my last night bus ride. As seldom as it is, I fell asleep when we passed the first bridge. I remembered that I noted that there were many passengers with me. It got full a few minutes prior to the departure time, so the driver decided to depart earlier.
 
-Many of my family members have had encounters with things they shouldn't have and so that is why to this day I abide by those rules. However they never taught me what to do when someone else doesn't. This is a very true encounter I had just over four months ago however it wasn't my first and if you would like to hear about those let me know. 
+The bump woke me up. I opened my eyes, and squinted because of the bright light of the bus ceiling. When I came to, I found myself alone inside the empty bus, except the driver and me. The outside was pitch black, and the angry rain was tapping on the wide window. I straightened my back and stretched my arms. I could see at the front view of the bus the road illuminated by the low yellow headlight of the bus. However, strangely, I could not recognize any streetlight, the shape of the trees -  just a pitch black. I stood and called the driver.
 
-This happened to me my freshman year of college I got a scholarship to attend a college in New Mexico meaning on breaks I would have to find transportation to be able to visit home. so I settled on the cheapest way home a bus. I saw no point in spending around three hundred dollars one way on a plane ticket to be on a plane for less than an hour when I only had roughly two days of break. So an eight hour bus ride it was. This was in September I had just finished my fall break and was settling in for another long ride back to New Mexico, my mother purchased my ticket so I had a right side window seat and the isle seat next to me was vacant. 
+“Mr. Driver, how far till we reach the last terminal?”
 
-So I had the whole left side of my row  to myself. If you don't know how a grey hound is its basically four seats split down the middle making an isle, two seats on each side. ( if your still confused google it ,I'm not great at explaining) So I made myself comfortable stuck my head phones in. I had come back home from Uni twice before this so  was no stranger to how this worked. We had six stops before mine the last one in New Mexico, so we were continuously dropping off and picking up people like a real city bus. 
+“I don’t know. I apologise for the slow drive but as you can see, it is raining heavily and there’s black out. Ain’t I be drifting in this low visibility.” He answered without looking. It was the voice of a young man. 
 
-There was this one guy sat across from me for the first hour who every once in a while would try to pick up a conversation with me but it would eventually die down. ( He wasn't weird or anything he was maybe twenty and smelt like a dispensary but we WERE in Colorado and he seemed really nice I am just not much of a talker, more of a silent analyzer and people watcher.) 
+His reply made my ears ring and my blood boiled.
 
-So after our second stop he left and his seat was filled by an older man who looked to be in his late fifties early sixties, who was wearing an old beat up military jacket, that had Vietnam war patches on them and a patch across his right side with what I assumed was his last name Smith. He was scruffy and a bit dirty, with a long beard that reached to his waist, and an old worn out green beanie. I'm not a judgmental person like I said I just like to analyze people, and as I said this was the cheapest rout to travel my eight hour trip only cost around sixty bucks so it wasn't uncommon to see homeless individuals, scraping up all there money to buy a ticket. 
+“What the f-“ I stopped myself. 
 
-Anyway he was sat in the row next to me on the right, and he also had both seats to himself however instead of sitting in the window seat he sat in the isle. He didn't bring any bags so its not like he had anything blocking that seat he just didn't sit there. I thought this was a little weird, but I decided it was enough staring for now and turned to the window to watch the mountains pass, as the bus began to move again. After all the previous guy moved to sit in the isle seat when he had the window seat available, but that was after he decided to talk to me. 
+“What did you say?” He asked.
 
-Anyway I wrote it off as people being weird because after all people do weird things all the time, and fell asleep. When I woke up a little over two hours later we had stopped at a gas station somewhere near the Colorado New Mexico border still in  the mountains. The bus driver notified us we had 15 minuets to stretch grab something to eat go to the bathroom or anything else we wanted to do but he needed to pee so he was leaving. Most everyone on the bus left except for a handful of people myself and the man across from me included. I had brought a lunch so I found no reason to leave and I didn't want anyone messing with my belongings.
+“Call me Sir. I am an old gentleman and you ought to address me in that manner..” Then, I sat.
 
- I began to look around and saw the man across from me, he sat board strait and looked directly ahead, still sitting in the isle seat just like how he looked when I fell asleep almost as if he hadn't moved at all over the last 2 hours. I then decided to get off the bus and stretch because my legs were starting to get stiff but also the man had begun to make me really uncomfortable, like a sinking rock in the pit of my stomach so I stood next to the bus driver who I guessed finished his pee break and was standing next to the bus until the break was over. fast forward around 3 more hours the sun had begun to set and it was growing dark, I had fallen asleep a few more times since the last stop but each time I looked over at the man he looked the same as before. 
+“Young people these days don’t give respect to the older generation” I grumbled.
 
-We stopped one last time before getting to my stop, and picked up three other people one of them being a older man looking to be the same age as the other man sitting across from me he had on a similar green camo jacket with Vietnam patches and a name patch over his right peck like the other man. He sat in the window seat in front of me and looked over and saw the other man with a similar jacket. The new man looked over at him seeming a little happy and asked him if he served like him, what his name was and watch branch he served in. The man still looking strait ahead in a voice I can only describe as raspy and animated said " I'm James Hanson" and then continued to stair strait ahead and not answer any more questions. 
+Instead of an apology, I heard him laugh.
+“You do not show that disrespect to me. I have the plate number of this bus. I will report you to your management when I reach the terminal!” My booming voice echoed in the bus interior.
 
-The man looked at him weirded out and confused and just decided to drop it. He turned back towards the window and fell asleep. I continued to look at the man getting that gross uncomfortable feeling of dread again as I looked at his jacket patch that said Smith. The bus driver announced we were an hour away from my stop and I felt relived I couldn't wait to get off this bus and away from this man. 
+The driver laughed harder. 
 
-The sun finally set and I felt the time nearing for me to get off, but I couldn't see much because we were still driving through the mountains, so there were no street lights. And then I heard it. The old man sat across from me had begun whistling in his raspy voice. It was a very menacing sound not like when someone cheerfully whistles to pass time. No it was purposeful, my alarm bells began to go crazy we were driving through the dead forest in the mountains at night and he was whistling. 
+“You oughta take your medicine there Sir.”
+I was surprised by his, my mouth gaped open, without me knowing, and I just shook my head. In my head, I thought that I would have my revenge when I will talk with his manager. I delighted in imagining his smug face wiped off his face. So, I smirked and leaned back and looked at his back.
 
-This guy was crazy someone had to ask him to stop. I looked over at him with chills all over my body and for the first time since he boarded the bus he turned his head towards me and began to smile wide at me. I looked away immediately with the only other thing to look at being the window and I could have sworn I saw something running along the side of the bus like a shadow fast and fluid. 
+“I will have my revenge later, young man.” 
 
-Then we came off the back road and merged onto the freeway going into the city and where the street lights illuminated the road around us. The whistling stopped and the figure disappeared. I was too scared to look at the man so I looked strait ahead frozen being sure not to look out the window either, and stood like that until the bus finally came to a stop.
+The ride returned to being quiet. 
 
- I gathered my things as quickly as possible and practically leapt off the bus into my roommates car. As we were pulling away from the stop I saw him walk off the bus, and just stand there no belongings just staring after me. Lets just say that was the last time I took a grey hound.
+My thoughts flew toward the past when I used to ride a huge pickup truck. The soft seat with authentic smooth leather finish, cool consistent 25 degrees Celsius air condition, a cooler full of cold refreshing beverages inside the customised box under the seat, and above all, a respectful driver who would follow whatever I say, agree with whatever right thing I said and would shake and apologise profusely whenever he committed mistakes or offended me. A complete opposite to this squeaky metal seat, loud, smelly and tight for my large body. The broken air condition caused my only remaining suit covered with sweat and my old briefcase handle dripping wet by my seat. No complimentary snacks or drinks, even just water. But, above all, this freaking piece of work driver, no respect, no remorse. I will definitely destroy him when I meet his superior.
 
-&#x200B;
+I sighed loudly and shook my head.  
+
+I guess people lose their respect for me when I lose my money and power. Had it not been for those snitches, those office workers that I allowed to work in my office, those call girls that received gifts and large sums of money - all of them, after sucking money from me, they turned against me, so ungrateful. 
+
+That incompetent engineer. How could he have failed that project so much? I told him to build a dam. A freaking small dam. But, he failed. Now thinking about it, had he not messed up. All of these wouldn’t happen.
+
+That reporter, the dwarf woman, did not get scared when I threatened her, and how elusive she was? My best men could not silence her. How can she even come and go in my own city without getting out?
+
+I deserved all those good things. I started as a lowly contractual worker. I used to be the “carry this guy” . The old congresswoman used to ask me to carry her shoulder bag whenever she goes, carry this paper, carry that box, carry the fan whenever she speaks in public, and carry a bag of money to her home in the middle of the night. But, I remained her loyal dog. Luck would have it that they broke up with her husband, and an opportunity came dangling in front of me, and that opportunity I took. My new connections and hard work paid off. 
+
+I became a humble local leader. Then, after a year, shot like a rocket to become a Mayor. For ten years, my ex-wife’s brother and I exchanged between Mayor and Vice-Mayor positions. I considered myself a successful politician. Had my name plastered in every infrastructure, mentioned in every major even if I am there or not, but my favourite was looking at my name next to the word “Our Beloved” in tarpoulines welcoming me wherever I went. 
+
+But all gone after that persecution. I got jailed but luckily, I managed to hire good lawyers and got me out after 3 months of supposedly three life sentences. I lost all my assets and wealth, but better than staying in the sorry prison cell and with those stinking lowly men who did not achieve anything in life, wasted their lives to laziness, undisciplined, and dreamless living. Let them rot. I don’t like seeing them. I, on the other hand, look forward to rebuilding from scratch. How so unfortunate of them.
+The bus stopped and the automatic door slid open. The inside of the bus suddenly felt a little chill. 
+
+“Come on in.” The driver gleefully invited someone.
+
+“We are now in a special hour.. All fees are 50% off.”
+
+I heard splashing shoes stomping on the metal steps. I lowered my face and lowered my hat to hide my face and hugged my  briefcase. I saw soggy wet pants and big boots walking toward me and stopped.
+“Good evening. It is a nice rainy night innit?” His voice was booming and his manner of talking seemed like an uneducated man.
+I did not respond. 
+
+“Okay. Good evening to you, Sir..”
+
+He walked to a seat two rows ahead of me on the  lane opposite to mine, and dropped his big butt on the cushion. I could imagine the cushion almost bursting.  His knees and shoes point forward.
+
+“You awfully wet there, big man.” The driver remarked.
+
+“You know Mr. Driver.” He called the young chap.
+
+“Me getting this wet reminds me of the disaster last week. I woke up with water flooding our house. Me get me mama running toward the outside. Saw the entire place was invaded by water. They said it was a sudden rain. This climate change sh** is now uncontrollable. Ain’t it old man?”
+I saw the man’s knees and torso slightly turned toward him.
+
+Again, I did not answer. 
+
+“Well, we have a silent one here, innit?” The man chuckled.
+
+“We are few here on this ride, we suppose men are supposed to talk.”
+
+The driver laughed in response. 
+
+The bus stopped and the automatic door slid open.
+
+“We have a discount fee for a special hour. All fees are 50% off.”
+
+ I saw wet soggy grey pants and brown leather shoes of the second man who entered. Strangely, he seemed to be carrying a rope.
+“That is nice.” The voice of the second man was gentler and meek than the first man. 
+“I apologise. I am soaked wet now.” The man said to the driver.
+
+“Oh no. Just sit down.”
+
+Although I didn’t lift my face, I could see the man sat on the front row seat in my lane. 
+“What a nice ride, a 50% discount.” The first man shouted at the second.
+
+“Yep. That reminds me of the time that a client of mine asked me to discount my profit for 50%. Got my company filed for bankruptcy.” He laughed awkwardly.
+
+“Worse thing happened, the project just went down. I do not know what the consequences were but I heard it was bad. I just ran away and left. “
+
+“Oh, you are a criminal now. I might earn a buck if I tipped you to the police.”
+
+There was a sudden silence.
+
+“Oh no, I am just joking.” the former giggled, the latter laughed nervously.
+
+“No you’re good. I was a convict myself. Got served for 5 years and now just freeman.”
+“Ohh. Thank you.” 
+
+“What's your work?” the former asked.
+
+“Engineer.” His voice cracked. He then gulped loud.
+
+“Build stuff.” He added.
+
+“What is the rope for?”
+
+“Oh, this, this is what is left from my last project. At least, I got a memento.”
+
+The bus stopped again. I wondered what station it was already. I closed my eyes, covered my face with my hat, and leaned my head on the glass window. Tried to get back to sleep so that I wouldn’t be disturbed by these disrespectful men. Don’t they know that it is etiquette to stay quiet in the bus ride so as not to disturb other passengers?
+
+The bus stopped and the automatic door slid open.I heard tiny wet shoes jumped inside and ran toward me. 
+
+“Boy! Come back here.” I heard a loud voice from a woman.
+
+The shoes' steps stopped and squealed when the kid turned around.
+
+“Do not disturb others. Stay seated with me.”
+
+“Where are you going?” The talkative man asked the woman.
+
+“And, I say, that wound of yours is pretty, sorry for better word, nasty.” He added.
+
+“Me and my boy were sleeping when we heard a faint rumbling sound that increased in volume, then  the next thing we knew, the ceiling came crashing down.”
+
+“Oh so you are on your way to the doctor? Is there a doctor in the last town?”
+
+“Yes. We don’t need surgeries. Just some patches.”
+
+“Alright.” The man replied.
+
+The bus stopped and the automatic doors slid open.
+
+“Wel-wait come hurry inside, sugar.” I heard the frantic voice of the driver. But, I just closed my eyes, not my problem.
+
+I heard someone hurriedly climb up the metal stairs, and the umbrella folded. 
+
+“What are you and the baby doing in the heavy rain?” The woman exclaimed.
+
+“Oh, sorry. Just got it from the doctor.” I could hear a loud dripping sound as it hit the metal bus floor. 
+
+It was strange, I wanted to look but refused. I was sleepy after all. Wish they could just shut up.
+
+“Who is the father?” The second man asked. 
+
+“Oh, it was an older man. But he rejected the baby so I raised her on my own”
+
+“What happened to the baby? She looked sickly.” The woman worriedly asked. 
+
+“I had a problem during my second trimester. I was unable to call the ambulance, because I couldn’t afford one, and so,  I unexpectedly birthed her so early.”
+
+“That is too early.” The third passenger commented.
+
+“Yeah, but I managed to raise her on her own. Despite the father not supporting me.”
+
+I say, with respect and pity, that she should have just terminated the baby. Back in my wild days, when I used to have three girls visit my bedroom every week, I had them take pills or whatnot. I didn’t want to sully my name with an illegitimate child with a dirty rag. Well, if it was a model or an artist, maybe it was fine.
+“However, my house was hit by a landslide, and I am on my way to the hospital.”
+
+“Poor baby.” The first passenger joined the conversation.
+
+“The old man in the back. Is he fine?.” The new passenger asked.
+
+“No. He is fine, he’s just sleeping.” The first passenger replied.
+
+I could feel their gazes at me. Strangely, it was cold. Maybe the rain. I just remained pretending to sleep.
+
+Out of nowhere, the bus stopped abruptly and I almost got thrown  forward. This amateur driver will have a taste of even bigger punishment later. So, I just remained in my position, and I didn’t want them to know that I was awake. I didn’t want to talk with them.
+The bus door slid open and I could hear many footsteps and chattering. The bus became loud and even colder. Their voices were loud but unintelligible. My ears were ringing and I got pretty annoyed. I almost wanted to shout at them to shut up but suddenly the bus thrusted forward and I got pushed back to my seat. 
+
+“Hang on everyone.” The driver announced.
+“We are nearing the last station.” Everyone else cheered. But I was struggling, the strong gust of wind was pushing my face and I couldn’t open my eyes.
+
+Then, I felt a strong force pushed me downward and a loud splash almost burst my eardrums. I couldn’t breath and I felt the cold embrace of water all over me. I opened my eyes and found myself floating in an abyss. I could not see the bus or anyone. 
+
+Out of nowhere, a strong force pushed me upward and I landed on my seat. I almost broke my back. Pain was all over my body.
+
+“What the f*** was that Mr. Driver?” I shouted and stood. After wiping off the water from my face, I opened my eyes.
+
+Seated are wet people- bluish skin, dark eyes and their heads turned to their backs like their necks broke off and their black glassy eyes stared at me with mouth forcedly smile from ear to ear.
+
+“Hello Mr. Congressman.” Their bellowing and growling voices said in chorus.
+
+The first man had his face covered with dark purple swells and his lips were dark purple. 
+
+The second man in the grey suit had his blonde hair dishevelled and a thick rope tied on his neck. His face, especially the forehead, had bulging veins.
+
+The mother and son’s half face were missing. Their clothes were soaked with blood. 
+
+The third was a woman with messy makeup on her bluish violet swollen face, and on her hands rested was a glob of blood and flesh dripping on the floor. 
+
+The other passengers had their dark blue faces covered in black mud. Some had twisted limbs. Some missing a part or two. 
+
+“Remember the landslide happened because of your corrupt dam project?”
+
+My heart dropped and my stomach sank. My legs gave out and I dropped to the metal floor.
+ 
+“Yes. We are the ones you killed.”
+
+Without warning, a gush of water flooded the bus again, this time I lost grip on my bag and the metal bar I was holding. My surroundings were enveloped by pitch black. I felt the pressure pushing me down. With all my strength, I swam as hard as I could, without care of where I would go. I could hear whispers and cries. I could only recognize the words 
+
+“In three days. In three days.”
+
+But, the darkness, the could , the hopelessness, were suffocating. I, soon, lost my consciousness.
+
+When I came to, I woke up in the hospital the next morning. The police came to ask me questions. I was told that I was found lying unconscious on the banks of the river near the last town. 
+
+I told them everything but they won’t listen. They discharged me that afternoon. I went home riding the train instead. 
+
+I sent an email to the newspaper stations that I know of that evening, but they did responded for two days now.
+
+So, I am here writing to you guys,hoping I will find answers. Is this a prank? Is this real? If this is a curse. No. I feel that this is a curse. How can I escape this? 
+
+I swear to you, I am a good and innocent politician. My time in the office brought never before seen prosperity in my province. Please help me. This is the least you can do for me.
+
+Sincerely yours,
+
+[Former Congressman] Hidalgo La Castro.
+June 5, 2024. 1:13 AM
+
+[Edit]
+
+I heard a bus stopping by my gate. It is weird. The bus ride does not usually pass in my street. 

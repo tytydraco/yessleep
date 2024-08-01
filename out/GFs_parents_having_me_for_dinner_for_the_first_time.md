@@ -54,5 +54,3 @@ I heard the door to the cellar creak open again, and the rush of dank air made m
 “I’m sorry. You have to get out of here. When you do, move as far away as you can- my parents will stop at nothing to find you. I always liked you better than the others.”
 
 Before i could say anything, she bashed me over the head again, knocking me out cold this time.
-
-I woke up again on the street outside of my apartment with a major headache. I hobbled upstairs and i’ve just been sat on my couch trying to process all of this. What do i do now?
