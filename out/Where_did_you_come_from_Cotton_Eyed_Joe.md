@@ -6,7 +6,7 @@ The days would all blend together in a haze of heat and hard labor, but there wa
 
 My favorite part of the day would be when the work was all finished. Down the road about a quarter mile was a small swimming hole everyone called Sycamore Creek, due to a large Sycamore trees that stood strong over the swimming hole, providing shade like natural umbrellas. Refreshed from my swim, I’d make the walk home and join my granddaddy on the front porch where he’d drink whiskey, and I’d drink tea; often out of a whiskey glass to imitate him. He’d tell me stories about growing up, and we’d often find ourselves cuttin’ up over stories of all the dumb trouble he and his buddies got into. We’d listen to bluegrass on his old radio and look over our fields with a cold drink in our hand. It was these evenings that reminded me why we busted our asses every day.
 
-There was one evening though, where grandpa told me a different story. On this particular evening, my grandpa over-indulged on the whiskey. With the radio playing, an old bluegrass rendition of “Cotton Eyed Joe” came on. 
+There was one evening though, where grandpa told me a different story. On this particular evening, my grandpa over-indulged on the whiskey. With the radio playing, an old bluegrass rendition of “Cotton Eyed Joe” came on.
 
 “If it hadn't been for Cotton-Eyed Joe,
 
@@ -50,7 +50,7 @@ Where did you come from, Cotton-Eyed Joe?”
 
 For the first time, I saw my grandaddy get angry. He tried turning the radio off, turning the dial, hitting buttons, but his drunkenness effected his ability to figure the radio out. He eventually kicked his old radio off the small table it was sitting on. The action caused the radio to skip, and it began repeating the same phrase over and over again, “where did you come from Cotton-Eyed Joe, where did you come from Cotton-Eyed Joe, where did you come from Cotton-Eyed Joe” until my granddaddy picked up the radio, and smashed it on the front porch. I watched him, stunned, and worried.
 
-Breathing heavily, he took off his hat, wiped his brow, and sat back down. 
+Breathing heavily, he took off his hat, wiped his brow, and sat back down.
 
 “Are you.. okay?”, I asked. He didn’t answer. He sat, looking over the field, eyes darting back forth, still breathing heavily.
 
@@ -63,8 +63,6 @@ Breathing heavily, he took off his hat, wiped his brow, and sat back down.
 I paused for a moment before replying, “okay”.
 
 My granddaddy began to tell me this story:
-
-----------------------------------
 
 Let me tell you 'bout them days when I was just a scrawny teenager, runnin' 'round, full of mischief and dreams. Back then, our town was small enough that everybody knew everybody, and Saturday nights was what we lived for.
 
@@ -84,11 +82,11 @@ One night, she and I ended up sittin’ on the edge of the old barn, watchin’ 
 
 I remember the first time I kissed Jenny. It was after one of those wild barn dances when the music had finally died down and the crowd had thinned out. We were standin’ by the bonfire, the embers still glowin’, and I turned to her, my heart racin’. I took her hand in mine, and she looked at me with those eyes, and I swear the whole world stopped. She didn’t pull away. Instead, she just smiled that sweet smile of hers, and that’s when I knew. From then on, we were together at the hip. We’d go out to the creek and talk ‘til the stars started to fade, or we’d just sit together, quiet, watchin’ the fireflies blinkin’ on and off. I’d take her out to the local diner where we’d share milkshakes and burgers, and she’d laugh at my jokes, makin’ me feel like the funniest fella on earth.
 
-Sure nuff’, that summer romance turned into somethin’ deep and true, and it wasn’t long before I asked Jenny to be my wife. We got married in that same old barn where we first met, with all our friends and family gatherin’ ‘round, and I remember thinkin’ how lucky I was. Years went by, Jenny got pregnant, and we had your daddy. Life was damn near perfect, better than I figured I deserved. 
+Sure nuff’, that summer romance turned into somethin’ deep and true, and it wasn’t long before I asked Jenny to be my wife. We got married in that same old barn where we first met, with all our friends and family gatherin’ ‘round, and I remember thinkin’ how lucky I was. Years went by, Jenny got pregnant, and we had your daddy. Life was damn near perfect, better than I figured I deserved.
 
 Until that God damned night, that night that changed my life. Jenny and I had settled in for the night, your daddy sleepin’ in his crib. It was one of those peaceful evenings where the world seemed just right. We’d been married for a few years and had found our rhythm in the life we’d built together.
 
-That night, we were sittin’ on the front porch, rockin’ back and forth in our old wooden chairs, the moonlight spillin’ over the fields, the crickets chirpin’ like they always did. Jenny was talkin’ ‘bout the little garden she wanted to plant come spring and sippin’ sweet tea from a mason jar, just enjoyin’ the calm. 
+That night, we were sittin’ on the front porch, rockin’ back and forth in our old wooden chairs, the moonlight spillin’ over the fields, the crickets chirpin’ like they always did. Jenny was talkin’ ‘bout the little garden she wanted to plant come spring and sippin’ sweet tea from a mason jar, just enjoyin’ the calm.
 
 I started to hear somethin’ ‘cross the field. At first, it was just a few crows, but they got louder and more frantic, like somethin’ had spooked ‘em. I looked out over the fields, tryin’ to see what might be causin’ the commotion, and that’s when I saw him—a figure standin’ tall and still in the moonlight of the field. Crows circled over top him. He was like nothin’ I’d ever seen before, an inhuman figure against the dark field. His clothes were tattered and his face was hidden in shadow, but there was somethin’ unnatural about him, like he didn’t belong. My gut twisted with dread as I tried to make sense of what I was seein’.
 
@@ -104,7 +102,7 @@ I raced after her, but no matter how fast I ran, the distance between us seemed 
 
 She turned around one last time and looked at me with a sad look on her face. Her lips moved, but no sound came out. Before I could take another step, they were gone—vanished into thin air, as if the ground had swallowed her up whole. I fell to my knees, callin’ her name over and over, but the only answer I got was the cawing of the crows that had now began to settle down. Nothing but the empty field and sound of the wind against the trees were left in that night.
 
-I searched the fields for hours, callin’ her name, but it was like she had never been there at all. The lawmen searched, townsfolk helped, but no one ever found a trace of her. Your daddy went and stayed with my mama for a while, as I was too torn up to be a proper daddy to em’. I searched all over these parts, talkin’ to everyone I can about Jenny and that man. 
+I searched the fields for hours, callin’ her name, but it was like she had never been there at all. The lawmen searched, townsfolk helped, but no one ever found a trace of her. Your daddy went and stayed with my mama for a while, as I was too torn up to be a proper daddy to em’. I searched all over these parts, talkin’ to everyone I can about Jenny and that man.
 
 One such day, I went to city hall, lookin’ through ol’ history books about the town. I found an event that happened right hein’ this town in 1847. One summer day, when the sun was settin’ low, a stranger wandered into town. Story goes he was a tall fella, wearin' a ragged coat and a hat that was all bent outta shape. But what really set him apart were his eyes—pure white. Folks was curious, but kept their distance, for there was somethin' about those eyes that set the hair on the back of their necks on end. The stranger didn’t talk, just stood in the distance out in a field.
 
@@ -114,19 +112,17 @@ By the time the rooster crowed, those nineteen women had vanished, taken by the 
 
 Folks started callin’ him Cotton-Eyed Joe, after his white eyes of course. Some said he was a spirit sent to test us, others thought he was a demon meant to punish us. That’s where the song came from, ya see. Nobody knows really who made the ol’ tune, or where it came from, but God damn that song, Cotton Eyed Joe.”
 
---------------------------------------------------
-
 My granddaddy began to cry, quietly to himself, then drift off, looking out into the distance. He knodded off on the porch and I sat, looking over the field. What was once a thing of beauty to me now held a sense of eeriness and dread. I waited for any moment to hear the sound of a crow or Cotton Eyed Joe to come out of that field.
 
-I’ve looked all over for the origins of that old song. Its agreed it originated sometime in the 19th century, but nobody really knows by who, when, or where exactly. There are many versions of the song, some very old, some new, but to me, the words now hold something sinister in them. 
+I’ve looked all over for the origins of that old song. Its agreed it originated sometime in the 19th century, but nobody really knows by who, when, or where exactly. There are many versions of the song, some very old, some new, but to me, the words now hold something sinister in them.
 
-For years now, I’ve spent researching, looking online, reading books, everything I could find. My granddaddy, bless him, is still kickin’, but he hasn’t been the same since that night. I think it just stirred up that old feeling of terror and loneliness in him. I just want to help him get Jenny back before he passes, or give him some closure. Recently, I was in an old spiritual, occult-like shop in Montgomery. I found a book called “The Devil’s Veneration”. The book looked old, very old, and smelled like it too. The book had no author, just a black cover with the title on it. Inside the book appeared to be instructions to various rituals, entities, stories, etc. A load of horseshit I thought. Until I came across one particular entry.
+Since then, I've left the family farm. For years now, I’ve spent researching, looking online, reading books, everything I could find. My granddaddy, bless him, is still kickin’, but he hasn’t been the same since that night. I think it just stirred up that old feeling of terror and loneliness in him. I just want to help him get Jenny back before he passes, or give him some closure. Recently, I was in an old spiritual, occult-like shop in Montgomery. I found a book called “The Devil’s Veneration”. The book looked old, very old, and smelled like it too. The book had no author, just a black cover with the title on it. Inside the book appeared to be instructions to various rituals, entities, stories, etc. A load of horseshit I thought. Until I came across one particular entry.
 
 I found one such ritual which is supposed to summon an entity known as, “Nyxareth the Pallid”.
 
-It describes him as a dark entity, with white eyes, known for luring away woman to be his slaves at his home, which, according to the book, is called “Noxoria”.  
+It describes him as a dark entity, with white eyes, known for luring away woman to be his slaves at his home, which, according to the book, is called “Noxoria”.
 
- According to the book, you can summon Nyxareth the Pallid, who I believe is who I know as Cotton Eyed Joe. According to the book, you must conduct the ritual in a secluded outdoor area, such as a clearing in the woods or a quiet, open field. Begin the ritual at sunset to align with the transition from day to night, enhancing the ritual’s mystical atmosphere. You need:
+According to the book, you can summon Nyxareth the Pallid, who I believe is who I know as Cotton Eyed Joe. According to the book, you must conduct the ritual in a secluded outdoor area, such as a clearing in the woods or a quiet, open field. Begin the ritual at sunset to align with the transition from day to night, enhancing the ritual’s mystical atmosphere. You need:
 
 Three lanterns or oil lamps with candles or fuel, to be lit at sunset.
 
@@ -146,27 +142,22 @@ As the sun begins to set, lay the dark cloth or blanket on the ground in the cen
 
 "As the twilight falls and the day does wane,
 
- I call upon Nyxareth, through shadow and bane.
+I call upon Nyxareth, through shadow and bane.
 
- By the fading light and the encroaching night,
+By the fading light and the encroaching night,
 
- Come forth from the dark, reveal thy sight."
+Come forth from the dark, reveal thy sight."
 
 Chant the Invocation. Stand or kneel by the cloth. Recite the invocation aloud three times, with intent and focus on the crow as you do so. After chanting, place the parchment in the iron pot or cauldron and light it with one of the lanterns. As the parchment burns, visualize the invocation reaching Nyxareth. Observe the crow closely, as the flickering lantern light may create strange reflections and shadows. Keep your gaze fixed on the crow, waiting for any sign of Nyxareth’s presence. To close the ritual, say the following:
 
 "By the end of twilight and the fall of night,
 
- I bid thee return to the realm of fright.
+I bid thee return to the realm of fright.
 
- Depart this place, leave shadows behind,
+Depart this place, leave shadows behind,
 
- And to the darkness, your form bind."
+And to the darkness, your form bind."
 
 Carefully blow out the lanterns or extinguish the oil lamps, starting with the one closest to the crow. This signifies the closing of the ritual. Gather and dispose of the ashes from the parchment and remove the salt circle. Leave the area as you found it, respecting the natural surroundings.
 
 I’ve never been one to believe in these fantastical things, but out of the love and respect for my granddaddy, damnit I have to say I do believe his story. I’m getting together what’s needed, although I suspect capturing a crow might be a challenge. I’m then going to do this ritual, and know once and for all what the hell Cotton Eyed Joe is, and what happened to my grandma Jenny. Hell, maybe I can even get her back. I’ll keep ya’ll updated.
-
-
-
-
-
