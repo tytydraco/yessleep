@@ -1,0 +1,33 @@
+I was a student back then in 2014, my elder sister was just got married in June and it was September 2014 when I lost my uncle, who was very very dear to me and he was a teacher by profession and used to teach me & my siblings.  We are 3 siblings and I am the youngest so my uncle just used to love me alot. He had my name sticked in his every bike he bought. He loved my elder brother & sister too but I was his favourite. 
+
+My uncle had a failed marriage and was a drinker but he never misbehaved with anyone of us in the family, always caring and bringing chocolates for us! we were a joined family but my uncle left the house long ago when his wife left him because of his drinking issues and my father also did not wanted us children to grow where my uncle is drinking endlessly and creating fuss!  
+  
+Even when he was apart, he helped me with studies he used to come home and teach me. One thing he never forgot to bring was my favourite Indian Sweet - Rasmalai. I loved it!   
+  
+Anyways, Cut to his death - His death was very sudden, my father got a call from his colleague randomly on the evening of 15th Sep 2014 when we were informed that his health is very bad, he was drinking alot and he had diabetes which he was not managing and drinking more. And after 1 hour we got another call when were were informed that he is no more. We were saddened, we loved him but could not save him. 
+
+I always felt his presence, love & care even when he was gone. It was all happy memories I had with him. I usually used to get dream about him coming home over weekend with my favourite sweets, teaching me and every memory was sometimes flashing through. 
+
+It was 2016 when I was in my 12th standard and I was preparing hard for my boards. I used to study late in the night to prepare and in the morning I used to have my exams. I chose to study alone in separate room when everyone was sleeping. I remember it was my math's exam and I was preparing and thinking of my Uncle - If he would have been alive, I would not be struggling in this! And after sometime I just slept there on the table keeping my head down. 
+
+It was 3-4AM in the night I was sitting alone on the chair sleeping keeping my head down on table and suddenly a whisper run through my ear 'Get up you are not prepared' I ignored it, after 2 mins same words but its a voice now which I can recognise, it was my uncle. I had goosebumps on my entire arm I looked up and ignored it to sleep once again. After 20 mins a tap on my head comes with voice - 'this is how you will pass you exam? get up' and a box of pen fell on the floor. There! I had enough, I ran to my parents room, they were sleeping peacefully and I just adjusted myself between them and slept. 
+
+The next morning while I was getting ready for my exam I could not stop thinking about what happened in the night I was lost on thoughts, I was thinking may be I was sleepy and imagining things, may be its all in my head. My mom noticed the uneasiness in me and asked what I was worrying about. I told her what happened at night. My mom just laughed and said Uncle loved you so much and wants you to do good that is why he was just trying to help you. Don't you worry, you are good! That gave me a sense of relief and I gave my exams peacefully.   
+  
+Cut-to 2022 - After my 12th I moved to another state for my graduation, I completed my graduation and started working. Now I used to visit home 2-3 times in a year for short time due to harsh work deadlines. It was 2022 when I was diagnosed with disc bulge and I was advised to take complete bed rest for 1 month. I came home to take care of my health. During that my father was planning to renovate the house. 
+
+It was good 10 days I spent at home but I used to feel something odd in the house, the room where me & my mother used to sleep was unbearably cold. I had a dog he always used to be with me. Since my mom snores and I used to be uncomfortable I decided to sleep in another room which was attache to the kitchen. I decided to sleep their alone bcz I had reading habit and since my mom sleeps early I was not able to read with lights on. 
+
+One fine night it may be around 9-9.30PM I was going to sleep with my book in hand, I lay down and my dog comes along sitting on my bed sleeping and I was reading my book. The book got interesting and was zoned out. Since kitchen was attached I could hear things from the window opens to the yard. Our house was destructed because of renovation work. My mom was in her room talking on the phone dad was in washroom. 
+
+I am reading and suddenly I hear somebody calling out my mom 'Sister in law', it was a loud voice and I though mom will hear and answer, I heard that again lil more louder through the window 'Sister In law', I called out my mom - Mom somebody is calling you please check the door. and I heard it again more loud and clear with a loud knock on the window 'Sister in law' followed my loud knock on window. I was irritated bcz mom was not going and checking and my dog got up and ran towards the yard and started barking from where the voice was coming.
+
+I went to my mom's room and in an irritating voice I said 'What are you doing? somebody is calling you from I don't know how long, can't you hear?' My mom looked at my face strangely and said I couldn't hear anyone, who's calling? I said I don't know may be somebody from neighbour calling you 'Sister in law, sister in law'. Her expressions changed a bit we both went out where my dog was standing and barking, we found no one. Literally no-one! 
+
+I realised the voice was just like my uncle. When my father came out from the washroom I told him he just told me that I am thinking alot, I read random books that is affecting my brain. My mom though did not say much and asked me to come to her room and sleep with her. I never slept alone again after that at home. My dog always with me.
+
+The next morning my mom started to ask me weird questions on how am I doing in another city, do I sleep well?, do I hear these strange voices where I stay, did I see unclle in dreams etc. I asked my mom what is wrong? and she told me - 
+
+'Your uncle never left us, he was always here. Your dad and I had many encounters, 1st we thought he is not harmful but now when we are renovating the house from scratch he is not happy about it. Your uncle does not want us to renovate this house. We went to a priest to seek help and he helped us to keep your uncle out of the house and this is why he is not able to enter. This is the reason we hear such voices but nothing much can be done he can not harm us.' 
+
+I still get goosebumps thinking about that night! But with prayers the house is safe and I avoid sleeping alone whenever I go home.
