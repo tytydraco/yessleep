@@ -62,4 +62,4 @@ Edit: hey y’all Reddit gave me a seven day ban. I’ll update when I can.
 
 Edit for the edit: We’re back, bitches.
 
-[Update](https://www.reddit.com/r/nosleep/s/Qee7LzxFzx)
+(Update)[https://www.reddit.com/r/nosleep/s/KoDipDy3oD](https://www.reddit.com/r/nosleep/s/KoDipDy3oD)
