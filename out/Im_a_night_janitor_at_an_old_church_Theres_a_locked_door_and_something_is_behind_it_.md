@@ -61,3 +61,5 @@ Anyway, I’m off until tomorrow night after Wednesday's service. I’ll probabl
 Edit: hey y’all Reddit gave me a seven day ban. I’ll update when I can. 
 
 Edit for the edit: We’re back, bitches.
+
+[Update](https://www.reddit.com/r/nosleep/s/Qee7LzxFzx)
