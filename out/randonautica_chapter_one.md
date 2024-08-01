@@ -1,0 +1,14 @@
+I want to start off by saying I don’t usually post but I love to read stories, so take this as a practice story, feedback is welcome!!
+
+
+I would like to start off by saying I love the paranormal. Ever since I was a kid my favorite movies have ranged from flesh eating apocalypse’s to scary clowns that live in sewers, my point is I don’t scare easily and haven’t for years. Maybe that’s why when I heard about some app that used quantum mechanics and manifestations I was not only skeptical but curious. 
+
+“Dude idk what her problem is, sorry” Everett said as his girlfriend sage did that “fuck off” look to him as we walked to the car, a few feet behind her. “It’s fine but seriously this shit gets annoying after a while Everett” “I know, I know I wish she didn’t act like this” Everett was my best friend of at least 8 years, we started middle school together and now were about to graduate together in a few months. I won’t sit here and say he doesn’t have problems of his own but his girlfriend needs a serious attitude adjustment. We sat in the car for an awkward ride back to middlesgreen from the theater. 
+
+Our town had 2 activity’s, drive aimlessly around the same back roads or walk aimlessly around Walmart. As we pulled up to a gas station I figured which one it would be for the night. “Hey guys why don’t we try that creepy ass app we keep seeing everywhere” I said praying it might break the tension. 
+
+“ randonautica?” Sage said with a hint of excitement “that shits weird as fuck i heard even the creators aren’t even sure how it works” Everett said, he’s the opposite of me, says he doesn’t believe in the paranormal shit but way to scared to fuck around with it.“ that’s probably just something they say to scare people, come on don’t be a pussy” I said chuckling a bit. before I could do anymore convincing sage already begging him, maybe because there’s nothing exciting happing in this town, nor has there ever been, or maybe she was just curious.
+
+ “come on babe it’s probably all bs and it’ll give us something to do.” Sage urged. “Fine but let me do it” I handed Everett my phone as he went through the app seeing different locations people had gone too, some different Languages and something that looked like code. Eventually he got to the option to put in a word. He thought for a second before typing in “ money” “boring” I said wanting something scary. “Bullshit I’m not trying to die tonight, this is definitely dangerous anyways” “fine” I said. Everett went in to pay for the gas. 
+
+“what if we change it while he’s gone?” Sage asked. I smiled at the idea wanting something interesting, maybe a story to tell after this. I grabbed the phone and typed in “ghosts” and it changed our destination. Everett got in the car never noticing the change in our destination and we drove off.
