@@ -64,7 +64,7 @@ I paused for a moment before replying, “okay”.
 
 My granddaddy began to tell me this story:
 
-Let me tell you 'bout them days when I was just a scrawny teenager, runnin' 'round, full of mischief and dreams. Back then, our town was small enough that everybody knew everybody, and Saturday nights was what we lived for.
+“Let me tell you 'bout them days when I was just a scrawny teenager, runnin' 'round, full of mischief and dreams. Back then, our town was small enough that everybody knew everybody, and Saturday nights was what we lived for.
 
 We'd gather at the old Smith family barn on the edge of town, that fallin’ apart ol’ thing. The place had a rough charm to it though, with the floorboards creakin' under our feet and the smell of hay and motor oil hangin' in the air. Me and my rowdy friends, we'd get there early, rollin' up in our daddy’s beat-to-hell trucks with tires that had seen better days. We'd crank up the radio and set up there for the night.
 
