@@ -1,4 +1,4 @@
-
+In the heart of Louisiana's forgotten swamps lies the fictional town of Bayou Noir, a town shrouded in darkness and mystery. Brutal murders, bloodless victims, and rumors of supernatural horrors have plagued this desolate place for centuries. My name is Damon Cordovil, and in October 1892 I embarked on an investigation that led me to confront an ancient evil that lurks in the shadows. This is the chilling account of my encounter with the vampires of Bayou Noir - a story of terror, loss, and a relentless quest for revenge. As the moonless nights approach, the past awakens and the hunt begins again. Do you dare to follow me into the darkness?
 
 
 
