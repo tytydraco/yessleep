@@ -49,3 +49,5 @@ I set the bone myself through a great deal of pain and gritted Teeth I managed t
 As I write this now, my arm still damaged. Torso is still covered in gnarled scratches to say that tonight I will listen closer to the whispers, I will continue to travel forward within the wood because in only two nights I have suffered far too much to simply ignore the place and dawdle aimlessly like I had before. 
 
 Next time I will mind the trees
+
+[[part 3]](https://www.reddit.com/r/nosleep/s/JehikjD6Nv)

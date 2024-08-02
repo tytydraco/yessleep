@@ -37,3 +37,5 @@ I glanced down to see the driving force of my Writings now. From ribcage to ribc
 I have to dress my wounds again. I'll be back to update this thread tomorrow morning with my findings
 
 [[part 2]](https://www.reddit.com/r/nosleep/s/MftiZPzP8l)
+
+[[part 3]](https://www.reddit.com/r/nosleep/s/JehikjD6Nv)
