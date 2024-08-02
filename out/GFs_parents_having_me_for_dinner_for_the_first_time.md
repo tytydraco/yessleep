@@ -54,3 +54,7 @@ I heard the door to the cellar creak open again, and the rush of dank air made m
 “I’m sorry. You have to get out of here. When you do, move as far away as you can- my parents will stop at nothing to find you. I always liked you better than the others.”
 
 Before i could say anything, she bashed me over the head again, knocking me out cold this time.
+
+I woke up, cold and in excruciating pain, in a crumpled heap outside of my apartment. Our apartment. 
+
+I hobbled back up the stairs of the building with my mangled leg and half foot and I'm now sat in my apartment trying to process all of this. I looked again at what was left in my leg- I think they went back for seconds after Adrianna knocked me out for the second time. Big, ugly gashes covered my side- one near my hip being the freshest. On my other leg now and nearing my back, more bandaged chunks were taken out that made it excruciating to breathe and walk. I'm writing this in so much confusion- what do I do now?
