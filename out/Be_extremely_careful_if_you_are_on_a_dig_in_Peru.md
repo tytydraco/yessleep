@@ -1,4 +1,4 @@
-I leave this here now as a warning to everyone who might find themselves involved with archaeological excavations in Peru, because I don't know how much time i have! It's the only thing I can do to prevent that others share
+I leave this here now as a warning to everyone who might find themselves involved with archaeological excavations in Peru, because I don't know how much time i have! It's the only thing I can do to prevent that others share my fate. It happened five years ago, when I was at a dig at a site in proximity of Sipán and my memory of the time when we made the discovery that destroyed my life is still as vivid as if it happened yesterday.
 
 The sun dipped behind the jagged peaks of the Andes, casting a pallid glow across the excavation site. I stood amid the remnants of a Moche home, heart racing as the weight of centuries pressed down around me. For months, I had dedicated myself to this dig—this chance to unearth a lost civilization—and yet as each day unfolded, I felt something darker start to coalesce beneath the bright surface of keen curiosity and academic fervor.
 
@@ -40,6 +40,6 @@ In the days that followed, I struggled to articulate what haunted me—the whisp
 
 Afraid to return, yet called back by the lure of something dark and powerful, I still see the Moche home in my dreams. The walls are alive; the finger bones reach toward me, seeking connection, pleading for release. Each inclusion in those kind of excavations only fuels my obsession - and every passing day deepens my trauma. In my waking hours, I try to find the strength to escape, but the darkness whispers alluringly, promising a soon end of my terrors.
 
-And deep down, I know—what I once sought to unearth will become my very grave.
+And deep down, I know what I once sought to unearth will become my very grave.
 
 
