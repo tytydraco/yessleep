@@ -26,7 +26,7 @@ Maybe he had warned me against going into the attic simply because he didn't wan
 
 I groped for the cord already deciding that must have been what my husband was concerned about when I spotted an item I hadn't seen before.
 
-It was a tall wooden cabinet. The wood it was made off was that cheap Ikea type, certainly note something expensive. Despite this I just felt like something was off about the cabinet. I ventured across the attic being careful not to trip up on all the junk by my feet. I managed to make it over to the cabinet without knocking anything over or injuring myself. I was starting to feel the chill and wanted to get out of the attic as soon as possible, so my only goal was to take a quick look inside the cabinet just to know there was nothing of importance in there.
+It was a tall wooden cabinet. The wood it was made of was that cheap Ikea type, certainly note something expensive. Despite this I just felt like something was off about the cabinet. I ventured across the attic being careful not to trip up on all the junk by my feet. I managed to make it over to the cabinet without knocking anything over or injuring myself. I was starting to feel the chill and wanted to get out of the attic as soon as possible, so my only goal was to take a quick look inside the cabinet just to know there was nothing of importance in there.
 
 I noticed my fingers were a little numb from the cold of the attic as I reached for the little round cabinet handle and opened it.
 
@@ -40,7 +40,7 @@ I checked the rest of the cabinet only to find there was nothing else in there. 
 
 I went to bed and forgot about the cabinet and the red balloon with my name on it. The following morning I went back to the hospital to visit my husband.
 
-I could tell there was something off about him the moment I entered the ward he was in. He was sat upright in bed, his right leg covered in a cast; he had been in the midst of getting out of his car when another driver who had lost control of their vehicle rammed into him, pinning him, and his left leg in particular against an adjacent vehicle. His leg had been broken but would ultimately be fine once given time to heal with the cast on.
+I could tell there was something off about him the moment I entered the ward he was in. He was sat upright in bed, his right leg covered in a cast; he had been in the midst of getting out of his car when another driver who had lost control of their vehicle rammed into him, pinning him, and his right leg in particular against an adjacent vehicle. His leg had been broken but would ultimately be fine once given time to heal with the cast on.
 
 We talked about different things, nothing of any importance, but the whole time I could tell my husband wanted to ask me if I had gone into the attic. He was dead serious but trying not to be, watching me with a strange kind of suspicion.
 
