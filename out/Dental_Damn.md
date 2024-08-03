@@ -56,9 +56,9 @@ I didn’t share Vera’s dark worldview, but she hadn’t always been that way.
 
 “Problem with you, John, is you’re a worm.”
 
-The argument had grown monotonous years ago. But I had realized that Vera just wanted to get my goat. Vera never missed an opportunity to needle me. About being bald. Old. Short. Poor. Name it. As above, so below.
+The argument had grown monotonous years ago. But I had realized that Vera just wanted to get my goat. Vera never missed an opportunity to needle me. About being bald. Old. Short. Poor. Name it.
 
-And at work it was no better.
+***And at work it was no better. As above, so below.***
 
 “I don’t think you can do the job, Mr. Smith," my manager, Rudy, said.
 
@@ -66,29 +66,33 @@ And at work it was no better.
 
 This had been going on for years. Rudy bullying and undermining everybody’s work to Henry, our CTO. I cannot imagine how many consultants Rudy had burned through.
 
-So, I had taken to grinding me teeth, and one thing led to another, and my dentist of 34 years, who, I fondly called, Vlad the Impaler, and all 6'6" of him looked up at my X-RAYs, and then directly back in my, I am sure, scared shitless face.
+So, I had taken to grinding my teeth, and one thing, as it often does, led to another, and my dentist of 34 years, whom, I fondly referred to as Vlad the Impaler, all 6'6" of him was hard at work.
+
+Vlad looked up at my X-RAYs, those long magnifying glasses perched on his big nose. Then his gaze landed directly on my, I am sure, scared-shitless face.
 
 The face that wore my shame and regret for every candy bar, every pint of ice cream, every sugary coffee drink, cake, pie and croissant I had ever consumed in my stressed the fuck out life.
 
-“You need a root canal. But I cannot do it. I will send you somewhere.”
+“You need a root canal. But I cannot do it. I will send you somewhere. I will save your life.”
 
 And so; he did. Let’s call the Root Canal specialist Dr. Hooperova.  
 
-“I have sucked out blood and pus and put the medicine in. Come back in two weeks and we will finish.”
+She said, “I have sucked out blood and pus and put the medicine in. Come back in two weeks and we will finish.”
 
-When all was said and done Vlad the Impaler had shaved the sad remnants of my bum tooth into a post and then a week or so later put in a crown. He had bobbled it, and I almost swallowed it, but we worked together as a team and, just like that, my dental nightmare was over.
+When all was said and done Dr. Hooperova had sent me back to Vlad the Impaler; the operation a success.
+
+Vlad had shaved the sad remnants of my bum tooth into a post, and then, a week or so later put in a steel crown. He had bobbled it, and I almost swallowed it, but we worked together as a team and, just like that, my dental nightmare was over.
 
 Or, so I thought.
 
-One week later:
+One week later, calling for my regular cleaning:
 
 Dr. Vlad the Impaler had passed from this life. Suddenly.
 
-I cried when his assistant Alla told me his heart had just stopped. I had been with Vlad since 23. Within a week his office was closed as if he'd never been there 40 years.
+I cried when his assistant, Alla, told me his heart had just stopped. I had been with Vlad since I was 23. Within a week his office was closed as if he'd never been there, fighting the good fight the last 40 years.
 
-And then there was new pain to interrupt my grief.
+And within days, well, then there was a new pain to interrupt my grief.
 
-Dental pain. Blood and tears filled my sink. I was sweating, too.
+*Dental pain. Blood and tears filled my sink. I was sweating, too.*
 
 And just like that, after a brief text exchange, Dr. Hooperova was officially my new dentist.
 
@@ -110,13 +114,13 @@ And then, then the good doctor was in.
 
 I nodded.
 
-“There’s only one thing we can maybe do at this point.”
+“There’s only one thing we can maybe do at this point I am afraid.”
 
-“What?” I asked timidly.
+“What?” I asked timidly, imagining the worst. A toothless sad depressed me; forever.
 
 “There is a new procedure in trials. I can get you in, I think.”
 
-“Trial for what?”
+*“Trial for what?”*
 
 She told me. I shook my head in disbelief. Then I grabbed my jaw in belief. The pain was real. I was ready to try anything.
 
@@ -158,9 +162,15 @@ This hunger pain is no game. I also find myself growing weirdly accustomed to th
 
 Even as the job I've been assigned by the men in black duck suits, may or may not be, adversely influencing world events. I remember it sometimes in fits and starts in my dreams. The grinding, well now, now it's more of a gnashing. And I have been swimming at night. I thought at first tiring myself out might help with the insomnia, but now, now I just swim back and forth in the pool at the club.
 
-It's better at night. In the day the smells and motion were getting distracted. Making me want steak.
+Back and forth as if... As if I had been doing it my whole life. Thing is before a week ago I couldn't swim. You see, as  boy I almost drowned in Woodstock, NY, when my hippy parents were tripping on acid and I went wading in the moss covered rocks right into the deep end.
 
-I keep having flashbacks of things yet to be, too. Sometimes I am coding. Other times it's darker dreams. I feel a pressure to release, but what? I can't say, rightly.
+I find swimming is more peaceful at night. I had tried it in the day but the smells and all the spastic human motion kept giving me headaches. And hunger for steak. Rare. Very rare.
+
+I also keep having flashbacks of things yet to be. 
+
+Sometimes I am coding. 
+
+Other times the dreams are much darker. I only remember the feeling of this pressure, like something needs to be released, but what? I can't say, rightly.
 
 I get such headaches.
 
