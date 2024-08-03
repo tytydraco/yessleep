@@ -16,7 +16,7 @@ In frantic attempts to shake off the sensation, I pulled my gaze away, wandering
 
 Night fell quicker than anticipated, shrouding the site under an ominous veil as our lanterns flickered and cast erratic shapes against the roaring rafters of the ancient architecture. The others had retreated to camp, but my curiosity gnawed at me—a hunger beckoning me to stay, to delve deeper into the grasp of history.
 
-I took refuge behind the crude walls, feeling the vibrations of age wash over me. I could still hear Sarah’s muffled laughter from afar, the others carrying on, unaware of the weight of the past surrounding them. I leaned in closer to the wall where the bones had protruded, their hollow presence drawing me in.
+I took refuge behind the crude walls, feeling the vibrations of an age long gone wash over me. I could still hear Sarah’s muffled laughter from afar, the others carrying on, unaware of the weight of the past surrounding them. I leaned in closer to the wall where the bones had protruded, their hollow presence drawing me in.
 
 But then I heard it—a thin, rasping whisper that clawed at the edges of my hearing. I leaned closer, my ear against the cold mud, straining against the whisper as it coiled around my thoughts. The words were fractured, sporadic, but it was the familiar cadence that sent an icy tremor through my body.
 
@@ -34,7 +34,7 @@ But I felt it, a presence lurking, something that transcended the bounds of time
 
 Then, without warning, I felt the bones shift violently, a rumble that shook the very foundation of the ruins. The once-solid structure seemed alive, the air dense with a choking sense of urgency. I stumbled backward, terror consuming my senses, and in that blinding moment of dread, I ran—fleeing from the darkness that sought to encase me.
 
-As I burst into the open air, the feast of laughter and conversation continued, oblivious to my harrowing encounter. I collapsed on the edge of our camp, the flickering lanterns seeming to mock my fear..
+As I burst into the open air, the feast full of laughter and conversation continued, oblivious to my harrowing encounter. I collapsed on the edge of our camp, the flickering lanterns seeming to mock my fear..
 
 In the days that followed, I struggled to articulate what haunted me—the whispers lurking in the recesses of my mind, the urgency in those bones standing sentinel over their lordship of the past. I knew I could not stay, not with the chilling call that awaited me within those ancient walls. But it didn’t matter; I was at the mercy of these cursed parts of a dark history.
 
