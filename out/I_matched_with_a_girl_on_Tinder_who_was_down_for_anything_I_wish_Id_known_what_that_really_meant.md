@@ -406,4 +406,7 @@ Tomorrow, I think I'll go back to that coffee shop. Maybe that woman will be the
 
 After all, not every match is going to try to drag you into an eldritch nightmare realm, right?
 
-...Right?
+...[Right](https://www.reddit.com/user/prodshebi/comments/1e5c94y/welcome_to_my_horror_story_universe/)?
+
+  
+[What happend next](https://www.reddit.com/r/nosleep/comments/1ejbg50/i_matched_with_a_girl_on_tinder_who_was_down_for/)
