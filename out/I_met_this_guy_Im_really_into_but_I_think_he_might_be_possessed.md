@@ -211,3 +211,5 @@ Because I’m going to *destroy* her.
 Maybe he’s right that I need to stop trying to save my exes from their demons. But his being so *literal* means it’s something I can defeat. Especially since I have no sins for her to feed on. And as my flawless test scores and boxes of academic awards show, I am really, *really* good at problem solving. If there is a way to take down a demon written in some obscure occult library anywhere in the world, I *will* find it.
 
 So watch out, Lady. One day soon, I’m coming for [you.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[UPDATE HERE!](https://www.reddit.com/r/nosleep/comments/1ek4kgj/theres_a_trapdoor_no_one_knows_whats_below_it/)
