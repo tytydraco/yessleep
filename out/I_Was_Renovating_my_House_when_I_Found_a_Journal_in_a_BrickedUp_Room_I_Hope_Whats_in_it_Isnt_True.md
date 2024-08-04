@@ -1,4 +1,4 @@
- When I first saw the house on the outskirts of town, I couldn't shake the feeling that it was made for me. It was old, run-down, but full of potential, like a blank canvas waiting for an artist. I couldn't believe that the price for the house was surprisingly low. I wanted this house to become my dream place. The house was in the forest; the only problem was the broken internet cable, but I still wanted to renovate it, so I decided to buy it and take matters into my own hands.
+ When I first saw the house, I couldn't shake the feeling that it was made for me. It was old, run-down, but full of potential, like a blank canvas waiting for an artist. I couldn't believe that the price for the house was surprisingly low. I wanted this house to become my dream place. The house was in the forest; the only problem was the broken internet cable, but I still wanted to renovate it, so I decided to buy it and take matters into my own hands.
 
 I started the renovation from scratch—first removing the damaged floors, dismantling broken installations, and stripping off old wallpapers. Every day I woke up before dawn, armed with tools and unrelenting determination. It seemed that the house, despite its condition, had its own soul that I was trying to uncover. Often during work, I felt as if the walls were telling me stories of the past, and its wrinkles were like traces of memories I was trying to decipher.
 
@@ -12,7 +12,7 @@ Tom's journal:
 
 I had always dreamed of having my own place. After years of living in rental apartments, I finally managed to buy my own house in the forest near the city. Finding the perfect place wasn't easy, but I ended up with a cozy, old house. It had its charm and that nostalgic vibe that drew me in.
 
- I hoped to get to know people in the area soon, but for now, I focused on adjusting to the new surroundings. Every day I found small pleasures in daily chores, such as tending the garden or browsing through old books in the attic. Unfortunately, this idyll didn't last long.
+ I hoped to get to know people in the nearest city soon, but for now, I focused on adjusting to the new surroundings. Every day I found small pleasures in daily chores, such as tending the garden or browsing through old books in the attic. Unfortunately, this idyll didn't last long.
 
 The first days were fantastic. I moved in, unpacked my things, and started arranging the space according to my tastes. I didn't have many friends in the city yet, so I spent most of my time alone. I felt happy and calm. Unfortunately, this tranquility was quickly disrupted.
 
