@@ -34,4 +34,4 @@ I told them gramps had died whilst my face was ridden with snot and tears, and I
 
 Please help me, I'm scared.
 
-[Pt 2](https://www.reddit.com/r/nosleep/comments/1ejv9zp/i_miss_gramps_pt_2/)
+[Pt 2](https://www.reddit.com/r/nosleep/comments/1ejzy1m/i_miss_gramps_pt_2/)
