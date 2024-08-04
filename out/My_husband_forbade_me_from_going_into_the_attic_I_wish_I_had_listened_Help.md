@@ -154,7 +154,7 @@ It was as if someone had put a bear trap around my heart and was squeezing it ti
 
 I slipped off the couch and found myself gasping for air. I could hardly breathe and I was panicking so bad I was sure I was going to have a heart attack. The living room and the entire world around me seemed to fade into an obscure mist as I struggled to keep air moving in and out of my lungs. 
 
-A guttural kind of whine choked out of my throat as if I had forgotten how to breathe entirely. Strange spots like static from an old TV showered around my field of vision before everything went dark. When I woke, the daylight outside had been replaced by a black veil and I could hear my mobile phone buzzing on the carpet. Drools had pooled from my mouth onto the carpet and I could feel dampness around my crotch from where I must have wet myself during my panic before. I breathed in a hard lungful of air, my eyes frantically searching around me. 
+A guttural kind of whine choked out of my throat as if I had forgotten how to breathe entirely. Strange spots like static from an old TV showered around my field of vision before everything went dark. When I woke, the daylight outside had been replaced by a black veil and I could hear my mobile phone buzzing on the carpet. Drool had pooled from my mouth onto the carpet and I could feel dampness around my crotch from where I must have wet myself during my panic before. I breathed in a hard lungful of air, my eyes frantically searching around me. 
 
 After a few minutes I managed to have the sense of self to sit upright, the living room swaying some as I situated my back against the sofa. 
 
