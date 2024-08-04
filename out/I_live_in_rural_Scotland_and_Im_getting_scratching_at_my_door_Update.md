@@ -1,4 +1,6 @@
-Hiya everyone, got a wee update for you all. Thanks for all the lovely comments worrying about mine and Alf’s safety, we’re okay, for now. Regarding guns, we live in Scotland so nae guns here unfortunately. So last night was pretty wild. Heard the scratching as I was writing, posted it quickly without thinking and immediately started panicking. Alfie could sense something was up too, poor wee guy was stood behind me whining but still giving out defensive barks towards the back door. 
+
+
+Hiya everyone, got a wee update for you all from my last [post](https://www.reddit.com/r/nosleep/comments/1ehmqol/i_live_in_rural_scotland_and_im_getting/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button). Thanks for all the lovely comments worrying about mine and Alf’s safety, we’re okay, for now. Regarding guns, we live in Scotland so nae guns here unfortunately. So last night was pretty wild. Heard the scratching as I was writing, posted it quickly without thinking and immediately started panicking. Alfie could sense something was up too, poor wee guy was stood behind me whining but still giving out defensive barks towards the back door. 
 
 I questioned what to do for a solid minute or so. Should I really confront him? Fuck it. Live by the sword, die by the sword. 
 
