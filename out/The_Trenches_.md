@@ -32,11 +32,11 @@ I nodded, but my victory was tempered by the sight around me. The trench was a m
 
 We gathered our wits and began reinforcing the trench, grabbing what ammo and supplies we could from the dead. As we worked, the night grew colder, the chill seeping into our bones as the rain started to fall. My breath came in visible puffs, the air still thick with the stench of death.
 
-When the trench was finally secured enough to be deemed safe, whatever that means in a war, groups of people were allowed to sleep in turns. I, among a few other soldiers, drew the short straw and had to stay up to keep watch and alert the rest in case of a counterattack.
+When the trench was finally secured enough to be deemed safe, whatever that meant in a war, groups of people were allowed to sleep in turns. I, among a few other soldiers, drew the short straw and had to stay up to keep watch and alert the rest in case of a counterattack.
 
 I sat in the trench, the buttstock of my rifle resting on the mud below as I looked into the sky, wondering to myself whether my wife and child could see the same stars as me.
 
-"Nikolai," a familiar voice said, startling me from my thoughts, "you good brother?" I turned my head to see none other than Ivan. "I couldn't be better," a small chuckle escaping my lips as I cracked a smile. Ivan looked at me with a concerned face as he noticed the slight tremor in my hand.
+"Nikolai," a familiar voice said, startling me from my thoughts, "you good brother?" I turned my head to see none other than Ivan. "I couldn't be better," a small chuckle escaped my lips as I cracked a smile. Ivan looked at me with a concerned face as he noticed the slight tremor in my hand.
 
 Quickly noticing this, I scrambled to grab a packet of cigarettes, lighting one and taking a big draw. "Withdrawals, am I right?" I said unconvincingly.
 

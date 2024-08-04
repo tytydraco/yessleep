@@ -10,6 +10,8 @@ I reached for the journal. The cover was worn out, and the pages were brown with
 
 I didn't have time to read the journal right away. Each day I spent hours working on the house, changing damaged installations, removing old coatings, and repairing what needed urgent attention. Time was mercilessly pressing me; every minute was precious, and every second spent working on the house seemed to have its own significance. Only at night, when exhausted from daily tasks, could I finally sit in silence and open the journal. Then, after lighting a lamp, I began to read its contents with focus, but I warn you, its content is truly terrifying.
 
+Tom's journal:
+
 I had always dreamed of having my own place. After years of living in rental apartments, I finally managed to buy my own house. Finding the perfect place wasn't easy, but I ended up with a cozy, old house on the outskirts of town. It had its charm, a quiet neighborhood, and that nostalgic vibe that drew me in.
 
 At first, I had little contact with the neighbors. I hoped to get to know people in the area soon, but for now, I focused on adjusting to the new surroundings. Every day I found small pleasures in daily chores, such as tending the garden or browsing through old books in the attic. Unfortunately, this idyll didn't last long.
