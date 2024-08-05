@@ -82,7 +82,65 @@ He then proceeded to stare at me, as the gauze covering his pot belly unraveled,
 
 That's when I realized that Franklin was no burn victim. He was a cryptid. And the bodies that had been disappearing, were surely his doing. Bodies that included my former best friend Brian.
 
-"You monster!" I cried out, my love for him turning to contempt. "You killed Brian!"
+Standing there, frozen in horror, I thought about running...
+
+...But before I could do so, I heard a group of classmates approaching.
+
+And when they turned the corner, I was shocked to find...
+
+...The most popular clique of kids in my class, an unrivaled pairing of about eight guys and girls that included members of both the men's football team and girls field hockey team, and included the Prom King and Queen themselves.
+
+When they saw Franklin and what he had done to his victim, their first reaction was horror, their jaws dropping as they backed away. 
+
+But their fear quickly turned to anger, as the Prom King, Ethan, called out to me, "What do you losers think you're doing? Killing people on Prom night?"
+
+"It wasn't-"
+ 
+But before I could explain myself, one of the field hockey girls interrupted.
+
+"Look at her Prom date! I always assumed he'd look like a monster under there... I never thought he'd actually be one."
+
+"Please, let me explain!" I cried out.
+
+Bu lt they ignored my plea, and circled Franklin and myself.
+
+"Let's make them pay for what they've done!" The Prom King cried out.
+
+"Nooo!" I screamed.
+
+But it was totally late.
+
+The entire group of them began beating us both to a bloody pulp, punching, kicking, and stomping away at us, until I was almost knocked unconscious, and Franklin's insectoid body was nearly cracked open, as green ooze began to seep out of his thorax.
+
+As we both lay there, helpless and writhing in pain, I looked over at Franklin, who looked back at me with his compound eyes, and began twitching.
+
+"Oh we're not done with you yet." The Prom King said to us, before calling out to one of his friends. "Go find a weapon." 
+
+"Why don't we just call the police?" The Prom Queen replied.
+
+But he ignored his date, and signaled for his friend to contine. "Go. Now."
+
+His minion ran off, back down the dark, hallway, in search of a weapon, while the other popular kids gathered around us again, this time smirking and laughing at what they'd done to us.
+
+"It's always the losers you have to be afraid of." One of them said. "They're capable of anything."
+
+That's when the Prom King began to grow impatient with his friend, and decided to take things into his own  hands.
+
+"I can't wait any longer. I'll just do it myself."
+
+He crouched down to the floor, where Franklin was standing, and began pummeling him again.
+
+Over. And over. And over...
+
+...Until suddenly, Franklin's second pair of arms creeped up around Ethan, wrapped around his torso, and cracked him in half, like a metal cracker breaking a lobster, and tossed his lifeless body aside.
+
+That's when Franklin proceeded to hop up from the floor, and eradicate every single member of the popular mob, tearing some to pieces, devouring others, and clawing some clean in half, as I watched on in horror.
+
+When no popular kid was left standing, the one they sent off to find a weapon came barreling around the corner with a baseball bat, only to double back and horror and run away as fast as possible.
+
+Franklin turned to me. 
+
+"You monster!" I cried out, my love for him turning to contempt. "You killed them! And that poor girl! And my best friend Brian!"
 
 But he showed no remorse, instead slowly approaching, all four of his arms raised, his mandibles clicking away.
 
@@ -112,6 +170,6 @@ And despite the fact that I felt terrible for doing what I had done, deep down i
 
 A little while later, I dragged Franklin's body and limbs out one of the side doors and buried him in the woods behind the high school, where a large stone still marks his grave to this day.
 
-Years later, while the disappearances of those few students still remain a mystery to the police, only I know the identity of the monster that was responsible for their deaths...
+Years later, while the disappearances of those students still remain a mystery to the police, only I know the identity of the monster that was responsible for their deaths...
 
 ...Franklin, my cryptid Prom date.
