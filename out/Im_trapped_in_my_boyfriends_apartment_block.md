@@ -67,7 +67,7 @@ Long, inky, veiny limbs on all fours holding up a thin, wirey frame. Its entire 
 
 My food is gone. That thing is below me. Something else is above me. I don't know what to do.
 
-I'm hiding in the door on that very floor. I don't know what else has happened since but the lights have turned on and off multiple times, I've seen shadows and eyes peering in at me when the lights were off but I'm not going to move even when their on.
+I'm hiding in the door on that very floor. I don't know what else has happened since but the lights have turned on and off multiple times, I've seen shadows and eyes peering in at me when the lights were off but I'm not going to move even when they're on.
 
 Theres nowhere to run to.
 
