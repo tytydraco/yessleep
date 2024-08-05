@@ -1,0 +1,19 @@
+It was the fall of '94 when my dad and I decided to go camping at Yellowstone. We planned to stay at a cabin the first night, then leave for the forest and camp there the second and third. The cabin was fine, cozy but a bit rustic. The worst thing there was a rat in the master bedroom, scurrying out from under the bed just as we settled in. Other than that, it was a comfortable spot for our first night. We spent the evening playing cards and enjoying the warm glow of the fireplace, with the sounds of the forest surrounding us. 
+
+Early the next morning, we packed up our gear and left for the forest. The trail led us deeper into the wilderness, where the trees grew taller and denser, their branches forming a canopy overhead. The forest felt alive with the sounds of rustling leaves, chirping birds, and the occasional snap of a twig underfoot. The air was cool and fresh, carrying the scent of pine and damp earth. What was confusing, though, was that even though it was a popular trail that led to a popular area, it was secluded. No footprints. No trash. Nothing. We found a small clearing to set up camp. It was a perfect spot, with a clear view of the sky above. We spent the day exploring, fishing in a nearby stream, and enjoying the beauty of the forest. 
+
+As night fell, the temperature dropped, and we huddled around a campfire, sharing ghost stories until we grew tired. Sometime around 2:30 AM, I woke up with an uneasy feeling. The campfire had burned down to embers, and the forest was eerily quiet. I stepped out of my tent, feeling the cold night air on my skin. I walked to the edge of the woods to take a leak. 
+
+As I was finishing up, I felt a sudden chill that wasn't just from the cold. I looked up and saw it — a face staring at me from a nearby bush. The face was pale, with a gruesome, toothless grin. But the worst part was the eyes. They were all white, with no pupils or irises, but they were bloodshot. They stared back at me, unblinking, just watching. Panic surged through me, and I broke into a sprint towards my dad's tent, glancing back over my shoulder. But when I looked again, the bush was empty. The face had vanished. 
+
+I reached my dad's tent and threw open the cover, shouting for him to wake up. He instantly threw his head forward and rushed out of the tent, wielding a flashlight. I led him to the bush and described what I saw. He looked around, shaking his head, and told me there was nothing there and to go back to my tent and try to sleep. But then, as he glanced around the clearing, his face turned pale. I could see sweat beading on his forehead, and his eyes were wide open in terror. He grabbed my hand, trembling. 
+
+"You know what," he said, his voice shaky, "let's just leave." 
+
+I didn't understand why he suddenly changed his mind, but I knew he had seen something. Something that frightened him even more than what I had seen. I started to walk towards my tent to grab my stuff, but he stopped me, saying to leave it. 
+
+Confused but trusting him, I followed him as we quickly made our way to the nearest ranger station. It wasn't far, and we had a flashlight, but I clung to him the whole way. When we reached the ranger station, my dad spoke to a ranger, describing what he had seen. I couldn't hear the conversation clearly, but I saw the ranger's face grow pale. He offered to escort us back to our car, and my dad accepted immediately. When we reached, the car, we drove off without looking back. 
+
+As the first light hit the car on our drive home, I asked my dad what he had seen. He hesitated for a moment, then told me. He said he saw the face, just as I had described. But what he said next is what has scared me in the 48 years since. 
+
+When he saw the face, it wasn't in the bush where I had seen it. It was in my tent.
