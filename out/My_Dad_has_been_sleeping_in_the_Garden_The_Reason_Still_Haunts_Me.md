@@ -76,7 +76,7 @@ One morning around 7AM I went out into the garden. My dad was still asleep, as h
 
  
 
-“What the hell are you doing!”
+“What the hell are you doing!?”
 
  
 
@@ -92,7 +92,7 @@ Hoisting me up by my collar and gritting his teeth he stared into my eyes. He lo
 
  
 
-“How could you do that to your own father!”
+“How could you do that to your own father!?”
 
  
 
