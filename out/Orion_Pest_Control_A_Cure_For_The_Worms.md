@@ -345,5 +345,7 @@ On a more positive note, at least now we know that hawthorn berries are the cure
 
 So… yeah. That's what happened. I don't know how to end this, so just know that Orion's giantess is free from her wormy prison and will be back soon. 🤙
 
+Update: Nessa is back and she had a little adventure with the [Weeper](https://www.reddit.com/r/nosleep/s/g8n3yvuG4z).
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
  
