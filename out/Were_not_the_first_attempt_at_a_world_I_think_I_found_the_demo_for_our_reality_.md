@@ -51,3 +51,5 @@ Talking to the others that were with me, I’m still not sure what the hell happ
 I’m tired. Everything is still blurry. I feel like I saw something I wasn’t supposed to, like something taboo and ancient. Even though the look of it was relatively recent, it just felt… old. There was something there that wasn’t right. Not to mention whoever the fuck rescued me. God, I have a lot of fucking questions but right now I’m just glad to be alive.
 
 Maybe someone in the homeless camps knows something. I’ll reach out to a few of my shelter buddies too, to see if they’ve experienced anything similar. To be honest, surviving on the streets in the real world seems a little trivial now after seeing all that. I don’t feel like I’m real anymore. I keep hearing scientists talking about living in a simulation, but I think I just saw the demo. God, I hope I don’t have to go there again, [though](https://www.reddit.com/u/googlyeyes93/s/Zrm1REhkVr). 
+
+[Update](https://www.reddit.com/r/nosleep/s/moBqTfpoEQ)
