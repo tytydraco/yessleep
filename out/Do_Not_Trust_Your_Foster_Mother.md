@@ -1,40 +1,22 @@
-DO NOT TRUST YOUR FOSTER MOM
-
 
 
 That was the subject of the email. The sender of the email was blank. It was a white space where an email address should be. It should have been marked as spam, right? Yet, it rested both pinned and starred at the top of my email. I need your help, reader. Should I believe them, and if so, what should I do? 
 
-
-
 The first line of the email said, "Read your attachments in order". 
-
-
 
 I yelled, "Mo—" to call my foster mother and then slammed my mouth shut. 
 
-
-
 My foster mother was a good woman, in my opinion, a great woman, and I should know.I've lived in seven different homes, and I've only wanted to be adopted by one person, my current foster mother. I've only called one matriarch "mother," my current foster mother. She was the only good person I had in my life, and even she couldn't be trusted, according to this email. That's what scared me. 
-
-
 
 Sheer fear gripped my chest. I gnawed at my fingers, a habit I thought I had abandoned in my new home. My stomach ached. I was sixteen, a tough sixteen-year-old, and I felt like a child again in the worst way. Another adult wanted to hurt me.
 
-
-
 My insides were messed up. I wanted to be left alone and never see anyone again, and at the same time, I wanted to be hugged, have my hair brushed, and told everything would be okay. 
 
-
-
 I slammed my laptop shut and ignored the email. I didn't want to know the truth. I didn't delete it. I couldn't delete it. I had to know. However, I did my best to ignore it. I lasted six hours. I opened it half an hour ago today, and this is what I saw. 
-
-
 
 The email sender wrote: 
 
 Hello, I have something big to ask you. It's going to involve a lot of trust, but I need that from you, and I have proof to present to you at the end. I need you to kill your foster mom. If you need a gun, I'll get you a gun. If you need poison, I'll get you poison. If you need a grenade launcher, I'll have it to you by Tuesday. Trust me.
-
-
 
 Your foster mother killed my daughter. My daughter isn't coming back. I don't care about your foster mother going to prison. I don't care about justice. I want revenge. Before you become a coward or self-righteous, I want you to read this. Read this as a mother, and then you tell me what you'd do if it were your daughter. 
 
@@ -222,7 +204,8 @@ It was a picture of my foster mom. It was all wrong. 
 
 I didn't know my heart could beat this fast. I typed on my phone under my covers and with my dresser pressed against the door for my safety. Sorry, sorry, I don’t know why I’m apologizing you’re not here with me.
 
- I keep retyping everything because I miss letters because my hands won't stop shaking. My mouth's dry. I'm so thirsty, but I won't leave this room. I still say it has to be Photoshop, some sort of Photoshop that affects everything because after I saw it, I walked into her room and there was the sweater! Below is a note from the email writer that I'm struggling to click. I really can't take anymore. I really don't know what this is**,** but I don't want it anymore. I want off!
+ I keep retyping everything because I miss letters because my hands won't stop shaking. My mouth's dry. I'm so thirsty, but I won't leave this room. I still say it has to be Photoshop, some sort of Photoshop that affects everything because after I saw it, I walked into her room and there was the sweater! And the thing is… I think she knows I know. I gasped when I saw her and she woke from her sleep. She looked at the sweater once then looked at me and I ran out of there. 
+Below is a note from the email writer that I'm struggling to click. I really can't take anymore. I really don't know what this is\*\*,\*\* but I don't want it anymore. I want off!
 
 I say all that, but I read the note anyway: 
 
@@ -233,4 +216,3 @@ I say all that, but I read the note anyway: 
 *I bet you think I'm a terrible parent after all of that , huh? Well, welcome to the club. It's only me and you in there, and we aren't recruiting new members.  Our only goal is to give Satan your mother back, except screaming, full of holes, and missing a limb or two. Then I'm following her to keep doing the same thing for all eternity. Are you in? I need an answer.*
 
 Guys, I need your help. Up until now, my foster mother has been perfect. What should I do?
-

@@ -1,8 +1,8 @@
-Hiya guys. I’ve got another update. The last one was taken off of here, so I’ll leave a wee link at the bottom of this to the past couple posts to get yous all caught up. 
+Hiya guys. I’ve got another update. I’ll leave a wee link at the bottom of this to the past couple posts to get yous all caught up. 
 
 So aye, I finished writing update 2, picked up my axe and headed into the forest. I went out there with the intention of finishing this. Of getting wee Alfie back. God knows what that man would be doing out there with him. 
 
-Before it was deleted, I did manage to see a few of the comments. Asking what I meant when I mentioned I’d had some trouble with the police in the past. Listen, I’d had some whisky’s. I mentioned some things that were on my mind, but I’m sure they’re not relevant to what’s going on now…ah fuck it. I’ll let you know the gist of it anyway. 
+ I saw a few of the comments on my last post. Asking what I meant when I mentioned I’d had some trouble with the police in the past. Listen, I’d had some whisky’s. I mentioned some things that were on my mind, but I’m sure they’re not relevant to what’s going on now…ah fuck it. I’ll let you know the gist of it anyway. 
 
 It was about 18 months ago, December of 2022. I was putting in serious hours working. 12-13 hour days, 7 days a week. Cutting, shaping and transporting logs from the local forest into the surrounding towns and villages. My work is tough, and in the Scottish Highlands in winter the weather gets pretty atrocious. The winds easily hit 60, 70 or 80mph up the ben’s (hills, for the Americans again) which is where I’m based. There was this one day, Christmas Eve in fact, we were working up one of the bens. Clearing it of any tree’s that posed a warning to the roads at the bottom of the Ben if they were blown over by the wind. 
 
