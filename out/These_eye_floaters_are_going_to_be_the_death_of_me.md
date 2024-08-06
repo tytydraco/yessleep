@@ -96,11 +96,11 @@ Reaching back as far as I could, I felt a
 
 And could feel a new surge of warm liquid coating my fingertips. My throat retched and my chest heaved with the knowledge of what I had just done. My fingers twisted like a blender in the socket that was quickly becoming vacant. I tugged and pulled at whatever bits of connecting tissue I could get them to clasp. It was like a volcano had erupted in my skull.
 
-The pain was hottest in the eye socket, of course, but it radiated like rolling magma, enough to nearly make a pass out. And suddenly, half of my vision was gone. I stood for a moment, feeling the warmth rush down the left side of my cheek. It carried some sort of frothy clump with it. What that was, though, I could not tell you.
+The pain was hottest in the eye socket, of course, but it radiated like rolling magma, enough to nearly make a pass out. And suddenly, the other half of my vision was gone. I stood for a moment, feeling the warmth rush down the left side of my cheek. It carried some sort of frothy clump with it. What that was, though, I could not tell you.
 
 With my arm dropping to the side, I stood. Feeling like I was nowhere at all. I was able to turn my head again. Wriggle my fingers and even swallowed some of the vomit that was trying to escape my throat. I had always wondered what it was like to be completely blind.
 
-I think the first thing people think is that it’s complete darkness. That's wrong though, it's not darkness because they’re no darkness to take in. You just see nothing. I can’t… I don’t have the words. It’s like… think about your vision now. Try to think about your peripherals. Think about the edge of your vision. What do you see beyond that? No darkness, you don’t see anything. That’s what it’s like.
+I think the first thing people think is that it’s complete darkness. That's wrong though, it's not darkness because there is no darkness to take in. You just see nothing. I can’t… I don’t have the words. It’s like… think about your vision now. Try to think about your peripherals. Think about the edge of your vision. What do you see beyond that? No darkness, you don’t see anything. That’s what it’s like.
 
  
 
@@ -109,6 +109,7 @@ I think the first thing people think is that it’s complete darkness. That's wr
 Things were normal. Well, despite the events that brought me there, I was almost at peace in the facility. I was learning how to navigate the world without sight. Normally, I’d have been terrified of going completely blind. But I felt almost relieved. Knowing I’d never have to see those floaters again.
 
 And I was right. I’ll never see them again. I can see them. But that doesn’t mean they’re not there. That doesn’t mean I can’t feel them tickling the inside of my skull. A scratch that I could never reach, all day, every goddamn day. Thank God for Speech-to-text software, right? Thank God, I can tell you all about this misery.  
+
 Do you know what it’s like to feel watched? To always feel watched. To not be able to see your observer. The way my skin never stops crawling. The way parts of my body will flare up with white-hot pain like it was punishing me for fighting back. It just keeps getting worse. I’m starting to just show up in random rooms again, holding random objects. Looking down at them.
 
 Like the floater is mocking me. Like it can see still, but I can’t and it wants me to know that I lost. The worst part. The absolute final dagger in this rotting corpse of me. Is that somehow. Some inexplicable way. Even in all the nothing that I can see. In the complete void of sensory information, I have. I can still see those two little black dots. I can still see them staring at me.
