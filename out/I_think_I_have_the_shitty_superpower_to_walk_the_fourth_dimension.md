@@ -6,7 +6,7 @@ I don't know how else to describe it. The day goes super normal, but whenever I 
 
 Like today for example, one of my coworkers was getting mad that had done a specific thing, and I was pretty sure that I had done the right thing, though everything pointed out that I had done the wrong thing, and I have the vivid memory of having done every thing right, but it's not, as per usual. And all of a sudden, we have the uncanny proof that I had indeed done the right thing, against all odds. And everyone is now confused. That's the newest thing as it will become clear soon enough.
 
-The strangest occurances follow similar pattern. I am 100% certain of having locked the door, as if it mattered that I had done so, and when I come home, the door is unlocked. Even checking the cameras, I can see that I forgot to lock it, when I specifically have the clear memory to have double checked that I indeed locked it. At this level, even obsessive compulsive behaviour and to-do lists won't help me.
+The strangest occurances follow similar patterns. I am 100% certain of having locked the door, as if it mattered that I had done so, and when I come home, the door is unlocked. Even checking the cameras, I can see that I forgot to lock it, when I specifically have the clear memory to have double checked that I indeed locked it. At this level, even obsessive compulsive behaviour and to-do lists won't help me.
 
 Let me try to remember... I believe... The earliest flashback I have from similar events is when I had my parents got mad at me in jarring ways and on multiple occasions for having left the milk outside the fridge whenever I was going for my midnight dairies (I would have the kettle on, have some boiling water, put some honey, salt and milk in one cup, drink that lukewarm, fatty, sugary and salty drinkable perfection while standing, put everything back and go to bed) and I kept swearing to them that I ensured everything was back. But the milk sure was sour in the morning from having been left outside against what I am sure I had done.
 
@@ -22,7 +22,7 @@ As I grew, so did my interest for the Mandela effect. Just out of curiosity. I n
 
 But the worst happened lately.
 
-You see, I have been used to having people telling me that I did or did not do something that was contrary to what I thought happened, so I learn to play meek, low profile. I just accepted that reality just... bends a little in small, shitty ways. Especially when I am having intense emotions. Maybe that’s just how I ought to experience life. Either by having a terrible memory, or by... passively and blindly stumbling through that strange forest.
+You see, I have been used to having people telling me that I did or did not do something that was contrary to what I thought happened, so I learn to play meek, low profile. I just accepted that reality just... bends a little in small, shitty ways. Especially when I am having intense emotions. Maybe that’s just how I ought to experience life. Either by having a terrible memory, or by... passively and blindly stumbling through that strange forest of probable distortions.
 
 What changed however, is, somehow, I thought, what if I could control this. After discovering a version of Minecraft that had the player able to move through a fourth dimension, something clicked. If all it is, is that I nudge through a continuum of worlds right by the one I fleetingly experience, maybe if I “decided” the outcome, I could use this to my advantage.
 
