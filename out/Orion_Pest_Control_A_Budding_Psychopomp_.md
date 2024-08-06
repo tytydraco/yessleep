@@ -1,6 +1,6 @@
 [Previous case](https://www.reddit.com/r/nosleep/s/GAt9pTH8aH) 
 
-One good thing that came out of me getting possessed is that the number of infected deer have gone down drastically since we told the Department of Wildlife about Reyna’s hawthorn berry discovery. 
+One good thing that came out of me getting possessed is that the number of infected deer has gone down drastically since we told the Department of Wildlife about Reyna’s hawthorn berry discovery. 
 
 Unfortunately, one of their employees didn't listen to us when we strongly advised them to ask before taking the berries. His head was mounted on one of the branches, the fruits that he had stolen stuffed  his empty eye sockets. No one has been able to find the rest of him.
 
