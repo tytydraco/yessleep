@@ -24,7 +24,7 @@ But the worst happened lately.
 
 You see, I have been used to having people telling me that I did or did not do something that was contrary to what I thought happened, so I learn to play meek, low profile. I just accepted that reality just... bends a little in small, shitty ways. Especially when I am having intense emotions. Maybe that’s just how I ought to experience life. Either by having a terrible memory, or by... passively and blindly stumbling through that strange forest of probable distortions.
 
-What changed however, is, somehow, I thought, what if I could control this. After discovering a version of Minecraft that had the player able to move through a fourth dimension, something clicked. If all it is, is that I nudge through a continuum of worlds right by the one I fleetingly experience, maybe if I “decided” the outcome, I could use this to my advantage.
+What changed however, is, somehow, I thought, what if I could control this. After discovering a version of Minecraft that had the player able to move through a fourth spatial dimension, something clicked. If all it is, is that I nudge through a continuum of worlds right by the one I fleetingly experience, maybe if I “decided” the outcome, I could use this to my advantage.
 
 Unfortunately, it worked.
 
