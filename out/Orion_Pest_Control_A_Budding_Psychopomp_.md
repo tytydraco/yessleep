@@ -412,6 +412,8 @@ She shook her head. “No. It did. The pull was much weaker than it used to be. 
 
 So now we have a new psychopomp. Thankfully, this one is gentle and kind. Good thing, too. We could use some more of that around here. She just needs her permit. 
 
+Edit: It has come to my attention that it is not a literal permit like a driver's license, which is extremely disappointing. I might make her one as a joke. 
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
  
 
