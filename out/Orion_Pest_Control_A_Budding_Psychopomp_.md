@@ -204,7 +204,7 @@ Tears continued to stream from Deidre's eyes as she deliberated. She was alarmed
 
 Eventually, she rose from her crouch, the wet cardigan clutched tightly in her fist. With only a nod as her answer, she hurried back to the Jeep. Thinking her urgency meant that we didn't have much time, I floored it. 
 
-I called Reyna and told her the situation. Her initial response was, “You're calling me because you want me to watch your *laundry?*” 
+I called Reyna and told her the plan. Her initial response was, “You're calling me because you want me to watch your *laundry?*” 
 
 Once I explained the situation, she agreed to keep an eye on the washing machine while Deidre and I searched for the cardigan’s owner. When the Weeper’s fists tightened as Reyna got close to the garment, we came to the conclusion that it would be best if Reyna didn't lay her hands on it. On that note, she also would have to make sure no one else touched it. As much as I didn't want to be *that person* that hogs the washer, this was a life or death situation. 
 
