@@ -1,4 +1,4 @@
-My school had many teachers leaving and going, that was the a common thing in our area. Everyone in my class couldn’t wait to be transferred into 9C, especially when Miss Smith moved to a new school. The excitement coursed through every student at Woodridge, when they heard that a young male teacher was being transferred to take over 9C.
+My school had many teachers leaving and going, that was a common thing in our area. Everyone in my class couldn’t wait to be transferred into 9C, especially when Miss Smith moved to a new school. The excitement coursed through every student at Woodridge, when they heard that a young male teacher was being transferred to take over 9C.
 
 
 The word quickly spread throughout the school to who was going to be in this teacher’s classroom. Me and Jonas were selected as well as fifteen other students. 
