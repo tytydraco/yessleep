@@ -16,19 +16,19 @@ But, it did not stop at them.
 
 What else. At school I had people almost literally bark at me for being in their way when just moments ago I was not. I thought I was losing it, or that they were bullying me to make me feel small and attackable.
 
-Then on other, even weirder occasions, I would have no recollection whatsoever of ever having done a homework, plain and simply having postponed then forgotten to do it, and when the teacher was coming to pick up the assignment, I was planning to just play fool and look in my bag in a futile attempt to play "I think I forgot my homework at home" only to be thoroughly puzzled by the touch of the paper, already done, in my very own handwriting. And when seeing my slow response the teacher would just scoff and yank the pages from my hand. So normal. So off.
+Then on other, even weirder occasions, I would have no recollection whatsoever of ever having done a homework, plain and simply having postponed then forgotten to do it, and when the teacher was coming to pick up the assignment, I was planning to just play fool and look in my bag in a futile attempt to play "I think I forgot my homework at home" only to be thoroughly puzzled by the touch of the lined paper, already done, in my very own handwriting. And when seeing my slow response the teacher would just scoff and yank the pages from my hand. So normal. So off.
 
 As I grew, so did my interest for the Mandela effect. Just out of curiosity. I never paid much attention to it, but it felt so bizarre and relatable that many would feel as I would at a grander scale. And it kind of gave me solace about what I thought was that constant gaslighting, be it from social or divine prank.
 
 But the worst happened lately.
 
-You see, I have been used to having people telling me that I did or did not do something that was contrary to what I thought happened, so I learn to play meek, low profile. I just accepted that reality bends a little in shitty small ways. Especially when I am having intense emotions. Maybe that’s just how I ought to experience life. Either by having a terrible memory, or by... passively and blindly stumbling through realities.
+You see, I have been used to having people telling me that I did or did not do something that was contrary to what I thought happened, so I learn to play meek, low profile. I just accepted that reality just... bends a little in small, shitty ways. Especially when I am having intense emotions. Maybe that’s just how I ought to experience life. Either by having a terrible memory, or by... passively and blindly stumbling through that strange forest.
 
 What changed however, is, somehow, I thought, what if I could control this. After discovering a version of Minecraft that had the player able to move through a fourth dimension, something clicked. If all it is, is that I nudge through a continuum of worlds right by the one I fleetingly experience, maybe if I “decided” the outcome, I could use this to my advantage.
 
 Unfortunately, it worked.
 
-About a year ago, someone was belligerent towards me for no reason, and I thought, they need a little lesson, and as my stress level went up, I had a mental image of where I wanted to shift us. So we ended up pretty much where we were, expect when they reached for their pocket, they could not find their phone anymore. And their annoyance turned to confusion, then to the budding of a fear. The anger they had quickly subsided and they kindly asked me if they could use the computer to locate their phone, and I told them “It’s probably at your home” “That can’t be true, I used it on my way here, even minutes ago” and, lo and behold, at their home it was.
+About five year ago, if I remember well, someone was belligerent towards me for no reason, and I thought, they need a little lesson, and as my stress level went up, I had a mental image of where I wanted to shift us. So we ended up pretty much where we were, except when they reached in their pocket, they could not find their phone anymore. Their annoyance turning to confusion then to the budding of a fear, the anger they had quickly subsided as they kindly asked me if they could use the computer to locate their phone, and I told them “It’s probably at your home” “That can’t be true, I used it on my way here, even minutes ago” and, lo and behold, at their home it was.
 
 That person shut it. They could not believe it and neither could I. Well. I knew right then, that things were going to be different.
 
