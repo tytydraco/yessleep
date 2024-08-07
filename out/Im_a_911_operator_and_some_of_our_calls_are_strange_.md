@@ -1,4 +1,4 @@
-Hey there, I’m glad you guys liked my last post https://www.reddit.com/r/nosleep/s/ZQ0ShvOqAn about the weird calls we get here at Greenbrier 911. To answer a few questions, we don’t have a SWAT team here at Greenbrier. Our officers are given a large allowance each year for firearms and body armor. 
+Hey there, I’m glad you guys liked my last [post](https://www.reddit.com/r/nosleep/s/ZQ0ShvOqAn) about the weird calls we get here at Greenbrier 911. To answer a few questions, we don’t have a SWAT team here at Greenbrier. Our officers are given a large allowance each year for firearms and body armor. 
 
 You might be wondering why anyone would choose to work on the police force when the fatality rate is fairly high, well it’s pretty much all due to money. 
 
