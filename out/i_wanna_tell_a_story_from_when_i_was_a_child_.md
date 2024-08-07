@@ -4,8 +4,11 @@ i was at school as normal nothing out of the ordinary happening, until lunch tim
 
 this girl who i was friends with ill call her jessica, she starts telling me about bloody mary, scary mary n the charlie charlie challenge (this still scares me as an 18 year old bc of what happened 😐) she explains tccc to me n i’m just like ‘hm okay’ looking kinda confused at her ig.
 
-she gets a tissue, the ones your dry your hands are n draws a plus sign then puts on there with a whiteboard pen in each section of this large plus sign ‘YES | NO 
-                    NO  | YES ‘
+she gets a tissue, the ones your dry your hands are n draws a plus sign then puts on there with a whiteboard pen in each section of this large plus sign
+
+ ‘YES | NO 
+   NO  | YES ‘
+
 she gets the pen that she used n asked what you ask i hate saying it 😐 ‘cc are you there’ it wasn’t windy none of our mouths were near that pen n i shit you not it goes to diagonally yes o shit myself ofc i was quite scared n i just said goodbye i couldn’t carry on it was creeping me out so bad.
 
 i went to the toilet n these toilets were creepy af anyways (apparently my primary school was a WWII hospital or something which is creepy enough on itself so if it’s true it might explain why this toilets were the creepiest) i wasn’t scared to go in these toilets on my own until after this, anyways, i was in the toilet doing my business n take in count my friend ‘jessica’ was doing bloody mary or scary mary i literally screamed ‘DONT DO THAT IN HERE I DONT WANNA BE IN HERE JESSICA OMG STOP’ she said it twice before she stopped, she left just as i was done in the toilets n said she’d meet me outside the toilets, the doors close n the fucking lights turn off, ofc i was scared af so i quickly pulled my stuff up n ran so fucking quickly to leave i wanted to cry.
