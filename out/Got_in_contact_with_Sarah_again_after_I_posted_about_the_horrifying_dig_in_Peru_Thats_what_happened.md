@@ -2,7 +2,7 @@ Hello Nosleep. I have news to tell! After I posted my report about the disturbin
 
 The subject line was simple: "Urgent - You need to see this." To tell more about her, she's an anthropologist and her research is focused on ancient Peruvian cultures, specifically on the Moche. She was always been fascinated by their intricate ceramics, particularly the ones depicting scenes of everyday life, war, and… well, the odd, sometimes sexually explicit images.
 
-She told me of a special peace of extremely graphic Moche pottery. A Moche vase, its surface painted with a scene of skeletal figures dancing in a frenzied, almost chaotic circle. The figures were rendered in abstract detail, their bones articulated with a disturbing sense of being animated. The paint was vibrant, almost luminous, and seemed to pulsate with a kind of strange energy.
+She told me of a special piece of extremely graphic Moche pottery. A Moche vase, its surface painted with a scene of skeletal figures dancing in a frenzied, almost chaotic circle. The figures were rendered in abstract detail, their bones articulated with a disturbing sense of being animated. The paint was vibrant, almost luminous, and seemed to pulsate with a kind of strange energy.
 
 As she stared at the image, a shiver ran down her spine. It wasn't just the unsettling nature of the subject matter that unnerved her; it was a feeling, an inexplicable sensation, that something was wrong, deeply wrong. She told me of a subtle shift in the air, a tightening in her chest, as if a malevolent presence had entered the room.
 
