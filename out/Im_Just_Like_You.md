@@ -242,5 +242,5 @@ I left my home and the Pepperjack man's whining. Again, I entered the bus.
 
 I nodded once and took my seat on the bus. The bus driver Sam, as I'd find out later, was right. They were freaks but also a lot like me. As the bus rolled on, I found unexpected kinship with my fellow travelers. We shared stories over card games, our laughter a strange counterpoint to our grotesque appearances. They urged me to write about this journey, to capture the beauty in our shared brokenness. 
 
-I am still somewhat upset I wasted so much of my time there. But reader, I ask you not to judge me so hard, after all, like I said before, I'm Just Like You. Look around you. Are you withering away in a place that you don't quite seem to fit in? If you find yourself in a place you hate and you can't quite escape, understand you can, but you may be under the influence of the Pepperjack Man.
+I am still somewhat upset I wasted so much of my time there. But reader, I ask you not to judge me so hard, after all, like I said before, I'm Just Like You. Look around you. Are you withering away in a place that you don't quite seem to fit in? If you find yourself in a place you hate and you can't quite escape, understand you can, but you may be under the influence of the Pepperjack [Man](https://www.reddit.com/r/Finchink/s/QSNIhHPoh8).
 

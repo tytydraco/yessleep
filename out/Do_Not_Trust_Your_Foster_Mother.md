@@ -215,4 +215,4 @@ I say all that, but I read the note anyway: 
 
 *I bet you think I'm a terrible parent after all of that , huh? Well, welcome to the club. It's only me and you in there, and we aren't recruiting new members.  Our only goal is to give Satan your mother back, except screaming, full of holes, and missing a limb or two. Then I'm following her to keep doing the same thing for all eternity. Are you in? I need an answer.*
 
-Guys, I need your help. Up until now, my foster mother has been perfect. What should I do?
+Guys, I need your help. Up until now, my foster mother has been perfect. What should I do[????](https://www.reddit.com/r/nosleep/s/xVxgd3SS8B)
