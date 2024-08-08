@@ -38,3 +38,5 @@ Oh fuck. Magnets. Holy shit why didn’t that click earlier? They’re digital, 
 Sorry, little trauma dumping. I ended up falling asleep in the alley until about noon when it became too uncomfortable. The sun was hitting the trash back there just right to really bake some old dairy. Made my way back to the library instead to scour the internet more, maybe find some answers, and write all this up.
 
 I think I need to find the Sloth. He definitely wasn’t a part of that world, with much more clearly human features even just by his build. Until then I’m going to see if I can swipe a few magnets from the library desk. If anything I might be able to find the stuff to make a small electromagnet. Maybe I can find something lying around the trash. Until then, I’m definitely not sleeping here, so guess it’s back out on the street along with all the other [American strays](https://www.reddit.com/user/googlyeyes93/comments/1efyman/strays_chapter_masterlist/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button).
+
+[Update](https://www.reddit.com/r/nosleep/s/yYUNCv0Oui)
