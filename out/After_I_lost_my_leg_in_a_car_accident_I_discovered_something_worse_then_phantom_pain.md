@@ -1,6 +1,6 @@
 I got into a car accident a few weeks ago.
 
-One moment I was tapping a finger along to Boston's *more than a feeling* on my morning commute to work, the next, I was waking up in a hospital gown in an unfamiliar white room.
+One moment I was tapping a finger along to Boston's *more than a feeling* on my morning commute to work, the next, I was in a hospital gown in an unfamiliar white room.
 
 A doctor told me a semi had blown through a red light and t-boned me on the drivers side of my car, the end result was having my left leg amputated below the knee.
 
