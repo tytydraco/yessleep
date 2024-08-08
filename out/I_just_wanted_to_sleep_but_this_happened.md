@@ -97,5 +97,3 @@ I couldn't fight this. I was being dragged. My phone slipped from my hand and cl
 Then, I woke up. 
 
 Drenched in sweat, my heart pounding.
-
-Then I heard a creaking sound coming from below, in our bathroom.
