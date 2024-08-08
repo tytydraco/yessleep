@@ -30,9 +30,9 @@ The next few nights were a bit quiet. Classic tunes, song requests, and hours of
 
 Should I play it? Should I not? Is this another prank? Maybe. Maybe not. But in the end, curiosity got the best of me, and I played the song.
 
-I waited as the song played, checking my surroundings wide-eyed. Minutes passed, and nothing out of the ordinary happened. Until a strong lightning strike outside and heavy rain started to pour. Lights from the booth and the whole building started to flicker ominously. How could this happen? Not wanting to know more, I immediately ended my broadcast and went straight home.
+I waited as the song played, checking my surroundings wide-eyed. Minutes passed, and nothing out of the ordinary happened. Until a strong lightning stuck outside and heavy rain started to pour. Lights from the booth and the whole building started to flicker ominously. How could this happen? Not wanting to know more, I immediately ended my broadcast and went straight home.
 
-I called in sick the next night. I had to either booze myself up or pop a tab just to fall asleep.
+I called in sick the next night. I had to either booze myself up or pop a pill just to fall asleep.
 
 Another night, another request.
 
