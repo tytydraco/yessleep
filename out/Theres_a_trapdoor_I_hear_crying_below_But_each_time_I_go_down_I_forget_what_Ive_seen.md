@@ -123,3 +123,5 @@ I touch the thin line of blood, and then find one more clue tucked in my pocket.
 *Do not* ***g****o* ***d****own!!! If you want to* ***m****ake* ***s****ure* ***S****ophie* ***i****s* ***s****afe, break the wards that are* ***s****et around the* ***t****rap door. Stay* ***u****pstairs!!!* ***U****se the notes to dispel the wards. Do not come down again, because your* ***l****ight draws it* ***t****o her!! Sophie is hiding* ***b****lind in the dark from the thing that took her sister.* ***I****t was summoned here by the wards, which keep it in this world, but if you* ***b****reak* ***t****he* ***w****ards* ***t****hen that will* ***k****ill* ***i****t (dispel it) and set Sophie free.*
 
 ***W****hen* ***i****t is gone Sophie will be able to* ***c****ome* ***u****pstairs* [*safely.*](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[UPDATE!](https://www.reddit.com/r/nosleep/comments/1enyk7t/theres_a_trapdoor_ive_been_down_13_times_each/)
