@@ -1,0 +1,19 @@
+Damn, he killed another kid tonight, that bastard has been killing for months now, I still remember the first murder he committed.
+
+My eyes slowly adjusted to the darkness as I came back to consciousness, as I awoke, I realized I couldn't move, I was tied to a chair, I had the worst headache I've ever experienced, and... a voice, I was hearing a voice that I didn't recognize, "who, who's there, what's going on where am I how did I get here".
+
+"So, your finally awake, I was starting to think you were dead after that last hit." "Wha what, what are you talking about" I was still so out of it I could barely form my sentences, "look I'm just a teenager, please just let me go and I won't tell anyone, it's so dark in here I can't see you so I couldn't say anything to anyone anyway, please I just want to go home."
+
+The man sighed, "well, your half right, you're not gonna tell anyone, anything, but there's one problem" the dark figure stepped right in front of his face, and "now you see my face, don't you" he struck a lighter, and the man before him was about six feet tall, had short black hair and a short beard, and was young, not as young as the teenager bound to the chair but if he had to guess, in his twenties, "you see my face, I want you to memorize every line, every detail, cause it's the last thing your ever gonna see"
+
+"Why are you doing this I haven't done anything to you, I've never even seen you please, I swear I never saw you I promise" tears began running down his face, "stop crying, that won't save you, you’re not here cause you did anything, your here cause you’re the first one I spotted driving down the road" I tried to pull myself together "I don't understand why you’re doing this.” The man walked out of sight and grabbed a bucket and placed it in front of his victim and sat down.
+
+“So, you want a motive, is that it… ok here, I’m crazy, I’m evil, I’m bored and wanted something to do, you like any of those?” The teenager just sat and stared at the man, tears running down his face. “I’m gonna kill you now, and I’m gonna watch you as you take your last breath, and I’m the last thing your ever gonna see” the man took a knife out from behind his back and stepped toward his victim 
+
+“NO! PLEASE DON’T DO THIS PLEASE!” The teenager began crying and thrashing in his restraints hysterically now, the man reached out to his victim and tried to grab his head, but the teenager snapped his jaws at the man’s hand, “You little shit” he punched his victim in the head, grabbed his hair, pulled his head back and slit his throat.
+
+“I should stab you in the face for that, but I think I’ll just leave you here to bleed out have fun with your last thoughts kid.” I was alone now, I felt my heart rate increasing and I began feeling hot and sweating, I started to panic trying frantically to break free from my restraints, but I couldn’t free my hands in my panic I tipped my chair over, I began sweating profusely now and I couldn’t control my breathing I felt as if I had been sprinting. 
+
+I feel tired now I began drifting in and out of consciousness, yet my heart felt as if it was going to burst from my chest, I started to shiver and shake, my hands touching one another felt like ice. Finally, I became unconscious for the last time, I went into a coma and took my last breath, my name was Thomas Dreary… and I was only 17 when I died.
+
+Several months ago, his body was discovered, by me, who am I, for now just the guy that found him I'll leave it at that, the only reason I'm writing this is because I'm hoping that telling his story will make the nightmares stop.
