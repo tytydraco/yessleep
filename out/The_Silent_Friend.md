@@ -50,5 +50,3 @@ From that day on, I was a shadow of my former self, a man marked by the forest a
 
 
 Since finding this letter, strange things have been happening to me. On cold, winter nights, I've heard scratching at my door. At first, I thought it was my imagination, a trick of the wind. But the scratching is real, persistent, and growing more insistent. I don't know what to do. Part of me wants to open the door, to see if there's any truth to my grandfather's story. But another part of me is terrified of what I might find on the other side.I don't know what to believe anymore. Is this some kind of family curse? Am I losing my mind? If anyone has any advice or has experienced something similar, please let me know. I feel like I'm living in a nightmare, and I don't know how to wake up.
-
-Thanks for reading
