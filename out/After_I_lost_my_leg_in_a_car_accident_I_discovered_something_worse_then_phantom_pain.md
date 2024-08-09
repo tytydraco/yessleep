@@ -16,7 +16,7 @@ I immediately spun around *WHO THE FUCK IS THERE!? I MAY BE IN A CHAIR BUT IT WO
 
 *IM WARNING YOU! IM NOT FUCKIN AROUND.*
 
-I was sweating profusely and my thumb almost slid off of the hammer of my pistol as I tried to cock it.
+I was sweating profusely and my thumb almost slid off the hammer of my pistol as I tried to cock it.
 
 *clomp, clomp, clomp*
 
