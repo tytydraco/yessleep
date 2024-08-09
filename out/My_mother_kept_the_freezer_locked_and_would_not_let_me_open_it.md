@@ -1,0 +1,19 @@
+I remember that freezer from my childhood—not the food or the way it buzzed, but the door itself. It was locked by a heavy-duty chain that wrapped around it like a starving boa constrictor. Bright red letters were scribed across the front: “DO NOT OPEN.”
+
+My mother’s voice was stern and unyielding whenever I tried to open it. “Do not open the freezer, Darling,” she would say, her eyes and words strained by something my childhood brain didn’t understand.
+
+Years later, after moving away to upstate New York for my postdoc and following her passing, I found myself standing in that same kitchen again, yearning to know the secrets she had kept from me all these years. By this point, the chain was gone. The sign was gone. And all that remained was a faint outline where the words used to be.
+
+As a child, I never questioned it much. The locked freezer was just one of many strange rules in my house. My mother was a hypochondriac when it came to us kids. I was homeschooled until I was nine, rarely had visitors, and struggled to make friends because my mother feared other kids might contaminate me with some horrible disease. I suspect this was because my older brother, Tyler, passed away before I was born. When I asked about him, my mother’s lips would tighten into a thin line.
+
+Over the years, I pieced together conversations between my mother and family. The word “baby” always caught my attention, followed by words like “gone” and “poor thing.” They painted a blurry picture of something terrible, an accident or unfortunate event. Whatever happened changed my mother forever. The once happy-go-lucky woman was forged into cast iron, someone withdrawn and haunted.
+
+The house felt cold since she passed, an echo of emptiness I had felt but never understood. I spent days cleaning and sorting through her life, each box and paper revealing a little more about the woman I thought I knew. I found an old journal in her nightstand. The leather was worn, and the pages were yellowed with age. The entries were disjointed and sporadic, often containing only fragments of troubled thoughts. She wrote about “the frigid darkness,” a suffocating presence that shadowed her every move. One line struck me to my core:
+
+"I am afraid of what I’ve done, of what I might do. I cannot let them find out. The freezer is my only refuge."
+
+I didn’t know what she meant. I feared I knew—but my mind refused to believe. My hand shot for the freezer door, my heart pounding in the silence. I hesitated, still hearing my mother’s voice warning me one last time. A part of me hoped it would still be locked, but as I pulled, the door swung open with ease.
+
+I stared into the dark abyss as frigid air filled my nose, causing me to clamp my eyes shut. The faint smell of mildew lingered as I opened my eyes. Inside was a small box, like a cake box. For a moment, a small ray of hope shone through the frigid darkness. Maybe this is the top of my parents' wedding cake. My father left when I was two, so maybe Mom was just nostalgic and didn’t want anything to happen to it. I grabbed the box, slowly pulling it out, and set it on the dining room table. As I lifted the lid, a small bundle of plastic and cloth was neatly wrapped inside. The plastic was old, crinkling under my trembling touch as I unwrapped it. A sense of foreboding washed over me, one last whispered warning before it was too late. The final piece of cloth fell away, and I was face to face with an infant. Horrified, I lurched backward, dropping the box in a fit of anxiety, rage and disgust. In my weeping sorrow, I finally understood the isolation, the loneliness, the emptiness—the whole damn thing.
+
+I buried Tyler Jacob Anderson in the backyard of my childhood home. The truth was out, a secret long buried now laid bare, and with it came a strange, aching relief. To this day, I carry my mother’s grief with me: a testament to the frigid darkness we all carry and the light we strive to find.
