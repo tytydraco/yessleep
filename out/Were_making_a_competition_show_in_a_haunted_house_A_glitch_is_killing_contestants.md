@@ -43,3 +43,5 @@ All the noise must have woken Shana in the next room. She came out, asking what 
 I don’t buy it. It’s been a few days since without much incident, but I think things are only going to get worse. I’ve seen a few weird things here and there. Glitched pixels moving in some of the cameras, and occasional static when there shouldn’t be any interference. Yesterday, one of the couches scooted across the floor around midnight. If these were scares set up by producers, they didn’t bother making me aware.
 
 I’ll keep a running update if anything happens. Right now I’m choosing to believe it’s just their setup, hopefully all fake. Something’s gnawing at me though, telling me that there’s something else behind how casual they are about this. There’s no way something popping out of my screen was just some kind of [glitch](https://www.reddit.com/u/googlyeyes93/s/zD0VXeeDSu).
+
+[Update](https://www.reddit.com/r/nosleep/s/ZWK2B1Clpy)
