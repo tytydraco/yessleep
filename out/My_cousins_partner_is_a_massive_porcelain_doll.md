@@ -1,3 +1,5 @@
+[I ](https://www.reddit.com/r/nosleep/comments/1eluigw/my_cousins_partner_is_a_massive_porcelain_doll/)- [II](https://www.reddit.com/r/nosleep/comments/1ep0dmt/my_coworkers_partner_is_a_massive_porcelain_doll/)
+
 I thought everyone was kidding about Sid.
 
 I thought maybe it was an elaborate prank started by my mother, perpetuated by my sister, and reinforced by my grandma who was always poking fun at him.
@@ -258,6 +260,6 @@ The burden I now carry is that I exposed some employees to her 'essence' at my c
 
 I wish I could tell you they were harmless cars, Transformers and He-Man toys, but even on my drive home, I could see the shimmering black micrites hiding inside all those plastic playthings.
 
-I don’t know what Yssabelle intends to do with the additional men she will ensnare. For all I know, she has other porcelain bodies to act as spouses, she might be enthralling hundreds of males to enact something awful, something truly horrific.   
-  
+I don’t know what Yssabelle intends to do with the additional men she will ensnare. For all I know, she has other porcelain bodies to act as spouses, she might be enthralling hundreds of males to enact something awful, something truly horrific.
+
 But I’m secretly hoping they all just fall in love, keep to themselves, and play Warhammer or [something.](https://www.reddit.com/r/EclosionK2/)
