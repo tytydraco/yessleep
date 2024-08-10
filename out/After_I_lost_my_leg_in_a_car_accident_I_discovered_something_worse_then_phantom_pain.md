@@ -38,7 +38,7 @@ I locked the door back up and began to wheel myself towards the kitchen to get b
 
 I saw the calf muscle tense up like a runner about to take off. *WAIT* I yelled, but it was too late, the leg went flying out of the window. I sped over as fast as I could and peered out just in time to see it smack to the ground, 8 stories below.
 
-I had experienced phantom sensations before where my leg used to be, like an itch that's now impossible to scratch. But I had not yet felt phantom pain. When the leg hit the ground, I felt an explosion of agony, like a hydraulic press had come down onto my shin, I felt bones that were no longer there cracking and breaking.
+I had experienced phantom sensations before where my leg used to be, like an itch that's now impossible to scratch. But I had not yet known phantom pain. When the leg hit the ground, I felt an explosion of agony, like a hydraulic press had come down onto my shin, I felt bones that were no longer there cracking and breaking.
 
 I don't know what to do, I'm being haunted by my leg, maybe I'm going insane but the thing keeps fucking with me. Last night I woke up to a sharp pain and found the foot merrily hopping around in thumb tacks.
 
