@@ -52,6 +52,8 @@ As we catch our breaths, the smoke billowing from the chapel begins to swirl and
 
 As we watch, frozen and horrified, the figure raises what looks like an arm, pointing directly at us before dissipating into the night air, leaving behind only the chaotic dance of the flames.
 
+As we stare up at the dissipating smoke, an icy knot of dread tightens in my gut. Audrey leans heavily against me, her breathing shallow and ragged, but it’s the look in her eyes that says it all—she’s thinking the same thing. We didn’t just survive a freak encounter; we played right into the hands of something much bigger and darker than we could have imagined.
+
 The chapel's structure finally gives way under the inferno's wrath, the building collapsing in on itself as we make our way into the darkness.
 
 —
@@ -60,7 +62,7 @@ As the last embers of the chapel's destruction flicker in the night, the sounds 
 
 Amidst the chaos, medics rush to our side. Audrey, pale and shivering from shock and blood loss, is quickly attended to. I'm examined for injuries—a few burns and that deep cut on my shoulder from a creature's feather.
 
-As we're being patched up, sitting on the back of an ambulance, officers coordinate to contain the area, while firefighters tackle the blaze consuming the chapel.
+As we're being patched up, sitting on the back of an ambulance, officers coordinate to contain the area, while firefighters tackle the all-consuming blaze.
 
 Sheriff Marlene Torres herself arrives at the scene just as the flames begin to die down, her expression set in a hard line that speaks volumes before she even steps out of her cruiser. Her silver hair, usually styled meticulously, is pulled back into a no-nonsense ponytail tonight, and her sharp gray eyes scan the scene with both horror and an unmistakable edge of anger. Beside her, Captain Barrett emerges, his burly frame tense with the urgency of the night's events.
 
