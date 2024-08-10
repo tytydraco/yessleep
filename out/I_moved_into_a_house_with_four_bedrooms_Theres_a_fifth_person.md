@@ -2,7 +2,7 @@ Yeah. Not exactly number one on your wtf list, is it? You'd think it means two p
 
 But nah. Life ain't that easy, is it?
 
-I moved into, I don't know what you'd call it, a "community house" a few weeks ago. A regular big house, but with each room rented to different people, rather than bought in whole by some family. More money for someone out there, I suppose, and it's a good operation. Price can't be beat for the quality, in my opinion.
+I moved into, I don't know what you'd call it, a "community house" a week ago. A regular big house, but with each room rented to different people, rather than bought in whole by some family. More money for someone out there, I suppose, and it's a good operation. Price can't be beat for the quality, in my opinion.
 
 Sometimes these things are too good to be true. This one didn't look like it. Mr. Landa, the tour guide, a balding paunchy cheerful dude in his late forties with glasses (total dad looking guy), was also the owner of the house, leasing it out while he lived with his family in a beach condo far off. Real money maker, looked like. He was friendly the whole time, super honest, and I don't blame him for what happened one bit.
 
