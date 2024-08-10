@@ -207,3 +207,5 @@ Rebelling against the greatest authority in existence.  Of course.
 I took the stake from him.  And then I turned towards the graveyard.
 
 If my only options were to let them take one of my friends from me, then I would take everything I could [from](https://alderrayne.com/) [them](https://www.reddit.com/r/goatvalleycampgrounds/).
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1eoigz0/how_to_survive_college_the_petrified_tree/)
