@@ -175,3 +175,7 @@ My foot. The one the rug had grabbed. There were hundreds of tiny red specks on 
 And they began to *itch.*
 
 I ran to the bathroom and stuck my foot under the water, desperately scrubbing at my skin. I hoped that when I called Gigi again, she’d pick up, this [time.](http://www.reddit.com/r/blairdaniels)
+
+---
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1eomr9s/my_aunt_owns_a_thrift_shop_entity_099_the_widow/)
