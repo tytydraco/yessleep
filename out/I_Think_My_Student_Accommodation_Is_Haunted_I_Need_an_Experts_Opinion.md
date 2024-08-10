@@ -10,7 +10,7 @@ I didn’t realise I was living alone until about four days in. Upon arrival, I 
 
  
 
-The fridges and cupboards remained empty for days leading me to conclude that I was the only person there. I decided to test this theory. The flat's layout is like this: The entrance door leads directly into a corridor, the corridor leads to the kitchen, on the left wall of the corridor there are two doors and on the right there are four doors, in the kitchen there’s a window on the left wall which looks out into the courtyard, and on the right wall there’s a window that looks out on to the street of which I’m on floor three.
+The fridges and cupboards remained empty for days leading me to conclude that I was the only person there. I decided to test this theory. The flat's layout is like this: The entrance door leads directly into a corridor, the corridor leads to the kitchen, on the left wall of the corridor there are two doors and on the right there are three doors, in the kitchen there’s a window on the left wall which looks out into the courtyard, and on the right wall there’s a window that looks out on to the street of which I’m on floor three.
 
  
 
