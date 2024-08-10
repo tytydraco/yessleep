@@ -71,3 +71,4 @@ We spiral in ecstasy, in a dance of dismay."
 As Sarah spoke, the hum in the room intensified, the skeletal figures on the vase seemed to writhe in a grotesque dance. I felt a cold hand grip my heart, the air around us thickening with an ominous presence. The room was no longer a place of storage, but a haunted chamber, the air thick with the stench of decay and the promise of something truly sinister.
 
 I knew then that Sarah was right. This was no mere artifact; it was a vessel for something ancient and malevolent. Something that had been awakened, something that craved the life it had long been denied.
+

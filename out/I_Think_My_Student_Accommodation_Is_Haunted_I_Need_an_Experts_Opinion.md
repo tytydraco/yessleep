@@ -35,3 +35,6 @@ This has happened on several occasions. I never leave my room when it happens. S
  
 
 This leads me to my question. Do ghosts write letters? Or more appropriately, can ghosts write? I’m by no means an expert on the paranormal but everything is too unnatural, too strange, too illogical even for my own scepticism. Some of you reading this may think I’m overreacting, but you’re not here. You’re not living here alone with no one else to talk to. You’re not experiencing what I am and the daily stress that’s sending me over the edge. I don’t know. Maybe I’m just overthinking everything with how cooped up I’ve been lately. If there’s anyone out there who can give me some advice or an explanation, I’d really appreciate it.
+
+  
+PART 2: [https://www.reddit.com/r/nosleep/comments/1eoyvs9/i\_think\_my\_student\_accommodation\_is\_haunted\_i/](https://www.reddit.com/r/nosleep/comments/1eoyvs9/i_think_my_student_accommodation_is_haunted_i/)
