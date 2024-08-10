@@ -43,3 +43,4 @@ Afraid to return, yet called back by the lure of something dark and powerful, I 
 And deep down, I know what I once sought to unearth will become my very grave.
 
 
+Part 2: https://www.reddit.com/r/nosleep/s/D9wY91jfNS

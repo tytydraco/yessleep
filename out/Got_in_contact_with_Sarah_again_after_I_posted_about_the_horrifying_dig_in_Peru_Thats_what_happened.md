@@ -22,7 +22,7 @@ She gestured to the vase, which sat on a pedestal in the center of the room. It 
 
 I took a step closer, and as I did, a low hum filled the room, like a distant chant. I looked at Sarah, her face contorted in a mask of terror. "What is that sound?" I whispered, my voice barely audible over the pulsing rhythm.
 
-"It… it's the vase," she stammered, her eyes wide with fear. "The figures, they're moving. It's not possible, but they're moving, and I can hear the chant, the lyrics..."
+"It… it's the vase," she stammered, her eyes wide with fear. "The figures, they're moving. It's not possible, but they're moving, and I can hear them singing..."
 
 She began to recite, her voice trembling, her words as strange and unsettling as the image on the vase:
 
@@ -72,3 +72,4 @@ As Sarah spoke, the hum in the room intensified, the skeletal figures on the vas
 
 I knew then that Sarah was right. This was no mere artifact; it was a vessel for something ancient and malevolent. Something that had been awakened, something that craved the life it had long been denied.
 
+Part 1: https://www.reddit.com/r/nosleep/s/dBHt1c2cPs
