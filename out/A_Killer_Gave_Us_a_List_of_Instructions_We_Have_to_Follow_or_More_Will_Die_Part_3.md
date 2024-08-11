@@ -82,7 +82,7 @@ I wince, both from the sharpness in his tone and the ache in my shoulder. "Sir, 
 
 Audrey, though grimacing with pain, tries to interject. "Sir, with all due respect, we couldn't have anticipated—"
 
-Barrett cuts her off, his voice booming even over the distant clamor of emergency vehicles. "I don’t want to hear it, Dawson. We lost good people tonight. Good people who relied on you to make the right call!” He shake my head, adding, “Goddamnit! I have to go and tell families that their loved ones aren't coming home.”
+Barrett cuts her off, his voice booming even over the distant clamor of emergency vehicles. "I don’t want to hear it, Dawson. We lost good people tonight. Good people who relied on you to make the right call!” He shakes his head, adding, “Goddamnit! I have to go and tell families that their loved ones aren't coming home.”
 
 His words sting, more than the physical injuries.
 
@@ -100,9 +100,9 @@ Audrey and I exchange a glance, the weight of the situation sinking in. With hea
 
 As the last flickers of chaos die down and the heavy tread of emergency responders fades into a rhythm, Audrey and I find a brief respite in the cruiser.
 
-I pull out my phone, noticing the barrage of missed calls and texts from Rocío. My stomach tightens as I remember telling myself I’d call back—only I never did. The screen shows her messages, simple check-ins that progress to more worried tones as the night dragged on without a word from me. I swallow hard, feeling the familiar pang of guilt tighten around my chest.
+I pull out my phone, noticing the barrage of missed calls and texts from my wife Rocío. My stomach tightens as I remember telling myself I’d call back—only I never did. The screen shows her messages, simple check-ins that progress to more worried tones as the night dragged on without a word from me. I swallow hard, feeling the familiar pang of guilt tighten around my chest.
 
-There's a voicemail from my wife Rocío that stands out. The timestamp shows it was left just a few hours ago. I press play, the phone held close to my ear, bracing myself for her anger at not calling her back.
+There's a voicemail from her that stands out. The timestamp shows it was left just a few hours ago. I press play, the phone held close to my ear, bracing myself for her anger at not calling her back.
 
 Her words are hurried, her tone edged with panic. "Ramón, I don't know what's going on, but there's someone outside the house. They’ve been lurking around since dusk, just standing there across the street, watching. I called the police, but they said they're stretched thin tonight with some emergency and might take a while. I’m scared."
 
