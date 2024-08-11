@@ -1,0 +1,47 @@
+I used to be a prison guard for sector 12 of my prison over a year ago. I say used to since after the events that took place there it didn’t matter if I wanted to resign, the prison warden had already limited all personnel access to the facility himself. On the morning of the 14th of January 2023, I clocked in early for my shift and relieved the night guard of his duties. He clearly needed it. I leaned on his chair to wake him up, making a motion to zip my lips as terror struck his face before he nervously laughed and left the room.
+
+ 
+
+Sector 12 is a low-maintenance facility that houses roughly 60 inmates. We say it's low maintenance, but this is only because of the level of rehabilitation many inmates have demonstrated and is not necessarily based on the crimes they committed. For instance, Sarah Jane is an inmate who killed her intoxicated husband in self-defence after he lunged at her throat. Objectively, she doesn’t show any murderous traits or desires to inflict harm on anyone else in everyday society. On the opposite side of the spectrum, we have Ricky Mason who is convicted for numerous offences of battery and armed robbery. Despite their crimes, all inmates in Sector 12 showed no signs of re-offending or a desire to inflict harm on others. This has been evidenced to us by their commitment to prison voluntary work and the fact there hasn’t been a single inmate disturbance or scuffle in the last 8 months. This all changed with the Wall Writer.
+
+ 
+
+It started small. I made my rounds that morning as I usually did. Walking cell to cell wishing people a good morning and asking them if they needed any essentials such as toothpaste or toilet paper. Many of the inmates seemed in high spirits and replied with a quick shake of their head or beaming a smile my way. As I was making my way back to my desk to retrieve the cell keys, something on the right wall caught my eye. Rubbing the sleep from my eyes I walked over to the wall and peered down at the small black smudge on one of the bricks. Squinting a little I managed to make out the word “Time”. Cocking my head a little I shrugged it off and walked over to my desk to retrieve the cell keys and began unlocking each of the inmate’s doors. I walked back over to my desk and sat down watching them talking between themselves and revealing board games and cards for their morning leisure.
+
+ 
+
+However the following morning, the writing was too large to be ignored. Scrawled across the entire length of the wall that separated two neighbouring cells was the word “Stand”. I spent the rest of the morning visiting the cells one by one accompanied by another prison guard and questioned each of the inmates as to who graffitied the wall. None of the inmates spoke up and instead responded with confused head swivels from side-to-side pretending they had no idea what I was even on about. One inmate on the other hand didn’t back down from the accusation, standing up and pacing towards me until he was inches away from my face.
+
+ 
+
+“I don’t like the way you talk.”
+
+ 
+
+“Excuse me?”
+
+ 
+
+He didn’t respond, instead choosing to turn his back on me to peruse the makeshift bookshelf in the corner of his cell. Security cameras failed to capture anything, and guards on shift during the afternoon and night didn’t report seeing any such behaviour. As an act of deterrence, we chose to punish the entire sector by supplying them with hot water and sponges and ordered them to clean the ink off the wall, and as a security measure removed all pens and ink from their cells under the promise, they would be returned to them soon enough. We were foolish to think that would stop anything.
+
+ 
+
+Gagging at the sight, vomit crawling up my throat, my eyes stinging from the stench, 2 more words were discovered the following day on the floor in the middle of the facility. Written in what was unmistakably human excrement, were the words “change” and “remain”. The inmates’ cries echoed throughout the facility pleading for it to be cleaned up, the festering stench likely causing them a sleepless night of unintentional torture. Guards swiftly cleaned up the mess and requested the warden to make an announcement that any reoccurring behaviour of this caliber would face the full extent of the punishment permitted to us.
+
+ 
+
+When their bowels ran dry, they turned to alternative sources. I entered the sector to discover the word “choose” painted across 3 walls in giant letters. This wasn’t what startled me. Gagging at the sight and instinctually flinching my head away from the scene I forced myself to look. Bloodied handprints engulfing the letters leaving long dark burgundy streaks cascading down the walls pooling into puddles spreading beneath the cracks under the cell doors. My mind struggled to comprehend what it was seeing, and I even had to call another guard in to confirm I wasn’t just going crazy. The sector was put under lockdown and 15 guards were assigned to the facility for the day to help with quality control. Many of the inmates were found with wounds across the wrists and arms but for reasons you may gleam this couldn’t be concluded to be definitive evidence for their involvement in the writing. After finding out you’re going to be locked in a cell for most of your life, if not all, it’s no surprise people choose different ways to cope with that realisation.
+
+ 
+
+It happened so fast. In the course of only a week, we had lost complete control of sector 12. We’ve theorised that one of the inmates may have convinced one of the guards to let them out or maybe their cell door wasn’t locked properly. Regardless of how they got out, what they did shocked everyone. We’ve been unable to contact the officers who remained inside the sector and all cameras within the facility are relaying static feed evident of someone clearly smashing or removing them from the wall. Inmates in the sector over reported to guards the day after that they had heard screams in the night. Clanging, snarling, chanting. The night guard for that sector stated they heard no such thing, but the truth is clear to us now. The entrance to sector 12 is in the form of a steal-bolted door with a small hatch at the top which can only be opened from within sector 12. What’s strange to us is that sector 12 has the keys and access cards to leave the facility but has refused to do so. Even going as far as to block the door in a way that even our own keys fail to turn the lock manually to gain entry.
+
+The floor beneath the door is flooded with blood. Tendons and flattened fleshy chunks littered in exposed gushing arteries severed by bitemarks. The memory is as clear as day. Officers shoulder to shoulder, batons and firearms in our hands, inching towards the door. Waves of blood lapped out of our boots and splattered our white uniform shirts. I was in the third row by the time we reached the door. Two guards led the formation covered in riot gear and armed with a handgun each. Trembling, sweat dripping down from their forehead into their eyes as they blinked away the tears, they reached out a hesitant hand and knocked on the door. The steel echo bouncing around the walls of the corridor down the entire length of the line. A commotion could be heard from within. A series of grunts and sighs as heavy footsteps started to be heard sending ripples from beneath the door as they entered the source of the river. The hatch was yanked open in one quick motion.
+
+ 
+
+Their eyes. We were all trembling by this point. The officer next to me let his bladder go as it dribbled down his trouser cuff and into the abyss below. My heart racing, eyes unblinking, I remained glued to the spot unable to think. Unable to act. All I could do was cry. Cry in hope they’d take pity on me and send me home. Their eyes were void of anything human anymore. Bloodshot, the veins branching out from their iris leaving the whites of their eyes in a state of infection as it began to resemble that of coral reef. Their brow furrowed, making their gaze feel as if had been stabbed several times sending me reeling with the instinct to turn tail and run. What little the hatch revealed at the corner of their eyes was more than enough. On the left-hand side, I could make out a pair of legs suspended in the air, their curled toes leading to nowhere as the rest of the door cut them from view. On the right side of the door, we could periodically see a figure running back and forth naked and covered in entrails as they gallivanted between the cell doors. The inmate closed the hatch in frustration at our stunned silence.
+
+ 
+
+The warden reassigned me to a different sector after that. I don’t know what he intends to do with them. He only assigned expert personnel after that. I was questioned a few times as to the writing by some serious-looking people in suits, but they stopped after a while telling me I had done everything I could to help. I’m no longer a prison guard and instead opted for a simpler life as a store clerk. They pay worse but I feel safer here. This has been playing on my mind for a few weeks now. I thought I was past it by now, but I still wonder. I wonder what happened to sector 12. I don’t think I’ll ever find out and I dare bet the inmates would never even think about the impact they’ve had on me. The sleepless nights, alcohol, and ruined relationships. I needed to get it all down, I needed to tell someone.
