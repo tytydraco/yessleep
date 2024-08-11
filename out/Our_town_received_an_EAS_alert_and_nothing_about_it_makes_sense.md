@@ -150,4 +150,4 @@ Until then, wish us luck.
 
 UPDATE: I just woke up and there's a helicopter flying over the house. I managed to get a glimpse of it through the basement window, and it seems like it dropped something nearby. Not sure if it's like a care package or something. 
 
-UPDATE 2:it's getting really hard to breathe right now and my throatr is burning. And I also feel like I'm gonna throw up. I think there's a fire or something 
+UPDATE 2:it's getting really hard to breathe right now and my throat is burning. I think there's a fire outside because there's a whole lot of smoke. 
