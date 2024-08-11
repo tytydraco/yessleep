@@ -219,3 +219,5 @@ Now, in that split second between one heartbeat and the next as the thing disapp
 I’m nearly as fast as the entity. So desperate, I’m all but flying, racing past those rolling cans. But I’m too late—the trapdoor slams down above me—
 
 —trapping me in [darkness.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[UPDATE!](https://www.reddit.com/r/nosleep/comments/1epj68w/theres_a_trapdoor_thats_been_sealed_for_31_years/)
