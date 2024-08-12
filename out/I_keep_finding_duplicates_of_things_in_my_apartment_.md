@@ -1,4 +1,6 @@
-Okay… this is going to sound completely insane. I’ve been sitting on my phone for the past few hours trying to decide if I should even share this. The idea of it is so absurd I can barely wrap my head around it. But, if anything, I need to have some record of this experience if things take a turn for the worst… and they’re starting to look pretty bad.
+This is going to sound completely insane. I’ve been sitting on my phone for the past few hours trying to decide if I should even share this. The idea of it is so absurd I can barely wrap my head around it. But, if anything, I need to have some record of this experience if things take a turn for the worst.
+
+And they’re starting to look pretty bad.
 
 It all started about a month ago. For some context, I live with my roommate in a small flat in Washington D.C. I’m not home a whole lot because my job requires me to work upwards of 70 hours a week. 
 
