@@ -14,10 +14,9 @@ I hesitated and checked the call. My face was seen on the screen, which was weir
 
 “What the fuck?” I muttered under my breath. The thought of being on a call without even realizing sent shivers down my spine. Feeling my fingers tremble, I took a deep breath.
 
-Next to my face on call was a turned off camera from the person I was supposedly calling. Their profile picture was an anime girl. Their microphone was on, but I didn’t even dare to say anything. 
+Next to my face on call was a turned off camera from the person I was supposedly calling. Their profile picture was an anime girl. Their microphone was on, but I didn’t even dare to say anything.
 
-Panicking, I ended the call and grunted.
-“What the fuck was that?!” I said to myself. Surely that was-“
+Panicking, I ended the call and grunted. “What the fuck was that?!” I said to myself. Surely that was-“
 
 Before I could finish my sentence, I heard the recognizable sound of a Discord notification coming from my computer. I could feel my heart stop for a second before I looked down.
 
@@ -25,7 +24,7 @@ Before I could finish my sentence, I heard the recognizable sound of a Discord n
 
 “2 years?! Wo tf are u?” I responded. I couldn’t even spell correctly with my shortness of breath and my hands trembling. I don’t know if it was paranoia, but I suddenly felt a strong feeling that I was being watched.
 
-“You should see your face rn haha.” They typed back. 
+“You should see your face rn haha.” They typed back.
 
 I heard a thud and jolted from my seat. Turning around, I saw my dark room. It felt strange, but I thought I saw a shadowy figure on the other side of my room, staring at me. Not even the brightness from my computer could catch it. I couldn’t even confirm if it was real or my brain playing tricks on me, but the fear certainly was there.
 
@@ -47,7 +46,7 @@ I sat back down and read the message they sent me.
 
 “HAHA what was that reaction?”
 
-“What do you want from me?!” I typed back swiftly. 
+“What do you want from me?!” I typed back swiftly.
 
 I heard another loud thud. I felt embarrassed being this scared over Discord, but I still couldn’t shake off the feeling that I was being watched. This time, it felt like whoever was watching me was even closer than before.
 
@@ -63,7 +62,7 @@ It echoed in my head again.
 
 “Or your family will be in danger.”
 
-As I read the message once more, I heard a knock on my window right in front of me. Pushing myself off my chair, I grabbed the closest object I could use as a weapon: my lamp on my bedside table. 
+As I read the message once more, I heard a knock on my window right in front of me. Pushing myself off my chair, I grabbed the closest object I could use as a weapon: my lamp on my bedside table.
 
 My legs began shaking uncontrollably. I didn’t want to know if someone was out there or if they were trying to mess with me, but the fact that they were on a call with me, stalking me for such a long time, was all I needed to know.
 
@@ -82,3 +81,6 @@ I’m trapped with nothing but my phone and a few toiletries that I could throw 
 Help, I don’t know what to do. I’m out of options and I hear his footsteps getting closer to my bathroom door.
 
 Why has he been watching me from a call for all this time? Why only after I noticed the call is he after me? What does he want from me?! What do I do?!
+
+  
+[Part 2](https://www.reddit.com/r/nosleep/comments/1eq20ng/i_was_on_a_discord_call_for_2_years_without/)
