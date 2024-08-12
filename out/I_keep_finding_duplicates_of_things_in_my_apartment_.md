@@ -76,7 +76,7 @@ I knew how it sounded. I knew there was very little chance he would believe me b
 
 “NO. No. You’re not LISTENING to me.” I was growing more and more agitated by the second. “I can feel them, too. The replicated objects. They’re physically there. You have to understand…” 
 
-Suddenly. So suddenly, I saw something from behind my roommate. From behind his form. I saw movement. I know I did. I saw a figure. It was peeking at me from inside of his open bedroom door. Though it was dark: the only source of light was coming from the kitchen and it barely illuminated my roommate, let alone the area behind his large body, I saw it. I saw the glimmer of a black eye peeking at me from beyond him. It disappeared just as quickly as it appeared; as if it were snatched back into his room by an unseen force. 
+Suddenly. So suddenly, I saw something from behind my roommate. From behind his form. I saw movement. I know I did. I saw a figure. It was peeking at me from inside of his open bedroom door. Though it was dark, the only source of light coming from the kitchen and it barely illuminated my roommate let alone the area behind his large body, I saw it. I saw the glimmer of a black eye peeking at me from beyond him. It disappeared just as quickly as it appeared; as if it were snatched back into his room by an unseen force. 
 
 I stared at my roommate with wild eyes. I pointed a shaky finger at him, ever so slowly. 
 
@@ -92,7 +92,7 @@ Run.
 
 And that’s just about what did it for me. 
 
-I bursted into action, bolting towards the door and nearly ripping it off of its hinges as I threw myself into the hallway of our dingy apartment building. I raced down the hallway, pushing through the emergency exit doors and spitting through the streets of D.C. narrowly avoiding getting hit by a strew of cars on my way out. 
+I bursted into action, bolting towards the door and nearly ripping it off of its hinges as I threw myself into the hallway of our dingy apartment building. I raced down the hallway, pushing through the emergency exit doors and sprinting through the streets of D.C. narrowly avoiding getting hit by a slew of cars on my way out. 
 
 Yet, the entire time I could still hear them, the footsteps behind me. I didn’t bother turning around. I ran for what felt like miles before finally slowing to a halt near a dimly lit dive bar on the wrong side of town. I ended up walking in for a drink because, Jesus, after that night, wouldn’t you?
 

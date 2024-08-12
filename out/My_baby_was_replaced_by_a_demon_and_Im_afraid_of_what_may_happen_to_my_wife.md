@@ -42,7 +42,7 @@ I jumped as a sharp gust of wind hit against the window. The jump caused Charlot
 
 I slowly looked down at my daughter’s face in the moonlight and was horrified at what looked back at me. This was not my Charlotte. The baby, or whatever it was, looked back at me with focused, black eyes, and her lips curled up into a little smile, still attached to my breast. Blood dripped from her mouth down her little chin into her onesie. My blood.
 
-I gasped, standing up as fast as I could and pulled the thing off my breast. I put her haphazardly down in her crib and looked down at myself. My nipple looked raw, and I was slowly bleeding from two pin-prick marks just under my nipple.
+I gasped, standing up as fast as I could and pulled the thing off my breast. I put her haphazardly down in her crib and looked down at myself. My skin looked raw, and I was slowly bleeding from two pin-prick marks just under my nipple.
 
 I looked up to find the thing standing in my baby’s crib. No, not standing, *floating,* about two inches above the mattress. In my terror I fell to the ground, my shirt bloody. I scurried to the corner as I watched the thing slowly rise higher and higher, smirking down at me with jet black eyes, my blood still in its mouth.
 
