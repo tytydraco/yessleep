@@ -10,7 +10,7 @@ It was a good meal.
 
 Time would pass by as the five of us ate. My grandmother talked the most out of us. She would tell Justin how great of company he was and how grateful  that Justin and I were close friends. Of course the two of us let out a small giggle at the comment, we were close but not ‘close’ I suppose.
 
-After night fell, Justin and I retreated to the guess bedroom. The silence remained. The two of us would just look at our phones, waiting for something to happen, for David to show up. Justin, being bored, opened up his Tik tok. There was little noise coming from our room. It was the first time I let myself relax for a moment. I allowed myself to slowly fall into a sleep.
+After night fell, Justin and I retreated to the guest bedroom. The silence remained. The two of us would just look at our phones, waiting for something to happen, for David to show up. Justin, being bored, opened up his Tik tok. There was little noise coming from our room. It was the first time I let myself relax for a moment. I allowed myself to slowly fall into a sleep.
 
 Must have been around 8 when I fell asleep. I woke up around 3 or 4 hours later, checking the clock on the wall. 1 in the morning. Justin must have fallen asleep right as I was waking up as his phone was still playing a video as he slept with the one lamp in the room on. The scene before me was just like one of our sleepovers as kids.
 
