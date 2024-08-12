@@ -42,7 +42,7 @@ No… this was what I can only describe as the most demonic sounds I had ever he
 
 I felt all the blood leave my body as my knees buckled beneath me. I couldn’t move, I couldn’t react, I couldn’t even scream. I had no idea what I was dealing with, but I was beginning to believe it was other-worldly. My sanity had fled me in a mere instant, and I had no idea what to do next. 
 
-That evening, I contemplated checking myself into a mental hospital. The replica doppelgänger AirPods had disappeared but I had started to notice the clones of my belongings appearing more frequently. 
+That evening, I contemplated checking myself into a mental hospital. The doppelgänger AirPods had disappeared but I had started to notice the clones of my belongings appearing more frequently. 
 
 That same day, I had found two of the same ferns growing by my beside window when I KNEW I had only bought one. I tried to pour myself a glass of bourbon to calm my nerves and found two of the same limited edition Blood Oath Kentucky Straight bourbon bottles right beside each other. I had gotten only ONE as a gift on my 25th birthday. I even went to brush my teeth that night and found a replica of my SAME. EXACT. TOOTHBRUSH. Right down to the division of the bristles and the directions they were pointing in. 
 

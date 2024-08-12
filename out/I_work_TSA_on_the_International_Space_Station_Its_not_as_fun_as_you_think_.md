@@ -4,9 +4,13 @@ That doesn’t make me racist. It actually doesn’t make me anything. We haven�
 
 Bad manners, bad habits, and bad breath. Yes. Very bad breath. If you know or meet anyone with chronic bad breath it could be a Glomelean on vacation.
 
-That’s not why I’m writing this. Just bouncing some ideas into the void, see if anything comes back.
+Now, you may be asking. Aliens? International Space Station?
 
-Yesterday, a vessel docked at the station with no crew aboard.
+Well, a committee was formed roughly a decade ago when E.T. encounters began spiking upward at a rapid rate. Countries at the frontier of space exploration met and decided the best choice was, of course, to keep it all under tight wraps, and pretend everyone else was crazy. While, as expected of humans, trying to turn a profit.
+
+But I'm no Edward Snowden. That's not why I'm writing this.
+
+Yesterday, an unmanned vessel docked at the station.
 
 I’ll briefly explain the process if anyone is unfamiliar with space-port security:
 
@@ -78,7 +82,7 @@ I hustled back towards my post in time before the communication expired. The sou
 
 “**-T MAKE CONTACT. REPEAT, DO NOT MAKE CONTACT. REPEAT, DO NOT MAKE CONTACT. REPEAT…**”
 
-The message froze me in place. Ryan’s body camera was on and transmitting feed to my monitor. I could see him and the four other men searching what looked to be a completely empty ship.
+My muscles tightened. Ryan’s body camera was on and transmitting feed to my monitor. I could see him and the four other men searching what looked to be a completely empty ship.
 
 I radio’d him to make sure.
 
@@ -134,12 +138,16 @@ I crashed back into the monitor room and locked the door behind me.
 
 “*I’m sorry, I’m so sorry. There was only supposed to be four of us. There was an extra! It left us in pieces!*”
 
----------------------------------------------------------------------------------------------------
+-------------------------------------------------------------------------------------------------------------------------
 
-Coming up on 24 hours now, I’ve been locked inside this room. Ryan told me some time ago he was going to lose consciousness soon. Said he didn’t have enough tourniquets to stop the bleeding. He stopped responding 6 hours ago.
+24 hours later and here I am. Still. The alarms on the station have been blaring for a while now. Heard an announcement on the intercoms but couldn't make out what they were saying.
 
-The problem is his body cam is right outside my door. It hasn’t moved from its spot. It knocks every minute or so. Never banging, always knocking.
+Seems like I'm quarantined with this thing. 
 
-The rest of the ISS is on lockdown. I’ve been quarantined with whatever is outside this door, with whatever killed Ryan and his men, until whoever’s in charge figures out what the hell to do.
+It knocks every minute or so. Never banging, always knocking. 
 
-As soon as I get out of here, *if* I get out of here, I’m done with space for good. That or my pay gets bumped to six figures plus benefits. Either is fine.
+Ryan's bodycam is still transmitting its feed, right outside my door. It hasn't moved yet. 
+
+And Ryan. Last coherent thing I'd heard from him was a tangled jumble of words about trying to find another tourniquet. Not sure how long ago that was.
+
+What I am sure of is, as soon as I get out of here, *if* I get out of here, I’m done with space for good. That or my pay gets bumped to six figures plus benefits. Either is fine.
