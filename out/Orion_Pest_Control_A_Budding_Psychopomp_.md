@@ -414,6 +414,8 @@ So now we have a new psychopomp. Thankfully, this one is gentle and kind. Good t
 
 Edit: It has come to my attention that it is not a literal permit like a driver's license, which is extremely disappointing. I might make her one as a joke. 
 
+Update: [That life debt came to bite me in the ass. ](https://www.reddit.com/r/nosleep/s/y4XEYApTF3)
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
  
 
