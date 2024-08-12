@@ -4,7 +4,7 @@ I opened the door to my third-floor apartment in the old residential building wh
 
 "Hello?" I answered uncertainly, wondering what could have prompted him to call right now.
 
-"Hi, Harry. It's me Jerry. It's been a long time." There was something unsettling in his voice, something that made my heart beat faster.
+"Hi, Harry. It's Jerry. It's been a long time." There was something unsettling in his voice, something that made my heart beat faster.
 
 "Hey, Jerry. Is something wrong?" I asked, trying to hide my surprise.
 
@@ -12,15 +12,15 @@ I opened the door to my third-floor apartment in the old residential building wh
 
 We agreed to meet at my apartment at 10:45 PM.
 
-That evening, as the sun began to set, I heard a knock at the door. It was Marek. He looked different from how I remembered – pale, with something disturbing in his movements. I opened the door and let him in. We sat at the table, and I let him speak.
+That evening, as the sun began to set, I heard a knock at the door. It was Jerry. He looked different from how I remembered – pale, with something disturbing in his movements. I opened the door and let him in. We sat at the table, and I let him speak.
 
 "Harry, I have to tell you something. Something that has been haunting me since that time," he began, his voice trembling.
 
 "Do you remember the rules of apartment number 12?"
 
-I felt a cold shiver run down my spine, and my heart started to race. Marek's words brought back memories from our childhood, the first time I saw him.
+I felt a cold shiver run down my spine, and my heart started to race. Jerry's words brought back memories from our childhood, the first time I saw him.
 
-We were 14 when it happened. Marek lived on the lowest floor, where the bricked-up apartment number 12 was located. It was at the very end of a long corridor, with no other apartments nearby. Apartment number 11 was much earlier, closer to the beginning of the corridor, and apartment number 13 was only on the next floor. There was no other apartment above the bricked-up apartment number 12. My parents forbade me from approaching that apartment; I never understood why until that day. That evening, the sky began to darken faster than usual. Clouds gathered on the horizon, and there was tension in the air. In the distance, I heard thunder, heralding an approaching storm. I had arranged to spend the night at Jerry's place, who lived two floors below in the small residential block. I headed for the staircase.
+We were 14 when it happened. Jerry lived on the lowest floor, where the bricked-up apartment number 12 was located. It was at the very end of a long corridor, with no other apartments nearby. Apartment number 11 was much earlier, closer to the beginning of the corridor, and apartment number 13 was only on the next floor. There was no other apartment above the bricked-up apartment number 12. My parents forbade me from approaching that apartment; I never understood why until that day. That evening, the sky began to darken faster than usual. Clouds gathered on the horizon, and there was tension in the air. In the distance, I heard thunder, heralding an approaching storm. I had arranged to spend the night at Jerry's place, who lived two floors below in the small residential block. I headed for the staircase.
 
 I began to descend the stairs, but at the very bottom, I noticed a figure. I descended further. That's when I saw him for the first time – a man with a cigarette. I quickly passed him. Only after passing him was I able to take a closer look. He was standing on the staircase, his face pale, his eyes deep-set, staring at me, or so it seemed. After a moment, he moved toward me. I quickened my pace, but before I realized it, he was already behind me. I feared what he might do, but he passed me, heading toward the door marked number 12. I watched as he approached the bricked-up apartment. Then something happened that I will never forget. The man with the cigarette stopped right in front of the door. Slowly, he reached for the handle. My eyes widened in fear and disbelief.
 
@@ -54,7 +54,7 @@ After reading the rules, Jerry couldn't hide his excitement. His eyes sparkled, 
 
 We agreed to go to the apartment at 11:00 PM. We told our parents that we were spending the night at our friend Ben's place on the second floor to study for an important math exam. They didn't mind, as it wasn't the first time we had stayed at Ben's.
 
-When the night came, the clock read 10:55 PM, and with hearts pounding, we tried to sneak out of Ben's apartment. Unfortunately, our footsteps woke him from his sleep. Groggy and confused, he asked where we were going. We told him about apartment number 12 and the rules written on the note. Ben frowned as he read the hastily written list of rules, then burst out laughing, unable to believe our story. But Marek insisted, urging him to come with us and see for himself.
+When the night came, the clock read 10:55 PM, and with hearts pounding, we tried to sneak out of Ben's apartment. Unfortunately, our footsteps woke him from his sleep. Groggy and confused, he asked where we were going. We told him about apartment number 12 and the rules written on the note. Ben frowned as he read the hastily written list of rules, then burst out laughing, unable to believe our story. But Jerry insisted, urging him to come with us and see for himself.
 
 "I don't believe you, but it wouldn't hurt to check," he finally said, visibly intrigued.
 
@@ -62,7 +62,6 @@ When the night came, the clock read 10:55 PM, and with hearts pounding, we tried
 
 The darkness of the night enveloped us, and excitement and tension grew with every step that brought us closer to apartment number 12.
 
-  
 As we stood in front of the apartment, we made sure the corridor was empty, then Jerry reached for the door handle. The door opened with a quiet creak, and we held our breath, ready to see what we remembered – a solid, concrete wall that seemed to be the end of our journey. But as the door opened fully, we stood in shock. Instead of the cold, concrete wall that we both so clearly remembered, we saw an ordinary room. The room was dark but fully accessible, as if there had never been any obstacle there.
 
 "This... this is impossible," Ben whispered, his confidence dissolving into the air.

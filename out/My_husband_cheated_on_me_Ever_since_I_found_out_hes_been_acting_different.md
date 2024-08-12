@@ -1,5 +1,3 @@
-
-
 Justin and I had been together for ten years, married for six. I’d been with him for my whole adult life. We’d been dating since I was seventeen and he was eighteen. I always thought he was my soulmate. The man I wanted to grow old with. Turns out, I was wrong. 
 
 I was devastated when I found out. Yes, Justin had been staying out later than usual. And his explanations were usually flimsy at best. I’m not stupid. I had my suspicions, but I think I just really didn’t want to come to terms with the fact that my husband was seeing another woman. Honestly, I might have gone years without discovering the truth. But Justin got sloppy. 
@@ -167,3 +165,6 @@ In a shaky voice, I asked the question that will haunt me until I die. “How do
 There was a long pause, the bangs outside my door reaching a nauseating crescendo. When Adeline answered, I knew without a shadow of a doubt that I was in serious danger. 
 
 “Lydia, for the past week, Justin has been living [with me."](https://www.reddit.com/r/HorrorJunkie123/)
+
+  
+[Update](https://www.reddit.com/r/nosleep/comments/1eo7yx8/my_husband_cheated_on_me_today_i_confronted_his/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

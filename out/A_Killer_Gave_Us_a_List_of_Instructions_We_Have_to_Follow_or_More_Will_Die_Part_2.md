@@ -219,3 +219,5 @@ Audrey, pale and grimacing in pain, meets my eyes across the room. There's an un
 Peeking out from my makeshift shelter, the eerie silence of the chapel weighs heavily, broken only by a low hissing sound and the distant drip of blood echoing off stone. The creature slithers with sinuous grace between the shadows, its scales catching the dim light, creating a tapestry of light and darkness across the floor.
 
 I know the monster is using her as bait. It wants us out in the open so it can finish us off. But I can’t leave Audrey to die, not like this, not when I might still [help](https://new.reddit.com/r/PageTurner627Horror/comments/1cu31vv/broken_dawn/) [her](https://new.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/).
+
+[Part 3](https://new.reddit.com/r/nosleep/comments/1ep0le7/a_killer_gave_us_a_list_of_instructions_we_have/)
