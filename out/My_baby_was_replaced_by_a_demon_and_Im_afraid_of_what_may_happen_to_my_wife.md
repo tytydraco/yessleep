@@ -62,7 +62,7 @@ Aaliyah’s brows furrowed. She looked a little pissed off. “What do you mean?
 
 “I think something has replaced our baby, Lee. I don’t know what it is, or where our real baby is, but I know that *thing* is not it.” Aaliyah still didn’t look convinced and I began to cry. “Lee, please. You have to believe me. Please.”
 
-Aaliyah gathered me in her arms and I sobbed against her breast as her hands combed through my hair. I was shaking, terrified of the thing behind my wife, terrified that it would kill us, terrified that my real baby was somewhere and I couldn’t save her. What had this thing done with my baby?
+Aaliyah gathered me in her arms and I sobbed against her breasts as her hands combed through my hair. I was shaking, terrified of the thing behind my wife, terrified that it would kill us, terrified that my real baby was somewhere and I couldn’t save her. What had this thing done with my baby?
 
 In the morning, Aaliyah clipped the thing in Charlotte’s carseat and drove me to the hospital. “I think we should have you committed,” she told me in the waiting room. She refused to look me in the eye as she spoke, instead staring straight ahead, the thing between us on the floor in Charlotte’s baby carrier. “Just for a bit. Just until you start to feel better.”
 
