@@ -4,7 +4,7 @@ I was going down the usual route, and I was coming up to the bit where I cut ont
 
 When I got home I told my wife about what I had seen.
 "Maybe he was just too invested in watching your ass jiggle." she joked.
-"Mel I'm serious, something felt off about him..." I murdered as she typed out a work report.
+"Mel I'm serious, something felt off about him..." I muttered as she typed out a work report.
 
 The next day on my run, I turned out onto the road. Yet again, the gloomy farmer was approaching me, staring silently into my eyes. I looked back again a few strides later, and he was in the middle of the road, a hunch in his stance. He then turned to the gate and watched me as I ran down the rest of the road.
 

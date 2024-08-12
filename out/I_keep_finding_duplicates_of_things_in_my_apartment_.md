@@ -1,10 +1,10 @@
-This is going to sound completely insane. I’ve been sitting on my phone for the past few hours trying to decide if I should even share this. The idea of it is so absurd I can barely wrap my head around it. But, if anything, I need to have some record of this experience if things take a turn for the worst.
+This is going to sound completely insane. I’ve been sitting on my phone for the past few hours trying to decide if I should even share this. The idea of it is so absurd, I can barely wrap my head around it. But, if anything, I need to have some record of this experience if things take a turn for the worst.
 
 And they’re starting to look pretty bad.
 
 It all started about a month ago. For some context, I live with my roommate in a small flat in Washington D.C. I’m not home a whole lot because my job requires me to work upwards of 70 hours a week. 
 
-I came home one night after a harrowing day of work. It was pretty late and (I thought) my roommate was already in bed. I was fully prepared to do my nightly routine and hop right into bed. 
+I came home one night after a harrowing day of work. It was pretty late and (I thought) my roommate was already asleep. I was fully prepared to do my nightly routine and hop right into bed. 
 
 I unlocked the door to my apartment, set my keys on the kitchen counter and opened the fridge to scarf down some leftovers from the day prior. I turned my back from the kitchen counter for not even a minute as I rummaged through the fridge, scouring each shelf for my Tupperware container of taco meat. Upon finally finding it, I turned back around to head towards the microwave and heat it up. 
 
