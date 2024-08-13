@@ -28,7 +28,7 @@ I laid down on my bed. I thought of my day, the kids, and my lunch. This was exa
 
 I put my phone on my side table, but immediately thought it would be better to charge it as I slept. I dropped my head off the side of my bed, allowing my hair to touch the floor. It was getting quite long. I felt the charger between my fingers, but as I was bringing it up, I dropped the cable back onto the floor. I turned to look at the charger. I noticed pieces of hair on it that certainly weren’t mine. I trailed my eyes down, following the strands. She was peeking out from underneath the bed. I could only see her eyes, but holy shit were they the worst thing I have ever seen. I turned my whole body back onto the bed. I shut my eyes as tightly as I could, inwardly reminding myself that it wasn’t real. It couldn’t be real.
 
-But she had *my* eyes. The exact same colour, and the exact same shape. I counted to five, taking slow, deep breaths. I hesitantly opened my eyes, looking very carefully to where she had just been. 
+But she had my eyes. The exact same colour, and the exact same shape. I counted to five, taking slow, deep breaths. I hesitantly opened my eyes, looking very carefully to where she had just been. 
 
 She was gone. 
 
@@ -46,7 +46,7 @@ She, however, was not. 
 
 As she stood at my height near the door, I could see her in full. Same hair, same eyes, same nose, mouth, and some-fucking-how, the exact same clothes I had been wearing that day. A white t-shirt with brown slacks. Her grin was inhumanly large. I stumbled over my response to the student. At that moment, I felt like I'd never felt fear before. I was unexplainably scared. But, as soon as I blinked, She was gone.
 
-I invited Delilah over that upcoming weekend. I couldn't be alone. Not with her– *me*. These hallucinations were getting out of control. I scheduled an appointment with my doctor to get my prescription either changed completely or to a higher dosage. 
+I invited Delilah over that upcoming weekend. I couldn't be alone. Not with her– me. These hallucinations were getting out of control. I scheduled an appointment with my doctor to get my prescription either changed completely or to a higher dosage. 
 
 When Friday rolled around, I opted to stay in my car that was parked in the teacher lot. No way in hell was I going back to my apartment alone. I stayed there for two hours, watching my phone die as I scrolled on facebook, twitter,  instagram– Just anything to keep the other me out of my mind.
 
@@ -72,7 +72,7 @@ She trailed off, her voice getting softer as she stood up and walked through the
 
 I sat there in uneasy silence. My appointment is in a week, which isn’t soon enough. 
 
-I felt like the meds were working, but obviously they’re not. Why did it have to be me? Why couldn’t I hallucinate a cute puppy following me around? Or a regular person– *that wasn’t fucking me.* 
+I felt like the meds were working, but obviously they’re not. Why did it have to be me? Why couldn’t I hallucinate a cute puppy following me around? Or a regular person– that wasn’t fucking me.
 
 Delilah came back from the kitchen, two glasses in hand. When our eyes met, her face twisted with confusion.
 
@@ -86,7 +86,7 @@ She chuckled as she said this.
 
 I saw something move behind her. It was me.
 
-No, no this wasn’t a hallucination. This was a real, tangible person. A fucking person. It was so obvious to me now.
+No, no this wasn’t a hallucination. This was a real, tangible person. A fucking person.
 
 “You know it's not nice to lie.” She laughed.
 
@@ -98,19 +98,23 @@ No, no this wasn’t a hallucination. This was a real, tangible person. A fuckin
 
 “–and I do know you like your alcohol, if your twenty-first says anything.”
 
-“Delilah, please.” I begged, wishing she’d stop and look behind her– or move or just *something*.
+“Delilah, please.” I begged, wishing she’d stop talking. She did, and finally looked behind her. 
 
-With no warning, the other me brought her hands out, one hand on the top of Delilah's head, the other on her jaw. I screamed out. She smiled. A small, menacing smile. 
+She could see her too.
+
+With no warning, the other me brought her hands out, one hand on the top of Delilah's head, the other on her jaw. I screamed out, and so did Delilah. The other me smiled. A small, menacing curve of the lips. 
 
 I closed my eyes, terrified of what was about to happen. In the dark of my eyelids, I heard it. The snap.
 
-I opened my eyes in a fit of panic. Delilah was splayed out across the floor of my living room. My drink was staining my carpet. In my fear I had dropped the glass. Her head was facing the ceiling, but so was her back. I felt sick to my stomach, trying to keep the bile from making its way up.
+I opened my eyes in a fit of panic. Delilah was splayed out across the floor of my living room. My drink was staining my carpet. In my fear, I had dropped the glass. Her head was facing the ceiling, but so was her back. I felt sick to my stomach, trying to keep the bile from making its way up.
 
 I quickly darted my eyes through the layout, trying to find the other me. I never did.
 
 
 
-It’s been some time since all of this went down. I called the police and they’ve started a whole investigation. It looks like I'm going to be put on trial for her murder. I know it’s a losing battle, as the parking lot footage shows no one entered other than her and I. I’ve started cleaning out my apartment. Moving some stuff to my parents. I ended up moving my bed to the other corner of my room. In the mess of dust and old tattered blankets that have been wasting away under my bed, I saw a folded set of sheets.
+It’s been some time since all of this went down. I called the police and they’ve started a whole investigation. And although I don’t think they fully believed me, someone else’s fingerprints were found on Delilah. 
 
-I still see her. She’s in every passing car, she's in every aisle at the grocery store, every window in the businesses downtown… I don’t know what I did to deserve it, but dear God I hope she goes away. I just want her to go away.
+ I’ve started cleaning out my apartment. Moving some stuff to my parents. I can’t stay in this apartment, I just can’t.  I ended up moving my bed to the other corner of my room during the process. In the mess of dust and old tattered blankets that have been wasting away under my bed, I saw a folded set of sheets.
+
+This leads me to today. I saw her peeking through my window a few hours ago. Why won’t she leave me alone? I don’t know what I did to deserve it, but dear God I hope she goes away. I just want her to go away.
 

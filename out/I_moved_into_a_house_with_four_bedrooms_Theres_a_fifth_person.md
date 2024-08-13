@@ -62,7 +62,7 @@ She looked delighted. "What's your name?" she asked.
 
 "Tim," I answered. "Tim Dachora. What's yours?"
 
-"I'm Sjzona," she whispered. I couldn't hear it right the first time, and I had to ask her to repeat it, which she seemed only so happy to do. It sounded like "shƏ · zoh · nuh."
+"I'm Sjzona," she whispered. I couldn't hear it right the first time, and I had to ask her to repeat it, which she seemed only so happy to do. It sounded like "shƏ · zho · nuh."
 
 "That...sounds really nice," I said, sort of smiling like an idiot. Admittedly, I already had a bit of a crush on her. Her shadowy, pale appearance was one of those kinds of mysterious things that just sort of pulls at you, you know? And to have a name THAT cool? She sounded like a mystical creature from a fairy tale.
 
