@@ -12,7 +12,7 @@ Not even six inches down, I hit something hard. It wasn’t a rock—it had a me
 
 After I’d excavated a slightly wider area, reluctantly tearing up the new grass I’d worked so hard to cultivate, I cleared away the dirt, and that’s when I saw it: a rusted iron rail, like a piece of an old train track. Confused, I kept digging along the strip, and sure enough, there was another rail about three feet away, running parallel to the first.
 
-I stood there for a long time, just staring at these rails buried in my yard. It didn’t make any sense. First of all, it’s not like I’m in a rural area, my house is in the middle of a pretty developed suburb that’s been around over a hundred years. 
+I stood there for a long time, just staring at these rails buried in my yard. It didn’t make any sense. First of all, it’s not like I’m in a rural area, my house is in the middle of a pretty developed suburb that’s been around over a hundred years.
 
 I even googled some old maps of the area, and I can’t find anything about train tracks ever being here. What’s weirder is that the tracks run straight below the back porch and under my house, but don’t seem to continue to the front yard, as the grass grows just fine there.
 
@@ -20,13 +20,11 @@ That night, I couldn’t stop thinking about it. Why would there be train tracks
 
 The next morning, I started digging again, following the tracks toward the edge of my property. As I dug deeper, I uncovered old wooden ties, the kind you see on old railroads, but they were rotted and splintered, barely holding together, and many were missing entirely. The tracks themselves were rusted and pitted with age, like they’d been there for decades—probably over a century.
 
-I dug up both rails all the from my back porch to the back edge of my property where they disappeared under the wooden privacy fence and into the woods that the houses on my block back up against. Now the woods behind my property are incredible overgrown and not really managed at all (and the ground under the trees is full of poison ivy), so I decided rather than go out into the woods unprepared, I’d do a bit more research first. 
+I dug up both rails all the from my back porch to the back edge of my property where they disappeared under the wooden privacy fence and into the woods that the houses on my block back up against. Now the woods behind my property are incredible overgrown and not really managed at all (and the ground under the trees is full of poison ivy), so I decided rather than go out into the woods unprepared, I’d do a bit more research first.
 
 I realized I’d missed a great resource to get answers from: railroad enthusiast forums. If anyone would be able to help me figure out more about these tracks, it would be people who have spent their lives obsessed with this sort of thing. Who knows, maybe they’d have access to documentation or resources that I didn’t.
 
 I created an account on the first railroad forum I found, and started a thread where I uploaded some pictures of the tracks in my yard asking for help from anyone who had any idea what they could be for. I’ve posted the thread transcript below:
-
-
 
 >***HelpPlease123***  
 ***8/10/24***  
@@ -79,17 +77,15 @@ Frankie76 Not that I know of…. I’m in \[TOWN NAME\] if that’s not gonna do
 ***Brakeman***  
 Yeah my guess is either old street trolley or private mining operation. HelpPlease123 if the tracks disappear into a hole in the ground you’ve got your answer! Lol
 
-
-
 What theoiljournal said gave me an idea. What if the reason the tracks didn’t extend to the front yard wasn’t because they ended, but because they wen’t deeper underground in some old mine tunnel or something? My house doesn’t have a basement, just an unfinished crawlspace. I’d only been down their once for like 30 seconds when the home inspector was checking for water intrusion before I bought the house, but half-buried rails would’ve been easy to overlook in the dark.
 
 I grabbed a flashlight and a dust mask and opened the trapdoor to the crawlspace located in my kitchen pantry. I shone my light down the dark cobweb-filled four-foot drop into the packed dirt below. I felt a wave of discomfort, like my reptile brain telling me that what I was about to do was was a very, very bad idea. I briefly debated covering the crawlspace back up and trying to forget the whole thing before the rest of my brain took over with the thought of “what if there’s an old gold mine under your house?”.
 
-I grabbed the edges of the whole, and slowly slid down.
+I grabbed the edges of the hole, and slowly slid down.
 
-My feet hit the bottom and I crouched down on my hands and knees in the cramped darkness so I could fit under the floor joists of my house. I could feel the slight sticky threadlike resistence of a hundred years’ worth of cobwebs clinging to my arms and hair and crawled deeper into the darkness, sweeping my flashlight back and forth across the dirt-covered ground, it’s beam barely cutting through the oppressive darkness. 
+My feet hit the bottom and I crouched down on my hands and knees in the cramped darkness so I could fit under the floor joists of my house. I could feel the slight sticky threadlike resistence of a hundred years’ worth of cobwebs clinging to my arms and hair and crawled deeper into the darkness, sweeping my flashlight back and forth across the dirt-covered ground, it’s beam barely cutting through the oppressive darkness.
 
-The air felt thick and warm, and a claustrophobic urgency started to rise up inside me and make breathing difficult in the damp mask over my nose and mouth. I took a second to orient myself and slow my breathing, trying to figure out where I was in relation to by back porch. Then I saw a glint on the floor about ten feet away from me in the beam of the flashlight. I started slowly making my way over to it, trying not to panic as the small square of light from the opening to the kitchen grew more and more distant. 
+The air felt thick and warm, and a claustrophobic urgency started to rise up inside me and make breathing difficult in the damp mask over my nose and mouth. I took a second to orient myself and slow my breathing, trying to figure out where I was in relation to by back porch. Then I saw a glint on the floor about ten feet away from me in the beam of the flashlight. I started slowly making my way over to it, trying not to panic as the small square of light from the opening to the kitchen grew more and more distant.
 
 That was when I heard it.
 
@@ -105,9 +101,9 @@ I saw the slowly sloping far wall of the crawl space, old wooden beams supportin
 
 I followed the tracks through the crawlspace for 15-20 ft until they suddenly seemed to disappear. Not end, but simply fade down into the ground. It took my brain a moment to register what I was seeing. They were sloping downwards until they disappeared into the ground. I got briefly frustrated at what seemed like a dead end, until I noticed it. The ground where the tracks disappeared looked different than the ground in the rest of the crawl space. It wasn’t just old packed dirt, it was hard and rough. After feeling it for a second I realized it was some sort of hardened plaster covering a roughly 5 ft wide patch of ground that extended to the top of the sloping crawlspace wall 8-10 feet in front of it.
 
-With growing excitement I reached out and with the butt of my flashlight lightly tapped the plaster. Small pieces chipped and crumbled off as I tapped harder and harder. Suddenly with a sharp crunching sound, the flashlight punched a hole through the plaster into empty space beneath it. A small burst of cold air whistled up through the gap and into my face. It smelled like mold and burnt popcorn. 
+With growing excitement I reached out and with the butt of my flashlight lightly tapped the plaster. Small pieces chipped and crumbled off as I tapped harder and harder. Suddenly with a sharp crunching sound, the flashlight punched a hole through the plaster into empty space beneath it. A small burst of cold air whistled up through the gap and into my face. It smelled like mold and burnt popcorn.
 
-I was elated. I’d found it! The entrance to a mine! I was already imagining all the forgotten gold ore that was surely striping the walls of the tunnel behind the plaster that would solve all my problems and make me rich when saw a small plank of wood seemingly embedded into the plaster. I shined my flashlight at it and could just barely make out some letters faintly carved into the plank. I had to tilt my flashlight to cast shadows into the recessed lettering so I could read it. 
+I was elated. I’d found it! The entrance to a mine! I was already imagining all the forgotten gold ore that was surely striping the walls of the tunnel behind the plaster that would solve all my problems and make me rich when saw a small plank of wood seemingly embedded into the plaster. I shined my flashlight at it and could just barely make out some letters faintly carved into the plank. I had to tilt my flashlight to cast shadows into the recessed lettering so I could read it.
 
 What I saw made my blood run cold.
 
@@ -119,7 +115,7 @@ What I saw made my blood run cold.
 
 It was so faint I could almost have convinced myself I didn’t hear it. It sounded dry, fragile and stilted, two very separate syllables. I nearly screamed, jerking my head up and hitting it on the low ceiling. In my panic, I let go of my flashlight, dropping it through the hole in the plaster and into the space beyond. Just like that, I was in pitch darkness.
 
-I panicked. The air was thick with the smell of damp earth and rot, and every breath felt like I was sucking in dirt. My heart was racing, my skin slick with cold sweat, and the weight of the earth above me felt like it was crushing me, suffocating me. 
+I panicked. The air was thick with the smell of damp earth and rot, and every breath felt like I was sucking in dirt. My heart was racing, my skin slick with cold sweat, and the weight of the earth above me felt like it was crushing me, suffocating me.
 
 I scrambled backwards, cutting my arms on the rough wooden support beams around me as I frantically scrambled to find the light of the kitchen trapdoor. My throat tightened, and I could feel the panic rising, as the darkness seemed to close in, swallowing me whole. I clawed at the dirt, desperate to back out, but my limbs felt heavy, unresponsive, like I was sinking into the ground itself, and I felt an innate sense deep down that if I didn’t get out now, I never would.
 
@@ -127,8 +123,8 @@ Finally I saw the square of light a few feet over my shoulder and I turned aroun
 
 I ripped off my dust mask and crawled backwards out of the pantry, gasping and shaking.
 
-It’s been several hours since I went down into the crawlspace (I’m writing this all from a coffee shop in town to clear my head). I don’t know what’s going on, or what I’m going to do next. Sell my house? Call the police? I don’t know, any advice would be appreciated. I don’t feel safe in my own home, but that’s just me being paranoid right? 
+It’s been several hours since I went down into the crawlspace (I’m writing this all from a coffee shop in town to clear my head). I don’t know what’s going on, or what I’m going to do next. Sell my house? Call the police? I don’t know, any advice would be appreciated. I don’t feel safe in my own home, but that’s just me being paranoid right?
 
-Maybe what I heard really was all my imagination, that’s possible, isn’t it? I can’t just pass up the opportunity to explore a secret mine tunnel under my house, can I? As scared as I am, I feel like I’m being drawn back the house, to the crawlspace, like I can’t leave without t knowing more.
+Maybe what I heard really was all my imagination, that’s possible, isn’t it? I can’t just pass up the opportunity to explore a secret mine tunnel under my house, can I? As scared as I am, I feel like I’m being drawn back the house, to the crawlspace, like I can’t leave without knowing more.
 
 Whatever’s going on, I have a feeling it’s far from over...

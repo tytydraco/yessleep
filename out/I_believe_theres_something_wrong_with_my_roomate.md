@@ -60,11 +60,11 @@ He shook his head, tears streaming down his face. “I’m sorry,” he whispere
 
 I lunged for the door, but Jake was faster. He grabbed me, the knife flashing in the dim light of the room. I felt a sharp pain in my side, and everything went black.
 
-When I woke up, I was lying on the floor, the room spinning around me. I could feel blood pooling beneath me, feel the life draining out of me.
+When I woke up, I was lying on the floor, the room spinning around me. I could feel blood pooling beneath me, the bleeding stopped. 
 
 Jake was gone.
 
-I tried to move, but my body wouldn’t respond. but... by some reason... i couldn\`t stop smiling. a deep and horrefying smile. The world grew dimmer, and as I lay there, I heard it—the faintest of whispers, coming from the walls.
+i felt how the powers came back,  but... by some reason... i couldn\`t stop smiling. a deep and horrefying smile. and as I sat there, I heard it—the faintest of whispers, coming from the walls.
 
 They were real.
 

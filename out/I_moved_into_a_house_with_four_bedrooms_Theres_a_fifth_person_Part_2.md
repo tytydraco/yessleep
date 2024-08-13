@@ -2,7 +2,7 @@
 
 So. Um.
 
-If you remember, over the weekend, I kinda got into a real fucked up mess with some crazy witch/demon woman named Sjzona (Sh' - zoh - nuh for all you normal people out there who don't know how to pronounce mystical fairy tale sounding names and seriously why the hell is she named that is she a dark angel or a demon in disguise wtf is going on here)
+If you remember, over the weekend, I kinda got into a real fucked up mess with some crazy witch/demon woman named Sjzona (Sh' - zho - nuh for all you normal people out there who don't know how to pronounce mystical fairy tale sounding names and seriously why the hell is she named that is she a dark angel or a demon in disguise wtf is going on here)
 
 Well, I know a bit more than I did then. As you imagined. Sjzona, as I suspec...hoped to God, isn't some crazy vengeful spirit out to claim souls or anything, but I can see how it would be easy to mistake her for something like that.
 
@@ -127,7 +127,7 @@ Sam laughed. "Chill, dude. Meth doesn't work that way, and also, no. It's real. 
 
 "'What do you mean?"
 
-Sam's green eyes seemed to glow as she answered. "First off, Rengardia makes me feel like I never found love before, *ever.* If she was the sun, she could convince the moon to stay in the sky. And Sjzona's going to be that way with you, too. Plus, my job is getting AMAZING. Wherever you are, you'r probably about to get a lot of lucky opportunities out of nowhere, and you'll be living stress free in no time."
+Sam's green eyes seemed to glow as she answered. "First off, Rengardia makes me feel like I never found love before, *ever.* If she was the sun, she could convince the moon to stay in the sky. And Sjzona's going to be that way with you, too. Plus, my job is getting AMAZING. Wherever you are, you're probably about to get a lot of lucky opportunities out of nowhere, and you'll be living stress free in no time."
 
 I just stared at her. "Sam, I don't know if I can really just believe this is happening. I mean, what's the catch? What amazing thing did I do to deserve any of this?"
 
@@ -145,7 +145,7 @@ One hand was stuck deep in his pants pocket. "One sound," he said, his voice no 
 
 Wh...okay.
 
-He grabbed me by the arm and marhced me toward the nearby exit. Fuck, we were like FIVE STEPS from the others, but a small jutting piece of wall blocked me from their view.
+He grabbed me by the arm and marched me toward the nearby exit. Fuck, we were like FIVE STEPS from the others, but a small jutting piece of wall blocked me from their view.
 
 He pulled me outside and started marching toward a small black sedan parked in the empty lot behind the pub. "Start talking," he said in a low growl as he pulled me along. "Where'd you meet those two demon bitches from, and what kind of hell's creature are you? What business you and Blondie got with a couple Spawn of the Night Crusades?"
 

@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1eqxg6l/i_moved_into_a_house_with_four_bedrooms_theres_a/) | can be found here.
+
 Yeah. Not exactly number one on your wtf list, is it? You'd think it means two people are just sharing one of the rooms.
 
 But nah. Life ain't that easy, is it?
