@@ -1,0 +1,38 @@
+Before I start, let’s see the layout of my school for you to have an idea about it. So, my school is kind of in an L-shape. There are about 20-25 classes on each floor. It has 2 staircases, one on the longer line of the L, which was the common staircase and one on the shorter, which was the staff staircase.  We had staff room on the ground floor, 3^(rd) floor and 5^(th) floor, all next to the staff staircase. The staff rooms had a dead bolt but the classroom doors were cheap and pretty weak.
+
+Now, lets get to the story.
+
+It was supposed to be just another school event organized by the student chapter. As chapter members, we were tasked with cleaning up afterward. By the time we finished, the sun had set, and the school was eerily quiet. Most students and teachers had already left, leaving just a few of us behind to finish the cleanup. Exhausted and frustrated, I decided to head to the fifth floor to retrieve my bag and help with the last bit of cleanup.
+
+Caleb, the chapter head, had never liked me. He always seemed to find reasons to belittle me, pointing out every little mistake I made. He made it clear that he didn’t think I was worthy of being in the student chapter, and tonight was no different. My friend Kevin, who’d known me since middle school, always tried to cheer me up, saying Caleb was just jealous or had issues of his own.
+
+As we finished up, Caleb started taunting us again, calling us slow and useless. Fed up, a friend and I decided to leave without finishing the job. But as I reached the school gate, I realized I’d forgotten my bag on the fifth floor. I was exhausted, frustrated, and angry, but I turned back. I had to get my bag.
+
+I was near the stairs when one of the ward boys, Jordan, started talking to me in a creepy way saying he was getting a bad feeling about everything and that I should just leave the bag here and go home. Hearing this my friend was creeped out and decided to go home. I should’ve listened to him, but I was honestly confused about his behavior and decided to just get my bag as soon as I can and run home.
+
+As I ascended the stairs this guy was following my trying to make me leave. \[our school has this metallic chain gate at every floor and this guy was closing the gate along the way. I was getting creeped out but don’t know why I just kind of trusted him\]. We had reached the 3^(rd) floor and closing the gate when we heard her, her scream, her bloody scream, we turned and saw that she was sprinting towards us with a manic look in her eyes and big knife glinting in her hand. Panic surged through me, and we ran for the next metal gate. But she was too fast. She caught Jordan and stabbed him. He shoved me through the gate, locked it, and threw me the key. With tears streaming down his face, he screamed at me to run. I was frozen, unable to move, as she kept stabbing him, over and over, long after he was dead. After stabbing him for what seemed like forever, she turned towards me with a creepy smile and said, *“Do you really think you’re safe? I am going to get you. “*
+
+ That snapped me out of my paralysis. I sprinted up the stairs to the fifth floor, desperate to warn the other students and lock the staff staircase entrance. When I reached the fifth floor, I saw her already there, but she hadn’t noticed me yet. I quietly ran to the classrooms and tried to alert the others, but they just laughed at me, thinking it was a prank. Then we heard it—a scream followed by panicked yells. The laughter stopped. The reality of the situation hit them as she burst into the room and started stabbing a boy nearby. Some of us ran out, locking the classroom doors behind us to trap her. But others, still in shock or disbelief, hesitated. The screams of those who stayed behind still haunt me. We bolted for the staff stairs, but they were locked. She had the keys. We had no choice but to head for the common stairs. I still had the keys to those gates. We locked each one behind us as we descended, but when we reached the third floor, we saw Jordan’s lifeless body. Panic set in, but we had to keep moving.
+
+As we reached the ground floor, we heard a loud bang. We knew she was coming down fast through the staff stairs. So, we went inside the staff room on the ground floor. There were ten of us left, and we decided to split up. Some would search for her, some would call for help, and the rest would secure the room and try to contact the police.
+
+We split into pairs. I was with Kevin, while Luke and Caleb formed the other team. We started searching the classrooms, locking them after checking. When Kevin and I reached the last two interconnected rooms, Kevin went into the second room while I searched the first.
+
+Then I heard Kevin scream, “RUN!” I bolted for the door but tripped over a bench. As I hit the floor, I saw her drag Kevin by his hair into the room. He was still alive, but she started stabbing him, over and over. I could hear his gurgled cries as I scrambled to get up, but she was too quick. She ran towards me, knife raised, and I braced myself for the end.
+
+But to my utter disbelief, Caleb appeared out of nowhere. The boy who had tormented me for years grabbed me and pulled me out, slamming the door shut behind us. But not before she managed to stab my leg. The pain was searing, but the shock of Caleb saving me overrode it. We were in shock, too stunned to speak, as the sounds of Kevin’s suffering echoed from the other side of the door.
+
+Then we heard the sirens. Relief washed over us as the police arrived. The rest of the students came out of the staff room, and we told the cops where she was. They surrounded the classroom and opened the door. She lunged at one of the officers, stabbing him, but a female cop shot her in the shoulder, causing her to drop the knife. They handcuffed her, but she kept screaming and thrashing as they dragged her away. They took her away, while others went around to investigate the whole building and some others were interrogating us.
+
+The aftermath was horrifying. They found 37 bodies—students, teachers, staff—scattered throughout the school. Some were hiding in staff rooms, too terrified to come out. Our parents were called, and we were sent to the hospital for treatment. My parents were beyond devastated, knowing I could’ve died that night. I couldn’t sleep for weeks, haunted by the memories of what happened
+
+The school was closed down for investigation and mourning. A memorial was built for those who died that night. Every time I see Kevin’s name engraved there, my heart aches.
+
+We later learned that the girl’s name was Adeline. She kept yelling about how they did her wrong by stopping her, how she had to kill 100 people in one night. They suspected she was part of a cult and she did all that as a sacrifice, but she never said anything coherent beyond her ranting. Some thought she should be sent to a mental asylum instead of prison.
+
+Six years have passed, but the memory of that night is still fresh. My parents moved us far away from that state, and Caleb and I became good friends. He’s a changed person now—no longer the bully he once was. It’s surprising how much change going through a live threatening event can make in a person. He has also moved away from there and we live close by now and meet up occasionally. The last time we talked, he mentioned that Adeline had attacked multiple staff members at the mental asylum where she was sent.
+
+I’m just grateful I survived that night, but I know I’ll never forget her creepy smile and those blood-curdling screams.
+
+  
+\[This is my first time posting, so I’m open to all suggestions and feedback.\]
