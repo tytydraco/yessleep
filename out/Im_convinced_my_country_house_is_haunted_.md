@@ -1,0 +1,13 @@
+Unfortunately, I don’t have any evidence to prove what I’m saying so you have to take my word for it. Anyone who might know why those things I’m about to explain are happening, I’d like to know too. 
+
+Two families own this house and they split it in half after it was made. My grandfather and his brother in law build it themselves so we are talking about many years ago, close to 40 years give or take. Back then, there was no paperwork in my country (believe it or not I said 40 years not 100, so that’s how messed up my country is but that’s another subject) so I have zero record on what was going on before the house was built. 
+
+My parents spent summers there and sometimes holidays during the winter. Here’s the thing; the house is technically split in quarters. In the top right my aunt and uncle stay, the bottom left is nothing but a storage area for tools and food. The left top half, used to be our house. We shared it with my dad’s 2 other brothers and their families until we decided to move in to the bottom house. It was also a storage room until now that’s a livable space. 
+
+Long story short, ever since I was a kid I had the worst nightmares and there hasn’t been one! Night that I slept in peace. I’m talking about ever since I was a toddler. My parents told me even as a baby I couldn’t sleep there and I was constantly crying for no reason. My dad had seen a black shadow down the hallway, since he isn’t a believer of ghosts etc he didn’t think much of it. When he returned from the bathroom the shadow wasn’t there.  Growing up, I always felt like I was being watched. I get completely paranoid when I’m in that house, weird dreams/nightmares, waking up checking the entire house to see if there’s someone there. Until I turned 17 when we started building the bottom house and eventually moved. That feeling eased but not entirely. I also felt like I was being watched non-stop, during the day too. My mom and I had heard rumbling, footsteps and especially like something is being moved in the top house, while no one is there. I’ve checked whether it could be from the right side of the house but there were still things happening without anyone being there. 
+
+When I go upstairs, I just want to get the hell out of there as fast as I can. I can feel like I’m being watched and my family does too. Once my mom and I went upstairs to grab some things. At some point she said “what?” She thought I poked her to tell her something. It was so intense she still thinks I did it on purpose in order to scare her while I never touched her. 
+
+Tomorrow I will go there for a week or so and I will try to film and take photos as much as I can until I catch something. Wish me luck. 
+
+Edit: grammar (not a native English speaker)
