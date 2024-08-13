@@ -1,4 +1,4 @@
-When my friend Jess rang me to say she'd had a fight with her flatmate, I was only too happy to help her. She needed a place to stay while tempers cooled on both sides, and not having seen her for far too long, I though it would be a great chance for us to reconnect.
+When my friend Jess rang me to say she'd had a fight with her flatmate, I was only too happy to help her. She needed a place to stay while tempers cooled on both sides, and not having seen her for far too long, I thought it would be a great chance for us to reconnect.
 
 Jess was a few years younger than I. As kids, she'd been the only girl on a street full of boys, and no one had wanted to play with her. I might have treated her no different, if it hadn't been for how I'd found her sitting by the road one day, crying. She'd skinned her knee falling of her bicycle, and was in such need of comfort that she didn't care who I was, but simply reached out her arms to me as soon as I drew close. It seemed so natural to me then to pick her up and carry her home. She was light as a feather in my arms, and as she buried her face in my chest and slowly let her sobs dry out, I remember I felt as if I was doing something important. Something good.
 
@@ -214,7 +214,7 @@ She hesitated for a bit, then said “I hope things weren't too odd last night?�
 
 I'd intended to watch some telly and wait for her, but once I sat down in the sofa, exhaustion washed over me like a wave. My head really felt like it was stuffed with wool. A quick nap now seemed like a necessity, and I lay back to get at least a few minutes of rest before Jess returned.
 
-When I woke, it took me a while to realise just where I was. It had gotten dark outside, and I was lying in the half-dim gloom of my living room, lit only by the light coming in from the hallway. I cast a glance at my wristwatch, which told me my 'catnap' had lasted for more than six hours. I moaned. This would not help the already jumbled rhythm of my sleep-schedule. Was Jess not home yet? If she had come in, why hadn't she woken me? I swung my legs of the sofa, then nearly had a heart attack as a shadow suddenly moved on the wall. I turned my head to see Jess standing silhouetted in the doorway behind me. 
+When I woke, it took me a while to realise just where I was. It had gotten dark outside, and I was lying in the half-dim gloom of my living room, lit only by the light coming in from the hallway. I cast a glance at my wristwatch, which told me my 'catnap' had lasted for more than six hours. I moaned. This would not help the already jumbled rhythm of my sleep-schedule. Was Jess not home yet? If she had come in, why hadn't she woken me? I swung my legs of the sofa, then nearly had a heart attack as a shadow suddenly moved on the wall. I turned my head to see Jess standing silhouetted in the doorway behind me.
 
 “Terribly sorry,” she said. “Didn't mean to frighten you.”
 
@@ -258,7 +258,7 @@ Stunned at what had happened, I went into the kitchen and sat down at the table.
 
 What if she decided on going outside? God knew what she might wake up to if she began wandering the town in her state.
 
-I had do something, but I didn't know where to begin. I glanced at my phone, which I had put on the table. It was rather late, but maybe I could still call Mila? These *were* extraordinary circumstances, and perhaps she wouldn't mind too much if I woke her. Hopefully, she'd be able to tell me something useful. 
+I had do something, but I didn't know where to begin. I glanced at my phone, which I had put on the table. It was rather late, but maybe I could still call Mila? These *were* extraordinary circumstances, and perhaps she wouldn't mind too much if I woke her. Hopefully, she'd be able to tell me something useful.
 
 I didn't have her number, but a quick googling of Jess's address listed the name and number of both residents. I glanced surreptitiously over my shoulder. No sign of Jess. Apparently she had indeed gone back to her room.
 
@@ -298,7 +298,7 @@ Mila gave a snort of laughter that devolved into a pained gurgle.
 
 “Michael, I'm in the fucking hospital. She threw boiling water in my face.”
 
-I was speechless. Mila was not. She went on to lay the entire story out. Everything Jess had said was true, as far as it went. She *had* been caught standing over Mila's bed, and ended up having to leave. 
+I was speechless. Mila was not. She went on to lay the entire story out. Everything Jess had said was true, as far as it went. She *had* been caught standing over Mila's bed, and ended up having to leave.
 
 But she'd come back the next night.
 
