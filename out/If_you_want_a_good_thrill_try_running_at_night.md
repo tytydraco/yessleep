@@ -1,0 +1,13 @@
+I usually run every night at around 3:00 AM. I'm a programmer with a weird sleep schedule so I'm mostly active at night. I live in a somewhat rural area in Northern California, and I run along some community trails near the Sacramento River. These trails have foliage on both sides throughout much of the area. Not many people use these trails, so it's rare to see anyone in the daytime, and at night the place is completely deserted.
+
+When the moon isn't out I run with a small headlamp. When you have a headlamp you get used to seeing lots of glowing eyes of animals in the woods. Once in a while I get a bit unnerved when see a set of eyes that sees me and raises up higher than I would expect, if that makes sense. Or sometimes has eyes that just seem further apart than normal, or in some cases much larger than normal. A couple times I've turned around because it was both.
+
+I'll organize this by least scary to most scary.
+
+Least scary are the larger birds. In the moonlight sometimes you get a large shadow passing over you unexpectedly. Other times you can just hear it take off as you approach. I've had owls try to swoop at my head, which can catch you off guard. Anything in the sky can't really hurt you as far as I'm aware.
+
+Medium-scary is hearing a large animal get startled and start thrashing around in the foliage right next to you as you're running. If you live in my area you have the occasional screaming animals like coyotes. The worst one by far is the red fox. These sound like Aztec death whistles. These will get your adrenaline going... these have always scared the shit out of me and actually made my run much easier because of the adrenaline.
+
+It's rare for me to see another person on these trails in the daytime, so my scariest encounters are when I see a person at night. I've seen a few this year, and each time I was running without my light. All you can see is their silhouette. Each time they've been just standing to the side of the trail, completely still. I don't know if maybe they got spooked by me running toward them, but I always pass them and say Hello, and they never say anything. I just pass them and hope they don't try anything stupid. It creates a bit of paranoia where sometimes on a new trail I'll pass burnt stumps or other things resembling human figures and say Hello, but never wanting to stop and examine if what I passed was an actual person. I'm probably saying hello to a lot of inanimate objects these days in my life.
+
+Like I said, if you want a thrill, and you live in a place like this, this is an easy way to accomplish it. But please don't be careless or stupid about it. Don't do this without having a way to defend yourself if things actually go south.
