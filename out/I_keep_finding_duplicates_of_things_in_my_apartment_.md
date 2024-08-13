@@ -94,7 +94,7 @@ And that’s just about what did it for me.
 
 I bursted into action, bolting towards the door and nearly ripping it off of its hinges as I threw myself into the hallway of our dingy apartment building. I raced down the hallway, pushing through the emergency exit doors and sprinting through the streets of D.C. narrowly avoiding getting hit by a slew of cars on my way out. 
 
-Yet, the entire time I could still hear them, the footsteps behind me. I didn’t bother turning around. I ran for what felt like miles before finally slowing to a halt near a dimly lit dive bar on the wrong side of town. I ended up walking in for a drink because, Jesus, after that night, wouldn’t you?
+Yet, the entire time I could still hear them, the footsteps behind me. I didn’t bother turning around. I ran for what felt like miles before finally slowing to a halt only when the sound of the footsteps behind me subsided. I ended up near a dimly lit dive bar on the wrong side of town and decided to head in for a drink because, Jesus, after that night, wouldn’t you?
 
 And that takes me to where I am now: sipping on a vodka soda, sitting here typing this all out, recounting the past few weeks that have been nothing but complete chaos. I was lucky enough to have had my phone in my back pocket when the whole situation with my roommate went down. I’m surprised it didn’t fly out as I ran for my life down the streets of D.C. I don’t know what to do. I can’t call the police. I’ll sound like a complete lunatic. Regardless, I know what I saw. I know there’s something seriously wrong.
 
