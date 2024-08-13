@@ -1,3 +1,5 @@
+[Update: Part 2](https://www.reddit.com/r/nosleep/comments/1erlcvn/comment/lhzgad3/?context=3)
+
 Hey everyone, I’ve got an issue with the backyard of my new house, and I’m still trying to wrap my head around it. I thought this might be the right place to share, especially since I’ve never seen anything like it before and it’s kinda starting to freak me out. I’m hoping someone here might have some insight or at least help me feel a little less crazy.
 
 So a little bit of background: I bought this house about a year ago. It’s an old place with lots of character, built in the 1920s, with a decent-sized backyard. Shortly after moving in I noticed that the houses on either side me both had beautiful lawns and mine was mostly dirt and weeds. Now, I’m not a lawn care expert or anything, but the “domination line” (as Reddit seems to calls it) on either side of my lot was making me a little self-conscious, so I’ve been trying to keep it up. Bought some Scotts grass seed and starter fertilizer, hit the weeds with RoundUp, and planted a bunch of grass last fall.

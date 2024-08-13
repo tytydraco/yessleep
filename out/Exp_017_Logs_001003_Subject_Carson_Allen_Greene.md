@@ -15,7 +15,7 @@ Carson Allen Greene
 
 Hello, to… whomever will be reading these, I guess!
 
-I have arrived safely! Hard to believe last month I’m was sitting in Florida, cultivating melanoma, and now here I am inside a bunker on top of a snow-covered mountain. Funny how life can flip for you just… out of nowhere. To think, I almost didn’t bother opening that email. Sorry, rambling. Excited!
+I have arrived safely! Hard to believe last month I was sitting in Florida, cultivating melanoma, and now here I am inside a bunker on top of a snow-covered mountain. Funny how life can flip for you just… out of nowhere. To think, I almost didn’t bother opening that email. Sorry, rambling. Excited!
 
 You guys certainly take location security seriously, I have no idea where I am! I guess I’ll just have to take your word for it that I’m “somewhere in mountainous Canada", cause that’s what I packed for. I’m excited to get to exploring all of it in my down time.
 
@@ -29,7 +29,7 @@ Overall, exciting first day. First ride in a helicopter! Too bad I couldn’t se
 
 Think I’ll test out that kitchen and tear into the stack of books I brought with me. 
 
-Till tomorrow... whomever you are! Definitely need to think of a name for my omniscient reader, wouldn’t want to spill my guts to an  stranger… no matter how true it may be. 
+Till tomorrow... whomever you are! Definitely need to think of a name for my omniscient reader, wouldn’t want to spill my guts to a stranger… no matter how true it may be. 
 
 ~Carson
 
@@ -134,7 +134,7 @@ Everything else is normal.
 
 **Custodian:** Hello. What is your status? Can you fix the door?
 
-**Entity:** Operations normal, no updates. No Goodbye. 
+**Entity:** Operations normal, no updates. **NO**. Goodbye. 
 
 
 
