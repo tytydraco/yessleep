@@ -1,3 +1,5 @@
+***(2)***
+
 This happened to me back in the early 60’s, either 1962 or 1963, so forgive me if my memory of it is a little foggy, regardless of the fact that I have recounted it twice recently before writing this. I am also not all too tech-savvy, so my granddaughter Sonia is helping me with uploading this. It was after I told her this whole story that she suggested I write it up and put it on here, so here we are.
 
 I live out in the Black Country in the UK, the most rural part of the rural West Midlands, and have done my whole life after moving back post-University. My town is a little mining village surrounded by thick forest and farmland, very obscure and hard to get to according to those who pass through, however I have always loved living here in such a tight-knit community with those who choose to stay.
