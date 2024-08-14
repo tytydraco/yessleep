@@ -1,7 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1eh6576/do_not_trust_your_foster_mother/)
 
-
-
 Thanks to a lot of the advice in this subreddit. I did decide to meet the woman who wanted to kill my mom and then kill herself to keep the fight going in Hell. I know it's different but, as I talked to her online and said I'd meet her, I didn't feel too different from her daughter in a way. A stranger talks to you out of the blue and tells you you have some grand purpose to complete. Ivy ended up with her youth stolen and a death worse than anyone deserves. I did not want to end up like Ivy. However, the risk is the right one to take, right? Because it's important to do the right thing. Because it makes other people do the right thing and we're all happier for it, right? 
 
 And, please don't judge me, but when I write, I try to be honest. I am sixteen years old, I've been in seven different families, and I can never call any of them home. I really hope if I'm good, I can have a home and a family. 
@@ -320,6 +318,6 @@ She broke her mocking tone and screeched out a laugh. "Because I killed them, st
 
 And that is what happened. I let her go and the Old Soul did leave our world.
 
-In my world, things got better.  I'm adopted now. Turns out Ferran felt it would be a better use of her life to be a better mom again than to just end it. Even though the Old Soul is gone, Ferran and I aren't done. There are plenty of people out there being taken advantage of by evil adults, natural and supernatural. We'll be stopping them both. As for the Old Soul, I'll let those of her world stop [\~her.\~](https://www.reddit.com/r/Finchink/comments/1enal35/what_happened_to_the_old_soul/)
+In my world, things got better.  I'm adopted now. Turns out Ferran felt it would be a better use of her life to be a better mom again than to just end it. Even though the Old Soul is gone, Ferran and I aren't done. There are plenty of people out there being taken advantage of by evil adults, natural and supernatural. We'll be stopping them both. As for the Old Soul, I'll let those of her world stop her.
 
-Oh, and as for my friend, Vicky, whom I mentioned earlier—the one I thought ditched me once I moved. Turns out she actually passed away, which is heartbreaking. I was mad at a ghost. But you know what? I was grateful I chose to be her friend. I was so grateful that we got to spend time together. I think that's an underrated reward of goodness or whatever. I get to look back on my time with Vicky, and I can smile. If this reaches heaven, Vicky, just know I loved you and I'd choose you all over [\~again\~](https://www.reddit.com/r/Finchink/).
+Oh, and as for my friend, Vicky, whom I mentioned earlier—the one I thought ditched me once I moved. Turns out she actually passed away, which is heartbreaking. I was mad at a ghost. But you know what? I was grateful I chose to be her friend. I was so grateful that we got to spend time together. I think that's an underrated reward of goodness or whatever. I get to look back on my time with Vicky, and I can smile. If this reaches heaven, Vicky, just know I loved you and I'd choose you all over [again](https://www.reddit.com/r/Finchink/comments/1enal35/what_happened_to_the_old_soul/).
