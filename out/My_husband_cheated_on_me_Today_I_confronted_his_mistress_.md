@@ -98,3 +98,4 @@ I fumbled with the keys and scrambled to hop into my car. Justin2.0 sprinted tow
 
 I hurriedly turned my attention back to the steering wheel. I slammed on the gas, my tires squealing as I sped away. I glanced in the rearview mirror, and my heart nearly stopped. The false Justin was standing beneath a street lamp. I don’t know if it was my nerves, or maybe the poor lighting, but I could have sworn that when I looked back, he was smiling. And for a moment, I was sure that I saw blood dribbling down [his chin.](https://www.reddit.com/r/HorrorJunkie123/)
 
+[Update](https://www.reddit.com/r/nosleep/comments/1es6dpq/my_husband_cheated_on_me_i_think_this_is_the_end/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
