@@ -166,7 +166,7 @@ There weren't a bunch of people around. All the streets that weren't in the town
 
 The smell of sharp cologne immediately hit my nose.
 
-"Hello there, carrier. Carrie the carrier," he said as a big grin spread on his face. He'd just appeared out of nowhere. Why was he not at the festival? 
+"Hello there, carrier. Cassie the carrier," he said as a big grin spread on his face. He'd just appeared out of nowhere. Why was he not at the festival? 
 
 "Oh, hi." 
 
