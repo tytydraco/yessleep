@@ -1,6 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1dxvhqm/i_tried_to_save_a_girl_from_jumping_off_a/)
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1dxvhqm/i_tried_to_save_a_girl_from_jumping_off_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 2](https://www.reddit.com/r/scarystories/comments/1dutisn/i_tried_to_save_a_girl_from_jumping_off_a/)
 
 The big man stood in front of me. He was such a sharp contrast to Jen. Jen was always so still and withdrawn I wondered if she was alive. This man’s chest bounced up and down in a frighteningly fast rhythm, a war drum. He shook ferociously and his breath came out so thick I could almost see it. The heat of the room soon had sweat sliding down my back. I was scared but wrath trampled my fear. I’d traveled the world with Jen; she was my friend. So, for the second time in my life, I threw a punch.
 
