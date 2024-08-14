@@ -82,5 +82,4 @@ Help, I don’t know what to do. I’m out of options and I hear his footsteps g
 
 Why has he been watching me from a call for all this time? Why only after I noticed the call is he after me? What does he want from me?! What do I do?!
 
-  
-[Part 2](https://www.reddit.com/r/nosleep/comments/1eq20ng/i_was_on_a_discord_call_for_2_years_without/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1erxfed/i_was_on_a_discord_call_for_2_years_without/)
