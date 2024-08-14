@@ -124,7 +124,7 @@ Back home, I set up the lights around the crawlspace, making sure every corner w
 
 I slowly made my way to the far end of the crawlspace, following the tracks to where I found the sealed-off entrance yesterday. The plaster covering it looked old and brittle, like it had been hastily slapped on. I could see a sparse network of lath that had been used to support the plaster, but it was so old and poorly applied that I was sure my sledgehammer would make quick work of it.
 
-I sat there for a few minutes, the sledgehammer in my hand, my heart pounding in my chest. Once again, very part of me started screaming to leave it alone, to walk away, but I couldn’t. I had come this far, and I needed to know what was behind that seal. So, I swung the sledgehammer and broke through.
+I sat there for a few minutes, the sledgehammer in my hand, my heart pounding in my chest. Once again, every part of me started screaming to leave it alone, to walk away, but I couldn’t. I had come this far, and I needed to know what was behind that seal. So, I swung the sledgehammer and broke through.
 
 The plaster crumbled easily and the lath splintered into tiny shards, falling away and tumbling down into the sloping hole beyond. I kept smashing the plaster, scraping the sledgehammer around the edges of the opening to knock off any sharp chunks and create a narrow opening just big enough to crawl through.
 
@@ -132,11 +132,11 @@ I stopped and waited for the sound of of the skittering pieces of plaster to die
 
 Everything was quiet.
 
-I took a deep breath, clicked on my headlamp, and crawled inside the opening to the tunnel, the light’s beam cutting through the dust and darkness. The tunnel was narrower and rough-hew, maybe 5 ft wide and 5 ft tall. I didn’t have to crawl, but I had to hunch to fit inside. The air was colder, damper, and smelled strange, metallic and burnt.
+I took a deep breath, clicked on my headlamp, and crawled inside the opening to the tunnel, the light’s beam cutting through the dust and darkness. The tunnel was narrower and rough-hewn, maybe 5 ft wide and 5 ft tall. I didn’t have to crawl, but I had to hunch to fit inside. The air was colder, damper, and smelled strange, metallic and burnt.
 
 I could see old wooden support beams lining the walls, their surfaces pitted and splintered, and the tracks continued further down into the earth, disappearing into the darkness. Even as scared as I was, even as wrong as this all felt, the little boy inside me was squealing with excitement. This was without a doubt the coolest thing I’d ever seen.
 
-I shuffled on for what felt like an eternity down the sloping corridor. How deep did this tunnel go? I must be 40 or 50 feet beneath the surface now, and well past the bounds of my own property.
+I shuffled on for what felt like an eternity down the sloping corridor. How deep did this tunnel go? I must've been 40 or 50 feet beneath the surface now, and well past the bounds of my own property.
 
 I swept the beam of my headlamp across the walls and ceiling, still hoping to see streaks of gold glittering back at me, but there was nothing but dull rock. The ceiling was just inches from my head, and that same smell – earthy and tangy, almost like rust - grew stronger and filled my nose even behind my mask. The deeper I went, the stronger it got, until it was almost overpowering.
 
@@ -144,7 +144,7 @@ Then I saw it.
 
 The tunnel leveled out, and where the track became level sat an old, rusted mine cart. It looked just like something from a cartoon. The thing was ancient, covered in grime and dirt, its sides dented and scratched. I shuffled over to it excitedly, aiming the beam But that wasn’t what caught my attention. It was the dark stains on the inside, thick, blackish-brown, and flaky. I felt that sense of dread start to creep back into my stomach. Maybe this wasn’t a mine at all, maybe something terrible had happened here.
 
-I shone my headlamp around, and that’s when I noticed the floor. It wasn’t just dirt or rock anymore. It was covered in this thick, flaky dust—gray and black. As I bent down to get a closer look, my feet kicked it up in small dusty clouds that hung in air, and that’s when I realized what it was. Bone. Crushed, powdered bone mixed with ash. The realization hit me like a punch to the gut.
+I shone my headlamp around, and that’s when I noticed the floor. It wasn’t just dirt or rock anymore. It was covered in this thick, flaky dust—gray and black, interspersed with what looked like small charred pebbles. I bent down to get a closer look, my feet kicked it up in small dusty clouds that hung in air, and that’s when I realized what it was. Ashes and bone. I was walking on charred, crushed, powdered bone. The realization hit me like a punch to the gut.
 
 I was standing in a place where people—or things—had been burned, reduced to ash and scattered across the ground. I instinctively took a step back, feeling a desperate need to get out of there.
 
@@ -173,6 +173,6 @@ My phone just dinged.
 A new reply to my thread:
 
 >***BNSFBoss***  
-***8/12/24***  
+***8/13/24***  
 ***Stationmaster***  
 you woke them.

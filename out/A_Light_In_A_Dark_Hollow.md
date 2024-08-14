@@ -132,6 +132,8 @@ Finally, I managed to speak a single sentence aloud.
 
 "Human beings have the capacity to imagine, to create cultural structures with me that I can use to influence you. A wolf cannot build a temple to Aphrodite and cannot imagine her form. To use the human mind to establish and perpetuate these customs, traditions, and images by which to control mankind; that is my goal. More accurately, that is my means to an end, an end I can't reveal to you at this time but that which is mankind's ultimate destiny."
 
+"Despite what some may erroneously believe, I did not create this world. The universe came into existence normally and naturally. I'm just another part of it."
+
 "I am the ghost of every ghost tale, the chill down your spine when you enter a haunted house, just as much as I am the feeling of the divine in every place of worship. Despite any appearance I may take, I am not your dead loved ones, I simply embody a memory to deceive and manipulate. In this sense, I am everyone's dead loved ones."
 
 "I'm your friend, your father, your mother. I'm your deity, I'm everyone's deity!"
