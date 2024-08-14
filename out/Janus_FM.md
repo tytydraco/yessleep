@@ -1,5 +1,3 @@
-***(2)***
-
 This happened to me back in the early 60’s, either 1962 or 1963, so forgive me if my memory of it is a little foggy, regardless of the fact that I have recounted it twice recently before writing this. I am also not all too tech-savvy, so my granddaughter Sonia is helping me with uploading this. It was after I told her this whole story that she suggested I write it up and put it on here, so here we are.
 
 I live out in the Black Country in the UK, the most rural part of the rural West Midlands, and have done my whole life after moving back post-University. My town is a little mining village surrounded by thick forest and farmland, very obscure and hard to get to according to those who pass through, however I have always loved living here in such a tight-knit community with those who choose to stay.
@@ -233,11 +231,3 @@ I remember the two of us spent the week after our expedition poring over yellow 
 It wasn’t until 1996 that I heard the name ‘Sydney Cunningham’ again, or rather, read it. ‘Sydney Cunningham’ was the name of a girl who went missing in the National Park. I will never forget the feeling that rushed over me when I saw her name emblazoned on the front page of the local paper outside the newsagent’s, and I picked up a copy and began to read.
 
 She was the twenty-one year old daughter of Terry and Annabel Cunningham; when she disappeared, she worked as a park ranger volunteer. She, and two other colleagues, were on their walk back from a closing patrol when, according to their statements, she stopped in the middle of the path, muttering to herself about seeing yet another trail that was not properly marked down on the official maps. Her two friends told her to just keep walking, and set off down the trail again. When they looked behind themselves to check if she was still following them, down that very same path, Sydney had vanished.
-
- 
-
- 
-
- 
-
- 
