@@ -48,3 +48,5 @@ Our stories corroborated, lining up with the same descriptions, or in the same b
 
 Hey, back to the present here. My head is killing me from trying to read his writing. The cursive he used was already super thin, but the pages had been water damaged at some point so some words have me improvising with my best guess. I’ll do some more transcription tomorrow, once I’ve had a chance to rest my [eyes](https://www.reddit.com/user/googlyeyes93/comments/1efyman/strays_chapter_masterlist/). 
  
+
+[Update](https://www.reddit.com/r/nosleep/s/PcGr4KApAp)

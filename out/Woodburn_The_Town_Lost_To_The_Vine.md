@@ -38,7 +38,7 @@ My dad chimed trying to bring the atmosphere back to normal as the rain started 
 
  
 
-“Impressive what plants can do when left on their own ain't it.”
+“Impressive what plants can do when left on their own ain't it?”
 
  
 
@@ -46,7 +46,7 @@ I nodded swallowing the lump in my throat as we slowly passed the wreck. Continu
 
  
 
-“You kidding me?! Alex gets out here! It’s the town hall!”
+“You kidding me?! Alex get out here! It’s the town hall!”
 
  
 
