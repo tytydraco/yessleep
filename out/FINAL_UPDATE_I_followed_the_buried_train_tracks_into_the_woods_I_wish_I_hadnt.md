@@ -62,7 +62,7 @@ I followed the tracks towards the ruins like I was being drawn towards them by a
 
 *Lippincott Asylum for the Criminally Insane.*
 
-My blood ran cold. I’d never heard of the place before, and a quick Google search on my phone didn’t turn up any results, but the name sent a chill down my spine. This wasn’t just an old building—this was a place where people had been locked away, forgotten, and left to rot.
+My blood ran cold. I’d never heard of the place before, but the name sent a chill down my spine. This wasn't just an old building—this was a place where people had been locked away, forgotten, and left to rot.
 
 The tracks led straight through a wide gap in the stone foundation to what was once a large square room. I could see remnants of a tile floor under the loose dirt on the ground, and at the far end was a giant hulking mass, covered nearly completely by dead leaves and vines.
 
