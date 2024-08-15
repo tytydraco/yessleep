@@ -1,4 +1,4 @@
-***(1)***
+***This Series can be read in Any Order***
 
 I live in England in the rural West Midlands, someplace between Tamworth and Burton but I won’t get into too many details since I’m not a fan of doxxing myself; I will say though, that Tamworth is closer to where I am but Burton is where I go for work and it’s about an hour and a half drive there from where I live. However, the lengths of the journeys back home really vary since I really enjoy the longer drives down rural backroads through the countryside, especially in the winter as nighttime drives are my favourite. It’s just something about the curling of the road only visible a few feet ahead of the car, as if the map is just rendering in as you move along it.
 

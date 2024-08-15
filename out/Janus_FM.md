@@ -1,8 +1,8 @@
-***(2)***
+***This Series can be read in Any Order***
 
 This happened to me back in the early 60’s, either 1962 or 1963, so forgive me if my memory of it is a little foggy, regardless of the fact that I have recounted it twice recently before writing this. I am also not all too tech-savvy, so my granddaughter Sonia is helping me with uploading this. It was after I told her this whole story that she suggested I write it up and put it on here, so here we are.
 
-I live out in the Black Country in the UK, the most rural part of the rural West Midlands, and have done my whole life after moving back post-University. My town is a little mining village surrounded by thick forest and farmland, very obscure and hard to get to according to those who pass through, however I have always loved living here in such a tight-knit community with those who choose to stay.
+I live out in the Black Country in the UK, the most rural part of the rural West Midlands, and have done my whole life after moving back post-University. My town is a little Tudor settlement surrounded by thick forest and farmland, very obscure and hard to get to according to those who pass through, however I have always loved living here in such a tight-knit community with those who choose to stay.
 
 I enjoy walking, always have done, and in the summers of my youth I would take long walks alone around our local National Park (years before it was closed down); it was beautiful, especially in the summertime. Long, sprawling dirt paths through canopies of softly trembling pine and birch trees latticed overhead with the daylight seeping through the leaves in geometric, golden tubes. It was always so quiet in there- like there was no civilization around for miles despite it being right next to the oldest part of Town, and it was far bigger during the mid-20^(th) Century when I did the majority of my walking due to the fact that the east-way forest hadn’t been demolished to build the mining village on top of yet. It was angelic, simply angelic, in the summertime.
 
