@@ -4,7 +4,7 @@ When I was 8 years old I was at my grandparents house for a sleepover. I got dro
 
 My grandpa woke me up in the middle of the night, frantically and sounding like he was tearing up, and told me to hide under the bed. I tried but I couldn’t fit, which made him panic more. He made me hide in the bathroom with the door locked.
 
-The way he was talking made me nervous and I did so, but first I asked why. He told me it was too complicated, made sure I went under the bed, and left.
+The way he was talking made me nervous and I did so, but first I asked why. He told me it was too complicated, made sure I got hidden, and left.
 
 I’d never seen him like that, it scared me. And I’ve not heard him talk the way he did then since, nearly a decade later. Still, I’d mostly forgotten about it up until last week, when I visited my grandpa and he told me this story.
 

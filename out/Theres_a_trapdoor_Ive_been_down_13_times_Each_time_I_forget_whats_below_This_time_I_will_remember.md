@@ -220,4 +220,4 @@ I’m nearly as fast as the entity. So desperate, I’m all but flying, racing p
 
 —trapping me in [darkness.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-[UPDATE!](https://www.reddit.com/r/nosleep/comments/1epj68w/theres_a_trapdoor_thats_been_sealed_for_31_years/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ek4kgj/theres_a_trapdoor_no_one_knows_whats_below_it/) | [Part 2 ](https://www.reddit.com/r/nosleep/comments/1eln5u7/theres_a_trapdoor_i_hear_crying_below_but_each/)| [Part 4](https://www.reddit.com/r/nosleep/comments/1epj68w/theres_a_trapdoor_thats_been_sealed_for_31_years/)

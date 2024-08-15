@@ -170,4 +170,4 @@ Then a loud, piercing shriek. A clanking sound. One of the lights? More screams.
 
 I’ve lost the [girl.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-[UPDATE!](https://www.reddit.com/r/nosleep/comments/1eln5u7/theres_a_trapdoor_i_hear_crying_below_but_each/)
+[Part 2 ](https://www.reddit.com/r/nosleep/comments/1eln5u7/theres_a_trapdoor_i_hear_crying_below_but_each/)| [Part 3](https://www.reddit.com/r/nosleep/comments/1enyk7t/theres_a_trapdoor_ive_been_down_13_times_each/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1epj68w/theres_a_trapdoor_thats_been_sealed_for_31_years/)

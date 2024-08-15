@@ -295,3 +295,5 @@ There’s one very important thing I haven’t discussed with him. He’ll find 
 The translation. The warning about breaking the warding. I never fully learned what it meant, the “terrible evil” that would be unleashed on me. But I felt it hit me when I slashed those symbols. And I think it’s affecting my dreams… I keep waking up feeling like I’ve just seen my own last moments, like I’ve just *experienced* some heart-racing horror.
 
 He might not be the only one marked for an early [death.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ek4kgj/theres_a_trapdoor_no_one_knows_whats_below_it/) | [Part 2 ](https://www.reddit.com/r/nosleep/comments/1eln5u7/theres_a_trapdoor_i_hear_crying_below_but_each/)| [Part 3](https://www.reddit.com/r/nosleep/comments/1enyk7t/theres_a_trapdoor_ive_been_down_13_times_each/) 

@@ -124,4 +124,4 @@ I touch the thin line of blood, and then find one more clue tucked in my pocket.
 
 ***W****hen* ***i****t is gone Sophie will be able to* ***c****ome* ***u****pstairs* [*safely.*](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-[UPDATE!](https://www.reddit.com/r/nosleep/comments/1enyk7t/theres_a_trapdoor_ive_been_down_13_times_each/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ek4kgj/theres_a_trapdoor_no_one_knows_whats_below_it/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1enyk7t/theres_a_trapdoor_ive_been_down_13_times_each/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1epj68w/theres_a_trapdoor_thats_been_sealed_for_31_years/)
