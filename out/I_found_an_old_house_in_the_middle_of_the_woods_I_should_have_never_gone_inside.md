@@ -1,0 +1,14 @@
+Hello. My name is Constantine. I am from Greece, and I would like to share a story with you. This happened to me about 6 years ago, yet I still vividly remember the events of that one day, when I decided to go hiking, alone.
+
+Now usually, whenever I go hiking, I will either go with my friends, family or other relatives. But that day, I wanted to go alone, as a way to, have some alone time for myself. I begun my hiking trip at about 5 in the afternoon. It was a sunny day, in the month of April. I begun driving towards the location. When I reached the end of the road, I got out, took all of my stuff, and begun walking down the dirt path. Now, this area where I was hiking did not have many trees. It was mostly mountains all around me, with dirt paths that led you to different villages, cabins, abandoned towers etc. I admired the lovely mother nature as I walked down the path, and I really enjoyed my time. It was about 9 at night, when I decided to stop walking and finally get some rest, as I was super tired. With me, I was carrying alot of hiking equipment, but most importantly, a tent, which I set up to sleep for the night.
+
+At around 7 in the morning, I woke up and I felt very strange, almost like I hadn't slept at all. I also felt like I was being watched by every direction, yet, nothing was there. I shook off the feeling, and packed up my tent.  
+I continued walking down the dirt path, but, then, I saw it. An old, abandoned, somewhat destroyed house was at my right. Since I had nothing else to do, and since I loved the paranormal back then, I decided to explore inside the house.
+
+I enter the house, and immediately see broken glass everywhere and destroyed wood furniture blocking some of the homes doors. I begin walking down the main hallway of the home, holding my flashlight in hand, and even though this place gave me the creeps, I continued exploring. Then, I reach the master bedroom, and what I see inside, still horrifies me to this day. It was a tall black figure, almost as tall as the average home curtain. It was looking straight at me, I was frozen in place, I didn't know what to do. After about 3 seconds, I run as fast as I can trough the broken glass scatered everywhere across the floor, through the piles of water, and I make it outside, but then, I faint.
+
+I woke up about 2 hours later, next to my car. Above stands 3 police officers, an EMT and my friend, Lucas. I had no memory of what happened previously, but I still get up, and the 3 officers explain to me what happened. Apparently, the 3 officers had been dispatched to search for a bear in the woods that had been attacking hikers, but as they were searching, they found me, and brought me back to my car so they could speak to me. I was very confused, but, I started remembering everything and told the officers about my experience.
+
+**Part 2 of the story will be released soon.**
+
+This is Part 1 of this story, more to come soon.
