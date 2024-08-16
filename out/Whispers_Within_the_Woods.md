@@ -388,8 +388,6 @@ But reasoning with kids was pointless. All they did was jeer back, “Whoa, the 
 
 These kids probably figured an old, weathered guy like me wouldn’t put up much of a fight - easy pickings to show off in front of their girls. 
 
-I couldn’t help but smile. A cold smile crept onto my lips as I started walking toward them.
+I couldn’t help but smile. A cold smile crept onto my lips as I started walking toward them, startling them.
 
-“My dad’s brother is a cop! You better stay away from us, Mister!” shouted one of the kids.
-
-“Everything will be okay, children. Everything will be okay.”
+My smile contorted wide across my face as I said “Everything will be okay, children. Everything will be okay.”
