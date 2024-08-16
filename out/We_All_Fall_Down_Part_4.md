@@ -38,9 +38,14 @@ But then, slowly, the laptop screen flickered back to life, displaying a single 
 
 “It’s too late, Jack.”
 
-The screen shattered, and the shadowy figure emerged from the fragments, no longer confined to the digital world. It towered before me, its eyes burning with ancient, unholy fire.
+Before I could react, the screen shattered, and from the fragments, the shadowy figure began to emerge, no longer confined to the digital world. My heart pounded in my chest as I fumbled for the crucifix, but this time, instead of holding it out in fear, I gripped it with determination. I remembered Lady Lanter’s words: “Hold it to this open flame to reveal the truth.”
 
-“You’ve seen too much,” it rasped, its voice a blend of countless others, a cacophony of suffering.
+I reignited the lighter, the flame burning brighter than before and thrust the crucifix into the blaze. The shadowy figure recoiled, hissing as the light from the crucifix intensified, filling the room with a blinding glow. The darkness around me seemed to waver, the malevolent force losing its grip.
 
-The crucifix in my hand turned cold, the flame extinguishing as the darkness swallowed the light. The figure reached out, its clawed hand brushing against my forehead, and a searing pain shot through my skull. My vision blurred as the world around me dissolved, replaced by an endless abyss.
+"Not today," I whispered through clenched teeth, forcing myself to stand.
 
+With the crucifix in one hand and the USB stick in the other, I knew what I had to do. I turned and ran toward the bedroom door, the light from the crucifix carving a path through the darkness. The figure screamed in rage, its form dissipating as I fled.
+
+I raced through the hallway, the walls of my apartment warping and twisting as I passed, the malevolent force struggling to hold on to me. But with each step, the light from the crucifix grew stronger, burning away the darkness that sought to consume me.
+
+Bursting out of my apartment, I sprinted down the stairs and into the street, the early morning light casting long shadows across the pavement. The figure’s screams faded into the distance as I finally broke free, collapsing onto the sidewalk, gasping for breath.

@@ -1,3 +1,5 @@
+[Previous](https://www.reddit.com/r/nosleep/s/EHoEpVq4EE)
+
 Okay, got a few more pages transcribed to upload. Going to go ahead and apologize for my fuckup in the last post- he was fighting on the Somme River, which is in France, not Britain. That’s on me, I was tired. Anyway, the next few pages I’ve gotten here are a little more ambiguous in parts. I’m going with what I have, and I’ll leave some notes where I wasn’t able to transcribe what was written.
 
 I know this sounds like a let down but this thing is in rough shape. It was stored in a little box in Gramps’ attic, in the deep southeast where it’s humid as satan’s ballsack in the YMCA pool room. Some of the pages have damage from the ink bleeding. Others are literally covered in, what I have to assume, is blood. It’s aged to a rusty brown color now, but the way it’s spattered on the pages there’s not much mistaking it. 
