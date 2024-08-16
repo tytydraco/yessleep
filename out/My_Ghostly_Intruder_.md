@@ -38,7 +38,7 @@ I cracked my back moaning loudly and yawning all at the same time.
 
 It was times like these that made me feel like an old geezer, even though I was only 22 years old. 
 
-At least most of my jars were put away nearly stacked on top of each other in the fridge, the other ones would have to go into the deep freezer. 
+At least most of my jars were put away neatly stacked on top of each other in the fridge, the other ones would have to go into the deep freezer. 
 
 I walked over to it getting a weird chill up my spine. 
 
@@ -47,7 +47,7 @@ I looked back instinctively to see a gun raised at me. WOAH! when had that gotte
 "Oh, Hi?" I said conversationly.
 
 "Where's the money?" 
-Said the angry, very built for business woman holding a gun that was pointing at my stomach. 
+Said the angry, very built for business woman holding a gun that was pointed at my stomach. 
 
 I looked at her and raised an eyebrow. Then I let out a loud Ha! "You making a funny?" 
 
@@ -61,11 +61,11 @@ I laughed a loud Ha! Again except this time it surprised me too. "Sorry"  I said
 
 I looked down awkwardly "you could take whatever you'd like, honestly, I wouldn't mind." 
 
-She slowly lowered her weapon "What's wrong with you? Most people literally pee there pants at the site of a gun yet you don't seem-" before she could finish robbing me we both turned to the sound of a loud 'THWAP' something had fallen, super loudly. 
+She slowly lowered her weapon "What's wrong with you? Most people literally pee their pants at the sight of a gun yet you don't seem-" before she could finish robbing me we both turned to the sound of a loud 'THWAP' something had fallen, super loudly. 
 
-"Wha-" "huh" we both said. Now we both looked back at each other and then back to where the noise had come from the bathroom. 
+"Wha-" "huh" we both said. Now we both looked back at each other and then back to where the noise had come from in the bathroom. 
 
-She pointed her gun that way, at least it wasn't at me anymore and then I let her lead the way. I followed behind feeling like a chicken. 
+She pointed her gun that way, at least it wasn't at me anymore and then I let her lead the way. I followed behind feeling like a little chicken. 
 
 I whispered to her "I haven't even started moving in officially I don't know what could be making noise in there." 
 
@@ -81,7 +81,7 @@ I made that weird "EHH!" noise again at the sight and quickly wished the sound w
 
 I heard the woman take in a large gasp before letting it go. "A kid?" She said like she thought it was going to be another robber.
 
-"What? You scared your competition was trying to rob this place too?" 
+"What? We're you scared your competition was also trying to rob this place too?" 
 
 The kid finally looked over at us with a grace of uncaring I didn't know was possible quite yet. 
 
@@ -89,7 +89,7 @@ The kid finally looked over at us with a grace of uncaring I didn't know was pos
 
 Huh "Excuse me? This is my house.." I said exasperated. 
 
-These two can't just come into 'my' place expecting 'me' not to care. 
+These two can't just come into 'MY' place expecting 'ME' not to care. 
 
 Then the kid froze up with a look of shock on his face. "Y-You, you can see me?" He looked shocked, far cry from that uncaring grace he had before.
 
@@ -97,7 +97,7 @@ Me and the woman both stared at him a bit longer before we looked at each other 
 
 "Yes." We both said though mines came out a lot more annoyed sounding. 
 
-"What? Did you think you were wearing camo?" I said trying for a joke. I could tell it fell flat on its face since they both had differing facial expression but non of them read of laughter. 
+"What? Did you think you were wearing camo?" I said trying for a joke. I could tell it fell flat on its face since they both had differing facial expressions but non of them read of laughter. 
 
 I dropped my chin a little sulking. Well I thought I was pretty funny. 
 
@@ -112,7 +112,7 @@ She walked off to probably go continue her robbing of my belongings.
 
 I sighed and then slowly dropped my pointing finger. Only to see the craziest smile of insanity on the teens face I'd ever seen on another human. 
 
-"Hey, there buddy?" I said as if I were talking to a stray dog. 
+"Hey, there buddy?" I said as if I were talking to a scared stray dog. 
 
 "I'm not exactly sure what you're doing or how you got into my house. I just know I'm gonna have to ask you to leave." 
 
@@ -130,7 +130,7 @@ I fake smiled back at her trying to hide my obvious anger.
 
 "Great, hope that family you rob next on your itinerary, is more fortunate then me." I say waving her off. 
 
-She looks at me and then just proceeds to walk right out the front door. 
+She looks at me and then just proceeds to walk right out the front door holding a few of my jars.
 
 I look back only to see the teen now all up in my grill, smiling all insane like. 
 
