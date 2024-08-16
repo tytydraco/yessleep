@@ -64,4 +64,4 @@ The vestibule door slid open, and a portly middle aged woman with her hair tied 
 
 *What the fuck?*
 
-I slowly glanced down at where the detective had been sitting. A viscous red liquid had pooled where he had sat and dripped. Drip. Drip. Onto a pair of black leather shoes. 
+I slowly glanced down at where the detective had been sitting. A viscous red liquid had pooled where he had sat and dripped off the seat. Drip. Drip. Onto a pair of black leather shoes. 
