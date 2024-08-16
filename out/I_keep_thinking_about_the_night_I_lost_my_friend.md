@@ -1,0 +1,19 @@
+I was 16 and starting to become a bit of a jerk. One of my best friends since I was 10, Arthur, invited me to a party, and I dressed up nicely for the occasion. I wore a cap and my silver chain, which were all the rage in my town. I was growing quickly, nearing 5’11” and shedding the baby fat that had plagued me since childhood. Arthur was short and skinny, so skinny that my mom always offered him a sandwich whenever he came over.
+
+The party was organized by one of Arthur’s friends and was held at a club near the beach. As the night went on, we hit the dance floor, where Lydia had been hanging out with a group of friends. Arthur had had a crush on Lydia for two years since she transferred from another school. I knew she had a drug problem and was quite alternative for our town—basically a goth in a place where there were no others like her.
+
+At some point during the party, Lydia pulled me aside and started talking to me in a very intimate way. I recognized it as flirting, but I wasn’t interested; I was more drawn to Lydia’s friends, even though they paid me no attention at all. A few hours later, I completed my cycle of being a jerk by bragging to Arthur and another friend, Eugene, that Lydia had flirted with me and that I wasn’t interested in her. I boasted about my achievements for nearly 30 minutes, and Arthur fell silent, making me begin to regret my words.
+
+ He forced a smile and disappeared after a few minutes.
+
+When Eugene and I noticed he was gone, we went looking for him and found him standing at the edge of the beach, staring out at the sea. Eugene and I tried to cheer him up. After a promising conversation, Eugene suggested we walk along the beach, which was quiet and calm, with only a few boats anchored by the shore. Arthur talked more than I had ever heard him talk in all the years we knew each other. 
+
+He spoke about his disconnection from schoolmates and family, especially his alcoholic mother and his strange father. Everytime he talked about his father he paused, like he took a minute to be certain of what exactly he was going to say, and normally stopped there.
+
+After an hour of conversation, we came across a seemingly empty boat anchored near the sand. Eugene suggested we climb aboard, for no particular reason, just for fun. Arthur and I hesitated but eventually climbed on, as it appeared deserted. We started jumping around and banging on the doors until a hatch opened, and a pale, shirtless man emerged. He was a blonde man, extremely thin, with a wound covering part of the left side of his face. A really strange figure. 
+
+He stood about two meters from us, glaring with anger. We were startled, and Eugene tried to defuse the situation, saying something like, “Hello, sir, we were just at a party next door; we didn’t know…” until the man yelled something in Spanish, “Hijo de puta,” or something like that, and pulled out a shotgun. We jumped off the boat immediately and ran back to the party. We heard a gunshot and Eugene yelling at us to run in zigzags.
+
+We made it back to the party unscathed, still in shock, and collapsed on the sand. After a mix of panic and tears, we began to laugh uncontrollably, our laughter echoing into the night. It’s the last good memory I have of Arthur.
+
+ After that day, he never treated me like the friend I had been before, and I responded by forgetting him. I didn’t know at the time, but the internal battles Arthur was fighting would lead to his suicide three years later. I have no clue of why he did that, but deep inside my body I feel like that decision was always roaming around his head, just like that day at the beach.
