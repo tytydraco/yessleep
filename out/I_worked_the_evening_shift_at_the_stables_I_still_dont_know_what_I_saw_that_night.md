@@ -36,7 +36,7 @@ I glanced around the barn. There were eight stalls in all. A lot to muck, especi
 
 “And be careful around the woods.” Hel got that faraway look in her eyes again. “It gets dark here.”
 
-Solstice University bordered a dense tangle of woods. I’d smoked there a few times, but I never went very deep. “Sounds like common sense,” I said.
+The stables bordered a dense tangle of woods. I’d smoked there a few times, but I never went very deep. “Sounds like common sense,” I said.
 
 Hel handed me her pitchfork. “Ready to start?”
 
@@ -96,4 +96,4 @@ Hel hustled me into the office and locked the door. It had three bolts and chain
 
 I didn’t dare ask Hel what she meant. 
 
-In fact, I didn't stay for another shift. I can't even go near the stables to this day without feeling nauseated. I don't know what I saw that night, but I understand one thing. Whatever was out there, it wasn't a horse. 
+In fact, I didn't stay for another shift. I can't even go near the stables to this day without feeling nauseated. I don't know what I saw that night, but I understand one thing. Whatever was out there, it wasn't a horse.
