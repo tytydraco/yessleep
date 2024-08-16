@@ -57,3 +57,5 @@ I was mesmerized by them. The orbs went back to a soft glow, sliding back into t
 In this moment I know not if it was the shock of what I had just seen or my injuries. I fear it was far more real that I would ever hope though. As the cloud cover slid away from the moon again, revealing a battlefield now picked clean of the corpses there just moments before, they spoke to me. I know not if I was the only one that was spoken to, but the words have haunted me since, leaving me no rest as they repeat in my mind. I don’t know if they’re still speaking to me or if it’s my imagination making me hear them. Even over the shelling though, like a deep, primeval growl of something that shouldn’t be heard, I can still feel their whispers as I write these words.
 
 ”Bring me [more](https://www.reddit.com/u/googlyeyes93/s/sBfY0XtNrs).”
+
+[Update](https://www.reddit.com/r/nosleep/s/FxlFWELi5i)
