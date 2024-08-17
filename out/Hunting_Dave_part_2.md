@@ -60,7 +60,7 @@ Suddenly I was tackled by..... something. I fell off my bike and hit a tree. I l
 It started walking towards me , It got closer....and closer.....and closer..... Then I suddenly realised something was wrong. 
 
 
-That thing was about half the size of Dave , Was it perhaps an offspring? But how did it grow so fast? Lots of questions but no yine to think because it's coming right at me.
+That thing was about half the size of Dave , Was it perhaps an offspring? But how did it grow so fast? Lots of questions but no time to think because it's coming right at me.
 
 
 It suddenly dashed at me , I dodged but it hit my right arm. It was smaller than Dave , But also much faster due to its size.

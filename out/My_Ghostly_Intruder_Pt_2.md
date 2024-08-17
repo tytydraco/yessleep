@@ -9,21 +9,21 @@ Though he was asking a question it felt more insulting than questioning. My rebu
 
 Of course he didn't do as asked of him. "Please, put that down." 
 
-I say looking at the teen holiding my jars and looking it over like a foreign object. 
+I say looking at the teen holiding my jar and looking it over like a foreign object. 
 
 Great! He's going to break it. 
 
-"No, I mean seriously who even carries this much jars, every corner and shelf, even the fridge both the freezer and deep freezer." He looked around at the objects like I was the mad madman.
+"No, I mean seriously who even carries this much jars, every corner and shelf, even the fridge both the freezer and deep freezer." He looked around at the objects like I was the madman.
 
-"I even saw Jars in the bathroom." 
+"I even saw jars in the bathroom." 
 
-I looked back over to him annoyed little did he know there's more where that came from. 
+I looked back over to him annoyed, little did he know there's more where that came from. 
 
 "Just drop it, ok?" I say feeling cornered. 
 
 "Ok" he says looking at me, smiling wickedly and then proceeds to drop my jar onto the hardwood ground. I hear the crash before my brain registers what made the sound. 
 
-I look down at the now pile of glass on the ground in horror. "Oops" he says starting laugh. 
+I look down at the now pile of glass on the ground in horror. "Oops" he says starting to laugh. 
 
 "You must be a demon, not a ghost." I say, with anger etched into me. 
 
