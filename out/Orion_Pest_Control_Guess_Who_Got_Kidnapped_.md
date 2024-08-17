@@ -128,7 +128,7 @@ I swallowed again, trying not to make it obvious that I was looking at the door 
 
 Iolo caught me considering escaping again. He looked devious as he held another glass of that mystery liquid towards me, “Care for a drink?”
 
-He had that wicked look in his eyes. I think he wanted me to say, ‘no.’ To reject his hospitality. I don't get why. He already had my life. Under Neighbor terms, he already just cause to make me into yet another macabre furniture piece  
+He had that wicked look in his eyes. I think he wanted me to say, ‘no.’ To reject his hospitality. I don't get why. He already had my life. Under Neighbor terms, he already had just cause to make me into yet another macabre furniture piece  
 
 Remember what I told yinz about Neighbors and food? Don't eat or drink anything that they offer you, but be clever about it.
 
@@ -184,7 +184,7 @@ He snickered when he saw my expression, “I woulda thought you'd be jonesin’ 
 
 “I'm over it.” I snapped. “I'm over it and I'm over you.”
 
-Iolo stood up a bit straighter as I approached him, opening open a drawer next to him to pull out a butter knife. He held it up to me with that shit-eating grin, “Looks like you better win, then.”
+Iolo stood up a bit straighter as I approached him, opening a drawer next to him to pull out a butter knife. He held it up to me with that shit-eating grin, “Looks like you better win, then.”
 
 Of course he had to be even more of an asshole about it and use a damned butter knife. *Of. Course.*
 
