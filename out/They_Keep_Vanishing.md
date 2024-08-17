@@ -18,4 +18,4 @@ I asked around, and people told me Mark had died years ago, in an accident long 
 
 Now, every day, I pass by the patch of orange flowers. They are still vibrant, still blooming, while everything around them continues to wither. The houses are gone, Mark is gone, and the flowers remain, as if marking something lost to time and memory. They've recently started to smell less bitter, now having a sweet scent of fresh farmer's market honey. Which is just as eerie. It's as if I had overcome a situation or something and I am being rewarded. Yet, that something should've never subjectively happened in the first place.
 
-What happened to the house, to Mark, to everything connected to that place will forever remain a mystery. All that’s left are these orange blooms, untouched by the decay that surrounds them, silently swaying in the wind. 
+What happened to the house, to Mark, to everything connected to that place will forever remain a mystery. All that’s left are these orange blooms, still untouched by the decay that surrounds them, silently swaying in the wind. 
