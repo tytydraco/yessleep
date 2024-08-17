@@ -26,7 +26,7 @@ I will begin this record with a quick briefing of what we have found.
 
 The following information was gathered on the 21^(st) of May, 2024.
 
-One of our teams that are based in Baghdad, Iraq was contacted by the British Institute for the Study of Iraq alongside the Iraqi Military with concerns that a possible pathogen was released as a result of their excavation in an undisclosed part of near Baghdad.
+One of our teams that are based in Baghdad, Iraq was contacted by the British Institute for the Study of Iraq alongside the Iraqi Military with concerns that a possible pathogen was released as a result of their excavation in an undisclosed location near Baghdad.
 
 The inflicted individual, which we will refer to as "Patient Zero" or "Subject Zero" was a male, 28 years old, and holds both British and Iraqi citizenship.
 
