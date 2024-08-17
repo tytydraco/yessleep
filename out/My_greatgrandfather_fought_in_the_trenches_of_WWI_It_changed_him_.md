@@ -1,3 +1,5 @@
+[Previous](https://www.reddit.com/r/nosleep/s/8LmRUGDVgu) 
+
 Looking through the journal again, it’s like these couple of pages are written by a totally different person. The difference is night and day in the man who was writing these words and the man writing the rest of the journal. I’m going to include a warning here because it will only let me use one flair, there is talk of a suicide in these next few pages. I know that’s a bit much for some people.
 
 ————————-

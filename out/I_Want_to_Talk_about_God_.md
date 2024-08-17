@@ -12,9 +12,7 @@ I know ascension is real now too. That there is a way of bringing your body with
 
 Even if i could bring him back, i’m never going back to that infernal town to get *him*. I love him enough to know that he is better off dead now. He didn’t even die at the hands of that murderer- at least, that’s what i know happened. A *human* killed my brother and made it look like The Elmsbury Vampire did it. Too much blood at the scene. That’s what gave it away. His soul is not in the fourth dimension, it would have taken his blood with him. His beautiful Borthwick blood. 
 
-
-
-I think i’m being visited by an angel- a projection, to use the scientific term. It comes to me in the shape of a man with great, curving, antlers and a face like a bird’s. It doesn’t speak to me, it just whistles its tune. It’s so familiar to me, but i can’t think for the life of me where i’ve heard it from. It sings me to sleep. My guardian angel.  
+I think i’m being visited by an angel- a projection, to use the scientific term. It comes to me in the shape of a man with great, curving, antlers and a face like a bird’s. It doesn’t speak to me, it just whistles its tune. It’s so familiar to me, but i can’t think for the life of me where i’ve heard it from. It sings me to sleep. My guardian angel. 
 
 I know so little and yet so very much. I can feel the tunnel from my head in a trajectory upward so dizzying it makes me faint from vertigo- like staring up at the peak of a mountain whilst stood at its foot. Like looking into the eye of a kaleidoscope. 
 
