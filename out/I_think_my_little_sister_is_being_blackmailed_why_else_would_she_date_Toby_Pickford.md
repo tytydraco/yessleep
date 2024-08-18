@@ -1,3 +1,5 @@
+Series: [Part Two](https://www.reddit.com/r/nosleep/comments/1euitqs/i_think_my_little_sister_is_being_blackmailed_why/)
+
 When I had first heard they were dating I thought it was a joke.
 
 Mum had been the one to tell me. We had been on the phone for nearly forty minutes whilst I roamed up and down my small bedroom packing away my things into a suitcase. My three years at university studying Animation and Computer Design were over. I was set to be picked up by Mum the following morning.
