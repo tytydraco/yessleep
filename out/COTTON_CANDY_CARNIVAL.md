@@ -168,6 +168,6 @@ We've tried to stop it. We burned the cards and left town before night but nothi
 
 All I remember is the Carnival but I don't understand how I can be at two places at the same time. Is it only my mind that leaves and if so what happens once I do engage?
 
-All I have to hold on to right now is the fact that my friend is going through it with me. But I'm not sure how long we'll be able to [keep each other sane.](https://www.reddit.com/r/Likeeyedid/)
+All I have to hold on to right now is the fact that my friend is going through it with me. But I'm not sure how long we'll be able to keep each other [sane.](https://www.reddit.com/r/Likeeyedid/)
 
  
