@@ -1,6 +1,6 @@
 Here's the [First Part](https://www.reddit.com/r/nosleep/comments/1er20ve/my_ghostly_intruder/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
 And
-[Second Part](https://www.reddit.com/r/nosleep/comments/1etrpu6/my_ghostly_intruder_pt_2/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
+[Second Part](https://www.reddit.com/r/nosleep/comments/1evhg61/my_ghostly_intruder_pt_2/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
  To get caught up with me finding out I'm living with a little demon. I heard someone scream, I ran to the back to see the girl with long black hair staring at the teen as he moved my pencils around drawing a pentagram on my wall. 
 
 She had her mouth covered in horror her face looked paler than it should have. I walked over, "are you kidding me?" I say to the teen clearly messing with the woman. 

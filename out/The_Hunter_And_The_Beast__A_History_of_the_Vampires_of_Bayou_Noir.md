@@ -1,3 +1,5 @@
+The werewolf
+
 Bayou Noir has always had a peculiar smell. A mixture of rotting moss, soggy wood and the rusty metal of abandoned boats in the swamp. But in recent days, this smell has become heavier, denser, almost suffocating. Walking through the narrow, dirty streets filled me with a strange feeling, as if the city itself was decomposing. The recession has wiped everything out; People live in rags, waiting for a miracle that will not come.
 
  
