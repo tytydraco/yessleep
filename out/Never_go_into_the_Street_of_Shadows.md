@@ -114,7 +114,7 @@ I transferred the footage from the memory card to my laptop, The 2nd half of the
 I turned up the brightness and looked through the first half of the footage , What was in there left me and Noah even more frightened than before.
 
 
-All the houses had a skeleton hanging by a rope in the darkness. But not just normal skeletons, Skeletons covered in a brown dried blood.... Almost as if somebody had taken off the flesh from a dead body and the remaining blood dried up on the skeleton.
+All the houses had a skeleton hanging by a rope in the darkness. But not just normal skeletons, Skeletons covered in brown dried blood.... Almost as if somebody had taken off the flesh from a dead body and the remaining blood dried up on the skeleton.
 
 
 We reached the part where Noah had pointed to the house , There was the woman at the window pointing towards a rope and smiling with her blood covered mouth at the camera.
