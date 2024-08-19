@@ -28,6 +28,8 @@ I stomped on the flattened, lifeless insect again, and again, and again, then wi
 
 I didn’t respond and started marching back in the direction of our house. Back inside, Katie helped me put ointment and a bandaid on the sting site, and gave it a gentle kiss. 
 
+—
+
 A week had passed and I had forgotten about the run-in with the wasp. 
 
 I got home from work around the usual time. I didn’t have much time at work to eat, so I often forewent my meals and just waited until I got home. I kicked off my boots, changed out of uniform, and headed into the kitchen. Katie was on the sofa in the adjacent room, her head buried in a notebook, scribbling away. The kitchen table was empty.
@@ -66,7 +68,9 @@ Katie looked around the room, at the window, at the light fixture where more and
 
 “Tell me when and I’ll turn it on!”
 
-I positioned the vacuum hose and shouted, “now!” She turned the vacuum cleaner on, and I started vacuuming up the little fuckers, catching them mid flight in the vacuum stream, sending their little bodies hurtling down the hose, their hard carapaces bouncing around inside the tube. I positioned the vacuum tool over the sash and sucked up at least another twenty or so, then pushed the lower sash down until it seated properly, closing off the gap. Outside on the window, dozens of wasps gathered, their angry droning, their beating wings and clawing feet creating a pitter patter against the glass like demonic rainfall. And then, just as quickly as they had arrived, they left, nearly all at once. Katie and I just stared at each other.
+I positioned the vacuum hose and shouted, “now!” She turned the vacuum cleaner on, and I started vacuuming up the little fuckers, catching them mid flight in the vacuum stream, sending their little bodies hurtling inside the hose, their hard carapaces bouncing around in the tube. I positioned the vacuum tool over the sash and sucked up at least another twenty or so, then pushed the lower sash down until it seated properly, closing off the gap. Outside on the window, dozens of wasps gathered, their angry droning, their beating wings and clawing feet creating a pitter patter against the glass like demonic rainfall. And then, just as quickly as they had arrived, they left, nearly all at once. Katie and I just stared at each other.
+
+—
 
 I was exhausted at work the next day. One of my coworkers sat down across from me on one of the benches in the break room, and must’ve noticed my annoyed look when I peered up from my phone.
 
@@ -102,7 +106,7 @@ I stepped outside into the cool autumn air, and clicked on the number.
 
 “Wasps? We don’t usually get much call for those this time of year. What’s going on?”
 
-I explained what had been happening, the swarm of wasps that came in the middle of the night, and how aggressive and angry they were. 
+I explained what had happened, the swarm of wasps that came in the night, and how aggressive and angry they were. 
 
 “That’s interesting,” he replied, “the wasp species we have here don’t usually come out at night, and especially not this late in the season. Most of them have already either died off or gone into hibernation. I suppose it could be a new invasive species we don’t know about, or you could have a nest in a crawl space or inside your walls. I would have to come by to take a look.”
 
@@ -112,7 +116,9 @@ I explained what had been happening, the swarm of wasps that came in the middle 
 
 I hung up.
 
-The kitchen was warm and bright when I got home. Something smelled really good. I kicked off my boots, and sat down at the kitchen table. A pair of plates along with a set of utensils and wine glasses adorned the tabletop. Katie came in and kissed me on the forehead. 
+—
+
+The kitchen was warm and bright when I got home. Something smelled really good. I kicked off my boots, and sat down at the kitchen table. A pair of plates along with two sets of utensils and wine glasses adorned the tabletop. Katie came in and kissed me on the forehead. 
 
 “How was work today?”
 
@@ -128,21 +134,19 @@ I nodded half heartedly.
 
 “Well, she put in a word for me with her managers. I sent over some of my writing samples and they really liked them! I had a zoom interview with them this morning and they offered me a job!”
 
-I could feel the anger welling up.
-
 “So you’re leaving me to move to LA?”
 
 The smile from Katie’s face disappeared.
 
-“Well, not exactly. Yes I would have to move there. But I was hoping maybe you could come with me? It could be a fresh start for the both of us. We could—”
+“Well not exactly. Yes I would have to move there. But I was hoping maybe you could come with me? It could be a fresh start for the both of us. We could—”
 
 “And what about MY job?! Did you ever stop to think about ME? Are you that FUCKING selfish?” 
 
 Tears started to run down Katie’s cheeks.
 
-“Baby, I love you. I love you so much. I just thought—”
+“Baby, I love you. I just thought—”
 
-“IF YOU LOVED ME YOU WOULDN’T BE DOING THIS BULLSHIT TO ME RIGHT NOW!”
+“IF YOU LOVED ME YOU WOULDN’T BE DOING THIS TO ME RIGHT NOW!”
 
 I grabbed my phone off the table and hurled it. It whizzed by Katie’s head and slammed into the wall behind her, making a crumbled hole in the sheetrock. Katie started sobbing.
 
@@ -152,7 +156,7 @@ I got up and moved toward Katie, grabbing her hard by the wrist and pulling. She
 
 “YOU STUPID FUCKING TWAT!”
 
-Pitter patter. It sounded like it was starting to rain, but my neck hairs stood on end. I looked to the kitchen window and saw dozens of wasps landing and gathering on the glass outside. Their angry buzzing got louder and louder. One of the wasps whipped by my head, and I felt a searing pain in my cheek. Another whipped by. And another. I looked at the hole in the wall where my phone had hit, and tens of wasps were spilling out, launching themselves into the air. 
+Pitter patter. It sounded like it was starting to rain, but my neck hairs stood on end. I looked to the kitchen window and saw dozens of wasps landing and gathering on the glass outside. Their angry buzzing got louder and louder. A wasp whipped by my head, and I felt a searing pain in my cheek. Another whipped by. And another. I looked at the hole in the wall where my phone had hit, and tens of wasps were spilling out, launching themselves into the air. 
 
 The light fixture above the kitchen table started to rattle, and the fixture fell, crashing down into the pan of manicotti. A massive, writhing swarm rushed out with a deafening buzz, a hellish river of black and yellow. And they made a bee line for me.
 
@@ -160,7 +164,9 @@ I ran upstairs as fast as my feet could carry me, tripping on one of the steps i
 
 The wasps started squeezing their way under the bathroom door. They flew at me, piercing me with their stingers. My face, my neck, my arms, I could feel searing, burning pain as the sting sites swelled and reddened. I grabbed a pair of slippers and started swatting every wasp that I could, killing several. I grabbed a bath towel and shoved it in the space under the door, stopping more wasps from entering. I swatted and swatted at the remaining wasps until they were all dead. 
 
-I lifted the blinds on the window to see if I could climb out, only to be met with a writhing mass of wasps on the other side. Outside the door, the angry buzzing grew louder and louder. I screamed until my throat was raw. Then I blacked out. 
+I lifted the blinds on the window to see if I could climb out, only to be met with a writhing mass of wasps on the other side. Outside the door, the angry buzzing grew louder and louder. I screamed until I blacked out. 
+
+—
 
 I woke to sunlight streaming in between the bathroom window blinds. It was silent. I lifted the blinds and could see out into the yard, the neighbor’s beige roof shingles, the trees losing their brown, crisp leaves. I crawled over to the door and pressed my ear to it. Silence. I pulled the towel away and very slowly opened the door. There was no sign of the wasps anywhere. 
 
@@ -168,7 +174,7 @@ I limped downstairs, my face, neck, and arms still feeling like they had been se
 
 “Are you okay?”
 
-She looked up at me, and I noticed she didn’t have a single welt or bite on her. Her wrist was bruised in the shape of finger marks. Her eyes were bloodshot and puffy from crying. 
+She looked up at me, and I noticed she didn’t have a single welt or sting on her. Her wrist was bruised in the shape of finger marks. Her eyes were bloodshot and puffy from crying. 
 
 She wailed.
 
@@ -176,13 +182,15 @@ It was a wail of sorrow and despair, almost like a cornered, hunted animal that 
 
 “Let’s talk when I get home?”
 
-I didn’t say anything else. I picked up my phone, its cracked, kaleidoscope screen shimmering in the sunbeam coming through the window. I grabbed my work bag, threw on my boots, and got in my truck to drive to work.
+I didn’t say anything else. I picked up my phone, its cracked, kaleidoscope screen shimmering in the sunbeam coming through the window. I grabbed my work bag and threw on my boots. I could still hear Katie sobbing as I limped out the door to my truck. 
+
+—
 
 The swelling has gone down a bit by the time I got home that night. I walked into the kitchen and noticed all the lights were off. 
 
 “Katie?”
 
-I flicked on the light switch for the kitchen, forgetting about the broken light fixture. I stumbled blindly into the living room and my heart dropped when I saw what appeared to be a person hanging. I quickly fumbled for the light, and it turned out to just be shadows. I breathed a sigh of relief. 
+I flicked on the light switch for the kitchen, forgetting about the broken light fixture. I stumbled blindly into the living room and my heart dropped when I saw what appeared to be a person hanging. I quickly fumbled for the light, and it turned out to just be a shadow. I breathed a sigh of relief. 
 
 That’s when I noticed some stuff in the room was missing. Katie’s acoustic guitar, her MacBook, the mess of notebooks and scrap paper she often had laying about, all gone. I rushed into our bedroom. All of her clothing was gone from our dresser, her make up, toiletries, shoes, all gone. 
 
