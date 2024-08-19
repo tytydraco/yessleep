@@ -152,7 +152,7 @@ The ocean erupts around us, waves crashing against the boat like the blows of a 
 
 The massive creature emerges further, each of its movements causing the sea around us to roil and swell with terrifying force. The sky above seems to darken as its massive bulk blots out the sun, casting long, ominous shadows across the water.
 
-The ocean becomes a cauldron of chaos. Above the surface, the creature’s enormous jaws clamp shut with a sound like thunder, its rows of jagged teeth ensnaring the hapless sharks. They thrash violently, caught in the creature’s merciless grip, but it's a futile struggle. Like fish ensnared in a net, they are swallowed whole, disappearing into the cavernous maw that seems almost to distort the water around it with its sheer mass.
+The ocean becomes a cauldron of chaos. Above the surface, the creature’s enormous jaws clamp shut with a sound like thunder, its rows of jagged teeth ensnaring the hapless sharks. They thrash violently, caught in the creature’s merciless grip, but it's a futile struggle. Like minnows ensnared in a net, they are swallowed whole, disappearing into the cavernous maw that seems almost to distort the water around it with its sheer mass.
 
 “Holy shit!” Tori gasps next to me.
 
