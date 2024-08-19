@@ -144,21 +144,21 @@ I don't have an answer, not one that makes any sense, but every instinct screams
 
 Tori, with her usual quick thinking, grabs the second set of oars. "On it," she says, her tone all business now. Together, we row, our movements synchronized, driven by the urgent need to put as much distance as possible between us and whatever is surfacing.
 
-The shape beneath the water grows clearer, its vast size dwarfing our little rowboat. As it rises, the surface of the water bulges ominously, and then, with a gut-wrenching sound of displacement, a massive jaw breached the surface. It’s lined with rows of serrated teeth, each one big enough to sever limbs with a single bite.
+The shape beneath the water grows clearer, its vast size dwarfing our little rowboat. As it rises, the surface of the water bulges ominously, and then, with a gut-wrenching sound of displacement, massive jaws breached the surface. It’s lined with rows of serrated teeth, each one big enough to sever limbs with a single bite.
 
 The air fills with a putrid stench of decay, and a grotesque assembly of scales, barnacles, and sinuous tendrils clings to what can only be described as a nightmare made flesh.
 
-The ocean erupts around us, waves crashing against the boat like the blows of a giant. The boat rocks violently, threatening to capsize with each monster wave created by the beast's movements.
+The ocean erupts around us, waves crashing against the boat like the blows of a giant. The boat rocks violently, threatening to capsize with each giant wave created by the beast's movements.
 
 The massive creature emerges further, each of its movements causing the sea around us to roil and swell with terrifying force. The sky above seems to darken as its massive bulk blots out the sun, casting long, ominous shadows across the water.
 
-The ocean becomes a cauldron of chaos. Above the surface, the creature’s enormous jaw clamps shut with a sound like thunder, its rows of jagged teeth ensnaring the hapless sharks. They thrash violently, caught in the creature’s merciless grip, but it's a futile struggle. Like fish ensnared in a net, they are swallowed whole, disappearing into the cavernous maw that seems almost to distort the water around it with its sheer mass.
+The ocean becomes a cauldron of chaos. Above the surface, the creature’s enormous jaws clamp shut with a sound like thunder, its rows of jagged teeth ensnaring the hapless sharks. They thrash violently, caught in the creature’s merciless grip, but it's a futile struggle. Like fish ensnared in a net, they are swallowed whole, disappearing into the cavernous maw that seems almost to distort the water around it with its sheer mass.
 
 “Holy shit!” Tori gasps next to me.
 
 As the creature re-submerges, the water around us behaves like it’s being sucked down a colossal drain. The pull is so strong it feels like the ocean itself is trying to consume. Our rowboat, tiny and insignificant against this force, starts to tilt dangerously, the stern dipping into the swirling vortex.
 
-Suddenly, a giant wave, larger than any before, rears up like a behemoth. It's a towering wall of water, frothing at its crest, bearing down on us with the full wrath of the sea. My heart leaps into my throat, and for a moment, everything seems to slow down—I see Tori's widened eyes, the sky darkening above, the sheer power of nature bearing down on us.
+Suddenly, a monster wave, larger than any before, rears up like a behemoth. It's a towering wall of water, frothing at its crest, bearing down on us with the full wrath of the sea. My heart leaps into my throat, and for a moment, everything seems to slow down—I see Tori's widened eyes, the sky darkening above, the sheer power of nature bearing down on us.
 
 Then, the wave crashes.
 
@@ -170,7 +170,7 @@ Just as I feel the darkness creeping at the edges of my vision, a strong grip en
 
 "Come on, Josh! We're not dying today!" she yells. We manage to right the boat, clinging to it as another wave lifts us and then drops us in a sickening plunge.
 
-As the creature descends into the depths, the chaos of the ocean subsides with unnatural speed, like a nightmare fading at dawn. The water around us grows strangely still, eerily calm. The waves that had just threatened to swallow us whole now retreat, leaving behind only the gentle lapping of water against our boat.
+As the creature descends into the depths, the chaos of the ocean subsides with unnatural speed, like a nightmare fading at dawn. The water around us grows strangely still, eerily calm. The monstrous waves that had just threatened to swallow us whole now retreat, leaving behind only the gentle lapping of water against our boat.
 
 The sky above brightens slightly, casting pale light on the slick surface of the sea. It's as if the ocean itself wants to forget the horror it just unleashed. Tori and I sit in our battered rowboat, soaked to the bone, breathing heavily from exertion and fear. We exchange glances, our eyes wide with the shared terror of what we've seen.
 
@@ -242,4 +242,4 @@ I stroll over to the dunes with my hands in my short pockets, my feet sinking sl
 
 The Jersey Shore is peaceful today, deceptive in its calm. Families are arriving, setting up umbrellas and laying out blankets, kids running towards the waves with shrieks of delight.
 
-A part of me keeps scanning the horizon, half-expecting to see that monstrous jaw breach the [surface](https://new.reddit.com/r/nosleep/comments/1d3diim/a_killer_gave_us_a_list_of_instructions_we_had_to/) [again](https://new.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/).
+A part of me keeps scanning the horizon, half-expecting to see those jaws breach the [surface](https://new.reddit.com/r/nosleep/comments/1d3diim/a_killer_gave_us_a_list_of_instructions_we_had_to/) [again](https://new.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/).

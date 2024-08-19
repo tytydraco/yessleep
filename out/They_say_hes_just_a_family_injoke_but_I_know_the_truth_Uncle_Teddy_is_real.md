@@ -102,7 +102,7 @@ Mom tried her best to act as though everything were okay, but every smile was a 
 
 But they were all going through the same thing I was. I noticed there were fewer kids congregating on the hill around the church than I remembered from my first day. That was because, they explained, a number of them had ‘gone home’ over the past couple nights, our hopeful euphemism for ‘disappeared’. I learned, also, that every single one of us had been dragged here by our parents, supposedly to visit extended family. Despite the wealth of middle-aged married couples, not a single kid in all of Wethersby was a local.
 
-I never saw a trace of Teddy all day. Well, I think I didn’t. Once I was looking wistfully out into the forest down the hill,  and I imagined that I could just start running and swimming and get far away from this place — and I saw something. Something that prowled the bushes on all fours, nose to the ground as if tracing the scent of prey. Must be a coyote, I thought, just from the shape of it in the blurry distance. But there was something about the brief glimpses of its fur — thick and curly and muddy brown — that remained me of the strands of Teddy’s bushy beard. And for the rest of the day, lingering in the back of my mind was the mental image of him crawling on his hands and knees, stalking the wilderness like an animal.
+I never saw a trace of Teddy all day. Well, I think I didn’t. Once I was looking wistfully out into the forest down the hill,  and I imagined that I could just start running and swimming and get far away from this place — and I saw something. Something that prowled the bushes on all fours, nose to the ground as if tracing the scent of prey. *Must be a coyote,* I thought, just from the shape of it in the blurry distance. But there was something about the brief glimpses of its fur — thick and curly and muddy brown — that reminded me of the strands of Teddy’s bushy beard. And for the rest of the day, lingering in the back of my mind was the mental image of him crawling on his hands and knees, stalking the wilderness like an animal.
 
 Later, I passed by the horse fields on the way home, and noticed them all look up to stare at me, in almost perfect synch. It wasn’t like the stallion had, that first night, with that statuesque stillness and both blank, empty eyes angled directly at me in impossible ways. They were all regular horses beneath the sunlight, and yet I was still unnerved by how they looked at me, patiently, expectantly.
 
@@ -122,7 +122,7 @@ I crept forward. Even a single step towards that curtain caused my heart to rise
 
 I raised a hand, but it was trembling so fiercely, like a rabid animal I could not control. It inched closer, and closer. Slowly, delicately, I grasped one edge of the curtain.
 
-And then, a sound. Not outside the window. Down the hall, right outside my bedroom. Footsteps, stomping towards my door, like something nearing a full run. My heart felt like it jammed itself up in my throat. They found a way in, I thought. They used the window to distract me while they found a way in. I ran to barricade the door with a cupboard, but I was too late. The door slammed open hard enough to rattle the walls, and I shrunk before the mad creature staring at me from the darkness of the hall.
+And then, a sound. Not outside the window. Down the hall, right outside my bedroom. Footsteps, stomping towards my door, like something nearing a full run. My heart felt like it jammed itself up in my throat. *They found a way in,* I thought. *They used the window to distract me while they found a way in.* I ran to barricade the door with a cupboard, but I was too late. The door slammed open hard enough to rattle the walls, and I shrunk before the mad creature staring at me from the darkness of the hall.
 
 Uncle Teddy.
 
@@ -142,7 +142,7 @@ His reaction came faster than my brain could register it. One hand grasped my th
 
 I wanted to scream at him, to tell him I hated this imposter, that I wanted the real Teddy back. But my voice caught in my throat as a sob, and Teddy fled the building at a full sprint, like he’d just pulled the pin on a grenade.
 
-Be a big boy. My mother’s voice whispered in my head. It was what she always said to me when I was scared or sad. Be a big boy. Those words pounded against the inside of my head like a heartbeat as I curled up in the chair, knees against my chest, and wept.
+*Be a big boy.* My mother’s voice whispered in my head. It was what she always said to me when I was scared or sad. *Be a big boy.* Those words pounded against the inside of my head like a heartbeat as I curled up in the chair, knees against my chest, and wept.
 
 I stayed put for as long as I could bear. My fear of Uncle Teddy battled with my fear of being alone in a macabre church during a wicked storm. I couldn’t fight the oppressive feeling that the statues arranged along the various shrines were… staring at me. The more I looked at the crooked figures, the less human they seemed. I know it sounds mad, but it almost felt like the walls were closing in around me, and they were all drawing nearer and nearer. All it took was the crash of lightning slamming down upon the building’s spire to finally send me sprinting out the door.
 
@@ -162,7 +162,7 @@ The moment we drove back over the bridge, the rain ceased and the clouds cleared
 
 For years, all of this lingered in my memory only as abstract fragments — like I could remember the feeling of it, but not the substance. I always figured it was a half-remembered childhood nightmare, or something I saw on TV. Only a few weeks ago did the pieces all fall together again, all at once.
 
-Recently, my parents have passed away, and my sister moved abroad, so I was the one left with the old family home. With the economy the way it is, I got priced out of it real quick. I was packing everything up when, out of mom’s antique, fell an old photo album, almost fallen to pieces. I figured a trip down memory lane would help cope with having to sacrifice my childhood home to the capricious gods of the real estate market. So I sat back, and spent a few minutes giggling at old baby photos, oooing at vacations I’d forgotten we’d ever taken, and…
+Recently, my parents have passed away, and my sister moved abroad, so I was the one left with the old family home. With the economy the way it is, I got priced out of it real quick. I was packing everything up when, out of mom’s antique dresser, fell an old photo album, almost fallen to pieces. I figured a trip down memory lane would help cope with having to sacrifice my childhood home to the capricious gods of the real estate market. So I sat back, and spent a few minutes giggling at old baby photos, oooing at vacations I’d forgotten we’d ever taken, and…
 
 I froze, just as I was about to turn a page. 
 
