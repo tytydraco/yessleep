@@ -148,7 +148,7 @@ The shape beneath the water grows clearer, its vast size dwarfing our little row
 
 The air fills with a putrid stench of decay, and a grotesque assembly of scales, barnacles, and sinuous tendrils clings to what can only be described as a nightmare made flesh.
 
-The ocean erupts around us, waves crashing against the boat like the blows of a giant. The boat rocks violently, threatening to capsize with each monstrous wave created by the beast's movements.
+The ocean erupts around us, waves crashing against the boat like the blows of a giant. The boat rocks violently, threatening to capsize with each monster wave created by the beast's movements.
 
 The massive creature emerges further, each of its movements causing the sea around us to roil and swell with terrifying force. The sky above seems to darken as its massive bulk blots out the sun, casting long, ominous shadows across the water.
 
@@ -156,9 +156,9 @@ The ocean becomes a cauldron of chaos. Above the surface, the creature’s enorm
 
 “Holy shit!” Tori gasps next to me.
 
-As the monstrous creature re-submerges, the water around us behaves like it’s being sucked down a colossal drain. The pull is so strong it feels like the ocean itself is trying to consume. Our rowboat, tiny and insignificant against this force, starts to tilt dangerously, the stern dipping into the swirling vortex.
+As the creature re-submerges, the water around us behaves like it’s being sucked down a colossal drain. The pull is so strong it feels like the ocean itself is trying to consume. Our rowboat, tiny and insignificant against this force, starts to tilt dangerously, the stern dipping into the swirling vortex.
 
-Suddenly, a monstrous wave, larger than any before, rears up like a behemoth. It's a towering wall of water, frothing at its crest, bearing down on us with the full wrath of the sea. My heart leaps into my throat, and for a moment, everything seems to slow down—I see Tori's widened eyes, the sky darkening above, the sheer power of nature bearing down on us.
+Suddenly, a giant wave, larger than any before, rears up like a behemoth. It's a towering wall of water, frothing at its crest, bearing down on us with the full wrath of the sea. My heart leaps into my throat, and for a moment, everything seems to slow down—I see Tori's widened eyes, the sky darkening above, the sheer power of nature bearing down on us.
 
 Then, the wave crashes.
 
@@ -170,7 +170,7 @@ Just as I feel the darkness creeping at the edges of my vision, a strong grip en
 
 "Come on, Josh! We're not dying today!" she yells. We manage to right the boat, clinging to it as another wave lifts us and then drops us in a sickening plunge.
 
-As the creature descends into the depths, the chaos of the ocean subsides with unnatural speed, like a nightmare fading at dawn. The water around us grows strangely still, eerily calm. The monstrous waves that had just threatened to swallow us whole now retreat, leaving behind only the gentle lapping of water against our boat.
+As the creature descends into the depths, the chaos of the ocean subsides with unnatural speed, like a nightmare fading at dawn. The water around us grows strangely still, eerily calm. The waves that had just threatened to swallow us whole now retreat, leaving behind only the gentle lapping of water against our boat.
 
 The sky above brightens slightly, casting pale light on the slick surface of the sea. It's as if the ocean itself wants to forget the horror it just unleashed. Tori and I sit in our battered rowboat, soaked to the bone, breathing heavily from exertion and fear. We exchange glances, our eyes wide with the shared terror of what we've seen.
 
@@ -190,7 +190,7 @@ The Coast Guard was called in, and by late afternoon, a flotilla of boats dotted
 
 Local news crews, having caught wind of the incident, arrived with cameras and microphones, eager to capture the story. Tori and I were too shaken to speak on camera.
 
-In the days that followed, the beach remained closed. The water was patrolled continuously by boats equipped with sonar and other research equipment, trying to detect any further signs of the monstrous creature or its whereabouts. Scientists and marine biologists were brought in, providing their expertise, hypothesizing about what the creature could be—was it a dormant deep-sea species, or something unknown entirely?
+In the days that followed, the beach remained closed. The water was patrolled continuously by boats equipped with sonar and other research equipment, trying to detect any further signs of the creature or its whereabouts. Scientists and marine biologists were brought in, providing their expertise, hypothesizing about what the creature could be—was it a dormant deep-sea species, or something unknown entirely?
 
 The incident became the talk of the town and, soon, a wider curiosity. Articles about historical sea monster sightings resurfaced, and everyone had a theory or a tale to share.
 

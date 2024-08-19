@@ -1,11 +1,13 @@
 
-Strange letters appear around my house. They pop up in unexpected places, at random times. Stranger still, the letters are signed with my signature. There is no return address, and no identifying information. The handwriting is similar to mine, but I don’t have any memory of writing them. 
+Strange letters appear around my apartment. They pop up in unexpected places, at random times. Stranger still, the letters are signed with my signature. There is no return address, and no identifying information. The handwriting is similar to mine, but I don’t have any memory of writing them. 
 
 The first note to appear was outside my apartment door, and read: “Hello, we should talk. It’s been too long.” As vague as it was, I hadn’t developed much interest in the mystery. I smirked at the message and decided it was the start of a bad prank. I threw it out the next day. 
-     
+
 It hadn’t crossed my mind much until three days later. I woke around 3:30AM to use the restroom, something I often do after a day spent drinking. I was a little skittish, but no more than you’d expect waking up alone in the middle of the night. When I returned, that’s when I shifted to dread. There it was, lying on my pillow. A letter. 
 
-It was almost glowing, with a peculiar off-white color. And there was my signature, inscripted with a brilliant gold sheen. Chills raced up and down my spine like alternating currents, thoughts following in my head. I frantically glance out the window, barely able to make out anything in the darkness. If someone had escaped that way, they’d have left a trail of footprints in the snow.  
+It was almost glowing, with a peculiar off-white color. And there was my signature, inscripted with a brilliant gold sheen. Chills raced up and down my spine like alternating currents, thoughts following in my head. 
+
+I frantically glance out the window, barely able to make out anything in the darkness. If someone had escaped that way, they’d have left a trail of footprints in the snow.  
 
 The feeling in my gut intensifies as I check the closet, hesitantly pulling open the door with a pocket knife in my free hand. My insides are twirling and twisting like tight knots. But again, nobody is there. 
 
@@ -14,42 +16,41 @@ I prepare to call the police, 911 only a click away. But something tells me to w
 I shine my phone light into the darkness, half-expecting someone to be staring back, or worse. I don’t know whether to feel relieved or shocked when the only monsters I can find are a few empty bottles and some crumpled cigarette packs. 
 
 Whoever had left the letter was gone—or good at hiding. But they couldn’t have slipped by without me noticing. The bathroom faces the living room, by the front door. The floors creak and crack at the slightest step. The hinges cry and squeak with every motion. I am petrified at the thought that they could still be there, watching me. 
-     
-I mentally prepare myself to open the letter, scared at what I might find. I peel the fold, and lift the note. It reads: “It starts soon.” I am frozen. I have no clue what that could possibly refer to. I have no friends, family, or any correspondents at all. 
+
+I mentally prepare myself to open the letter, scared at what I might find. I peel the fold, and lift the note. It is written in bright red, and reads: “It starts soon.” I am frozen. I have no clue what that could possibly refer to. I have no friends, family, or any correspondents. 
 
 Nobody would care if something happened to me. I’m not a member of any clubs or in any groups. I don’t even use social media much these days. I didn't sleep that night. 
 
 Since then I’ve found letters tucked in my bookshelf, a few on the dash of my car, under my blanket, and even in my pocket. Most of them repeat the same line, while others appear blank. However, the most explicit message appeared in my hands while I was spacing off. 
 
-One second I am staring out the window, watching the thunder roll by, the next I feel something sharp, almost tingly making contact with my fingers. It has the same eerie color and unnatural glow as the other letters, but the words are marked in a deep crimson serif. 
-     
-I decide not to open it, but the morbid curiosity is driving me crazy. The texture is more abrasive than the others, and the material is much stronger, but I get it open. 
+One second I am staring out the window, watching the thunder roll by, the next I feel something sharp, almost tingly making contact with my fingers. It has the same eerie color and unnatural glow as the other letters, but the name is marked in gold writing. 
 
-Inside is a black card with gold writing that reads: “Can’t live with it. Can’t live without it. Blank lines are what you look for, but you don’t see them the way you should. Not yet.” I stare at the letter, waiting for something else to happen. My heartbeat steadily rising, then slows. 
+I decide I shouldn’t open it, but the morbid curiosity is driving me crazy. The texture is more abrasive than the others, and the material is much stronger, but I get it open anyway. 
 
-The room is so quiet—so still; chirps and whistles pause in retaliation. The TV turns off and the washing machine settles to a stop. I raise coffee to my lips, accidentally swallowing 
- 
-too fast. It doesn’t burn, but my tongue tingles. My fingertips tingle. My ankles tingle. I stay on the couch, rocking back and forth, as my limbs begin to sensate uncomfortably. 
+Inside is a black card with a much deeper crimson serif that reads: “Can’t live with it. Can’t live without it. Blank lines are what you look for, but you don’t see them the way you should.” I stare at the letter, waiting for something else to happen. My heartbeat steadily rises, then slows. 
+
+The room is so quiet—so still; chirps and whistles pause in retaliation. The TV turns off and the washing machine settles to a stop. I raise coffee to my lips, accidentally swallowing too fast. It doesn’t burn, but my tongue tingles. My fingertips tingle. My ankles tingle. I stay on the couch, rocking back and forth, as my limbs begin to sensate uncomfortably. 
 
 I feign little reaction. The room is feeling smaller and smaller with every passing tick of the clock. Then the silence ceases. The muted soundscape resigns to the hussle and bussle of cars honking, kids playing and birds cawing outside once more. Faux normalcy. 
 
-The washing machine starts bumping the ground, shaking violently as if it were going to burst. The TV turns back on, but static reigns over the screen. Buzzing, cracking. I look back outside, and snow has begun to fall. Little drops paint the glass, crystallizing instantly on the cold surface. 
+The washing machine starts bumping the ground, shaking violently as if it were going to burst. The TV turns back on, but static reigns over the screen. Buzzing, cracking. I look back outside, and snow has begun to fall. Little drops paint the glass, crystallizing instantly on the cold surface.
 
-My misty breath obscures the image, so I wipe it with my sleeve. The snow is picking up faster, and the cars are lining up. The forecast didn’t anticipate heavy snow for another month at least. As quickly as I wipe away the condensation, it reappears. So I give up on people watching, looking to the television. 
+My misty breath obscures the image, so I wipe it with my sleeve. The snow is picking up faster, and the cars are lining up. The forecast didn’t anticipate heavy snow for another month at least. As quickly as I wipe away the condensation, it reappears. So I give up on people watching, looking at the television. 
 
 The static is like snow of its own kind, blending and melding together in an unpredictable sequence. I’m used to visual snow, clouding my vision with subtle specks of what can only be described as thousands of tiny particles. But staring at the TV makes that disappear for a moment, replacing it with it’s own malady. So I look into it, losing track of my surroundings. Focusing on something else’s perspective. 
 
-The chaos of the TV static is more consistent than my own. By the time I realize what I’m doing, the image has already returned to normal programming, and it’s midnight. I am thirsty and very tired.
-    
-I should feel disturbed. Life is mundane. Life is always drab. Smooth, and easily digested. I am alone, and I know that. Now I am unsure, and that fear is new and colored. I finally got some genuine rest that night, passing out as soon as I fell to the bed. Dreams come and go without much recollection but that of a feeling—a feeling of relief. 
+The chaos of the TV static is more consistent than my own. By the time I realize what I’m doing, the image has already returned to normal programming, and it’s midnight. I am thirsty and very tired.    
+
+I should feel more disturbed right now. But life is mundane. Life is drab. Smooth, and easily digested. I am alone, and I know that. Now I am unsure, and that fear is new and colored. I finally got some genuine rest that night, passing out as soon as I fell to the bed. Dreams come and go without much recollection but that of a feeling—a feeling of relief. 
 
 I open my eyes in short cycles. Sunlight bleeds intensely through the blinds of my window, hitting my face. The red light commits me to wake, and I yawn with applause. A smirk crosses my lips, basking the mood in satisfying warm tones from the sky. 
 
 I yank open my curtains, eyes wide to the sky. I am bombarded by darkness and snow hurling at me through an open window. My smile creeps into a face of despair; the face of misunderstanding possessed by fear. I step backwards, my feet stumbling over a half-full bottle of liquor. 
 
 I fall helplessly, hitting my head against the bed frame. Everything is fuzzy. Hazy. Everything dazed. I reach forward, grabbing at air. Currents whip and strike against my hands, keeping me down. I feel trapped. 
+The thunderstorm is watching me, getting closer as I fall flat.
 
-The thunderstorm is watching me, getting closer as I fall flat. I can no longer see through the blood pouring over my blurred eyes. I hear a squeak. My door opens. I imagine the letter in my head, and a voice repeating, “It starts soon. It starts soon. It starts soon,” the invader whispers into my ear. 
+ I can no longer see through the blood pouring over my blurred eyes. I hear a squeak. My door opens. I imagine the letter in my head, and a voice repeating, “It starts soon. It starts soon. It starts soon,” the invader whispers into my ear. 
 
 I throw myself at the voice, forcing my weight onto nothing; an apparition. I jump up, rising from my covers. I am drenched in sweat, not blood. I look to the left, and then to the right. 
 
@@ -61,9 +62,9 @@ As I carry the broken shards of glass to the kitchen, I take notice of the repet
 
 The noise follows me to the trash, where I can dispose of it. So I open the lid, and drop the dustpan in, but there is no satisfying sound. The glass isn’t with me. I rack my brain looking for where I must’ve dropped it, even looking in the bedroom. The spill is still there, but no shards. Not even a bloody splinter. 
 
-These last few days have been hard to recall. But I won’t accept it. I don’t want to accidentally step onto a pile of misplaced glass sometime in the future. The bedroom is clear. The hallway is clear. 
+These last few days have been hard to recall. But I won’t accept it. I don’t want to accidentally step onto a pile of misplaced glass sometime in the future. The bedroom is clear. The hallway is clear. The living room is clear. All that's left is the kitchen, and—well, the bathroom. It’s self-explanatory. 
 
-The living room is clear. All that's left is the kitchen, and—well, the bathroom. It’s self-explanatory. I return to the kitchen, inspecting the rough patches of linoleum for stragglers. I find many shards of glass, but not the ones I’m looking for. Something is missing. Anyone else would likely pick up what they could find and call it a job well done, but I can’t. Not now. 
+I return to the kitchen, inspecting the rough patches of linoleum for stragglers. I find many shards of glass, but not the ones I’m looking for. Something is missing. Anyone else would likely pick up what they could find and call it a job well done, but I can’t. Not now. 
 
 I sweep the floor, picking up lots of little bits and pieces of food and trash, but not what I need. My expedition is interrupted by a knock at the door. I never get visitors. I approach the door, checking the eyehole, and there is someone across the aisle, standing around the adjacent apartment. 
 
@@ -89,7 +90,7 @@ She insists on staying with me for a moment, and I don’t argue with her. It wo
 
 “I’m fine. That’s kind, but I couldn’t make you do that,” I respond before inevitably accepting. “I guess a cup would be fine.” I tell her where the coffee beans are. They’re premium. It is too strong. I feel that I am losing concentration on the matter at hand. 
 
-We are chatting about ourselves, what we do for a living, our families, that kind of thing. But in the middle of the conversation her attention diverts away. She pauses in and out of speech. I follow her eyes. She sees a pile of bottles, by the closet. Most of them completely empty. 
+We are chatting about ourselves, what we do for a living, our families, that kind of thing. But in the middle of the conversation her attention diverts away. She pauses in and out of speech. I follow her eyes. She sees a pile of bottles, by the closet. Most of them are completely empty. 
 
 “Did you have a party recently?” She asks me, assuming the benefit. I have to lie again. I had a big party. A party with all my friends from work and school. I nod my head. She seems to believe me. I apologize for not cleaning up, and ask if she would like some. She looks uncomfortable and tries to change the topic. 
 
@@ -114,7 +115,6 @@ There are a few more cars parked out front than what’s typical for this time. 
 I take a step forward, and hear a crunch. I look down for a second. My mouth ajar, almost salivating. A piece of glass penetrates my foot, deeply embedding under a layer of thick skin. I lean against the wall on one leg, blood dripping from the edges of the shard. 
 
 My shoulder aches against the corner. I pull on it, and the pain stings. I cover my mouth. I pull again, and the glass keeps coming. I continue to pull but the shard continues. It goes on and on. I feel my vision fading, and my balance falters. I bite my finger, and blink rapidly. I bite harder, and my eyes shoot open, perfumed with mist. 
-
 My foot has nothing in it. The glass lay on the carpet, not three inches in length. A foot ahead is another piece, and another past that. A trail of shards lead back to the kitchen. I drop to my knees, in disbelief; I am contemplating. Has it started? I pinch my bicep. I flick myself on the forehead. 
 
 I crawl forward, defeated. The glass is shiny. The glass is clear. No imperfections or rough edges. I bring it close to my face, and place it flat against my cheek. It’s cold, unlike the carpet. I observe it, rotating the piece around. What am I supposed to see? I place it close to my eye, and look through it.
@@ -122,7 +122,6 @@ I crawl forward, defeated. The glass is shiny. The glass is clear. No imperfecti
 The glass reflects the world in a million degrees of space. But I look again. And then again. The glass becomes foggy from the warmth of my breath, but it remains cold. I pull it closer. It touches the raw milky texture of my eye, and I see something. Snow. There is snow falling in my apartment. I tilt my head up. 
 
 The ceiling is a foggy cloud. The snowflakes radiate around me in a swirl. They envelop me. They’re so cold, nipping at me through my clothing. My arm begins to shake, and I try to stay still but it gets harder not to sway my hand. The pain in my shoulder feels like a vice grip. But I keep the glass over my eye with my remaining energy. 
-
 I tilt my head down, and see the path of glass shards against a blanket of sleet. I follow it to the kitchen; an expanse of water—and frozen bodies. The walls are black, and the ocean reflects a sea of alien stars. The corpses float through the mild waves, forever drowning. I wade through the water, keeping the glass steady as possible. I’m afraid to switch hands. If I close my eyes for one second, it might break away again. 
 
 In the center of the watery grave is the fridge, and on it is the note, but it’s different. It’s shining. I move faster, creating currents of cascading waves. The fridge seems to get further along as I move. My legs are becoming too cold to go further. If I press the glass into my eye any harder, it might just pop. Then I smell something. 
@@ -134,3 +133,4 @@ I keep moving forward. Trudging the same path, despite the pain. The fridge is f
 I don’t have much time. But I know that I need to see, like the letter told me. I am panting with each movement, and I feel like giving up. My eyelid is beginning to bleed, and I have to blink. But it’s there, right ahead. I can see it getting so close. I reach out and can almost grab it. I pull back, and barely pull the note from the door. 
 
 It’s a letter. Made out to me, by me. No address. No other identifying information. Maybe I’m guilty. I tear it open, and pull out the card. Written in bold red cursive it reads: “It’s already begun. Put it off. You cannot swim for shore while you drown.” There is a pit where my stomach should be, like a sinking ship. I let my arm drop, and the room lights up. I’m holding the card with the girl’s number written on it. I drop it on the ground, and carry myself to my room. I fall over, passing out. On this night, I dare not dream in black and white.
+
