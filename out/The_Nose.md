@@ -60,7 +60,7 @@ Joe pointed towards the far side of the house. "She went into the garage."
 
 "I got a security camera in there," I said. "Let's see what she's up to."
 
-I led him into my bedroom and opened up my walk-in closet. Inside I had some equipment set up. All of my security cameras fed into a computer which I could us to record or just observe.
+I led him into my bedroom and opened up my walk-in closet. Inside I had some equipment set up. All of my security cameras fed into a computer which I could use to record or just observe.
 
 I turned on the camera in the garage and we watched on the monitor as Sheila placed he straw into the glass, submerging one end into the red fluid.
 
@@ -116,7 +116,7 @@ At this Joe and I both took a step back away from her while hyper focusing on he
 
 Joe's face was contorted in wild confusion. His mouth hung open and he tried to speak. "Whaaat thuuuh..."
 
-I thought it must be some kind of trick. I wasn't going to play this game. No sir. So I decided to call the Nose's bluff. "Yeah right. Who ever heard of talking nose?" I asked.
+I thought it must be some kind of trick. I wasn't going to play this game. No sir. So I decided to call the Nose's bluff. "Yeah right. Who ever heard of a talking nose?" I asked.
 
 At this the nostril began to flap wildly as if in anger and it responded. "Why you! If I wasn't so drunk... just wait til I get get up off this couch."
 

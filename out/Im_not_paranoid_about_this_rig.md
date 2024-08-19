@@ -1,6 +1,6 @@
 The installation, this place that swallowed the horizon and crushed the sky, was always alive. I realize that now. Every thrum of its metallic heart, every whisper in its corroded halls, was the pulse of a creature older and more malevolent than I could have ever imagined. But I didn’t understand that when I arrived. Back then, I was still clinging to the remnants of my old life, to the memory of my best friend and the life we had shared—a life that now felt as distant as a dream, slipping further away each day.
 
-When Mr. Greene made his offer, it felt like a lifeline. Double the pay, hazard bonuses, a chance to escape the grief that had consumed me since my friend’s death. But beneath the surface, I knew there was something darker. Greene didn’t care about my qualifications; he saw someone with no ties, no reason to say no. Deep down, I knew that too. My friend’s voice echoed in my mind, warning me against taking the job. “Think it through,” he would have said. “You don’t need this.” But I was desperate—desperate to get away from the memories, from the guilt gnawing at me. I convinced myself it was just work, just numbers. But even then, I think I knew I wasn’t running away from my grief—I was running toward it.
+When Mr. Greene made his offer, it felt like a lifeline: double the pay, hazard bonuses, a chance to escape the grief that had consumed me since my friend’s death. But beneath the surface, I knew there was something darker. Greene didn’t care about my qualifications; he saw someone with no ties, no reason to say no. Deep down, I knew that too. My friend’s voice echoed in my mind, warning me against taking the job. “Think it through,” he would have said. “You don’t need this.” But I was desperate—desperate to get away from the memories, from the guilt gnawing at me. I convinced myself it was just work, just numbers. But even then, I think I knew I wasn’t running away from my grief—I was running toward it.
 
 The helicopter ride to the installation was unnerving. We flew over an ocean that seemed endless, a cold, steel-gray expanse that mirrored the sky. Inside the helicopter, the air was thick with tension, and a metallic taste clung to the back of my throat. The other passengers were silent, their faces pale and drawn. We were told not to speak, a command that felt less like an instruction and more like a warning.
 
@@ -30,9 +30,9 @@ There was something in his tone that unnerved me, something that hinted at a dee
 
 The other crew members avoided me. They moved through the corridors like ghosts, their eyes empty, their faces blank. They were a strange lot—silent, detached, as if they had already surrendered to the installation’s will. I tried to talk to them, to ask questions, but they would only stare at me with those dead eyes before turning away, their mouths moving in silent, mechanical chants.
 
-The Divers first appeared in my peripheral vision, shadows moving through the lower levels of the installation. They were unsettling—figures clad in diving suits, their faces hidden behind reflective visors. They moved with a grace that seemed impossible for beings so heavily encased in metal, gliding through the darkened corridors like phantoms. I watched them from the shadows, my heart pounding in my chest. Something deep inside me warned to stay away, but I couldn’t look away.
+The Divers first appeared in my peripheral vision, shadows moving through the lower levels of the installation. They were unsettling—figures clad in diving suits, their faces hidden behind reflective visors. They moved with a grace that seemed impossible for beings so heavily encased in metal, gliding through the darkened corridors like phantoms. I watched them from the shadows, my heart pounding in my chest. Something deep inside me warned me to stay away, but I couldn’t look away.
 
-They disappeared into the lower decks, where the light barely reached, and the air was thick with the smell of rust and decay. I turned to leave, but found Harris standing a few feet away, his eyes cold and knowing.
+They disappeared into the lower decks, where the light barely reached, and the air was thick with the smell of rust and decay. I turned to leave but found Harris standing a few feet away, his eyes cold and knowing.
 
 “You shouldn’t be here,” he said, his voice as sharp as the rusted edges of the installation.
 
@@ -54,7 +54,7 @@ I realized then what I had been too afraid to admit. The installation had claime
 
 The crew’s rituals became more frequent, more elaborate. They gathered in the depths of the installation, performing synchronized movements that were almost mechanical, their voices a monotone chant in a language I couldn’t understand. They traced symbols in the air, symbols that I began to see in my dreams, glowing faintly in the darkness. The rituals were not just for show—they were necessary. Without them, the installation would consume us all.
 
-At first, I refused to join them, clinging to the belief that  I could maintain my individuality, my sanity. But the pressure grew unbearable. The installation itself seemed to close in around me, its walls pulsing with a life of their own. I felt it in my bones, in my mind, the overwhelming force that demanded my submission. My thoughts fragmented, my memories of the outside world slipping away, replaced by the relentless thrum of the installation.
+At first, I refused to join them, clinging to the belief that I could maintain my individuality, my sanity. But the pressure grew unbearable. The installation itself seemed to close in around me, its walls pulsing with a life of their own. I felt it in my bones, in my mind, the overwhelming force that demanded my submission. My thoughts fragmented, my memories of the outside world slipping away, replaced by the relentless thrum of the installation.
 
 I joined the crew, performing the rituals with them, mimicking their movements, their chants. At first, it felt wrong, a betrayal of who I was, but over time, I found myself relying on the rituals to keep the darkness at bay. The installation’s influence seeped into me, and I began to understand the symbols, the chants. The numbers that once haunted me became a guide, their patterns revealing the installation’s will.
 
@@ -82,17 +82,17 @@ Harris found me the next day, standing at the edge of the pit, staring into the 
 
 I joined the crew’s rituals without hesitation, my movements fluid, my voice steady. The numbers that once tormented me now guided me, their patterns clear and unyielding. The rust that spread across the installation was no longer a sign of decay but of life—a sign of the installation’s power.
 
-But something was different now, something deeper. As I moved through the corridors, I began to sense the installation not just as a presence, but as an extension of myself. The walls breathed with me, the metal thrummed with my heartbeat. I could feel the rust creeping beneath my skin, merging with my veins, turning my blood to cold, metallic threads. I was becoming part of the installation in a way I hadn’t imagined, in a way that transcended mere physical transformation.
+But something was different now, something deeper. As I moved through the corridors, I sensed the installation was not just a presence but an extension of myself. The walls breathed with me, the metal thrummed with my heartbeat. I could feel the rust creeping beneath my skin, merging with my veins, turning my blood into cold metallic threads. I was becoming part of the installation in a way I hadn’t imagined, in a way that transcended mere physical transformation.
 
 I began to see the world through the installation’s eyes. The horizon wasn’t just a line—it was a boundary, a limit that the installation had to push against, expand beyond. The sea wasn’t just water—it was a source of life, a wellspring of energy that fed the installation’s endless hunger. And the crew, the people who had once been my colleagues, were no longer individuals. They were cells in a larger organism, each one playing a role, each one vital to the installation’s survival.
 
 When new workers arrived, I greeted them with the same calm detachment that Harris had once shown me. I saw the fear in their eyes, the confusion, and I knew it wouldn’t be long before they understood the truth. I had become what I once feared—a man who had surrendered to the installation, who had become a part of something far greater than himself.
 
-But there was no fear in that realization, only acceptance. Because when the installation decides, there’s no escape. It will find you, and it will take you, just as it took so many before.
+There was no fear in that realization, only acceptance. Because when the installation decides, there’s no escape. It will find you, and it will take you, just as it took so many before.
 
 As I sit in my quarters, the thumping in the walls syncing with the beat of my heart, I realize that the installation has consumed me, body and soul. The man I once was—an accountant who sought order and control—is gone, replaced by something else. Something that understands the rhythms of this place, the hunger that drives it.
 
-And when my time comes, I won’t resist. I will go willingly, just as those before me have. Because that’s just the way it is.
+And when my time comes, I won’t resist. I will go willingly, just as those before me have.
 
 But now, I understand what that means on a level I hadn’t before. The installation is not just a machine, not just a predator. It’s a force, a presence that transcends the physical, something that exists outside of time and space. It’s a part of the universe’s fabric, a manifestation of the endless cycle of creation and destruction.
 
@@ -103,3 +103,11 @@ And in that realization, there is a strange comfort. Because in surrendering to 
 And when the installation finally takes me, when the rust has spread through every part of my being, I will become one with it. I will become the walls, the floors, the thrum of the heartbeat. I will become the numbers etched into the metal, the symbols traced in the air. I will become the installation itself, and in that, I will find peace.
 
 Because that’s just the way it is.
+
+
+
+
+
+
+
+
