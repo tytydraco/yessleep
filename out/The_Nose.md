@@ -152,7 +152,7 @@ By then the Nose had grown to about the size of a grapefruit and had darkened in
 
 Joe had stood up behind it and had removed his belt which he was about to use to strangle it. The Nose had sensed he was there I guess because it reached out and grabbed Joe by the throat and shoved it's nostrils up to his neck where they bit into his flesh letting loose a cascade of red down his neck.
 
-I lurched forward intending to restrain the body, but a long, thin, slimy tentacle protruded out of one of the nostrils and wrapped around my neck. It lifted me off the floor and slammed me up against the wall where it held me while it seemed to finish drinking Joe's blood from his neck woulds.
+I lurched forward intending to restrain the body, but a long, thin, slimy tentacle protruded out of one of the nostrils and wrapped around my neck. It lifted me off the floor and slammed me up against the wall where it held me while it seemed to finish drinking Joe's blood from his neck wounds.
 
 I was trembling in absolute horror and fright as Joe slid to the floor and The Nose turned it's attention back to me. The Nose was now the size of a human head and the teeth had grown to match.
 
