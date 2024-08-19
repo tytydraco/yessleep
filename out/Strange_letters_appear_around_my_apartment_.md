@@ -23,7 +23,7 @@ Nobody would care if something happened to me. I’m not a member of any clubs o
 
 Since then I’ve found letters tucked in my bookshelf, a few on the dash of my car, under my blanket, and even in my pocket. Most of them repeat the same line, while others appear blank. However, the most explicit message appeared in my hands while I was spacing off. 
 
-One second I am staring out the window, watching the thunder roll by, the next I feel something sharp, almost tingly making contact with my fingers. It has the same eerie color and unnatural glow as the other letters, but the name is marked in gold writing. 
+One second I am staring out the window, watching the thunder roll by, the next I feel something sharp, almost tingly making contact with my fingers. It has the same eerie color and unnatural glow as the other letters, but the name is marked in  a much brighter gold tone. 
 
 I decide I shouldn’t open it, but the morbid curiosity is driving me crazy. The texture is more abrasive than the others, and the material is much stronger, but I get it open anyway. 
 
@@ -66,13 +66,13 @@ These last few days have been hard to recall. But I won’t accept it. I don’t
 
 I return to the kitchen, inspecting the rough patches of linoleum for stragglers. I find many shards of glass, but not the ones I’m looking for. Something is missing. Anyone else would likely pick up what they could find and call it a job well done, but I can’t. Not now. 
 
-I sweep the floor, picking up lots of little bits and pieces of food and trash, but not what I need. My expedition is interrupted by a knock at the door. I never get visitors. I approach the door, checking the eyehole, and there is someone across the aisle, standing around the adjacent apartment. 
+I sweep the floor, picking up lots of little bits and pieces of food and trash, but not what I need. My expedition is interrupted by a knock at the door. I never get visitors. I approach the door, checking the eyehole, and there is someone across the aisle, standing around. 
 
 I open the door enough to peek my head out, and ask if they had knocked on my door or at least seen who did. They tell me nobody has been there since they arrived. That they have been standing around for the last five minutes or so. 
 
 “Alright. Well—thanks anyway.” I reply awkwardly. They don’t respond. I shut the door quickly, feeling embarrassed for even asking. 
     
-I place my head against the door, and take another deep breath. I hear it again. A knock. A hard, deep knock. The type of knock you would feel if you were leaning against the door. The trembling returns. I’m no longer concerned with adventure or mystery, as much as getting as far away from this place as possible. 
+I place my head against the door, and take another deep breath. I hear it again. A knock. A hard, deep knock. The type of knock you would feel if you were leaning against the door. It is coming from inside. The closet. The trembling returns. I’m no longer concerned with adventure or mystery, as much as getting as far away from this place as possible. 
 
 I turn and start to twist the door handle, but it doesn’t move. I pound on it, screaming for someone to help. I hear my neighbors talking as normal, going about their days. But they don’t respond. I keep slamming the door, but it won’t budge. I back up before running into it. 
 
@@ -114,21 +114,23 @@ There are a few more cars parked out front than what’s typical for this time. 
 
 I take a step forward, and hear a crunch. I look down for a second. My mouth ajar, almost salivating. A piece of glass penetrates my foot, deeply embedding under a layer of thick skin. I lean against the wall on one leg, blood dripping from the edges of the shard. 
 
-My shoulder aches against the corner. I pull on it, and the pain stings. I cover my mouth. I pull again, and the glass keeps coming. I continue to pull but the shard continues. It goes on and on. I feel my vision fading, and my balance falters. I bite my finger, and blink rapidly. I bite harder, and my eyes shoot open, perfumed with mist. 
+My shoulder aches against the corner. I pull on it, and the pain stings. I cover my mouth. I pull again, and the glass keeps coming. I continue to pull but the shard goes on and on, like an endless loop. I feel my vision fading, and my balance falters. I bite my finger, and blink rapidly. I bite harder, and my eyes shoot open, perfumed with mist. 
+
 My foot has nothing in it. The glass lay on the carpet, not three inches in length. A foot ahead is another piece, and another past that. A trail of shards lead back to the kitchen. I drop to my knees, in disbelief; I am contemplating. Has it started? I pinch my bicep. I flick myself on the forehead. 
 
 I crawl forward, defeated. The glass is shiny. The glass is clear. No imperfections or rough edges. I bring it close to my face, and place it flat against my cheek. It’s cold, unlike the carpet. I observe it, rotating the piece around. What am I supposed to see? I place it close to my eye, and look through it.
 
-The glass reflects the world in a million degrees of space. But I look again. And then again. The glass becomes foggy from the warmth of my breath, but it remains cold. I pull it closer. It touches the raw milky texture of my eye, and I see something. Snow. There is snow falling in my apartment. I tilt my head up. 
+The glass reflects the world in a million degrees of space. I look again. And then again. The glass becomes foggy from the warmth of my breath, but it remains cold. I pull it closer. It touches the raw milky texture of my eye, and I see something. Snow. There is snow falling in my apartment. I tilt my head up. 
 
 The ceiling is a foggy cloud. The snowflakes radiate around me in a swirl. They envelop me. They’re so cold, nipping at me through my clothing. My arm begins to shake, and I try to stay still but it gets harder not to sway my hand. The pain in my shoulder feels like a vice grip. But I keep the glass over my eye with my remaining energy. 
-I tilt my head down, and see the path of glass shards against a blanket of sleet. I follow it to the kitchen; an expanse of water—and frozen bodies. The walls are black, and the ocean reflects a sea of alien stars. The corpses float through the mild waves, forever drowning. I wade through the water, keeping the glass steady as possible. I’m afraid to switch hands. If I close my eyes for one second, it might break away again. 
 
-In the center of the watery grave is the fridge, and on it is the note, but it’s different. It’s shining. I move faster, creating currents of cascading waves. The fridge seems to get further along as I move. My legs are becoming too cold to go further. If I press the glass into my eye any harder, it might just pop. Then I smell something. 
+I tilt my head down, and see the path of glass shards against a blanket of sleet. I follow it to the kitchen; an expanse of water—and frozen bodies. The walls are black, and the ocean reflects a sea of alien stars. The corpses float through the mild waves, forever drowning. I wade through the water, keeping the glass steady as possible. I’m afraid to switch hands. If I close my eyes for even one second, it might break away again. 
 
-The water has a scent, a familiar note. Sharp and pungent. Intrusive and effective. I feel a sensation drifting along my legs. The body. My jacket glides along the surface. I touch it; cold as ice. My fingers slip along the cheekbones, which are sunken. I grab the shoulder, and turn the body. My face stares back at me, one eye gouged out. I’m smiling like a forbidden expression. My headache is pounding now. I need it more than ever, but I shouldn’t. 
+In the center of the watery grave is the fridge, and on it is the note, but it’s different. It’s shining. I move faster, creating currents of cascading waves. The fridge seems to get further along as I move. My legs are almost too cold to go further. And If I press the glass into my eye any harder, it might just pop. Then I smell something. 
 
-I keep moving forward. Trudging the same path, despite the pain. The fridge is farther still. But I don’t think it can keep up forever. More bodies slam through me. I don’t dare look at them again. My arm is shaking so much that the image is becoming distorted again. 
+The water has a scent, a familiar note. Sharp and pungent. Intrusive and effective. Acidic even. I am getting woozy. Then I feel a sensation drifting along my legs. The body. It glides along the surface in my jacket. I touch it; cold as ice. My fingers slip along the cheekbones, which are sunken. I grab the shoulder, and turn the body. My face stares back at me, one eye gouged out. A piece of glass stuck in the gaping mouth; a smile like a forbidden expression. My headache is pounding now. I need it more than ever, but I shouldn’t. 
+
+I keep moving forward. Trudging the same path, despite the pain. The wandering fridge is farther still. But I don’t think it can keep up forever. More bodies slam through me. I don’t dare look at them again. My arm is shaking so much that the image is becoming distorted. 
 
 I don’t have much time. But I know that I need to see, like the letter told me. I am panting with each movement, and I feel like giving up. My eyelid is beginning to bleed, and I have to blink. But it’s there, right ahead. I can see it getting so close. I reach out and can almost grab it. I pull back, and barely pull the note from the door. 
 
