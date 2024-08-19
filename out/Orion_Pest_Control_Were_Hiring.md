@@ -78,7 +78,7 @@ Auntie Rye infestations can be identified depending upon how a field has been te
 
 However, if she feels that the field isn't being tended to properly, the farmer might notice that some of the crop has turned black. These cursed crops will be toxic for human consumption and if not addressed immediately, Auntie Rye's curse will spread until the entire field has been destroyed. 
 
-If Rye Aunts were only a danger to crops,  they wouldn't be so bad. Where they become downright horrific is if a child is unlucky enough to cross their path. The Aunts’ main concern is maintaining the field they've chosen as their homes, and unfortunately, they appear to regard children in the same scornful manner that people regard termites.
+If Rye Aunts were only a danger to crops,  they wouldn't be so bad. Where they become downright horrific is if a child is unlucky enough to cross their path. The Aunts’ main concern is maintaining the field they've chosen as their homes, and unfortunately, they appear to regard children in the same scornful manner that people regard termites. As such, if yinz are sensitive to the subject of children dying, I suggest you proceed reading this with caution. It doesn't end well. 
 
 Back when one of the farms near us was visited by an Auntie Rye, we got a call from the farmer who was in a panic after not being able to find his son. He'd known about the Aunt's residence and up until that point, he'd been doing a good job of keeping her content. We joined him in his search through the corn field.
 

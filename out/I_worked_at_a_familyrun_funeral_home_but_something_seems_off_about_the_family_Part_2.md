@@ -91,7 +91,7 @@ They shoved me into the dimly lit room, filled with large glass tanks, each cont
 
 “You'll get a chance to find out what happened to the last guy that worked here,” Fergal added, his tone devoid of emotion.
 
-As they opened the lid of the tank, a grossly deformed creature, emerged from the murky water. 
+As they opened the lid of the tank, a grossly deformed creature that was neither dead nor alive emerged from the murky water. 
 
 "Let us introduce you to our employee of the month," Patrick said as he let out a devious laugh. 
 
