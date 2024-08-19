@@ -4,6 +4,10 @@ Life's not all beach parties and boardwalk games, though. At home, things have b
 
 Despite being on the swim team since middle school, the training was brutal. The Atlantic isn’t your friendly neighborhood pool. It’s wild and unpredictable. Coach drilled us hard on rescues in rough surf, first aid until we could wrap bandages in our sleep, and the dreaded 500-meter swim against the clock. I finished every session with my muscles screaming and my lungs burning, tasting salt on my lips, whether from sweat or the sea, I couldn't tell.
 
+Being a lifeguard has its perks. The view from the stand is unbeatable—miles of ocean, spectacular sunrises, and a front-row seat to the world waking up. The community gives respect, too. You're seen as a local hero, whether you’re rescuing a lost kid or treating a jellyfish sting.
+
+Plus, local shop owners often toss free food and drinks our way, a nod to the hard work and long hours we put in on the beach. It's a small town perk that never gets old.
+
 Up in the watchtower, I lean back in the creaky wooden chair that’s seen better days, my eyes scanning the horizon where the sky meets the sea. It’s a slow day, the kind that falls in the lull between the fireworks of July 4th and the last hurrah of Labor Day. The beach isn't deserted, but it's not the wall-to-wall blanket mess of high season either. A few families dot the sand, kids building sandcastles and chasing waves, while a couple of older tourists brave the chilly water with tentative steps.
 
 The radio crackles occasionally with chatter from the main station, but mostly, it's just the cry of seagulls and the distant laughter of kids. I'm halfway through scanning my usual zone when I hear a voice from behind me.
@@ -236,6 +240,6 @@ As she drives away, I watch until her car is just a speck on the horizon, the ro
 
 I stroll over to the dunes with my hands in my short pockets, my feet sinking slightly into the warm sand. The sun is high enough now that its rays feel like gentle fingers, not yet the pressing palm of midday heat. I climb to the top of a dune and sit down, pulling my knees close. From here, I have a perfect view of the Atlantic, stretching out endless and deep.
 
-The shore is peaceful today, deceptive in its calm. Families are arriving, setting up umbrellas and laying out blankets, kids running towards the waves with shrieks of delight.
+The Jersey Shore is peaceful today, deceptive in its calm. Families are arriving, setting up umbrellas and laying out blankets, kids running towards the waves with shrieks of delight.
 
 A part of me keeps scanning the horizon, half-expecting to see that monstrous jaw breach the [surface](https://new.reddit.com/r/nosleep/comments/1d3diim/a_killer_gave_us_a_list_of_instructions_we_had_to/) [again](https://new.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/).

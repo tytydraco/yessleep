@@ -3,12 +3,11 @@ If you haven't read the first part I recommend it.
 
 I am still moving into my new place, except the place seemed to have come with a surprise guest. 
 
-I walked over to my fridge and right as I open it, I see giant spiders run out and jump onto my face and around my hands.
+I walked over to my fridge and right as I open it, I see giant spiders run out and jump onto my face as they swarm around my hands.
 
-Suddenly I'm swarmed with them.
+Suddenly I'm overwhelmed with them.
 
-I scream and immediately get to dusting myself off. Knocking over a bag near me, I feel them running all around me, the masses 
-One went in my nose and I started slapping my nose with my hand and try to blow it out.
+I scream and immediately get to dusting myself off, frantically. Knocking over a bag near me, I feel them running all around me, the masses one went in my nose making me flinch, I slap my nose with my hand and try to blow it out.
 
 That was until I heard laughter from the corner, the feeling of the little spiders and my clogged nose all went away.
 
