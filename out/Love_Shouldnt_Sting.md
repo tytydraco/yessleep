@@ -52,7 +52,7 @@ I launched one of the kitchen chairs across the room. It struck the stainless st
 
 “Oh! Now you care?! Fuck it, too little, too late. I’ll just starve and go to bed!”
 
-Something whooshed by my left ear. It sounded like a horsefly, but louder; that buzzing, electric clipper-like drone made my neck hairs stand up. Something cold landed on the back of neck, followed by searing pain. I instinctively swatted at it. The yellow and black blur zipped by my head and flew across the room. 
+Something whooshed by my left ear. It sounded like a horsefly, but louder; that buzzing, electric clipper-like drone made my neck hairs stand up. Something cold landed on the back of my neck, followed by searing pain. I instinctively swatted at it. The yellow and black blur zipped by my head and flew across the room. 
 
 I looked up at the ceiling light and saw three more wasps circling. They then turned almost in unison and swooped down at me. I ducked and ran out of the kitchen. 
 
@@ -68,7 +68,7 @@ Katie looked around the room, at the window, at the light fixture where more and
 
 “Tell me when and I’ll turn it on!”
 
-I positioned the vacuum hose and shouted, “now!” She turned the vacuum cleaner on, and I started vacuuming up the little fuckers, catching them mid flight in the vacuum stream, sending their little bodies hurtling inside the hose, their hard carapaces bouncing around in the tube. I positioned the vacuum tool over the sash and sucked up at least another twenty or so, then pushed the lower sash down until it seated properly, closing off the gap. Outside on the window, dozens of wasps gathered, their angry droning, their beating wings and clawing feet creating a pitter patter against the glass like demonic rainfall. And then, just as quickly as they had arrived, they left, nearly all at once. Katie and I just stared at each other.
+I positioned the vacuum hose and shouted, “now!” She turned the vacuum cleaner on, and I started vacuuming up the little fuckers, catching them mid flight in the vacuum stream, sending their little bodies hurtling inside the hose, their hard exoskeletons bouncing around in the tube. I positioned the vacuum tool over the sash and sucked up at least another twenty or so, then pushed the lower sash down until it seated properly, closing off the gap. Outside on the window, dozens of wasps gathered, their angry droning, their beating wings and clawing feet creating a pitter patter against the glass like demonic rainfall. And then, just as quickly as they had arrived, they left, nearly all at once. Katie and I just stared at each other.
 
 —
 
@@ -196,8 +196,8 @@ That’s when I noticed some stuff in the room was missing. Katie’s acoustic g
 
 I pulled out my phone and fumbled with the fractured screen. I clicked on her number. Straight to voice mail. I sat down on the sofa and stared at the wall. 
 
-The wasps would be back soon. And they would finish me off. I almost prayed that they would.
+The wasps would be back soon. I sat and waited. 
 
-But the wasps didn’t come that night.
+But the wasps never came that night.
 
 They haven’t come back since. 
