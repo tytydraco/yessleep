@@ -296,6 +296,8 @@ Something yinz need to know is that Orion will have to do some mutual aid for an
 
 I’ll fill yinz in when I can. We're making the journey out tomorrow. And I’ll have to make it back before my evil fairy godfather decides to turn me into a pumpkin. 
 
+Update: First day of sword training. Also, [we're hiring. ](https://www.reddit.com/r/nosleep/s/fsxMLDglMG)
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
 

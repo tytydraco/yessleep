@@ -91,7 +91,11 @@ They shoved me into the dimly lit room, filled with large glass tanks, each cont
 
 “You'll get a chance to find out what happened to the last guy that worked here,” Fergal added, his tone devoid of emotion.
 
-They pushed me toward an empty tank, but before they could force me inside, I lashed out, kicking Fergal in the knee. He stumbled, loosening his grip on me, and I took the opportunity to break free. I bolted for the door, my heart pounding in my chest.
+As they opened the lid of the tank, a grossly deformed creature, emerged from the murky water. 
+
+"Let us introduce you to our employee of the month," Patrick said as he let out a devious laugh. 
+
+They pushed me toward the tank, but before they could force me inside, I lashed out, kicking Fergal in the knee. He stumbled, loosening his grip on me, and I took the opportunity to break free. I bolted for the door, my heart pounding in my chest.
 
 “Get him!” Mr. Eddison’s voice roared from behind me.
 
@@ -121,9 +125,9 @@ As I reached the door, I heard Allison’s voice behind me. “Phillip, wait!”
 
 I turned to see her standing in the doorway, her once vibrant eyes now dull, her skin pale and lifeless. “Please don’t leave me here,” she whispered, her voice cracking with desperation.
 
-For a moment, I hesitated. But then I remembered the bodies in the tanks, the horror of what this family had done—and what they planned to do to me. I couldn’t risk it. I couldn’t trust her.
+I watched as the life drifted from her face before she collapsed to the floor. I tried lifting her cold, lifeless body from the ground, but she was gone. I remember first seeing her laid out on the cold metal slab and then I thought about what Debra said to me and knew there was nothing I could do for her. 
 
-“I’m sorry, Allison,” I said, choking back the guilt. “I can’t.”
+“I’m sorry, Allison,” I said, choking back the guilt. 
 
 With that, I pushed open the door and fled into the night. The sound of shouting and banging faded behind me as I ran as fast as I could, not daring to look back. My heart pounded and my breath came in ragged gasps, but I didn’t stop until I was far from the funeral home, the Eddison family, and their horrifying secrets.
 

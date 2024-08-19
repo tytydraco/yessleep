@@ -40,7 +40,7 @@ I heard a *CRACK* and saw the corpses head bend back at a 90 degree angle.
 
 "Fuck, open the storage room! the closet over there!" John said as I dragged us towards it. I wretched it open and started pulling John in but the corpse was right behind us.
 
-"Hey, in show business they always told me to *break a leg!!*" the corpse said as he slammed the door on Johns leg until I heard a *snap*.
+"Hey, in show business they always told me to *break a leg!!*" the corpse said as he repeatedly slammed the door on Johns leg until I heard a *snap*.
 
 John screamed as I pulled him in and locked the door behind us.
 
