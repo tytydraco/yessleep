@@ -1,5 +1,5 @@
 If you haven't read the first part I recommend it.
-[First Part](https://www.reddit.com/r/nosleep/comments/1er20ve/my_ghostly_intruder/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
+[All links My Ghostly Intruder](https://www.reddit.com/user/SnooHedgehogs1045/comments/1evpy7q/my_ghostly_intruder_all_links/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
 
 I am still moving into my new place, except the place seemed to have come with a surprise guest. 
 

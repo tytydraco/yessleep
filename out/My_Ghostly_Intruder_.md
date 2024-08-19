@@ -243,3 +243,5 @@ This teen was a ghost, a spirit, whatever else words you can use to describe it.
 
 "Do I spook you." 
 "No,"  I said defensive again but now I wasn't really sure.
+
+[All links My Ghostly Intruder](https://www.reddit.com/user/SnooHedgehogs1045/comments/1evpy7q/my_ghostly_intruder_all_links/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
