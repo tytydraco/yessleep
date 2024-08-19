@@ -1,3 +1,5 @@
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1evs7yh/i_escaped_the_sacrifices_in_the_shadow_of_mount/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 It all happened so fast, just a few days into a camping trip and suddenly I was in a nightmare. In the chaos and aftermath of the event I keep thinking, I should be dead now. I should have died several times over. I don't know what cruel twist of fate or ironic karma has led to me being here and alive, while so many of my friends have been lost.
 
 Lost....... can I really say lost? Deep down I fear they are not just lost.
@@ -5,8 +7,6 @@ Lost....... can I really say lost? Deep down I fear they are not just lost.
 My hands tremble even now, as I remember the madness of those nights in the forest. Men and monsters, or at least what looked like monsters lurk in those woods. I still doubt everything I saw in that haze of terror. I don’t know where they are now, I barely escaped, and I don’t know if I can bring myself to go back. I don’t know if anything could convince me to reenter that hideous place and look again upon that edifice of horror.
 
 I'm sorry, I need to compose myself; I will try my best to recount the tale of what happened to my friends and I that night, over a year ago on May Eve, in the shadows of Mount Deception.
-
-
 
 My friends Kasey, George, Mark, Rachel, Joanna and I were setting out on a camping trip to the Olympic National Forrest in Washington. We were going to be journeying through the forest from campground to campground, hiking, climbing and generally having a great time outdoors for almost the entire week of late April.
 

@@ -46,7 +46,7 @@ John screamed as I pulled him in and locked the door behind us.
 
 "Ooooh tough crowd I see! Well, have you heard the one about the priest, the rabbi, and the grizzly bear?" The corpse continued on from outside.
 
-"Jesus Christ, I don't know what's going on... but was his standup this bad?" I asked?
+"Jesus Christ, I don't know what's going on... but was his standup this bad?" I asked.
 
 "Hey, I never said he was good" John replied, wincing as he grabbed his leg.
 
@@ -64,7 +64,7 @@ I swung the door open, ready to pounce, but the fucking thing wasn't there. I lo
 
 "Wow, this is c-c-colder than my ex, that's not even a joke, just facts" the corpse said.
 
-"Riga mortis! Spray the fucker again! I bet it's setting in faster with this" I heard John scream as he chucked the extinguisher towards me. I picked it up off the floor and emptied its contents onto the corpse. It began to say something but it's jaw froze in place. I picked up the fire axe and began hacking at its neck.
+"Rigormortis! Spray the fucker again! I bet it's setting in faster with this" I heard John scream as he chucked the extinguisher towards me. I picked it up off the floor and emptied its contents onto the corpse. It began to say something but it's jaw froze in place. I picked up the fire axe and began hacking at its neck.
 
 I cut the corpse into 6 pieces, separating the limbs and head from the body. Me and John decided the best way to deal with this mess was cremation. The family was upset as they had requested an open casket. We managed to talk them out of suing us into oblivion in exchange for the nicest urn money could buy, all on the house.
 
