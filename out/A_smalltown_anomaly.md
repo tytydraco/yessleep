@@ -1,0 +1,25 @@
+I live in a small fishing town in the south of Alaska right on the coast, near Dillingham its small and cosy but hasn’t really caught up with modern times, it doesn’t even show up on most maps, it only has around 800 residents and most are families that settled here during the gold rush. It has the basic amenities power, running water, cell service but not really any computers in fact I work at the towns general store that is home to one of only two computers in town, and the only place that has internet access. That’s how I’m righting this I found this site online where I thought people would understand or at least give me some sort of guidance as to what is happening and what to do. Once a year, every year, someone goes missing.
+
+ 
+
+Now its not uncommon for people to get lost in the snow especially in blizzards and stuff but this isn’t that it always happens on the same day every year, the 21^(st) of august. Its sort of an unspoken thing among the elders that someone will go missing, but no one talks about it, if you ask, they’ll give you some lame excuse or pretend they don’t know what you’re talking about. Something is happening to these people and I’m going to be the one to figure out what, I’m not a detective or anything I’m just a 23-year-old kid who’s seen to many people disappear.
+
+ 
+
+The first I can remember was, when I was 6, Mr Jenkins he was a schoolteacher I had for most of my school classes, he was late 60s early 70s, he was apparently a bigtime schoolteacher at a big university back in New York, but he moved out here when his wife died. He was firm but fair he was happy to put you in your place when you were bad, but happy to have a joke around when the time called for it. He disappeared the same as everyone else he went home, went to bed, then when we woke up in the morning it was like he never existed. We showed up to school the next day and our other teacher Mrs ire came into the class and announced that Mr Jenkins had gone back to New York in the middle of the night, and she would be taking over the rest of our classes for the time being, but no one believed her. That wasn’t the disappearance that made me want to investigate though, that came later.
+
+ 
+
+When I was 14 me and my best friend and next door neighbour Tyler snuck out of the house the night of the 21^(st) we went to watch the northern lights they can only be seen late august to April between 11pm and 2am and we wanted to be the first to see them for the year, we had been sneaking out every night for the last week trying to catch it first, we went to the edge of town where the logging camp is to sit on the tin roof of the administrators office, it was the perfect view, miles of nothing but tree stumps we sat and we watched and we waited, finally they arrived, like waves of a green and purple ocean, flowing through the sky we must have been there for an hour before Tyler declared he was going to take a leak.
+
+ 
+
+He jumped down from the tin roof and just as he was about to hit the ground there was a flash of light in the sky, like when lightning strikes but all around it was enveloping everything it almost moved in slow motion, I could see it surrounding and eventually ingulfing me in a blanket of blinding light. Then within the blink of an eye it was gone, I was just looking at the northern lights again I shouted down to Tyler to ask if he saw that, but he didn’t answer, I asked again but nothing, no response, not even a peep. I jumped down expecting him to jump out to scare me, nothing again I looked around for him, but I didn’t see anything that’s when I noticed that there were no boot prints on the floor next to mine, like he had never even landed. I searched for him the rest of the night, but I never found him not even a trace the loggers who got up early to come to work found me out in the snow on my own delirious with fear and panic and half frozen to death.
+
+ 
+
+I spent the next 3 weeks in the medical centre in a catatonic state, they had to fly in a expert from the main land to come and do an assessment, when I finally came around I tried to explain what happened but everyone just pretended Tyler never existed, even his parents who I could tell had been crying, put on a brave face and said that they’ve never had a son only their daughter Brittney. I felt like I was going insane, at that moment I decided to be the one to figure out what was happening in this town and stop it, I stopped worrying and started preparing. I read every book I could find from monsters to gods, news papers from the last 50 years to find any missing persons and then when the general store got internet I begged and pleaded for a job there so I could use it whenever I needed.
+
+ 
+
+Now its 2 days before the night of the next disappearance I will find out what happened and I will stop this from happening again, which is why I’m writing this I need some help I am still unable to figure out why this is happening or how to stop it and I need your help, please this must stop. I’ll take all your ideas I’ll try anything please help me save a life.
