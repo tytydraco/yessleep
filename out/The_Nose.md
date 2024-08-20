@@ -74,7 +74,7 @@ Joe just looked at me confused. "What the hell?"
 
 "Yeah," I replied, "there's something wrong with her. We better keep an eye on her the rest of the night."
 
-Everything else seemed normal about her until dinner was served. Joe and I sat next to each other. We could see Sheila well from where were were as she was seated at the far end of the table.
+Everything else seemed normal about her until dinner was served. Joe and I sat next to each other. We could see Sheila well from where we were as she was seated at the far end of the table.
 
 I didn't have to worry about preparing or serving dinner because my wife was playing cook and waiter as well as host. She wanted it that way. I'd gotten in her way before trying to help so she told me to just act like a guest and if she needed me for something she'd let me know. This was perfect because I could observe Sheila uninterrupted.
 
