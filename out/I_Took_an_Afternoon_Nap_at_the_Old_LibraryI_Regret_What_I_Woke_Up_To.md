@@ -14,7 +14,7 @@ I should have stopped, but I couldn’t. The story continued, recounting how the
 
 I shut the book.
 
-"*Well, that's was weird.*" I thought to myself after a good yawn. The kind of yawn that shuts you out from the world for a few seconds. As I'm the only person in this library on a Sunday and had a filling lunch earlier, I decided to take a nap. I made sure to look like I was reading a book, a skill I developed in middle school. I remembering falling asleep quickly.
+"*Well, that was weird.*" I thought to myself after a good yawn. The kind of yawn that shuts you out from the world for a few seconds. As I'm the only person in this library on a Sunday and had a filling lunch earlier, I decided to take a nap. I made sure to look like I was reading a book, a skill I developed in middle school. I remembering falling asleep quickly.
 
 In the dream, I felt sudden terror as I saw myself in the middle of the same library. I don't remember standing up and walking away from my desk. Driven by a mix of fear and compulsion, I walked through the labyrinth of shelves until I saw it—the small, narrow door at the end of an aisle I knew had been empty, just waiting to be found as said in the book. The wood was ancient, the paint peeling, yet it called to me, pulling me forward with an irresistible force. I grasped the cold, brass handle and pushed it open.
 
@@ -42,7 +42,7 @@ I was standing in the main hall of the library, the hidden door nowhere to be se
 
 People were moving through the aisles, but they didn’t see me. I tried to speak, to call out, but no sound came. It was as if I didn’t exist. I rushed to the nearest patron, waving my hands in front of their face, but they walked right through me as if I were a ghost.
 
-In a way, I suppose I was. 
+In a way, I suppose I was.
 
 As I stood there, helpless, I heard it—the humming. It was faint at first, barely audible over the sounds of the library, but it grew louder, clearer, until I could make out the words:
 

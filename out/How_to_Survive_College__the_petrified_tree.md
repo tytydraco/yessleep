@@ -173,3 +173,5 @@ I stopped cold.  This.  This was why he was so keen on me killing the tree.  
 Then he patted me on the shoulder and walked off, hands hooked in his pockets, whistling tunelessly.  Leaving me to find my own way back to my apartment.
 
 This might be a college town and not much else but it still had people doing rideshares and I had my cellphone on me, so it wasn’t all that hard to get home.  I was still angry enough to be offended by every little thing he did, though.  My anger faded shortly after I stepped into the apartment, replaced by a bone-deep exhaustion, and I went to my room and collapsed into a [deep](https://alderrayne.com/) [sleep.](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1ewjtk1/how_to_survive_college_i_really_dont_know_how_to/)
