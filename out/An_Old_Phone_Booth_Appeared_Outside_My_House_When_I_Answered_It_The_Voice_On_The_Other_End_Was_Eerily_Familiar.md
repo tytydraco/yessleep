@@ -1,4 +1,4 @@
-I wasn’t sure when or who put it there, but a phone booth appeared outside my house. I hadn’t seen one in years and thought they were phased out. I wasn’t even sure what use it would be when I always had my phone on me and why was it outside my house.
+I wasn’t sure who put it there, but a phone booth appeared outside my house. I hadn’t seen one in years and thought they were phased out. I wasn’t even sure what use it would be when I always had my phone on me.
 
 I didn’t give it much notice until It started ringing late one night. I had no intention of getting out of bed to answer it. The ringing lasted all night and only stopped when the sun started to come up.  
 
@@ -76,7 +76,7 @@ When I answered Maryann was crying on the phone, and I could hear a man shouting
 
 “What's happening, Maryann? I asked. 
 
-“My Dad is drunk and he’s fighting with my mom.” I’m scared, Suzan, what will I do?” she asked as her voice trembled with fear. 
+“My dad is drunk and he’s fighting with my mom.” I’m scared, Suzan, what will I do?” she asked as her voice trembled with fear. 
 
 “You need to put down the phone and run to your safe place.” 
 
@@ -100,7 +100,7 @@ I opened my old diary and flipped the pages. I remembered the date clearly becau
 
 I couldn’t explain what was happening, but I could clearly remember writing it, but I couldn’t remember talking to Suzan, or in this case, myself. 
 
-I flicked the page to a passage I wrote the night my life changed forever. It was the night my Dad killed my mother and tried to kill me. For the little girl on the phone, that date was tomorrow night. 
+I flicked the page to a passage I wrote the night my life changed forever. It was the night my dad killed my mom and tried to kill me. For the little girl on the phone, that date was tomorrow night. 
 
 This time I waited in the phone booth for the phone to ring. 
 
@@ -118,9 +118,9 @@ I couldn’t help but smile.
 
 “My dad has been acting even stranger today and my mom has been crying all day. I think she needs to go to the hospital.” 
 
-Suddenly vivid memories of that night invaded my mind. Right before my Dad went crazy, I remembered him singing “Tonight the Night" by Neil Young as he wandered through the house looking for my mother. 
+Suddenly vivid memories of that night invaded my mind. Right before my dad went crazy, I remembered him singing “Tonight the Night" by Neil Young as he wandered through the house looking for my mother. 
 
-Just like all those years ago, I could hear my Dad sing that awful song through the phone; I knew Maryann needed to act now. 
+Just like all those years ago, I could hear my dad sing that awful song through the phone; I knew Maryann needed to act now. 
 
 “Maryann, I need you to be brave one more time. This time you need to go outside and run to a neighbor's house and beg them to call the police. Tell them your dad is killing your mother.” 
 
@@ -128,7 +128,7 @@ Just as she was about to say something, I screamed at her to run before the phon
 
 I went back to the house and picked up my old diary. As I flicked to the next page and read the next passage I was suddenly overcome with emotion. This time, it was a happiness I’d never felt before. 
 
-“I was a brave girl last night. I ran to the neighbors just like Suzan asked and the police came and arrested my Dad. I’m at my Aunt's now while my Mom gets better at the hospital.”
+“I was a brave girl last night. I ran to the neighbors just like Suzan asked and the police came and arrested my dad. I’m at my aunt's now while my mom gets better at the hospital.”
 
 That night I dreamt of a life I never got to live. It was filled with happy memories of my mother as she got older. 
 

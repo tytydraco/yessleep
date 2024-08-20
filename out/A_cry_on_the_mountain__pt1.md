@@ -1,6 +1,3 @@
-The following recollections may seem like a disjointed series of memories, but I assure you that they will make sense to you in the end, just as they make sense to me almost two decades after moving away from where I grew up. That said, I will try to keep the ramblings to a minimum and the details as organized as possible to still portray the events as accurately as I can remember.
-
-
 • In the woods
 
 I grew up in a quiet town on the lower end of the Appalachian mountains as part of a small, reserved christian family. My parents, two sisters (Mary and Hope), and my brother (Paul) to be exact.
