@@ -54,13 +54,13 @@ I moved away from the kitchen and found the staircase leading upstairs to where 
 
 **You will learn that you never have to endure stress again, you won't feel anger or sadness, only luck. And there's only one thing you need to do in exchange.**
 
-**Never question** ***why*****.** 
+**Never question** ***why.***
 
 --
 
 I called my Mum to tell her that we'd arrived safely. She'd been a little suspicious of the whole thing at first and when I told her about the letter it didn't exactly ease her mind.
 
-My aunt had moved away when she was in her late twenties, she was a good bit younger than my mother. After she moved to this town, they lost more and more touch and I believe my mother was afraid the same thing would happen to me. She hadn't even known that her own sister was sick.
+My aunt had moved away when she was in her late twenties, she was a good bit younger than my mother. After she moved to this town, they lost more and more touch and I believe my mother was afraid the same thing would happen to me. She hadn't even known that her own sister was sick until it was too late.
 
 I convinced her that we would only be staying for a little while and that I had every intention to simply sell the house and get back home.
 
@@ -74,11 +74,11 @@ When I got down, Ian was already on his way to the door. I walked up next to him
 
 "Welcome!" They all said in unison. Two of them were women, and three were men and they did all look very different but somehow still similar. They had the same posture, the same cheery grin, and similar sets of workout clothes that I immediately envied. 
 
-The tallest of them stretched out his arms, gesturing down for us to take the basket.
+The tallest of them stretched out his arms, gesturing us to take the basket.
 
-"Wow, is this for us?"
+"Wow, is this for us?" I asked.
 
-The basket was filled with chocolates, bath oils, lotion, fruits, and even more stuff. 
+The basket was filled with chocolates, bath oils, lotion, fruits, and a bunch of other fancy looking items. 
 
 "Well, yes of course," one of the women said as she linked arms with the tall guy. She had golden hair that shimmered in the warm sun and freckles all over her cheeks. "We saw you arriving yesterday but didn't want to bother you on your first day. You're Eleanor, right?"
 
@@ -96,13 +96,13 @@ The others introduced themselves as well but I immediately forgot their names ag
 
 The five neighbors exchanged a look I couldn't quite place. It almost appeared like confusion.
 
-"But I didn't find any personal stuff from my aunt, I thought we'd have to pack her stuff up or something-,"
+"But I didn't find any personal things from my aunt, this used to be her home. I thought we'd have to pack her things or something-,"
 
 "Stop right there, honey," Lea interrupted me. She grabbed my wrist and squeezed it so hard I thought it might bruise. "Don't question it, just enjoy." She winked at me and added, "I hope we become marvelous friends."
 
 "Oh well, we're actually not planning to stay very long," Ian said. 
 
-They all started laughing - hysterically.
+They all started laughing hysterically.
 
 One of the guys from the back wiped away a tear and said "You'll change your mind.'
 
@@ -126,7 +126,7 @@ I picked up the first one that looked interesting from the shelf and flicked thr
 
 "Must be a different language," I mumbled to myself. 
 
-I picked up the next one but it was the same, and the one after that and the one after that. All these books were simply decorations I realized and laughed. What a fun way to fill a shelf! I almost turned away to find another thing to do when one specific book caught my attention. It was tiny, smaller even than my palm, and didn't fit in with all the rest, it almost disappeared in between the others. 
+I picked up the next one but it was the same, and the one after that and the one after that. All these books were simply decorations I realized and laughed. What a fun way to fill a shelf! I almost turned away to find another thing to do when one specific book caught my attention. It was tiny, smaller even than my palm, and didn't fit in with all the rest, it almost disappeared in between them. 
 
 I pulled it out with my fingernails and when I opened it up, a piece of paper, folded multiple times, fell out of it. 
 
@@ -140,7 +140,7 @@ I picked it up from the ground and opened it only to realize that there was writ
 
 *Two men appeared next door, they went into Trisha's house and came back out with a big black plastic bag.* 
 
-*Nobody here grows old.*
+*Nobody here gets to grow old.*
 
 *I remembered someone. Lucy. And her little girl. What was her name again?* 
 
@@ -150,7 +150,7 @@ The paper held only one more sentence after it. 
 
 *I will be in the black bag soon. I know it.* 
 
-Aunt Maggie had written these, probably shortly before her death and if the content wasn't strange already, I noticed that the handwriting looked very different from the one of the letter I found on the first day.
+Aunt Maggie had written these, probably shortly before her death and if the content wasn't strange already, I noticed that the handwriting looked very different from the one on the letter I found on the first day.
 
 --
 
@@ -180,7 +180,7 @@ But as soon as I saw the two people in our living room, something snapped inside
 
 "Mum? Dad? What are you doing here?"
 
-"Eleanor!" My mother got up from the sofa and hugged me so tight that all the air left my lungs. "What do you mean? You sent me all those strange texts and you wouldn't answer any of my calls, we got worried about you!" 
+"Eleanor!" My mother got up from the sofa and hugged me so tight that all the air left my lungs. "Why do you think we're here? You sent me all those strange texts and you wouldn't answer any of my calls, we got worried about you!" 
 
 "What texts?" Ian asked and I shrugged. I had no idea what she was talking about.
 
