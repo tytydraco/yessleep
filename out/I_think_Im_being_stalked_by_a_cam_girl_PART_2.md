@@ -1,4 +1,4 @@
-Part 1- [https://www.reddit.com/r/nosleep/s/0FE2xzBVra](https://www.reddit.com/r/nosleep/s/0FE2xzBVra)
+
 
 Firstly I’d like to thank everyone who commented on my previous post. Your encouragement and advice regarding the situation were greatly appreciated, but I think the situation has outlived these solutions. Rebecca69XOXO has plagued my life for the past 6 years. From the messages she sends, she’s clearly a chatbot. At least that’s what I thought. Some of you pointed out that it may be a person. A “troll” of some sort. I ask why? Why me? Who would target a 14-year-old and then torment them for the next 6 years? Who would commit every waking hour trying to get him to click a link? A deranged person that’s who. As easy as it is to point fingers at a supposed culprit who’s probably suffering from some sort of mental illness, I don’t think this is the case.
 
@@ -125,3 +125,7 @@ I received another message from Ian.
 I fix computers same day and to an exceptional standard, click the link to visit my page :)
 
 He's sent it over a 100 times. My heart skips a beat every time I see a notification come up or hear my phone buzz. It's too much of a coincidence. Rebecca, the dream, Ian. Ian. I can't do it. The cyber police won't get involved since it's just a bot and the police would never believe my theory. I think Ian clicked the link.... and I think the virus killed him. I just pray Rebecca's tricks don't catch me out. I can't just quit the internet either. The internet is my life now. It's my education, my social life, and it's everywhere. Links to report suspicious activity on trains, links to get a discount at McDonalds, links to join the gym, links, links, links! I don’t know what to do. It sounds weird to say, but it feels biological. It's relentless. It's "ability to learn "a mutation of some kind, but I don't know. I think I'm just losing it and grabbing at clues that aren't really there. I'm terrified and I need your help.
+
+Part 1- [https://www.reddit.com/r/nosleep/s/0FE2xzBVra](https://www.reddit.com/r/nosleep/s/0FE2xzBVra)
+
+Part 3- https://www.reddit.com/r/nosleep/s/iAG2gQl1sN

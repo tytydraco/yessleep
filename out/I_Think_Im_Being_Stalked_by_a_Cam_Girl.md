@@ -188,3 +188,5 @@ Hey, I’m going kayaking this weekend. Maybe you can show me the ropes ;)
 Attached to the message was a link. My stomach dropped and I felt like I was going to be sick. My hands were drenched in sweat as I shut down the computer. I don’t know what’s happening. I can’t trust anyone online anymore. Exam links sent by my University, Google Docs sent by my peers in group projects, and Facebook links sent by my parents, I can’t trust them. This is really starting to affect my life in a way I could have never anticipated. I need help, and I need it now.
 
 Part 2- https://www.reddit.com/r/nosleep/s/zbguS17TtF
+
+Part 3- https://www.reddit.com/r/nosleep/s/iAG2gQl1sN
