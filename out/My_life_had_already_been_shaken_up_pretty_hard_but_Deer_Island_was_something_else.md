@@ -28,7 +28,7 @@ From this distance, I could already smell some bonfire smoke… and getting clos
 
 I stepped out my old Honda Civic, onto the sand-drenched asphalt. 
 
-A light crunch under my jet black nonslip shoes was cut off, when stopped hearing sounds of a guitar and maybe, a conga, from a distance.
+A light crunch under my jet black nonslip shoes was cut off, stopped, when I began hearing sounds of a guitar and maybe, a conga, from a distance.
 
 I followed the trail of music.
 
@@ -274,7 +274,7 @@ I could see, faintly, the mantle of this creature fused with the human flesh and
 
 We turned towards the moonlighters with a ferocity I was wholly unaware of, being a follower of ahimsa(non-violence) from birth.
 
-Our being screamed with a might, that Samson likely screamed on the day his grew back and he felled the pillars of the temple.
+Our being screamed with a might, that Samson likely screamed on the day his hair grew back and he felled the pillars of the temple.
 
 I kept back our hungry urges for now… but the Moonlighters ran back in a terror and fled Deer Island.
 
