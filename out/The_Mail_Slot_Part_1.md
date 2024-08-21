@@ -2,7 +2,7 @@ The weather has a slight chill to it, the trees are now adorned with leaves red 
 
 The post office in comparison to the one in the city is like putting a shed and a Amazon warehouse side by side; clearly the one here in Hibernia is very small. We are about 4 Mail Carriers in the whole town, me being the newest. As I clocked in I was approached by Wilkins; he is the mail carrier tasked with giving me instructions since this is my first day working at Hibernia.
 
-**Wilkins:** “Vazques, right?”
+**Wilkins:** “Vazquez, right?”
 
 I should have probably mentioned this in the beginning, My name is Jason Vasquez and in the post office people refer to us by our last names.
 
@@ -34,7 +34,7 @@ The day is going as Wilkins said it was be; straightforward. With not much work 
 
 As I continue my deliveries, one house in particular catches my eye. This is the one mentioned in the yellow slip Wilkins handed to me. Unlike the other houses, this one stands alone, abandoned and decaying. Its windows are dark, the glass cracked or missing, and the paint on the wooden siding is peeling away like dead skin. The roof seems to sag in the middle, and the front porch leans precariously as if it might collapse under the weight of a single step. Weeds and vines have overtaken the yard, creeping up the walls and choking the remnants of a broken-down fence. The front door is splintered and in the middle lies what seems to be a rusted mail slot that seemed it hasn't even been touched in centuries.
 
-**Vasquez:**“This is definitely the abandoned house...”
+**Vasquez:** “This is definitely the abandoned house...”
 
 Wilkins stated that I can skip this house since there is never mail going to it and frankly there wont be any outgoing mail to get from it. While crossing by the property, a sudden cold breeze blows though the trees, but this breeze seems to carry a sense of unease. The air feels heavier here, as I stare at the abandoned house I get the feeling that its very presence holds memories of the past, secrets buried beneath layers of time. What was more apparent was the sudden lack of noise; There is a quiet stillness that makes my skin crawl, a feeling that you're being watched, but I know for certain the house is empty. I shake off this strange feeling and eagerly decide to walk away to continue my duties.
 
@@ -48,17 +48,17 @@ Curiosity mixed with an uneasy feeling settle in my gut, I paused for a minute t
 
 I reach the front of the house carefully stepping on the decaying wooden patio creaking noises as I climb its steps. I reach the front door, it is as it always is a splintered wooden door with a rusted mailbox in the middle about chest high. With trembling fingers, I gently tugged the letter free. The envelope looks old, yellowed with age, the most strange thing is the writing. The address seems to be written in a shaky, almost childlike scrawl. There was no stamp, only a name that can't be made out.
 
-**Vasquez:**“This is strange...”
+**Vasquez:** “This is strange...”
 
 The return address seems to had long since faded into illegibility. Clearly this letter has been hanging there forever, but why did I notice it now? I shrugged and took the letter with me. But then something happened..
 
-As I turned to head back to the truck, the unusual cold breeze I felt the first time returns, then, a creaking sound froze me in my tracks. The unmistakable groan of the mail slot swinging open echoed in the quiet, dead air. My heard is pounding in my chest, my breath hitched. I stood still, ever nerve in my body screaming at me to run, but something else is seemingly urging me to turn around.
+As I turned to head back to the truck, the unusual cold breeze I felt the first time returns, then, a creaking sound froze me in my tracks. The unmistakable groan of the mail slot swinging open echoed in the quiet, dead air. My heart is pounding in my chest, my breath hitched. I stood still, every nerve in my body screaming at me to run, but something else is seemingly urging me to turn around.
 
 Then, a soft, unnatural sound broke the silence; a chattering noise, like someone clumsily mimicking the call of a cat. It was low and throaty, rising and falling in a way that sent a cold shiver down my spine.
 
 Fear Paralyzed me, I knew something was watching me from the open slot. Something that shouldn't be there. My mind started racing, imagining eyes; pale, hollow and hungry, peering at me from the darkness within the house.
 
-**Vasquez:**“Don't look back...”
+**Vasquez:** “Don't look back...”
 
 I whispered this to myself, my voice barely more than a breath.
 
@@ -66,13 +66,13 @@ After a few moments I managed to summon all my strength and dashed forward, not 
 
 I looked back
 
-The mail slow was closed, the door as silent as it had been when I first arrived. Nothing was there. I threw the truck into gear and sped away, the letter now resting on the passenger seat like a heavy weight. As I glanced at it again, a cold realization washed over me.
+The mail slot was closed, the door as silent as it had been when I first arrived. Nothing was there. I threw the truck into gear and sped away, the letter now resting on the passenger seat like a heavy weight. As I glanced at it again, a cold realization washed over me.
 
-**Vasquez:**“Vasquez... The name on the letter... its my name!”
+**Vasquez:** “Vasquez... The name on the letter... its my name!”
 
 I stopped the truck, with Shaky hands I tore opened the old envelope, and out slid a stack of old, faded Polaroid photos. My breath caught in my throat as I spread out the photos in my lap. The images were grainy and worn, but what was unmistakable was the subject:
 
-**Vasquez:**“That's... That's me...?”
+**Vasquez:** “That's... That's me...?”
 
 It was indeed me. The photos captured me as I walked across the property, each one taken from different angles, all seemingly from inside the house. In one photo it showed me standing looking at the house, this image must have been taken from the first day I delivered in that street.
 
