@@ -4,7 +4,7 @@ I never thought I would be the kind of person to give up my free will in a subtl
 
 It all began after my aunt passed away. We weren't very close, my mother and her had lost touch in the past years and so I was more than surprised to hear that I had inherited her house. A house I'd never even visited before. Not even for her funeral as she'd requested in her will that it should be held in the town where she and my mother were born. 
 
-Despite her generosity I never intended to move there, I believed I was too young to be living in my own house in a tiny town that was incredibly secluded. Instead, I asked my boyfriend to join me on the five-hour drive to check the place out and put it up for sale. 
+Despite her generosity I never intended to move there. I believed I was too young to be living in my own house in a tiny town that was incredibly secluded. Instead, I asked my boyfriend to join me on the five-hour drive to check the place out and put it up for sale. 
 
 As we drove past the sign that read *Welcome to Heaven* in big cursive letters, it was as if we'd stepped into the set of a movie. 
 
@@ -40,7 +40,9 @@ He pulled out a carton of milk, opened the lid, and smelled it. 
 
 "The stuff in here looks fresh."
 
-I joined him and saw the fridge full of produce, cheeses, and meats - Not a single thing rotten. Aunt Maggie had died a month ago.
+I joined him and saw the fridge full of produce, cheeses, and meats - Not a single thing rotten. 
+
+Aunt Maggie had died a month ago.
 
 "That's really odd," I whispered. 
 
