@@ -8,7 +8,7 @@ West Virginia. It was hotter than usual, without a whiff of wind. I was coming h
 
 It started with the radio. It  was playing that one Macklemore song I’d heard a hundred times over. The sound was cutting in and out in a quick staccato, then disappeared completely. I could hear cars honking up front as a line began to form. There was a sway in the trees, as if greater and greater pressure was being put on them. I could hear wind rushing against the left side of the car, forcing me to pull the other way to compensate. I closed the sunroof as a dust cloud blew past, staining the windshield.
 
-Then, a rumble. It sounded like thunder, but from the ground. Like a groaning bellow, growing louder and clearer by the second. As it reached its peak, I could see trees toppling over. A small Kia got pushed off-balance and swerved off the road. As the sound died down, the road devolved into chaos. Some were desperately changing lanes, others were stepping on the breaks. I got my door scraped as the car behind me sped past.
+Then, a rumble. It sounded like thunder, but from the ground. Like a groaning bellow, growing louder and clearer by the second. As it reached its peak, I could see trees toppling over. A small Kia got pushed off-balance and swerved off the road. As the sound died down, the road devolved into chaos. Some were desperately changing lanes, others were stepping on the brakes. I got my door scraped as the car behind me sped past.
 
  
 
