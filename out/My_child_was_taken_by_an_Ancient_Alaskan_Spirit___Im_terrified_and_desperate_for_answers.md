@@ -38,4 +38,3 @@ I’m terrified, watching my husband become a stranger, and I’m desperate to u
 
 Stay away from the Alaskan Triangle if you can. I wouldn’t wish this nightmare on anyone.
 
- Thank you for reading.

@@ -90,13 +90,11 @@ Maybe I just needed more of their juices.
 
 Gross why am I even thinking about this. 
 
-I run over a gate only to look back and see the zombie use the unhinged door next to the gate. 
+I run over to a gate and hop it seeing no way forward. Only to look back and see the zombie use the unhinged door next to the gate. 
 
 Why didn't I see that. 
 
-Gosh I need my calm back I feel my panic set in. 
-
-Then I almost met a arrow to the face if it hadn't been for a slight slip of my feet. 
+Gosh I need my calm back I feel my panic set in As I'm almost met in the face with a arrow if it hadn't been for a slight slip of my feet, I would've been a goner. 
 
 I looked up and saw a man holding a bow and arrow shooting with precision. 
 
@@ -134,9 +132,13 @@ I bet he is too. Hmm.
 
 We make it to our destination basically unharmed. 
 
-You see we get Internet reception still, we can brows the Internet, we even get electricity still. For some reason they hadn't turned those things off. 
+You see we get Internet reception still, we can browse the Internet, we even get electricity still. For some reason they hadn't turned any of that off. I could watch and post as much as I won't, but that was only a one way street. Almost like a firewall was in place for this town.
 
-Though it seemed like they could careless about our water. 
+I couldn't receive messages, I could only send them.
+
+Though it seemed like the government could care less about our water, that was turned off a while ago. We've been blending all kinds of fruits to take their water.
+
+Putting out buckets for when it rained. The whole nine yards anything to maintain positive water levels.
 
 Then I think back to our windmill farm, on second thought it might've been the windmills still giving us power. 
 
