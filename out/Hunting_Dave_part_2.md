@@ -75,3 +75,4 @@ Then it dashed at me again , But this time I got on my legs and jumped over it. 
 I defeated the creature , But I had no time to relax. I heard a "grrrrrr" sound behind me , I quickly looked back. Seems like Dave wasn't the type to be satisfied by one [offspring.](https://www.reddit.com/r/UnnaturalUniverse/s/ipsOMWkSkW)
 
 
+[Part 3](https://www.reddit.com/r/nosleep/s/gQiwq8WtIW)
