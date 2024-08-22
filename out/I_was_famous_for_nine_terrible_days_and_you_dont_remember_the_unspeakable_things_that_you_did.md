@@ -316,7 +316,7 @@ It is a non-existent place, as you’ll see if you Google the address, but my le
 
 On Monday morning, I caught the Royal Mail driver at the postbox. I asked him how he’d managed to deliver my letters to a location that did not exist, but the postal worker simply offered a frown. The puzzled man told me that he didn’t recall seeing any letters addressed to such a place. The postcode, he said, obviously did not exist.
 
-There returned that scraping churn in my gut, much like the one I’d felt when Heath Brandon’s pupils spun towards the abyss behind his eyelids. Yet again, however, dopamine drowned my fear. I was thrilled about the idea of my first real gig on Tuesday 7th November. The O2 Ritz in Manchester. An old, well-known venue, but a small one. A good starting spring for the rather more intimidating concerts to come.
+There returned that scraping churn in my gut, much like the one I’d felt when Heath Brandon’s pupils spun towards the abyss behind his eyelids. Yet again, however, dopamine drowned my fear. I was thrilled about the idea of my first real gig on Tuesday 7th November. The O2 Ritz in Manchester. An old, well-known venue, but a small one. A good starting spring towards the rather more intimidating concerts.
 
 That was why I was so unprepared for the crowd outside the venue. Fans blocked the road as my chauffeur attempted to safely ferry me towards the side entrance. And the vast majority of these people, I quickly realised, weren’t even in the queue. These were folk who hadn’t managed to gain tickets to a sold-out show. The folk behind my sudden rise to success.
 
