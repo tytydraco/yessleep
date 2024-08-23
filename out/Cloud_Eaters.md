@@ -1,26 +1,14 @@
-For as long as I can remember, I've dreamed of flying. I mean... who hasn't dreamed of flying? It's the most wonderful thing there is. I still remember, as a youngster, my afternoons spent scanning the sky, trying to make out shapes in the clouds. Who hasn't? A rabbit, a dragon, a monster or even a car. Watching the clouds has never been so stimulating for our imagination. However, I wanted to be more than just a spectator. I wanted to swim in this ocean of lightness, to split the skies like a bird: free as a bird and with no one to disturb you. What a wonderful feeling! I even remember believing that clouds were actually made of cotton, and that you could lie on them as if on a soft, fluffy mattress. What a time! There's no denying it: I had a vivid imagination. Forgive my nostalgia. It's just that thinking about it today makes me smile. Maybe that's what made me decide to become an aviator.
-
-
+For as long as I can remember, I've always dreamed of flying. I mean... who hasn't dreamed of flying? It's the most wonderful thing there is. I still remember, as a youngster, my afternoons spent scanning the sky, trying to make out shapes in the clouds. Who hasn't? A rabbit, a dragon, a monster or even a car. Watching the clouds has never been so stimulating for our imagination. However, I wanted to be more than just a spectator. I wanted to swim in this ocean of lightness, to split the skies like a bird: free as a bird and with no one to disturb you. What a wonderful feeling! I even remember believing that clouds were actually made of cotton, and that you could lie on them as if on a soft, fluffy mattress. What a time! There's no denying it: I had a vivid imagination. Forgive my nostalgia. It's just that thinking about it today makes me smile. Maybe that's what made me decide to become an aviator.
 
 To tell you the truth, my job is a bit atypical. As it happens, I work for the meteorological center of a country experiencing severe drought. Faced with this situation, the government of this country has decided to finance a major plan to combat the aridity of its territory, spearheaded by cloud seeding. For those who don't know, cloud seeding involves modifying the weather by adding various substances to the clouds, from an aircraft for example, in order to influence precipitation. This method can, for example, disperse fog, reduce the size of hailstones or increase the chances of rain falling. In the case of rain, the water droplets condensing in the cloud will agglomerate around the molecules of the substance diffused in the cloud, transforming into ice crystals and falling as rain due to the temperature near the ground. Although the effectiveness of this technique has not been clearly demonstrated, it is one of the few ways in which this type of territory can combat drought.
 
-
-
 I've been doing this for 4 years now. Before that, I operated in the US Air Force before going abroad and returning to civilian life in 2020. I have thousands of flying hours under my belt, which alone testify to the experience I've accumulated over the years: Afghanistan, Iraq and, last but not least, Libya. I think I'm right in saying that I've dealt with every conceivable situation in the air, including inclement weather. During my service, I heard many stories from other soldiers about unexplained phenomena in the air. Most of them weren't that inexplicable after all, but on rare occasions, a handful of them left me with doubts as to their veracity. We always think that these stories happen to others and not to us, that it's just a matter of bad luck. Well, this time, I'm the unlucky one. So I think some explanation is in order.
-
-
 
 It all happened about a week ago. It was a routine flight, as we often did. I remember that the sun was shining and the sky was dotted with beautiful cumulus clouds. According to the center's forecasts, the weather was about to warm up and updrafts of warm air were expected in the late morning. I arrived at the center very early in the morning to check once again with my colleagues whether the forecast would be favorable or not. I also took the opportunity to check the oil and fuel levels and make sure the rockets were in place. My colleagues had already done this for me, but two precautions are better than one. As for the plane itself, it was in very good condition. We're lucky to have excellent mechanics. With them, we can be sure that nothing can go wrong. Excuse me! I forgot to mention that the product we use most often is sodium chloride, hence the rockets on the wings to diffuse it. It's one of the most widely used for cloud seeding with silver iodide, despite the fact that the toxicity of the silver contained in the latter can have harmful effects on the environment.
 
-
-
 Returning to the subject at hand, it was 10:30 a.m. when my colleagues and I took our aircraft out of the hangar. After the usual final checks, I closed the aircraft door, took my place in the cockpit, donned my helmet and prepared to take off. At the meteorological center, one of my colleagues was in contact with me by radio to guide me through the sky and inform me of any meteorological upheaval:
 
-
-
 “Operator. This is aircraft no. 2. Request permission to take off.”
-
-
 
 “Commander, this is Operator. Authorization granted.”
 
@@ -28,123 +16,63 @@ Returning to the subject at hand, it was 10:30 a.m. when my colleagues and I too
 
 So I started the beast up, taxied down the runway and lifted off into the air. My climb lasted only a few minutes before I switched to cruising flight. To the best of my recollection, I was somewhere between 3,000 and 4,000 metres above sea level. At this height, I was slightly above some of the cumulus clouds in the sky. The sky was... beautiful. It was tinted a perfect light blue, while the clouds were immaculate white. It's at times like this that I'm glad I turned to this branch. It's one thing to watch the sky from the ground, but quite another to be there. It's like being in paradise. I know I'm rambling, but at that moment, a feeling of completeness invaded my body. Sitting comfortably in the cockpit, surrounded by the sounds of the plane, I inhaled deeply and exhaled deeply. I could almost have closed my eyes had I not been at the controls. Unfortunately, duty calling, I snapped out of my reverie:
 
-
-
 “Operator, this is aircraft no. 2.”
-
-
 
 “Commander, you may proceed to point unit three six and three zero nautical miles.”
 
-
-
 “Acknowledged. I'm proceeding to point unit three six and two zero nautical miles. I'll get back to you as soon as I'm in the Zone.”
-
-
 
 The cloud I had to seed was a cumulus mediocris. It's a cottony cloud that's larger than a simple “fair-weather” cumulus humilis. Unfortunately, it doesn't produce any precipitation, hence my intervention in the air. When I arrived above the cloud, I radioed my colleague:
 
-
-
 “Operator, this is aircraft no. 2. I'm on Zone.”
-
-
 
 “Commander, you may light four rockets on each side. I repeat: you may light four rockets on each side.”
 
-
-
 “Acknowledged. Four rockets on each side.”
-
-
 
 Just as I was about to light the sodium chloride rockets, I suddenly heard a noise against the wall of the aircraft. It sounded as if something small had caught on it. The noise was too slight to be a sign of anything serious, but perceptible enough to arouse in me a slight sense of anxiety. Yet, looking through the cockpit window, all I could see were clouds:
 
-
-
 “Operator, something seems to have snagged on the aircraft.”
-
-
 
 “Commander, have you found the source of the snag?”
 
-
-
 “Negative. No birds in the vicinity.”
-
-
 
 “Skipper, is the aircraft functional?”
 
-
-
 “Affirmative. It's a slight collision. I'm proceeding to ignite the rockets.”
-
-
 
 “Roger, Skipper.”
 
-
-
 Suddenly, another bang on the hull startled me. That strange sound again. It was as if sharp claws had been digging into the plane. I looked again through the cockpit window. I didn't know why, but this minor incident was really bothering me. I had a bad feeling about it. I know. It's a cliché, but usually this sort of thing never happens to me, and my tendency to be easily paranoid at the slightest unforeseen event didn't help the situation. Apart from the turbulence caused by cumulus clouds and warm air updrafts, I never experienced any major difficulties. To be on the safe side, I contacted my colleague on the ground to share my fears:
-
-
 
 “Operator. A second collision of unknown origin has just occurred. I'm afraid it's going to interfere with the seeding of the cumulus. Request for authorization to check the area.”
 
-
-
 “Authorization granted, Commander.”
-
-
 
 “Roger, Operator. Standby until I discover the source of the problem.”
 
-
-
 “Roger, Commander. Contact us as soon as possible.”
-
-
 
 I made several trips back and forth through the intervention zone to check for anything. I think it's safe to say that I spent about ten minutes going round and round the bends, looking for anything that might have been responsible for that famous collision. Finally, seeing that I was going around in circles for no good reason, I decided to give up and contact the operator, not noticing that I was about to cross a small cumulus cloud, which was probably due to my annoyance at this very awkward collision. However, as I crossed the cumulus humilis in question, and before a sound could leave my mouth, yet another collision occurred, nearly sending me over the edge. Nevertheless, my fury quickly gave way to concern when something suddenly struck me.
 
-
-
 Why didn't I feel any turbulence when I passed through this cumulus? The updrafts of warm air characteristic of cumulus clouds always cause turbulence. So why wasn't it the case with this one? I turned this strange question over and over in my mind a thousand times before an equally bizarre answer sprang to mind: it wasn't a cloud. I wanted to know for sure. I climbed out of the cumulus and maneuvered around it to get a bird's-eye view. I watched it for what seemed like an eternity. I stared at it intently, trying to detect any anomaly that would justify my delirious obsession with it. Then I saw them.
-
-
 
 At first, it was barely perceptible. The “cloud” moved slightly faster than the others, which seemed strange to me, until several cotton-ball-like masses suddenly detached themselves from it, making it disappear entirely. The resulting cloud balls each headed for one of the surrounding cumulus clouds. It was then that I witnessed the most breathtaking sight I've ever seen in my life. From the cloud balls, which until then had each stood motionless in front of a cumulus, appeared two appendages that strongly resembled clawed arms and hands. Nevertheless, the thing that made my eyes widen were the two dark cavities located on the upper part of each of the balls and another, much larger one, located a contrario on the lower part of them, each of these elements being likened to eyes and a mouth respectively.
 
-
-
 If I hadn't been holding the controls of my aircraft, I think I'd have fainted in terror. Holy shit! What the hell was that thing?! I honestly couldn't believe what I was seeing. I even had the idea of contacting the operator to find out if any aircraft were operating in the airspace. Unfortunately, this would have been a futile effort. Deep down, I knew that what I was looking at was real. As a billion questions raced through my mind, the operator's voice suddenly rang in my ears:
-
-
 
 “Commander, this is Operator. Have you found the source of the clashes?”
 
-
-
 “Negative, Operator. Do I still have time to intervene? Request for authorization to check the area again.”
-
-
 
 “Authorization granted. Please hurry, Commander.”
 
-
-
 “Roger, operator. Standby.”
-
-
 
 After cutting off communication with the Operator, I once again focused my attention on these things. Just as I thought I'd seen everything about these creatures, their mouths suddenly widened to violently suck in, Kirby-style, the cloud in front of each of them, including the one I was supposed to be seeding. It was as if these “simili-clouds” were devouring the cumulus. I oscillated between fear and amazement. Was I the first to observe these things? Probably. Were they hostile? Possibly. How many clouds in the sky were actually a pack of these creatures? I had no idea. As I lost myself in thought, the creatures quickly scurried off in all directions, without me being able to see where they were hiding. Suddenly, my anxiety rose a notch at the thought of them attacking my plane. At the time, I still didn't know whether they were harmless or not. So I didn't want to take any chances, even though they looked quite peaceful. So I made several manoeuvres to look for them in the air and get them in my field of vision.
 
-
-
 Suddenly, as I rounded a bend, I heard a thud. It was that damned collision again! Only this time, I could make out the source. It had to be one of his creatures. However, just as I was naively considering the possibility that it was simply curious about my aircraft, several other bumps occurred in a very short space of time. I soon realized, to my horror, that several of these things had latched onto the aircraft. Not wanting to know whether their intentions were good or bad, I made several manoeuvres to get rid of them, hoping in vain that they would let go and leave me alone. Unfortunately, all the aircraft's hairpin turns, dives and nose-ups weren't enough to make them go away. Worse still, I could feel the plane getting slower and slower as these things clung to it. It was as if they possessed enough strength to pull the plane toward it, without their appearance foreshadowing it. I was beginning to despair at the thought of them crashing it when a far-fetched idea occurred to me. It was an act of desperation, a sort of last stand that, in the end, wasn't really one. I lit all the rockets containing the sodium chloride, releasing the compound into the air to scare them away.
-
-
 
 Instantly, I felt the aircraft gain speed and lightness, a clear sign that the creatures were no longer on board. However, not wanting to claim victory too quickly, I decided to make one last check to see if they were still around. As I made yet another hairpin turn to observe the area, I realized to my horror that the creatures were diving towards the sodium chloride left by the rocket trail to devour it, like a scavenger feasting on the flesh of a dying animal. Some of them even seemed to be chasing me to suck up the compound still released by the rockets. Fortunately, the flares died down, directing the creatures' attention to the remaining trails.
 
@@ -152,15 +80,9 @@ Instantly, I felt the aircraft gain speed and lightness, a clear sign that the c
 
 Suddenly, thousands of these things emerged from the surrounding area to mimic their fellow creatures by pouncing on the sodium chloride. Frightened, I decided it was time to head back to the center. To this day, I wonder why I didn't think of it sooner. It was probably due to a morbid fascination with those fake clouds. I also decided to contact the operator. I had no idea what to tell him to make him feel better about my fiasco. I couldn't possibly tell him that cloud-like monsters had attacked me in mid-air. He'd think I was crazy and I could kiss my flying career good-bye. No! I had to come up with an excuse. The only one I could think of was an abnormal drop in fuel. It was hard to imagine, but much more so than an attack by living clouds.
 
-
-
 However, as I cogitated on how to bamboozle the operator, my gaze was once again drawn to the cloud monsters. Something was wrong. I didn't know if my eyes were playing tricks on me, but these things seemed to be bigger than before, while their color had gradually changed. Once pure white, their bodies were now tinged with a dark gray. Their eyes and mouths, meanwhile, seemed to light up slightly, giving them a menacing appearance. If I concentrated a little, I could see the presence of electricity around and inside their bodies. In retrospect, I think the sodium chloride and the expected rise in temperature later in the morning had something to do with it. These two factors combined probably gave them a boost, hence the increase in size, the change in color and the presence of electricity around them. These creatures not only mimicked the appearance of clouds, but also the way they functioned.
 
-
-
 None of this boded well. I gave up trying to contact the operator and immediately made a U-turn back to the center. Unfortunately, the cloud monsters had decided otherwise. They instantly blocked my path, again forcing me to perform several maneuvers that also proved unsuccessful. Wherever I went, these monsters followed me, intent on intercepting me in mid-air. So I had to resign myself to staying in the area with no way out. While I was racking my brains for a solution, I let out a curse when I saw that the monsters were clustering together in an abnormal way. Unfortunately, I realized far too late what I'd gotten myself into. I think my jaw dropped when I saw that the cluster of monsters was becoming gigantic and gradually taking on the shape of a cumulonimbus, or, for those who don't know, a thundercloud. What happened next will stay with me for the rest of my life.
-
-
 
 As the "false cumulonimbus" formed in the sky, two giant, hand-like limbs sprang from it, while three luminous orbits appeared on top of the false cloud, likened, as with the little cloud monsters, to eyes and a mouth. As I stood transfixed at the sight of this abomination, I was roused from my torpor by a low, storm-like sound escaping from its mouth. I immediately maneuvered to get away from this nebulous titan as quickly as possible. Unfortunately, my panic was total when I saw, through the cockpit window, the monster raise its colossal hand and finally bring it down on the plane like a common mosquito. Luckily, I had the time to anticipate its attack, dive and then pitch up to regain the little altitude I'd lost.
 
@@ -168,39 +90,22 @@ As the "false cumulonimbus" formed in the sky, two giant, hand-like limbs sprang
 
 Alas, what I had just experienced was only a brief glimpse of this monster's capabilities. Just as I was about to resume my flight, the giant's mouth widened and then lit up, finally spitting a huge bolt of lightning in my direction. Fortunately, as airplane bodies are generally resistant to lightning, I suffered only minor damage. However, I began to worry when the monster's mouth opened again, this time to suck in everything within its reach, including the surrounding cumulus clouds. Then, in the middle of a bend, the force of the suction gradually drew me into the creature's belly. Thank goodness! I wasn't with my back to it, fleeing in the opposite direction, which saved my aircraft a lot of trouble, not least the tearing off of its wings.
 
-
-
 However, I was still not out of the woods. Within the false cloud, a torrential downpour was beating down on me, while the cockpit window was progressively covered with frost. The aircraft was also battered by falling hailstones, damaging fuselage and wings, while strong winds caused turbulence, battering the aircraft in this chaotic environment. I still remember not being able to set the emergency transponder to the emergency code 7700 to signal that I was in distress. In this context, I had a firm grip on the control column, the most immediate risk being a stall. I can't tell you how long I lasted in this climatic hellhole. Five minutes? Maybe ten? I have no idea. I just remember that after a while, I miraculously managed to get out of the belly of this thing. After that, I immediately climbed down to get away from the horror for good. The creature didn't seem to notice me, and I wasn't complaining. Like a wild beast, its intelligence seemed to be limited. Just as well! I didn't want anything more to do with her. After judging that I was safe, and following all these adventures, I finally decided to contact my colleague on the ground:
-
-
 
 “Operator, this is Commander. Sorry to keep you waiting.”
 
-
-
 “Operator here! We were worried that we hadn't heard from you, Commander! We were just about to contact you! What happened?!”
-
-
 
 “I have no idea, Operator! I was surprised by a cumulonimbus that came out of nowhere.”
 
-
-
 “Being inside it, I couldn't contact you earlier or set the transponder to the emergency code.”
-
-
 
 “Roger, Commander. In view of the situation, your presence in the sky is no longer necessary. You may return to the Center.”
 
-
-
 “Roger, Operator!”
-
-
 
 After landing on the center's airstrip and stepping out of the aircraft, I was greeted by a torrential downpour, which paradoxically, after everything that had just happened to me, soothed me greatly. Instinctively, I turned my gaze skywards. What I had just experienced was both frightening and demented. The chances of me getting out of this wasp alive were statistically zero. I owed my survival entirely to my lucky stars or divine intervention. After this incident, I decided, with the agreement of the Meteorological Center, to take a few days off to rest and temporarily get away from my work. Of course, I didn't say anything about these monsters, for the reasons given earlier in my testimony.
 
  
 
 As I write this, I'm on my balcony scanning the clouds for a satisfying distraction. My recent desire for freedom is now tarnished by what just happened to me. If I've learned anything from all this, it's that the world is much bigger than we think, and that the sky is even bigger. Fantasized by mankind since the dawn of time, it is by no means devoid of all impurity, and covets mysteries as opaque as those on terra firma. To conclude, in the midst of all these philosophical reflections, I sometimes contemplate the sky for a long time and finally wonder, with apprehension, if the cloud I'm observing really is one.
-
