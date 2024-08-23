@@ -1,4 +1,4 @@
-TW: Blood, M🔴rd£®️, D£ath
+TW: Blood, Murder, Death
 
 It was dark and all classrooms except for us were already empty. We were finishing a group project (these are extremely common in our country: staying in school until nighttime to finish projects), and decided to stay for the night since tomorrow's weekend and some of us had to go to church and/or were unavailable.
 
