@@ -24,7 +24,7 @@ Subject-Carson Allen Greene
 
 Carson Allen Greene
 
-* DOB-10-29-1976
+* DOB- 7/4/1976
 * 8th Grade History Teacher- Retired
 * Widower
 * Two Children
