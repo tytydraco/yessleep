@@ -21,8 +21,13 @@ I managed to drag myself back to bed, clawing at the floor dragging my body behi
 
 He was in darkness, I don't know how else to explain him, there was a face, or the moulding of a face once there. I felt him watching, I felt the non existent eyes crawling over me. Jordan stirred behind him and with his head still focused on me, I could feel his observation shift to him. 
 
-Like a child scared of monsters in his closet I ducked under my duvet, I panted and cried. I stayed like that until the light started coming in. Exhausted I peaked out, he was gone. The morning light settled me and eventually I fell asleep.
+Like a child scared of monsters in his closet I ducked under my duvet, I felt his hands gripping and tearing at the sheets
 
-I have thought about this for days. It was a dream that is the most rational explanation, but I have never fallen asleep in a dream, let alone remembering every hour that passed before it.
+I lay there crying, my legs on fire as a constant barrage of his fingernails slowly, methodically scratched down my calfs.
 
-I’m going to talk to my mum, I know i’ve seen that man before.
+Eventually, I stopped, I stayed like that until the light started coming in. Exhausted I peaked out. He was gone. I couldn't get myself to peak out any further. My legs felt grimy from his cold grip, I was shaking, it felt like the worst cramp of my entire life.
+
+I must have eventually fallen asleep, I have thought about this for days. It couldn't have been a dream, I have never fallen asleep in a dream, let alone remembering every hour that passed in it.
+
+I've also never been left with marks, the white searing scars on my lower legs are still tender now. No, that was no dream, and I know I've seen that man before.
+

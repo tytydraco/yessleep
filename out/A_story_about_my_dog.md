@@ -176,5 +176,4 @@ We never returned to that house.
 
 
 
-Ben still won’t talk to me about what happened. I will never tell my mother. My grandfather recently passed, and after my step-father’s passing, I knew that she wouldn’t be able to handle the terrifying news that Henry may not have been Henry. I decided to share this as a way to hopefully cope with these experiences that I ultimately had to suffer through alone. Thank you for reading. 
-
+Ben still won’t talk to me about what happened. I will never tell my mother. My grandfather recently passed, and after my step-father’s passing, I knew that she wouldn’t be able to handle the terrifying news that Henry may not have been Henry. I decided to share this as a way to hopefully cope with these experiences that I ultimately had to suffer through alone.

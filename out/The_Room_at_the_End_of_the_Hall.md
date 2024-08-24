@@ -12,7 +12,7 @@ Around 3 a.m., I felt it—a presence at the door. The bed was positioned so tha
 
 I couldn’t take it anymore. I needed my husband. I stumbled out of the room, clutching my daughter, but he wasn’t in the house. His phone lay on the bedside table, but there was no sign of him anywhere. I was alone. Terrified, I cradled my daughter and waited for morning, holding her close until I finally passed out from sheer exhaustion.
 
-I woke to the cries of my daughter, my husband was standing by the bed, a look of deep concern on his face. I was still holding my daughter tightly and she was whispering like she was tired of crying. I asked him where he had been, but he just stared at me, his face pale. “I’ve been here the whole time,” he said. “But... there’s something you need to see.”
+I woke to the cries of my daughter, my husband was standing by the bed, a look of deep concern on his face. I was still holding my daughter tightly and she was whimpering like she was tired of crying. I asked him where he had been, but he just stared at me, his face pale. “I’ve been here the whole time,” he said. “But... there’s something you need to see.”
 
 He led me back to the room at the end of the hall. Everything was as I left it—except for one thing. In the crib, which we had bought for our daughter, lay an old, tattered doll. Its eyes were open wide, staring blankly at the ceiling, its hand outstretched toward the door.
 
