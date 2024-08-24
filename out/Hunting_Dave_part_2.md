@@ -76,3 +76,6 @@ I defeated the creature , But I had no time to relax. I heard a "grrrrrr" sound 
 
 
 [Part 3](https://www.reddit.com/r/nosleep/s/gQiwq8WtIW)
+
+
+[Part 4](https://www.reddit.com/r/nosleep/s/xrwtdev0UK)

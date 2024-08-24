@@ -85,5 +85,6 @@ Either way , The car was empty. Seems like they decided to go on foot as well. I
 
 
 
+[Part 4](https://www.reddit.com/r/nosleep/s/xrwtdev0UK)
 
 
