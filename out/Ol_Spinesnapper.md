@@ -26,7 +26,7 @@ After a minute, a man crawled out of the Bowl and into view of our headlights. T
 
 "That's nice of you, but we have to regroup with our party." 
 
-After a few more attempts at convincing us to go with him, the man seemed to let it go. He bade us farewell in his off, jittery fashion, and then hesitantly shuffled past us to begin his ascent, still without turning on any lights. I wondered how long he'd been down in the caves. 
+After a few more attempts at convincing us to go with him, the man seemed to let it go. He bade us farewell in his jittery fashion, and then hesitantly shuffled past us to begin his ascent, still without turning on any lights. I wondered how long he'd been down in the caves. 
 
 Allison and I waited a few minutes, then decided to head for the surface ourselves. I was a little nervous to encounter the man again, but I didn't see any other option. We trudged towards the entrance in silence, wary of every blind corner.
 
@@ -94,7 +94,7 @@ After that, she took a deep breath, shook out her arms, and then began her downw
 
 My hands shook as I inched forward. *Just another climb,* I told myself. *Just another climb*.  
 
-The rock was cold and unforgiving, pressing against my chest and shoulders as I inched forward. The angle was steep, but there was no risk of slipping forward and tumbling down—the passage was much too tight for that, and it only got tighter and I crawled. I breathed in shallow gasps as the path narrowed. I was five feet in, then ten, then twenty, and it was far too late to turn around. All I could do was keep moving forward. Keep going down. 
+The rock was cold and unforgiving, pressing against my chest and shoulders as I inched forward. The angle was steep, but there was no risk of slipping forward and tumbling down—the passage was much too tight for that, and it only got tighter as I crawled. I breathed in shallow gasps as the path narrowed. I was five feet in, then ten, then twenty, and it was far too late to turn around. All I could do was keep moving forward. Keep going down. 
 
 At last, I reached the bottom. The vertex was even sharper, more unforgiving than I expected. My headlamp flickered slightly as I began the maneuver, contorting my spine like I was doing an upside-down bridge. Just as I found the right angle, my light went out. 
 
