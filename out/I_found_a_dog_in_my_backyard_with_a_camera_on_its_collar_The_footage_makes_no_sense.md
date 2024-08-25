@@ -418,7 +418,7 @@ Regardless of what’s real, I love Auggie. He’s an awesome dog. He fit right 
 
 He has episodes. That’s what I’ve started thinking of them as, anyway. The times when he stares at a place where the shadows are thick, in the corner of a room, in a dark spot between the trees when we’re on a walk, and the hair raises on his back, and he starts growling. Warding off bad memories, maybe. But it makes me think of all the other times people swear their animals see something they can’t. I think about the creature that seemed to just disappear. The mother’s gaunt, listless face.
 
-\*They tore it open.\*
+*They tore it open.*
 
 I always make sure to give Auggie extra head scratches, a few more treats. To make him feel better. Or maybe to let him know to keep up the good work.
 
