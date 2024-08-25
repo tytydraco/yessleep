@@ -20,7 +20,7 @@ So I was intrigued, to say the least. Like I said, puzzles always have a way of 
 
 I made my way to the kitchen, lit by moonlight and silent except for the hum of the refrigerator. I flicked on the porch lamp, illuminating the deck and the path that led to the unexpected visitor in my yard. I blinked out into the darkness, taking stock of the situation.
 
-The dog was big. Really big. Much larger than the usual mid-sized kind you see in suburban neighborhoods like mine. Its fur was grayish, shaggy, and matted, and it had obviously seen better days, like a stuffed animal that had been left out in the rain. \*Maybe a working dog that wandered off a farm,\* I thought.
+The dog was big. Really big. Much larger than the usual mid-sized kind you see in suburban neighborhoods like mine. Its fur was grayish, shaggy, and matted, and it had obviously seen better days, like a stuffed animal that had been left out in the rain. *Maybe a working dog that wandered off a farm,* I thought.
 
 Something around the dog's neck caught the light. At first, it just seemed like a part of the shagginess, maybe a knotted clump of hair. It was a dark, bulky protrusion that stood out against its matted fur. But as the dog shifted, laying down more squarely under the beam of light, the object glinted.
 
@@ -36,7 +36,7 @@ Intrigued, I crouched down to the dog’s level, carefully reaching out a hand. 
 
 “Hey there,” I said softly.
 
-Without warning, the dog's lips pulled back into a snarl, spitting out a low, rumbling growl. I instinctively recoiled, heart hammering in my chest, kicking myself for not just calling animal control. I had completely forgotten my phone altogether. It was charging upstairs. And now I was in a dominance stand-off with a massive dog with, I soon realized–bigger balls than mine. \*Fuck.\*
+Without warning, the dog's lips pulled back into a snarl, spitting out a low, rumbling growl. I instinctively recoiled, heart hammering in my chest, kicking myself for not just calling animal control. I had completely forgotten my phone altogether. It was charging upstairs. And now I was in a dominance stand-off with a massive dog with, I soon realized–bigger balls than mine. *Fuck.*
 
 It was so tense, I barely breathed. But after a few agonizingly long minutes, I realized he wasn’t looking at me. The dog’s rigid body, pinned ears, and narrowed eyes were angled, fixed intently on something I couldn’t see at the far end of the yard.
 
@@ -64,7 +64,7 @@ I set the harness on the table and walked to the sink. As I went to grab the dis
 
 Dried blood?
 
-My heart leapt to my throat. I scrubbed my hands quickly, watching red-brown flakes swirl down the drain, wondering what on earth I had gotten myself into. I braced myself against the sink and considered my options–which were pretty few, considering how late it was–then grabbed a pair of rubber gloves from under the sink.
+My heart leaped to my throat. I scrubbed my hands quickly, watching red-brown flakes swirl down the drain, wondering what on earth I had gotten myself into. I braced myself against the sink and considered my options–which were pretty few, considering how late it was–then grabbed a pair of rubber gloves from under the sink.
 
 Starting from his neck, where the harness had been, I checked his fur and skin, parting the matted fur as I looked for any signs of wounds. Thankfully, he remained calm, tail thumping lightly on the floor a few times like he enjoyed the attention.
 
@@ -80,7 +80,7 @@ It seemed like it belonged on a wildlife expedition, not a suburban stray. I had
 
 I grabbed my spare laptop from my office and sat back down at the kitchen table, trying not to look too closely at the clock ticking down in the corner of the screen. I felt wide awake, anyway.
 
-I knew it wasn’t going to be a simple plug-and-play situation. The camera was a heavy-duty piece with a connector that didn’t match the usual USB cables I had lying around. Digging through my junk drawer hoard, I found an old universal adapter kit that seemed promising. I shuffled through the adapters until I found one that looked like it could fit the port. \*Success.\* Connecting it felt like a small victory, although I didn’t have anyone to share it with. I looked down at the dog, and he thumped his tail once, like a little sarcastic ‘Congrats!’
+I knew it wasn’t going to be a simple plug-and-play situation. The camera was a heavy-duty piece with a connector that didn’t match the usual USB cables I had lying around. Digging through my junk drawer hoard, I found an old universal adapter kit that seemed promising. I shuffled through the adapters until I found one that looked like it could fit the port. *Success.* Connecting it felt like a small victory, although I didn’t have anyone to share it with. I looked down at the dog, and he thumped his tail once, like a little sarcastic ‘Congrats!’
 
 I attached the other end to my laptop with a hopeful kind of skepticism, half-expecting it not to recognize the device. To my relief, after a moment of nothing happening—just when I thought it wouldn’t work—it popped up, listed ambiguously as 'External Device.'
 
@@ -100,7 +100,7 @@ In the video, Auggie barked a few times, until the woman laughed and rose out of
 
 The frame tilted abruptly. The view skewed, and there was the sound of something skittering–claws on stone. The camera now suddenly showed only a sliver of the bright sky and the rough, shadowed edges of rock on either side. Auggie struggled, his whines echoing off the rock walls. In his excitement, he had misstepped and wound up tumbling into a narrow crack in the earth.
 
-The footage was chaotic, capturing every frantic movement as he struggled, the camera bumping and shaking erratically with his efforts to free himself. My stomach twisted with anxiety for him, even though I knew Auggie was right next to me without a scratch. I leaned down to pat his head, and he rolled his eyes up to give me an appreciative look.
+The footage was chaotic, capturing every frantic movement as he struggled, the camera bumping and shaking erratically with his efforts to free himself. My stomach twisted with anxiety for Auggie, even though I knew he was right next to me without a scratch. I leaned down to pat his head, and he rolled his eyes up to give me an appreciative look.
 
 “Tough day, eh, big guy?” He snorted and sighed, as if agreeing, then closed his eyes again.
 
@@ -128,7 +128,7 @@ Apparently realizing the futility of her efforts, she stepped back, kneeling dow
 
 "I'm sorry, buddy. I should have paid attention to the signs. This is my fault. But I got us into this mess. I’ll get us out.” Her voice was determined. She gave his head a pat, jostling the camera. Then she took out a bottle of water from a fanny pack, taking a sip before offering some to Auggie.
 
-I wondered what kind of signs she meant. Signs as in, she should have recognized how unstable the land was? Or literal ones, as in, \*No Trespassing\*?
+I wondered what kind of signs she meant. Signs as in, she should have recognized how unstable the land was? Or literal ones, as in, *No Trespassing?*
 
 She pulled her phone from her fanny pack, tapping the flashlight on to augment the waning daylight that filtered weakly through the cracks above. The beam of the flashlight cut through the darkness, revealing the uneven, rocky terrain of the tunnel system they were now committed to navigating.
 
