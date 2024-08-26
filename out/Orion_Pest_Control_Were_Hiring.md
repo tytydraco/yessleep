@@ -328,5 +328,7 @@ Truthfully, I just wanted an excuse to keep the dance going. As tired as I was, 
 
 But like with using the sword, I'll learn. I'll learn how to become a hero. I'll learn how to dance with a pretty fairy. I'll learn about what happened to my grandfather. 
 
+Update: [Found Grandpa. ](https://www.reddit.com/r/nosleep/s/OSdj41PjMs)
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
