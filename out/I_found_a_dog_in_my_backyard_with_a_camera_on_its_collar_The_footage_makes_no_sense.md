@@ -424,4 +424,4 @@ I always make sure to give Auggie extra head scratches, a few more treats. To ma
 
 All in all, I do know one thing for certain.
 
-[I don’t live alone anymore.](https://www.reddit.com/r/DRForge/)
+I don’t live [alone anymore.](https://www.reddit.com/r/DRForge/)
