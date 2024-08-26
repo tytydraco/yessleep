@@ -4,7 +4,7 @@
 [Part 2](https://www.reddit.com/r/nosleep/s/CrPY2xK9Tl)
 
 
-[Part 3](https://www.reddit.com/r/nosleep/s/ZLoITKemVk) 
+[Part 3](https://www.reddit.com/r/libraryofshadows/s/IkoX1lIVln) 
 
 
 I kept running but the road was covered in darkness , All street lights were destroyed making anything far away barely visible. I did not know how far I was or how long it would take to find Dave. 
