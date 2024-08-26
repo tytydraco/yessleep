@@ -18,7 +18,7 @@ Seeing the neighbour's kids playing around outside has made me realise just how 
 
  
 
-I walked Benjy twice today, or more hobbled after him as he darted in between the trees. We did our normal route today past the stump, over the bridge and then looping back around when we reached the wet patch which is beginning to dry a little. Hopefully, the good weather is consistent enough so that me and Benjy can start our longer walks again. I saw a deer today in the tree line by the bridge. Haven't seen one in a while, makes me feel as if I may have been struck with a streak of luck, but I can only wait and see how the weather holds up.
+I walked Benjy twice today, or more hobbled after him as he darted in between the trees. We did our normal route today past the stump, over the bridge and then looping back around when we reached the wet patch which is beginning to dry a little. Hopefully, the good weather is consistent enough so that me and Benjy can start our longer walks again. I saw a deer today in the tree line by the bridge. Haven't seen one in a while. Makes me feel as if I may be  struck with a streak of luck, but I can only wait and see how the weather holds up.
 
  
 
