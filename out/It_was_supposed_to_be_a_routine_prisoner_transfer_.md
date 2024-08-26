@@ -114,4 +114,4 @@ I could feel my limbs turning tingly, things beginning to break down as I was be
 
 The next thing I knew I was on my hands and knees barfing back on earth. The pod techs were horrified, afraid to touch me because of all the blood. They took me for questioning, but all I could tell them was to watch the feeds. As far as they can see, everything is still functioning, but the beasts are now just aimlessly wandering the halls. They said some people were still up there… but I think they’re just going to leave them. There’s no way anyone is going to go back up there, and Sarge did enough damage to the diffusion console that it won’t work on that end. 
 
-I think they’re going to discharge me. Probably a nice pension somewhere, out on the coast. I’m definitely taking any kind of retirement they throw my way. They at least owe it to me after [that](https://www.reddit.com/u/googlyeyes93/s/nUJHFPWE4a). 
+I think they’re going to discharge me. Probably a nice pension somewhere, out on the coast. I’m definitely taking any kind of retirement they throw my way. They at least owe it to me after [that](https://www.reddit.com/u/googlyeyes93/s/a37L7X6iRV). 
