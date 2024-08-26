@@ -94,7 +94,7 @@ From the strange and wild world of rural Florida,<3
 
 *Likes (34.2k) Comments (2k)*
 
---- 
+---
 
 [*fromfloridalwithlove.blogspot.com*](http://fromfloridalwithlove.blogspot.com)
 
@@ -128,7 +128,7 @@ Until then,
 
 With love from the wilds of rural Florida <3
 
---- 
+---
 
 *@*TeapotSpillSesh | Check out this weird clip from last night’s live *@*FromFloridaWithLove
 
@@ -172,7 +172,7 @@ With love from the wilds of rural Florida <3
 
 *Likes (85k) Comments (5k)*
 
---- 
+---
 
 I’ve been following this creator for years, ever since she started posting on her blog. She’s never done anything remotely like a prank or a joke, so I really don’t think this is staged. But honestly, I’m not sure what to believe anymore. Has anyone else seen this? I don’t know exactly where she lives in Florida, but if anyone has any idea, do you think I should call in for a wellness check? I’m genuinely concerned something’s not right.
 

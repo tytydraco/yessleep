@@ -8,11 +8,11 @@ But there was another odd character who soon started to do the same thing only h
 
 His name was Davy Weisenberg and he was a high school Junior. He had won the science fair contest in Chemistry the year before and was determined to get a scholarship the following year.
 
-It would come out later in court documents that Davy was working on some serum that could mimic the molecular structure of whatever you ate and encode it into your DNA in such a way that your body would start to transform into the very thing you were eating. For example, if you ate chicken, your cells would turn into chicken cells. "You are what you eat." he used to say all the time.
+It would come out later in court documents that Davy was working on some serum that could mimic the molecular structure of whatever you ate and encode it into your DNA in such a way that your body would start to transform into the very thing you were eating. For example, if you ate chicken, your cells would turn into chicken cells. "You are what you eat," he used to say all the time.
 
 Turned out Davy was using a hypodermic needle to inject his experimental serum into the rubber hose in the soda dispenser and take notes on the results. He'd wait til no one was around and Soda Head had gone into the restroom to remove the cover plate from the drink dispenser and do his thing. He figured Soda Head was the perfect test subject for his various concoctions.
 
-It was a Thursday night in mid July, about 2 PM, when Davy's patience finally paid off. Soda Head had started to look sick in recent days. Pale face, reddening eyes. We all just thought it was lack of sleep and too much sugar. But he had started to transform into actual soda. Sort of.
+It was a Thursday afternoon in mid July, about 2 PM, when Davy's patience finally paid off. Soda Head had started to look sick in recent days. Pale face, reddening eyes. We all just thought it was lack of sleep and too much sugar. But he had started to transform into actual soda. Sort of.
 
 He'd been drinking cola flavored icey's all day when he stood up and approached the counter. My coworker Bart calmly asked him what he could get him.
 
@@ -24,7 +24,7 @@ Bart looked over at me confused. Davy was filming it with his phone with a big g
 
 Suddenly a stream of high pressure cola shot forth from Soda Head's mouth towards Bart's face. It had so much force and pressure that it blew a hole right through Bart's head!
 
-Soda Head turned towards me as Bart's body fell dead to the floor. He now was sweating cola and had cola tars draining from his eyes. His face was still stoic as if in a trance.
+Soda Head turned towards me as Bart's body fell dead to the floor. He now was sweating cola and had cola tears draining from his eyes. His face was still stoic as if in a trance.
 
 I ran back into the kitchen to get cover as he unleashed another blast of cola death. It missed me but hit the hot oil in the deep fryer which began to boil with a deafening gurgle as it splattered hot oil in all directions.
 
@@ -44,22 +44,22 @@ I took shelter behind the grill as her body exploded, sending fleshy bits, organ
 
 Trembling with fear and knowing that I was next, I ran into the stockroom and pushed the door shut from the inside. I'd forgotten that the lock on the door had broken and not been fixed yet. I'd have run back out and head for the backdoor except I was afraid he'd come too close by then and I'd get hit by one of his soda blasts.
 
-He started pushing the door from the other side while I pressed on it with all my weight to keep it from opening. Finally he slammed against it and it flung open, throwing my back and to the floor.
+He started pushing the door from the other side while I pressed on it with all my weight to keep it from opening. Finally he slammed against it and it flung open, throwing me back and to the floor.
 
-I looked up in dread as he slowly entered the stockroom and slowly marched forward with a gape not unlike Frankenstein's monster. Behind him, still filming and with a wily grin on his face, Davy peeked around the corner into the room.
+I looked up in dread as he entered the stockroom and slowly marched forward with a gape not unlike Frankenstein's monster. Behind him, still filming and with a wily grin on his face, Davy peeked around the corner into the room.
 
 Soda Head took in a big breath as if preparing to let loose a powerful bolt of deadly drink at me. I thought my time had come. I had nothing to loose so I tried to body slam him before he could do it.
 
-My chest hit his chest with a thud and h fell backwards out the door of the stockroom. As he did his soda shot blew out of his mouth and hit Davy blowing Davy's body apart and sending his phone through the air where it came to rest on top of some boxes, coincidentally still facing the killer and myself.
+My chest hit his chest with a thud and he fell backwards out the door of the stockroom. As he did a soda shot blew out of his mouth and hit Davy blowing Davy's body apart and sending his phone through the air where it came to rest on top of some boxes, coincidentally still facing the killer and myself.
 
 I got up and ran towards the back door which was facing the stockroom. I stopped at the door and looked back to see if Soda Head was about to send a blast my way. He wasn't. Instead he had gotten up and was staring at me.
 
-H went to take a step towards  when he slipped on some of Davy's guts and fell backwards into the stockroom where he came to rest in a sitting position on his butt.
+He went to take a step towards me when he slipped on some of Davy's guts and fell backwards into the stockroom coming to rest in a sitting position on his butt.
 
-I opened the backdoor sending a shaft of bright sunlight right into the stockroom and onto Soda Head. He started moaning. I focused in on him to s what was going on better.
+I opened the backdoor sending a shaft of bright sunlight right into the stockroom and onto Soda Head. He started moaning. I focused in on him to see what was going on better.
 
-Cola slush was coming out of his ears, nose, and mouth. The pace of it draining out of him increased and then his flesh began to fall off until he was just one big pile of cols slush. It then quickly melted in the sunlight leaving only his clothes in a pool of cola.
+Cola slush was coming out of his ears, nose, and mouth. The pace of it draining out of him increased and then his flesh began to fall off until he was just one big pile of cola slush. It then quickly melted in the sunlight leaving only his clothes in a pool of cola.
 
 The police would find his phone and review the video. After rigorous questioning I was made to sign a document saying that I would not tell anyone what happened. Davy's bedroom was cleaned out by the FBI and all of his experiments and papers were seized.
 
-The drink dispenser was removed and taken away but not before I retrieved a sample of the tainted cola. The sample remains in my custody in a secret location. Bids start at one million US dollars. Interested parties please contact me via telegram. Serious inquires only.
+The drink dispenser was removed and taken away but not before I retrieved a sample of the tainted cola. The sample remains in my custody in a secret location. Bids start at one million US dollars. Interested parties please contact me via telegram. Serious inquiries only.
