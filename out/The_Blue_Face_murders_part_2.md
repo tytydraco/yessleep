@@ -61,7 +61,7 @@ Two trucks appear out of nowhere without even a plate, right after a particularl
 
 The people we interviewed weren’t of much use. One was an old lady that couldn’t even hear a car exploding and the other one was wasted from his night at a bar.
 
-The choice of target isn’t even that specific really, one was a 11 years old Chihuahua the other one was a parrot and the other was a gold fish.
+The choice of target isn’t even that specific between the two victims really, one was a 11 years old Chihuahua the other one was a parrot.
 
 The pet killings feel more like practice than a proper killing streak really, as sick as this sounds, testing their luck, studying the average security measures of Basset’s residents
 
