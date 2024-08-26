@@ -1,0 +1,17 @@
+The engine sputtered and died, and there was nothing but the sound of silence and the faint buzz of crickets. I sat there for a moment, gripping the steering wheel like I could will the car back to life. Nothing. I turned the key once more, hopeful, but the engine just clicked, like a stubborn child refusing to cooperate. Great. No cell signal either. Of course. 
+
+I got out of the car, slamming the door harder than I needed to. The road stretched ahead, a ribbon of darkness with only the faint glow of distant streetlights to guide me. I knew home wasn’t that far—maybe a mile, two at most. Still, walking this late at night wasn’t exactly what I had planned. But what choice did I have? Sitting in a dead car all night wasn’t an option.
+
+The air was cooler than I expected. I stuffed my hands in my pockets and started walking. The first few steps felt strange, like I was expecting the car to magically start behind me and offer me a ride. But after a while, the rhythm of my footsteps against the pavement became familiar, almost calming. I’d walked this road a hundred times before, just never this late, and never with the strange combination of irritation and uncertainty that buzzed in my mind.
+
+I looked up at the sky. It was clear, the stars scattered like pinpricks on a canvas of black. Funny how small everything feels when you look up at the stars. My car breaking down, the long walk ahead, it all seemed less important compared to the vastness of the universe. Maybe that’s what people always mean when they say, “It’s not the end of the world.” Yeah, sure, but it still sucks when your car dies.
+
+The sound of my shoes scuffing the gravel was the only noise around me. It was peaceful, in a way. I hadn’t really walked anywhere in a long time, at least not like this. Usually, I was in a rush, getting from one place to another, or on my phone, distracted. But now, there was nothing to do but walk. No texts to check, no podcasts to listen to. Just me, the road, and the quiet night.
+
+As I passed a row of houses, I caught the glow of a television through a window. I wondered what they were watching. Probably some late-night show, or maybe the news. I liked imagining the people inside, sitting on their couch, completely unaware of the guy walking past their house with a broken-down car. It’s funny how life goes on for everyone else, even when it feels like your world has hit a minor disaster. 
+
+I walked a bit faster. The sooner I got home, the better. My feet were starting to ache, but I tried not to think about it. Instead, I thought about the car. Would it need a tow? Was it the battery? Maybe it was something worse, something expensive. A thousand scenarios played out in my mind, none of them particularly comforting. The reality was, I had no idea what was wrong, and I couldn’t do anything about it until morning. That thought should have stressed me out, but somehow, it didn’t. Maybe it was the cool air, or the quiet night, but the further I walked, the more it felt like everything would be okay, eventually. 
+
+I turned onto my street, the familiar sight of my house coming into view. Relief washed over me. The walk wasn’t bad, but I was ready to be home. As I reached my front door, I paused for a moment, looking back at the road. The night felt different now—less like an inconvenience and more like a reminder that, sometimes, things don’t go according to plan, but you can always keep moving forward. 
+
+Tomorrow, I’d figure out the car. For now, I was home.
