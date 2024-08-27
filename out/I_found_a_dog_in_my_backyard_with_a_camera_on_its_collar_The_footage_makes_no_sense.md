@@ -8,7 +8,7 @@ Sometimes, if I’m feeling what constitutes ‘wild’ for me, I play music whi
 
 If I'm being totally honest, solitude is what feels safest to me. My mom died when I was still in high school, and after, my dad wasn’t the greatest guy, to put it lightly. I spent my teens cleaning up his messes. Then, to make things more challenging, when I moved out–my college roommate was the same. After all that bullshit, I stick to a routine, keep things simple–no one coming home at 3 A.M. drunk off their ass, no pillow over the head to drown out the screams of adults that should know better.
 
-I was at the tail end of my usual quiet night in when I saw the dog. Sitting in my favorite armchair, half-asleep, trying to keep my eyes open long enough to get to the end of a chapter of \*I Am Legend\*.
+I was at the tail end of my usual quiet night in when I saw the dog. Sitting in my favorite armchair, half-asleep, trying to keep my eyes open long enough to get to the end of a chapter of *I Am Legend*.
 
 At first, I thought I imagined it, like my brain was so far turned off to reality that I had started conjuring up characters from the story, which if you don't know, incidentally does feature a dog. But as I stared out my window, growing increasingly more awake, I knew the dog was real.
 
@@ -380,7 +380,7 @@ My breath caught in my throat.
 
 It was a basement.
 
-It was \*my basement\*.
+It was *my basement.*
 
 Auggie climbed onto a pile of boxes, then leaped towards the small window at the top of the wall. He squeezed through the rusted latch and through the narrow opening, his body contorting with effort as he pushed himself out into the night. He sat, panting, in the middle of the yard.
 
