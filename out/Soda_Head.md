@@ -60,6 +60,6 @@ I opened the backdoor sending a shaft of bright sunlight right into the stockroo
 
 Cola slush was coming out of his ears, nose, and mouth. The pace of it draining out of him increased and then his flesh began to fall off until he was just one big pile of cola slush. It then quickly melted in the sunlight leaving only his clothes in a pool of cola.
 
-The police would find his phone and review the video. After rigorous questioning I was made to sign a document saying that I would not tell anyone what happened. Davy's bedroom was cleaned out by the FBI and all of his experiments and papers were seized.
+The police would find Davy's phone and review the video. After rigorous questioning I was made to sign a document saying that I would not tell anyone what happened. Davy's bedroom was cleaned out by the FBI and all of his experiments and papers were seized.
 
 The drink dispenser was removed and taken away but not before I retrieved a sample of the tainted cola. The sample remains in my custody in a secret location. Bids start at one million US dollars. Interested parties please contact me via telegram. Serious inquiries only.
