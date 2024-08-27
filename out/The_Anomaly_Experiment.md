@@ -34,6 +34,6 @@ As I rushed outside my building, I started to realize the sky is a color I’ve 
 
 Everything I'd ever dreamed of, "The Father of Time Manipulation", a plaque read. I turned to see the reactions of the students and professors as I turned next to the video board, I nearly fell when one girl walked right into me, and then through me.
 
-I've been panicked all day, screaming in peoples faces, throwing things at them, but nothing works. I grabbed a chair someone was sitting in, but realized I truly could make no impact when she didn't fall.  The only thing that I can interact with are old binary devices, antiquated things running on only 1s and 0s. If anyone is reading this, if you can still reach me, please help. I think I’m slipping through time, and I don’t know if I can find my way back.
+I've been panicked all day, screaming in peoples faces, throwing things at them, but nothing works. I grabbed a chair someone was sitting in, but realized I truly could make no impact when she didn't fall. The only thing that I can interact with are old binary devices, antiquated things running on only 1s and 0s. If anyone is reading this, if you can still reach me, please help. I think I’m slipping through time, and I don’t know if I can find my way back.
 
 — Evan
