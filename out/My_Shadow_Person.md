@@ -83,3 +83,5 @@ Personal thoughts: I believe the shadow person has goals and giving knowledge in
 For this post i allowed myself to drift back into the thoughts i used to have to show a small bit of how i used to be, i'm not like that anymore. It's still there and it feels apart of me, thoughts in the back of my mind but i try to be more sociable and live a normal life mostly. I have a gf, i don't call people humans anymore, and i don't care for an ultimate knowledge. 
 
 If you're thinking.. If i go into a closet that's dark and ask it to come back, it will. If anyone has questions feel free to ask but if this doesn't get attention, maybe thats for the best. I have a theory whenever i mention the shadow person, bad things seem to happen around me. So this is my last time mentioning him until my last breath. Just wanted to share an experience that science, or others might not believe or gone through. believe me or not ofc.
+
+Came back to add, I keep my closet closed off with weights now. It's become a normal part of my life.
