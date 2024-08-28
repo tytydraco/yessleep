@@ -386,6 +386,4 @@ We burst out of the woods and into our backyard, but we didn’t slow down until
 
 I just set Francis down to go in the house when I felt something hit me hard from the side. It was that damn deer. It knocked me over, reared up on it’s hind legs, then brought his front hooves crashing down on me. He stomped me over and over again until a faint whistle could be heard in the distance. He stopped, glared at me, snorted, and trotted off to the forest.
 
-I painfully rolled and sat up, feeling like I must have had multiple cracked ribs. I watched as the deer entered the wood line, I could have sworn I saw a faint female form deep in the woods.
-
-[Finale Here](https://www.reddit.com/r/DJ_Storytime/comments/1f2v88b/dear_jessica_part2finale/)
+I painfully rolled and sat up, feeling like I must have had multiple cracked ribs. I watched as the deer entered the wood line, I could have sworn I saw a faint female form deep in the [woods](https://www.reddit.com/r/DJ_Storytime/comments/1f2v88b/dear_jessica_part2finale/).
