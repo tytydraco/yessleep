@@ -96,4 +96,4 @@ The doctor assured me he would do his best to make sure Rustam would make some f
 
 Three weeks later, Rustam sat behind the wheel of my car and his face was covered. He apologized, deeply, for not following my advice. He had, clearly, learned his lesson.
 
-Rustam still is the most reliable driver I’ve ever had. He doesn’t ask any questions, is quick at the wheel and isn’t opposed to getting into a scuffle if needed. He wears a baklava when he drives, but I don’t [mind](https://www.reddit.com/r/MJLPresents/comments/q2qjz1/%D2%93%D1%8B%D0%BB%D1%8B%D0%BC%D0%B8_%D2%9B%D0%BE%D0%BD%D0%B4%D1%8B%D1%80%D2%93%D1%8B/).
+Rustam still is the most reliable driver I’ve ever had. He doesn’t ask any questions, is quick at the wheel and isn’t opposed to getting into a scuffle if needed. He wears a balaclava when he drives, but I don’t [mind](https://www.reddit.com/r/MJLPresents/comments/q2qjz1/%D2%93%D1%8B%D0%BB%D1%8B%D0%BC%D0%B8_%D2%9B%D0%BE%D0%BD%D0%B4%D1%8B%D1%80%D2%93%D1%8B/).
