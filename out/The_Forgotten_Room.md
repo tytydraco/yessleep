@@ -38,4 +38,12 @@ I didn’t sleep the rest of the night, too terrified to close my eyes. When the
 
 I packed a bag and left that day, leaving behind the beautiful old house with its secrets and shadows. I don’t know what happened to the woman who wrote those journal entries, but I couldn’t shake the feeling that she was still there, trapped in that forgotten room.
 
-I sold the house, taking a loss, and never looked back. But sometimes, late at night, I still hear the scratching and the whispers, faint but unmistakable. It haunts me, a reminder that some doors are better left unopened.
+I sold the house, taking a loss, and never looked back. But the memories lingered, refusing to fade like they should. Sometimes, late at night, I still hear the scratching and the whispers, faint but unmistakable, as if they’ve followed me.
+
+I tried to move on, but the unease never left. I started sleeping with the lights on, the television playing softly in the background, anything to drown out the silence. But it wasn’t enough. A week after I left, I woke up to find something chilling. On the wall beside my bed, scratched deep into the plaster, were the same desperate words I’d found in that room: “HELP ME,” “CAN’T GET OUT,” “HE’S COMING.”
+
+The realization hit me like a punch to the gut—leaving the house hadn’t set me free. Whatever haunted that room had followed me. And now, I’m the one trapped, unable to escape the thing that watches, waits, and scratches at my mind like it did the walls of that forgotten room.
+
+I don’t know how much longer I can hold on. The whispers are getting louder, the presence colder. I write this now because I’m afraid I won’t be able to soon. I’m so tired. I just want to sleep. But every time I close my eyes, I feel him drawing closer.
+
+And I know, just like she did, that he’s coming for me too.
