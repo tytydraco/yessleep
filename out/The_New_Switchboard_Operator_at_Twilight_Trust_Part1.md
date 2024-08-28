@@ -98,7 +98,7 @@ Line 7 must always remain open. Contact should be established only in the most e
 
 Never respond to calls from blocked numbers. These numbers are usually highlighted in red and will immediately flash on your screen when the calls are made. Do not try and trace these calls.
 
-No calls should be attended between 12:00 AM and 1:00 PM. This duration of time is known as the ‘Task Hour’. During this period, the system must be set to mute, and the operator should focus on the task provided. So, the operator is advised to complete attending to all calls by 11:55 PM so that he/she can be ready when Task Hour commences.
+No calls should be attended between 12:00 AM and 1:00 AM. This duration of time is known as the ‘Task Hour’. During this period, the system must be set to mute, and the operator should focus on the task provided. So, the operator is advised to complete attending to all calls by 11:55 PM so that he/she can be ready when Task Hour commences.
 
 The details of the task will be updated in a leather-bound journal everyday. After the completion of the task, remove the document from the journal, sign it and file it away under your name in the filing cabinet.
 

@@ -160,7 +160,7 @@ No less than twenty feet from the automatic front door, I realized it was locked
 
 Sitting in the truck, drenched in blood that both did and didn’t belong to me, I could feel the shards of glass that stuck into my arms and legs now. The adrenaline must have run its course and the pain felt like hundreds of needles burning into me. Fighting through the pain, my eyes never moved from the shattered entrance from the moment the brights came on. I was ready to throw the truck into gear and run anything down that dared come out of that building. I couldn’t explain it, but there was no way I was going to drive away and let Dr. Grady just walk out of there.
 
-The dashboard in the truck reads 5:25am. The torment I had just experienced left me extremely nauseous; I can still vaguely hear the music. I don’t know if it was still playing or if it was just ringing in my head. Remembering I had a pack of smokes, I dug around for them in the driver side door, eyes still glued to the building.
+The dashboard in the truck reads 5:25am. Between the shards of glass stuck in me and the torment I had just experienced, I was extremely nauseous; I can still vaguely hear the music. I don’t know if it was still playing or if it was just ringing in my head. Remembering I had a pack of smokes, I dug around for them in the driver side door, eyes still glued to the building.
 
 The moment I focused on the tip of the cigarette and lit it, something from inside the building slowly came into view. Being pushed out by Dr. Grady; still sitting in his wheelchair was Sgt. Sammy. They had stopped right outside the entrance and Dr. Grady just stood there with the same twisted grin.
 
