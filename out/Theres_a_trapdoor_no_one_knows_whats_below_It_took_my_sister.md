@@ -114,7 +114,7 @@ I grab pens and a notebook.
 
 “Listen, we won’t know until we find her,” I tell Sophie. “Others could’ve found that door before her. She could be hiding. That smell could be from an entity. We literally do not know. So write down everything I shout up at you. We start small. I go to the bottom of the stairs.”
 
-I train the cameras on the trapdoor from all directions, including directly above so I can see myself descending the ladder.
+I train the cameras on the trapdoor from all directions, including directly above so I can see myself descending the steps.
 
 The first few descents I follow simple rules: stay in camera shot. Do not stray. Down. Up. Check the footage.
 

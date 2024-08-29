@@ -77,3 +77,11 @@ But I know what happened. Something crawled up the side of my house last night a
 I know this for a fact. Because in the light of day I went back into that horrible bedroom and looked at that window. I saw the greasy proof that coated the outside of the glass.
 
 There's a handprint on it.
+
+
+
+
+
+
+
+[update](https://www.reddit.com/r/nosleep/s/tN1XH9SqXO)
