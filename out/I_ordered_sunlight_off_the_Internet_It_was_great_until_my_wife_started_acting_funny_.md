@@ -2,7 +2,7 @@ Reflect Orbita was a new groundbreaking tech company that sold daylight during t
 
 They aimed to reflect the sun's rays over solar panels down here on the earth's surface well after it had gone dark to maximize the sun's energy output. 
 
-At first, it sounded like something out of a Sci-fi movie, but my draw dropped when I googled their website and everything about them seemed legit. 
+At first, it sounded like something out of a Sci-fi movie, but my jaw dropped when I googled their website and everything about them seemed legit. 
 
 Ordering sunlight was as simple as ordering an Uber. I typed in my exact coordinates, and like magic, everything around me lit up. I was even more amazed when I looked up and above me was a ball of shining light in the night sky. The Reflect Orbital app also came with a cool feature that allowed you to run your finger over a map of your location, allowing you to move the light around. 
 
