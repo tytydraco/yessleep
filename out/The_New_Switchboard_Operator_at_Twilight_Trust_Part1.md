@@ -331,3 +331,5 @@ One look at my face, and he quickly realized what had happened.
 “Oh, is it the elevator? I am sorry, I should have warned you. It’s an old building Mr Lockwood, and every once in a while the ride can get a little bumpy. Don’t worry, it's safe otherwise and you will get used to it,” he added, breaking into a smile that offered anything but comfort.
 
 I simply nodded in response, but made a mental note to stick to the stairs from now on. I got into my car and began the hour-long drive back to the city. By the time I reached home, I was exhausted, and dawn was just beginning to break.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1f3qdzb/the_new_switchboard_operator_at_twilight_trust/)
