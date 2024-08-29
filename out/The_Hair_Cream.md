@@ -90,7 +90,7 @@ The answers did not come until the sun had set. The doctor was drenched in sweat
 
 His hands shook and so did his voice. A parasite which the doctor could not identify had burrowed deep into Rustam’s skin. His fingers tapped the cigarette as if it were morse code. At first, the doctor tried to be professional and measured with his diagnosis, but when he eventually stuttered out the word his true horror showed:
 
-*Worms.* Rustam’s face was filled with *worms*. He had managed to take them all out, but there were hundreds of them and they were burrowed deep. The doctor said he couldn’t explain what had transpired. When I told him about where Barat’s hair cream came from, he let out a long sigh.
+*Worms.* Rustam’s face was filled with *worms*. He had managed to take them all out, but there were hundreds of them and they were burrowed deep. The doctor said he couldn’t explain what had transpired. When I told him about where Rustam’s hair cream came from, he let out a long sigh.
 
 The doctor assured me he would do his best to make sure Rustam would make some form of recovery. When he shook my hand as I left, he didn’t seem confident. He is, however, a very good doctor.
 
