@@ -1,4 +1,4 @@
-“I am Detective Hancock. I'm here with detective Isaiah Toadvine and Ms. Christy Tallulah. It's 2:36 pm Tuesday October 19th.” 
+“I am Detective Hancock. I'm here with detective Isaiah Toadvine and Ms. Cindy Tallulah. It's 2:36 pm Tuesday October 19th.” 
 
 He sat the recorder down on the polished hardwood table. “Can we get you anything?” Hancock said to the young girl sitting across the table from the two men. She just shook her head from side to side. She was looking at the ground but you could still see her eyes were red and puffy from crying.”Why don't you start from the beginning.” tell us every detail no matter how small.
 
