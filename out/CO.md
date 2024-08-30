@@ -170,6 +170,6 @@ I've been trying to find out anything I can about the lady, but I haven't had mu
 
 I said I didn't believe in ghosts, and I suppose a big part of me thinks that it must have been a hallucination or maybe the coffee and bagel was spiked or something... but another part of me knows what I saw.
 
-Whether I do or don't believe, it doesn't matter. Whether you do or don't, that's up to you. All I can say for sure is this;
+Whether I do or don't believe, it doesn't matter. Whether you do or don't, that's up to you. All I can say is this;
 
 The next time you think you've seen something in the corner of your eye. Don't look.
