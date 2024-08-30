@@ -1,4 +1,4 @@
-Alright,  a friend said that this subreddit discusses weird experiences with the same open mind as an alcoholic anonymous session. I thought I might as well share this account of the past 2 days and see what you all think. 
+Alright,  a friend said that this subreddit discusses weird experiences with the same open mind as an alcoholic anonymous session. I thought I might as well share this account of the past 2 days and see what you all think.
 
 My parents have been in the process of downsizing their house to make a move to a quote-unquote "quieter part of Idaho". And I got a call last week from my mom asking to stay for a while and help shift through the junk, with the ever-enticing promise that I now was of age to handle pieces of decor I had been eyeing since a young girl ( it only took about 20 years ). So clocking in my sick leave at work I drove across state to Idaho with my arm dangling out the car window surfing the breeze of the rushing vehicle ( I still have a sunburn all down that very arm ). Even from the outside the town in which I grew up hasn't been altered a single bit, right down to the blurred outline of a penis graffitied onto the lefthand corner of the sign that welcomed me: 
 
@@ -20,7 +20,7 @@ and everyone would know to go to Sherman's home.  
 
 " Charlie, it's so lovely to see you again! " she breaks free from the immersion and peers up, "You've changed so much, I thought a different person entirely stepped out of that car!"
 
-insisting she takes the luggage I've barely even begun to carry, Mom and I meet Dad at the door. He always has this reluctant manner about him whenever near me. like it took, to be in my presence, an effort, leaving just enough strength to slouch his shoulders and bald head grumble, 
+insisting she takes the luggage I've barely even begun to carry, Mom and I meet Dad at the door. He always has this reluctant manner about him whenever near me. like it took, to be in my presence, an effort, leaving just enough strength to slouch his shoulders and bald head grumbling, 
 
 "Welcome home, son" 
 
@@ -58,9 +58,6 @@ He throws the drill down as he finishes and uses me for balance when getting up,
 
   
 
-  
-
-
 The Second morning at Splinters greeted me with back pain. gently I descended the stairs as if a child once more, trying not to disturb sleeping parents, and tip-toed into the kitchen to have breakfast. There's a window in front of the sink that looks out on the street. I saw the outline of yesterday's turnouts. broken, redundant junk. I text some old friends in town about a potential get-together while I munch on toast, I haven't seen any of them in seven years. Washing my dish I wonder what they must think of me now, absolutely different in aspects I was remembered for. It's like I am a breathing example of Theseus's ship.
 
 what was first an absent glance up turned into a full-on stare as I saw a dark green beetle car stop in front of the decor left to the curb. I believe it was a man who stepped out and paced about. He (and again I am uncertain as to the gender), had maroon overalls with a mustard yellow turtle neck tucked in (It could maybe belong to something because I sorta recognized it). Overalls appeared to be searching heavily about the junk, taking up one thing and storing it in another, and with such a frantic manner I couldn't help but think of a vulture picking apart the edible parts of roadkill. satisfied, he heaved the lot up and settled it in the front seat before performing a violent U-turn the way he came. 
@@ -95,15 +92,10 @@ Mom leans forward and puts a hand on his shoulder from behind his seat,
 
 "It's alright, I can pick it up, " I say, squinting at the litter, " It looks like they only hit the Recycle "
 
-
-
 It wasn't that daunting of a task, Mom makes sure to place all the loose articles together in sealed boxes so it won’t fling out when the garbage truck comes round. the sunset catching my attention, I paused my work to see it ride off into the night, a ruminant of a life now defined by the blurry linework of nostalgia. Ok, It's stupid I know, but there's a chunk of my past preserved here and I have to wonder if I have changed to such a degree I even hesitate to call this town my own and not someone else's. what belongs to me anymore, and what no longer does? 
 
 Picking the last of the boxes it seems empty. flipping it upside down I see it appears to have been cut open. I rotate it to its side and see my mother's handwriting,
 
 CHARLIE FAN-MAIL
 
-
-
 As I have written all this it has only been a few hours since found the empty box. This and the Babybox (things I cannot Imagine having an outside use) are the only things to be taken. I am really on edge. I'll keep you all on tab if anything more happens.
-
