@@ -205,3 +205,5 @@ Then she glanced past me, towards the windows where we could hear the rain gentl
 Yes.  It worried me very much.
 
 The devil had said that campus would change and I suspect we’re only seeing the tip of [the](https://alderrayne.com/) [iceberg.](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1f4k81v/how_to_survive_college_science/)

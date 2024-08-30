@@ -299,3 +299,6 @@ I simply nodded and signed the document before handing it back to him.
 “Thank you Mr Lockwood,” he responded as he carefully placed the signed paper in the folder and closed it with a decisive snap.
 
 With that, I quickly turned and walked past him, my mind still reeling from everything that just happened. But it only strengthened my resolve to see this through to the end.
+
+  
+[Part3](https://www.reddit.com/r/nosleep/comments/1f4jcoz/the_new_switchboard_operator_at_twilight_trust/)
