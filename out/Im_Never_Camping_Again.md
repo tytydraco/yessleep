@@ -6,13 +6,13 @@ I made my way over. "What's wrong pops you getting to old for this?" I laughed
 
 "Ill never be to old to whoop your ass." He laughed
 
-all of a sudden my fathers demeaner completely changed.
+All of a sudden my father demeaner completely changed.
 
-"Tony, If anything ever happens son Never go camping again." He said cryptically and turned to continue grabbing things.
+"Tony, If anything ever happens son Never go camping again." He said cryptically
 
 "What's that supposed to mean dad?" I said but he ignored me and kept going.
 
-I'm not sure what that was. Was he joking with me? I just moved on and continued helping. I helped him with the rest of the equipment, we loaded it all up and got into the truck. My dad was a very kind man. Give you the shirt off his back kind of guy. He was funny, caring, and made you feel like you could conquer the world. He was also quiet and standoffish at times which I figured was his military service bleeding out. He never really talked about it but mom would always say "Dad came home after the war ended, But his mind is still at war." Some nights he would wake screaming and Id hear mom promising it was all ok and he's ok. But for the most part he was an amazing man who treated his family like royalty.
+He acted like he didn't just say that to me. I kept loading gear and just ignored it. I helped him with the rest of the equipment, we loaded it all up and got into the truck. My dad was a very kind man. Give you the shirt off his back kind of guy. He was funny, caring, and made you feel like you could conquer the world. He was also quiet and standoffish at times which I figured was his military service bleeding out. He never really talked about it but mom would always say "Dad came home after the war ended, But his mind is still at war." Some nights he would wake screaming and Id hear mom promising it was all ok and he's ok. But for the most part he was an amazing man who treated his family like royalty.
 
 "So kiddo are you ready for this years camping trip?" Dad asked.
 
@@ -20,11 +20,11 @@ I'm not sure what that was. Was he joking with me? I just moved on and continued
 
 "You sure you're not upset you have to leave your little girly back home." He joked.
 
-I brushed off the comment and sighed. He laughed and continued to drive out to the campsite. It took us about four hours to get out there. Its out in the middle of no where California, nothing but high trees and higher mountains. Our campsite was situated right on the side of a cliff  I began to pull the camping stuff out of the truck. I noticed my dad pacing and muttering under midbreath. He made his way around the area "checking things out." He seemed a little agitated but I  brushed it off and kept pulling things out. An hour or so later and camp was set up. It was about 3pm at this point and we were starting to get hungry.
+I brushed off the comment and sighed. He laughed and continued to drive out to the campsite. It took us about four hours to get out there. Its out in the middle of no where California, nothing but high trees and higher mountains. Our campsite was situated right on the side of a cliff I began to pull the camping stuff out of the truck. I noticed my dad pacing and muttering under midbreath. He made his way around the area "checking things out." He seemed a little agitated but I brushed it off and kept pulling things out. An hour or so later and camp was set up. It was about 3pm at this point and we were starting to get hungry.
 
 "Lets get down to that river and get us some dinner." Dad said.
 
-I agreed and we made our way down to the river. It was a 5 minute hike down the hill from our campsite . When we got down to the water I noticed the cliff our campsite sat on overlooked it. The river was quite violent, churning rapids loud as plane engines. The roar could be felt in your chest. My father made his way down the river to a split off that ran into a creek. He explained The slower water was perfect for catching fish and then he froze. Abruptly his voice stopped. I looked over and noticed dad was staring into the woods and whispering something to himself I couldn't make out. His eyes so glazed over I'm surprised tears didn't begin to fall. I could hear him saying what sounded like "This last time" but I wasn't sure. I made my way closer to my dad.
+I agreed and we made our way down to the river. It was a 5 minute hike down from our campsite to the water. When we got down to the river I noticed the cliff our campsite sat on overlooked it. The river was quite violent, churning rapids loud as plane engines. The roar could be felt in your chest. My father made his way down the river to a split off that ran into a creek. He explained The slower water was perfect for catching fish and then he froze. Abruptly his voice stopped. I looked over and noticed dad was staring into the woods and whispering something to himself I couldn't make out. His eyes so glazed over I'm surprised tears didn't begin to fall. I could hear him saying what sounded like "This last time" but I wasn't sure. I made my way closer to my dad.
 
 "Dad are you ok?" I said, but he didn't move an inch. I looked out into the woods but seen nothing. I reached out to grab is shirt.
 
@@ -38,7 +38,7 @@ I was quick to notice that this episode looked a lot like the symptoms of my fat
 
 "Son hand me my fishing pole, Lets see if we can get us some grub." He said.
 
-I handed him the pole and we began to fish. We caught what seemed like 100 fish. It basically turned into sport seeing as how we caught so many. The entire time we were fishing and laughing, The episode played in my head on repeat. I tried my best to just forget it and enjoy the day with my dad. We went back to the campsite after fishing for a couple of hours. We scaled the fish, gutted them, and skewered them on some branches and began to cook them. Dad grabbed a beer out of his cooler, sat down with a piece of wood and began to whittle it. I stood at the cliff and looked at the river. I grabbed a rock and chucked it down into the water. Id say we were about 75 feet up but I wasn't sure. I turned and looked at my dad wanting to question him about what happened today, but I couldn't. Maybe I was to afraid to trigger his PTSD I'm not sure what it was but I couldn't. Dinner finished and we sat down to eat. Besides the creepiness of the day id say it went pretty well. Dad cleaned up the dishes and I started to gather more wood for the coming day. By this time it was about 8pm and we were winding down.
+I handed him the pole and we began to fish. We caught what seemed like 100 fish. It basically turned into sport seeing who could catch the most. The entire time we were fishing and laughing, The episode played in my head on repeat. I tried my best to just forget it and enjoy the day with my dad. We went back to the campsite after fishing for a couple of hours. We scaled the fish, gutted them, and skewered them on some branches and began to cook them. Dad grabbed a beer out of his cooler, sat down with a piece of wood and began to whittle it. I stood at the cliff and looked at the river. I grabbed a rock and chucked it down into the water. Id say we were about 75 feet up but I wasn't sure. I turned and looked at my dad wanting to question him about what happened today, but I couldn't. Maybe I was to afraid to trigger his PTSD I'm not sure what it was but I couldn't. Dinner finished and we sat down to eat. Besides the creepiness of the day id say it went pretty well. Dad cleaned up the dishes and I started to gather more wood for the coming day. By this time it was about 8pm and we were winding down.
 
 "How was your dinner son ?" He asked.
 
@@ -86,33 +86,35 @@ I stumbled backwards out of the tent and fell to the ground.
 
 He shook his head yes and told me to go back to bed.
 
-The rest of the night was calm. I laid in bed for an hour or so playing what I just heard over and over again in my head. I'm not sure what to chalk it up to but I don't know if that was PTSD. The following day it was pretty normal. We hiked around some, Fished some more, and gathered wood for the night. He didn't say much all day and seemed irritated. All in all another good day. I dared not ask dad about what I heard him say in his sleep. I'm not even sure he would have told me.
+The rest of the night was calm. I laid in bed for an hour or so playing what I just heard over and over again in my head. I'm not sure what to chalk it up to but I was almost certain that wasn't PTSD. The following day it was pretty normal. We hiked around some, Fished some more, and gathered wood for the night. He didn't say much all day and seemed irritated. All in all another good day. I dared not ask dad about what I heard him say in his sleep. I'm not even sure he would have told me.
 
 "Alright son I'm out." Dad said.
 
-"Love you pops, see you in the morning." I said the last thing I got to say.
+"Love you pops, see you in the morning." I said not knowing that was the last thing Id ever say to him.
 
-When I got into my tent I could feel anxiety creeping up my back. The events of last night burning into my memory. I forced myself to stop thinking about it. I began to tell myself to calm down and man up. Until I stood up and looked around in the darkness. That's when I noticed it. A silhouette of my dad standing completely still on the cliffs edge, whispering, and looking down at the river. I gasped in horror and began to sprint  towards my dad. I got about 10 ft. behind him and froze. I could finally hear what he was saying.
+When I got into my tent I could feel anxiety creeping up my back. The events of last night burning into my memory. I forced myself to stop thinking about it. I began to tell myself to calm down and man up. All of a sudden a noise that i can only describe as bones and meat squelching, moved thru our camp and towards the cliff. I stood up and looked around in the darkness. That's when I noticed it. A silhouette of my dad standing completely still on the cliffs edge, whispering, and looking down at the river. I gasped in horror and began to sprint towards my dad. I got about 10 ft. behind him and froze. I could finally hear what he was saying.
 
 "You can have me but not them, This is the last time you hurt me." He said whispering.
 
 Dad are you o...
 
-Before I could even finish the though my dad looked back at me and said "Never go camping again son." and he leapt off of the cliff.
+Before I could even finish the thought my dad looked back at me and said "Never agree to go camping again son." and he leapt off of the cliff.
 
 "NOOOOOOOOOOOOOOOOO" I screamed. The shock I felt almost made me pass out. I stood there emotionless not understanding what just happened. Feeling slowly coming back to me I began to sob. I ran to the cliffs edge but there was nothing I could have done. Staring into the darkness listening to the roar of the river below, Reality began to set in. I need to get help right now. I grabbed the keys and hopped into the truck and drove all the way home to get help. I drove home in shock. I could swear I kept seeing my dad in the back of the truck The entire 4 hour drive was a blur. I got home and rushed to my mother and explained to her what happened.
 
 She collapsed and began to sob. We called the authorities and they went out to search. Not a single trace was found of my father. It was like he disappeared. That was two years ago. I'm 18 now and its coming up on our annual trip. I haven't gone in the last 2 years since I moved after that. I'm going up to stay with my mom for the weekend.
 
-The night I got there was the night before the annual trip was to take place. I got in greeted my mother and had dinner. That night I woke up to a cold chill running up my back. I opened my eyes and stared around the dark room. It was so quiet in the room it frightened me. A whisper broke thru the darkness. "son get up." It whispered.  I sat up on the bed and rubbed my eyes. That's when I noticed it. A persons face looking at me from the bottom of the window looking into the back yard. More specifically my fathers face. His skin was paper white and his hair was matted. His eyes were black and evil. He began to speak in a quiet deep tone.
+The night I got there was the night before the annual trip. I got in, greeted my mother and had dinner. That night I woke up to a cold chill running up my back. I opened my eyes and stared around the dark room. It was so quiet in the room it frightened me. A whisper broke thru the darkness. "son get up." It whispered. I sat up on the bed and rubbed my eyes. That's when I noticed it. A persons face looking at me from the bottom of the window looking into the back yard. More specifically my fathers face. His skin was paper white and his hair was matted. His eyes were black and evil. He began to speak in a quiet deep tone.
 
 "Son are you ready to go camping?" He said raising a had and tapping on the window with his long sharp fingernails.
 
-I stared in absolute horror, frozen by what I was looking at. I didn't say anything. I couldn't say anything. I stood up and backed away
+TAP TAP TAP his fingernails rhythmically tapping the window pane.
 
-from the window. I turn the light on and he is gone. I open my door and go into my mothers room.
+"Ive missed you all this time son, why did you leave me?" He cried.
 
-"mom are you awake." I asked.
+He began to open his mouth wider than anything I've ever seen. His cheeks tearing straight to his ears and his jaw hinging open. I jumped out of be and flipped back to look at the window. I stared in absolute horror, frozen by what I was looking at. I didn't say anything. I couldn't say anything. I backed away slowly and his eyes followed me. I flipped the light on and its gone. I run from my room straight into my moms.
+
+"mom are you awake." I asked frightened.
 
 "yes I'm awake son what's wrong." She asked.
 
@@ -122,15 +124,17 @@ Just then my mom cuts me off.
 
 "He cant get you son if you don't agree to go camping." She said as she rolled back over and went right back to sleep.
 
-"mom what the hell is that supposed to mean?!" I yelled but she ignored me.
-
-This is crazy I thought to myself. Did I really just see my dead dad staring at me thru the window. I decided to step outside and see for myself. I'm not gonna be able to ever sleep again if I don't figure this out. I walked around the house to where my window was and nothing was there. Just the woods behind our house and nothing more.
+"mom what the hell is that supposed to mean?!" I yelled but she ignored me. Confusion and anger had set in at this point. What was going on? This is crazy I thought to myself. Did I really just see my dead dad staring at me thru the window. I decided to step outside and see for myself. I'm not gonna be able to ever sleep again if I don't figure this out. I walked around the house to where my window was and nothing was there. Just the woods behind our house and nothing more.
 
 "Wont you go camping with me son." A voice called from the woods.
 
 "wont you please?"
 
-Just then a figure on all fours scuttles out of the woods towards me and begins to scream horrible screams. I fall backwards on my ass and close my eyes waiting for the inevitable end. The screams get louder and louder until they're almost right on top of me.
+I stopped moving and slowly turned to look at the woods where the voice came from.
+
+"I'm going to get you, Just like I got your dad!" It yelled in a piercing screech.
+
+Just then a bright white figure completely naked on all fours scuttles out of the woods towards me and begins to scream horrible screams. I fall backwards on my ass and close my eyes waiting for the inevitable end. The screams getting louder and louder until they're almost right on top of me. I feel long fingers wrap around both of my ankles, Finger nails digging into my calves. "This is it." I though to myself. The thing that killed my dad is going to kill me then my mom. As soon as the thought entered my head all I could hear were my dads last words. Never agree to go camping again son. I snapped out of it.
 
 "IM NOT GOING CAMPING WITH YOU!" I screamed at the top of my lungs my hands covering my eyes.
 
