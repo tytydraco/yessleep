@@ -6,11 +6,13 @@ I made my way over. "What's wrong pops you getting to old for this?" I laughed
 
 "Ill never be to old to whoop your ass." He laughed
 
-"Tony, If anything ever happens son Never go camping again." He said cryptically
+all of a sudden my fathers demeaner completely changed.
+
+"Tony, If anything ever happens son Never go camping again." He said cryptically and turned to continue grabbing things.
 
 "What's that supposed to mean dad?" I said but he ignored me and kept going.
 
-I helped him with the rest of the equipment, we loaded it all up and got into the truck. My dad was a very kind man. Give you the shirt off his back kind of guy. He was funny, caring, and made you feel like you could conquer the world. He was also quiet and standoffish at times which I figured was his military service bleeding out. He never really talked about it but mom would always say "Dad came home after the war ended, But his mind is still at war." Some nights he would wake screaming and Id hear mom promising it was all ok and he's ok. But for the most part he was an amazing man who treated his family like royalty.
+I'm not sure what that was. Was he joking with me? I just moved on and continued helping. I helped him with the rest of the equipment, we loaded it all up and got into the truck. My dad was a very kind man. Give you the shirt off his back kind of guy. He was funny, caring, and made you feel like you could conquer the world. He was also quiet and standoffish at times which I figured was his military service bleeding out. He never really talked about it but mom would always say "Dad came home after the war ended, But his mind is still at war." Some nights he would wake screaming and Id hear mom promising it was all ok and he's ok. But for the most part he was an amazing man who treated his family like royalty.
 
 "So kiddo are you ready for this years camping trip?" Dad asked.
 
@@ -22,7 +24,7 @@ I brushed off the comment and sighed. He laughed and continued to drive out to t
 
 "Lets get down to that river and get us some dinner." Dad said.
 
-I agreed and we made our way down to the river. It was a 5 minute hike down the hill from our campsite to the river. When we got down to the river I noticed the cliff our campsite sat on overlooked it. The river was quite violent, churning rapids loud as plane engines. The roar could be felt in your chest. My father made his way down the river to a split off that ran into a creek. He explained The slower water was perfect for catching fish and then he froze. Abruptly his voice stopped. I looked over and noticed dad was staring into the woods and whispering something to himself I couldn't make out. His eyes so glazed over I'm surprised tears didn't begin to fall. I could hear him saying what sounded like "This last time" but I wasn't sure. I made my way closer to my dad.
+I agreed and we made our way down to the river. It was a 5 minute hike down the hill from our campsite . When we got down to the water I noticed the cliff our campsite sat on overlooked it. The river was quite violent, churning rapids loud as plane engines. The roar could be felt in your chest. My father made his way down the river to a split off that ran into a creek. He explained The slower water was perfect for catching fish and then he froze. Abruptly his voice stopped. I looked over and noticed dad was staring into the woods and whispering something to himself I couldn't make out. His eyes so glazed over I'm surprised tears didn't begin to fall. I could hear him saying what sounded like "This last time" but I wasn't sure. I made my way closer to my dad.
 
 "Dad are you ok?" I said, but he didn't move an inch. I looked out into the woods but seen nothing. I reached out to grab is shirt.
 
@@ -38,7 +40,7 @@ I was quick to notice that this episode looked a lot like the symptoms of my fat
 
 I handed him the pole and we began to fish. We caught what seemed like 100 fish. It basically turned into sport seeing as how we caught so many. The entire time we were fishing and laughing, The episode played in my head on repeat. I tried my best to just forget it and enjoy the day with my dad. We went back to the campsite after fishing for a couple of hours. We scaled the fish, gutted them, and skewered them on some branches and began to cook them. Dad grabbed a beer out of his cooler, sat down with a piece of wood and began to whittle it. I stood at the cliff and looked at the river. I grabbed a rock and chucked it down into the water. Id say we were about 75 feet up but I wasn't sure. I turned and looked at my dad wanting to question him about what happened today, but I couldn't. Maybe I was to afraid to trigger his PTSD I'm not sure what it was but I couldn't. Dinner finished and we sat down to eat. Besides the creepiness of the day id say it went pretty well. Dad cleaned up the dishes and I started to gather more wood for the coming day. By this time it was about 8pm and we were winding down.
 
-"How was your dinner son tony?" He asked.
+"How was your dinner son ?" He asked.
 
 "It was awesome dad, Thanks for cooking." I said
 
