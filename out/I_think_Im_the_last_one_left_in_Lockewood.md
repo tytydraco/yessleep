@@ -25,3 +25,4 @@ The knocking came back last night. It was louder than ever, and this time, I swe
 I’ve been trying to figure out what to do. I keep thinking about leaving, but where would I go? Lockewood feels like it’s been cut off from the rest of the world, like no one even knows we’re still here. Maybe no one cares. But if I stay, I think I’m going to lose my mind. I don’t know how much longer I can take this.
 
 Please, if anyone’s reading this—if anyone’s out there—tell me what’s going on. Have you heard of anything like this happening somewhere else? What should I do?
+[update](https://www.reddit.com/r/nosleep/s/C7ea5hZtXD)
