@@ -1,6 +1,6 @@
-I \[M39\] keep finding my son \[M3\] eating maggots and I don't know where he's finding them.
+I \[M39\] keep finding my son \[M3\] eating maggots and I don't know where he's finding them.
 
-My son Jake is like any other adventurous three-year-old. He is constantly on the move, bouncing off walls,  screaming his head off, and being an overall pain in my neck. But despite all the headaches he causes, I love him dearly. His mother and I are no longer together. She has no contact with him, so I have full custody. To say that I am ecstatic about that fact is an understatement. I may have loved his mother with all my heart at one point, but she really went off the rails after her parents died. I tried to make it work for the sake of my son, but no matter what I did for her she never got better.
+My son Jake is like any other adventurous three-year-old. He is constantly on the move, bouncing off walls, screaming his head off, and being an overall pain in my neck. But despite all the headaches he causes, I love him dearly. His mother and I are no longer together. She has no contact with him, so I have full custody. To say that I am ecstatic about that fact is an understatement. I may have loved his mother with all my heart at one point, but she really went off the rails after her parents died. I tried to make it work for the sake of my son, but no matter what I did for her she never got better.
 
 She would spend hours on end rocking in the corner of the living room, sobbing at the memory of her departed mother and father. When I would try to console her she would lash out, screaming profanities and for me to leave her alone. I tried to give her the space she needed to morn, taking my son out to the park after work, so she wouldn't have to deal with his high energy. I also didn't want her to feel the need to humor me after I'd arrived home from a long day's work.
 
@@ -26,7 +26,7 @@ She stood there for a minute or two digesting the information I had just given h
 
 It made me feel like such an ass to have accused my wife of being threatening to our loving boy. I slept on the couch that night tossing and turning as I dwelled on how badly I messed up. The sun finally peered through the window and I rose for work, just before I left the house I pressed my ear to our bedroom and I heard my wife's voice whispering and my son's laughter. Despite enraging her the night before, our talk seemed to have some positive effects. I left feeling hopeful that things were going to get better.
 
-Later that afternoon, I walked through the door to a quiet house. As the front door closed behind me I stood there for a minute and in the silence I heard the faint sounds of whispers in the direction of our bedroom and then my son's giggle.  'They must be playing in our bedroom' I thought to myself. I crept in quietly so as to not disturb my family's playtime. I reached the bedroom, poking around the door frame, my heart dropped.
+Later that afternoon, I walked through the door to a quiet house. As the front door closed behind me I stood there for a minute and in the silence I heard the faint sounds of whispers in the direction of our bedroom and then my son's giggle. 'They must be playing in our bedroom' I thought to myself. I crept in quietly so as to not disturb my family's playtime. I reached the bedroom, poking around the door frame, my heart dropped.
 
 The furniture was cleared out of the room. On the hardwood floor was a white chalk pentagram, and in the center my son, tied at four ends by rope, stakes drilled in the wood. My wife sat beside the chalk symbol, engaged in her normal rocking. Only this time she whispered a horrific prayer.
 
@@ -70,17 +70,17 @@ Once the cameras arrived I placed them throughout the house. There would be zero
 
 A week later I sat down to look through all the video footage, by that time whatever was rotting in my house was starting to stink. Believe me, I cleaned the place extremely well, I left no stone unturned when the smell started to penetrate my nostrils, it had to be the source of the maggots. There were days of footage to review, so I sat Jake in front of the TV hoping he would leave me to my work. Morning turned to noon, noon to dusk, and the security cameras had not given me any results. That is until the bedroom camera captured something extremely strange. Two nights prior, there was a scene captured of Jake sitting fully upright on the bed. Ever since his mom was committed he was sleeping in my bed, only this night he wasn't sleeping. That night he just sat there.
 
-I sped the footage up to 4x the normal speed, and as I tossed in turned for hours on end, he just sat there. Until early that morning sometime before the sun rose, Jake hopped out of bed and walked over to the nightstand. He pulled out my wife's eyebrow tweezers and headed to the foot of the bed where my leg hung off. For the next half hour or so he picked and slashed at the bottom of my soles, I, however, never awoke. I finally saw Jake take his tiny little fingers and pick something off my foot, placing it into his mouth. Then I heard my wife's voice faintly whisper in the audio.
+I sped the footage up to 4x the normal speed, and the video footage showed me tossing and turning for hours on end. All the while, he just sat there. Until early that morning before the sun rose (the clock in the corner of the footage reading 6 a.m.), Jake hopped out of bed and walked over to the nightstand. He pulled out my wife's eyebrow tweezers and headed to the foot of the bed where my legs hung off the end of the footboard. For the next half hour or so he picked and slashed at the bottom of my soles, I, however, never awoke. I finally saw Jake take his tiny little fingers and pick something off my foot, placing it into his mouth. Then I heard my wife's voice faintly whisper in the video's audio.
 
 "Is it good?"
 
 "Yes, Mommy" Jake responded turning to face an empty corner of the room.
 
-"You see, I always feed my little boy." Jake smiled warmly. Then it dawned on me. I ripped the socks off of my feet, twisting my right leg onto my knee. In a mangled mess of rotten flesh, the maggots wiggled their way in and out of the open wounds.
+"You see, I always feed my little boy." Jake smiled warmly. Then it dawned on me. I turned away from the security footage, ripping the socks off of my feet, and twisting my right leg onto my knee. In a mangled mess of rotten flesh, the maggots wiggled their way in and out of the open wounds.
 
-"Bugs,"  Jake said as he somehow made his way to my side. I let out a yelp and inched back away from my son. He took his hand and picked one of the maggots off of my foot, plopping it into his mouth. I wanted to slap it away but was too stunned to do so. I finally built up the courage and scooped up my son running him out to the car.  As I sped to the emergency room, I kept Jake in my line of sight, directly in the center of the rearview mirror.
+"Bugs," Jake said as he somehow made his way to my side. I let out a yelp and inched back away from my son. He took his hand and picked one of the maggots off of my foot, plopping it into his mouth. I wanted to slap it away but was too stunned to do so. I finally built up the courage and scooped up my son running him out to the car. As I sped to the emergency room, I kept Jake in my line of sight, directly in the center of the rearview mirror.
 
-I was rushed back to a quiet little room in the emergency department. The doctor's gloved hand took my footwear off, and he winced as the smell hit him.
+I was rushed back to a quiet little room in the emergency department. The doctor's gloved hand took my footwear off, and he winced as the smell hit him. He inspected my foot closely. 
 
 "Looks like our little friends are helping us out here." 'helping' I thought to myself.
 
@@ -90,7 +90,7 @@ I was rushed back to a quiet little room in the emergency department. The doctor
 
 "Why do you ask?"
 
-"Well, Mr. Bliss, this is not the first time I've seen this. It is common for diabetics to lose feeling in their feet, so they are unable to sense when their soles get injured. These injuries often get infected leading to complications." He gestures over to my discolored soles.
+"Well, Mr. Bliss, this is not the first time I've seen this. It is common for diabetics to lose feeling in their feet, so they are unable to sense when their soles get injured. These injuries often get infected leading to complications." He gestures over to my discolored feet.
 
 "But you see these little guys here." Plucking a squirmy maggot off my foot.
 
