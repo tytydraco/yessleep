@@ -8,7 +8,7 @@ I didn't get lost, exactly. I had the GPS, it told me which way was which, and h
 
 Since everything was obviously all good, I decided to enjoy myself. Nothing but open ocean meant perfect privacy, and maybe this was just what I needed. A little R&R. In any case, the boat was fully stocked. No time like the present to take advantage of it.
 
-I went below deck to get a Bollinger out of the fridge. I considered filling a bucket with ice and getting out a glass, but then I thought: who cares*.* Salt Life, baby!
+I went below deck to get a Bollinger out of the fridge. I considered filling a bucket with ice and getting out a glass, but then I thought: who cares\*.\* Salt Life, baby!
 
 Popping the cork, I took a big swig. Who says money can't buy happiness? Going back out on deck I admired the view. Life was so good! Clad in nothing but my bathing shorts, I was on a beautiful boat with cool blue water lapping against the hull, and gulping down champagne like it was nothing. Anyone out there who wouldn't want to be me right now? That's what I'd like to know.
 
@@ -38,7 +38,7 @@ Then I hurried back out and scanned the horizon in every direction. Nothing. I w
 
 The one smart thing I'd done before heading out was to familiarize myself with the handheld VHF. The thing had a built in GPS that would automatically transmit my position, and it didn't take me long to get in contact with a rescue vessel. It was a stroke of pure luck, but they were returning from what had proved to be a false alarm, and had no problem redirecting themselves to pick us up. When I explained about the presence of an unconscious woman with a head wound, it really seemed to light a fire under their asses too.
 
-When I turned around, the unconscious woman in question was sitting up in the bed. I froze, looking at her. She looked back. Her eyes were shockingly dark, as if the pupils had fully dilated. She fixed me with a gaze of such intensity I wanted to look away, yet I didn't dare to break eye contact for a second. 
+When I turned around, the unconscious woman in question was sitting up in the bed. I froze, looking at her. She looked back. Her eyes were shockingly dark, as if the pupils had fully dilated. She fixed me with a gaze of such intensity I wanted to look away, yet I didn't dare to break eye contact for a second.
 
 You see, the sheet had slipped down around her waist, and her small breasts were on full display.
 
@@ -54,7 +54,7 @@ She sniffed, looking around at the interior of the cabin without seeming much im
 
 She was making no sense, trailing off in the middle of her sentence. The blow to the head must have really done a number on her. I silently prayed there would be no brain damage, and offered to attend Church every Sunday for a full year as payment for it.
 
-“You should let me look at that cut there.” I said. “I'll clean it up.” I was already scrambling for the first aid kit. Something had cracked when I hit her, but was it her head or was it the bottle? I knew more or less what I was doing when it came to the basics, but I was worried this would be beyond me. 
+“You should let me look at that cut there.” I said. “I'll clean it up.” I was already scrambling for the first aid kit. Something had cracked when I hit her, but was it her head or was it the bottle? I knew more or less what I was doing when it came to the basics, but I was worried this would be beyond me.
 
 Didn't matter. I'd do what I could, and the rest would just have to wait.
 
@@ -68,7 +68,7 @@ And acting weird. Concussion, I decided. Had to be. What was the procedure with 
 
 “Like my cologne?” I asked.“You smell nice, too. Driftwood and Kelp! The bold new scent by Saint Laurent!” I realized I was babbling. My wrist was starting to hurt.
 
-She seemed intent on planting a kiss on my shoulder. Despite my attempts at dissuading her, she'd almost put her mouth to the trembling flesh when she winced, her hand releasing me to gingerly prod at her forehead again. 
+She seemed intent on planting a kiss on my shoulder. Despite my attempts at dissuading her, she'd almost put her mouth to the trembling flesh when she winced, her hand releasing me to gingerly prod at her forehead again.
 
 She looked at me. “You would...mend me?”
 
@@ -76,7 +76,7 @@ I'd pulled myself back a little as soon as she let go. I was entirely in two min
 
 Part of me thought the cabin seemed suddenly very cramped. It wanted to place itself out of reach of those slender arms with their viselike grip.
 
-Another part wanted only to help her. It was so clear she needed me. What kind of shithead would I be if I just ignored that? This *was* kinda my fault. 
+Another part wanted only to help her. It was so clear she needed me. What kind of shithead would I be if I just ignored that? This *was* kinda my fault.
 
 "Sure...” I said. “I'll take care of it. Just, stay still now. Don't grab.”
 
@@ -88,7 +88,7 @@ Alright. There was also some Aloe gel in the kit. That was good for wounds, righ
 
 She had closed her eyes halfway through my ministrations, and now she was sighing contently. Her mouth curved slightly. “That's nice...” She said. “I like that.”
 
-“Good, great. I'm gonna put a bandage on you now, okay?” 
+“Good, great. I'm gonna put a bandage on you now, okay?”
 
 Before I could get that far, the handheld crackled into life.
 
@@ -120,7 +120,7 @@ She seemed to considered something.
 
 “Made me feel good,” she murmured. “When you touched me.”
 
-She'd come so close we could almost have kissed. Gently, she placed her hands on my chest. 
+She'd come so close we could almost have kissed. Gently, she placed her hands on my chest.
 
 “But,” she said. “I am also hungry.”
 
@@ -132,9 +132,9 @@ From the deck, she looked down at me.
 
 I was about to ask her what the hell she was playing at, but she had already leapt from the deck, curving forward to perform a perfect dive. She knifed into the water and -
 
-- *changed.*
+*- changed.*
 
-Her speed had carried her deep beneath the surface, but I could still see her well enough to know it wasn't her any more. Scales glittered on a blue-grey and sinuous body that snaked around and coiled upon itself. A woman's torso grew from the lower body of a giant eel. A pair of eyes like dark marbles blinked as a nightmare mouth split open.
+Her speed had carried her deep beneath the surface, but I could still see her well enough to know it wasn't her any more. Scales glittered on a blue-grey and sinuous form that snaked around and coiled upon itself. A woman's torso grew from the lower body of a giant eel. A pair of eyes like dark marbles blinked as a nightmare mouth split open.
 
 Screaming, I thrashed and flailed, made for the ladder of my boat. I had to get out of the water! The shape came shooting up so quickly it almost seemed to simply appear before me. It cut me off, pushed me back, herding me away. A webbed hand slid across my belly in passing, grating like sandpaper against my skin. A message delivered. Don't go that way.
 
@@ -142,7 +142,7 @@ I reversed, kicking, threw myself around and turning my momentum into a desperat
 
 This wasn't happening. This wasn't possible. She wasn't -
 
-- a stab of pain in my left thigh. Something flashed past me in the water, circled 'round and came up again from behind me. I whimpered, swallowed seawater, floundered, threw myself forward again. It was below me now, I could feel it, caught flashes of reflected light.
+*- a stab of pain in my left thigh.* Something flashed past me in the water, circled 'round and came up again from behind me. I whimpered, swallowed seawater, floundered, threw myself forward again. It was below me now, I could feel it, caught flashes of reflected light.
 
 At first I'd been been praying, begging *please please please don't let it get me, God and Sister Agnes help me now and I will always be so good forever I promise*, but even that babble of childish fear and pleading had stilled, displaced by a deeper terror, some atavistic instinct that screamed at me s*hark, shark,* and beneath that, even purer and more thoroughly imprinted in the memory of my DNA was simply the image of *teeth.*
 
@@ -154,7 +154,7 @@ A wall loomed in front of me. Trapped! Trapped! Gibbering with panic, I tried to
 
 Out of the water.
 
-I became aware of frantic voices surrounding me on all sides. 
+I became aware of frantic voices surrounding me on all sides.
 
 “*Got you buddy! Hang on!”*
 
@@ -183,4 +183,3 @@ Well, it can't get rid of the nightmares. I drink myself to sleep now, most nigh
 I saw her, out in the sea. She was bobbing very peacefully, only the human-ish part of her torso visible above water. Our eyes met. Flashing me a needle grin, she cheerfully waved a webbed hand in goodbye.
 
 Then she dove and disappeared beneath the surface.
-
