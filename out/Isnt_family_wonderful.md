@@ -2,23 +2,19 @@ Let me start by putting heavy emphasis on the fact that my mother is an eccentri
 
 For example, occasionally I would catch her staring blankly into the television screen without blinking for minutes at a time. Another time I witnessed her pull my discarded dinner from the trash and reheat it. That one really bothers me thinking back on it as an adult.
 
-Just genuinely weird stuff like I said, but nothing that ever directly affected me as a kid other than living with it regularly.
-
 Recently my grandpa on my mom’s side passed away. Only my mom and I were by his side when he passed in the hospital. It was a peaceful passing but not overwhelmingly emotional since nobody in my family is very close. We each simply have completely different values, and our lives went in different directions.
 
 After my grandpa passed away my mom and I reconnected more than we had in previous years. I’m thirty now, so when my mom asked me to move back in with her I was completely opposed for obvious reasons. She’s a convincing person and brilliant when it comes to getting what she wants. She used undeniable logic against me, and before I knew it- I was living with her again.
-
-You’re probably thinking how and why at this point. Well, rent for one. I was living with a roommate in the middle of a bad neighborhood and paying outrageous rent. I’d have more privacy and a better sense of security while living rent free with my mom. The pros vastly outweighed the cons. Of course, I love and care for my mom too- so living with her and seeing her more often isn’t a bad thing by any means.
 
 Within a couple weeks of living with her again, the eyebrow raising antics started. It began with just barely questionable stuff- sometimes she would get up in the middle of the night and use my bathroom instead of hers. Some nights I’d find her staring off into the TV like she did when I was little, weird stuff but nothing unheard of. The questionable stuff quickly escalated into completely abnormal stuff.
 
 One night I stayed up until about 4am bingeing one of my shows. Before going to sleep I went to the back porch to smoke a cigarette- I watched my mom walk out of the woods and back into the house without even acknowledging I was there. When I asked her about it in the morning and she had somehow convinced me that I was the crazy one and that she slept soundly all night. I’ve known people who sleepwalk, and that wasn’t sleepwalking. Her eyes were open- people don’t walk around in the woods sleepwalking with their eyes fully open.
 
-We’ve both always been cat people, and my mom has always had at least a few cats at once. Going to the kitchen to make a cup of coffee one morning- I caught her digging around in the litterbox with her bare hands. When I asked her what she was doing she replied with a simple “Gotta clean the box!” completely avoiding anything regarding HOW she was doing it.
+Going to the kitchen to make a cup of coffee one morning- I caught her digging around in the litterbox with her bare hands. When I asked her what she was doing she replied with a simple “Gotta clean the box!” completely avoiding anything regarding HOW she was doing it.
 
-Fully convinced she had lost her mind, I started calling around to other family members asking for help. To no surprise- not a single one picked up. For me, this wasn’t weird. I had been more or less ex-communicated from the rest of the family just for having tattoos and being unreligious. I left voicemails and texts with each one hoping at least one would have the decency to answer. After waiting about three weeks with no response, it was obvious that I was on my own.
+Fully convinced she had lost her mind, I started calling around to other family members asking for help. To no surprise- not a single one picked up. I left voicemails and texts with each one hoping at least one would have the decency to answer. After waiting about three weeks with no response, it was obvious that I was on my own.
 
-I did some research and found out that it’s actually common for some sleepwalkers to go about with their eyes open- I also learned that it’s typical for them to not react to things and people in their field of view. They’re also known for saying things and doing things that just don’t make sense. Everything is coming together now, and I feel like a huge weight has been lifted off my shoulders.
+I did some research on sleepwalkers- I learned that it’s typical for them to not react to things and people in their field of view. They’re also known for saying things and doing things that just don’t make sense. Everything is coming together now, and I feel like a huge weight has been lifted off my shoulders.
 
 Talking to my mom about sleepwalking didn’t go as I thought it would. I asked her if she had any memories of waking up in weird places, doing strange stuff, etc. as a kid and she swore up and down that she’d never done anything of the sort. I wish it wouldn’t have, but this made me remember that as a child I watched her reheat garbage and she most certainly WAS awake. Remembering that made me feel like I had shot right back to square one.
 
@@ -39,3 +35,9 @@ Today my mom brought home my grandpa’s ashes talking about how she wanted to �
 I was talking to my mom about something regarding grandpa (I don’t recall what exactly) and she responded by laughing and saying word for word:
 
 “He’s fine! He’s in the attic with the rest of the family!”
+
+Too much happened after that to explain all of it. In short, I left and contacted the authorities. I don't know exactly what they found in the attic- but they won't disclose the information. My imagination wanders endlessly after a detective told me during questioning:
+
+"You don't want to know what they found."
+
+I do, and I don't. My mom's missing- it's already been months since. If I had to be brutally honest- I just don't know how to feel about any of it. This all kind of broke me and I've done my best to move on with my life since.
