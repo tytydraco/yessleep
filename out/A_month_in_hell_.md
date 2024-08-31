@@ -81,7 +81,7 @@ My phone rings again, and I answer it. "What the FUCK were you thinking?"
 
 Nate begins to try to justify himself and I inform him I will not be coming home tonight. I do not feel safe going to his house and that I will leave for work from Guy's house.
 
-I ignore Nate's calls and text until I get to work at midnight. I know it was bitch of me but I couldn't stomach being talked to that way any more. It was to much for me. This is my 2nd marriage,  the first marriage was 13 years of physical and mental abuse and I refuse to subject myself to that again.
+I ignore Nate's calls and text until I get to work at midnight. I know it was bitchy of me but I couldn't stomach being talked to that way any more. It was to much for me. This is my 2nd marriage,  the first marriage was 13 years of physical and mental abuse and I refuse to subject myself to that again.
 
 I arrive to work and Nate calls 15 minutes later as is our custom. The thing about night shift at a small dispatch center is it's mostly dead and it allows for some freedom. 
 
