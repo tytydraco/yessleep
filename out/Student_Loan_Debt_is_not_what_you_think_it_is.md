@@ -2,49 +2,29 @@
 
 I ate a bowl of ice cream, which I am intolerant of, as I sat in my home (my parents' attic), after failing law school (again). The white trash lady and I were alike. I fucked it up. I fucked my whole life up. I won't lie to you, if a man in red with horns crawled out of the TV and offered me a good, well-paying career, not a job, but a career, I'd take it. In fact, I fantasized about it: someone whooshing in from above or below to solve all my problems, all for the low cost of my worthless soul. But guess what? Someone already sold my soul.
 
-
-
 While I sat on my bed stewing in self-pity and laundry that needed folding, I got a weird call. Some weird 888 number called me.  I couldn't deal with it then, so I tossed my phone away. A few minutes later it buzzed again. I gave my phone a judgmental side-eye and wondered if I had any friends who would need me in an emergency. I had a couple who might. However, I hadn't talked to them in so long to focus on law school. *Doesn't that suck?* I cut off my friends to focus on getting a degree and now I have neither friends nor a degree.
-
-
 
 Next, I thought it was a scam. My mouth stretched into a smile and I snorted a single laugh at the thought of a scammer trying to steal my worthless identity. I hung up and went back to moping. Two, three, or four hours of being smelly and bloated and binging reality TV, later, something woke me out of my slump.
 
-
-
 *Bzz.*
 
 *Bzz.*
 
 *Bzz.*
-
-
 
 Another call from that same odd number. I answered this time.
 
-
-
 "Hello, am I speaking to Douglas Last?" the female operator said. 
-
-
 
 "Yes, this is he." 
 
-
-
 "Douglas, my name is Sarah. I am a paid caller from the federal student loan division. Do you have a couple of minutes to speak?"
 
-
-
 "Is that what this is about?" I chuckled. Student loans were scary but manageable. "Yes, I do." 
-
-
 
 "Douglas, you're defaulting on your student loans, and it's quite a large sum." 
 
 "No, I didn't say I was defaulting. I'm not. I'll pay it back."
-
-
 
 "No, Douglas, we've determined you're defaulting because, based on your past history and how much you owe, we do not think it will be possible for you to pay us back." 
 
@@ -52,92 +32,47 @@ Another call from that same odd number. I answered this time.
 
 "Actually," Sarah said, "if you read the fine print on your last loan for…" she paused and I heard her typing on her computer. "University of South Carolina School of Law," she emphasized the word 'law' and paused to show the irony of misreading the fine print on a law school loan. "Automatic default is part of the agreement. To put it simply, we're going to take what we're owed." 
 
-
-
 My brain went into law school mode. Despite my lack of a law degree, I technically studied law for 4 years up to this point. I knew of and was close to mastering, policy, history, and contracts. Arguments, dates, and court cases bounced around my brain. I flashed back to mock trials with my fellow students who were always more aggressive than they had to be, 2am nights and falling asleep studying case law, and then being called on to summarize the case in less than five hours. My brain flew through the Higher Education Act of 1965, the Public Service Loan Forgiveness Program, and the Borrower Defense to Repayment Rule until, finally, I had an opening argument.
-
-
 
 "Okay, so the maximum wage garnishment amount is 15% of your disposable income—" 
 
-
-
 "Not for you," she interrupted. "We do not think you can pay us back."
-
-
 
 That hurt. Counterarguments rested on my lips like rockets ready to take off, but I was dejected and defueled. She hit a sore spot. I considered myself an expert in failure. I was someone who couldn't win no matter what I did, and I hoped no one would know it. I felt so small knowing that this stranger on the phone saw me the same way I saw myself.
 
-  
-
-
 "We are taking what we are owed, Douglas," Sarah said. "Now we have to go through a couple of verification steps to ensure I'm talking to the right person. Please open your nearest device with access to the internet."
-
-
 
 I slumped deep in my chair and did as she said. My body deflated. The attic's heat got to me. Salty sweat poured down from my face to my lips. I lacked the energy to swipe it away. What was the point? Soon my own musky stench became apparent to me, and I lingered in the smell. 
 
-
-
 I went into an anxiety-ridden daze. The world around me shook gently and was mute except for Sarah's words. A mosquito buzzed around me that I couldn't hear or hit. I would smack the spot it landed, but I was always too slow or too late. Angry, red, and swollen bite marks throbbed in place of the insect.
-
-
 
 The more she droned on and on, the more the mosquito had its way with me. I couldn't hear it. I couldn't touch it. I thought about all the things I'd never have in life because everything I earned would go to a failed dream.
 
-
-
 Every click was prolonged and loud. Her voice was a constant, monotonous, never-ending drone that refused to acknowledge how frightening the situation was. I owed the U.S. government, a country known to put money over everything. I remembered how sad my parents were when they lost their house in the 2000s recession. They were my co-signers on this loan. They had just bought their current home less than two years ago. It all felt so fucked. When we moved in the 2000s, I remember my mom scrubbing the garage floor on her hands and knees. A floor we never cleaned, never used. It was filled with oil stains, cockroaches, and boxes. Now some other family got to have it.
-
-
 
 I know my mom was fighting back tears, so she buried herself in the task and ignored me when I asked to help. The floor was pristine for whoever bought the house. Did I screw my family over already? Was the government going to take my family home? I imagined how pissed my dad would be if they took the house. He might hurt me. He's still bigger than me, much stronger. My body shook. My mouth went dry as I thought of apologizing to my mom as an adult. She still wouldn't say anything. She'd get to work preparing a house she just moved into for another family, for someone else's dream. 
 
-
-
 "Douglas Last. Are you there?" Sarah asked.
-
-
 
 "Oh, yes, I'm here." 
 
-
-
 "Okay, are you still seated?"
-
-
 
 "Yes."
 
-
-
 "Douglas Last, the U.S. government is selling your loan to one of our partners. They will take it over from here. He should contact you in a few minutes. Please stay seated and do not drive a vehicle until after the call."
-
-
 
 "What?"
 
-
-
 "Please stay seated and do not drive a vehicle until after the call. Goodbye, Douglas."
-
-
 
 "Hey, no, wait!" 
 
-
-
 The phone hung up. 
-
-
 
 In the silence, I went back to feeling sorry for myself. Until I thought of my mother's face. How she was a simple woman with simple dreams. She wanted to own a home and have a lawyer for a son. One of those couldn't happen, but I could make sure her home was protected and the banks didn't take it trying to get me to repay some debt. 
 
-  
-  
-
-
-My laziness left and purpose replaced it. I could negotiate with whoever bought the debt. I leaped in the shower**,** scrubbed myself off**,** and put on a fresh white button-down**,** black slacks**,** and my best loafers. Look good, feel good, argue great. If some government spooks or debt collectors thought that they could come take advantage of some old people I had a surprise for them. I rushed downstairs. Ran through my argument in my head in a few seconds and practiced some replies. Then I pushed the door open to my Dad’s study**,** a place where I always did well with interviews and where my confidence was high. It’s actually where I took all my law school interviews. Then, I waited for the phone call.
+My laziness left and purpose replaced it. I could negotiate with whoever bought the debt. I leaped in the shower\*\*,\*\* scrubbed myself off\*\*,\*\* and put on a fresh white button-down\*\*,\*\* black slacks\*\*,\*\* and my best loafers. Look good, feel good, argue great. If some government spooks or debt collectors thought that they could come take advantage of some old people I had a surprise for them. I rushed downstairs. Ran through my argument in my head in a few seconds and practiced some replies. Then I pushed the door open to my Dad’s study\*\*,\*\* a place where I always did well with interviews and where my confidence was high. It’s actually where I took all my law school interviews. Then, I waited for the phone call.
 
 The clock ticked away. My mosquito bites flared and the urge to scratch them grew stronger. The ice cubes in my water melted. The thought occurred to me, what if I wasn’t receiving a call because all of this was a prank? 
 
@@ -197,6 +132,4 @@ The string pulled me and my right hand jerked up. More strings popped from my sk
 
 “See you soon, Douglas,” Dummy said, and the strings disappeared. 
 
-I had 24 hours to try to change my life. This was just the beginning. 
-
-  
+I had 24 hours to try to change my life. This was just the  [beginning.](https://www.reddit.com/r/nosleep/comments/1f5mils/student_loan_debt_is_not_what_you_think_finale/)
