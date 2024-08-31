@@ -14,9 +14,10 @@ Now we are on our way home.  Monica sits in front of the wheel and I doze off in
 
 I wake up with a jolt, dazzled by the sun creeping down behind the trees. The speakers play Billie Holiday's "Strange Fruit".
 
-"Southern trees bear a strange fruit  Blood on the leaves and blood at the root
-Black bodies swingin' in the Southern breeze
-Strange fruit hangin' from the poplar trees"
+"Southern trees bear a strange fruit      
+Blood on the leaves and blood at the root  
+Black bodies swingin' in the Southern breeze  
+Strange fruit hangin' from the poplar trees"  
 
 It occurs to me that I haven't listened to the lyrics properly before. Only now do I realise that the song (of course) is not about bleeding fruit, but about lynchings of black Americans in the South. In my dazed state, I think I see a caravan of lifeless bodies dangling from the treetops in time to the music. 
 

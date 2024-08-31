@@ -77,3 +77,6 @@ Since night ten, I haven't been able to look up at the sky. I haven't been able 
 
 
 Also… to this day, I still haven't been told a single thing about Samuel. I’ve made ten good friends since he was arrested, but there's this intrusive worry I have that I'm just trying to recreate my friendship with him. Wherever he is, I hope he's okay.
+
+
+[Update](https://old.reddit.com/r/nosleep/comments/1f5wrp5/update_my_friend_was_arrested_after_showing_me_a/?)
