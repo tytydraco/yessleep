@@ -94,3 +94,5 @@ Granted I should have seen the signs, I can see them clear as day now. While dat
 But I was raised to be a wife, a good wife, a " make your  husband look good, don't talk about your  problems, cook and clean and take care if the house and work a full time job wife"... I'm good at being a wife, but damn this month has been hard. 
 
 I'll share more later. I have to get  my story out, I just need someone to know what all has happened. It keeps escalating, I carry constantly now. I am scared of him. There are so few people around me I can talk to about this. Guy gets angry when I try to talk to him about it. He feels helpless and I don't want to worry anyone else. 
+
+[1st week in Hell](https://www.reddit.com/r/nosleep/s/IJrf4tYeOn)
