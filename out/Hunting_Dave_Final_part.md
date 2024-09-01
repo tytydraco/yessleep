@@ -19,7 +19,7 @@ Dave looked at Britney's severed arm and started walking towards it. He got clos
 Dave now got closer to her , He was right in front of her. He raised 2 of its arms up , Britney just stood there frozen from fear. Dave brought down his 2 arms in full force to crush her.
 
 
-I barely made it in time to tackle her out of Dave's way , But the shockwave from his smash still created a shockwave which made us hit a tree. 
+I barely made it in time to tackle her out of Dave's way , But the shockwave from his smash still created a blast which made us hit a tree. 
 
 
 I looked at Britney , She finally had control over her body again possibly due to the pain from hitting the tree. She suddenly looked at me and asked.
