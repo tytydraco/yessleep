@@ -10,7 +10,7 @@ I spoke too soon. I thought getting my experience about the wild animal and the 
 Your post reminded me of that, and it's something that's always stuck with me. Hopefully you'll find out what happened to you and your friend.”
 
 
-On Thursday, I found a USB drive with an attached sticky note lying on my doorstep. Here's what the note read:
+It was assuring to read someone else's experience with this type of thing. But that post aside... on Thursday, I found a USB drive with an attached sticky note lying on my doorstep. Here's what the note read:
 
 
 “Play me”
