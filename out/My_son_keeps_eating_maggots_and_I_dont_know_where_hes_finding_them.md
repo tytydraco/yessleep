@@ -80,7 +80,7 @@ I sped the footage up to 4x the normal speed, and the video footage showed me to
 
 "Bugs," Jake said as he somehow made his way to my side. I let out a yelp and inched back away from my son. He took his hand and picked one of the maggots off of my foot, plopping it into his mouth. I wanted to slap it away but was too stunned to do so. I finally built up the courage and scooped up my son running him out to the car. As I sped to the emergency room, I kept Jake in my line of sight, directly in the center of the rearview mirror.
 
-I was rushed back to a quiet little room in the emergency department. The doctor's gloved hand took my footwear off, and he winced as the smell hit him. He inspected my foot closely. 
+I was rushed back to a quiet little room in the emergency department. The doctor's gloved hand took my footwear off, and he winced as the smell hit him. He inspected my foot closely.
 
 "Looks like our little friends are helping us out here." 'helping' I thought to myself.
 
@@ -90,7 +90,7 @@ I was rushed back to a quiet little room in the emergency department. The doctor
 
 "Why do you ask?"
 
-"Well, Mr. Bliss, this is not the first time I've seen this. It is common for diabetics to lose feeling in their feet, so they are unable to sense when their soles get injured. These injuries often get infected leading to complications." He gestures over to my discolored feet.
+"Well, Mr. Bliss, this is not the first time I've seen this. It is common for diabetics to lose feeling in their feet, so they are unable to sense when their soles get injured. Often, many people fail to wash the bottom of their feet when showering. These injuries can then get infected leading to complications." He gestures over to my discolored feet as I cower at the mention of my hygiene practices.  
 
 "But you see these little guys here." Plucking a squirmy maggot off my foot.
 
