@@ -224,11 +224,11 @@ Sniffling, Sophie finally meets his eyes. Her shoulders shake. He keeps repeatin
 
 “… I’m sorry I couldn’t save her,” he says.
 
-It surprises me, how tender he is toward this girl—not that he’s ever been cruel; just that it’s rare for him to be so emotionally invested, especially in a kid he just met.
+It surprises me, how tender he is toward this girl—it’s rare for him to be so invested, especially in a kid he just met.
 
-I wonder if it’s because of Chloe. At Chloe’s age he went by a different name. He refers to her, to “Jacqueline,” as if she were someone else, a sister or a relative. “She was a girl who wanted to be dead,” he told me once, after I found pics of him pre-transition on his mom’s Facebook. “Now she’s just a deadname, so she got what she wanted.”
+I wonder if it’s because of Chloe. Chloe, deadnamed in the newspapers. Jack doesn’t talk about it much, but at her age, he, too, was living under a deadname, with a family he’s since refused to contact. “Jacqueline was a girl who wanted to be dead,” he told me once when I asked him about his childhood. “Now she’s just a deadname, so she got what she wanted.”
 
-The Jack Wilde I know is so absolutely himself, it’s hard to imagine he was ever anyone else. It makes me wonder… if Chloe had lived into her future, who might she have been? Reduced now to those headlines about a missing teen mourned under another name, Chloe never had the chance to find and celebrate herself. And maybe it’s been gnawing at him from the moment he tugged open that trapdoor, knowing that no matter how many times he threw himself down into the dark or how clever his plan or how successful its orchestration—in the end, she never will.
+It's hard to imagine Jack Wilde as anyone other than the puppy-eyed con artist I can’t help loving like a bad habit. It makes me wonder… if Chloe had lived into her future, who might she have been? Reduced now to those headlines about a missing teen, Chloe never had the chance to live in the world as herself. And maybe it’s been gnawing at him from the moment he tugged open that trapdoor, knowing that no matter how many times he threw himself down into the dark or how clever his plan or how successful its orchestration—in the end, she never will.
 
 \*\*\*
 
@@ -296,4 +296,4 @@ The translation. The warning about breaking the warding. I never fully learned w
 
 He might not be the only one marked for an early [death.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/1ek4kgj/theres_a_trapdoor_no_one_knows_whats_below_it/) | [Part 2 ](https://www.reddit.com/r/nosleep/comments/1eln5u7/theres_a_trapdoor_i_hear_crying_below_but_each/)| [Part 3](https://www.reddit.com/r/nosleep/comments/1enyk7t/theres_a_trapdoor_ive_been_down_13_times_each/) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ek4kgj/theres_a_trapdoor_no_one_knows_whats_below_it/) | [Part 2 ](https://www.reddit.com/r/nosleep/comments/1eln5u7/theres_a_trapdoor_i_hear_crying_below_but_each/)| [Part 3](https://www.reddit.com/r/nosleep/comments/1enyk7t/theres_a_trapdoor_ive_been_down_13_times_each/)
