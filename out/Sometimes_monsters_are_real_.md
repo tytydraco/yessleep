@@ -195,8 +195,4 @@ The nurse came in, to change his bedpan, and that was the end of the story.
 
 Once she left, he told me he loves me, but he's tired, and could I let him sleep some.
 
-He died two nights later, and I want to believe he's with his Momma and my Mumum. I want to, but I just can't. What universe produces those terrible things can't really be capable of producing a Heaven too, can it? I hope so. I can almost make myself believe it during a great summer day, playing with my kids. But, at night? I know it's not possible.p
-
-
-
-When he entered hospice, the ghost of that man was still there. Like a shadow of who he'd been. But I could still see an echo of that strength and hard-as-steel willpower radiating through the haze of painkillers and drugs that kept the cancer back for a little longer.
+He died two nights later, and I want to believe he's with his Momma and my Mumum. I want to, but I just can't. What universe produces those terrible things can't really be capable of producing a Heaven too, can it? I hope so. I can almost make myself believe it during a great summer day, playing with my kids. But, at night? I know it's not possible.
