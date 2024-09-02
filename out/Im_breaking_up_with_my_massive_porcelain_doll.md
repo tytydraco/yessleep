@@ -148,7 +148,7 @@ Suddenly, the action figure I was inside began to surge like a fighter jet—It 
 
 *“AAAAAAAAH!”*
 
-Despite the speed, I could not feel any wind on my face, or any cold on my skin. I was just my own awareness, tethered to a 1977 DC Collectible I bought off Etsy in 2015
+Despite the speed, I could not feel any wind on my face, or any cold on my skin. I was just my own awareness, tethered to a 1977 DC Collectible I bought off Etsy in 2015.
 
 *“Please no! Yssabelle! NO!”*
 
@@ -178,7 +178,7 @@ Soon after, I could see the entire planet start to slip away, and be encroached 
 
 But she didn't. She kept hurling my mind further away from all of life as I knew it.
 
-The earth continued to shrink. It became the size of a basketball.
+The Earth continued to shrink. It became the size of a basketball.
 
 Then a baseball.
 
@@ -196,7 +196,7 @@ I could see bits of plastic chipping off the stiff arms of my toy vessel. Tiny s
 
 “Sidney. You are awake. Like I said, I’ve moved your locus. Your mind is now one hundred million miles away from Earth.”
 
-It was impossible to comprehend how far that was. The dread I felt in that moment was more profound than I could ever put in words. I could only see the blue speck that was our earth, and the shining sun much further behind it.
+It was impossible to comprehend how far that was. The dread I felt in that moment was more profound than I could ever put in words. I could only see the blue speck that was our Earth, and the shining sun much further behind it.
 
 *“Please you can’t do this.”*
 
