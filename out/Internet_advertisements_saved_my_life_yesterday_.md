@@ -4,44 +4,58 @@ to understand what happened to me in the past 24ish hours, a little backstory is
 
 I never understood the distaste for AI filtered ads. You know, like the ones you can toggle on or off when browsing, that use those dang cookies they’re always asking about? I love them. I love the concept that I don’t have to waste time seeing constant ads that have no value whatsoever to me, and instead seeing relevant information from the paid content that floats around my feed during my doomscrolling. 
 
-I’ve actually made a lot of purchases for things I needed with an added “bonus” that frequently comes with buying directly from an ad, “click to receive an extra 25% off on *product* now, an exclusive discount applied only to this ad” type of thing. So call me crazy, but I welcome the age of AI monitored tailoring of the vast sea of internet content to bite sized pieces that are flavored specially for me. And with what just occurred yesterday, that mindset has been forever solidified.
+I’ve actually made a lot of purchases for things I needed with an added “bonus” that frequently comes with buying directly from an ad, “click to receive an extra 25% off on *product* now, an exclusive discount applied only to this ad” type of thing. 
 
-It started after I’d come home from the grocery store. After hauling in several weeks worth of groceries, I placed my cell phone on the countertop and opened up the clock app for background noise while I put everything away. My husband got me this cool little device that allows me to scroll to the next video without needing to use my phone to do so. It’s a nifty little ring that has buttons to scroll up or down the screen, and it’s actually really useful. 
+So call me crazy, but I welcome the age of AI monitored tailoring of the vast sea of internet content into bite sized pieces that are flavored just for me. And with what just occurred yesterday, that mindset has been forever solidified.
+
+It started after I’d come home from the grocery store. After hauling in several weeks worth of groceries, I placed my cell phone on the countertop and opened up the clock app for background noise while I put everything away. 
+
+My husband got me this cool little device that allows me to scroll to the next video without needing to use my phone to do so. It’s a nifty little ring that has buttons to scroll up or down the screen, and it’s actually really useful. 
 
 Anyways, got a little off-topic there, but my brain is still a bit of a fuzzy mess, so forgive me if there’s a random tangent or two.
 
-Okay, so yeah, putting away the groceries, the sound of random skits and funny stories about people who work in retail coming from the countertop. I click the little button on my “scrolling ring” and the clip that followed was an ad. Not unusual, as every few videos is an easily bypass-able advertisement, but this one made me pause. 
+Okay, so yeah, putting away the groceries, the sound of random skits and funny stories about people who work in retail coming from the countertop. I click the little button on my “scrolling ring” and the clip that followed was an ad. 
 
-Standing in front of the open cabinet, holding some off-brand spaghetti sauce in one hand and a jar of peanut butter in the other, I set them back down on the table and walked over to the countertop to see if I’d heard the ad correctly.
+Not unusual, as every few videos is an easily bypass-able advertisement, but this one made me pause. 
+
+Standing in front of the open cabinet, holding some off-brand spaghetti sauce in one hand and a jar of peanut butter in the other, I carefully set them back down on the table and walked over to the countertop,  eyebrows furrowed, to see if I’d heard the ad correctly.
 
 *Tonights episode of 9-1-1, the hit TV show, features an episode that may feel like de ja vu. Don’t make the same mistake as the unlucky woman on tonight’s show, and check your locks before you go to bed tonight, including the the window in the guest bedroom with the green and blue curtains.”*
 
 *green and blue curtains…* oddly specific for an ad, and described the polka dot curtains in my own homes guest room. I laughed it off, mentally applauding the targeted advertising from the shows marketing team. *they probably did some sort of deep dive into the most commonly searched guest room curtains and what colors they are to make the ad feel more personal, honestly impressive.* i thought to myself, scrolling past to the next clip, and continuing to put away the jars I had left sitting on the table.
 
-After finishing up, and still feeling a little shaken up about the whole curtain thing, I sat down on the couch with my iPad to get some work done that I had already procrastinated with grocery shopping and now lacked any excuses towards putting it off. 
+After finishing up, and still feeling a little shaken up about the whole curtain thing, I sat down on the couch with my iPad to get some work done that I had already procrastinated with grocery shopping, and I now lacked any excuses towards putting it off. 
 
 I work from home as a graphic designer, and my husband was away for the weekend a few hours away for a mandatory sales training course for his job. I didn’t mind the alone time, as I usually get more done without the added unavoidable distractions that come with working from home. 
 
-Navigating to google, I searched the name of the client I was hired to create the design for, something I typically do before starting a project so I can get a general feel for the overall vibe they project, and just before clicking on their company’s website, my eyes drifted above it to the sponsored ad result. Reading over it 3 times, thinking I had misread it, a deep chill slithered down my spine as my eyes darted across the words again.
+Navigating to google, I searched the name of the client I was hired to create the design for, something I typically do before starting a project so I can get a general feel for the overall vibe they project. Just before clicking on their company’s website, my eyes drifted above it to the sponsored ad result. 
 
-*Working for yourself can be hard, especially when your business relies on creating content for strangers without knowing how they’ll use your creative talents and solely trusting they are who they say they are. Run a free background check today on any potential clients, and get the same information they have already obtained about you.*
+Reading over it 3 times, thinking I had misread it, a deep chill slithered down my spine as my eyes darted across the words again.
 
-The last sentence made me nauseous, and I felt my face begin to flush, and sweat begin to seep into the palms of my hands. *the information they’ve already obtained about you* 
+*Working for yourself can be hard, especially when your business relies on creating content for strangers without knowing how they’ll use your creative talents and solely trusting they are who they say they are. Knowing your client can be more vital than you realize. Run a free background check today on any potential or current clients, and receive the same information they have already obtained about you.*
 
-The sentence continued repeating on my mind, as it sounded to me like the ad was telling me my current client had been researching me and using the website featured in the ad to obtain my personal information. It sounds paranoid, but I actually had already had a weird feeling about this client, hence the procrastination, and this ad just fueled an already burning pit of anxiety in my stomach. 
+The last sentence made me nauseous, and I felt my face begin to flush, and sweat begin to soak the palms of my hands. *the information they’ve already obtained about you* 
 
-The first red flag I should’ve noticed was the client had emailed my personal email address to contact me about a design project they wanted to hire me for. I had shrugged it off, thinking that maybe they had seen me conferring on my personal with a friend on facebook or reddit or instagram about a previous project I’d done, and found my email on the personal account profile. Strange, but not too unusual. 
+The sentence continued repeating on my mind, as it sounded to me like the ad was telling me my current client had been researching me and using the website featured in the ad to obtain my personal information. 
 
-The client’s email had read: *Hello there! I came across your work recently, and I am very impressed by your design work, and would be honored to hire you for a new project I need done. Nothing difficult really, I’ve attached some references to get things started. I’m willing to pay generously, and look forward to seeing you come up with something wonderful.*
+It sounds paranoid to think an ad is speaking directly to you, but I actually had already had a weird feeling about this client, hence the procrastination on touching this project, and this ad just fueled an already burning pit of anxiety in my stomach. 
+
+The first red flag I should’ve noticed was when the client had emailed my personal email address to contact me about a design project they wanted to hire me for. I had shrugged it off, thinking that maybe they had seen me conferring on my personal with a friend on facebook or reddit or instagram about a previous project I’d done, and found my email on the personal account profile. Strange, but not too unusual. 
+
+The client’s email had read: *Hello there! I came across your work recently, and I am very impressed by your design work. I would be honored to hire you for a new project I need done. Nothing difficult really, and I’ve attached some references to get things started. I’m willing to pay generously, and look forward to seeing you come up with something wonderful.*
 
 *[Name]*
 *[Company name]*
 
-The references he had included were standard and straightforward, a fairly easy project by the looks of the links. The last two links however, both led to 404 error’ed websites that were different than the other links provided. Since the other attachments were more than enough to use, I decided not to bother inquiring about the last two when I emailed back to confirm the job and accept the project. I figured they were just old links that had probably been sitting in some company computers folder labeled “references” for god knows how long, and he’d probably just attached all of them without checking that they all worked first. 
+The references he had included were standard and straightforward, a fairly easy project by the looks of the links. The last two links however, both led to 404 error’ed websites that were different than the other links provided. 
 
-No point in worrying about two broken links with the other 20+ references working just fine. This was the second red flag I had just dismissed after getting distracted by the amount quoted for the project in his following email. It was triple the amount I usually got for my work, and would take significantly less time since I had all the needed information I would’ve usually needed to spend a day or two putting together and researching on my own. 
+Thinking back, I’m pretty sure these links were just a way in and not the deceptive error that had been displayed.
 
-It sounded too good to be true, and I did at least have the sense to inquire as to why he was offering so much more than my usual price for designing similar projects I had done in the past. I’d sent over my portfolio in my original response, since I didn’t know exactly how he’d found my contact information with it being my personal address, and if he’d even been to my website or my actual portfolio, or if he’d just come across a project that my name was pinned to and liked the work I’d done. 
+But, the other attachments were more than enough to use, so I had decided not to bother inquiring about those last two when I emailed back to confirm the job and accept the project. At the time, I just figured they were old links that had probably been sitting in some company computers folder labeled “references” for god knows how long, and he’d probably attached all of them without checking that they all worked first. 
+
+I saw no point in worrying about two broken links with the other 20+ references working just fine. This was the second red flag I had just dismissed after getting distracted by the massive payout quoted for the project in his following email. It was triple the amount I usually got for my work, and would take significantly less time since I had all the needed information I would’ve usually needed to spend a day or two putting together with my own research.  
+
+It sounded too good to be true, but to my credit, I did at least have the sense to inquire as to why he was offering so much more than my usual price for designing similar projects I had done in the past. I’d sent over my portfolio with final costs of each finished project included in my original response, since I didn’t know exactly how he’d found my contact information with it being my personal address, and if he’d even been to my website or my actual portfolio, or if he’d just come across a project that my name was pinned to and liked the work I’d done. 
 
 He responded with, (clearly now a response meant to use flattery to turn the red flags green,) a short and sweet email about me *deserving more for my effort* and *skill like mine should be paid accordingly*. 
 
@@ -85,4 +99,6 @@ He placed a hand on my shoulder, then stood up, offering me a hand, and pulling 
 
 Officer: *It seems he came in through your guest room window while you were out. He’d hid under the guest bed and was found with multiple weapons, rope, a handsaw, and a garbage bag. I’m not sure yet what his plans were exactly, but considering he stayed hiding under there until we found and dragged him out instead of attempting to run back out the window when we announced ourselves upon coming inside the house… he was clearly hoping he could just hide long enough to finish whatever it was he wanted to do.*
 
-I stood there, mouth dry, shivering, that had it not been for some oddly specific targeted ads, I would’ve just worked on the “project” and went to bed without a second thought. So please, if you ever see some ads that feel like they’re speaking directly to you, listen to them. 
+I stood there, mouth dry, shivering, quickly coming to the terrible revelation that had it not been for some oddly specific targeted ads, I would’ve just worked on the “project” this creep had “hired” me to complete, and went to bed without a second thought. 
+
+So please, if you ever see some ads that feel like they’re speaking directly to you, listen to them. 
