@@ -32,7 +32,7 @@ When the dress arrived, Susie got this strange expression on her face. Like reco
 
 “It’s not perfect, but… it’s getting there,” she smiled. “It’s almost like I picture it. I feel it.”
 
-I handed her the bridal bouquet, watching the blue petals reflect in her eyes.
+I handed her the bridal bouquet, watching the pink petals reflect in her eyes.
 
 “I really do feel it. Right here.”
 
@@ -42,7 +42,7 @@ She put her hand on her stomach, smiling from ear to ear.
 
 The ceremony itself was beautiful. The walk down the aisle, the exchanging of vows. They walked out of the church to a church organ rendition of Tom Jones’ ‘Chills & Fever’. That was also the first dance they shared at the reception.
 
-While my focus was on Jerry, I couldn’t help but to look over at Susie every now and then. I caught her looking at her reflection a couple of times. She’d peer over the counter of the open bar and stare at herself in the mirror wall. I also noticed a bit of hesitance to throw the bridal bouquet; she couldn’t keep her eyes off the blue petals. It’s like she was mesmerized and wanted to keep it to herself.
+While my focus was on Jerry, I couldn’t help but to look over at Susie every now and then. I caught her looking at her reflection a couple of times. She’d peer over the counter of the open bar and stare at herself in the mirror wall. I also noticed a bit of hesitance to throw the bridal bouquet; she couldn’t keep her eyes off the pink petals. It’s like she was mesmerized and wanted to keep it to herself.
 
 All in all, it turned into a good night. Lots of laughs, drinks, and dancing. But I couldn’t help but to notice something strange in Susie’s eyes. A light that wasn’t there earlier that day.
 
