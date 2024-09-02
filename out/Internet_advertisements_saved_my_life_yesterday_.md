@@ -85,4 +85,4 @@ He placed a hand on my shoulder, then stood up, offering me a hand, and pulling 
 
 Officer: *It seems he came in through your guest room window while you were out. He’d hid under the guest bed and was found with multiple weapons, rope, a handsaw, and a garbage bag. I’m not sure yet what his plans were exactly, but considering he stayed hiding under there until we found and dragged him out instead of attempting to run back out the window when we announced ourselves upon coming inside the house… he was clearly hoping he could just hide long enough to finish whatever it was he wanted to do.*
 
-I stood there, mouth dry, shivering, that had it not been for some oddly specific targeted ads, I would’ve just worked on the “project” and went to bed without a second thought. So please, if you ever see some ads that feel like they’re speaking directly to you, listen to them.
+I stood there, mouth dry, shivering, that had it not been for some oddly specific targeted ads, I would’ve just worked on the “project” and went to bed without a second thought. So please, if you ever see some ads that feel like they’re speaking directly to you, listen to them. 
