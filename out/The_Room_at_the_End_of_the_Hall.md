@@ -1,19 +1,29 @@
-After the birth of our daughter, sleep became a luxury. Every night, her cries pierced the silence, and we chalked it up to colic, following the doctor’s advice to the letter. But the medicine didn't help. My husband and I spent night after night in a desperate routine of rocking, shushing, and pacing. Her cries never stopped, and as new parents, we didn’t know what else to do.
+I moved into a new apartment last month. It’s nothing fancy, but it’s my first place on my own, and I was excited to finally have some independence. The building is old and creaky, but it has character, or so I told myself when the radiator groaned at night, or the pipes banged in the walls.
 
-We live in India, where it’s customary for babies to sleep in the same room as their parents, so every night, she slept between us. My husband is the most loving father I could imagine. He’d always wanted a daughter, and he adored her more than anything. But one night, she was particularly inconsolable, and my husband had an important meeting the next morning. I insisted he get some rest, assuring him I could handle our daughter for the night.
+There’s one thing about the apartment that I can’t quite shake, though. At the end of the hallway, there’s a door that doesn’t open. It’s not my door, but it’s right next to mine. There’s no number on it, just an old brass handle and wood that looks like it hasn’t been touched in years. The landlord told me it’s just a storage room and not to worry about it.
 
-I took her to the room at the far end of our apartment. This room was different from the rest of the house—secluded, quiet, and eerily detached. As soon as I entered, something strange happened: she stopped crying. Her sudden calmness was unsettling, but I was too exhausted to question it. I put her to bed, relieved that she was finally sleeping. For the first time in weeks, I felt a glimmer of hope that the worst might be over. I, too, drifted off into a deep sleep.
+But the more I stared at that door, the more I got the feeling that something wasn’t quite right.
 
-But at 2 a.m., I was jerked awake by the sound of rustling. It sounded like someone was going through the bags of baby supplies we’d stored in the room. In my drowsy state, I assumed it was my husband and drifted back to sleep. But then I remembered—he was in the other room.
+A week after moving in, I noticed that the door was slightly ajar when I got home. Just a crack, like someone had nudged it open. I paused, staring at the darkness inside. I couldn’t see much—just a sliver of black. I quickly brushed it off. The wind, maybe. The building shifts; things move. I shut the door and went inside my apartment.
 
-I shot up, heart pounding. The room was dark, and the only sound was my own ragged breathing. I switched on the light, but there was nothing there. My daughter was still asleep, her little chest rising and falling steadily. I tried to shake off the unease, telling myself it was just my imagination, and forced myself back to sleep.
+That night, I heard faint noises coming from the hallway. I couldn’t pinpoint exactly what it was—scratching, maybe, or something dragging across the floor. I pressed my ear to my door, heart racing, but all I could hear was my own breathing. I went back to bed, trying to ignore the feeling that something was watching me.
 
-Around 3 a.m., I felt it—a presence at the door. The bed was positioned so that the headboard was near the door, and I could feel something standing just behind me. A cold shiver ran down my spine as I felt a long, thin hand reaching over me toward my daughter. I tried to scream, but my voice caught in my throat. In a panic, I leapt up and turned on the light. Again, nothing. My baby was still there, sleeping soundly.
+The next morning, the door was open again. This time, it was wider. I could see more of the room now, but it was still too dark to make out any details. I called the landlord, irritated, and asked if he had been in there.
 
-I couldn’t take it anymore. I needed my husband. I stumbled out of the room, clutching my daughter, but he wasn’t in the house. His phone lay on the bedside table, but there was no sign of him anywhere. I was alone. Terrified, I cradled my daughter and waited for morning, holding her close until I finally passed out from sheer exhaustion.
+He paused for a long time before saying, “No one goes in there. Just don’t touch it. The lock’s been broken for years, but no one’s been inside.”
 
-I woke to the cries of my daughter, my husband was standing by the bed, a look of deep concern on his face. I was still holding my daughter tightly and she was whimpering like she was tired of crying. I asked him where he had been, but he just stared at me, his face pale. “I’ve been here the whole time,” he said. “But... there’s something you need to see.”
+I hung up, feeling unsettled. I tried to put it out of my mind, but the door was all I could think about. It was like it was daring me to look inside.
 
-He led me back to the room at the end of the hall. Everything was as I left it—except for one thing. In the crib, which we had bought for our daughter, lay an old, tattered doll. Its eyes were open wide, staring blankly at the ceiling, its hand outstretched toward the door.
+That night, I heard the noises again, louder this time. I couldn’t take it anymore. I grabbed a flashlight and stepped into the hallway. The door was open, wide enough for me to squeeze through. I hesitated, my heart pounding. Something felt off, but I had to know what was in there.
 
-And suddenly, I realized...my daughter wasn’t crying anymore.
+I stepped inside, the beam of my flashlight cutting through the darkness. The room was empty. No furniture, no boxes, just bare walls and a dirty floor. The air was thick and cold, and I could see my breath fogging in the beam of light. There was something wrong with the walls—dark stains that looked almost like water damage, but more organic, like something was growing inside them.
+
+Then I heard it—a faint whisper, so close it felt like it was right next to my ear. I spun around, but the room was still empty. I backed up, my heart hammering in my chest, and tripped over something soft. When I turned the flashlight down, I saw what looked like a small, crumpled blanket. But as I stared, I realized it wasn’t a blanket at all—it was a pile of clothes. And they weren’t just any clothes. They were my clothes. The ones I had been missing since I moved in.
+
+The whispers grew louder, and the walls seemed to pulse, like they were breathing. I stumbled backward, trying to get out, but the door slammed shut. I pounded on it, screaming, but all I could hear were those whispers—hushed voices, speaking in a language I didn’t understand.
+
+Then, the scratching started again, only this time, it was coming from inside the walls. Something was in there, clawing to get out. The whispers turned to shrieks, and I felt something cold brush against my arm.
+
+I don’t remember how I got out. I just remember running, bursting into my apartment, and locking the door behind me. I haven’t gone back into the hallway since. The door is still there, slightly open, like it’s waiting for me.
+
+And every night, I hear the scratching. It’s getting louder.
