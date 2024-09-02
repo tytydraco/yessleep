@@ -66,7 +66,7 @@ The man made a wet, sick noise deep in his throat. It took me a moment to realiz
 
 "This isn't a joke," I said.
 
-The man spat something nasty onto the ground. The dog nuzzled my ankle even harder. The man stared at the dog which such hate I was worried he would kick him.
+The man spat something nasty onto the ground. The dog nuzzled my ankle even harder. The man stared at the dog with such hate I was worried he would kick him.
 
 I'm not a courageous person, but if in that moment the man had tried to kick the animal, I would have taken the black dog out of that home, no matter what the consequences.
 
@@ -118,11 +118,25 @@ I saw more of them as the week went on.  
 
 Two pairs waiting in the bushes behind my condo. Half a dozen out back of the local tavern by the dumpster. Twenty or more circling a homeless man sleeping down by the river.   
 
-I don't know why Mr. Goucher needed me to put the black dog down, why he couldn't do it himself. I believe it had some kind of hold over him. I can't explain it, but I am, somehow, certain this is true. The same way I am certain that what happened in the small city I am from wasn't a series of bizarre, unexplained wolf attacks. 
+That last night, I came home to an empty condo. I'd been out on a late night call. A sick cat. Nobody called about dogs anymore. My place felt different. I stood there in the dark and tried to figure out why. There were no signs of breaking and entering. Then I realized what it was.
 
-I got out as fast as I could. Left my condo, my job, my *life*. Crashed with some friends a few towns away while everything went down. I lost of a lot of friends, some family. I'm not proud of running away, but I'm not ashamed either.
+The smell. My condo reeked of dog.
 
-You would have done the same thing. Don't pretend like you wouldn't. 
+I tried to turn and run, but something held me where I stood. A pair of fiery red eyes appeared in my bedroom and slowly stalked towards me. Everything inside me screamed to run, but my body remained frozen.
+
+As it came closer, I could see the dog's outline. It was no puppy. It was a huge beast, all muscle and tattered black fur. I knew that as soon as I could behold its face, its *true* face, that I would be finished.
+
+So I shut my eyes. And ran. The dog made no sound. That was what was most terrifying. I could hear it though, launching itself through space, and I knew, I *knew*, that its teeth were aimed for my neck.
+
+I slammed the door behind me just in time. Halfway to my car, I heard the sound of it splintering through my front door, but by then I knew I was safe.
+
+As safe as I would ever be.
+
+I left that night. Left my condo, my job, my *life*. Crashed with some friends a few towns away while everything went down. I lost of a lot of friends, some family. I'm not proud of running away, but I'm not ashamed either.
+
+You would have done the same thing. Don't pretend like you wouldn't.
+
+I don't know why Mr. Goucher needed me to put the black dog down, why he couldn't do it himself. I believe it had some kind of hold over him. The same kind of hold it had over me when I stood there motionless as it stalked towards me. I can't explain it, but I am, somehow, certain this is true. The same way I am certain that what happened in the small city I am from wasn't a series of bizarre, unexplained wolf attacks. 
 
 A few months later, everything seemed to settle down. The attacks had gotten worse and worse and then finally they just stopped, all by themselves.
 
@@ -137,8 +151,6 @@ Cute little black dogs.  
 I now live in a big city. I rent a tiny apartment. I have few friends here and no family. I haven't practiced veterinary medicine for years. I'm a delivery driver. The money's not very good, and I don't like my job.
 
 But I don't have to work with animals. 
-
-
 
  
 
