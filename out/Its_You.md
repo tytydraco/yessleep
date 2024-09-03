@@ -366,4 +366,4 @@ The kid holds out my palm and drops my car keys into them. My breath hitches as 
 
 He turns to face me one last time. “You were the only one that tried to change.”
 
-Then, he walked back up the steps to the manor, and closed the door behind him, taking all our secrets with him.
+Then, he walked back up the steps to the manor and closed the door behind him, taking all our secrets with him.
