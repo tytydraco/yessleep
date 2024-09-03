@@ -516,6 +516,8 @@ I have until Samhain. Roughly two months to figure this out.
 
 I'm not giving up. None of us are. 
 
+Update: I found a cake on my [doorstep. ](https://www.reddit.com/r/nosleep/s/iGhlO9augV)
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
 
