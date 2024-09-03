@@ -151,17 +151,3 @@ Cute little black dogs.  
 I now live in a big city. I rent a tiny apartment. I have few friends here and no family. I haven't practiced veterinary medicine for years. I'm a delivery driver. The money's not very good, and I don't like my job.
 
 But I don't have to work with animals. 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
