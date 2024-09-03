@@ -46,7 +46,7 @@ She went into the kitchen, leaving me standing there nonplussed. After a while I
 
 “Yes, Alice. I gotta go.”
 
-She exhaled mildly, but with obvious displeasure. Carefully, she occupied herself with the task of making breakfast so as not to have to look at me. I saw her shake her head slightly and smile a very tight smile while working. She was also clearly only preparing one portion. 
+She exhaled mildly, but with obvious displeasure. Carefully, she occupied herself with the task of making breakfast so as not to have to look at me. I saw her shake her head slightly and smile a very tight smile while working. She was also clearly only preparing one portion.
 
 “Alice,” I said, and reached out to grab her arm. “This isn't - “
 
@@ -102,7 +102,7 @@ I certainly had no doubts left that magic was more than mere illusion. It was ou
 
 Are you now about to call me a prize winning fool? Are you about to point out that if all of this was the case, then yeah of course she'd know what I'd been up to? That hey, buddy, *get a clue*, because obviously she was reading your mind!
 
-Bzzt! Wrong! She can't do that. It's the one thing everyone knows about Witches. Look, think for a second, huh? With all the dirty little secrets floating around a small town, can you imagine what would happen if people thought their minds were being spied on? There'd be pitchforks and torches handed out on Main Street. The ensuing mob would have made what happened to those poor girls in Salem look like a day in the park. 
+Bzzt! Wrong! She can't do that. It's the one thing everyone knows about Witches. Look, think for a second, huh? With all the dirty little secrets floating around a small town, can you imagine what would happen if people thought their minds were being spied on? There'd be pitchforks and torches handed out on Main Street. The ensuing mob would have made what happened to those poor girls in Salem look like a day in the park.
 
 So no. Mindreading was out. But somehow she had learned something, and I now was stuck in it.
 
@@ -164,7 +164,6 @@ So yeah, that's how I ended up here. Don't date Witches, I guess.
 
 What's that? You think maybe there's some other lesson here? Like maybe don't cheat on your girlfriend? Yeah, I know. Trust me, I know. You think I've been telling you this because I like going over it?
 
-It were those last few words she spoke to me. They were a spell. Every time I think about asking someone out now, I have to tell them this story first. I can't help it!
+It's all because of those last few words she spoke to me. They were a spell. Every time I think about asking someone out now, I have to tell them this story first. I can't help it!
 
 So....Now that you know, what do you say? Pick you up at eight?
-
