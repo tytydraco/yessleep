@@ -1,3 +1,5 @@
+The cube
+
 I’m not usually a fan of Reddit, but this seemed as good a place as any to post my story. Maybe y’all can get some karma out of it or something. I don’t know.
 
 Something happened several weeks ago that brought back a memory from when I was five. It was so vivid, I have to tell you that part before I get on to the rest.
@@ -64,4 +66,4 @@ My heart sank. I quickly wrapped the cube back in the silk and threw it into my 
 
 As I drove my car to work the next morning with full intentions of showing the cube to my coworker, I heard bumping in my trunk. When I got there, I went around to check only to realize there was a smoldering hole in the trunk of my car, the same as snowball. And the cube was nowhere to be seen.
 
-That's the last I've seen or heard of it. It's been years since then, and I haven't told anyone other than my mom about the cube. Maybe it's because I'm avoiding the subject, but I have never experienced anything so strange in my life, and I needed more people to know about it.
+That's the last I've seen or heard of it. It's been weeks since then, and I haven't told anyone other than my mom about the cube. Maybe it's because I'm avoiding the subject, but I have never experienced anything so strange in my life, and I needed more people to know about it.
