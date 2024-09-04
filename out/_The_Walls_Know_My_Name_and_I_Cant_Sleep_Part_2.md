@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1f5199c/the_walls_know_my_name_and_i_cant_sleep/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | Part 2 | [Part 3 ](https://www.reddit.com/r/nosleep/comments/1f7tawz/the_walls_know_my_name_and_i_cant_sleep_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1f5199c/the_walls_know_my_name_and_i_cant_sleep/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | Part 2 | [Part 3 | Part 4](https://www.reddit.com/r/nosleep/comments/1f7tawz/the_walls_know_my_name_and_i_cant_sleep_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I woke up to the voices of my sisters downstairs. Barely slept at all last night, so I’m exhausted. Couldn’t help yawning as I got out of bed and wandered to my door. I was startled fully awake as sharp thorns stabbed through my sock. I yelped, loud enough that I guess they heard me downstairs. 
 
