@@ -1,3 +1,5 @@
+[I](https://www.reddit.com/r/nosleep/comments/1eluigw/my_cousins_partner_is_a_massive_porcelain_doll/)- [II](https://www.reddit.com/r/nosleep/comments/1ep0dmt/my_coworkers_partner_is_a_massive_porcelain_doll/) - [III](https://www.reddit.com/r/nosleep/comments/1f6xt4c/im_breaking_up_with_my_massive_porcelain_doll/)
+
 I struggled for a long time to meet women. 
 
 It just was what it was. You could say it was my offset eyebrows, or mousey voice, or my enormous affection for anime and collectible toys. Take your pick. I was never a catch in many people’s eyes.
@@ -28,9 +30,6 @@ I could write a whole essay about the good stuff, (and trust me, there was a *lo
 
 **I’m posting so that no one else has to go through what I went through.** 
 
-And yes, my cousin Gabriel was instrumental in guiding me to this conclusion.[ You can read up on his side of the story](https://www.reddit.com/r/nosleep/comments/1eluigw/my_cousins_partner_is_a_massive_porcelain_doll/), but it's really not necessary.
-
-All you must know is that Ysabelle, my pure and chosen, is not exactly what you might call a dream partner.
 
 \*\*\*
 
