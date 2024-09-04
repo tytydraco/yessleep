@@ -41,3 +41,5 @@ I burst out of the passage, scrambling to my feet and slamming the small door sh
 But before I could gather my thoughts, the door to my apartment creaked open. My blood ran cold as I turned to face the hallway, expecting to see… something. But the hallway was empty, the door swinging gently on its hinges.
 
 And then, from the darkness of the hallway, I heard it again. The whispering. Closer this time, clearer. And it wasn’t just one voice. It was many. And they were all calling my name.
+
+In that one moment, in a rush of emotions I wished I had never come here in the first place, but I didn't have anywhere else to go, [not since](https://www.reddit.com/r/nosleep/comments/1f8eaj4/the_whispering_shadows_in_space_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)...
