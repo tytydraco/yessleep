@@ -1,6 +1,8 @@
+[I](https://www.reddit.com/r/nosleep/comments/1eluigw/my_cousins_partner_is_a_massive_porcelain_doll/)- [II](https://www.reddit.com/r/nosleep/comments/1ep0dmt/my_coworkers_partner_is_a_massive_porcelain_doll/) - [III](https://www.reddit.com/r/nosleep/comments/1f8zlbw/im_breaking_up_with_my_massive_porcelain_doll/)
+
 A week had passed at my work, and thankfully no one had touched the ‘infected’ toys I left in a box in our lunchroom.
 
-[Long story short, I left the toys there in order to appease Yssabelle —a giant porcelain doll who is seeing my cousin Sid. ](https://www.reddit.com/r/nosleep/comments/1eluigw/my_cousins_partner_is_a_massive_porcelain_doll/)
+Long story short, I left the toys there in order to appease Yssabelle —a giant porcelain doll who is seeing my cousin Sid.
 
 I didn’t know if Yssabelle had any way of knowing whether or not I completed the task. But something tells me that she did. Because those collectible toys (specifically: vintage Hot Wheels, Warhammer, Transformers, Star Wars and He-Man action figures) all contained a little bit of the same *micrites* that filled Yssabelle. And by micrites, I mean black, sentient, nanomachine slime.
 
