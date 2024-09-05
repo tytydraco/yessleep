@@ -1,3 +1,5 @@
+
+
 “I think today might be the day we get you to open your eyes.” 
 
 I haven't opened my eyes in ten years. My therapist calls it Optopobia, a fear of opening one's eyes. It all started in my teens when I witnessed my parents getting murdered.
