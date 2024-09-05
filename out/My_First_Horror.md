@@ -1,0 +1,35 @@
+Hi! I'm Junisk and this is my first text. Please, comment and suggest. Original text in portuguese (Brazil). I will translate to English in a near future.
+
+Título: “A Memória Inquietante”
+
+Karla era uma mulher de rotina, trabalhando como contadora em uma pequena cidade. Ela vivia sozinha em um apartamento modesto e adorava sua rotina tranquila. Seu dia começava às 6 da manhã com um café fresco e um jornal local, seguido por um trajeto de meia hora até o escritório. Às vezes, ela parava na mesma padaria para comprar um croissant e sempre cumprimentava o padeiro com um sorriso. Seu círculo social era limitado, mas ela tinha uma amiga próxima, Beatriz, com quem trocava mensagens e conversas ocasionais.
+
+Certa manhã, enquanto preparava seu café, Karla notou algo incomum. O espelho da cozinha, um antigo presente de casamento de seus pais, estava coberto por uma fina camada de poeira. Não era comum que ele ficasse assim, já que ela limpava a cozinha semanalmente. Ela retirou a poeira e, ao se olhar no espelho, teve uma sensação estranha, como se algo estivesse ligeiramente deslocado. Mas, atribuindo isso ao cansaço, seguiu com seu dia.
+
+Nas semanas seguintes, Karla começou a perceber uma sensação crescente de desconforto em sua casa, especialmente na cozinha. Às vezes, enquanto tentava dormir, sentia um desconforto como se estivesse sendo observada. Não havia sinais claros de que algo estava fisicamente fora do lugar, apenas uma sensação inquietante e quase imperceptível.
+
+Uma noite, enquanto tentava dormir, Karla ouviu um som sutil de movimentação na cozinha. Era um som quase imperceptível, como se algo estivesse se movendo lentamente sobre a bancada. Levantando-se para investigar, encontrou a cozinha em silêncio, com tudo aparentemente em seu lugar. O espelho estava lá, refletindo a luz fraca da rua, mas não havia nada de anormal. Ela voltou para a cama, tentando ignorar a sensação de que algo estava errado.
+
+Desesperada com a crescente sensação de pavor, Karla decidiu se livrar do espelho. Ela o colocou na caçamba de lixo do prédio, esperando que fosse removido com os resíduos. No entanto, para seu horror, ao voltar para casa naquela noite, encontrou o espelho de volta em sua parede, limpo e polido como se nunca tivesse saído de lá. A sensação de desconforto só aumentou, e ela decidiu não passar mais uma noite na casa enquanto o espelho estivesse lá. Ela foi passar a noite na casa de Beatriz, sentindo-se um pouco aliviada, mas ainda inquieta.
+
+Enquanto estava na casa de Beatriz, Karla decidiu tomar um banho para relaxar. Ao entrar no banheiro, notou que o espelho estava embaçado, e ela o limpou com a toalha. Foi então que viu, com um choque que a fez quase cair, uma cena aterrorizante refletida no espelho do banheiro de Beatriz.
+
+A figura encapuzada estava segurando Beatriz por trás, e a visão era de arrepiar. A mão da entidade, com uma adaga afiada, estava pressionando o pescoço de Beatriz, a lâmina cintilando ameaçadoramente sob a luz fraca. O encapuzado começou a mover a mão lentamente, deslizando a adaga com um toque frio e meticuloso. O movimento era quase deliberadamente cruel. A lâmina passou pelo pescoço de Beatriz, em direção ao seu peito, e depois desceu, traçando uma linha pelo corpo dela.
+
+A mão do encapuzado continuou seu movimento, deslizando pela pele exposta de Beatriz. A adaga agora estava posicionada sob o peito de Beatriz, e a entidade moveu a lâmina com precisão, passando por baixo de um dos seios, enquanto o outro seio pendia livre. O encapuzado manteve a lâmina em contato constante com a pele, criando uma sensação de ameaça iminente e desconforto profundo.
+
+Finalmente, a mão do encapuzado desceu ainda mais, e a adaga começou a raspar com um toque deliberado e cortante sobre a região abaixo do abdômen, chegando aos pelos pubianos de Beatriz. A sensação foi tão íntima quanto aterrorizante. O encapuzado usou a lâmina com uma precisão cruel, raspando um tufo de pelos pubianos. Com um movimento brusco, a entidade jogou os pelos para fora do espelho, e eles caíram no chão, finalmente aterrissando na boca de Karla, que estava horrorizada e enojada.
+
+O terror aumentou quando o encapuzado, com um gesto grotesco e repugnante, tentou enfiar a língua pela costura da boca, que estava começando a se rasgar. Com um esforço, a língua serpenteou para fora da abertura, tocando o mamilo de Beatriz. O contato da língua era frio e viscoso, e Beatriz estremeceu com a sensação. Em seguida, a entidade cuspiu um fluído escuro e sanguinolento, que salpicou sobre o corpo de Beatriz e se espalhou pelo espelho. O líquido tinha um cheiro metálico e nauseante, misturando-se com o horror da cena.
+
+A visão no espelho parecia uma mensagem clara de que Beatriz estava em perigo iminente. Karla, apavorada e sem saber o que fazer, decidiu não chamar a polícia, sabendo que de nada adiantaria. Em vez disso, ela pegou algumas coisas essenciais e voltou para seu apartamento, determinada a enfrentar o que quer que estivesse à espreita.
+
+Ao retornar ao apartamento, a sensação de terror era palpável. O espelho estava novamente no lugar, e a figura encapuzada estava lá, com a boca costurada começando a se rasgar lentamente. Karla se aproximou, e o espelho começou a brilhar com uma luz sinistra. A boca da entidade se rasgava, com o som de carne sendo esticada e rompida. A carne ao redor da costura esticava e se rompía, expondo uma carne viscosa e pulsante sob a superfície. O encapuzado tentava falar, mas as palavras saíam distorcidas e abafadas, criando uma sensação de agonia e desespero.
+
+A entidade começou a enviar mensagens perturbadoras e imagens de eventos passados onde pessoas próximas a Karla haviam sofrido. As imagens revelavam que Karla havia causado danos irreparáveis de maneira indireta, e agora a entidade estava vingando essas ações. Cada vez que Karla voltava para o apartamento, a presença do espelho parecia intensificar o terror e a culpa que ela sentia.
+
+Na mesma noite em que viu Beatriz no espelho do banheiro, o clímax ocorreu de forma intensa. Karla estava em casa, tentando lidar com o terror crescente. O espelho emitiu uma luz opressiva, e a figura encapuzada parecia estar cada vez mais próxima de absorver a essência de Karla. A boca da entidade se rasgava ainda mais, revelando um buraco grotesco. A presença parecia querer devorar não apenas sua presença física, mas também suas memórias e sua alma.
+
+Com um grito desesperado, Karla tentou lutar contra a força que a puxava em direção ao espelho. O terror era absoluto, e o espelho parecia se transformar em um portal para uma realidade distorcida e opressiva. A figura encapuzada estava completamente revelada, e Karla foi consumida pelo espelho, desaparecendo de vista.
+
+No dia seguinte, Beatriz foi encontrada em seu apartamento, mas Karla estava desaparecida. O espelho estava estilhaçado no chão, e o apartamento estava vazio. Fragmentos do espelho refletiam apenas a escuridão e o terror, e a história do espelho se tornou uma lenda local sobre como o cotidiano pode esconder horrores indescritíveis e como as memórias e ações passadas podem se transformar em algo terrível e real.

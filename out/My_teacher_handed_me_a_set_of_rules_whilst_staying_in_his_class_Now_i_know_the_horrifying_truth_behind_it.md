@@ -1,109 +1,39 @@
-My school had many teachers leaving and going, that was a common thing in our area. Everyone in my class couldn’t wait to be transferred into 9C, especially when Miss Smith moved to a new school. The excitement coursed through every student at Woodridge, when they heard that a young male teacher was being transferred to take over 9C.
 
+PART ONE — https://www.reddit.com/r/nosleep/s/f90dsNFZOv
 
-The word quickly spread throughout the school to who was going to be in this teacher’s classroom. Me and Jonas were selected as well as fifteen other students. 
 
 
-The day finally came when were brought to this teacher’s classroom. The young man stood near the blackboard, his curly blonde hair and light blue eyes, he was a kind of teacher all of the girls desired. 
 
 
-All fifteen of us stumbled to the back of the classroom, where he waited for silence. I looked at Jonas, smirking and crossing our fingers that we would sit next to each other this year. We did not want another repeat of Miss Smith’s class where we had to learn a bit of sign language to communicate to each other due to us being separated that far away.
 
 
-The man chuckled when the silence descended, he then picked up the small piece of chalk and started to write a name on the board. All of us tried to make out what his name said, and until he backed away to his seat smiling at each of our glances at one another.
 
 
-Mr Kenji Larson.
+—
 
 
-That was the teacher assigned to take over 9C, an english class.
 
 
-The only thing left now was the seating plan. We all dreaded sitting near a person we either couldn’t stand or didn’t want to know about them. 
 
 
-Mr Larson then clasped his hands together, with a soft smile he then said.
 
 
-“Each of you can choose who you like to sit next to, my orders!” 
+“Can you h-help me with something?”
 
 
-The biggest relief swept over the class as everyone happily murmured and tried finding a seat with either their friend or by themselves. Me and Jonas didn’t hesitate to sit at the very back of the classroom. I sat in the middle row whilst he sat corresponding to me.
+I rubbed the sleep from my eyes, barely processing what just happened. 
 
 
+I knew exactly who that person was. It was The Wailing Girl. She was seated next to Elijah, her blonde hair draped over her upright shoulders. 
 
-That was the start of all the good things Mr Larson did to make us feel welcomed in his classroom. Soon enough every child at Woodridge had a favourite teacher and that was him, unfortunately none of them were able to know the pure delight we felt when we had English.
 
+Elijah did not hesitate to ignore her. 
 
-Mr Larson was a charming man who none of us were bored from his long talks about Shakespeare and Scrooge. Until that day.
 
+I looked down at the sheet of paper that was tightly held in my hands.
 
 
-It was a casual Wednesday afternoon when i had double english with Mr Larson. It was the end of the lesson and all of us were seated at our seats when he began chattering about the small study session after school.
-
-
-“Okay everyone, i want all of you to listen up, now this study session is only for the chosen students i am going to call out. These are the students that maybe need some extra help on Romeo and Juliet.” Mr Larson said eying every child that froze in their chairs, not wanting to hear their names being called.
-
-
-“Hmm you better get your stuff ready Elijah, your name is gonna get called up.” Jonas snickered at me as he grinned with pride.
-
-
-“Nope i aced that test, i made sure of it!” I mocked back as he slumped in his chair in utter silence as he realised he didn’t study like i did.
-
-
-“Can the following students stand up and line outside, the rest of you stay seated i will dismiss you to go home soon.” Mr Larson announced as he picked up a piece of paper, cleared his throat and began reading.
-
-
-“Selina, Charles, Thomas, Owen, Avery, Malinda, Julianne, Benjamin, Korra, Jordan, Kristi, Luan, Reece and finally Vincent.” 
-
-
-Each person rose up from their seats, uttering a small groan and lined up outside. I was instantly stunned to not see Jonas up in that line — however soon enough we were dismissed to go home. 
-
-
-
-The next day was normal, however we were told by other english teachers that some of us were transferred to different classrooms.
-
-
-“I thought we were all gonna stay in the same class..that’s a bit odd, maybe Mr Larson couldn’t handle us.” Chuckled Jonas as we peered at the list of names of the people who were transferred to another class.
-
-
-“That is basically the whole class… i wonder why they have been transferred..” i blurted out as i looked at Jonas who frowned and leaned against the wall. 
-
-
-“I don’t know but im not going to be hanging around Mrs Gelin’s class for too long, let’s go to english.” he replied back, patting me on the shoulder as we walked through the huge crowd of children and teenagers, pushing and shouting, trying to make their way to first period.
-
-
-
-We both arrived on time to Mr Larson’s class, the one thing that was off was that he didn’t do his usual,
-
-“Goood mooorning class, ready for english?.”
-
-Instead, Mr Larson stood up with the usual small chalk in his hand and sternly looked at each child individually, as if he was checking them for hidden knives. Both of us trotted to our usual seats, as we stared at our new classmates entering our classroom.
-
-
-It was nothing like i’ve ever seen before. The students that walked into Mr Larson’s classroom did not appear normal. Each child that took their designated seats depending on where Mr Larson strictly pointed, did not look appealing. It was as if all the colour from their cheeks and body slowly bled out, their sunken eyes and small limp fingers. Me and Jonas were fixated on these appearances, that was when a harsh knock resonated through my skin, and everyone was fixated on Mr Larson.
-
-
-The one thing that was also odd about Mr Larson was that his once beautiful blonde curly hair was now messy and strands looked as if they were purposefully cut off. His white shirt and black tie looked torn it some parts, and some of his laces from his shoes were missing.  
-
-
-
-With a hoarse voice he then muttered.
-
-
-“I am going to be handing out a piece of paper with your name on it. If you loose this paper… well… there is no going back for you.” 
-
-Mr Larson whimpered as he took a pile of neatly laid papers and began handing it out to some of the children. Only half of the class received this paper. Mr Larson then walked towards us with two papers in his hand as he shakily placed them on each of our desks.
-
-
-With a slight frown i turned to Jonas who had the same expression as me. Confusion.
-
-
-
-The silence laid steady against the walls of the classroom. Jonas, with slight horror was looking at the sheet of paper, i then peered down reading the words it said.
-
-
-
+It read.
 
 
 A list of rules for staying in 9C.
@@ -116,127 +46,523 @@ A list of rules for staying in 9C.
 
 3. You must bring the following items to class. At least two torches, a mirror, and the key to access the backdoor in the classroom. If you do not bring any of these items into class, you won’t be saved.
 
+4. Do not look at any window. No matter how much it tells you that you’re safe. It doesn’t matter how much it persists or begs you to the point where you want to eventually give in. Do not look at the window. 
 
-4. If a teacher named Mr Drental, walks into the classroom and says that he will be covering the remainder of the lesson, grab the key to the backdoor in the classroom and enter it. Do not hesitate. Do not talk to Mr Drental. Do not maintain eye contact, other than the backdoor. If the only people going to the backdoor is you, then you are the only remaining person alive now. 
+5. If a teacher named Mr Larson takes over the remainder of your lesson. You must leave immediately. Run to the shelf that is at the back of the classroom. Grab the keys and head to the backdoor. This will slow It down for a while but at least you’re safe then.
 
-5. If you hear the bell ring. Do not get up. That is not the actual bell that dismisses you, i will tell you to when to leave. It may be minutes or hours you have to wait until class or school is over, it may be nighttime before you can leave. But whatever you do, do not leave this classroom until i command you to do so.
+6. The Boy on the Trike. If you come across the Boy on the Trike, you’ll be fine. That is as long as you don’t make him angry. If anything happens, follow up to rule 6a.
 
-6. Do not speak. The only time you can speak is when i ask you a question. They do not like anyone to speak without a warning. Do not ask me about anything, only about the lesson. You can ask me questions when i command you to do so. 
 
-7. Be safe.
+ 6a) Every entity that you come across has a trance. 
 
+- Do not ruin his trance. He always goes the same direction. Round in circles on a Trike. If he is blocking the hall. Find another route. 
 
+- If you anger him, he will stop and follow you, walk slowly. Any sudden movement  he will pick up his pace on his trike. And if you anger him anymore, well no one knows what happens after that.
 
-Trepidation sunk into my hands and body as the only thing that moved slightly was my eyes which darted from each word consistently.
 
-Was this a sick joke..? Has Mr Larson really lost his mind..? 
 
 
-I slowly rose my head and began to look at Jonas whose eyes were angrily drawn to Mr Larson. Before any of us could get a word out, the boy at the front row did. 
+- Make sure you check the right door to escape. If any exit door is Red, Orange or pink, that is wrong. The exit is coloured green. You must continue to find the exit and you will come across many entities which i have not written rules about. You’re on your own.
 
 
+I lifted my head up. 
 
-“WHAT THE FUCK IS THIS?! RULE NUMBER 3, KILL THE PERSON NEXT TO YOU?! ARE YOU FUCKING INSA—“ 
 
 
+That was when a sharp creak overlapped the cold silence.
 
-The stillness persevered the classroom. It was like a chilling, dead hand that held the students in place. Nothing in the room moved an inch. The pounding and screeching resonated throughout the classroom, as my ears were brought back from the cold, tranquil moment that i had.
 
 
-No one moved. Everyone had their eyes on something at the front of the classroom. 
 
+New students flooded into Mr Larson’s classroom. Each child that took their designated seats depending on where Mr Larson strictly pointed, did not look appealing. It was within minutes before Mr Larson took the chalk from the board. He then hastily wrote his name down.
 
-I wasn’t sure if it was me going crazy, or if it was Mr Larson. But something was not right here. 
 
+It read. 
 
 
-Mr Larson stood there blank faced. I wanted to scream, i really did. Looking across from the multiple chairs and tables in front of me my eyes lingered upon the head that was faced down on the floor, the arms and legs were sort of bent in abnormal positions, stretched far beyond any human body could reach. Fluids seeped from each leg and arm, covering the wooden floor with a thick coat of red blood.
 
+Mr Larson.
 
-David Miller laid there. His thick black curls dripping the blood from his face. Silence.
 
 
-We were quickly interrupted by a faint, trembling voice who ushered us to focus on what we were about to learn today.
 
+I couldn’t move. My eyes lingered to the sheet of rules and the name on the board. I rose upwards unable to stop the violent shaking in my hands. Elijah stared at me as my hands began moving, i did a quick hand gesture in sign language telling Elijah to come.
 
-The lesson dragged on, my eyes constantly looking at the paper and a good classmate that was lying, sprawled out at the front of the classroom.
 
+As soon as Elijah rose up from his seat, we bolted towards the shelf at the back of the classroom and I snatched the key from it, the sharp ends digging into my palms as my breathing became more agitated. Trembling, i managed to pull both me and Elijah into the room and slamming the metal door behind us.
 
-I was practically falling asleep when i first heard it.
 
+The dim lights flickered on.
 
 
- I thought my mind was playing tricks with me, reminding me of the guilt that consumed the only remaining thoughts i had in the classroom.
 
 
+Silence.
 
-But no. This certainly did sound real. The shrilling scream that echoed the halls of Woodridge. I waited, hoping to hear teachers pop out from their classroom and deal with the situation and maybe, just maybe enter 9C. 
 
 
-But that didn’t happen. 
 
+BANG.
 
 
-The bell rang, a faint relief swept over the class as we realised english was over. I quickly glanced at Jonas as i started to cram my books into my bag. Jonas turned his head to me, his cold eyes staring deep into me then at the paper that laid evenly on the table.
 
+BANG.
 
-I felt my legs slip back into the chair, as i realised what was going on. 
 
 
+BANG.
 
-The sound of cluttering and chatter filled the hallway of the school building, every child and teenager sounded as if they were being dismissed out of school. 
 
 
 
-Did they forget about us?
+“Hey you two, what is going on?” a soft voice resonated through the door as we both held ourselves together.
 
 
-That sharp thought edged into my mind, every child was leaving this school but not us? Surely every teacher checked out their register in form to see that none of us were there. 
 
+None of us moved.
 
 
-It was at least half an hour that passed. Every new student that was assigned to our classroom left, it was only, Jonas, Me, Kennedy, Isaac, Dwayne, Harley and Annie and of course Mr Larson.
 
 
+“What are your names? I would like to know, and i would also like to remind you two that any unprofessional behaviour is not tolerated in my classroom!” The voice sternly said back. 
 
-That is when we heard it. It wasn’t the same as before, the shrill. It was as if it was in our classroom that minute.
 
 
-Dysphoria held my body in place, my chest becoming tighter and tighter with every breath i took in. 
 
+BANG.
 
-It was louder. Coming closer and closer to our classroom until.
 
 
 
-Creak.
+BANG.
 
 
 
-The door slowly opened, a blonde girl walks into the classroom. Beautiful flawless skin and gushing green eyes, she was assigned to sit next to me on the middle row. 
 
+BANG.
 
- Green eyes gazed over to me as a dimple formed after her short smile that lit up the classroom.
 
 
-She placed her bag next to her, and put her head down. Mr Larson tiredly began talking about Romeo and Juliet’s background, as a faint sniffle came from the girl.
+We both knew that this was not Mr Larson. Nothing in this room could kill us right?.
 
 
 
-At this point, i was dreary not to notice that Jonas was asleep. A faint cry penetrated the room, i quickly looked over at the girl who had her head down.
+BANG.
 
 
 
 
-The screech filled the dim room, at this point Jonas was alerted of the situation, we both were startled but continued to focus on Mr Larson’s speech, his voice getting louder as the screaming did the same. 
+BANG.
 
 
 
-The girl muttered to herself and calmed down. She then slowly turned to me. Her blonde hair sitting on either side of her shoulders.
 
+BANG.
 
-Her warm smile, and eyes looking into mine. She then whispered.
 
 
-“Can you h-help me with something..”
+The repeated pounding on the door and the sound of rattling coming from the handle, alerted us that we had to find a way to escape before Mr Larson got us.
+
+
+
+
+“H-how did you know we had to leave..?” Elijah faintly whispered as i was on the edge of forgetting his voice after so many long hours of us not talking to one another.
+
+
+
+“It’s on the rules list… c-check..” I replied back with a small whimper as my head turned around looking for an exit.
+
+
+
+
+“Let me see yours…” Elijah quickly demanded as i shakily gave him my list of rules.
+
+
+
+“W-what….this is n-not… right.” Elijah gasped as he showed me both papers which were completely different from the other.
+
+
+
+“How come your paper… h-has rules that i don’t have..?” Elijah began trembling, he then swallowed and i said.
+
+
+
+“Im not sure but i do know…that whoever made your list of rules purposely wanted to kill you.” i uttered back glancing at my rules and Elijah’s.
+
+
+I look across the room, a small source  of light both alerted us as we realised what we were looking at.
+
+
+
+A vent.
+
+
+
+Both of us scrambled to the back of the room and tried to open the vent up. The lid clattered on the floor as we examined if we can fit inside. Elijah went first and i went after. The screeching slowly descended as we crawled deep into the vent, hoping that we come across some sort of escape route.
+
+
+A few moments passed before Elijah stopped. He glanced at the other vent door that showed a room filled with complete darkness. 
+
+
+He slowly inserted his small fingers into the holes of the vent door, my breathing increased as i followed Elijah out of the vent.
+
+
+Bling.
+
+
+The blanket of chilling darkness evaporated and died as the lights were turned on. We quickly took in the place, which was the female’s bathroom. 
+
+
+We both exchanged smirks. We then peered on the side of the sink, and to our pure surprise there was a single flashlight that was evenly placed.
+
+
+We both quietly walked towards it, i pulled out my rules list and gave it to Elijah, showing him the rules of how we can escape.
+
+
+I placed a finger on my lips and a hand behind my ears, making him know that we must be quiet and careful, we should also listen to any noise. We can’t talk or do anything that may alert them 
+because they are watching. Always watching.
+
+
+
+I wrapped my hand around the door and opened it. Elijah then poked his head out, looking in both directions, he then nodded that it was clear.
+
+
+
+We gradually walked down the hall turning a right and reciting the exit door which was a couple turns and steps ahead. 
+
+
+
+My heart jolting in my chest as i tried maintaining my breathing. We turned several corners, we then turned the last corner where the exit was.
+
+
+
+
+Squeak. Squeak. Squeak.
+
+
+I held my hand up hard to block Elijah from walking. 
+
+
+I felt as if all the air out of my lungs were trapped inside, the sweat trickled down my pale face, smelling the crisp, ghastly presence that exuded out of my trembling body.
+
+
+
+Squeak.
+
+
+
+
+Squeak.
+
+
+
+
+Squeak.
+
+
+
+
+
+The small bike was moving around in a large circle, as we both spotted a little child clutching the yellow handles. The thin, ginger hair stuck to each colourless cheek as its eyes were buried down. 
+
+
+
+The trike exhaled squeaks as it moved in the same direction. Continuously.
+
+
+
+
+
+We had to take another route.
+
+
+
+
+
+Squeak
+
+
+
+
+Squeak
+
+
+
+
+
+Squeak
+
+
+ 
+
+
+We turned around to depart and find another exit out.
+
+
+
+Squeak 
+
+
+
+
+Squeak
+
+
+
+
+Squeak 
+
+
+
+
+
+
+I grabbed my hand and slammed it across my mouth to stop the horrific sound that was creeping up, through my throat. 
+
+
+
+I couldn’t stop myself from trembling as i peered at the obscurity, chilling figure that bent down to our faces. 
+
+
+
+
+
+
+CRASH.
+
+
+
+
+
+
+
+The halls went into a docile state as the only thing that i could possibly hear was the fast repeated beat in my chest which froze each fragment of my body. 
+
+
+
+
+The torch laid in the thick ocean of darkness, the only remaining source of light slowly flickered into a sleeping trance. 
+
+
+
+
+Elijah peered behind us. Grabbing my arm and dragging me across the hallway. The unusual face that was staring into me was now gone.
+
+
+
+
+Squeak
+
+
+
+
+
+Squeak
+
+
+
+
+Squeak
+
+
+
+
+
+The boy was following us as we fixed our pace of running into walking. 
+
+
+
+
+
+We had to get out of here.
+
+
+
+
+I believed that i felt a set of eyes were watching us at that moment, as Elijah hurriedly dragged us into corners and long hallways that edged on for minutes — large stairs that had more steps than before.
+
+
+
+The squeaks behind us were becoming more faster as we picked up our pace and soon we were running to find an exit, anywhere.
+
+
+
+
+To our pure relief we found a painted green exit, as we ran with all our might down the long hall and grabbing the door open and a cool breeze slapped our faces.
+
+
+
+
+
+We darted across the silent streets, our legs giving up as we finally made our way to the large building which had, Police Station at the top of it.
+
+
+
+There was a group of men at the front desk who were laughing and drinking. The smell of coffee, sugar and sweat tingled our noses as we entered the station.
+
+
+
+
+All eyes were focused upon us. Each man exchanged looks of complete horror and confusion at our appearances.
+
+
+
+“Hello how may i help you.?”  A large rosy man stood up from his seat and made his way towards us. The white specs of hair tucked behind his wrinkled ears, he had a small, grey black moustache and was wearing the police uniform with a golden star on the side which read.
+
+
+
+Chief of Police.
+
+
+
+
+We did not know where to start. We just slowly began to burst out crying as the group of men approached us and continued to question what had happened.
+
+
+
+
+The old man ushered the rest of the group to go home as he will sort this out.
+
+
+
+Soon enough, we were sitting on a large sofa shoving small cakes and sipping milk down our throats as the old man plainly smiled at us. 
+
+
+
+He then glanced at each of our clothing and shoes, frowning. 
+
+
+
+“C-can you please call our m-moms…?” I finally asked, as the man got up and sat at the far end of the room near a pastel coloured computer. He then began to type for a while before questioning us.
+
+
+
+“How old are you two children.?” The man asked gravely, clearing his throat.
+
+
+
+“We are both eight years old, sir..” Elijah added as he sat up in his seat.
+
+
+
+“What is your name,  boy.?” The man pointed at Elijah as he glanced at him back and said.
+
+
+
+“Elijah Pierce.” 
+
+
+The man then quickly typed up something on the computer as we both stood up.
+
+
+
+“And your name..?” He pointed at me as i replied.
+
+
+
+“Jonas.. Jonas Valor” 
+
+
+
+The man finished typing as he frowned.
+
+
+
+
+The words hushed out of the man as my body began to shake. This can’t be correct.
+
+
+
+“There is no record of two children named Elijah Piece and Jonas Valor in this entire year.”
+
+
+
+“W-what… are you kidding…! B-because it’s not fu—“
+
+
+“Do i know you kids from somewhere..?” 
+
+
+
+Before we could comprehend what he asked us, a loud clatter came from the front door of the station and a man entered. 
+
+
+
+The man walked through the door and glanced at us for a few seconds then looked at the chief.
+
+
+
+“What is going on..?” Small lines of gray hair were evenly spread out from ends of his head. The man wore black jeans and black leather jacket. His hands clasped together as he glared at the man on the computer.
+
+
+
+“Well it seems that these two children appeared out of thin air.. Take a look at this Jim.” The man shuffled out of his chair with a groan as the other gentleman walked towards him.
+
+
+
+
+“What.. that can’t be real.. right?” Jim questioned as he looked at the screen of the computer then at us. He then stopped. The vibrant colours of his cheeks and body slowly deteriorated as his dark eyes were fixated upon us. Gaping his mouth open, he tried to say something but all the words were somehow taken away from him, leaving the man whimpering and shaking. 
+
+
+
+“W-Wyatt..” The voice was sort of faint as the man gradually lifted himself up from the chair and held the table for support. 
+
+
+
+“What is it Jim.. You’re scaring the children..” Wyatt whispered as he placed a hand on Jim’s shoulder.
+
+
+
+“Y-you remember 1943?” He questioned as Wyatt heavily sighed, wiping his fingers across his head and eyes as he uttered.
+
+
+
+“Of course i-i remember 1943… why… why do you ask—“
+
+
+
+“W-what are your names..?” Jim asked the both of us as we stood looking at the face filled with grief and another filled with shock.
+
+
+
+
+“My name is Jonas Valor…” I said back, my mind filled with deep confusion.
+
+
+
+“My name is Elijah Pierce—“
+
+
+
+
+
+“You remember… Y-You remember what happened in 1943. Everybody thought those parents were going insane.” Jim chuckled as he sat down on the sofa near the entrance door.
+
+
+
+“I know you two. And both of you know me, and us. Don’t you.?” The man pointed at Elijah and Me as a look of confusion and fear lingered in the air. 
+
+
+
+“J-Jim what are you talking abou—“
+
+
+
+“I have known Wyatt Thompson for thirty eight years.. Nothing more unusual ever happened in 40 Hendry… Nothing like the case of 1943. When me and Wyatt were your age.. We saw the whole case kick off.” 
+
+
+
+“W-what are you saying Sir..?. i-i don’t understand..” Elijah muttered as he looked at Jim and Wyatt who were stunned by us.
+
+
+
+
+
+
+
+
+
+
+“We never stopped searching for them. But now we believe that we are looking at the same children that were sinisterly abducted in 1943.”
+
 
