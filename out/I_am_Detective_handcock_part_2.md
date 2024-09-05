@@ -1,3 +1,5 @@
+https://www.reddit.com/r/nosleep/s/n5aKoKoob6
+
 "Yes his name was victor mendez. We were able to identify him by his dental records. Hancock leaned forward in his chair. How long was it from the time he went missing and when he was thrown through the window?"
 
 Cindy shifted in her seat. “Umm i can't be sure but i think it was only maybe five minutes. Everything seemed so fast. I don't know what could have done that to him”
@@ -69,3 +71,4 @@ Handcock burst through the door of the interview room. “Sorry I got my wires c
  Everything was different after that day. I know it sounds crazy but this man has been my partner for two years. I know this isn't the man I know.  The moment he walked back in the interview room something was off. From the moment we met he called me by my first name. Since he walked back in the room that day he's called me Toadvine.  He never used to call me by my last name.
 
 I have to get to the bottom of this but where to start.
+
