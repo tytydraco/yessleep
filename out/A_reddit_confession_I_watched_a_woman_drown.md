@@ -111,3 +111,5 @@ In the ER they gave me an IV. I could hear her in the bag. I ripped the IV outta
 Now I'm back home. I can't take it anymore, can't go on like this. So this is the last thing I'll ever write - my confession. I wrote it before I grabbed the knife.
 
 I'm sitting here now, waiting to die. Slit my wrists wide open. And I swear, I can hear her in my blood.
+
+Update: I'm alive. I don't know how or why. I'm back at the hospital, and it's storming outside. 

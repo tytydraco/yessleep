@@ -40,13 +40,13 @@ Dr. Welsh stepped aside and gestured for me to examine the specimen. I hesitantl
 
 The specimen was more homunculus than human. Its face was that of a sweet innocent woman, but just below the throat is where the horror started. The head was stitched onto a youthful torso with pristine-perfect skin and breasts. Its arms were sectioned, and you could easily tell that many different ethnic backgrounds made up its limbs. The appendages were not even of equal length, it was grotesque. Ungodly. Inhuman. Then it dawned on me. I remembered where I heard Dr. Elise Welsh mention before.
 
-I don't know if you remember a horrific new story from 2019 about a research facility in Arizona. Where the facility was raided by the FBI after an investigation discovered bodies stitched together. The facility members defiled the doner bodies and created all sorts of monstrosities. While Dr. Welsh was not mentioned on the national news, the local news reported him as the director of the facility. I attended my undergrad in that area and was privy to the news headlines.
+I don't know if you remember a horrific new story from 2013-2014 about a research facility in Arizona. Where the facility was raided by the FBI after an investigation discovered bodies stitched together. The facility members defiled the doner bodies and created all sorts of monstrosities. While Dr. Welsh was not mentioned on the national news, the local news reported him as the director of the facility. I attended my undergrad in that area and was privy to the news headlines.
 
 I quickly shot my head around towards the doctor.  
 
 "You?" I said stunned.
 
-"You are thee, Dr. Elise Welsh." So many questions ran through my head. 'How is he not in jail? Why is he still the director of anything?' This man is a monster. The man smiled at me and responded with a confirmation.
+"You are thee, Dr. Elise Welsh." So many questions ran through my head. 'How is he not in jail? Why is he still the director of anything?' This man is a monster. The man gave me a smile and responded with a confirmation.
 
 "Me."
 
@@ -58,7 +58,7 @@ Just as I was about to erupt into a sprint, a cold hand clasped my wrist. I turn
 
 "She's perfect," it said in a smoker's scratchy voice. The memory of the black-and-white picture Dr. Welsh showed me flashed back into my mind and I wanted to scream at the realization of who this was and what they intended to do with me. My face was going to be added to the monster's collection of parts. Dr. Welsh spun me around and looked intently into my eyes.
 
-"She is, isn't she." His eyes, full of love, he did not break his connection with mine. Seconds turned into minutes and I could almost see the memories playing in the doctor's eyes.
+"She is, isn't she." His eyes, full of love, he did not break connection with mine. Seconds turned into minutes and I could almost see the memories playing in the doctor's eyes.
 
 "Elise? Elise. Elise!?" The homunculus called but nothing could snap the doctor out of his trance. Finally, he forced my lips into a pucker and planted a nasty wet kiss on my mouth.
 
@@ -78,4 +78,7 @@ Dr. Welsh smiled and responded.
 
 "You damn whore. You ruined everything." Turning the scalpel on herself she ripped the stitches on her neck wide open, letting out a blood-curtaling howl through her trachea. I stood there in shock. Only the buzzing of the fluorescent lights sounded. I was finally snapped out of it when I heard the sound of liquid reaching the floor drain, blood had found its escape and it was my turn to do the same.
 
-I grabbed my things and ran from campus. I booked the first flight out of the country. Just so happens that country was Honduras, funny how things work out. I was glued to the news for the next few days. The world seemed just as shocked as me when they found the bodies. I have a feeling that the university had a hand in twisting the narrative because the news spun the story as if Dr. Welsh had committed suicide after failing to resurrect his wife. Anyhow that is no longer my concern. Not my circus, not my monkey. I'm just happy no one seems to be blaming me for what happened.
+I grabbed my things and ran from campus. I booked the first flight out of the country. Just so happens that the first flight available was Honduras, funny how things work out.
+
+Expecting some news channel to pick up the tragedy, I was glued to the TV for days, but days turned into weeks, weeks to months and nothing came to light. You would think the world would be itching for a news story such as this, but all was quiet. Maybe the university orchestrated some kind of coverup. Who knows? Not my circus, not my monkey. I'm just glad they didn't find a way to blame me for what happened.
+
