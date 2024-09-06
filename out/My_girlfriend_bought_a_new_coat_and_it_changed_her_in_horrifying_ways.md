@@ -22,7 +22,7 @@ It was endearing at first. The glee in her near-teary eyes. The slight lump in h
 
 “Wow. You sure do find some gems from charity stores,” I said. “Did you get it from Oxfam?”
 
-She nodded eagerly. “They had a mountain of things in there. Apparently, some local family abandoned their home and begged the shop to take everything they owned.”
+She nodded eagerly. “They had a mountain of things in there. Apparently, some locals abandoned their home and begged the shop to take everything they owned.”
 
 “That’s odd,” I said.
 
@@ -30,13 +30,13 @@ Alissa shrugged. “One man’s rubbish is another woman’s treasure. The shop 
 
 “Shocked?” I asked.
 
-My girlfriend nodded. “I found this at the top of one of the boxes by the door. The woman said she hadn’t got around to unpacking everything, but she didn’t remember that coat being there.”
+My girlfriend nodded. “I found this at the top of one of the boxes by the door. The woman said she hadn’t got around to unpacking everything, but she didn’t remember that coat even being there.”
 
 “Mysterious,” I chortled.
 
 These strange drips of trivia would mean nothing until later.
 
-It was a little after noon on a relatively pleasant day, yet Alissa insisted on wearing the coat whilst we relaxed in the garden. Even with the sun beating down. I dismissed that, but it seemed a little strange that she chose to wear the coat during dinner too. And I finally decided to say something when my girlfriend continued wearing the coat whilst we watched Bake Off on the sofa.
+It was a little after noon on a relatively pleasant day, yet Alissa insisted on wearing the coat whilst we relaxed in the garden. Even with the sun beating down. I dismissed this, but it seemed a little strange that she chose to wear the coat during *dinner* too. And I finally said something when my girlfriend decided to continue wearing the coat whilst we watched Bake Off on the sofa.
 
 “I know summer has nearly come to an end, but it’s not cold at all in here,” I said. “The heating’s on. Take the coat off, Alissa.”
 
@@ -46,7 +46,7 @@ I was about to repeat myself when she sharply spoke with a croaky, tearful giggl
 
 “*I would sooner take off my skin.”*
 
-My stomach twisted. Not from my girlfriend’s alarming turn of phrase, which I would’ve dismissed as a bizarre joke if the evening’s horror had ended there. No. My stomach twisted in synchronicity with the cotton coat’s twill pattern. It was not a trick of the light. The fabric was warping. *Spiralling* as the sleeves tightened against my girlfriend’s skin. As the lapels of the coat started to slice into her neck.
+My stomach twisted. Not from my girlfriend’s alarming turn of phrase, which I would’ve viewed as a bizarre joke if the evening’s horror had ended there. No. My stomach twisted in synchronicity with the cotton coat’s twill pattern. It was not a trick of the light. The fabric was warping. *Spiralling* as the sleeves tightened against my girlfriend’s skin. As the lapels of the coat started to slice into her neck.
 
 “Honey…” I fearfully began. “Are you…”
 
@@ -58,7 +58,7 @@ I screamed and reached towards her, but Alissa spun rapidly. Robotically. Her vi
 
 “*Don’t*,” She warned in a whisper hardly her own. “You’ll crease it.”
 
-Then my girlfriend turned off the television and rose from the sofa with arms stretching upwards. The fabric seemed to have stopped tightening, thankfully, and it groaned as Alissa flexed her appendages outwards. She, on the other hand, hardly seemed aware of what was happening to her. Though her red complexion had faded, the pendulum seemed to be swinging in the other direction. She was starting to grow *pale*. Her skin appeared dry and cracked.
+Then my girlfriend turned off the television and rose from the sofa with arms stretching upwards. The fabric seemed to have stopped tightening, thankfully, and it groaned woefully as Alissa flexed her arms. She, on the other hand, seemed peaceful. Blissfully aware of what was happening to her. Though her red complexion had faded, the pendulum seemed to be swinging in the other direction. She was starting to grow *pale*. Her skin appeared dry and cracked.
 
 “Water…” She begged me, before surprisingly *removing* the coat from her frail body.
 
@@ -66,11 +66,11 @@ I didn’t question it. I was simply relieved to see Alissa finally take off the
 
 *The coat didn’t tighten of its own accord,* I thought. *That would have been madness.*
 
-When I summoned the courage to enter our bedroom, a few minutes later, I was relieved to find the trench coat draped over an armchair in the corner. Alissa was lying on her side of the bed, looking rather unwell, yet somehow more *herself*. She smiled warmly as I handed over the glass of water and started dressing down for bed.
+When I summoned the courage to enter our bedroom, a few minutes later, I was relieved to find that the trench coat had been draped over an armchair in the corner. Alissa was lying on her side of the bed, looking rather unwell, yet somehow more *herself*. She smiled warmly as I handed over the glass of water and started dressing down for bed.
 
 “Thank you,” My girlfriend huskily said, taking a large swig. “I’m sorry about before, Derrick. I don’t know what came over me.”
 
-I smiled, having chosen to forget the unnerving thing I’d seen. “It’s fine. I know you get fixated on new things. It was just far too hot to be wearing that today. You know that, don’t you?”
+I smiled, having chosen to forget the unnerving thing I’d seen. “It’s fine. I know you get fixated on new things. It was just far too hot to be wearing that coat today. You know that, don’t you?”
 
 Alissa gulped down the water, then nodded weakly. “You’re right. I did feel a bit *peaky*. I’m so thirsty… I’ll probably be filling this up throughout the night.”
 
@@ -88,7 +88,7 @@ It was the faint scratch of cotton against suede that woke me. Hardly a rustle, 
 
 Then came that scratching once more.
 
-I sat up, and my eyes shot ahead, settling on something I’d been avoiding since waking up. The suede armchair. The trench coat sitting upon it. And as I eyed Alissa’s favourite piece of clothing, which had sleeves draped across the armrests, I became increasingly convinced that I was staring not at a coat at all, but a *man*.
+I sat up, and my eyes shot ahead, settling on something I’d been avoiding since waking up. The suede armchair. The trench coat sitting upon it. And as I eyed Alissa’s favourite piece of clothing, which had sleeves draping across the armrests, I became increasingly convinced that I was staring not at a mere coat, but a *man*.
 
 Pareidolia is a common phenomenon. In the dark, we’ve all seen inanimate things that look like people. We’re pattern-seeking beings. But this wasn’t that. I know what I saw. I saw a man.
 
@@ -96,18 +96,18 @@ It sounded a third time. Just as I was about to dismiss everything and lie back 
 
 Mouth gaping to release a silent screech, I spun around to check that I hadn’t lost my mind. Alissa was definitely lying beside me. She wasn’t sitting in the armchair.
 
-But I knew I hadn’t imagined things. I knew I’d seen the coat move in the moonlight pouring through slightly-parted curtains. I knew there was a blackened shape wearing the awful item, which trailed down to the carpet. And when I returned my gaze to the armchair, preparing to be met with the oh-so-ordinary sight of a static coat, I was met with a terror beyond human understanding.
+But I knew I hadn’t imagined things. I knew I’d seen the coat move in the moonlight pouring through slightly-parted curtains. I knew there was a blackened shape wearing the awful piece of attire, which trailed down to the carpet. And when I returned my gaze to the armchair, preparing to be met with the oh-so-ordinary sight of a static coat, I was met with a terror beyond human understanding.
 
 There stood a lightless, gangly figure at the end of the bed, wearing the long, navy trench coat and eyeing me with something that was not a face. Was not anything but blackness.
 
-I yelled until my lungs deflated, fumbling with the bedside lamp and almost knocking it over as I turned it on. In response to the racket, Alissa *finally* woke from her deep slumber, but it was too late. As if cowering under the harsh, revealing glow of the lamp, the coat tumbled to the carpet, and the dark figure was gone.
+I yelled until my lungs deflated, whilst fumbling with the bedside lamp and almost knocking it over. In response to the racket, Alissa *finally* woke from her deep slumber, but it was too late. As if cowering under the harsh, revealing glow of the lamp, the coat tumbled to the carpet, and the dark figure was gone.
 
-Alissa doesn’t believe me, even when I pointed at the damp trail leading across the carpet from the armchair to the coat at the end of our bed. I told her I didn’t move it. Didn’t leave that foul-smelling trail of water. But she doesn’t believe me.
+Alissa didn’t believe me, even when I pointed at the damp trail leading across the carpet from the armchair to the coat at the end of our bed. I told her I didn’t move the piece of clothing. Didn’t leave that foul-smelling trail of water.
 
 I know that it was all real. The proof is there on her skin. The telltale twill pattern on her neck and cheeks. My girlfriend continues to absent-mindedly dismiss it as a *unique* rash, but she isn’t herself. She seems to have forgotten whatever she briefly realised for long enough to remove the coat.
 
 And she’s started wearing it again. I tried to throw the damn thing out, but it *always* finds its way back into our home. Back onto Alissa’s body.
 
-It’s draining her. *Drinking* from her. I realise that now. Draining the water from her body and claiming it for itself. It wants to become stronger. That’s what I believe. It was crooked and unbalanced on that first night. But with every passing day, it grows in strength. I feel that. I see the wet carpet trail growing. Spreading throughout the house as something wanders our halls every night. And I want to leave, but I have to save Alissa. No matter how much she drinks, she becomes weaker.
+It’s draining her. *Drinking* from her. I realise that now. It is draining the water from her body and claiming it for itself. It wants to become stronger. That’s what I feel. The man was crooked and unbalanced on that first night. But with every passing day, he grows in strength. And the wet carpet trail is growing. Spreading throughout the house as something wanders our halls every night. I want to leave, but I have to save Alissa. No matter how much she drinks, she continues to weaken. That man is sapping her strength. Her soul.
 
 I don’t want to know what happens to us when the creature has had its [fill](https://www.reddit.com/r/dominiceagle).
