@@ -1,8 +1,6 @@
 “What the fuck is that supposed to mean?”
 
-I tell her I don’t know what I’m saying anymore. I’m out of my mind. Clarissa just watches me as I
-
-pack up my things while she sits on the couch smoking her invisible cigarettes. Only she can see the smoke. She tells me we’ve been doing this too long and we should stop because we don’t know the first thing about this stuff, nor does anyone, or what it’s actually doing to our insides. All we know is that we can’t stop, because if we stop, we’ll become immortal, and nobody wants that.
+I tell her I don’t know what I’m saying anymore. I’m out of my mind. Clarissa just watches me as I pack up my things while she sits on the couch smoking her invisible cigarettes. Only she can see the smoke. She tells me we’ve been doing this too long and we should stop because we don’t know the first thing about this stuff, nor does anyone, or what it’s actually doing to our insides. All we know is that we can’t stop, because if we stop, we’ll become immortal, and nobody wants that.
 
 Amethyst is kind of like an amphetamine, but instead of the spiders you would normally see crawling on your skin after binging on, say, crystal, you can feel the webs. You can hardly move your fingers because they’re all tied up in them, and sometimes you can’t open your eyes. I wouldn’t dare stop.
 

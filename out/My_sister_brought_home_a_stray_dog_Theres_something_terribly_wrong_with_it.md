@@ -34,7 +34,7 @@ I thought I had made it, but just as I was pushing my bedroom door open, I heard
 
 That morning I woke up with a migraine. Nothing too major but it was a drawback from what would've otherwise been a great day. My sister was at some dance club, my mother was visiting the solicitor in town and my father had gone golfing. On this rare occasion, I had the house to myself. Well, me and the dog. I found a strongly worded note on the kitchen table when I woke up. It was left by Emily, telling me how I should feed and entertain Buster while she was gone. I crumpled it up and attempted to throw it into the bin from across the room, missing horribly. 
 
-I made myself the unhealthiest breakfast I could think of. I took it into the living room to eat while I settled down to watch a film, Dan O'Bannon's “Night of the living dead”.That's how I spent the morning. 
+I made myself the unhealthiest breakfast I could think of. I took it into the living room to eat while I settled down to watch a film, Dan O'Bannon's “Return of the living dead”.That's how I spent the morning. 
 
 Later on, I took my empty plate into the kitchen. I figured if my mother saw that I cleaned the dishes, she wouldn't be as critical when she found the crums. I walked past Buster, who was slumped in his usual stop in the corner of the room, on a bed of now dirty sheets. 
 
