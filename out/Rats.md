@@ -63,7 +63,7 @@ After the police did their investigation, they were able to tell me a couple of 
 
 They told me that the intruder was living in the attic for at least a month, they did a full sweep of the attic and found multiple rat corpses scattered around the attic, they also found bags and bags of rancid trash, their theory was that the intruder was gathering trash and bringing it to the the attic in hope of luring as many rats as possible to his location. 
 
-Surprisingly the most disturbing discovery wasn't anything that was found in the attic.
+Surprisingly, the most disturbing discovery wasn't anything that was found in the attic.
 
 Under my bed, they found multiple headless rat corpses...
 
