@@ -1,0 +1,65 @@
+[Link to my original post here!](https://www.reddit.com/r/nosleep/comments/1f9zm2h/my_time_in_apartment_87/)
+
+It seems like my last post may have garnered some good press! I'm glad everyone enjoyed the first foray into my weird life experience. If you haven't read the first post yet, please do. It gives pretty much gives context to everything I write from here on out. I'm sure the next series of posts will flesh things out more though. With that, I guess I can start off where we left off, the Curried Goat dinner.
+
+The letter was handwritten by who I can only assume was Mr. Rags. The night before had terrified me, but I had just a slight sense of relief to know that the goat fiasco wasn't all bad. I sat for a while with a battle of thoughts rushing in my brain. What the hell happened last night? Did I actually see the man killing the goat, or maybe he had just found it and put it out of its misery? Do I go downstairs for dinner? I'm not even sure what time dinner is, so maybe I should just hang back. It was my second night there after all, and I didn't exactly sleep well the night before. An early night in with a good night's rest would surely help me collect my thoughts on the mat... Before I had time to even complete the thought, a knock at my door interrupted it.
+
+"Hello? Mr. Zach, I'm headed down for dinner now. I really would love it for you to join us!" said Mr. Rags. I could tell it was him even through the muffle of the closed door. He didn't sound angry or evil at all. I sat there a second before mustering up the courage to respond.
+
+"Uh, yeah, yeah just hold on a second. I'll be right there" I said.
+
+I grabbed my phone and decided to start a voice memo, then threw it in my pocket. I walked over to the door and opened it, being greeted by Mr. Rags, same exact look as the day before.
+
+"Oh, you don't need to worry Mr. Zach. What you saw last night will be explained in due time. I promise, I'm not here to hurt you or any of the other residents in the complex." he chuckled whilst gesturing to my pocket. I froze. Did he know I was recording? There's not a chance he could know, right?
+
+He just chuckled again and gestured to follow him to the elevator. We hopped in and he clicked the button for the ground floor. Again, the ride took a much shorter amount of time that you'd imagine, as if we skipped floors getting there. As soon as the doors opened, the robust aroma of curry and jasmine rice wafted through the doors, filling the elevator and the entire room. Mr. Rags breathed in deeply, taking in every bit of scent there was before strolling off into the lobby. The cafe was just inside the main doors to the right, which opened up into a large room with what looked like vintage tables and chairs of all kinds, as if they were collected over the years. It was a hodge-podge of furniture, but it was all uniquely detailed and clean as it was whenever it was created. There was a stereotypical cafe style serving bar in the back which had plenty of room for all the residents to flow around it while getting their evening meals. Mr. Rags shuffled along, beckoning me to follow him to the serving bar. There were already plenty of residents sitting around, eating, chatting and laughing, talking about the weather and what had happened that day. There was a sense of weightlessness to it all, everyone seemed to be really enjoying each other's company.
+
+"Aha! Mr. and Mrs. Campanella, I'd love to introduce you to our newest resident, temporarily perhaps, Mr. Zach. He's from out of town staying with us as his vehicle is taken care out of town."
+
+"A pleasure Mr. Zach!" shouted the man jovially. "We're the Campenella's, my wife Susie, and I'm George. We sorta run the bistro down here as I like to call it. You better fill up that plate, this goat is fresh as ever!" he laughed to me, as though it was some kind of inside joke.
+
+"Oh George, you always think you're just so funny huh?" she snickered. "I'm Susie, sweetie. If you ever need something to eat around here, do not hesitate to ask, especially if it's something particular or special! I love trying new things. We're just up on the 15th, apartment 1509 in the corner. Anytime honey, do not hesitate to knock!"
+
+Mr. Rags interjected, "These two keep the entire operation running. We've got lunch and dinner every weeknight, sometimes on the weekends we'll do something special, but there's plenty to reheat and eat whenever your heart desires. We also like to host extravagant meals for the holidays, but you'll be able to experience that in due time!"
+
+The couple both laughed and started making me a plate, full of curried goat and rice, some veggies on the side and a half loaf of some kind of bread and butter. The smells coming from it all were enough to make my mouth water. I hadn't had anything this good to eat in what seemed like weeks, after surviving on Taco Bells and other small fast-food joints. I thanked them both and looked over at Mr. Rags who seemed entirely pleased with the interaction. We shuffled over to a table in the corner where Mr. Rags pulled out a chair for me. I sat down as he walked away, seemingly to get himself a plate of the magnificent meal. I could hardly wait staring down at the feast before me. I took out my utensils and dug in. I honestly can't remember the last time something tasted so good. The Campanella's knew exactly what they were doing. I took a few bites, sitting in splendor over the tastiness of the goat, when I stopped in my tracks. It was an amazing meal, but this was the same exact goat that... I shrugged it off. It had to be my error. I was tired, I saw something weird, but it was just my imagination. Mr. Rags had found the injured goat, put it out of its misery and instead of wasting it, had this lovely couple whip up a fantastic recipe with it. I'm completely sure that was it.
+
+The crowd started to hush itself as a clinking sound rang through the air. I pulled away from my delicious plate to see Mr. Rags standing on a small pedestal near the front of the room. He had taken his little wicker hat off to reveal a head of silver/gray hair pulled neatly into a bun. He stood with a smile on his face as he looked around at each and every one of the residents. I could recognize some of them from the other day, standing out on the church lawn. They all looked up to Mr. Rags as he began to speak.
+
+"My dear, dear friends, I am so glad you're here tonight. As some of you may know, we have a new addition, a guest amongst us." he said, as he pointed slyly my way. "Mr. Zach here had some car troubles down the way and our very own Mr. James Van Winkle was kind enough to bring him help in his time of need."
+
+I noticed now that Winkle had been sitting in the other corner of the room, giving himself a pat on the back and grinning ear to ear. He seemed entirely too proud of himself but in an endearing way. The residents alternated looking over my way, over to Winkle and back to Mr. Rags.
+
+"As you know, Mr. Potter from apartment 87 sadly up and left without so much as a goodbye, but his space is now being occupied by our new friend Mr. Zach. I'm sure he wouldn't mind well wishes, and I know you all will be oh so kind to him!"
+
+I felt an unease, but I think it was just on my part. I never liked being the center of attention so having all the eyes on me was not sitting very well.
+
+"Tonight, I'd like to thank the Campanella's for their gracious assistance in preparing this meal and give a toast to new friends found!" he joyfully rang as he brought a glass of red liquid to his lips. I didn't look like wine to me, but I was pretty entranced by the whole things, so I wasn't paying too close attention.
+
+Everyone rose a glass along with Mr. Rags and cheered slightly as they gulped down whatever drinks they had. I raised a glass of water that was already on the table and drank it down. The rest of the meal was quite pleasant. A few of the residents took turns coming over and introducing themselves, talking to me about the place and what not. It was a nice evening all in all. I've always been terrible with names, so I never really retained them that night; it took the next few weeks to really get into the groove of knowing the others. Near the end of the meal, Winkle came over and plopped down next to me. I barely noticed as I was fixated on Mr. Rags and Mrs. Campanella. He'd walked over to her for more of his drink, and the bottle looked oddly more like a decanter than a bottle of wine. I brushed it off as Winkle slapped me lightly on the shoulder.
+
+"What'd I tell you dude! Mr. Rags is the best man. He's always super nice, and he actually does like everyone here, I think. Heck, he even helps me out from time to time, for nothing in return! He's awesome. How're you feeling about the place?" he asked.
+
+I hadn't really thought about it until then. This place seemed weird, wrong in some sense, and peculiar in every way; but it had already started growing on me. The comradery in the room was palpable and I had already felt welcomed by almost everyone there. A few odd glances from a few of the residents came my way but never felt threatening. Some people just don't change, I thought.
+
+"Winkle, has anything bad ever happened here? Everything seems almost too nice." I spoke.
+
+"Well, I mean people have died sure, but it's never been anything malicious. Sometimes people get sick, or sometimes people are just old. Mr. Rags takes it pretty hard though I will say. I think he actually really does 'love' everyone here to some extent. Heck, he's been here longer than anyone so I suppose that could be it. It's like his own little community, or family, I guess. I don't think I've seen anyone like his real family around here, and I've been here a long time too."
+
+"Longer than anyone here."
+
+His words stuck with me that night as I finished my plate, took it over to the dish pile where things were being washed, and said my farewells to a few of the residents. On my way out, I noticed one or two more cups like Mr. Rags', but ended up not thinking anything of it. I was starting to feel exhausted over the past few day's events, so I turned in shortly after dinner. As I emerged from the elevator on my floor, Mr. Rags was sitting in the little chair in the common area. He looked gleefully at me as I exited, pleased with the turn of events that evening.
+
+"I knew I could trust Winkle. Every time he's had a good feeling about someone, it's never been wrong. I think you're going to fit in just fine here Mr. Zach, I just know it!"
+
+"Mr. Rags, I... thank you for tonight. The dinner was impeccable, and everyone here seems genuinely happy. I'm sorry if this is the wrong time but... did I see you outside last night? I just want to be able to tell myself I'm not crazy." as winced as I asked through gritted teeth.
+
+"Oh, dear boy, yes that was me. I could tell you many, many things about who I am, or what this place is, why I was outside last evening. I could tell you things your mind may never be able to comprehend, twisting and turning it into nothing but a puddle. I don't mean to frighten you; I just want you to know the truth of the matter. I'm very glad you enjoyed the evening as everyone else did. For now, I'll leave you with this and **in due time** you may learn much more about me. I will never hurt you Mr. Zach, I wouldn't even dream of it. That goes for every single resident of this complex. They're like a family to me and I see to it that they are watched over and treated as such. I would expect you to do the same during your stay here, and if you so choose to establish yourself here in the coming weeks. Otherwise, I will have to ask you to leave. I assure you though, that is the last thing I'd like to do. Your time here can be greatly fulfilling, I am certain, as it is to everyone who has ever stayed here. I believe we have an understanding?" he stated.
+
+I'm not sure why, but I could completely tell there was not a shred of malice or ill-will in the words he spoke. At the time, I didn't know what to say or think, if he was being deceitful or not. To this day, I don't understand why, but I walked over closer to him in that moment and shook his hand. He nodded and grinned in agreeance, then strolled off to the elevator. I never turned around to watch him leave, but I heard the tell-tale ding of the bell, and the doors shutting closed. The rest of the night was a blur, but I think it was just the heavy eyes and lack of sleep. I woke up the next morning to, yet another note pushed under my door.
+
+"I thank you Mr. Zach for our conversation last night. You needn't ever worry about coming to me with questions or concerns. You know where I'm located."
+
+* Signed, Mr. Rags
+
+P.S. - If one of our residents offers you a drink from last night, please refrain from partaking. It shouldn't harm you, but I don't believe your taste buds would enjoy it.
