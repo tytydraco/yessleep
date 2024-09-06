@@ -1,71 +1,98 @@
-The New Assignment
 
-Nurse Emily always found solace in the tranquility of the night shift at St. Mary's Hospital. The usually bustling hallways were now enveloped in an eerie hush, disrupted only by the intermittent buzz of the flickering fluorescent lights. Tonight, however, the usual sense of peace was disturbed. The stillness hung heavily in the air, casting long, unsettling shadows across the empty corridors.
+**Posted by u/StationGhostHunter**  
+*Day 1*  
 
-Assigned to Room 304, a part of the hospital unfamiliar to her, Emily felt a sense of trepidation as she approached. The patient occupying the room, Mr. Harold Thompson, was an elderly man with no known family. He had been admitted for a severe case of pneumonia, but rumors among the hospital staff suggested that his behavior was peculiar. Some claimed he engaged in conversations with himself, while others whispered about his sightings of inexplicable entities.
+I work at a small gas station on a lonely highway in the middle of nowhere. Most nights are uneventful. People stop, fill up, maybe grab a snack, and drive off. The pay’s not great, but it’s quiet, and I like quiet.
 
-As Emily neared Room 304, a shiver ran down her spine, and a sense of unease settled within her. The door emitted a low creak as it swung open to reveal a dimly lit chamber. Mr. Thompson lay in bed, his gaze fixed firmly on the ceiling. His breathing was labored, and his pallid, clammy complexion signaled his failing health.
+That is, until last night.
 
-"Good evening, Mr. Thompson," Emily greeted the patient in an attempt to conceal her disquiet. "How are you feeling tonight?"
+Around 2 a.m., I was sitting behind the counter, half-asleep, when I heard a car pull up. Nothing unusual about that, except this car didn’t sound like the usual rust-buckets that come through here. The engine was silent—like *too* silent. I didn’t even realize anyone had parked until I saw a figure standing by Pump 4, just staring at me through the glass doors.
 
-Slowly, Mr. Thompson turned his gaze towards her. His sunken eyes bore an emptiness, and his words quavered faintly as he spoke. "They're coming for me," he murmured.
+He was tall, wearing a long coat, and had his hood pulled up. His face was hidden in shadow, but I could feel him staring right at me. Something about him just felt… wrong. I gave him a nod, trying to be friendly, but he didn’t move. Just stood there. I figured he might’ve been waiting for me to activate the pump, so I pressed the button.
 
-Puzzled, Emily inquired further, "Who is coming for you?"
+Nothing happened.
 
-"The shadows," he replied, his voice trembling. "They come every night. They want to take me away."
+I tried again. Still nothing. The guy didn’t seem to care. He just kept staring. After a few minutes, he finally turned around and started walking. Not to his car. Not to the building. Just… into the woods. He disappeared into the trees, and the car he came in? Gone too. I swear I didn’t hear it leave.
 
-The Shadows
+I called my boss and told him what happened. He laughed it off, saying I must’ve been dozing off and dreamed the whole thing. Maybe he’s right. Maybe I *was* just tired.
 
-As Emily reassured Mr. Thompson, she noticed the palpable fear in his eyes. She meticulously checked his vitals and administered his medication; all the while, an unsettling feeling of being watched lingered with her. Just as she was about to leave, Mr. Thompson's grip on her wrist startled her with its unexpected strength.
+But I’ve never felt that scared in my life.
 
-"Don't leave me," he pleaded. "They'll come if you leave."
+---
 
-Despite her hesitation, Emily eventually nodded. "I'll stay for a while," she said, pulling a chair beside his bed.
+**Posted by u/StationGhostHunter**  
+*Day 2*  
 
-As hours passed and the hospital grew quieter, Emily struggled to keep herself awake, her eyes heavy with exhaustion. Suddenly, the room grew colder, and the eerie movement of shadows in the corners caught her attention. Emily's heart pounded in her chest as she observed dark figures emerging from the walls, their forms indistinct but undeniably menacing.
+Okay, something else weird happened tonight.  
 
-Mr. Thompson began to thrash in his bed, his eyes wide with terror. "They're here!" he screamed. "Don't let them take me!"
+Around 1:30 a.m., I was doing my usual rounds, stocking the shelves and cleaning up. I walked outside for a smoke, and that’s when I noticed something—footprints, leading from Pump 4 into the woods. The same spot that guy disappeared into last night.
 
-Paralyzed with fear, Emily stood frozen, unable to move as the shadows closed in. Their chilling presence and sinister whispers overwhelmed her. Frantically, she reached for the call button, but it was too late. The shadows enveloped Mr. Thompson, and his agonizing screams echoed through the room.
+They were fresh, but here’s the thing… it hadn’t rained, and the ground wasn’t wet. These footprints were muddy, and they seemed to glow faintly under the fluorescent lights. I followed them for a few steps until they just *stopped*—like whoever made them had vanished into thin air.
 
-The Aftermath
+I was freaked out but didn’t know what to do, so I finished my shift without telling anyone. When I came back inside, the register was open. I know for a fact I didn’t leave it that way.
 
-When the morning shift arrived, they discovered Emily lying unconscious on the cold linoleum floor of Room 304. Panic set in as they realized Mr. Thompson was missing, his bed immaculately made, and his belongings gone. Despite a thorough hospital search, there was no sign of him.
+I checked the security footage, but guess what? It’s corrupted. A few minutes of static, right around the time I was outside. 
 
-Emily was rushed to the emergency room, where she gradually regained consciousness. Despite her desperate attempts to recount the harrowing experience, her claims were dismissed as mere hallucinations brought on by exhaustion and stress.
+I’m starting to think I wasn’t imagining things.
 
-Undeterred by the skepticism, Emily knew the haunting truth. She had felt the presence of ominous shadows and their chilling touch. She was sure they would return. She could sense their looming presence every night, lurking in the dimly lit corners, biding their time until they claimed their next victim.
+---
 
-With each passing day, Emily's paranoia intensified. Refusing to work the night shift, she was tormented by the relentless pursuit of the shadows, which seemed to follow her every move. Their eerie silhouettes danced at the edges of her vision, their whispering voices haunting the silence.
+**Posted by u/StationGhostHunter**  
+*Day 3*  
 
-Ultimately, Emily's mental state deteriorated, leading to her admission to the psychiatric ward. Her mind was shattered by the unspeakable horrors she had endured. As she lay in her hospital bed, her gaze fixed on the stark ceiling, she was plagued by the unshakable conviction that the shadows still lurked, patiently awaiting their next unwitting victim.
+I can’t stop thinking about that guy. I swear, I’ve been hearing footsteps outside the station all night. Every time I go to check, no one’s there.  
 
-The Twist
+The weirdest part? Pump 4 keeps turning on by itself. No cars, no customers, nothing. Just the pump, making that clicking sound like someone’s trying to use it.  
 
-Emily lay in her bed in the psychiatric ward, her mind a maze of fear and confusion. The shadows haunted her every waking moment, and she could no longer distinguish between reality and nightmare. One night, as she stared at the ceiling, she heard a familiar voice.
+Tonight, I was brave enough to go outside and look again. This time, I brought a flashlight. I shined it into the woods, and for a second, I thought I saw someone standing between the trees—just watching. When I pointed the light directly at them, they vanished, like a shadow dissolving into the night.  
 
-"Emily," it whispered. "Emily, wake up."
+I’m starting to get freaked out. I called my boss again, but he says there’s nothing to worry about. "People get jumpy on the night shift all the time," he said. "You’re just tired."  
 
-She turned her head slowly and saw Mr. Thompson standing at the foot of her bed. His eyes were no longer hollow, and his skin had regained color. He looked healthier than ever.
+I don’t think that’s it. Something’s out there.
 
-"Mr. Thompson?" Emily gasped. "How… how are you here?"
+---
 
-He smiled, a chilling smile that sent shivers down her spine. "I told you they were coming for me," he said. "But they didn't take me. They took you."
+**Posted by u/StationGhostHunter**  
+*Day 5*  
 
-Emily's heart raced as she tried to make sense of his words. "What do you mean?"
+I’m done pretending this is just in my head.  
 
-Mr. Thompson stepped closer, his form flickering like a shadow. "You see, Emily, the shadows don't just take people. They replace them. They needed a new vessel, and you were the perfect choice."
+Last night, I got a call on the station phone, right after midnight. I picked up, and at first, it was just static. But then I heard breathing—slow, heavy breathing. I tried to say something, but the line cut off.  
 
-Emily's eyes widened in horror as she looked down at her hands. They were no longer her own. Her skin was pale and clammy, just like Mr. Thompson's had been. She realized with a sinking dread that she was no longer herself.
+A few minutes later, Pump 4 turned on again. I watched it through the window, and I swear I saw someone out there. I didn’t get a good look, but it was tall, and its limbs were… wrong. Too long, too thin, like a shadow stretched over bone.  
 
-"You've been living in a nightmare, Emily," Mr. Thompson continued. "But now, it's time for you to wake up."
+I’m not staying here tonight. I’m taking a day off, but I’ll check the cameras when I come back tomorrow.  
 
-With that, the room around her began to dissolve, and Emily found herself back in Room 304. She was lying in the hospital bed, her body weak and frail. The shadows were gone, but the terror remained.
+---
 
-As she struggled to sit up, the door to the room creaked open, and a nurse walked in. Emily's heart skipped a beat as she recognized the nurse—it was herself.
+**Posted by u/StationGhostHunter**  
+*Day 6*  
 
-"Good evening, Mr. Thompson," the nurse said softly. "How are you feeling tonight?"
+I checked the footage from last night, and I think I made a huge mistake.
 
-Emily tried to speak, but no words came out. She was trapped in Mr. Thompson's body, watching helplessly as her own form moved about the room, oblivious to the horror that had unfolded.
+There’s something on the tape. It’s hard to describe. The figure at Pump 4? It wasn’t human. It had this twisted, elongated shape, and it was standing still for hours, just waiting.  
 
-The shadows had taken her, just as they had taken Mr. Thompson. And now, she was doomed to live out her days in a body that wasn't her own, haunted by the knowledge that the shadows were always watching, always waiting for their next victim.
+Around 3 a.m., it moved toward the building, but instead of walking, it seemed to glide—like it wasn’t touching the ground. At one point, it looked straight at the camera. I swear it *knew* I was watching.  
+
+Then, at the end of the footage, the screen glitched, and when it came back, there was a single word, written in what looks like blood, smeared on the door:  
+
+**RUN.**
+
+---
+
+**Posted by u/StationGhostHunter**  
+*Final Update*  
+
+This is my last post. I’m quitting the gas station.  
+
+Last night, after my shift ended, I went home, but I didn’t feel alone. The breathing—I heard it again. This time, it was inside my apartment.  
+
+I ran out to my car and drove as far as I could. I haven’t gone back. I’m staying with a friend for now, but I keep feeling like something’s watching me from the woods nearby, waiting.  
+
+If you’re reading this, don’t stop at the station on Highway 46. Don’t go near Pump 4.  
+
+Something’s there, and it’s not leaving.  
+
+---
+
+**Post locked. No further updates.**
