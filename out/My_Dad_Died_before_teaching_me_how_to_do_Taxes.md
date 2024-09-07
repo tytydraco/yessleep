@@ -135,3 +135,5 @@ It laid there on my closet floor, breathing fast and looking so helpless. I kind
 My partially drunk idea was to set him up in a shoe box with a cap of water and I guess let him go peacefully that way. I didn’t want to cause him anymore pain and suffering and I figured by morning he would be gone. 
 
 Except, he’s still here, even moving around some in the box. He’s quiet but still breathing fast, nibbled on a cracker when I put it in his box.  Now my sober mind is spinning. **What do I do with him? How did my door get unlocked and opened? Why did it sound like he was squeaking my name? How is he even still alive? Why am I suddenly seeing shadows and hearing weird sounds in my home? How do I face the basement in my dad's home?**
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1faupkg/my_dad_died_before_he_could_teach_me_how_to_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
