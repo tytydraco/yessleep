@@ -236,7 +236,7 @@ I somehow found words and mumbled my reply.
 
 “Is that a number? Go on speak up.”
 
-“They aren’t mine to sell.”
+“They aren’t mine to sell," I said scared like a child trying to get an adult to leave him alone.
 
 “What do you mean, Son of the Count? Have you not made them your slaves?”
 
@@ -244,13 +244,13 @@ I somehow found words and mumbled my reply.
 
 “Then I will take them.”
 
-His eyes gleamed with a sickening delight as he tossed the bloody bone aside. I never heard it clatter to the floor. Screams, the bouncer’s gurgling, and the bass of the speakers drowned it out. The elf’s eyes gleamed with a primal hunger, and his body shook with wanting. He stopped looking at me and eyed Barri and Kathleen.
+His eyes gleamed with a sickening delight as he tossed the bloody bone aside. I never heard it clatter to the floor. Screams, the bouncer’s gurgling, and the bass of the speakers drowned it out. Fear didn't let me move from my place. The elf’s eyes gleamed with a primal hunger, and his body shook with wanting. He stopped looking at me and eyed Barri and Kathleen.
 
-Kathleen trembled behind me, her fingers clutched my arm,  her nails dug into my skin. Barri stood frozen, her eyes wide with shock. For once she had nothing to say.
+Kathleen trembled behind me, her fingers clutched my arm,  her nails dug into my skin. Barri stood frozen, her eyes wide with shock. For once she had nothing to say. If It was just my life on the line I would have left. I am not a fighter. I'm a lover. Unfortunately, it was not just my life on the line. Despite my fear, shaking, and doubt, I dove forward.
 
 I leaped to him with a punch that could shatter bones, but the elf merely staggered, a twisted smile still plastered on his face. He moved with a fluidity that was both mesmerizing and terrifying, his every step calculated, predatory.
 
-Without warning, he lunged at me, faster than I could react. I barely had time to raise my arms in defense before he was upon me, his strength overwhelmed me. We crashed into the dance floor, the impact shattered it. My back burned.  My head bounced against the floor. Neon lights flickered and flashed above us to match the quick, violent tempo of the song.
+Without warning, he lunged at me, faster than I could react. I barely had time to raise my arms in defense before he was upon me, his strength overwhelmed me. We crashed into the dance floor, the impact shattered it. My back burned.  My head bounced against the floor. Neon lights flickered and flashed above us to match the quick, violent tempo of the song. I really thought I was going to die.
 
 His hands wrapped around my throat, squeezing with the force of a vice. I thrashed beneath him, clawing at his arms, but it was like trying to move a mountain. 
 
