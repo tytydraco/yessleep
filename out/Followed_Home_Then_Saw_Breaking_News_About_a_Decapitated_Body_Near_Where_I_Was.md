@@ -1,0 +1,15 @@
+It was late in the evening, sometime in the summer 2018. I just graduated highschool so I was 17 at the time. the sun had long since set. The cool night air didn’t bother me much—I used to walk anywhere, even when it got dark. Pretty dumb since this was a high crime area. That night was no different. I was making my way home, keeping my head down but alert. A strange feeling crept up on me though. As I kept my head on a swivel, I noticed a man walking behind me, about half a block away. At first, I didn’t think much of it. 
+
+But then something changed. My pace quickened, just enough to shake off the unease. I stole another glance over my shoulder, and my stomach twisted—whoever it was, they were closer now. Way closer. 
+
+I didn’t want to panic, but I wasn’t about to take any chances either I was just some scrawny 17 y/o girl and it had to be around 10pm. Feeling paranoid I didn’t want to lead this potential threat into my building  letting him know out where I live or something happening like he comes from behind me or cornering me to do god knows what. I spotted a liquor store up ahead, one I’d been to many times before right across from my building. I knew the owners at the time, and it felt like the safest place I could duck into. The second I stepped inside, I could breathe again. No one followed me in. 
+
+I hung around, pretending to browse while keeping an eye on the door, just waiting for that unsettling feeling to leave. But nothing happened. Whoever had been behind me didn’t come in. I stood there long enough to convince myself that maybe it had been nothing—maybe I was just being paranoid.
+
+When I finally felt ready to head back out, I stepped onto the sidewalk again, my body tense but trying to shake off the fear. And then I saw it: just as I walked out, someone, couldn’t make out their face, jump into the passenger side of a van and suddenly speed off, pulling out of the parking lot as if someone had been waiting. My heart pounded, but I pushed it out of my mind and made it home safe that night, grateful I trusted my gut.
+
+The next day, the news broke. A woman had been found decapitated wrapped in tarp shoved in some sort of makeshift coffin. And not just anywhere— in a ditch that I walked passed to make it to that same liquor store the night before. It was impossible to shake the thought. The eerie timing, the way someone had been trailing me, the van speeding off—it all made my skin crawl. To think I had been walking around there, late at night, so close to where something unspeakable had happened.
+
+You would think after that I wouldn’t dare to walk anywhere alone at night again lol. I was a very hardheaded teen. 
+
+Here’s the link to the news article of the incident: https://abc7.com/amp/san-bernardino-woman-dead-makeshift-coffin/3586971/
