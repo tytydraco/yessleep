@@ -42,10 +42,8 @@ Alia enters the room in tears. The old woman laughed. "Or What?" - before she co
 
 "Fix it, NOW!" he said, twisting the knife to the left. The old witch felt unbearable pain and screamed, "A needle! There's a needle on the back of her head!"
 
-"Aaliya ran to great-grandmother, tilted her head, and removed the needle. As soon as the needle was out, the smile and calm on the great-grandmother's face were replaced by a grimace of pain and fear, and she screamed at the top of her lungs. Aaliya embraced her, and they both cried. The great-grandmother got up and, in a fit of rage, began kicking the old witch in the face. Aaliya's brother calmed her down and, leading them out, walked them home.
+Aaliya ran to great-grandmother, tilted her head, and removed the needle. As soon as the needle was out, the smile and calm on the great-grandmother's face were replaced by a grimace of pain and fear, and she screamed at the top of her lungs. Aaliya embraced her, and they both cried. The great-grandmother got up and, in a fit of rage, began kicking the old witch in the face. Aaliya's brother calmed her down and, leading them out, walked them home.
 
-
-Here’s the text translated into conversational English:
 
 The whole village hears about it. The next day, the man shows up with a mullah and a witness, claiming that my great-grandmother is his lawful wife and that he wants to take her back. The mulla confirm his words. My great-great-grandfather is furious but keeps his cool. Calmly, in front of the neighbors, he says he won’t give his daughter to anyone, no matter what anyone says. The man insists that he has "sealed the marriage" with her. She’s not a virgin. Aaliya’s brother steps in, saying he broke the suitor’s nose before he even touched her and the only thing he did with his dick was piss himself. The man won’t back down, saying he won’t grant her a divorce and any of her relationship with another man would be illegal and sinful for her.
 

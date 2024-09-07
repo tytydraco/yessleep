@@ -1,0 +1,33 @@
+DIARY ENTRY #2
+
+In 1962, the nation made a major decision. We, the people, confronted Communism. We confronted tyranny. We confronted the Iron Curtain. On a more personal level, we sounded the alarm in southern Florida that a nuclear war was imminent. While the beatniks moseyed around to free love, or whatever they called it, we prepped for the possibility of WWIII. Protocol had been in place for quite some time, but nothing can take away from the reality of war. You can plan as much as you like, but when you're staring nuclear weapons in the face, it's a whole different ballgame. You cannot sing your way out of fallout.
+
+Originally, I wanted OSS, but like many others, I was sent to the shores. Actually, I was sent flying into German-occupied France somewhere around Sainte-Mère-Eglise. Unlike many others, I made it back. At the conclusion of the war, I and the entire world became cognizant of the existence of nuclear weapons. I joined the INR (the Bureau to you) in 61'. Hilsman actually interviewed me. I quickly rose up the ranks, and with the help of some old friends, I was able to position myself as a point caller. To those outside of our expert circle, that is someone who, via their connections in the White House (WH), got direct and immediate information about potential nuclear strikes on America. The call was known as the Doomsday Trumpet (See Revelation 9:1). 
+
+If the WH gets the nod, we get the nod. Simple as that. We're direct to the source. If you're telling people  that they are about to be vaporised 25 minutes after the bombs have dropped, you've failed. Knowing full well the Reds had the Царь-бомба, we made a decision that across the East coast, bunkers would be built and sold to the highest bidders. Call it an insurance program if you prefer, but we were basically selling a future to families with who could afford a future worth preserving. The call would come through a dedicated phone that each family had. They would have also purchased their tickets well in advance.
+
+Cynically, these were not the best and brightest of America either. Most were finance, business, and property millionaires who managed to make some decent money during the War. If I had my way, veterans would have been first in line, but that was well above my pay grade at the Bureau. 
+
+Our bunkers were reinforced concrete with iodine-treated paint. Each bunker was a long, vertical cylinder that extends downwards towards the earth. They looked like the C-ration cans that got Ike got us in 41'. Each bunker could take host 25 families. This meant that each bunker had a maximum capacity of 125 people (including necessary staff). Crucially, we placed each bunker beneath 50 meters of soil and dirt. Antsville could worry about themselves because we were made in the shade.
+
+If you were a senior employee and worked on the crucial maintenance, provided high-level intelligence, or were on the committee, then you were given a room. As a result, I had a bunker room. I'm not married, have no direct family members, and no real life outside my job. As point caller, I lived beside Bunker 257, and I operated a basic job through my home. This all allowed me to fit in easily with the neighbours, albeit, I was known to be "shy" but crucially, it also allowed me to be ready to move at the drop of a hat. I fit the bill as point caller of B. 257.
+
+On that fateful day, after making the call, wealthy families flooded to the bunker.
+
+My reasoning? I got a call from Shortmouth (my contact in the WH), and he made it clear. The Soviet's nukes were being launched by state-of-the-art submarines and not from the mainland. With that, we had even less time than I thought. When I made the call, it wasn't long before a convoy of Impalas, Lincolns, and Fords came spinning down the dirt road, only to be abandoned as if they were already radioactive. The bunker door is modest in size and meant to blend with the natural scenery. If you don't know where it is, the likelihood of finding it by accident is rare. We have a clear policy for any man left behind. If you were not present and accounted for within 35 minutes, we shut the bunker doors. Ain't that a bite? Still, that's about 8 minutes more than I would have liked. Don't believe me? You should go and ask Herb York.
+
+This is where I made my first and only error. In my haste, I did not set the lockdown time for the mandatory 9-day cooldown, but rather 9 years. 
+
+Yes. 
+
+I know.
+
+I was also unable to override the timer because my second-in-command did not make to the bunker in time. Lucky him. Here's the gut punch: we are truly silos. When the Bureau explained this, they made the point that the risk of cross contamination was too high. All it took was a single commie or dissident to uproot the bunkers, and the whole program would have got the royal shaft. I understood this at the time, and when explained, I stupidly agreed. My fear of the Reds overpowered my common sense.
+
+It's been almost 8 days since JFK and Khrushchev talked each other down from the brink of war. Cuba's waters had calmed, and America, the Soviets, and the entire world unclenched their fists. If anything, there was celebration above ground. I am grateful; truly, I am. Part of me selfishly prayed that war would occur. I would have justified my actions by my incredible foresight, but as we crowded around the only television in the bunker to see our president proudly address the nation from the Oval Office, I briefly smiled.
+
+I watched families pack their bags, move themselves towards the exit, and stare at the countdown timer for the reinforced bunker doors to open. While there was laughter, pats on the backs, and a few light-hearted jokes about a mandated vacation, they were worn and weary. I was still in my office, which overlooked the bunker door and entrance hall.
+
+The timer ticks to 0, and the doors do not budge; a new timer flashes up. 9 years. Well, 9 years minus 9 days. Smiles and laughter turned to shouts and screams. There is a short staircase leading to my office. On the staircase, I placed furniture between them and me. Futile, but it gave me a small sense of control over the situation. The door is locked. I most likely won't be able to tell you the rest of this story as I hear the rush of bodies towards my staircase. While I know that we do not have food for everyone here, I have just enough ammunition for the first few. Call me Bogart, but this is now me vs. them.
+
+In 1956, Khrushchev's "Мы вас похороним" was ingrained into the psyche of the American mind. As I hear their bodies bounce against the office door, I can't help but think that in the end, I did all the work for him.
