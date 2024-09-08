@@ -4,7 +4,7 @@ I have no real history of sleepwalking, at least not in my adult life. When I wa
 
 For context- I'm a 24 year old man living alone in a one bedroom basement-level apartment. The complex has been around since the 70s and it's a bit of a shithole, but I stay in one of the more recently renovated units. I've been here for a little over 3 years now and haven't experienced anything like this before. 
 
-This neighborhood is considered the worst part of one of "America's Best Small Towns 2024", so it's still pretty nice. The crime rate is very low and I've never even felt the need to lock my car, but I'm precautious enough to lock up my apartment at night and when I'm out.
+This neighborhood is considered the worst part of one the "Most Charming Small Towns in America", so it's still pretty nice. The crime rate is very low and I've never even felt the need to lock my car, but I'm precautious enough to lock up my apartment at night and when I'm out.
 
 The reason I'm elaborating on all of this is because I find it very difficult to believe that anyone but myself would be responsible for taking these photos. I'm not entertaining the possibility of an intruder and I'm certainly not entertaining the possibility of anything supernatural. All the same, the photos are pretty strange. 
 

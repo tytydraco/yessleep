@@ -50,4 +50,3 @@ The police told me it was a hallucination, that I must have imagined it all. But
 
 This is not just a story. Sometimes, the things we imagine are closer than we think. Keep your lights on.
 
-\*all fiction\*

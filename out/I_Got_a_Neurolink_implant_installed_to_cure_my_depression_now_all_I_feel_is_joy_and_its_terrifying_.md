@@ -76,7 +76,7 @@ I felt strangely compliant and felt too Joyish to refuse so I jumped in the back
 
  
 
-When they brought me to the same place I had the Neurolink implanted, they put me in a room that looked more like an interrogation room than a Dr’s office. As I sat there a man in a white lab coat walked in. 
+When they brought me to the same place I had the Neurolink implanted, they put me in a room that looked more like an interrogation room than a doctor’s office. As I sat there a man in a white lab coat walked in. 
 
 “My name is Dr Weinstein,” he explained as he put a folder in front of me. When he opened it up I was shocked to see a picture of the man that shot me. 
 
@@ -136,17 +136,17 @@ My laughter grew hysterical, as tears streamed down my face.
 
 On the screen, one of the men in suits entered the room where my family was being held. He raised a gun, pointing it directly at my wife.
 
-"No," I screamed, my body shaking with the force of my laughter, my mind screaming in silent agony. But all I could do was laugh, the joy suffocating my soul.
+"No," I screamed, my body shaking with the force of my laughter, my mind screaming in silent agony as the joy was suffocating my soul.
 
 The man pulled the trigger before the screen went black.
 
-I collapsed to the floor; my body wracked with manic laughter, my insides twisting in torment I couldn’t express, even knowing my wife and kids were gone. 
+I collapsed to the floor; my body wracked with manic laughter, my insides twisting in torment I couldn’t express knowing my wife and kids were gone. 
 
-Dr. Weinstein knelt beside me and wispered into my ear.
+Dr. Weinstein knelt beside me and whispered into my ear.
 
  "You see, it's perfect. The world could burn, and men like you would still feel happy. Now, imagine what we can do with entire populations.”
 
 As I lay on the cold floor, the sound of my own laughter echoing in my ears, I knew they had won. They had taken everything from my family, my free will, my ability to feel anything real. All that was left was an endless, empty happiness that I couldn’t escape.
 
-And in that moment, I realized the true horror: I didn't care.
+
 
