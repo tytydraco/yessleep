@@ -15,7 +15,7 @@ https://imgur.com/a/vBjyOwa
 It's of my bedroom door, ajar.
 Before anyone jumps to any conclusions- no, I don't usually close my bedroom door before I go to bed. I leave it open slightly because this helps with airflow while the ceiling fan is on, so there's nothing inherently suspicious about the contents of the photo. But it unsettled me when I first saw it. If I'm being honest, it's still unsettling.
 
-Following the first, I noticed several indistinguishable black and blue pictures pop up between April and June. It was 6 months before the second notable photo appeared in my "Camera" folder. 
+Following the first, I noticed several indistinct black and blue pictures pop up between April and June. It was 6 months before the second notable photo appeared in my "Camera" folder. 
 
 This one was taken on August 11th at 2:43 AM-
 
