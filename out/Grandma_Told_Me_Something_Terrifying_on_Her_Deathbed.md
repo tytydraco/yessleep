@@ -42,7 +42,7 @@ You ever seen someone die?
  
 (This time it was me who coughed.)
  
-Well, I did. It was the summer of 61. My first week of being camp counselor.  
+Well, I did. It was the summer of '57. My first week of being camp counselor.  
  
 Dorothy was her name. I’ll never forget her, even if I tried. She was a wee little thing, no older than 11. I knew Dorothy couldn’t swim, so when it came time to jump in the lake, she’d stand at the end of the dock, wailing. Being in charge meant I had to force her in the lake. There was no other choice. Rules were rules, they’d say.
  
@@ -86,7 +86,7 @@ We’d all heard the stories. Living this far north, where you’re more likely 
  
 A large shadow, the size of an otter, maybe bigger, was circling us.  Scared out of my wits, I grabbed the girl and started pulling her towards shore. For a moment, I thought she’d be saved. I really did. Then she got snagged. Dorothy wouldn’t budge. 
 
-The water turned crimson. Thinking it was my blood. I checked my body, searching for wounds. But it wasn’t my blood, it was Dorothy’s. Her tiny head bobbed one last time. Her green eyes found mine. In them, I saw pure, unadulterated hatred.
+The water turned crimson. Thinking it was my blood, I checked my body, searching for wounds. But it wasn’t my blood, it was Dorothy’s. Her tiny head bobbed one last time. Her green eyes found mine. In them, I saw pure, unadulterated hatred.
  
 The monster, if that’s what it was, started clawing her to bits, thrashing her like a soggy ragdoll. The amount of blood spewing from the girl was sickening. She didn’t scream, I remember. She must’ve gone into shock. I grabbed her arm, trying to free her, when SNAP, her arm ripped off. The sheer force of it sent me sailing. Under water, I saw the beastly thing. Its eyes were beady red bulbs. It had horns on its head, like the devil, and razor-sharp claws.
  
