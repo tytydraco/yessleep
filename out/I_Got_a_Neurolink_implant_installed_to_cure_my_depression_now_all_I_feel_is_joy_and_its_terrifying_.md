@@ -50,7 +50,7 @@ Toby was the curious one, always asking questions, but normally the only answer 
 
 “I don’t know, Toby. Maybe it’s because they go quackers for bread,” I said as I let out a little chuckle. 
 
-Toby turned to me with a big smile on his. As he did, one of the ducks climbed onto the shore of the pond and spoked him. He took a step back, and before I had a chance to react, he fell into the bond. 
+Toby turned to me with a big smile on his. He took a step back, and before I had a chance to react, he fell into the bond. 
 
 “Daddy help him,” shouted Makalla. 
 
