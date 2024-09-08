@@ -1,10 +1,10 @@
 When my friend Mark had invited me to go visit his family in their cabin for a weekend, I didn't hesitate. We had been close friends since college, and I'd always hear stories of his old fashioned family but I had never meet them in person. He always would mention that they lived "off-grid" and were a little "weird" but i figured those were quirks of living in a small tight-knit town. I mean he seemed pretty normal so I assumed the same of his family.
 
-After he invited me I went and packed and we were off the next day. We had to drive almost 5 hours into the mountains near the town that we resided in. The landscape slowly became desolate -- no cell service, no other car just trees, trees and more trees. I would glance over at Mark every now and then and I could notice his getting more tense as we were nearing the cabin. "It's been awhile since I've seen them" he said, eyes  glued to the road. 
+After he invited me I went and packed and we were off the next day. We had to drive almost 5 hours into the mountains near the town that we resided in. The landscape slowly became desolate -- no cell service, no other car just trees, trees and more trees. I would glance over at Mark every now and then and I could notice his getting more tense as we were nearing the cabin. "It's been awhile since I've seen them" he said, eyes  glued to the road.
 
 --We had made it--
 
-The cabin wasn't what I was expecting. It was more like an old estate, a relatively big wooden house built in the middle of nowhere. I mean alarms should've definitely been ringing in my head but, I decided to give them The benefit of the doubt. Outside were a group of people, standing, waiting. All dressed in a pale shade of grey, standing in a perfect line. No smiles, No waves. 
+The cabin wasn't what I was expecting. It was more like an old estate, a relatively big wooden house built in the middle of nowhere. I mean alarms should've definitely been ringing in my head but, I decided to give them The benefit of the doubt. Outside were a group of people, standing, waiting. All dressed in a pale shade of grey, standing in a perfect line. No smiles, No waves.
 
 I felt a knot start to form in my stomach.
 
@@ -49,3 +49,5 @@ The police told me it was a hallucination, that I must have imagined it all. But
 **Author's Note:**
 
 This is not just a story. Sometimes, the things we imagine are closer than we think. Keep your lights on.
+
+\*all fiction\*
