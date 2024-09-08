@@ -1,0 +1,15 @@
+ I bought this journal to log my dreams because lately I’ve been having some pretty cool but sometimes scary dreams I’m a lucid dreamer so I remember most of my dreams in high detail I wanna put this out there so I’m writing this down here
+                
+Dream Log entry #1 
+Last night I dreamt I was in an arena full of people they all wanted to kill me but considering I had power over most of my dream I just wished myself into having abilities from my favorite show and I killed them all. At the end of the dream there was a guy standing at the other end of the arena I assume he was supposed to be like a boss fight or something so I started to run towards him but the dream ended always right before the good part.
+
+Dream log entry #2 
+Last night was a nightmare it had started with me in a sort of interrogation room filled with dead bodies I was tied down to a chair. After what felt like minutes in the “dream world”as I call it a man walked in and started to ask me questions at first it was normal nightmare stuff like “how long would it take for me to peel off your skin but by bit”, and “how many teeth should I rip out”, But then the questions became more personal more provocative than the others and it really got to me he had asked me “how would you feel if someone was watching you as you slept” which was normal at first but then the nightmare had moved places I was back in my room but I couldn’t move it was like sleep paralysis but I knew it wasn’t my room it was dark, quiet, and eerie as I looked around my room I saw the same man now sitting on my bed watching me just staring at me. Then in a flash I was back in the interrogation room but I could somehow smell the rotting corpses and I could feel the bindings that held me against the chair
+I feared for my life as I saw the man pull out a saw right as I was about to be cut I woke up, I was sweaty yet cold and my body physically shaking i stayed up the rest of the night. This morning I had asked my mom what I should do about my nightmares she suggested I get some dream catchers so I did.
+
+Dream log entry #3 
+It seems like getting those dream catchers was a good idea, I couldn’t find any in any stores or the mall so I looked online and found this website selling them it was a bit sketchy but worth it
+The dream I ended up having was a repeat of the one in log 1 but I actually got to fight the final boss so that was cool.
+
+Dream log entry #4 
+Last night was a bit weird I had a dream that was nearly discernible from real life everything looked real everything felt real I could feel, smell, and even taste it was so… real hell I thought I had already woken up and just didn’t dream but then I noticed it the small imperfection in what was essentially a perfect image of my home there was a huge window that lead to the front yard which was normal but in the yard there was a tree one that hadn’t been there before and it looked strange it was a pale color and had a dark red liquid running down it I noticed that and knew I was dreaming I immediately jolted awake something felt off about that tree but it doesn’t matter.
