@@ -14,9 +14,9 @@ I hesitated at the thought of letting strangers into my home, and for a moment c
 
 I watched as they suddenly moved through the entrance, their movements strangely stiff. Of course, they had been standing out in the cold, and were probably freezing. I turned my back to them, noticing as I closed the door that there was no car in sight. “How far did you have to—” As I spun back towards the hall, my blood froze. The family was gone. An icy claw of fear pierced my heart and for a moment I stood alone, listening to silence, telling myself not to be silly. They had just continued into the house to use the phone. I noticed a set of muddy footprints headed down the hall just as a clatter came from the kitchen. I forced a breath and the lights flickered again. It suddenly occurred to me that I wasn’t prepared for a storm. Once these people were gone, I would pull out some candles in case the power went out.
 
-I was about to walk down the hallway when I noticed something odd. There was only one set of footprints headed in the direction of the kitchen. I stepped back towards the front entrance and saw the others — one set of prints headed in the direction of the living room, and more headed up the stairs. What the hell? I thought about grabbing a weapon, then shook the thought away as I remembered that there was a child here. I wasn’t in danger; these people were just assholes. I made my way to the kitchen, following the footprints, but stopped in my tracks at the doorway. The kitchen was empty.
+I was about to walk down the hallway when I noticed something odd. There was only one set of footprints headed in the direction of the kitchen. I stepped back towards the front entrance and saw the others — one set of prints headed in the direction of the living room, and more headed up the stairs. *What the hell?* I thought about grabbing a weapon, then shook the thought away as I remembered that there was a child here. I wasn’t in danger; these people were just assholes. I made my way to the kitchen, following the footprints, but stopped in my tracks at the doorway. The kitchen was empty.
 
-There was a roar of wind that shook the house, and the room was thrown into darkness so abruptly that my surprise caused me to stumble backwards. I grabbed onto the side of the doorframe just as a flash of lightning tore through the sky, illuminating the hallway so briefly that my mind barely had time to register the presence of another person beside me before the hallway was bathed in blackness again. I gasped
+There was a roar of wind that shook the house, and the room was thrown into darkness so abruptly that my surprise caused me to stumble backwards. I grabbed onto the side of the doorframe just as a flash of lightning tore through the sky, illuminating the hallway so briefly that my mind barely had time to register the presence of another person beside me before the hallway was bathed in blackness again. I gasped.
 
 "Who's there?"
 
@@ -26,7 +26,7 @@ My hands were shaking as I lit the first candle. From somewhere inside the house
 
 “Hello, what is your emergency?”
 
-“Please help me. There are strangers in my house.”
+“Please help me! There are strangers in my house.”
 
 There was a strange hollow clicking on the other end, then a familiar moan broke through the small speaker, growing in volume. I dropped the phone, almost crying out in terror myself. The receiver fell towards the ground, but it was stopped by the long cord before it touched the ground. Even though it hung inches from the floor, I could hear the moaning grow louder.
 
