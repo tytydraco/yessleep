@@ -122,9 +122,7 @@ But that night, when I put Zoe to bed, she started crying. It was loud and heart
 
 It wasn’t until later, after she’d fallen asleep in my arms, that I glanced at the clock. It was just a few minutes after 11 p.m. My stomach dropped.
 
-I hoped it was maybe just a coincidence.
-
-Though as the days and nights passed, it was clear...
+I hoped it was maybe just a coincidence. Though as the days and nights passed, it was clear...
 
 Every night at 11 p.m. on the dot, Zoe cries a horrible cry. Her body writhes, as if she's in some great pain. I can’t do anything for her. I hold her tightly in my arms and just let her cry out. 
 
@@ -152,7 +150,7 @@ In the end, Dr. Patel offered one suggestion, an explanation that was almost imp
 
 Last week, while I was holding Zoe tightly as she let out a long, drawn-out wail, starting with a high-pitched scream, almost ear-piercing.
 
-I knew hearing it was the only way I could get help, so I got out my phone and started recording it. I did this for 3 nights in a row. Then I drafted an email with the recordings to Dr. Patel’s office with a simple note.
+I knew hearing it was the only way I could get help, so I grabbed my phone and started recording. I did this for 3 nights in a row. Then I drafted an email with the recordings to Dr. Patel’s office with a simple note.
 
 **PLEASE. LISTEN TO THESE.**
 
