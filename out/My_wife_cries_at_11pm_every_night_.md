@@ -10,7 +10,9 @@ I often find myself thinking about our life together. 
 
 When did this start? Did I do something? Did I miss something when we first started dating? I tend to then replay our entire relationship in my head, looking for signs, while I wait for her to come out of the bathroom.
 
-We met during our junior year of college. Our first run in was at one of those cliché frat parties, an event called *Jerseys & Jorts*. And as you guessed it, every guy and girl there was sporting some sort of sports jersey and a pair of cut off jeans. 
+We met during our junior year of college.
+
+Our first run in was at one of those cliché frat parties, an event called *Jerseys & Jorts*. And as you guessed it, every guy and girl there was sporting some sort of sports jersey and a pair of cut off jeans. 
 
 Our eyes met while we were both waiting in an obnoxiously loud line for a drink. She was stunning. Then, after I probably stared a little too long, she said hello and introduced herself.
 
@@ -28,17 +30,17 @@ We continued poking fun at Greek life at schools, and somehow ended up talking a
 
 I was in love. We followed each other on Instagram. It took me three weeks of barraging her with memes, which she often hearted, before she responded with a fateful message.
 
-**Do you want to get coffee with me?**
+**DO YOU WANT TO GET COFFEE WITH ME?**
 
 I thought I was dreaming. 
 
-One morning later that week, we were in line at Picasso’s Coffee. I was babbling about how much I love cold brew. When we were finally up, she ordered tea… 
+One morning later that week, we were in line at *Picasso’s Coffee*. I was babbling about how much I love cold brew. When we were finally up, she ordered tea… 
 
 I was so caught off guard by her order, I somehow ended up ordering a berry blast smoothie. A thought had infiltrated my mind, I guess… What if she didn’t like coffee drinkers? 
 
 When we finally sat down with our drinks, she laughed and pointed out that neither of us got a coffee, and that maybe it was a sign we would have to go again sometime soon. 
 
-I officially asked Ellen to be my girlfriend at the art museum one morning while we were finally sipping coffees. We were standing opposite Van Gogh’s painting, *The Ravine*. It was her favorite painting in the museum. She loved talking about it.
+I officially asked Ellen to be my girlfriend at the art museum one morning while we were finally sipping coffees. We were standing opposite Van Gogh’s painting, The Ravine. It was her favorite painting in the museum. She loved talking about it.
 
 *“Not only is it one of his masterpieces, but underneath, there’s a totally different painting, maybe another masterpiece. He struggled to pick which image he wanted to present to the viewer.”*
 
@@ -50,11 +52,11 @@ At times, the years feel like a single memory.
 
 Ellen and I have been married three years now, and we have a beautiful eight-month-old daughter named Zoe. I like to think we’re the picture of a happy family—weekend trips to the park, family dinners, and bedtime stories every night. 
 
-Ellen has been everything I ever wanted in a partner: loving, supportive, and devoted to our family. I think we’ve been in love since our first “coffee” date, and having Zoe has only strengthened our relationship.
+Ellen has been everything I ever wanted in a partner: loving, supportive, and devoted to our family. I think we’ve been in love since our first *coffee date*, and having Zoe has only strengthened our relationship.
 
 But this peculiar fact has always weighed on me, and it’s something I still, after everything, can’t make sense of. Every night at 11 p.m, Ellen is in a locked bathroom and crying. When she returns, her eyes are a little red, but she smiles and insists everything is fine.
 
-The truth is I can’t quite remember exactly when it started, but I’m almost sure I first noticed it a couple weeks after we moved into the new house. Looking back, maybe it did start around then.
+The truth is I can’t quite remember exactly when it started, but I’m almost sure I first noticed it a couple weeks after we moved into the new house. Looking back, maybe it did start around then.
 
 It was a lot of change quickly.
 
@@ -62,11 +64,11 @@ In one year, we got engaged and then married. I lost my job and it took longer t
 
 I figured this was Ellen’s way of coping. Grief, stress, enormous change. I tried to give her space, hoping she’d tell me when she was ready. 
 
-*“Ellen, are you okay?”* I asked her as she slowly climbed into bed one night. 
+*“Ellen, are you okay?”* I asked her as she slowly climbed into bed one night.
 
-The crying had been more intense than usual. She looked as if she was hiding physical pain. She responded with a gentle smile, eyes still glistening from the remnants of tears she hadn’t fully wiped away. 
+The crying had been more intense than usual. She looked as if she was hiding physical pain. She responded with a gentle smile, her eyes still glistening from the remnants of tears she hadn’t fully wiped away. 
 
-“*I’m okay, really. Just… thinking about things,"* she finally said.
+*"I’m okay, really. Just… thinking about things,"* she finally said.
 
 *“What kind of things?”* I pressed gently.
 
@@ -106,7 +108,7 @@ But I think the grief of losing both his wife and daughter was too much. Just a 
 
 I look back now and wish I had asked Ellen’s dad about it after I first noticed.
 
-*Had they ever noticed it when Ellen lived at home?*
+Had they ever noticed it when Ellen lived at home?
 
 Or maybe I should have pushed further with Ellen herself, to get an answer. I could have mentioned therapy. I could have gone with her and we could have figured it out together.
 
@@ -150,9 +152,9 @@ In the end, Dr. Patel offered one suggestion, an explanation that was almost imp
 
 Last week, while I was holding Zoe tightly as she let out a long, drawn-out wail, starting with a high-pitched scream, almost ear-piercing.
 
-I knew hearing it was the only way I could get help, so I got out my phone and started recording it. I did this for 3 nights in a row. I then sent them to Dr. Patel’s office.
+I knew hearing it was the only way I could get help, so I got out my phone and started recording it. I did this for 3 nights in a row. Then I drafted an email with the recordings to Dr. Patel’s office with a simple note.
 
-**Please. Listen to these.**
+**PLEASE. LISTEN TO THESE.**
 
 I sent them over Friday morning. 
 
@@ -166,9 +168,9 @@ Dr. Patel explained that she’s been listening to the recordings of Zoe crying 
 
 *“Did you edit these?”* she finally asked me.
 
-*“Of course not*,*”* I answered.
+*“Of course not,"* I answered.
 
-*“From an infant… No, from any person, I have never heard anything like this in my life*,*”* she continued.
+*“From an infant… No, from any person, I have never heard anything like this in my life,"* she continued.
 
 She then asked me if we could come in for more tests tomorrow night. 
 

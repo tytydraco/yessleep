@@ -142,13 +142,11 @@ The mist split apart and something emerged out of it, an oval blur, two indentat
 
 I’d seen it do this to Grayson.  It’d attacked him just like this.
 
-That was my last thought before it hit me in the chest.  I felt the blow to my sternum, knocking all the air out of my lungs, and when I instinctively sucked in new air I only got steam, scalding, burning me up from the inside.  I gasped, I choked and then -  
-  
-- I felt screaming, deep inside my chest, soundless, wordless, but screaming - 
+That was my last thought before it hit me in the chest.  I felt the blow to my sternum, knocking all the air out of my lungs, and when I instinctively sucked in new air I only got steam, scalding, burning me up from the inside.  I gasped, I choked and then -
 
-- because I was angry, so angry, and that was the only thing holding me together anymore -
-
- - I’d had a life and it wasn’t much but it was mine but they’d taken it taken it taken it taken it taken it -
+* I felt screaming, deep inside my chest, soundless, wordless, but screaming - 
+* because I was angry, so angry, and that was the only thing holding me together anymore -
+* I’d had a life and it wasn’t much but it was mine but they’d taken it taken it taken it taken it taken it -
 
 Grayson.  Was it Grayson that had taken that life?  The thought was a single point of clarity, like a drop of water in my mind.
 
@@ -181,3 +179,5 @@ It’s been six hours since we left the tunnels.
 It is still raining.
 
 And the stone is still warm to [the](https://alderrayne.com/) [touch.](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Next post.](https://www.reddit.com/r/nosleep/comments/1fcgc1x/how_to_survive_college_the_rain/)
