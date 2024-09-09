@@ -48,7 +48,7 @@ With the visions guiding me, I approached the porter, my movements smooth and ca
 
 I stepped into the grand lobby, my adrenaline rising with the thrill of the heist. In the elevator, I pulled out a set of lockpicks from my pocket, feeling the weight of each tool. Level 15. The vision guided me like a compass, and I marched down the hall, my instinct leading the way. When I reached the door, I manipulated the tumblers. The lock yielded with a soft click.
 
-Once inside, my gaze swept across the lavish interior. I pulled out a handheld metal detector, a trusted companion on jobs like this. With a flick of a switch, it hummed to life, beeping faintly whenever it detected gold. Methodically, I moved through the rooms, my gloved hand plucking golden trinkets from display cases and tabletops. Each piece was swiftly stowed away in my trusty backpack.
+Once inside, my gaze swept across the lavish interior. I pulled out a handheld metal detector, a trusted companion on jobs like this. With a flick of a switch, it hummed to life, beeping faintly whenever it detected gold. Methodically, I moved through the rooms, my gloved hand plucking golden trinkets from display cases and table tops. Each piece was swiftly stowed away in my trusty backpack.
 
 Then, a golden family photo frame caught my eye. Handling it with care, I gently removed the photo and placed it on the desk. The frame, a valuable branded piece, found its way into my bag.
 
@@ -82,13 +82,13 @@ On my way home, I always found myself drawn to the edge of a particular pier, st
 
 A cool breeze swept in from the water, ruffling my hair as I stood there, lost in thought. I knew I should be heading home, but I couldn’t tear my gaze from the bridge, as if it held some kind of meaning just beyond my grasp. Finally, I forced myself to turn away, that strange sense of purpose pushing me toward home.
 
-When I arrived at my apartment, I found my foster father sitting on the couch, staring blankly at the TV. I sat down beside him, watching as his labored breaths filled the room, a painful reminder of the disease’s relentless grip. Each breath was a testament to the slow, inevitable march toward the end, and I felt the weight of it pressing down on me.
+When I arrived at my apartment, I found my foster father sitting on the couch, staring blankly at the TV. I sat down beside him, watching as his laboured breaths filled the room, a painful reminder of the disease’s relentless grip. Each breath was a testament to the slow, inevitable march toward the end, and I felt the weight of it pressing down on me.
 
 I sat there, silently, as the rain continued to pour outside, knowing there was nothing I could do to stop it.
 
 I approached the fridge and grabbed a beer, feeling the cold bottle in my hand as I noticed the near-empty bottle of my father’s medication. I couldn't help but let out a sigh. Does it ever end?
 
-The next few days passed with the same somber routine: tending to my foster father, watching over him as his condition worsened. The weight of responsibility pressed down on me, but I couldn’t shake it. It was my duty.
+The next few days passed with the same sombre routine: tending to my foster father, watching over him as his condition worsened. The weight of responsibility pressed down on me, but I couldn’t shake it. It was my duty.
 
 In the back of my mind, I was desperate for a way out of this life. I searched for honest work, something that would pull me out of the cycle of crime. But every door I knocked on seemed to slam in my face, my criminal record shadowing me like an unshakable curse.
 
@@ -210,8 +210,11 @@ I left the morgue, stepping back into a gray, stormy day. The sky rumbled with t
 
 My vision distorted at random moments, as though the world itself was warping. Once, I caught my reflection in a bodega mirror, but what stared back wasn’t fully me. It was like my face had merged with someone else’s—someone I couldn’t recognize but felt terrifyingly familiar.
 
-The city itself began to shift around me. The shadows of people passing by seemed to dance and swirl unnaturally, their forms twisting into grotesque shapes that made my skin crawl. Sounds, too, became warped and dissonant. The constant hum of traffic, the murmur of voices—all of it assaulted my senses, sending my anxiety spiraling.
+The city itself began to shift around me. The shadows of people passing by seemed to dance and swirl unnaturally, their forms twisting into grotesque shapes that made my skin crawl. Sounds, too, became warped and dissonant. The constant hum of traffic, the murmur of voices—all of it assaulted my senses, sending my anxiety spiralling.
 
 Something from that transfer was trying to reach me, to communicate in a language I didn’t understand. The memories I’d inherited—they weren’t just pieces of another life; they were secrets. Dark ones. And I couldn’t decipher them. I wasn’t sure if I was losing my mind or if these sensations were real. Every day felt like I was falling further into some kind of waking nightmare.
 
 Then, there was the figure...
+
+  
+[Part II](https://www.reddit.com/r/nosleep/comments/1fcev8r/ive_started_seeing_the_same_person_everywhere_and/)
