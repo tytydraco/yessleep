@@ -69,7 +69,7 @@ I twisted the handle and flung the door open.
 
 Clara stood facing the cot, with it cradled in her arms, gently rocking it as she hummed a lullaby as the moonlight shone in through the window, bathing the room in an ethereal, otherwordly glow. 
 
-She slowly turned to face me, still gently humming a lullaby it lay dormant in her embrace.
+She slowly turned to face me, still gently humming a lullaby as it lay dormant in her embrace.
 
 Her face, illuminated by the celestial glow of the moon, wore a content smile, her beautiful teeth shining equal parts brilliantly and eerily in the moonlight.
 

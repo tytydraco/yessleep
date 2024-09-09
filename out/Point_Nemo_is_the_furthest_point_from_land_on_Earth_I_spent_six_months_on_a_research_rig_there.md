@@ -81,3 +81,5 @@ I didn’t… hear it, necessarily. It was like an intrusive thought entering my
 I didn’t even have words at this point. I was one day in, already with most of my assumedly broad knowledge and understanding of the world in shambles. Everything I was here for felt secondary, pointless research on algae and ocean bacteria when I might as well have seen a god just hours ago. My anxiety and existential dread were vying for control of every brain cell and I was the only loser here. 
 
 Giants were simple, honestly, though I can feel the chill of empty ocean spray to this day, freezing my bones at the thought. If they were the extent of what I saw it would have been fine. Nothing normal in the middle of the ocean though. The six months I spent there felt like they alternated between blissful dreams and the worst fever nightmares I’ve ever [had](https://www.reddit.com/u/googlyeyes93/s/GB6yeaSKXN). 
+
+[Update](https://www.reddit.com/r/nosleep/s/3iR6V1Cjlc)
