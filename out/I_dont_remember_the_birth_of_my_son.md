@@ -51,7 +51,7 @@ She was torn up about something. She sounded like she was holding back tears, an
 
 "What?!"
 
-"Clara had a miscarriage. He died before he could be conceived. In the womb. Right before he was due. You were devastated. But Clara... She was gone. Lost. The poor thing. Grief would not even come close to describing it, the poor thing. This was one year ago, dear."
+"Clara had a miscarriage. He died before he was born. In the womb. Right before he was due. You were devastated. But Clara... She was gone. Lost. The poor thing. Grief would not even come close to describing it, the poor thing. This was one year ago, dear."
 
 Silence. Silence for what was likely no more than five seconds, but felt like an eternity. Daryl was never born.
 

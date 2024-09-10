@@ -1,7 +1,5 @@
 Before I start there is one thing I have to say. Anyone who is annoyed, you are full well capable of scrolling past so I don't want to see any complaints. 
 
-
-
 Mags, if you are reading this you have to know that I'm sorry. I am so sorry. I am, I know you hate when I apologize and this is probably driving you crazy, but I have to say it in case I never get to tell you. I know we agreed that this was our secret to keep but we aren’t all that little anymore and I would rather you be safe and hate me than die still loving me the way you have for the last fourteen years. God, it's crazy that it's been fourteen years already. We're still so young, and yet we've already had more of a life together than most married couples. 
 
 I wish your mom was different, or maybe just that we were different. More and more I am scared that she was right, that we are some kind of godless abominations. At least I am, you are perfect. I am so sorry for dragging you down with me, but I don't regret anything. I wish we had done it sooner. 
@@ -23,8 +21,6 @@ With all my love,
 Your friend,
 
  Josie
-
-
 
 If I’m being honest I don't know how to start this story, Mags was the more poetic of the two of us, and as any of my teachers could tell you I was always a bit better suited to the visual arts than the literary. I like to think I have gotten better in my handful of years since high school English, but that's up to you I guess. 
 
@@ -88,9 +84,11 @@ I popped the candy in my mouth without a thought and waited for all of the terri
 
 Like I said before, I can't decide if those stupid pens were the worst or best gift I have ever received, but I can't bring myself to hate them, cause well they gave me my Mags. We kept up our little notes for a while after that but eventually, we ran out of candies and I was heartbroken to find that the new bag of taffies my mom got me didn’t work to pass our messages. God those early days were so good, the little heartbreaks of losing contact and having to wait another year for another round of treats, spending months noting every odd taste of pineapple or ham in my empty mouth and wondering if she was tasting it too. Why couldn't it stay that way? 
 
-Mags I miss you. I am so sorry I don't know where it all went wrong but I think it might have been rotten from the start. I don't know why we trusted those strange tricks, I hate myself for not seeing it sooner, but we were kids, and you loved every second of it so I never thought to look a little closer. Maybe if I figure out what me and Margaret missed I can leave this town. I probably shouldn't though, if anything I just want to be able to give her some answers. We tried looking for others with similar experiences before, but nothing this in-depth, just some simple searches through Reddit for anything about strange candy messages. All that we were able to turn up back then was some stuff about weird candy grams on Valentine's Day and over-eager admirers turned stalkers. Please if any of you know anything let me know. I'm going to keep posting the bits of the story that I think are important, but if we can figure this out now that would be best. To be frank, there are parts of this story that I really don't want to tell, so I hope we can put an end to this before we have to unearth the more vulnerable parts. I think I'm running out of time, I'm going to be a mom soon. I have to end this before it can hurt my son. I can lose him, not after Mags.
+Mags I miss you. I am so sorry I don't know where it all went wrong but I think it might have been rotten from the start. I don't know why we trusted those strange tricks, I hate myself for not seeing it sooner, but we were kids, and you loved every second of it so I never thought to look a little closer. Maybe if I figure out what me and Margaret missed I can leave this town. I probably shouldn't though, if anything I just want to be able to give her some answers. We tried looking for others with similar experiences before, but nothing this in-depth, just some simple searches through Reddit for anything about strange candy messages. All that we were able to turn up back then was some stuff about weird candy grams on Valentine's Day and over-eager admirers turned stalkers. Please if any of you know anything, let me know.
 
- I don't have any proof, but I think whatever entity connected me and Margret through the candy messages might also have had something to do with my parents’ misfortunes. 
+I'm going to keep posting the bits of the story that I think are important, but if we can figure this out now that would be best. To be frank, there are parts of this story that I really don't want to tell, so I hope we can put an end to this before we have to unearth the more vulnerable parts. I think I'm running out of time, I'm going to be a mom soon. I have to end this before it can hurt my son. I can not lose him, not after Mags.
+
+I don't have any proof, but I think whatever entity connected me and Margret through the candy messages might also have had something to do with my parents’ misfortunes. 
 
 Max wasn’t allergic to fucking peanuts. He loved them. You can’t die from a peanut allergy you don’t have. Something is wrong with the picture. I don't know if it's this town, or something in it but there is something very wrong.
 
