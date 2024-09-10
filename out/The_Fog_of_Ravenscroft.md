@@ -290,7 +290,7 @@ We collapsed onto the ground, gasping for breath, the fear and adrenaline still 
 
 I nodded, my body trembling with exhaustion and fear. The fog was gone, but the memory of it lingered, a dark, suffocating shadow that I knew would stay with me forever.
 
-We didn’t stop driving until we were miles away from Ravenscroft, until the town was nothing more than a distant memory, a dark smudge on the horizon.
+We went back to the car and didn’t stop driving until we were miles away from Ravenscroft, until the town was nothing more than a distant memory, a dark smudge on the horizon.
 
 Mark and I never spoke of the fog again, never mentioned the voices or the terror we had experienced. But the fear stayed with us, a haunting memory that refused to fade.
 
@@ -303,4 +303,3 @@ But I do know one thing, I’ll never forget the fear I felt, the voices I heard
 The fog of Ravenscroft was more than just a natural phenomenon. It was something ancient, something malevolent, and it left its mark on me in a way that I’ll never be able to erase.
 
 And as long as I live, I’ll never set foot in that town again.
-
