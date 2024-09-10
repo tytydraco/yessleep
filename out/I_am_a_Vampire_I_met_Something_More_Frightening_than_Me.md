@@ -278,4 +278,4 @@ Eventually, I got off of him and stood above him on my one working leg. He crawl
 
 “Oh, this... this… you betray your blood for humanity. They will betray you y’know? You see me as an enemy but one day you will look at me as a friend. Wait until you meet my friends.”
 
-And with that, he ran away.
+And with that, he ran [away.](https://www.reddit.com/r/nosleep/comments/1fdlgfl/i_am_a_vampire_i_met_something_more_frightening/)
