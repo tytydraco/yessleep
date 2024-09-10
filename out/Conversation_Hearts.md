@@ -1,3 +1,5 @@
+[Part 2: The Retched Hunger of Parting](https://www.reddit.com/r/nosleep/comments/1fd5cxf/i_miss_you_i_cant_stand_the_hunger_when_we_arent/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 Before I start there is one thing I have to say. Anyone who is annoyed, you are full well capable of scrolling past so I don't want to see any complaints. 
 
 Mags, if you are reading this you have to know that I'm sorry. I am so sorry. I am, I know you hate when I apologize and this is probably driving you crazy, but I have to say it in case I never get to tell you. I know we agreed that this was our secret to keep but we aren’t all that little anymore and I would rather you be safe and hate me than die still loving me the way you have for the last fourteen years. God, it's crazy that it's been fourteen years already. We're still so young, and yet we've already had more of a life together than most married couples. 
