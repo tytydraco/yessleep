@@ -166,6 +166,6 @@ Powerless to withstand the suggestion, I drifted in a daze to the front door of 
 
 “Looks like I work for you now, love.” Ally said, smirking before turning away to operate the till.
 
-My muscles allowed me to look at Colin. His even gaze confirmed what I thought I knew. This sour-smelling man with filth packed under his fingernails had planted a habit deep within me. Hypnotised by The Opal Pendant, I’d become a slave. All the money he put into the till, Ally gave him back at the end of the night. That’s what I had witnessed the night before. The jangly blue bag. That was their arrangement. He leaned in close. 
+My muscles allowed me to look at Colin. His even gaze confirmed what I thought I knew. This sour-smelling man with filth packed under his fingernails had planted a habit deep within me. Hypnotised by The Opal Pendant, I’d become a slave. All the money he put into the till, Ally gave him back at the end of the night. That’s what I’d witnessed the night before. The jangly blue bag. That was their arrangement. He leaned in close. 
 
 “It’s us regulars that keep this place afloat, boy,” said Colin.
