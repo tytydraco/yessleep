@@ -26,7 +26,7 @@ I walked up and down the row, my pulse starting to race, scanning every space. S
 
 It was like the car had vanished.
 
-I felt the panic rising, so I headed back to the security office, my hands shaking as I explained what had happened. The guard was calm, almost too calm, like he dealt with this sort of thing every day. “What spot did you park in?” he asked, flipping through his clipboard.
+I felt the panic rising, so I headed to the security office, my hands shaking as I explained what had happened. The guard was calm, almost too calm, like he dealt with this sort of thing every day. “What spot did you park in?” he asked, flipping through his clipboard.
 
 “Spot 13,” I said, trying to keep my voice steady.
 
