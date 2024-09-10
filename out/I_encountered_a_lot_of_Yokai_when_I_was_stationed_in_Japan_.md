@@ -83,3 +83,5 @@ Once she looked away it was like a weight was lifted. I ran, finally making it b
 I marched my ass to the nearest shrine and gave two offerings to whatever spirits wanted it. I was barely in Japan for a month so far. Two of these creepy spirits had already found me. I took every precaution I could from then on. Hell, I still had over a year at least for deployment at this point. After what Ryu told me I did some research too. Know your enemy, right? 
 
 Yeah, yokai don’t play by the same rules as other ghost legends. These things could be pure evil, just hate in the most distilled form. Some didn’t give a damn about any offerings or charms. Despite my newfound caution, it’s like I was a freakin’ magnet for weird shit over there. Things were only going to get weirder until I finally got to [leave](https://www.reddit.com/u/googlyeyes93/s/vOIUTH7Fk9).
+
+[Update](https://www.reddit.com/r/nosleep/s/2YiBLRYQFq)

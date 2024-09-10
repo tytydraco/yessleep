@@ -97,3 +97,6 @@ But whenever I look at it, a terrible feeling washes over me. A knowing that wha
 I don't know its wants or desires - all I know, is that my wife deserves this happiness.
 
 Even if we may be raising something truly beyond human comprehension.
+
+  
+[Next Post](https://www.reddit.com/r/nosleep/comments/1fdvm1j/the_night_i_became_a_father/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
