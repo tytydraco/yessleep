@@ -1,5 +1,3 @@
-
-
 My name is Jerry, I’m 36 years old, and for most of my adult life, I’ve worked various jobs. I’ve been a security guard, worked at gas stations, in warehouses, and even helped out at construction sites for a short while. But none of those jobs were as strange as the one I took a few months ago.
 
 It all started when I lost my previous job. The security company I worked for went bankrupt, and I was left without a source of income. At first, I thought I’d quickly find something new – after all, I had plenty of experience in the field. However, after a few weeks with no solid offers, I started to worry. Bills were piling up, and I was losing hope.
@@ -58,16 +56,11 @@ He said it with such ease, as if he was sure the job would be a breeze for me. O
 
 "Rarely," he replied. "Besides, you don’t have to worry too much about them. In case anything happens, you’ve got a flashlight, a walkie-talkie, and a key to all the locks."
 
-Here is the translation to English:
-
-
----
-
 Bill spoke as if everything was already settled. He didn’t even ask if I really wanted the job. He just assumed that since I was there, I’d agreed. And he was right.
 
 Eventually, we reached a small security building situated a bit off from the main area of the park. The building seemed to be in slightly better condition than the rest of the park, though it was still far from being in good shape. Bill opened the door and let me inside.
 
-Security Building
+Security Building.
 
 The interior of the security building was small and cramped. On the left was an old metal desk with a telephone and a walkie-talkie, next to it stood a wooden chair that looked like it wouldn’t withstand too much movement. Next to the desk were monitors, but most were turned off, and the few that were on showed only gray, blurry images.
 
