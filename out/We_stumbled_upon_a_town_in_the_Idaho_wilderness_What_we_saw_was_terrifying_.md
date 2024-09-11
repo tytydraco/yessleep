@@ -58,9 +58,9 @@ I look back at the meats, realising they have no labels. In fact, they all look 
 
 ‘Yeah, fuck this.’
 
-As I’m about to take the first step to leave, my ears catch a faint, muffled sound of something between a ragged wail and a scream. It sounds… agonisingly human. Like someone being slowly dragged into the ninth circle of hell. We didn’t need any more hints to bolt to the door. As we sprint with our lives the PA crackles back to life, and this time the voice is garbled and distorted.
+As I’m about to take the first step to leave, my ears catch a faint, muffled sound of something between a ragged wail and a scream. It sounds… agonisingly human. Like someone being slowly dragged into the ninth circle of hell. We didn’t need any more hints to bolt to the door. As we sprint with our lives the PA crackles back to life, and this time the voice is garbled and distorted, like something out of a horror game.
 
-‘Our glorious creator has word of two outsiders in our presence. Hunt them down- Isotope thanks you for helping us source America’s finest produce.’
+‘WE CAN SEE YOU, OUTSIDERS. WE ARE HUNGRY.’
 
 The next half hour was a blur- all I can really remember was the slamming of car doors, crushing the gas pedal to death, and yanking my steering wheel with more intensity than an F1 driver. By the time Max and I had gone back the way we came, we were on the verge of a full on breakdown. Our attempts to report things to the park authorities fizzled out on the spot- they had no records of a town called Isotope, and when they checked out the exact route we took, the fork was gone. All we managed to do was make ourselves look insane. 
 
