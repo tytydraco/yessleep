@@ -1,4 +1,4 @@
- I’ve lost track of time. My watch stopped working who knows how long ago, and without it, everything feels blurry. I’ve been stuck in this elevator forever or at least, that’s what it feels like. Days? Weeks? I can’t even tell anymore. It’s like time doesn’t exist in here. Every minute drags on in this weird, endless loop, and I’m losing my mind.
+I’ve lost track of time. My watch stopped working, who knows how long ago, and without it, everything feels blurry. I’ve been stuck in this elevator forever or at least, that’s what it feels like. Days? Weeks? I can’t even tell anymore. It’s like time doesn’t exist in here. Every minute drags on in this weird, endless loop, and I’m losing my mind.
 
 I work at a call center. For years, I’ve taken the elevator to the office without a second thought. But today, everything went wrong. I was late for work, rushing to catch the elevator like I always do. The usual one was out of service, so I had no choice but to use the old, broken one—the one that’s always been blocked off with caution tape. Today, the tape was gone. I didn’t think twice. I just wanted to get to work.
 
@@ -20,13 +20,13 @@ I hear whispers. Faint, just on the edge of hearing. They sound close, like some
 
 And then, then, I started seeing it.
 
-At first, it was just a feeling. That prickling sensation on the back of your neck, the hair in may nape goes up, I got goosebumps. like you’re being watched. Then I saw them, it I think, the long, black shadows creeping along the walls. They move slow, like they’re waiting, watching, getting closer each time the elevator jerks. It was swimming, well it looks like it. Sometimes, I swear I see hands, twisted and bony, reaching for me from the dark. I try to shake it off, Am I going crazy? I lost perception of time now, I don’t know. I know it’s real. Something is in here with me.
+At first, it was just a feeling. That prickling sensation on the back of your neck, the hair in my nape goes up, and I got goosebumps. like you’re being watched. Then I saw them, it, I think, the long, black shadows creeping along the walls. They move slow, like they’re waiting, watching, getting closer each time the elevator jerks. It was swimming, well it looks like it. Sometimes, I swear I see hands, twisted and bony, reaching for me from the dark. I try to shake it off, Am I going crazy? I lost perception of time now, I don’t know. I know it’s real. Something is in here with me.
 
 It’s getting harder to think, harder to stay awake. My body feels heavy, like the elevator is sucking the life out of me. My heart, it’s slowing down. I can feel it, I can hear it, this deep, aching pressure in my chest. I’m fading, becoming weaker by the second. PLEASE HELP ME! And, And, and those shadows... they’re closing in. I can see them now, sliding along the walls, fingers stretching out toward me. They want me.
 
 I don’t know how much longer I can last. Every time I close my eyes, I hear the whispers louder, feel the shadows coming to me closer. I can’t stay here.
 
-Please, if anyone is reading this help me. I AM BEGGING YOU PLEASE! Before it’s too late. Before the they take me.
+Please, if anyone is reading this, help me. I AM BEGGING YOU, PLEASE! Before it’s too late. Before they take me.
 
 I can’t hold on much longer.
 
