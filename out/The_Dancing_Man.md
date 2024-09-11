@@ -1,25 +1,17 @@
-It’s been three years since the dancing man took her.
+Josh was dancing. Just like he did every day. On the same patch of dried dirt that his feet had worn away the grass of years prior. The air was crisp and sharp, yet that didn’t bother Josh. When he was dancing nothing could stop him. He had been doing this same dance for over 40 years. Same dance, same location, same time, day in, day out.
 
-It was the first weekend of summer vacation. We lived on a quiet county road in a very safe but rural area in Ohio. We had a large back yard that shared two borders with different corn fields. The other two borders were shared with some woods that had a small but healthy creek running through it. My wife, my daughter and I spent our summers outside enjoying the freedom and safety in what felt like a little slice of heaven.
+Just like every other day the locals had come to watch him dance. Some looked out of pure disbelief, even though they had seen the dance hundreds of times, they could never seem to get used to it. Others were there just for the event but didn’t dare look. A few of the children that were present were screaming and crying clung tight to their mothers. Many of the viewers had resorted to violence, picking up what objects they could and tossed them towards Josh. Very few left even left marks as they struck his bare flesh.
 
-It felt so normal. The day felt like the first day of summer is supposed to feel. We were on the porch enjoying our coffee. We were just watching her play.
+ Just like every day Josh was nude. His tallywacker joining in with his hypnotising dance. flopping freely with every jump he made. Josh was just like any other young male in the prime of his life, full of life and energy. The only difference is that he was without a head. That had been lopped off years prior. A futile attempt was made by one of the locals to stop the daily naked waltz. They had rushed him and had their way with a freshly sharpened axe. Took the head clean off his shoulders.
 
-I remember she was picking the clover. Picking clover and befriending a host of harmless insects, discussing her summer plans with them and complimenting the way the sun made their wings look. I thought this is what she was doing when I first saw her chatting to something in the woods. We were so safe. Every instinct told me so. 
+They had all celebrated that night. The whole town got together and danced and celebrated the death of the dancing man. You should have seen their faces when he appeared the day after. Same place, same time. Only this time, fresh volcanic eruptions of crimson replaced where his head should be. Showering the dancing man with a deep crimson war paint that made the dance all the more disturbing.
 
-He had such a warm and casual demeanor when he stepped out from the tree line. He was old…frail…very thin, even gaunt, and hunched over an old wooden cane. He was dressed in a grey tweed suit and wore a black felt hat with some type of wildflower tucked in the band.
+They tried to ignore him, all stay indoors while the man danced. But that only resulted in a towns person getting plagued, brainwashed, void of all composure. Drawn to the dancing man, to join him in his eternal dance. There were around 16 others who had ended up joining the moonlight masquerade before they gave up on this idea. All stripped bare, free to Mother Nature.
 
-Despite his non threatening appearance and friendly demeanor, the circumstances of his arrival immediately set off every alarm bell and protective fatherly instinct.
+No attempt to wake the cursed locals would work. The only thing that stopped the plague and halted the headless pied pipers calling was to observe. Every local had to come, every night to witness the great dance. Those who didn’t, doomed to join and dance.
 
-It felt like reality was bending. Though panic and adrenaline fueled my pace and the path to my daughter was unobstructed, I could not close the distance. It felt like faulty dream logic had seeped into a waking nightmare. I would trip over imaginary obstacles, get turned around mid-step, feel like my shoes were tied together, or like everything was coated in lubricant. I can’t explain it. Reality was shattering. I couldn’t reach her.
+This continued for the next 20 years up until the great fire. The town was so preoccupied trying to save what was left of the burning homes and ashes of their supplies. They didn’t even realise the time.
 
-I watched in desperation as the man sweetly presented her with the wildflower from his hat, which she gratefully accepted. 
+This night Josh did his greatest dance of all. A dance so great that the pull was unbearable. The locals all stopped at the same time, dead in their tracks. struck with sudden shock. Then step by step, springed heel, by tipper toe. They all made their way down the cobbled streets to the clearing and they danced. O’ how they danced. 
 
-The man then looked at me with wide unblinking eyes and lifeless grin and began to dance. His dance was unnatural. It lacked rhythm, or any kind of pattern whatsoever. The movement was spasmodic, but felt primal and meaningful. He was unnaturally limber and appeared to be double jointed in several places. He never blinked or broke eye contact. It was grotesque. 
-
-I was about to be sick when my daughter slowly turned to face me. Her face had changed. She was wearing the same empty grinning expression as the man. She turned until she was squarely facing me, at which point she briefly paused before beginning to dance.
-
-She danced in horribly perfect lockstep with the man. Though she didn’t seem to be processing pain, I could hear her joints snap due to the unnatural range of motion the dance demanded. 
-
-Neither of them blinked or broke eye contact as they backed into the woods together, their movements perfectly synchronized. 
-
-No trace of either my daughter or the dancing man has ever been found.
+Hundreds of bodies. All ages and sizes. All finally together, backlit from the embers that approached down the tree line. They all danced as the fire consumed them. The dancing man’s work was done. His great event now complete. Only one thing to do. On to the next town.
