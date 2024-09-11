@@ -30,7 +30,7 @@ The only road to the coast is a two-lane highway over a mountain pass. If I had 
 
 
 
-I had no issue pulling into a tiny town just before nightfall, and not wanting to risk my luck turning on the other side of the mountain Remembering the cash burning a hole in my pocket, I sent a text to my cousin telling him I would be there first thing in the morning and rented a room for the night. 
+I had no issue pulling into a tiny town just before nightfall, and not wanting to risk my luck turning on the other side of the mountain. Upon remembering the cash burning a hole in my pocket, I sent a text to my cousin telling him I would be there first thing in the morning and rented a room for the night. 
 
 
 
