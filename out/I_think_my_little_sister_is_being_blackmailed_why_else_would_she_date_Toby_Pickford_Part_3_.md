@@ -1,15 +1,12 @@
 Series: [Part 1](https://www.reddit.com/r/nosleep/comments/1em7436/i_think_my_little_sister_is_being_blackmailed_why/), [Part 2](https://www.reddit.com/r/nosleep/comments/1euitqs/i_think_my_little_sister_is_being_blackmailed_why/)
 
-  
-
-
 I had given an immense amount of thought to how I might kill Toby, but talked myself out of it every time.
 
 The truth was, I wasn't a killer.
 
 It wasn't that I couldn't just grab a knife and hack into Toby's neck. I was certain I was capable of doing that.
 
-The same way I was sure I could, hypothetically, bring myself to humanely slaughter an animal. Like ripping the head of a chicken.
+The same way I was sure I could, hypothetically, bring myself to humanely slaughter an animal. Like ripping the head off a chicken.
 
 The difference between a chicken or other farm animal was that Toby had a soul. Or something very much like it. The fact he had been able to carry over whatever essence it was to him to my family members was proof that were was something ethereal at work behind the blood, muscle, bone, and nerve endings that makes up human beings.
 
@@ -29,7 +26,7 @@ It was because he had tried and failed to take his own life that this whole mess
 
 It was possible Toby would kill himself, take his piece off the board, without me having to take matters into my own hands.
 
-A part of me held out hope he might take his own life. At the same time knowing I was hoping for someone to commit suicide sat with me as a constant sickening dread. Never in my life have I wished ill to anyone and I hated that Toby, by his actions, made wish harm on another person.
+A part of me held out hope he might take his own life. At the same time knowing I was hoping for someone to commit suicide sat with me as a constant sickening dread. Never in my life have I wished ill to anyone and I hated that Toby, by his actions, made me wish harm on another person.
 
 I just wanted my family back.
 
@@ -81,7 +78,7 @@ My entire body was rigid, and felt hot under the bed cover. For a moment I feare
 
 "It's me," said Leigh's voice, "I've missed you so much."
 
-I didn't understand. Toby-Leigh saw me everyday. I had served her dinner earlier at the dining table earlier (the only time my possessed family gathered together in the house anymore was when I presented them with food.)
+I didn't understand. Toby-Leigh saw me everyday. I had served her dinner earlier at the dining table (the only time my possessed family gathered together in the house anymore was when I presented them with food.)
 
 "I can't move," I whispered, choking the words out with great effort.
 
@@ -181,7 +178,7 @@ A minute later my family, Toby-controlled as usual, came into the room, turning 
 
 They didn't take me to the hospital for several hours. They had to be sure whatever had happened to me wasn't going to cause trouble for them. It was almost comical to see they were at a loss to know what to do with me given the state of my broken arm. Sure, they could have threatened me like they had before, but they hadn't accounted for me harming myself, which may have been their first thought upon finding me. A second person to watch at risk of taking his own life.
 
-When they were sure I hadn't intentionally harmed myself, and that I wasn't planning on using whatever I was doing to somehow reveal  their secret to others, my not-family played their parts well when it came to taking me to the hospital. Before leaving the house they changed out of their slobbish clothes and into the costumes of my family members. In my delirium I found myself oddly comforted, able to speak to Leigh, and Mum, and Dad, as if things were normal. They played along, given nothing away.
+When they were sure I hadn't intentionally harmed myself, and that I wasn't planning on using whatever I was doing to somehow reveal  their secret to others, my not-family played their parts well when it came to taking me to the hospital. Before leaving the house they changed out of their slobbish clothes and into the costumes of my family members. In my delirium I found myself oddly comforted, able to speak to Leigh, and Mum, and Dad, as if things were normal. They played along, giving nothing away.
 
 It's been two weeks since that incident. My left arm is in a cast now. Something tried to steal my body. I've tried not to think back on the experience too much, because every time I do I break out into a sweat.
 
