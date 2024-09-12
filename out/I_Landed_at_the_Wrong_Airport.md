@@ -74,6 +74,6 @@ Only about two feet away from me was the injured creature from before, laying in
 
 The source of the blood was a large hole on the side of its head, and it looked cracked, kind of like an eggshell. Underneath the shell revealed a solid mass of flesh, blood and other viscera, slightly concave due to the impact of the weapon. The body, originally twitching and shuddering at any interference, now laid lifeless as its pain was ended by an unknown assailant. I'm pretty sure it was a gun.
 
- [Part 2](https://www.reddit.com/r/nosleep/comments/1fek9vu/i_landed_at_the_wrong_airport_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+ [Part 2](https://www.reddit.com/r/nosleep/comments/1fek9vu/i_landed_at_the_wrong_airport_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) 
 
  
