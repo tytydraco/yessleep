@@ -106,6 +106,6 @@ I closed my eyes and cried harder, unable to move. When I finally opened them, t
 
 There were two shiny scars slicing up my arms.
 
-I tore off my clothes. Thre were more. I counted every single one—but I already knew how many there would be.
+I tore off my clothes. There were more. I counted every single one—but I already knew how many there would be.
 
 [Seventeen.](http://www.reddit.com/r/blairdaniels)

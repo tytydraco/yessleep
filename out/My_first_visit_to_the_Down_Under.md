@@ -176,7 +176,7 @@ I stood at the edge of town, outside the library, at a crosswalk alone.
 
 And I needed to die?!
 
-I was very worried that if I didn’t follow his directions, something unplanned might happen.
+I was very worried that if I didn’t follow his directions... I don't know, it didn't sound like a good idea.
 
 My eyes darted around, desperate, and that’s when I saw it—a truck, its headlights cutting through the twilight, barreling down the road.
 
@@ -332,7 +332,7 @@ He paused, glancing around. 
 
 But I felt something was changing. Like I was already leaving this new world behind. 
 
-“I'll meet you at the library next Monday! I have to do the paperwork!” Marek yelled, his voice trailing off into the blackness that took over my sight.
+“I'll meet you at the library on Monday! I have to do the paperwork!” Marek yelled, his voice trailing off into the blackness that took over my sight.
 
 “I haven’t -” I tried to yell back, but it was too late.
 
@@ -356,4 +356,4 @@ My arm was still bleeding…
 
 Then I thought about next Monday... 
 
-Did I accept the job without realizing it? And what had I gotten myself involved in?
+Did I accept the job without realizing it? And what exactly had I gotten myself into?
