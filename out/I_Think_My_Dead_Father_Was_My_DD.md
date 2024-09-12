@@ -30,7 +30,7 @@ The only road to the coast is a two-lane highway over a mountain pass. If I had 
 
 
 
-I had no issue pulling into a tiny town just before nightfall, and not wanting to risk my luck turning on the other side of the mountain. Upon remembering the cash burning a hole in my pocket, I sent a text to my cousin telling him I would be there first thing in the morning and rented a room for the night. 
+I had no issue pulling into a tiny town just before nightfall, and I didn’t want to risk my luck turning on the other side of the mountain. Then, remembering the cash burning a hole in my pocket, I sent a text to my cousin telling him I would be there first thing in the morning and rented a room for the night. 
 
 
 
@@ -250,7 +250,7 @@ My face got it the worst, as both my eyes are almost swollen shut and there is a
 
 
 
-Of course, that’s ridiculous, there was no accident anywhere near where I woke up, not that I looked very hard, admittedly. Call it hunch when I walk back to get my van, I won’t see any wrecks being hauled off. They cleaned it up a long time ago, I watched them in my pajamas doing it. 
+Of course, that’s ridiculous, there was no accident anywhere near where I woke up, not that I looked very hard, admittedly. Call it a hunch when I walk back to get my van, I won’t see any wrecks being hauled off. They cleaned it up a long time ago, I watched them in my pajamas doing it. 
 
 
 
