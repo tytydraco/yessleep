@@ -56,7 +56,7 @@ It's a really thin wall, and I'm afraid something can break through it from any 
 
 Tomorrow, I don't know what I'll do. Wish me luck.
 
-As I'm zipping my back up to leave, I hear another clink. I turn, and, from the door, I can see an eye peeking through the hole in the wall.
+As I'm zipping my bag up to leave, I hear another clink. I turn, and, from the door, I can see an eye peeking through the hole in the wall.
 
 I get into my car. I'll hit post now, then fire up the engine and get out of here. I have one more thing to say - the upstairs room, the one stuck to my home, the one where the hole is supposed to lead, has no windows.
 
