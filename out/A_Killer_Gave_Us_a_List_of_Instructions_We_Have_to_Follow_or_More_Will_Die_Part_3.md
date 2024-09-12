@@ -113,3 +113,5 @@ As the voicemail played, I put the phone on speaker, letting Audrey listen. Roc�
 Rocío's voice cracks as the background noises grow louder on the voicemail, the unmistakable sound of shattering glass piercing through her words. "Ramón, they're in the house—!" Her scream slices through the air, raw and terrified, followed by the high-pitched cries of our boys, their fear palpable even through the digital recording.
 
 The voicemail cuts off abruptly, leaving a haunting silence that chills me to the bone. My hand shakes as I lower the phone, the afterimage of the call's timer blinking mockingly back [at](https://new.reddit.com/r/PageTurner627Horror/comments/1cu31vv/broken_dawn/) [me](https://new.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/).
+
+[Part 4](https://new.reddit.com/r/nosleep/comments/1fevv3u/a_killer_gave_us_a_list_of_instructions_we_have/)
