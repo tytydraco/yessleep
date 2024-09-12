@@ -120,3 +120,5 @@ Sandy calmed him before he got panicky, looking at us in the night, “Just us, 
 “Not like that!” Sandy said, shooing him back down to the living quarters as he laughed. We held each other, looking off into the night where the ship had disappeared to before she spoke, “Gonna be honest, that was a new one for me.”
 
 ”Jesus christ.” Was all I could say, heart still racing as I tried catching my breath. She pulled me closer, brushing my hair back over my ear and humming low, a soothing melody as the night returned to peace, completely undisturbed by the death that just roared [through](https://www.reddit.com/u/googlyeyes93/s/qWzw5yMBC0).
+
+[Next](https://www.reddit.com/r/nosleep/s/kRmUgIrz3f)

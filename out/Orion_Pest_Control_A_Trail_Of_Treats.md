@@ -432,6 +432,8 @@ But it’s more of a chance than I had before. We’ll just see if I can pull it
 
 Edit: I have no idea what is going on with the formatting of this post. Oh my Lord. 
 
+Edit2: Some ['monster hunters'](https://www.reddit.com/r/nosleep/s/EdpTlcBGC2) have arrived. Great. 
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
 
