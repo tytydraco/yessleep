@@ -266,8 +266,7 @@ These visions are so vivid, though. They feel so real. I hadn’t thought of the
 
 
 
-Real or not, it’s time for change. If there is anyone out there that has experienced something like this, please let me know. Obviously, anyone I tell will dismiss it because of my disease, because of my reputation. So I post this for all of you, who don’t know me, to see if all of this was a terrible power nap after another night of drinking. I think I’ll use this little shard of broken glass I found in my hair as a reminder. 
-
+It’s time for change. If there is anyone out there that has experienced something like this, please let me know. Obviously, anyone I tell will dismiss it because of my disease, because of my reputation. So I post this for all of you, who don’t know me, to see if all of this was a terrible power nap after another night of drinking. Honestly, the only reason I’m not convinced I had imagined all of this is the bits of broken glass I found all over me, in my hair, in my shirt… the biggest piece was lodged in my ear. That… and the crumpled photo of my family that still rested in my fist when I woke up. It’s good to finally have a picture of everyone, even if it proves something my brain cannot comprehend. 
 
 
 Thanks dad, for helping the only way you knew how.
