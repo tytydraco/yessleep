@@ -1,4 +1,4 @@
-Series: [Part 1](https://www.reddit.com/r/nosleep/comments/1em7436/i_think_my_little_sister_is_being_blackmailed_why/)
+Series: [Part 1](https://www.reddit.com/r/nosleep/comments/1em7436/i_think_my_little_sister_is_being_blackmailed_why/), [Part 3](https://www.reddit.com/r/nosleep/comments/1featsp/i_think_my_little_sister_is_being_blackmailed_why/)
 
 I could still feel the pain in my groin from where something sharp had been held almost to the point of piercing the skin. There had been blood, which I had cleaned up with a flannel and several sheets of toilet roll tissue. The pain in my groin served as a constant reminder that morning that I wasn't safe, and wouldn't be until I could figure out what Toby had done to my family. 
 
@@ -98,7 +98,7 @@ I continued playing the game and noticed sweat dripping down my temple. The day 
 
 I wiped my brow and as I did so I looked behind me. Toby was red-faced, sweating profusely in his hoodie.
 
- Leigh was wearing a simple top, so was handling the heat fine, and Mum had taken her cardigan off, so she wasn't too bothered by the heat either. 
+Leigh was wearing a simple top, so was handling the heat fine, and Mum had taken her cardigan off, so she wasn't too bothered by the heat either. 
 
 They all drank their glasses of orange juice and, almost identically, dipped a biscuit into their glass, soaked it into the orange juice and ate it.
 
@@ -106,7 +106,7 @@ Soon after there was a sudden rustling of clothing. Toby had taken his hoodie of
 
 Leigh looked away from Toby as she thought about what he had just done. It became immediately clear to me as soon as Toby had taken off his hoodie why Leigh might have been so against it. 
 
-Toby had at least a dozen criss-cross scars across both forearms. 
+Toby had at least a dozen criss-cross scars across both forearms.
 
 I pretended not to notice and went back to my game. Shortly after Toby broke the silence. 
 
@@ -212,13 +212,13 @@ I grabbed a nearby sock from the floor and pressed it to the cut on my neck. 
 
 I didn't care to give him any sympathy. I just needed to know. 
 
-Toby sniffled and wiped the tears from his eyes as he gathered his thoughts. He glanced to the empty doorway and then said in a whisper. He spoke incredibly slowly, choking out each word. 
+Toby sniffled and wiped the tears from his eyes as he gathered his thoughts. He glanced to the empty doorway and then said in a whisper. He spoke incredibly slowly, choking out each word.
 
 "H-have you ever heard of *Astral Projection?"* 
 
 "It's like your spirit leaving your body?" I said. 
 
-"It's consciousness leaving the body," said Toby, "I did it by accident. I tried to--I tried to take my own life. I just wanted to end it. But I didn't take enough pills. I just fell into a deep sleep and...the next thing I knew I was standing outside of my body. I thought maybe I had died but I could see my body was still breathing in bed.  I moved around my room, floating...it was cool..." 
+"It's consciousness leaving the body," said Toby, "I did it by accident. I tried to--I tried to take my own life. I just wanted to end it. But I didn't take enough pills. I just fell into a deep sleep and...the next thing I knew I was standing outside of my body. I thought maybe I had died but I could see my body was still breathing in bed.  I moved around my room, floating...it was cool..."
 
 Toby looked away from me, his puffy eyes searching the carpet stained with droplets of my blood. 
 
@@ -272,12 +272,12 @@ Mum, standing, waited for me to speak. 
 
 "Because," said Mum, "Then we wouldn't have anything to stop Toby from trying to kill himself. He doesn't care about his own life, but he does care about you. We don't know what will happen to us if he dies. Maybe you'll get your family back, or maybe we'll still be stuck in these bodies. Who knows. All I know is I don't want to die, even if I am just a copy." 
 
-I didn't know what to say. Mum, or *Toby* in mum's body, wiped a tear from her eye. 
+I didn't know what to say. Mum, or *Toby* in mum's body, wiped a tear from her eye.
 
-"I'm sorry," she said, and walked out of my bedroom. 
+"I'm sorry," she said, and walked out of my bedroom.
 
-In the wake of Toby, Leigh, and Mum having left my room I at last felt a reprieve, at the very least, from the *confusion* of what was happening to my family. 
+In the wake of Toby, Leigh, and Mum having left my room I at last felt a reprieve, at the very least, from the *confusion* of what was happening to my family.
 
-Mum and Leigh talked with Toby downstairs for ten minutes before Leigh left with Toby, to where I don't know. It's been eight hours since they left the house. 
+Mum and Leigh talked with Toby downstairs for ten minutes before Leigh left with Toby, to where I don't know. It's been eight hours since they left the house.
 
-I've hidden myself away in my room trying to think about what my next move should be. I have to do something. But what? 
+I've hidden myself away in my room trying to think about what my next move should be. I have to do something. But what?
