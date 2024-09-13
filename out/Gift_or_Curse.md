@@ -14,7 +14,7 @@ The man instantly responded "Oh I wouldn't say it's a service, you have to pay f
 
 "Alright, I'm interested, tell me more." I said, genuinely curious.
 
-The man put the sign down and calmly said "What I'm offering is a game, you can choose to play it or you can just walk away, naturally, if decide to give it a shot and play the game, you will either win or lose, if you win you will get a great prize, but if you lose you will receive an equally great punishment."
+The man put the sign down and calmly said "What I'm offering is a game, you can choose to play it or you can just walk away, naturally, if you decide to give it a shot and play the game, you will either win or lose, if you win you will get a great prize, but if you lose you will receive an equally great punishment."
 
 "Perfect, so can you tell me what those prizes and punishments are?" I asked.
 
