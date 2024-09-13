@@ -31,4 +31,3 @@ I couldn’t contain myself any longer. I screamed, cursing the demons, my hands
 From the surrounding darkness, more and more of these creatures began to appear. They slithered out from every shadow, from the thickening night, surrounding me. They were no longer just fleeting figures; they were enormous, horrifying entities with empty eyes and twisted faces. The sound of their cold, hissing breaths grew louder, closer, as if they were about to consume me.
 
 The darkness closed in, so thick I could hardly breathe. They were here. I could feel their icy breath on the back of my neck. [They were getting closer…](https://www.youtube.com/watch?v=1T_DXVLRCwQ&t=88s)
-
