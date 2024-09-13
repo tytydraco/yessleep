@@ -1,12 +1,12 @@
-There lay a paper greeting atop the smartwatch, and its words jarred my senses. Scrambled the primitive compartment of my mind. I sensed danger, but there was nothing *specifically* wrong. After all, the message was written in English. The words were all in the correct order. Yet, behind the greeting’s veil of wafer width, the words were clearly organised in a way that served some creator’s repugnant design.
+There was a paper greeting atop the smartwatch, and its words jarred me. Scrambled my mind. In fact, it threatened me, as strange as that sounds. After all, there was nothing *specifically* wrong with the message. It was written in English. The words were in the correct order. However, behind the greeting’s upbeat veil of wafer width, the words were organised in a way that served some unknown creator’s repugnant design.
 
-My dad has a tendency to acquire knock-off gadgets and gizmos through the elusive black market known as *Jonathan From Work*. It made sense to me that he’d find something special for my thirtieth. And it wasn’t the first horror I’d received for my birthday.
+My dad has a tendency to acquire knock-off gadgets and gizmos through the elusive black market known as *Jonathan From Work*. It made sense to me that he’d find something a little unique for my thirtieth. And it wasn’t the first horror I’d received on one of my birthdays.
 
 But it was the worst.
 
 *Hello, HelWatch.*
 
-*Hel says, ‘hello.’*
+*Hel says, ‘Hello.’*
 
 *Hel doesn’t like his name. Hel isn’t a smartwatch. Hel is Hel. Hel is your life. Hel is a better you. Why, it’s in his very name.*
 
