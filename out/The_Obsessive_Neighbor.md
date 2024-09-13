@@ -1,0 +1,15 @@
+I’ve always loved storms. There’s something about the sound of thunder and the flash of lightning that brings me a sense of comfort. It was one of those stormy nights, the kind that makes you want to stay up late, savoring every moment of the tempest. My dad was working the night shift, so I was home alone. After watching *Forrest Gump* for the hundredth time, I decided it was time to call it a night. It was around 2 a.m.
+
+The wind howled outside, and the rain pounded hard against my bedroom window. I snuggled under the covers, ready to enjoy the sound of the storm as I drifted off to sleep. But suddenly, a different sound caught my attention. Something hit my bedroom window. It wasn’t the usual sound of rain; it was something stronger, something more solid. I tried to ignore it, thinking it might just be a branch blown by the wind.
+
+However, a few seconds later, the sound came again. This time, it was clear that a rock had struck the glass. My heart started racing. It couldn’t be my dad—he would have called if something was wrong. Another rock hit the window, and I found myself frozen in bed, too scared to look outside. Whoever was out there surely knew I was up there. I had just turned off the TV; they could have seen the bright glare through the curtain.
+
+I tried to convince myself that if I ignored it, they would go away. But the rocks kept hitting the window, faster and harder. The rain began to let up, making the sound of the rocks even more distinct. That’s when I heard the sound of a truck engine running out in the street. The combination of the revving engine and the rocks hitting the glass made me jump out of bed.
+
+I was ready to call the police. I ran down the stairs toward the phone, but as I passed the front door, I saw something that made me stop in my tracks. Through the glass window at the top of the door, I saw a face. A smiling face, staring right at me. The smile was twisted, almost grotesque, as if the stranger was enjoying my fear.
+
+My heart was pounding so hard I could hear it in my ears. I ran to the kitchen, grabbed a knife, and with a trembling voice, shouted that the police were coming. I waited, my whole body on high alert, ready for anything. I heard the truck rev up and then... silence. No more rocks hitting the window. No more attempts to break down the door. Just the distant sound of the storm outside.
+
+When I finally heard the police sirens, a wave of relief washed over me. I ran to open the door and explained everything to the officer. I described the face as best as I could, but I couldn’t give any details about the vehicle. I still regret not looking out the window, not seeing more so I could help the police. But at that moment, all I wanted was to be safe.
+
+Unfortunately, there was never enough information to catch those people. To this day, I don’t know if they planned to rob my house or something much worse.
