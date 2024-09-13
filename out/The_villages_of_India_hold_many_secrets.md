@@ -96,14 +96,4 @@ Advait and I went to the owner of the hotel, Ram dada, to talk to him. We were c
 
 "Since that night, his ghost has been seen wandering the temple surroundings, hopelessly, seeking forgiveness, or perhaps still hoping to reunite with the spirit of his lost love. Some say his figure can be seen standing near the temple's altar during eclipses, his face turned toward the sky, waiting for the reunion that will never come."
 
-*_______________*________________*_________________*
-
-
-For anyone interested, the village in which I experienced this is in the Konkan region of Maharashtra, India. 
-
-I have many more stories to share from the villages of India. Some are more scary, some are just sad, and others are sheer terrifying. 
-
-Let me know if you'd like to hear more stories! Also please tell me if my story-telling was engaging. This is the first time I have written a story here. I am willing to improve my writing and open to your suggestions :) 
-
-
   
