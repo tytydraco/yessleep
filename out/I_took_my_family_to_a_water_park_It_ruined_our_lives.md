@@ -1,7 +1,3 @@
-If I had a dollar for every time I’d told the detectives this story, maybe I’d have enough to retire. Fly off to an island and drink my way to a not-so-early grave. I remember our last conversation well enough.
-
--------------------------------------------------------------------------------------------------------------------
-
 “Ok, buddy, we’re right here. If you hurry, we can hit the wave pool before we go.”
 
 I ruffled Will’s hair, gave him a little push.
@@ -154,7 +150,7 @@ I slept in the bathtub that night. Locked the door to the bathroom too. I don’
 
 I woke up screaming. Wandered around the house until I went for the newspaper.
 
-After all the pieces were collected, the bones they found belonged to 10 unique skeletons. It was a reticulated python, the invasive one, 26 feet long. Found the humidity of the park nice and chose a place it wouldn’t be found.
+After all the pieces were collected, the bones they found belonged to 10 unique skeletons. It was a reticulated python, the invasive one, twenty-six feet long. Found the humidity of the park nice and chose a place it wouldn’t be found.
 
 Headlined the local paper for a day before it was pulled. Previous owners of the park still had some influence in the area.
 
