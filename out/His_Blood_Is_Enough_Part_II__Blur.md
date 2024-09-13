@@ -182,3 +182,5 @@ If I could gasp, I would have, but I could only stare at her. I knew who this wa
 My strength was fading, the world was spinning, and the edges of my vision blurred. Darkness was overtaking me. I stopped trying to fight it. My arms went limp at my sides. It was over. I was dead.
 
 "Jared, my baby," Vivian Holloway—Silas's wife and Jared's mom—whispered, her voice full of love. "I love you so much, but sometimes," her grip tightened around my throat, "I just want to crush you into dust."
+
+
