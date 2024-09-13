@@ -80,7 +80,7 @@ The Vazquez case was supposed to be a straightforward operation: intercept a mas
 
 The creature laughs, a horrifying, gurgling sound. "La reina sabe… Los juegos terminan hoy… Castillo… el soplón." (The queen knows… The games end today… Castillo… the rat.)
 
-Its words cut deeper than any physical wound could, unraveling years of buried secrets. The revelation shatters the last vestige of restraint in me. “¿Cómo sabes sobre eso? ¿Quién eres?”
+Its words cut deeper than any physical wound could, unraveling years of buried secrets. The revelation shatters the last vestige of restraint in me. “¿Cómo sabes sobre eso? ¿Quién eres?” (How do you know about that? Who are you?)
 
 For years, I lived a double life. To everyone else, I was Detective Ramón Castillo, a straight-laced cop, a family man who did the job by the book. But beneath that facade, I was something else entirely—a ghost in the machine.
 
@@ -158,7 +158,7 @@ As though to drive home my point, the distant sound of police sirens pierces the
 
 "Shit," I mutter under my breath. "We need to move. Now."
 
-We move fast, slipping through the back of the house and out into the yard. I glance toward my cruiser parked out front. We can’t take it—that’s the first thing they’ll be looking for. I grab my laptop and some gear from the Dodge Charger, shoving them into a duffel bag.
+We move fast, slipping through the back of the house and out into the yard. I glance toward my cruiser parked out front. We can’t take it—that’s the first thing they’ll be looking for. I grab my laptop and some gear from the cruiser, shoving them into a duffel bag.
 
 The flashing lights are closer now, the distant wail of sirens growing louder with each passing second. My eyes dart toward my neighbor's driveway. Dave’s old Chevy Tahoe sits there.
 
