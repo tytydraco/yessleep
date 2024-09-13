@@ -126,7 +126,7 @@ I was too far to see what the men were standing over and crept closer.
 
 “Well go check it. Be careful, too.”
 
-I felt my way along a bulldozer, close enough now, and stuck my head past the edge. The scene made my knees buckle.
+I felt my way along a bulldozer, close enough now, and stuck my head past the edge. The scene made my knees buckle. I couldn’t comprehend what I was looking at.
 
 Dead, and covered in hacks and slash marks, was a python. Never mind a snake, it was the largest animal I’d even seen up close, long as a school bus, longer even, stretched out. Despite its size, it looked thin, as if it hadn’t eaten in weeks.
 
@@ -149,6 +149,10 @@ The site fell silent.
 “There’s bones. There’s bones down here!”
 
 -------------------------------------------------------------------------------------------------------------------
+
+I slept in the bathtub that night. Locked the door to the bathroom too. I don’t know. I just didn’t feel safe. 
+
+I woke up screaming. Wandered around the house until I went for the newspaper.
 
 After all the pieces were collected, the bones they found belonged to 10 unique skeletons. It was a reticulated python, the invasive one, 26 feet long. Found the humidity of the park nice and chose a place it wouldn’t be found.
 

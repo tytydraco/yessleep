@@ -1,4 +1,4 @@
-I never thought I'd be writing something like this, but I'm desperate for help or advice. I don't know if anyone will believe me, but I swear every word of this is true.
+I never thought I'd be writing something like this, but I'm desperate for help or advice. I don't know if anyone will believe me, but I've got to share what happened.
 
 It all started when my Aunt Meredith died a few months ago. The night she passed, I had this vivid nightmare. I was climbing an endless staircase in a house that kept growing taller. Every time I thought I reached the top, a new floor would appear. My legs ached, my lungs burned, but I couldn't stop climbing. I knew that if I did, I'd fall all the way down, back to where I started. I woke up gasping for air, my phone ringing with news of Aunt Meredith's death.
 
