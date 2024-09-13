@@ -59,3 +59,5 @@ A little family of the same creature I saw came running out of the brush a littl
 So, despite all the terrifying things I’ve run into, at least I can say I’ve got a little bit of luck on my side.
 
 Unfortunately that luck would only go so far, and we stopped going camping a few months [later](https://www.reddit.com/u/googlyeyes93/s/JlatiOat4H).
+
+[Next](https://www.reddit.com/r/nosleep/s/YfsRH8tBcC)

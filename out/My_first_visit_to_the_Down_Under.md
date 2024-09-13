@@ -24,15 +24,11 @@ Nobody’s going to keep me from churning through some good books.
 
 \*\*\*\*\*
 
-One day, hungrier than usual, I decided to call it around 11 am. 
+One day, hungrier than usual, I decided to call it early... around 11 am.  I exited the library and pulled up food options on my phone. 
 
-I exited the library and pulled up food options on my phone. 
+By the time I found a pizza place that sold slices, I could feel that someone was standing next to me. Too close to me in my personal space. As I looked up, I could feel the hair on my arms suddenly raise. A man was staring right at me. From less than an arm’s reach away.
 
-By the time I found a pizza place that sold slices, I could feel that someone was standing next to me. Too close to me in my personal space.
-
-As I looked up, I could feel the hair on my arms suddenly raise. A man was staring right at me. From less than an arm’s reach away.
-
-He appeared as a well-dressed gentleman in his mid-30s, with piercing forest green eyes, but there was something uncanny about his demeanor.
+He appeared to be a well-dressed gentleman in his mid-30s, with piercing forest green eyes, but there was something uncanny about his demeanor.
 
 “You have exquisite tastes in literature,” he said to me with a big smile.
 
@@ -344,9 +340,7 @@ The cars, the shops, the people. 
 
 I opened my eyes. 
 
-I was back standing in the middle of the street, right in the place where the truck hit me. It almost felt like no time had passed.
-
-An involuntary shiver went down my spine. 
+I was back standing in the middle of the street, right in the place where the truck hit me. It almost felt like no time had passed. An involuntary shiver went down my spine. 
 
 What the hell just happened to me?
 
