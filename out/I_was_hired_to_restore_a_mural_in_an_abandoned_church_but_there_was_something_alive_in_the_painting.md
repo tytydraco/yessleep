@@ -64,7 +64,7 @@ As the initial shock left me I was flooded with relief at no longer being alone 
 
 Someone had closed the lid.
 
-
+-
 
 “It’s like a different painting when photographed.” Marie pursed her lips as she looked at the camera display. “Something to do with how it catches the light?” She picked the tripod up and moved it several feet to her right. She pressed a button and the flash went off in the dark room like a bolt of lightning. For an instant the whole place was laid bare. Roughly hewn stone and stagnant water. “Look.” She called me over. “It happened again.”
 
@@ -134,7 +134,7 @@ Everything that followed was a rushed blur. I took her into the church, sat her 
 
 It looked like a hurricane of swirls and spiralling bone-white shapes. A confusing mess of strange distortions that reminded me distantly of the background of Van Gogh’s starry night. Only there in the middle of all those swirling roiling lines and growths was a woman. Marie, in fact. I was sure of it. And she had both hands clutched to the side of her head like she was screaming for her life.
 
-
+-
 
 “You saw it?” The old man who’d answered the door was practically skeletal, but he wasn’t infirm. He glared at me with twitchy anticipation of my answer. He seemed ready to explode. “You saw the mural?”
 
@@ -188,7 +188,7 @@ They showed Marie and Alec. Thin and starved, weeping and broken. Screaming into
 
 “Whatever was buried down there and found by George,” the old man said as he savoured the shock and terror on my face. “Is an open invitation to something no one wants to meet. I would say best of luck to you and your colleagues, but there’s no point. You’re already done for.”
 
-
+-
 
 “Al! Come on! Let me in!”
 
@@ -224,7 +224,7 @@ He looked back at me with teary, desperate eyes.
 
 With alarming speed, Al jumped upright and ran towards the wall where he disappeared into the paint like a rock falling into water.
 
-
+-
 
 I thumped down into the water with a splash and immediately scanned the basement. Black water rippled away into the distance as my chalky light swept over old boxes and broken shelves. I tried everything to hold onto that sense of urgency and bravado that had compelled me to come rushing over to the church, but in the face of the aching dark that lingered at the edge of my torchlight I could already feel it slipping away. I knew I had to go marching into those shadows, deep into the tunnel at the far end of the room that would take me to the mural. I had to save my friends. Every time I thought about leaving them to their fate I remembered that painting. The look on their faces. Agony and torture written in such despairing eyes. If there was even a chance of reaching them, I had to try. And given Al’s words to me in that apartment, there really was no doubt about where to look.
 
@@ -288,7 +288,7 @@ This time, he didn’t grin. He screamed and let go of me, staring in horror at 
 
 I ran up the stairs, up into the open light of the church, and slammed the trapdoor shut with a heavy, final thud. 
 
-
+-
 
 Alec and Marie were found unresponsive in their homes just a few weeks later. Not much was made of the painting on Alec’s wall, nor the one Marie had apparently made herself. The police questioned me briefly, but seemed to ask a lot of questions about drugs. I think, based on the state of their homes, the police thought Marie and Alec had been addicts. Flooding. Mould. Decay. I did ask the police to destroy the murals they had made in their homes, but they told me it’d be down to the landlord to deal with repairs. Although they said that both apartments would likely have to be gutted and rebuilt from scratch.
 
@@ -305,3 +305,4 @@ These dreams are growing more frequent, and recently I have begun to worry that 
 Or maybe I’m just going mad!?
 
 After all, I woke up this morning to paint all over my hands, and the beginnings of something strange daubed in filthy finger streaks upon my wall.
+
