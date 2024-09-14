@@ -32,3 +32,14 @@ I kept walking. There was nothing else to do. I had to accept it. The endless wa
 
 The walk would never end.
 
+
+
+This is supposed to be psychological horror.
+
+Am trying to write different styles of genres of horror or other
+
+and this a work of fiction.
+
+if you want to share something you can share it in the comments or suggestions.
+
+and yh bye.
