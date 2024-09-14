@@ -36,7 +36,7 @@ The sweet voice that asked so kindly for a tooth moments ago, changed almost imm
 
 "Give me one of your teeth willingly, or I will rip the teeth from your skull one by one!" It yelled.
 
-I began to search thru my van for a weapon, something I could fight this thing with if I had to. All I had was a hammer that was stashed under the engine hood in the front seat. I raised the hood and grabbed the hammer. I stood in the van, hammer in hand like some dollar store Thor. I turned around and that when I remembered the shark tooth hanging from my visor. I ripped the tooth from the visor and went to the back of the van.
+I began to search thru my van for a weapon, something I could fight this thing with if I had to. All I had was a hammer that was stashed under the engine hood in the front seat. I raised the hood and grabbed the hammer. I stood in the van, hammer in hand like some dollar store Thor. I turned around and thats when I remembered the shark tooth hanging from my visor. I ripped the tooth from the visor and went to the back of the van.
 
 "I have a tooth for you." I said body still shaking uncontrollably from the adrenaline.
 
@@ -46,4 +46,4 @@ I slid the van door open only to be met with a wall of snow. I stuffed the tooth
 
 "Thanks for the tooth." It said back in the little sweet voice from before.
 
-The humming began again and the loud heavy footsteps made their way away from my van. I curled up in the fetal position on the ground of the van until I couldn't hear the footsteps anymore. I jumped up turned the engine over on my van and began to let it heat up. I sat for about 15 minutes and started the van up and began to drive back home from my last day as a van life youtuber. I'm still not sure what to chalk it up to but I don't see myself going around the Rockies again ever.
+The humming began again and the loud heavy footsteps made their way away from my van. I curled up in the fetal position on the ground of the van until I couldn't hear the footsteps anymore. I jumped up turned the engine over  and began to let it heat up. I sat for about 15 minutes then I began the drive back home from my last day as a van life youtuber. I'm still not sure what to chalk it up to but I don't see myself going around the Rockies again ever.
