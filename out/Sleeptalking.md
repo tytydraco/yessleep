@@ -82,7 +82,7 @@ A few minutes after the police left I found myself sitting on my couch with a cu
 
  
 
-A week went by. The police still had no information. Jacob postponed going home to help look after me. He was really such a sweet kid. It was late in the afternoon and I was preparing lunch. Suddenly Jacob walked into the kitchen. “Ah, Aunty Valerie? Can I talk with you?” I stopped dicing onions and looked up at him. His expression was guilty. He was awkwardly rubbing the back of his neck with his hand. “Yes, what’s up?” I said curiously, putting down the knife. He looked embarrassed. His eyes couldn’t meet mine “Um, I kind of lied. To the police. And you. About what happened that night. You know. Last week. When *it*happened.” 
+A week went by. The police still had no information. Jacob postponed going home to help look after me. He was really such a sweet kid. It was late in the afternoon and I was preparing lunch. Suddenly Jacob walked into the kitchen. “Ah, Aunty Valerie? Can I talk with you?” I stopped dicing onions and looked up at him. His expression was guilty. He was awkwardly rubbing the back of his neck with his hand. “Yes, what’s up?” I said curiously, putting down the knife. He looked embarrassed. His eyes couldn’t meet mine “Um, I kind of lied. To the police. And you. About what happened that night. You know. Last week. When *it* happened.” 
 
  
 
@@ -94,19 +94,27 @@ My heart fluttered. 
 
  
 
-“What – what do you mean?” He paused. It seemed to last forever. The room felt so silent I could hear my heart thump loudly in my chest. “I forgot to close my curtains that night. And something must have disturbed me in my sleep because I woke up in the middle of the night before the windows smashed. When I sat up in bed I froze. I saw people standing outside. At least a dozen people. I couldn’t see their faces. Just dark shapes. Their outlines. They were all in the garden. I – I didn’t know what to do. Then suddenly I heard the windows smash and I got distracted. I looked away from the windows for a second and when I looked back.” He paused.
+“What – what do you mean?” I said.
 
- 
 
-Tears were now forming in his eyes. “I saw Uncle Daryl. He-he was standing right at my window. He was staring in at me. I couldn’t see his eyes. But I *knew* it was him. Slowly he turned around and walked away. As I blinked he vanished. That’s when I got out of bed and came out to see you. I – I was convinced I had dreamt the whole thing. I mean. How could that be possible? I was scared the cops, that you, would think I was crazy. But - But now I don’t think it was just my imagination. I’ve – I’ve seen them again. Not in my dreams. I mean, I saw them outside my window. I saw them last night. I – I don’t know what’s happening. I think I should go home. But I don’t want to abandon you” 
 
- 
+He paused. 
 
- 
 
- 
 
-He was crying now. His voice was trembling; full of fear. I was shaking. I tried to keep my voice calm, “Don’t worry, my boy. Everything’s going to be fine. I’m sure it’s just a dream. I mean, I didn’t actually *see* anyone else myself. The police are probably right. They’ll find your Uncle.” I gave him a big hug. “Maybe it would be a good idea for you to go home. You must miss your own bed. Don’t worry about me, I’ll be fine. And after everything that’s happened you should go home. I’m sure your parents are anxious to see you. Let’s get you sorted.” Within an hour Jacob was packed and I drove him to the train station. We didn’t speak much on the way there and when we said goodbye I gave him an extra tight hug. I’d never admit it to him, but I was dreading going back home alone. Back to that same bed. The bedroom windows had been repaired but I still felt a cold wind whenever I looked at them.  
+It seemed to last forever. The room felt so silent I could hear my heart thump loudly in my chest. Jacob still couldn’t meet my gaze as he replied, “I forgot to close my curtains that night. And something must have disturbed me in my sleep because I woke up in the middle of the night before the windows smashed. When I sat up in bed I froze. I saw people standing outside. At least a dozen people. I couldn’t see their faces. Just dark shapes. Their outlines. They were all in the garden. I – I didn’t know what to do. Then suddenly I heard the windows smash and I got distracted. I looked away from my window for a second and when I looked back.” 
+
+
+
+He paused. Tears were now forming in his eyes. 
+
+
+
+“I saw Uncle Daryl. He-he was standing right at my window. He was staring in at me. I couldn’t see his eyes. But I *knew* it was him. Slowly he turned around and walked away. As I blinked he vanished. That’s when I got out of bed and came out to see you. I – I was convinced I had dreamt the whole thing. I mean. How could that be possible? I was scared the cops, that you, would think I was crazy. But - But now I don’t think it was just my imagination. I’ve – I’ve seen them again. Not in my dreams. I mean, I saw them outside my window. I saw them last night. I – I don’t know what’s happening. I think I should go home. But I don’t want to abandon you” 
+
+
+
+He was crying now. His voice was full of fear. I was shaking. I tried to keep my voice calm, “Don’t worry, my boy. Everything’s going to be fine. I’m sure it was just a dream. I mean, I didn’t actually *see* anyone else myself. The police are probably right. They’ll find your Uncle.” I gave him a big hug. “Maybe it would be a good idea for you to go home. You must miss your own bed. Don’t worry about me, I’ll be fine. And after everything that’s happened you should go home. I’m sure your parents are anxious to see you. Let’s get you sorted.” Within an hour Jacob was packed and I drove him to the train station. We didn’t speak much on the way there and when we said goodbye I gave him an extra tight hug. I’d never admit it to him, but I was dreading going back home alone. Back to that same bed. The bedroom windows had been repaired but I still felt a cold wind whenever I looked at them.  
 
  
 
@@ -126,7 +134,7 @@ I haven’t been able to leave my house for two weeks now. I never open the curt
 
  
 
-The sun is beginning to set and I find myself sitting once again in my living room. I’ve boarded up all my windows and sit on my sofa clutching a golf club in my hands. Maybe I can’t stop them from getting inside but I’d be damned if I wasn’t going to put up a fight. I’ve also left myself a secret way out just in case but won’t write that down here. I don’t want *them*.to find it out.  
+The sun is beginning to set and I find myself sitting once again in my living room. I’ve boarded up all my windows and sit on my sofa clutching a golf club in my hands. Maybe I can’t stop them from getting inside but I’d be damned if I wasn’t going to put up a fight. I’ve also left myself a secret way out just in case but won’t write that down here. I don’t want *them* to find it out.  
 
  
 
