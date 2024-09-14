@@ -29,7 +29,3 @@ I landed in the dense forest behind the hut. The oppressive darkness seemed to c
 I didn’t care about the job anymore. I just needed to understand why I was drawn back here. I asked, “What is your share? What are you taking from me?” He sat in silence for a long time, that same distant look on his face. Then, as always, he said, “Oh, don’t worry, I’ll get my share.”
 
 I still don’t know what he means. But every time I return, I feel like I’m losing something, piece by piece. The alley appears only at a specific time, and the man has no records or online presence. I can’t stop feeling this pull towards him and the heists, despite the darkness and the sense of something slipping away. I’m terrified that one day, there won’t be anything left for him to take.
-
-
-
-If people like it there will be a part 2 :)
