@@ -218,17 +218,17 @@ Looking closer at the coordinates the creature gave, something feels off. There�
 
 “No structures, no roads leading in or out—just an open field surrounded by factories and warehouses. It doesn’t make sense for a prime spot like that to be empty,” I say, furrowing my brow.
 
-I swiped through some more satellite images, zooming in on the area from different angles. That’s when something weird stood out—a subtle change in elevation around the edge of the empty land.
+I swipe through some more satellite images, zooming in on the area from different angles. That’s when something weird stood out—a subtle change in elevation around the edge of the empty land.
 
-“Look at this,” I said, tapping the screen. “The terrain dips in around the edges here. It’s like the ground’s hollow.”
+“Look at this,” I say, tapping the screen. “The terrain dips in around the edges here. It’s like the ground’s hollow.”
 
 Audrey frowned. “You think it’s built over something?”
 
-“Could be,” I replied, leaning back, my brain churning through possibilities. “A bunker maybe, or an underground tunnel system. Something’s going on under there, that’s for sure.”
+“Could be,” I reply, leaning back, my brain churning through possibilities. “A bunker maybe, or an underground tunnel system. Something’s going on under there, that’s for sure.”
 
 We spend the next half hour combing through public records, land surveys, and old building permits. At first, it seems like a dead end. Everything shows the area has been zoned for industrial use but never developed. No permits, no environmental assessments—nothing.
 
-But then Audrey stumbled on a curious document buried in the city’s geological surveys. “Wait a second,” she said, her finger hovering over the screen. “This whole area sits on top of an aquifer.”
+But then Audrey stumbles on a curious document buried in the city’s geological surveys. “Wait a second,” she says, her finger hovering over the screen. “This whole area sits on top of an aquifer.”
 
 “An aquifer? Why would that matter?” I ask, my interest piqued.
 
@@ -236,7 +236,7 @@ But then Audrey stumbled on a curious document buried in the city’s geological
 
 “So no one could build on it,” I mutter, rubbing my chin. “But that doesn’t mean something isn’t under it.”
 
-We exchanged looks. This can be the perfect place to hide something. If there’s a network of tunnels or caves down there, it could be completely invisible from above ground.
+We exchange looks. This can be the perfect place to hide something. If there’s a network of tunnels or caves down there, it could be completely invisible from above ground.
 
 After some digging, we find a few old utility reports that hint at the existence of storm drains and maintenance tunnels that have been sealed off decades ago. One report in particular catches our attention—a sewer line that has been rerouted, with its original access points marked as "decommissioned" near the coordinates we’re looking at.
 
