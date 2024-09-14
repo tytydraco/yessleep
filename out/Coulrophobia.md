@@ -1,202 +1,102 @@
-I watched the child’s face like a man following a tense football match.
+Many people are afraid of spiders or heights, my phobia is a fairly common one as well, you see, I am afraid of clowns.
 
-  
-*Go on kid*, I willed at the five-year-old, ignoring the minor glimmer of guilt hovering at the edge of my consciousness as I framed the thought. *Scream. Run away*.
+When I say I'm afraid of clowns, I really mean it, I can barely even look at the most benevolent clown for more than ten minutes without screaming and crying, trying to watch any killer clown horror movie would probably cause my premature death.
 
-  
-In the garden, separated from me by the kitchen window, the little boy’s confused and apprehensive expression began to give way to a tentative smile. I sighed, switching my gaze to look over at Tommy, my own four-year-old, also sitting cross-legged in the garden wearing his little paper party hat. Tommy was beaming jubilantly, practically bouncing up and down with excitement as the hideous creature in brilliant gold and garish red capered around in front of him.
+That being said, I'll tell you about the time that I tried confronting my fear, I doubt telling you this story will help me get over my fear of clowns, however, it might make you afraid of them, so don't continue reading if you don't want another phobia in your life.
 
-  
-A clown. A goddamn, honest-to-goodness *clown*. In my garden. Invited there at my own wife’s request to entertain my son and the random collection of similarly aged kids from the pre-school. Kids who were now sitting outside, enraptured by the bizarre spectacle of a grown man behaving like an insane, drunken child. It was all I could do to not shudder and look away, torn as I was between revulsion at the clown and the protective instinct it arose in me towards the kids.
+The story goes as follows...
 
-  
-It is a strange, primal hatred I have for clowns and not something easily explained. I’d tried on many occasions to discuss it with Sonya, but she’d almost always given me that ‘I’m indulging you now but storing this up for future reference’ look. Many times I had imagined myself on trial for the accidental murder of a brightly coloured lunatic who’d made the mistake of jumping out at me, and seeing Sonya take the stand to repeat all the crazy explanations I’d tried to give over the years. I felt strongly that the only people who’d acquit me were similarly clown-hating members of the public, and some research had demonstrated to me that they only made up 4% percent of the population. Or at least only 4% *admit* it.
+A couple of months ago I was enjoying the weekend with a friend in his house, only he and his cat live there, so his house is pretty much the perfect hangout place.
 
-  
-It even has a name. *Coulrophobia*. Fear of clowns.
+We were playing video games while my friend's cat was curled up in my lap, usually cats hate me, but Bob always had a soft spot for me, he loves to follow me around everywhere I go, he especially loves when I use his fuzzy back as an arm rest.
 
-  
-To me, even before it all happened, it was all simply common sense. Or almost all.
+After a couple of hours we decided to buy some whisky and coke from the nearby supermarket, we quickly exited the house and walked towards the supermarket which was only around three minutes away.
 
-  
-Any grown man who considers it both a viable and rewarding path through life to dance and caper around children, dressed in playful colours and outlandish outfits, conveying expressions they don't mean and emotions they don't feel, surely has a screw loose. But that's just a rational analysis.  
-Far more debilitating, far more primal, is the soul-chilling horror I feel at the mere sight of one. It’s a fear born of the deepest and most common human instinct; the fear of the unknown. And not the distant unknown, like the fear of death or disease or even terrorism. The fear of an unknown that takes care to hide itself, that purposefully outfits itself in distracting dizzying colour and hops and twirls towards the beholder, its every effort bent on winning the confidence of those whom it approaches for some dread purpose known only to itself…
+Unfortunately, our trip wasn't as simple as I originally anticipated, standing right next to the supermarket, we saw the one thing that makes my blood run cold, a clown.
 
-  
-That’s the stuff of nightmares. A being whose intentions are concealed beneath an impenetrable disguise, but which tries its utmost to be appealing. A being given licence to glide through society beneath a mask of congeniality, its true nature shrouded beneath garish costume, free to approach the innocent at will and dazzle them to some unknown end.
+A panic attack hit me as soon as I saw the clown, even though every clown creeps me out, there was just something about this one that made me extremely uncomfortable, he looked like a Ronald McDonald copy, although a very bad copy, the clown was sickly slim and short, his costume had many rips and tears, the makeup on his face was horribly done, it was so awful that his face looked like someone threw a couple of buckets of random paint on it.
 
-  
-I took a sip of my tea. It was cold, the liquid having long since stopped steaming as I had stood there watching the clown entertaining my child, and those of seven other trusting sets of parents, through the window. I chuckled to myself, shaking my head at my attempts to put a reasoned spin on what was in the end an emotional, baseless dislike.
+Even though the clown's appearance alone was frightening enough to ruin my day, what scared me the most was the way he looked at me, even from a distance I could tell that he was staring straight into my eyes, he was smiling so hard that it looked like the skin on his face will get ripped off by his unnatural smile, worst of all, he wouldn't stop smiling at all, his smile seemed to widen with every passing second.
 
-  
-I reasoned that I didn’t *really* have coulrophobia. I’m not *afraid* of them necessarily. I just hate them on a deep, primal level. Seeing one is like a huge spider suddenly landing on my shoulder; like any right-thinking person I’d jump and possibly scream. It doesn’t mean I’m afraid of spiders, only that I find their presence spine-chillingly unpleasant, especially when unexpected.
+At this point, I was completely frozen in place, my friend tapped me on the shoulder and said "Let's just go and grab the drinks, you don't have to look at that weirdo."
 
-  
-I turned and placed the cup down, thinking idly of Miss Moffet. She of the curds and whey fame. She probably detested clowns too. Perhaps she was sitting on a tuffet having left a birthday party like the one outside my window, where no doubt some gibbering fool was pirouetting around dressed in motley or whatever old-timey clowns did. And then to cap it all the damn spider ruined her afternoon.  
-Of course, she could have squashed a spider without doing life in prison. Not so the clown in the garden. More was the pity.
+I somehow powered through my panic attack and said "Sure, but I'm gonna stare at the bastard, can't be a coward forever, it's about damn time I try doing something about my problem."
 
-  
-‘Hi honey,’ Sonya called from within the house, just before the door slammed. I hadn’t even heard it open, so lost had I been in my musings. She came bustling into the kitchen from the hall, setting down a heavy sounding plastic bag and rustling around in it with a sigh. Grateful to have something to look at besides the grotesquely capering clown I reached for a can of tomatoes.
+My friend gave me a reassuring look and replied with a simple "Alright."
 
-  
-‘How’s the party?’ Sonya asked with a wry smile, as I balanced the can on the three others already sitting in the overhead cupboard.
+Another even more potent panic attack hit me as soon as I took only two steps towards the clown, I started crying, embarrassed, I barely mustered the strength to tell my friend that I'm going back to the apartment.
 
-  
-‘Did we need more tomatoes?’ I asked, eying the growing stash. She ignored me, handing me a packet of spaghetti. I wedged it behind some potatoes.
+I speed walked back to the house, I collapsed on the couch in tears as soon as I entered, Bob rushed to cheer me up by jumping on top of my back and purring.
 
-  
-‘It’s ok,’ I said, in response to her question. ‘Really hate that clown though.’
+It didn't take more than thirty minutes for my friend to return, he was proudly carrying two bags full of drinks and snacks like they were trophies.
 
-  
-She gave me a glowing smile and rubbed my back before returning to piling up groceries we didn’t need on top of those we hadn’t used.
+He put the bags on the nearby table, then cheerily, he started talking "You know, that clown wasn't that bad, one guy gave him some money and then he..."
 
-  
-‘I think you’ve done very well,’ she said with mock-seriousness, her head inside the lower cabinets. The clang of pans being moved punctuated her muffled curses as she searched for somewhere to hide the three-pack of tuna she’d bought.
+Before he finished his sentence, annoyed and exhausted, I said "Please, let's just drink, I don't want to hear about it."
 
-  
-I turned to glare at the clown. It was now making shapes out of balloons, its bright blue hair flapping in the light breeze. It happened to glance at the house, and I hastily looked away, as though the thing could see right into me with its red-painted eyes.
+He nodded understandingly and went to grab the whisky glasses.
 
-  
-‘Considering you’re so terrified of them I’m impressed,’ Sonya said, finally extricating herself from the cupboard. She gave me a grin as she started loading up the freezer. 
+Hours passed, after some time of heavy drinking we fell asleep on the couch, it wasn't an enjoyable nap for me, because a nightmare involving the supermarket clown which I would rather not describe woke me up.
 
-  
-‘I’m not terrified of them. I hate them.’
+I groggily went to the spare bedroom, but before going to bed, I realized that neither of us locked the front door, who knows how long we were asleep, it's not like this is a crime-free neighborhood, anyone could've entered the house.
 
-  
-‘You are. You scream when you see them on TV.’
+I walked as fast as I could towards the front door, I checked it and as expected, it wasn't locked, so I immediately locked it.
 
-  
-‘That was an insurance advert! It had nothing to do with clowns. I wasn’t expecting it.’
+I reassured myself that no intruder entered the house, then I went bed.
 
-  
-She giggled to herself, shoving a pack of frozen sausages between two bags of chopped onions.
+While lying in bed, morbid thoughts started attacking my mind, what if someone entered the house? What if the clown we saw earlier followed my friend home and is waiting for the opportunity to surprise us? 
 
-  
-‘Frozen onions?’ I said flatly. ‘We have knives you know.’
+The sequence of disturbing thoughts was instantly stopped by the sound of soft meowing.
 
-  
-‘Ooo don’t let the clown know that,’ she said, not glancing up, ‘I hear they’re deadly with a blade.’
+I was shocked to hear meowing coming from under my bed, but that shock was immediately replaced by a feeling of relief, even though Bob was just a cat, knowing he's here to protect me while I try to sleep was oddly putting my mind to rest.
 
-  
-‘Shut up,’ I muttered, looking outside again. The clown had a bright white face, red smudges around the eyes and was now smiling a garish, horribly exaggerated blue smile. It looked like a child’s painting of a happy face come nightmarishly to life. The billowing, golden outfit rippled in the breeze as it twisted the balloons, wrapping them around its gloved hands with an unseemly frenetic jubilance. All around it, the children stared up in wide-eyed hope of receiving a balloon. So innocent, so trusting. The clown glanced up, and I could have sworn it grinned at me. I looked away.
+After some time of rolling around in bed, I finally fell asleep to the sounds of soft meowing and purring.
 
-  
-‘Why do you hate them so much anyway?’ Sonya asked, shaking me from my increasingly creeped-out staring. I looked round. She was sitting by the freezer, having apparently decided it was jammed too full for the fish fingers she was holding.
+I woke up early next morning, considering my paranoia from last night, the sleep itself wasn't too bad.
 
-  
-I sighed and looked into my teacup, at the ice-cold liquid sloshing about inside.
+I found my friend playing with Bob in the living room.
 
-  
-‘I don’t know. I remember the first time I saw a clown though, and I hated it pretty much on sight. I was about five, six maybe. I was in the department store near where we lived, with my mum and my brother. He would have been two or three I suppose and I was meant to be watching him for mum. Thinking about it this is probably all her fault.’ I laughed, lost in the memory.
+I immediately told him "Bob's a real lifesaver, If it wasn't for him, It would've been damn near impossible for me to get some sleep last night."
 
-  
-Outside, the children laughed. So did the clown. It was a deep, raucous laugh. The sort of laugh you expect from a shaven headed man in the pub, not a bouncing children’s entertainer. I shuddered.
+He looked at me in confusion and asked "Whatcha mean?"
 
-  
-‘Anyway he wandered off, so I went to find him. I was scared of course, because I was six. I saw him on an escalator, which I remember thinking was huge. A massive, moving staircase going up into the sky. I was definitely scared of that. I remember looking up, watching him disappear, and then he was gone.’
+"Bob was keeping me company, he slept under my bed last night." I said with a smile.
 
-  
-‘So how come you don’t have a fear of escalators then?’ Sonya chuckled. I gasped in mock-outrage.
+"Nah, he was here with me, he slept right next to the couch." my friend immediately rebutted.
 
-  
-‘Are you making light of my debilitating personal tragedies?’
+"I heard him meowing in my room." I responded.
 
-  
-‘No, no heaven forfend. Please do continue.’
+"I know Bob thinks you're cool and all, but he always sleeps next to me, it's like a ritual of ours, you see..." He stopped mid-sentence, his calm demeanor was rapidly substituted by absolute fear.
 
-  
-‘Right,’ I said in my best indignant tone, ‘well some lady in a black dress with white spots appeared out of nowhere and picked me up. She carried me up the escalator – and this is why I hate your mother’s spotty dress by the way –’
+"Please, just trust me, follow me and don't ask any questions until we're out of the house." he said with an unusual shakiness in his voice.
 
-  
-‘Sure it is.’
+He picked up Bob and ran towards the front door, I followed him as he hastily unlocked it, he barely gave me enough time to put on my shoes before pushing me out of the house and then immediately locked the front door behind us.
 
-  
-‘–and there he was.’
+He rummaged through his pockets trying to find his phone, he quickly realized he left it inside the house so he turned towards me and said with noticable urgency in his voice "Give me your phone, we have to call the police." 
 
-  
-‘A clown?’
+I gave him the phone, but before he could use it I asked him "Can you at least tell me what the hell is going on?"
 
-  
-‘My brother. Watching a clown.’
+"You really wouldn't want to know." He brushed me off.
 
-  
-‘How shocking.’
+I snatched the phone out of his hand, with visible annoyance on my face, I said "I do want to know, I'm not giving you my phone before you tell me why you're acting like a mental patient."
 
-  
-‘It was!’
+"Fine, I'll tell you, but please stay as calm as you can." He told me before taking a deep breath.
 
-  
-She stood up, grabbing a bottle of white wine from the fridge and making her way over to where I stood. She reached behind me and opened the overhead cupboard; I just managed to avoid being smacked on the back of the head by squirming out of the way.
+"Yesterday, you cut me off before I could tell you why I didn't think the clown was so bad, you see, some guy gave him some money then the clown gave the guy some cards with pictures of animals on them, as soon as the guy picked the card he wanted, the clown would mimick the animal that was on the card, he imitated a frog, then a dog, the croaks and barks were exactly like the real thing, If I closed my eyes I wouldn't notice that a human being is making those sounds."
 
-  
-‘So this is your traumatic story? That you found your brother watching a clown once?’ She took out two glasses and started to pour the wine, glancing out at the clown who was now dancing in a faintly disturbing way, as though his limbs were nerveless appendages flapping around his body. She frowned.
+"Yeah, so?" I said in confusion.
 
-  
-‘I admit they are creepy,’ she said, taking a sip of wine.
+"Well, he could also do a cat impression." he said with a defeated look on his face.
 
-  
-‘Thank you.’ I picked my own up and gulped a large swig, looking pointedly away from the window.  
-‘It wasn’t that he was watching a clown,’ I added, somewhat defensively, ‘it was that he had wandered away to watch one. Up an escalator that even I found scary at the age of six.’
 
-  
-‘You said five.’
 
-  
-‘Whatever.’
 
-  
-She turned to face me, grinning that gently-mocking grin of hers.
 
-  
-‘So you’re saying you’re scared of clowns, because they make you feel like a scaredy-cat big brother frightened of escalators.’
 
-  
-‘Shut up.’
 
-  
-‘Aw sorry honey,’ she said in a syrupy voice, enveloping me in a hug which did not conceal the laughter she was ineffectually suppressing.
 
-  
-‘Still,’ she said, standing back and raising her glass in a short salute, ‘I am impressed with you for conquering your fears.’
 
-  
-‘Hardly,’ I returned, taking another swig of wine and daring a glance out of the window. It was strangely silent out there. The clown seemed to be bending low, talking in a whisper perhaps. The kids were leaning forward intently. ‘I just about managed not to freak out when he appeared but I’m not sure that counts as brave.’
 
-  
-She smiled, looking outside again. The clown was leading the kids in a dance.
 
-  
-‘Where did you even find him?’ she asked, ‘is there a check-a-trade for clowns?’
 
-  
-I stared at her, feeling the blood drain from my face. Outside, the dancing children had passed beyond the view of the window, following the clown.
 
-  
-‘What?’ I said sharply.
-
-  
-She looked at me.
-
-  
-‘What?’ she said back.
-
-  
-‘Don’t joke with me,’ I said flatly, ‘that is not cool.’
-
-  
-‘Seriously what?’ she said, a note of fear entering her voice.
-
-  
-‘You didn’t hire him?!’
-
-  
-‘No I thought you did!’
-
-  
-‘Why the hell would I hire a clown?!’
-
-  
-Sonya was already moving, shouting for Tommy at the top of her lungs. The wine glass smashed to the ground behind her running feet.
-
-  
-Outside, the screaming [started.](http://sdjackson.blogspot.com/2022/04/my-stuff-publications-and-stories.html)  
