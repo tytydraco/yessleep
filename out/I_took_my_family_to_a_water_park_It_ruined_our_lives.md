@@ -60,7 +60,7 @@ He wished us luck and I thanked him. My wife was beginning to cry. She was start
 
 “My son, I can’t find my son. Is there some announcement you can make, something?”
 
-The teen closed his eyes. “Yea, give me one sec. I kind of new, so, I think –”
+The teen closed his eyes. “Yea, give me one sec. I’m kind of new, so, I think –”
 
 “I don’t have a second. If you can’t help, then get me a god-damned manager!” I snarled.
 
@@ -146,9 +146,7 @@ The site fell silent.
 
 -------------------------------------------------------------------------------------------------------------------
 
-I slept in the bathtub that night. Locked the door to the bathroom too. I don’t know. I just didn’t feel safe. 
-
-I woke up screaming. Wandered around the house until I went for the newspaper.
+I woke up screaming the next morning. Wandered around the house until I went for the newspaper.
 
 After all the pieces were collected, the bones they found belonged to 10 unique skeletons. It was a reticulated python, the invasive one, twenty-six feet long. Found the humidity of the park nice and chose a place it wouldn’t be found.
 
