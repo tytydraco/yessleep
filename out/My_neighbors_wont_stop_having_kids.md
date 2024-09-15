@@ -36,6 +36,51 @@ The woman opened her mouth, but no words came out. I waited for her to answer. 
 
 James and I only had the time to nod before she was turning away, walking quickly back towards who I assumed must be her husband. I saw something move on the second floor of their house, baby blue curtains parting. I looked up and met the eyes of two more children. They appeared to be twin girls, maybe four or five. One of them waved. The other just stared. 
 
+Embarrassingly enough, we didn’t get to eat the casserole until several days later. Those days were full of hauling heavy boxes from our car and putting everything where it belonged, and my ears still rung with the sound of drills as I took the baking dish out of the freezer to thaw. 
+
+“It’ll be nice to eat something other than takeout,” James said, sitting at our kitchen table and resting his head in his hands. 
+
+“Yeah,” I replied. “But I’m not sure how I feel about two day old tuna.” 
+
+I walked over, nudging him with my hip. He pulled out his chair, guiding me down on his lap and wrapping his arms around my waist. 
+
+There was so much excitement in the air as we had set up our new home, but I felt like we hadn’t had any time to settle in yet. I had barely been alone with him in any meaningful way, it was the first time since our wedding day that we hadn’t been all over each other. 
+He pressed his mouth against my collarbone, trailing his lips up my neck and to my ear. I felt a giggle rise in my chest, running my fingers through his slightly oily hair. 
+
+“When’s the last time you showered?” I teased, and I felt him laugh against my skin. 
+
+“I was waiting for you, my love.” 
+
+I smiled. “You’re disgusting.” 
+
+“We’d better hurry up and eat, then.” 
+
+The oven dinged, letting me know it was preheated. It took everything in me to get up, off of James. 
+
+Right as my fingers wrapped around the handle, my other hand reaching for the casserole, I heard something. I froze, tilting my head towards the window. 
+
+The night was warm, and still. I could see warm yellow light glowing in the neighbors windows, a perfect caricature. 
+
+“Did you hear that?” 
+
+My husband didn’t seem to be paying attention, fiddling with a loose leg of his chair. “What do you mean?” 
+
+“I thought I heard something.” 
+
+Before I could dismiss it as delusion, it came again. It was a sound like a cat with its’ tail being stomped on, a faint yet bloodcurdling screech. I looked closer at the house, but nothing seemed amiss. There was an even louder moaning sound, and then another scream, far clearer this time. 
+
+“What was that?” James asked, now standing. I shook my head. 
+
+“I have no idea. Maybe the neighbors are watching a movie?”
+
+A crash, and another scream. Something moved in one of the windows, and then the curtains were yanked shut. 
+
+“Should I go and check?” 
+
+“I can do it…” My husband shifted nervously. I shook my head. He would do it, but I knew he didn’t want to. He had always been skittish, especially at night.
+
+“I’ll go.” I grabbed an oven mitt and tossed it at him. It hit his chest and fell to the kitchen floor. “Put in the casserole, I’ll be right back.” 
+
 The night felt even more quiet when I stepped outside, almost eerily so. The air felt so heavy and still, like I was standing inside of a painting of a street. My footsteps echoed against the pavement, and I tensed each time another scream rang out from the house. 
 
 “What the hell,” I muttered, half out of curiosity and half just to hear a human voice. 

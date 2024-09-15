@@ -198,7 +198,7 @@ And what she said next made me feel lightheaded.
 
 I froze. My hands trembled. “What are you talking about?” 
 
-“Do you think I don’t know why you did it?” 
+“Do you think I don’t know why you did it? Does she know about me?”
 
 I didn’t say anything else. I stared at her for another few seconds, like my feet were glued to the ground, and then I turned on my heel and I ran. I ran out of the hospital, ignoring the nurses and the receptionist calling out to me to come back. I burst out of the door into the cool evening air, my muscles screaming, and only then did I dare to look back. 
 
@@ -212,4 +212,4 @@ Then fear struck me again. 
 
 I swiped to my unopened voicemails, and I pressed on my oldest one, the one from that day when I was waiting for my wife to be ready to go home after her accident. My hands shook uncontrollably, and I had to hold on with both of them to keep from dropping my phone. 
 
-*“Hi, baby. Are you busy? I wish you would answer me, something’s going on… I don’t know. Maybe I’m just sick or something. Something’s going on with my eyes…”* 
+*“Hi, baby. Are you busy? I know you said not to call you at this number, I wish you would answer me, something’s going on… I don’t know. Maybe I’m just sick or something. Something’s going on with my eyes…”* 

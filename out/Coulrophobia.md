@@ -84,7 +84,7 @@ I snatched the phone out of his hand, with visible annoyance on my face, I said 
 
 "Yesterday, you cut me off before I could tell you why I didn't think the clown was so bad, you see, some guy gave him some money then the clown gave the guy some cards with pictures of animals on them, as soon as the guy picked the card he wanted, the clown would mimick the animal that was on the card, he imitated a frog, then a dog, the croaks and barks were exactly like the real thing, If I closed my eyes I wouldn't notice that a human being is making those sounds."
 
-"Yeah, so?" I said in confusion.
+"Yeah, so?" I asked, very confused by his story.
 
 "Well, he could also do a cat impression." he said with a defeated look on his face.
 
