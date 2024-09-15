@@ -4,7 +4,7 @@ It was supposed to be an easy gig. A late-night job to pay the bills. Nothing mo
 
 The gas station itself wasn’t much to look at, a dingy building that sat at the edge of a long, winding road that seemed to stretch into nothing. The main attraction was the bright fluorescent lights that flickered above the pumps and cast long shadows across the parking lot. Inside, it was just as unimpressive: aisles of chips and snacks, a small refrigerator stocked with energy drinks and sodas, and a counter where my coworker, Ray, sat behind the register.
 
-Ray was in his late forties, maybe early fifties, and had the look of a man who’d spent too many years on the night shift. His skin was pale, his hair thinning, and his eyes had that glazed-over, distant look that made me wonder if he ever really slept. He’d been at the gas station for years, or so he told me on my first night, and he didn’t say much else unless he had to.
+Ray was in his late forties, maybe early fifties, and had the look of a man who’d spent too many years on the night shift. His skin was pale, his hair thinning, and his eyes had that glazed-over, distant look that made me wonder if he ever really slept. He’d been at the gas station for years, or so he told me, and he didn’t say much else unless he had to.
 
 Tonight, as I clocked in and grabbed my flashlight, Ray was sitting behind the counter, sipping from a cup of coffee and staring out into the parking lot. He nodded at me when I came in but didn’t say anything at first. He didn’t need to.
 
@@ -222,7 +222,7 @@ My mouth went dry. This wasn’t Ray. It couldn’t be. But if it wasn’t, then
 
 It took a step toward me, and I backed away, keeping my eyes on the figure.
 
-It wasn’t him. It couldn’t be him. 
+It wasn’t him. It couldn’t be him.
 
 The sun’s first rays finally broke over the horizon, the pale light spilling into the parking lot. I kept my distance, edging toward my car, refusing to take my eyes off the figure standing in the gas station’s doorway.
 
