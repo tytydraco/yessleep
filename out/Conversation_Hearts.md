@@ -1,4 +1,4 @@
-[Part 2: The Retched Hunger of Parting](https://www.reddit.com/r/nosleep/comments/1fd5cxf/i_miss_you_i_cant_stand_the_hunger_when_we_arent/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 2: Longing With Teeth](https://www.reddit.com/r/nosleep/comments/1fd5cxf/i_miss_you_i_cant_stand_the_hunger_when_we_arent/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 Before I start there is one thing I have to say. Anyone who is annoyed, you are full well capable of scrolling past so I don't want to see any complaints. 
 
