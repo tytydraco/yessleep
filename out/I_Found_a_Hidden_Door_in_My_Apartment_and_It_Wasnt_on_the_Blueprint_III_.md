@@ -1,4 +1,4 @@
-I'm shaking. I don’t want to be here. I have to move. I  have to get out of here. My last post can be found [here].
+I'm shaking. I don’t want to be here. I have to move. I  have to get out of here. My last post can be found [[here](https://www.reddit.com/r/nosleep/s/kPtmerxeFv)].
 
 I’m posting this a couple days behind, so my apologies if things feel a little off-timeline. If I go silent for a while, please let Evelyn or my mom know what’s happening. Or contact the police. I’m from [redacted], and I run [redacted] Truck and Trailer Repair. My name is Jeremiah (redacted) but I go by Jay. 
 
