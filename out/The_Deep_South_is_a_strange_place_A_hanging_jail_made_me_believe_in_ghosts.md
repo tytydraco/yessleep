@@ -8,7 +8,7 @@ That’s what led me to my little friend group. Evie, Nick, Avery, Chris, and a 
 
 One of our favorite places to hang out was the park. It wasn’t much, just a small playground, a couple of picnic tables, and a swing set. But it was right smack in the middle of town, easy enough for all of us to meet up with the most minimal of transportation. Which was a good thing because I was the only one with a damned car, and everyone else was a freeloader. Nonetheless, every Friday after school got out, and even after graduating, we would all meet up to just shoot the shit and let off steam from the week. Then we would figure out where to go from there, often staying out until the morning hours despite having work the next day.
 
-Right next to the park is one of the town’s most famous landmarks- the old Hanging Jail. That’s what everyone called it, at least. It was finally made a historic landmark back in 2020, with the state of Georgia even putting money forward to restore and maintain it. Though I don’t know if they would have done that if they knew what was in the place.
+Right next to the park is one of the town’s most famous landmarks- the old [Hanging Jail](https://www.georgiatrust.org/places-in-peril/blackshear-city-jail/). That’s what everyone called it, at least. It was finally made a historic landmark back in 2020, with the state of Georgia even putting money forward to restore and maintain it. Though I don’t know if they would have done that if they knew what was in the place.
 
 I’ve had two experiences here. One as a small kid, only ten years old. The next was nearly a decade later at nineteen.
 
