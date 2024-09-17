@@ -313,19 +313,19 @@ Several minutes of quiet discussion passed, then Vanessa gasped, attracting ever
 
 We gathered around as she replayed the part of interest. It was when we had just figured out the planchette spelled the word ‘eyes.’ Everyone's voice echoed to us. 
 
- “Eyes?” John’s voice uttered from the recorder. 
+ *“Eyes?” John’s voice uttered from the recorder.* 
 
 A rushed out, slightly garbled whisper sounded out right after, and then Zack's voice.
 
-“Eyes, it said eyes! It did!” 
+*“Eyes, it said eyes! It did!”* 
 
 “Wait, can you rewind it and slow it down?” I asked. Vanessa nodded, and pressed a couple of buttons.
 
-“Eyes?”
+*“Eyes?”*
  
-“Can I have them?”
+***“Can I have them?”***
 
-“Eyes, it said eyes! It did!” 
+*“Eyes, it said eyes! It did!”*
 
 “It said ‘can I have them’!” John leaped backwards and pointed at the recorder. 
 
@@ -389,7 +389,7 @@ The phone rang as we allowed the tension to ooze out of our bodies, anticipating
 
 “Hey, man, we need some help-” Zack began. 
 
-“The bad man stole our eyes.” The eerie voice of a child whispered, and we all froze like deer in headlights as we heard it. “The bad man stole our eyes and now we can't leave. Please help us.” 
+*“The bad man stole our eyes.”* The eerie voice of a child whispered, and we all froze like deer in headlights as we heard it. *“The bad man stole our eyes and now we can't leave. Please help us.”* 
 
 Zack started to hyperventilate as he dropped the phone at his feet. Vanessa looked panicked as she desperately told him, “Your brother's just playing a prank! Tell him to come get us!” Zack shook his head vigorously, his breathing getting more and more out of control. 
 
@@ -407,7 +407,7 @@ Zack started to hyperventilate as he dropped the phone at his feet. Vanessa look
 
 “Okay, I- wait, children? You mean Yaz and the gang?” I asked. 
 
-“No, the children! I want to be there when they rip your eyes from your sockets, you filthy diseased bitch!” My mom's voice screeched, crescendoing into an unrecognizable unearthly howl, before the call suddenly dropped. 
+“No, the children! I want to be there when they ***rip your eyes from your sockets, you filthy diseased bitch!”*** My mom's voice screeched, crescendoing into an unrecognizable unearthly howl, before the call suddenly dropped. 
 
 “What the hell type of drug is your mom on?!” John stared at me with wide eyes. 
 
@@ -415,7 +415,7 @@ Zack started to hyperventilate as he dropped the phone at his feet. Vanessa look
 
 Three empty bars.
 
-‘No Signal.’
+**‘No Signal.’**
 
 “There's no fucking bars!” I cried, tears spilling down my cheeks. “We don't even have a signal!” They all scrambled to check their own phones, and the blue glow of their screens illuminated their horrified expressions. 
 
