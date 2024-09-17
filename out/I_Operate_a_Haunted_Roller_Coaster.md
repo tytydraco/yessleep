@@ -1,5 +1,3 @@
-I operate a Haunted Roller Coaster 
-
 I operate a “haunted” roller coaster is probably a better way to word it normally. I work at a local amusement park and have to push the button to let riders “prepare for their scare.” 
 
 I would tell you where it’s located, but I’m quite scared to for a few reasons. One of those may be for my safety. Another would be for yours if you felt like investigating. 
