@@ -136,7 +136,7 @@ Emily offered me her hand, and though my heart was pounding, I grabbed it. I cou
 
 She helped pull me up out of the bed.
 
-We stepped out through the window into the night together, leaving the only life I had ever known behind. I knew it would take time to remember my real life before captivity.
+We stepped out through the window into the night together, leaving the only life I knew behind. I knew it would take time to remember my life before captivity.
 
 The storm outside was raging, but I wasn’t afraid.
 
