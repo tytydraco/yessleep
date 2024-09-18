@@ -12,7 +12,7 @@ Then the drowsiness would set in as he sat and watched me.
 
 I would feel myself nodding off, dreaming about the future life waiting for me. 
 
-The next day was the same.
+The next day was always the same.
 
 Endless tests. Blood drawn like ritual offerings. Nurses plunging needles into my skin while my dad talked about my health and future treatments. 
 
@@ -30,7 +30,7 @@ Most of the other nurses had faded into the background, their faces blurring tog
 
 “The same,” I said, weakly.
 
-Emily stayed in the room longer than the others. She waited until we were alone one night, then asked me a question no else ever had.
+Emily stayed in the room longer than the others. She waited until we were alone one night, then asked me a question no one else ever had.
 
 “Do you ever wonder why you need these pills?” she asked one night, her voice calm but probing.
 
