@@ -44,7 +44,7 @@ I chuckled, thinking she was messing with me. 
 
 “Jesus…”
 
-“Four months later, the puppet was left on Randy’s porch with a note explaining that it was his son. Made by someone who cared. It only requires true belief to live.”
+“Four months later, the puppet was left on Randy’s porch with a note explaining that it was his son. Made by someone who cared. It only required true belief to live.”
 
 “That’s the dumbest -” I started saying before being cut off.
 
@@ -58,7 +58,9 @@ I chuckled, thinking she was messing with me. 
 
 "You die?" I said aloud.
 
-"That’s what you’re toast means," she scoffed.
+"That’s what you’re toast means," she scoffed. “My sister told me she heard about a high schooler who died. She lost her vision, then hearing, then couldn’t speak. A few days later, her heart stopped beating.”
+
+“What the fuck?!” Maurice nearly yelled.
 
 All three of us laughed.
 
@@ -74,7 +76,7 @@ Every time I saw Randy dragging that puppet into Kaldi’s, I felt this nagging 
 
 Months passed. 
 
-Almost every day, he brought in that damn puppet. Occasionally, I’d find myself staring at it blankly, transfixed almost. Sometimes I thought I saw it moving. Or had moved already and was now staring at me.
+Almost every day, he brought in that damn puppet. Occasionally, I’d find myself staring at it blankly, transfixed almost. Sometimes I thought I saw it moving. Or it had moved already and was now staring at me.
 
 But I would always smile and laugh at Kara’s stupid story.
 
@@ -88,7 +90,7 @@ At first, it was just making small talk about the weather.
 
 “We enjoy it very much,” he’d say back with a smile.
 
-I had never really acknowledged the puppet directly. It was a little too weird and unsettling for me, to be honest. Until last week when something came over me and I slipped.
+I had never really acknowledged the puppet directly. It was a little too weird and unsettling for me, to be honest. Until last week when something came over me and I slipped up.
 
 “What have you and your son been up to this weekend?”
 
@@ -98,9 +100,15 @@ Randy beamed a huge smile.
 
 “Amazing,” I said back to him. “Sounds like a top notch day.”
 
-“Then we’ll go swimming later,” he added. “You are a good boy, aren’t you?”
+“Then we’ll go swimming later,” he added. 
 
-He was still looking right at me. I didn’t know how to respond.
+“Even lovelier,” I said.
+
+Randy stared at me for a long while. As if he was studying me. The gaze was so deep and eery that it made the hairs on my arms stand up.
+
+“You are a good boy, aren’t you?”
+
+I didn’t know how to respond.
 
 “Let me grab your coffee,” I said with a feigned smile.
 
@@ -114,10 +122,20 @@ But this afternoon, while I was making a pumpkin cold brew for a customer… I f
 
 When I saw it, the world went silent.
 
-In the distance, I could see Randy walking in the park, pointing at all of the tall trees, whose leaves are just beginning to change color, while grasping the hand of a young boy beside him.
+In the distance, I could see Randy walking in the park, pointing at all of the tall trees, whose leaves are just beginning to change color, while grasping the hand of a young boy beside him. A real boy. 
 
-A real boy. 
+My stomach dropped. 
 
-My stomach dropped and hasn’t returned to its original position since.
+I couldn’t believe it. Something came over me and I ran to the window, I had to get a closer look. 
+
+There was no way…
+
+I was struggling to see them through the window. 
+
+The more I squinted, the more blurry they became. 
+
+I rubbed my eyes, then opened them.
+
+I saw nothing but blackness.
 
 I’m so fucked…
