@@ -48,7 +48,7 @@ Had someone been stalking him? How else could this book exist? The thought of it
 
 Once home, Kai locked all the windows and drew the curtains tight, his paranoia mounting. He spent hours pacing around, trying to make sense of what he had just experienced. Eventually, he decided to take a shower, hoping it would clear his head. But as he stepped out, drying his hair, he froze in horror.
 
-The book was there, lying on his dashboard as if it had never left the store.
+The book was there, lying on his dresser as if it had never left the store.
 
 “What the fuck?!” Kai yelled, his voice shaking. He grabbed a metal pole from his closet and searched the house, but there was no sign of anyone. Slowly, he approached the book, his heart thudding in his chest. This time, he was determined to destroy it.
 
