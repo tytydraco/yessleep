@@ -1,3 +1,5 @@
+[I ](https://www.reddit.com/r/nosleep/comments/1fif38t/i_work_abroad_at_a_japanese_theme_park_another/)- [II](https://www.reddit.com/r/nosleep/comments/1fjfvtd/i_work_abroad_at_a_japanese_theme_park_the/)  
+  
 The park was *supposed* to release a statement about the third kid going missing, but because there wasn’t quite enough evidence that it happened on company grounds, technically they didn’t have to.
 
 So they didn’t.
