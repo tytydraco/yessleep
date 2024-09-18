@@ -2,7 +2,7 @@ Ok, so I know everybody reading this will probably think I'm some nutcase. I'm p
 
 It all began 2 months ago.
 
-I had recently moved to British Columbia from Washington state for a new work opportunity. I had been interested in Canada and was still relatively close to my friends and family, so I took the role and moved to an city called Kelowna. Nature had always appealed to me and I was excited to move to a place where I could be surrounded by the beautiful scenery of the Okanagan Valley. I'm a pretty anxious guy and thought this move to a calmer, more scenic location would help me with that.
+I had recently moved to British Columbia from Washington state for a new work opportunity. I had been interested in Canada and was still relatively close to my friends and family, so I took the role and moved to a city called Kelowna. Nature had always appealed to me and I was excited to move to a place where I could be surrounded by the beautiful scenery of the Okanagan Valley. I'm a pretty anxious guy and thought this move to a calmer, more scenic location would help me with that.
 
 Unfortunately, what didn't help my anxiety was the difficulty in finding a place to rent. But after a few weeks, I managed to find a place with a great mountain view and a beautiful park within walking distance.
 
