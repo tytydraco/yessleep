@@ -22,8 +22,22 @@ Sometimes, I wonder if anyone else remembers, if the story still lingers in the 
 
 And then there are the balloons. Red ones. I used to see them sometimes, floating by the riverbank or caught in the branches of a tree. I always thought they were just left over from some birthday party, but now, looking back, I’m not so sure. I still see them in my dreams, bright and crimson, drifting silently down empty streets. It’s strange, how something so innocent can fill you with such dread.
 
-I used to think it was just me, that I was the only one who remembered. But recently, I’ve come across others—old friends, strangers who once lived in that town—who’ve hinted at the same unease. None of us say it out loud, though. We don’t dare. We just share a look, a knowing glance, and then quickly change the subject. Because deep down, we know that whatever it was, it’s still out there, waiting.
+About a week ago, I got a letter in the mail. No return address, just my name written in shaky, almost childlike handwriting. Inside, there was a single photograph—grainy, black and white, like it was taken decades ago. It was a picture of a group of kids standing in front of the old library in my hometown, smiling at the camera. But there was something wrong. In the background, just behind the children, there was a figure. A tall, thin man in a suit, his face obscured by shadow. And at his feet, a red balloon.
 
-And we all float on, pretending it’s not.
+My heart pounded as I stared at the photo, a cold sweat breaking out on my skin. I hadn’t thought about that place in years, and now it was coming back to haunt me. The letter didn’t include a note or an explanation—just that single, haunting image. I wanted to throw it away, to pretend I never saw it, but something stopped me. Instead, I placed it in a drawer and tried to forget about it.
 
-But it is.
+But I couldn’t.
+
+Two nights ago, I heard the voice again. The same soft, melodic lullaby, drifting through the air like it had years ago. This time, though, it wasn’t outside my window. It was in my house, just outside my bedroom door. I froze, too terrified to move, as the voice called my name, over and over, growing louder with each repetition.
+
+When I finally mustered the courage to open the door, there was nothing there. Just the dark, empty hallway. But on the floor, right outside my bedroom, was a red balloon, bobbing slightly as if someone had just let it go.
+
+I knew then that it wasn’t over, that whatever haunted that town hadn’t forgotten me. It had found me again, and this time, it wouldn’t let go.
+
+Last night, I made a decision. I’m going back. Back to that town, back to where it all started. I don’t know what I’ll find, but I can’t keep running. Whatever this thing is, it’s coming for me, and if I’m going to stop it, I need to confront it.
+
+I booked a ticket for the first flight out tomorrow morning. I haven’t told anyone where I’m going. I’m not sure I’ll come back. But there’s one thing I know for certain: I’m not the only one it’s after. And if I don’t do something, if I don’t end this, it will keep hunting, keep feeding, until there’s nothing left.
+
+So, if you’re reading this, be careful. Pay attention to the signs—the missing children, the voices, the balloons. And if you ever hear a lullaby in the night, don’t listen. Whatever you do, don’t follow it.
+
+Because once it finds you, it never lets go
