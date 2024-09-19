@@ -1,4 +1,4 @@
-I was scared Betty thought I forgot. My greatest fear isn't being knifed, shot, poisoned, strangled, buried alive, waterboarded, chain-sawed or even put in solitary. My greatest fear is something might go wrong and spoil our special day together.
+I was scared Betty thought I forgot. My greatest fear isn't shark attack, burning to death in a fire, being gut shot, kidnapped, strangled, buried alive, black-widowed, waterboarded, axed, chain-sawed or even put in solitary confinement. My greatest fear is something might go wrong and spoil me and Betty's special day together.
 
 The skinny little pink and white barber's pole candles were getting expensive. And each year there was one more required. Some might say I could just switch to the numbered ones. But they probably don't love their Betty buttercups the way I do, no siree, Bob, thank you very much.
 
@@ -26,28 +26,32 @@ Becky and I gave Betty a ride home and we smoked a joint and talked about Ren & 
 
 "Well, are you going to tell me your wish?" I asked, Betty.
 
-Betty gave me the coy look again. I knew what it meant. I felt my blood rush to my face. I leaned in my cheek towards Betty's face, my cheek gently brushing Betty's ruby red painted lips. She knew I loved her lips festive. I cocked my head gently to the left.
+Betty gave me the coy look again. I knew what it meant. I felt my blood rush to my face. I leaned my head in towards Betty's face, my cheek gently brushing ruby red painted lips. She knew I loved her lips festive. I cocked my head gently to the left and said, "Tell me."
 
-"Hmmm?"
+She did.
 
-Betty held my gaze. She could do that. She was very persistent.
+"Hmmm?" I asked feigning surprise. I turned to look Betty in her eye. The fly was back. Just like the back of my hand it was gone again.
 
-I nodded.
+Betty held my gaze. She could do that. She could be persistent.
 
-Betty showed me that mischievous twinkle in her eye once again. It was the one that said we were going to be very bad, and that that was going to be very good.
+I nodded with mock seriousness.
+
+Betty flashed me that mischievous twinkle in her eye again. I knew it well. It was the one that said we were going to be very bad, and that, ***that***, was going to be very good.
 
 "Did you want to do these heinously immoral acts before or after butternut frosted birthday cake, my Betty buttercup?" I asked.
 
-Betty suddenly cocked her head towards the couch and kept it that way.
+Betty suddenly cocked her head towards the couch and kept it that way. I caught myself frowning and righted course.
 
-"Well," I said. "It's your wish. Your birthday."
+"Well," I said glancing at the couch, and then back at Betty with what felt like a wolfish grin. "Your wish. Your birthday."
 
-I gently lifted Betty's head by the chin. Righting it's angle our lips touched and grew into a passionate kiss. I carried Betty like a doll in my arms to the couch. When it was over we stayed there in post-coital languor for at least a few Marlboros. I heard the crickets through the open window and thought about how time keeps slipping into the future.
+I gently lifted Betty's head by the chin. Righting its angle away from rather odd, our lips touched. Then it went from touching to a passionate kiss. It felt a year since we had kissed. I carried Betty like a doll in my arms to the couch. And then I granted Betty her birthday wish.
 
-When Betty and I were done and back at the table I took a bite of cake. I asked Betty if she liked hers. I noticed she had gotten frosting all over her lips and chin. I guess that meant yes. When we were finally done with the annual festivities, I walked with Betty back down the long marble hallway until we arrived at her room. The gold-plated name tag on the door read, "Betty No. 1: 7/16/2003".
+When it was over we stayed there in post-coital languor for at least a few Marlboros. I heard the crickets through the open window and thought about how time keeps slipping into the future.
 
-I knew Betty wanted me to stay the night but tomorrow was coincidentally Becky's birthday and I knew she'd want a cake and kisses and wishes just like Betty always did. And, Barbara, oh my gosh, Barbara's birthday would be coming up pretty soon too. And Beatrice. And then there's Belinda, Betsy, Billie, Bonnie, Bertha, Bessie, Brooke, Bailey, Brittney and Broomhilida. *Noooo*..., just kidding. Who would be dopey enough to end a girl named, Broomhilda?
+When Betty and I were done and back at the table I took a bite of cake. I asked Betty if she liked hers. I noticed she had gotten frosting all over her lips and chin. I guess that meant yes. When we were finally done with the annual festivities, I walked with Betty back down the long marble hallway until we finally arrived at her room. The gold-plated name tag on the mahogany door read, "Betty No. 1: 9/18/2004".
+
+I knew Betty wanted me to stay the night but tomorrow was coincidentally Becky's birthday and I knew she'd want a cake and kisses and wishes just like Betty always did. And, Barbara, oh my gosh, Barbara's birthday would be coming up pretty soon too. And Beatrice. And then there's Belinda, Betsy, Billie, Brigette, Bardot, Bonnie, Bertha, Bessie, Brooke, Bailey, Brielle, Brittney, Brianna and ***Broomhilida***. *Noooo*..., just kidding. Who would be dopey enough to go for a girl named, Broomhilda?
 
 Yes, it was a full house of birthday girls whose names all began with the letter, "B," and who all were just sure I was the Bee's Knees.
 
-Life's pretty great when you have a private island. I just wish somebody would remember my birthday once in a while. Oh well, time to find a Beryl, Bianca, Barbara or Bambi who maybe, just maybe might be more considerate of my special day. And actually, there's still spare rooms to fill on the hall and dead weeks in May, October and August.
+Life's pretty great when you have a private island. I just wish somebody would remember my birthday once in a while. Oh well, time to find a Beryl, Bianca, Barbara, Bethany or Bambi who maybe, just maybe might be more considerate of my special day. And to be frank as a hot dog and far from discreet, I still have a lot of vacancies to fill on that long marble hall and more dead days and weeks in May, October, December and August than a mansion's got a right to. Who said birthdays were the worst days?
