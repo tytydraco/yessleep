@@ -18,11 +18,11 @@ Okay, enough exposition. This happened on the last night that I was watching ove
 
 
 
-I had fed Cooper and let him outside before I went to work. I’d fed him a little extra, because I knew that I would be coming home late, and I wouldn’t be able to feed him at the usual time. When I finally got off work, the sun was almost set, and it was beginning to get dark outside. I punched in the code to the main gate to get into the property, and parked my car. This was when I first noticed something was off. Cooper usually comes to greet me when I arrive back at the house, but he was nowhere to be seen. I had brushed it off, and figured it was because I came back so late in the evening.
+I had fed Cooper and put him outside before I went to work. I’d fed him a little extra, because I knew that I would be coming home late, and I wouldn’t be able to feed him at the usual time. When I finally got off work, the sun was almost set, and it was beginning to get dark outside. I punched in the code to the main gate to get into the property, and parked my car. This was when I first noticed something was off. Cooper usually comes to greet me when I arrive back at the house, but he was nowhere to be seen. I had brushed it off, and figured it was because I came back so late in the evening.
 
 
 
-When I had finally entered the house, I saw cooper outside, sitting behind the sliding glass door that led to the backyard. He remained still, staring into the house. It was strange seeing him like that, since he’s usually jumping at the door, eager to be let inside and get his dinner and some pets. Again, I ignored it and went to fill his food bowl before letting him inside. When he sees me doing this, he usually gets ecstatic, like it's his first time seeing food. I had glanced back, and saw him with that same stare, still motionless, waiting for me to let him inside.
+When I had finally entered the house, I saw cooper outside, sitting behind the sliding glass door that led to the backyard. He remained still, staring into the house. It was strange seeing him like that, since he’s usually jumping at the door, eager to be let inside and get his dinner and some pets. Again, I ignored it and went to fill his food bowl before letting him inside. When he sees me doing this, he usually gets ecstatic, like it's his first time seeing food. I had glanced back, and saw him with that same stare, still motionless, waiting for me to open the door.
 
 
 
@@ -38,7 +38,7 @@ It was quite hard to hear over the show that I was watching, but it was definite
 
 
 
-Eventually—and reluctantly—I gave in, and got up to see what it was. I had to do a double take when I got to the sliding glass door. Jumping at the door, trying to get in, was Cooper. At first, I thought it was another dog that just so happened to look exactly like Cooper, who I had let inside when I first got back to the house, and was sitting in the living room, still as a statue. But the dog that was outside looked *exactly* like Cooper. It had to be Cooper; his mannerisms were the same, and he was energetically jumping at the door, desperate for me to let him inside. And so I did.
+Eventually—and reluctantly—I gave in, and got up to see what it was. I had to do a double take when I got to the sliding glass door. Jumping at the door, trying to get in, was Cooper. At first, I thought it was another dog that just so happened to look exactly like Cooper, who I had let inside when I first got back to the house, and was sitting in the living room, still as a statue. But the dog that was outside looked *exactly* like Cooper. It had to be Cooper; his mannerisms were the same, and he was energetically jumping at the door, desperate for me to open it. And so I did.
 
 
 

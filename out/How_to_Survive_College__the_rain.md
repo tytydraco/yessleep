@@ -199,3 +199,5 @@ And then when the rain was something *more*, something inhuman, possibly even so
 The university president did something monstrous.  He took an inhuman force of nature, something that didn’t think or feel as we understand it, and he shoved it into human flesh and give it all those things it never would have had.  I can’t blame Grayson for not wanting to go back.
 
 And because I felt my resolve crumbling, because I kept seeing the swimmers falling apart in front of me and thinking that I wouldn’t be scared, I *would* have power, I’d be ancient myself - I ran.  I ran and ran and it was useless, so fucking useless, because the rain fell everywhere [I](https://alderrayne.com/) [went.](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1fkavp0/how_to_survive_college_the_eternal_loser/)
