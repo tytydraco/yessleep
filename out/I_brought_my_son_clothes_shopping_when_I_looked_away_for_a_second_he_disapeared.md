@@ -48,9 +48,9 @@ The police said the handcuffs were for my own safety as they were putting me in 
 
 There was no evidence to suggest I wasn’t who I was saying I was, so the police had no reason to keep me once we got back to the police station.
 
-Although I promised the police I wouldn’t go back to the house, I had no choice; it was my house after all. It felt like I had my identity hijacked; there was even a moment where I doubted who I was, but I wasn’t crazy, and I knew who I was. 
+Although I promised the police I wouldn’t go back to the house, I had no choice; it was my house after all. It felt like I had my identity stolen, there was even a moment where I doubted who I was, but I wasn’t crazy, and I knew who I was. 
 
-I sat outside the house, heart pounding, trying to make sense of the madness. I knew I had to confront them. I wasn’t crazy; I knew who I was. I gathered my nerve and walked to the door, pounding on it until my husband opened the door. The frustrated and cold expression on my husband's face as my son clung to his leg shattered my soul. 
+I sat outside the house, heart pounding, trying to make sense of the madness. I knew I had to confront them. I gathered my nerve and walked to the door, pounding on it until my husband opened the door. The frustrated and cold expression on my husband's face as my son clung to his leg shattered my soul. 
 
 "Sam, please! You have to listen to me!" I begged.
 
@@ -92,9 +92,9 @@ I stood frozen as the rage built inside me. As soon as her smug words hit me, so
 
 "You're making a mistake," she hissed. 
 
-I tried to fight back, but she was terrifyingly strong. She grabbed me by the collar and threw me against the wall, the impact sending shockwaves through my body. Dazed, I scrambled to my feet, my only thought now survival.
+I tried to fight back, but she was terrifyingly strong. She grabbed me by the collar and threw me against the wall, the impact sending shockwaves through my body. Dazed, I scrambled to my feet, my only thought now was survival.
 
-She lunged for me again, but I dodged her grasp, running toward the stairs. I could hear her footsteps pounding behind me, getting closer. My heart raced as I sprinted up the stairs, desperate to get away. But just as I reached the top, she grabbed my ankle, pulling me backward. I kicked out wildly, and in one desperate move, I twisted and shoved her as hard as I could.
+She lunged for me again, but I dodged her grasp, and ran toward the stairs. I could hear her footsteps pounding behind me, getting closer. My heart raced as I sprinted up the stairs, desperate to get away. But just as I reached the top, she grabbed my ankle, pulling me backward. I kicked out wildly, and in one desperate move, I twisted and shoved her as hard as I could.
 
 She toppled backward, tumbling down the stairs. I heard the sickening crack as her neck snapped at the bottom and her body twisted unnaturally. For a moment, there was silence, and I caught my breath, thinking it was over.
 

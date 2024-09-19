@@ -260,7 +260,7 @@ He continued to gaze at her as if trying to determine the most efficient way to 
 
 “Why?” I demanded. 
 
-“Because we're gonna have an unwanted visitor.” He gave me a harsh sideways glance. “And as you probably knew already, The White Son of Mist gathers us all to join him in a great Hunt that night. ‘Cause of that, I won't be ‘round to stop it.”
+“Because we're gonna have an unwanted visitor.” He gave me a harsh sideways glance. “And as you probably knew already, The White Son of Mist gathers us all to join him in a great Hunt that night. ‘Cause of that, I won't be available to stop it.”
 
 *Oh, here we go.* 
 
@@ -390,7 +390,7 @@ She looked down with a tinge of regret, “I’m afraid not.”
 
 Deirdre continued, her thumb grazing my cheek affectionately. “Though, I still enjoy being close to you. The river may have taken away my ability to feel things physically, but my heart is still intact. Despite your suitor's best efforts, of course.”
 
-Maybe that's why her hugs are so tight. She can't feel how hard she squeezes. 
+Maybe that's why her hugs are so tight. She can't feel how hard she squeezes. Upon further discussion, the only thing she is able to feel is the tug of the river. 
 
 She then added with a mischievous smirk, “And I must admit that I do enjoy using my  numbness to get the Huntsmen to do my bidding. What better way could there be to refute those that enjoy causing pain than to simply not feel pain?” 
 
