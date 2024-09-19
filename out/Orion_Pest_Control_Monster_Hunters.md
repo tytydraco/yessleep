@@ -427,6 +427,8 @@ Sorry this update was a bit later than usual. As yinz can see… I've had my han
 
 At least now I know that he considers the Cookie Hag to be a genuine threat. I'll let yinz know if he makes a decision. And I think I have a girlfriend, now. So that’s something. 
 
+Update: [the mechanic is still an evil bastard. And the Cookie Hag somehow manages to be worse.](https://www.reddit.com/r/nosleep/s/QRV2CGCSe2)
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
 
