@@ -14,4 +14,4 @@ I accepted my fate just as the stones beneath me shuddered again, when something
 
 I quickly ascended the steps running back to the streets with my heart pounding in my chest, my body drenched in cold sweat. The Manikarnika Ghat was behind me now, but the unease lingered.
 
-Even now, as I sit here, writing this - the memories of the smoke, the eyes, the divine intervention continues to haunt me.
+Even now, as I sit here, writing this - the memories of the smoke, the eyes, the divine intervention continues to haunt me. From that night onwards, every time I close my eyes - I see it's eyes watching me, marking me, sending chills down my spine and the there's a constant coldness in my bones now that reminds me of the dread I felt that day. A part of me never really left those ghats.
