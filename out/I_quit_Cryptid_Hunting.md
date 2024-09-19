@@ -1,0 +1,30 @@
+Hello everyone.
+
+My name is Alex. I’m a Cryptid Hunter who travels across many states that claim to have them - Goatman, Michigan Dogman, Werewolf, Yeti. Hell, I even dived into Loch Ness River just to find the monster before the picture was confirmed to be fake.
+
+Anyway, one day, I was scrolling through the news on a boring Monday morning and I came across this one. **"8 Missing People, A Mine in Tennessee closed."** Well, if anyone read it, they would think **"Oh, that's sad,"** and then scroll away right? But for me. I can feel something. I feel like I'm being called to that place. I feel like there is something that must be inside that mine. So I decided to go and explore that mine.
+
+Oh, I wish I hadn’t gone to that place.
+
+When I arrived at the mine, I found it located in a mountain near a rural area of Tennessee. It was fairly old and in pretty shabby condition. The cave was completely dark inside. As I was about to take a photo with my old camera, Well I guess God wasn't on my side because a heavy rain started pouring down, and I had to seek shelter behind a big tree behind me. Nope, I take my words back. Lightning struck the tree I was taking shelter in. causing it to start falling apart. In a panic, I tried to run into the mine for safety, but I slipped in the mud and fell inside. Now, I am safe inside the mine, but the tree has completely blocked the entrance. **"Oh for fuck sake,"** I said to myself. I tried looking for my flashlight but nope. Nowhere to be found. I guess I dropped it when I slipped in the mud. Right now I only have a dying phone and a shabby old camera. I tried calling the rescue team but there's no signal in here at all. While I was panicking I saw a huge map nailed into the wall and there was good news and bad news. The good news is that this mine has a second exit. 
+
+The bad news is... it's so far away from where I am. Fuck... Do I really have to go all the way there with the light from a dying phone? Then I have an idea. The camera produces a little flash of light right? I could use the flash of my camera as a light source. I took a picture in front of me 
+
+**click**
+
+The mine that was once pitch black was brightened up for only a few milliseconds but I could see everything clearly. After a while of walking and taking pictures, I smell something. Something very awful. It smelled like a bunch of dead fish that had been rotten for decades under a rotten sock.
+I know this isn't normal. But I must go forward.
+
+**click** **click** **click**
+
+As I walk, the stench is getting worse and worse. To the point, I puked along the way. I took another picture and heard a grunting sound. What I saw was a man... he was covering his eyes in pain. **"Agh..."** he grunted before looking at me. How do I describe his face..? He looks like he was forced to watch his family murdered right in front of him. He looked so pale and shocked and his whole body was shaking. Then he rushed toward me and covered my mouth. **"Don't. You. Dare. Make. A. Sound."** He whispered in a shaken voice. I took his hand off my face and I have to admit that he smells awful but this is not the time to complain. I asked, "What are you doing here?" He grabbed onto my shirt and angrily whispered. **"I SAID DON'T MAKE A SOUND"** **"Jeez I get it I get it,"** I whispered back to him. We had a little conversation we exchanged our names and his name is Jim.
+**"Jim... Are you one of the missing miners?"** I asked him. **"Missing? What? How long has it been?"** He asked me. **"Not that long only a few days,"** I answered. **"What? But it felt like years had passed... Wait, If you came all the way here then you know where the exit is... right? YOU KNOW WHERE IT IS RIGHT CAN YOU TAKE ME THERE? CAN YOU-"** he asked me so many questions that my brain couldn't even process them. We heard a loud screech. 
+
+
+A blood-curdling screech was followed by rapid footsteps. It sounded like someone was running so fast that the ground tremors. **"Oh shit."** He quietly whispered before dragging me to the wall of the cave. I can feel it. I know something just ran through me. Jim covered my mouth and made a **"Shh..."** finger. I looked around as my eyes adapted to darkness and I saw it. It's a man... A very tall man, probably over 7'1. He looks malnourished because he is very thin and I could see his ribs, spine, and... tail??? No. That is not a man. That thing... it looked at us. And what I saw... his no. Its face is of a bat. Its body is covered in fur and the place where its eyes were supposed to be are replaced by 2 big ears. It 'looked' around trying to locate us but failed and then it screeched. It let out a deafening screech that made both of us dizzy but we were too scared to move, let alone make a single noise. It's upset that it couldn't find its prey. Then it started to run. 
+
+And oh lord... it's so fast. It's almost as if that thing disappeared in front of our eyes. Jim let go of his hand and let out a huge yet small sigh. **"Well that thing almost got us"** He whispered. **"What the hell was that?"** I asked him **"Do I fuckin' know? That thing... it killed my friend, my dad, my brothers and now it wants me dead. We're never getting out of this place man"** he sobbed. **"No, We will get out of this fucking hellhole, I already took the picture of a map and both of us will make it to another exit."** I told Jim, trying to encourage him. **"You did?"** He asked me. **"Uhh yeah."** I can see a faint smile forming on his face when I told him we have a map. We will make it out of this hellhole. I swear.
+
+
+
+I am discussing with Jim about what to do next as I am typing right now. I will give an update soon when I have time. Oh, and my phone is muted by the way. Please give me advice on how I can get the hell out of this place. As for why I'm not using the lights from my phone. Well, It's because my phone is pretty much dying and I wanted to use it for emergency.
