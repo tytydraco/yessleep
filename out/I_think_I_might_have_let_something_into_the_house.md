@@ -30,11 +30,11 @@ And without a second thought, I did. When I opened the sliding glass door, he im
 
 
 
-By this time, it was fully dark outside, and I was sitting on the couch, watching TV in the living room. Cooper sat next to his bed over near the corner of the room. I could see him out of the corner of my eye, still motionless. 
+By this time, it was fully dark outside, and I was sitting on the couch, watching TV in the living room. Cooper sat next to his bed at the far end of the room. I could see him out of the corner of my eye, still motionless. 
 
 
 
-It was quite hard to hear over the show that I was watching, but it was definitely there. Every once in a while, I would hear it; a scratching sound coming from behind me at the sliding glass door. With the TV on, and me being as tired as I was, I disregarded it. But it kept happening. Over and over and over again. The scratching only intensified, and soon it was constant. There was an urgent tone to it, like whatever was scratching at the door *needed* to get in. 
+It was quite hard to discern over the show that I was watching, but it was definitely there. Every once in a while, I would hear it; a scratching sound coming from behind me at the sliding glass door. With the TV on, and me being as tired as I was, I disregarded it. But it kept happening. Over and over and over again. The scratching only intensified, and soon it was constant. There was an urgent tone to it, like whatever was scratching at the door *needed* to get in. 
 
 
 
