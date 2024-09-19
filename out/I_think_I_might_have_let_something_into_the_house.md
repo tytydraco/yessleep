@@ -22,7 +22,7 @@ I had fed Cooper and let him outside before I went to work. I’d fed him a litt
 
 
 
-When I had finally entered the house, I saw cooper outside, sitting behind the sliding glass door that led to the backyard. He was remained still, staring into the house. It was strange seeing him like that, since he’s usually jumping at the door, eager to be let inside and get his dinner and some pets. Again, I ignored it and went to fill his food bowl before letting him inside. When he sees me doing this, he usually gets ecstatic, like it's his first time seeing food. I had glanced back, and saw him with that same stare, still motionless, waiting for me to let him inside.
+When I had finally entered the house, I saw cooper outside, sitting behind the sliding glass door that led to the backyard. He remained still, staring into the house. It was strange seeing him like that, since he’s usually jumping at the door, eager to be let inside and get his dinner and some pets. Again, I ignored it and went to fill his food bowl before letting him inside. When he sees me doing this, he usually gets ecstatic, like it's his first time seeing food. I had glanced back, and saw him with that same stare, still motionless, waiting for me to let him inside.
 
 
 

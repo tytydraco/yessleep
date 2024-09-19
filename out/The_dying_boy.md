@@ -6,21 +6,19 @@ He walks in almost every morning at 8:45 a.m. sharp, orders a small black coffee
 
 A puppet.
 
-Not some ventriloquist dummy or a kid’s toy. This thing’s seriously unsettling. 
-
-Pale as hell, with no face, no features at all—just a blank white head with a pair of limp cloth arms and legs. 
+Not some ventriloquist dummy or a kid’s toy. This thing’s seriously unsettling. Pale as hell, with no face, no features at all—just a blank white head with a pair of limp cloth arms and legs. 
 
 Randy holds it by the hand, drags it into the café, and sits it down across from him like they’re having breakfast together. Sometimes, he talks to it, whispering, like he’s expecting it to talk back. Other times, he just stares out the window, his hand resting on the puppet’s shoulder, like they were waiting for something—or someone.
 
-At first, like most people, I laughed. How could you not? 
+At first, like most people, I laughed.
+
+How could you not? 
 
 Grown man, late-forties, walking around Clayton with a faceless puppet, acting like it’s his kid. Even the regulars, who were usually buried in their laptops or textbooks, couldn’t help but look up and smirk. We baristas made our share of jokes too. 
 
 I joined in too much, I’ll be honest. I regret it.
 
-Sometimes we’d even ask Randy if his friend wanted a piece of pumpkin bread. He’d smile warmly and explain that his son already had breakfast.
-
-It basically became part of the daily routine, just like his order.
+Sometimes we’d even ask Randy if his friend wanted a piece of pumpkin bread. He’d smile warmly and explain that his son already had breakfast. It basically became part of the daily routine, just like his order.
 
 Then Kara, who had been working at Kaldi’s for years, pulled me aside one morning. Kara wasn’t the type to joke around, which is probably why her words caught my attention.
 
@@ -54,7 +52,7 @@ I chuckled, thinking she was messing with me. 
 
 “What?” I asked.
 
-“Part two of the story is that the spirit of whatever that thing is has to take lives to keep living for Randy. And when you see the puppet for who it really is, which is some dark spirit, you know you’re next. You’re toast.”
+“Part two of the story is that the spirit of whatever that thing is has to take lives to keep living for Randy. And when you see the puppet for who it really is, you know you’re next. You’re toast.”
 
 "You die?" I said aloud.
 
@@ -70,13 +68,13 @@ But the thing is, after that conversation with Kara, I couldn’t shake the feel
 
 It’s that old saying. You can’t put the genie back in the bottle.
 
-Well, that’s what this was to me. 
-
-Every time I saw Randy dragging that puppet into Kaldi’s, I felt this nagging sense of unease creep up my spine. 
+Well, that’s what this was to me. Every time I saw Randy dragging that puppet into Kaldi’s, I felt this nagging sense of unease creep up my spine. 
 
 Months passed. 
 
-Almost every day, he brought in that damn puppet. Occasionally, I’d find myself staring at it blankly, transfixed almost. Sometimes I thought I saw it moving. Or it had moved already and was now staring at me.
+Almost every day, he brought in that damn puppet.
+
+Occasionally, I’d find myself staring at it blankly, transfixed almost. Sometimes I thought I saw it moving. Or it had moved already and was now staring at me.
 
 But I would always smile and laugh at Kara’s stupid story.
 
@@ -96,7 +94,7 @@ I had never really acknowledged the puppet directly. It was a little too weird a
 
 Randy beamed a huge smile.
 
-“Oh, we just finished a long walk in the park. It’s stunning outside! Now we’re here, of course. Drink a coffee and then I’ll think we’ll take a long walk home.”
+“Oh, we just finished a long walk in the park. It’s stunning outside! Now we’re here, of course. Drink a coffee and then I’ll think we’ll take the scenic path back home.”
 
 “Amazing,” I said back to him. “Sounds like a top notch day.”
 
@@ -104,9 +102,9 @@ Randy beamed a huge smile.
 
 “Even lovelier,” I said.
 
-Randy stared at me for a long while. As if he was studying me. The gaze was so deep and eery that it made the hairs on my arms stand up.
+Randy stared at me for a long while. As if he was studying me. The gaze was so deep and eerie that it made the hairs on my arms stand up.
 
-“You are a good boy, aren’t you?”
+“You're a good boy, aren’t you?”
 
 I didn’t know how to respond.
 
@@ -118,7 +116,7 @@ I watched Randy the rest of the morning, and noticed he couldn’t stop smiling 
 
 Then he left as usual and I breathed a sigh of relief.
 
-But this afternoon, while I was making a pumpkin cold brew for a customer… I found myself looking and gazing out our big shop windows, out at the park across the street.
+But this morning, while I was making a pumpkin cold brew for a customer… I found myself looking and gazing out our big shop windows, out at the park across the street.
 
 When I saw it, the world went silent.
 
@@ -126,16 +124,12 @@ In the distance, I could see Randy walking in the park, pointing at all of the t
 
 My stomach dropped. 
 
-I couldn’t believe it. Something came over me and I ran to the window, I had to get a closer look. 
+I couldn’t believe it. My heart pounded in my chest as something urged me towards the windows. I had to get closer. There was no way…
 
-There was no way…
+I pressed my face against the cold glass, hands trembling as I tried to focus.
 
-I was struggling to see them through the window. 
+But the more I squinted, the blurrier Randy and the boy became. I closed my eyes and rubbed them hard, telling myself it had to be a coincidence.
 
-The more I squinted, the more blurry they became. 
+When I reopened them, all I saw was blackness.
 
-I rubbed my eyes, then opened them.
-
-I saw nothing but blackness.
-
-I’m so fucked…
+I’m so fucked...
