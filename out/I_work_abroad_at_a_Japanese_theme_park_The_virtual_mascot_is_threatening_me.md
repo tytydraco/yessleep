@@ -1,4 +1,6 @@
-[Previously](https://www.reddit.com/r/nosleep/comments/1fif38t/i_work_abroad_at_a_japanese_theme_park_another/), my girlfriend Aiko and I had rescued a missing child. 
+[I ](https://www.reddit.com/r/nosleep/comments/1fif38t/i_work_abroad_at_a_japanese_theme_park_another/)- [II](https://www.reddit.com/r/nosleep/comments/1fjfvtd/i_work_abroad_at_a_japanese_theme_park_the/) - [III](https://www.reddit.com/r/nosleep/comments/1fk8bx7/i_work_abroad_at_a_japanese_theme_park_the/)
+
+Previously, my girlfriend Aiko and I had rescued a missing child. 
 
 You might think I deserved to feel like a hero, that I might be filled with pride or honor. But instead my chest tightened with a damp, foreboding heaviness.
 
@@ -342,7 +344,7 @@ The mention of Aiko riveted me to the floor. I stared at the screen unblinking.
 
 “What do you know about Aiko?”
 
-"Watashi mo Sonoko no koto ni tsuite kanojo ni messēji o okurimashita."   
+"Watashi mo Sonoko no koto ni tsuite kanojo ni messēji o okurimashita."  
 *(I messaged her about the kid too. She was so eager to help)*
 
 My heart sank. Was *Mashumaro* the whole reason she wanted to go searching for the kid last night? Was she being manipulated on her phone?
