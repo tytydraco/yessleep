@@ -173,7 +173,9 @@ A stampede of glowing claws, tails, and feet all gathered at one extension of th
 
 I looked ahead of me, and noticed that the crowds of feet were thinning. Every glimmer-mascot was drawn to the auction. It quickly grew heated.
 
-“I offer Four thousand!”“Eight!”
+“I offer Four thousand!”
+
+“Eight!”
 
 “Twelve thousand!”
 
@@ -359,7 +361,9 @@ But after a lot of effort focusing on my fingers and my toes, I was slowly able 
 
 **Recently I was able to start walking during Mashumaro’s REM sleep. And only even more recently, was I able to start writing on his laptop.**
 
-Mashumaro so far has had no recollection of what I do during his rest. And I’d like to keep it that way.  I’ve purposely limited myself to only an hour or two each night. I’ve stealthily shot emails to a few select people through an Outlook account I’ve managed to keep hidden. But so far the responses have been fruitless.
+Mashumaro so far has had no recollection of what I do during his rest. And I’d like to keep it that way.  I’ve purposely limited myself to only an hour or two each night.   
+  
+I’ve stealthily shot emails to a few select people through an Outlook account I’ve managed to keep hidden. But so far the responses have been fruitless.
 
 I’ve even created a secret whatsapp to try and reconnect with friends who might help me. But they all think I’ve become a selfish money-hungry shill.
 

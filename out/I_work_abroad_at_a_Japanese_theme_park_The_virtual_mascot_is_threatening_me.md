@@ -264,6 +264,9 @@ I opened my mouth, then closed it. My phone felt like it weighed twenty pounds.�
 
  It became very quiet; the AC unit had cycled off. I looked at my hands, at the stamp I was forcefully given last night at the back of my palm.
 
+森  
+(forest)
+
 I could feel both of their eyes scanning me up and down. Searing through me. 
 
  “... He was in the middle of the forest.” 
