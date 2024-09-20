@@ -36,16 +36,14 @@ It was Bu-chan.
 
 The light turned off, but the hologram remained, untethered to roam free. The pig squealed and spoke in aggressive Japanese. 
 
-“Rirīsu kapuseru 478-97742.” 
-
+“Rirīsu kapuseru 478-97742.”   
 *Release capsule 478-97742.*
 
 A child cage only a few rows down from me lifted into the air. Several spider-like legs emerged beneath it, and skittered down to Bu-chan.
 
 The pig snorted and inspected the young boy. 
 
-"Yokatta. Mada juku shi teru yo. Tsuite koi."
-
+"Yokatta. Mada juku shi teru yo. Tsuite koi."  
 *“Good. Still ripe. Follow me.”*
 
 The arachnid cradle waddled behind the hologram pig as he marched down an exit. The sound of the spider feet scraping and stabbing the floor echoed outwards until fading away.
