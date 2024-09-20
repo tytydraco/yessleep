@@ -1,3 +1,5 @@
+[Previous log](https://www.reddit.com/u/googlyeyes93/s/8GJiPMwpSe)
+
 DAY 7
 
 I slept fitfully last night. This morning though, I found out that Philip had a similar experience as I did. One was speaking to him in the same way, under his breath and laughing. Though he wouldn’t tell me what he was saying, he was shaken to the core because One called him by name, too. We decided to sit in with Taryn during her shift this morning, just in case anything happened.
