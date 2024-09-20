@@ -1,4 +1,4 @@
-[I ](https://www.reddit.com/r/nosleep/comments/1fif38t/i_work_abroad_at_a_japanese_theme_park_another/)- [II](https://www.reddit.com/r/nosleep/comments/1fjfvtd/i_work_abroad_at_a_japanese_theme_park_the/) - [III](https://www.reddit.com/r/nosleep/comments/1fk8bx7/i_work_abroad_at_a_japanese_theme_park_the/)
+[I ](https://www.reddit.com/r/nosleep/comments/1fif38t/i_work_abroad_at_a_japanese_theme_park_another/)- [II](https://www.reddit.com/r/nosleep/comments/1fjfvtd/i_work_abroad_at_a_japanese_theme_park_the/) - [III](https://www.reddit.com/r/nosleep/comments/1fk8bx7/i_work_abroad_at_a_japanese_theme_park_the/) - [IV](https://www.reddit.com/r/nosleep/comments/1fl3w23/i_work_abroad_at_a_japanese_theme_park_ive_found/)
 
 I was now a cast member, playing a character named ‘Mr. New York’ at the theme park. They gave me a traditional white baker’s costume, complete with a chef hat embroidered with stars and stripes. 
 
