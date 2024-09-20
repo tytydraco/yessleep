@@ -136,7 +136,7 @@ Evelyn unbuttoned my shirt and tossed it into the doorway under slim panes of mo
 
 “Evelyn?”
 
-The TV glowed into a dark living room beyond an open door, the bedsheets were roughed up and Evelyn writhed. Into the doorway stepped Jan. He looked down on her with solemnity, but didn’t intervene. I could hear bones breaking, flesh tearing, fluid gurgling as Evelyn convulsed into something else. Her head imploded into a dark, teethed recess and her arms twisted outward wildly. Hands morphed into small, fleshy claws, before bulging and hardening into dark pincers. Her spine curved wickedly in a reverse arc, and her legs joined together in a flailing mass, sharpening at the end. Her body was morphing away from something human, and beautiful, into something with cartilaginous podded sections and appendages. I drifted to the doorway, pale and sweating coldly. Jan stood firm.
+The TV glowed into a dark living room beyond an open door, the bedsheets were roughed up and Evelyn writhed. Into the doorway stepped Jan. He looked down on her with solemnity, but didn’t intervene. I could hear bones breaking, flesh tearing, fluid gurgling as Evelyn convulsed into something else. Her head imploded into a dark, teethed recess and her arms twisted outward wildly. Hands morphed into small, fleshy claws, before bulging and hardening into pincers. Her spine curved wickedly in a reverse arc, and her legs joined together in a flailing mass, sharpening at the end. Her body was morphing away from something human, and beautiful, into something with cartilaginous podded sections and appendages. I drifted to the doorway, pale and sweating coldly. Jan stood firm.
 
 “She’ll have you now.” He said, and pushed me back into the room. 
 
