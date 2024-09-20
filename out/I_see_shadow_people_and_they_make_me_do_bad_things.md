@@ -50,7 +50,7 @@ Days, weeks, months—it all blurred together. The shadow people were always the
 
 They no longer just whispered. They screamed. They ordered. They laughed.
 
-I remember one mission in particular—nothing out of the ordinary on the surface, just another routine patrol. But something snapped inside me that day. I stopped feeling the weight of my rifle in my hands. I stopped hearing the voices of my comrades. All I could hear was the shadows. All I could see were the dark figures surrounding me, their mouths stretched wide in silent commands.
+I remember one mission in particular—nothing out of the ordinary on the surface, just another routine patrol. But something snapped inside me that day. I stopped feeling the weight of my rifle in my hands. I stopped hearing the voices of my buddies, my NCOs. All I could hear was the shadows. All I could see were the dark figures surrounding me, their mouths stretched wide in silent commands.
 
 Do it. Do it. Do it.
 
