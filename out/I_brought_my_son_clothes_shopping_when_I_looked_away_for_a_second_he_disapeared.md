@@ -74,7 +74,7 @@ Sam pulled my son close, his eyes narrowing at me.
 
 "I don't know what you're trying to pull," he said coldly. "But this is my wife and our son. Please leave us alone.”
 
-I parked down the street, keeping my eyes fixed on the house. My mind raced with everything that had happened, and I felt trapped in some twisted nightmare. Hours passed before I saw Sam leave with our son, heading off in his car. 
+I waited down the street out of sight, keeping my eyes fixed on the house. My mind raced with everything that had happened, and I felt trapped in some twisted nightmare. Hours passed before I saw Sam leave with our son, heading off in his car. 
 
 I got out of the car and cautiously approached the house as my heart pounded in my chest. 
 
@@ -164,7 +164,7 @@ Water fizzled around him, and I saw tiny, almost invisible sparks at first comin
 
 "No," I whispered, backing away in horror.
 
-His skin began to peel, revealing metal and wires underneath. Sam hadn’t just built a wife.
+His skin began to peel, revealing metal and wires underneath. Sam hadn’t just built the perfect wife.
 
-He had built our son too. 
+He was trying to build the perfect family.  
 
