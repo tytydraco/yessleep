@@ -192,7 +192,7 @@ When I closed the refrigerator, I wasn't surprised to find that he'd pulled a cl
 
 The mechanic wordlessly accepted it, leaning back against my kitchen counter. I gave him a moment to open the jar, watching the dark expression lessen somewhat as he took a sip. 
 
-At least that's one thing all Neighbors have in common, whether they’re Housekeepers of Wild Huntsmen. To quote *Inglourious Basterds,* ‘Attendez la créme!’
+At least that's one thing all Neighbors have in common, whether they’re Housekeepers of Wild Huntsmen. To quote *Inglourious Basterds,* ‘Attendez la crème!’
 
 “Alright,” He said with a sigh, sounding less prickly than he had mere seconds ago. “I'm listenin’.”
 
