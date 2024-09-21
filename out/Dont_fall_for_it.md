@@ -24,7 +24,7 @@ I glanced at the house across the street behind them; nobody had lived there for
 
 "If you don't mind me asking... uh, Tulio, was it? What brings you around here?"
 
-The corners of his grin shifted down slightly. "Well... the city life gets kind of overwhelming, you know? Besides, they need some space too." He pointed at the van parked beside the road. "I know. Let me introduce you."
+The corners of his grin shifted down slightly. "Well... the city life gets kind of overwhelming, you know? I had some trouble at my old job too. I decided to move out here before my old boss started looking to hire me back—haha! Besides, they need some space too." He pointed at the van parked beside the road. "I know. Let me introduce you."
 
 I raised an eyebrow at Tulio. "Don't worry, haha, it's nothing strange," he said, noticing my suspicion. My curiosity piqued, I followed him and his daughter down the driveway leading to my front door and onto the pavement to the back of the van. "They must have grown tired of staying in here by now," he stated as he opened the doors to the van.
 
@@ -62,7 +62,7 @@ Tulio led the way to his house with Olivia following close behind him and then o
 
 The portrait was beautiful, and as for the bookshelf, its contents were a little odd—books about biology and human anatomy, as well as bird anatomy. A couple, however, caught my eye—strange books about rituals and others about alchemical sciences. I took out another book that seemed the most normal. It read ''Hiding in Plain Sight'' by Susan Lewis. Disinterested, I placed the book back on the shelf and resigned from inspecting it further.
 
-But then something else caught my eye. A small picture frame on a table by the bookshelf—there was something familiar about it. After looking at it for a while longer, I realized it was a picture of a young Tulio and a woman with long brown hair like that of autumn leaves. Why would he lie about just having moved here? Well, technically he never claimed to have not lived here, but something's off, I thought.
+But then something else caught my eye. A small picture frame on a table by the bookshelf—there was something familiar about it. After looking at it for a while longer, I realized it was a picture of a young Tulio dressed in a white lab coat and a woman with long brown hair like that of autumn leaves. Why would he lie about just having moved here? Well, technically he never claimed to have not lived here, but something's off, I thought.
 
 I decided to stay quiet about it and turned to face Tulio, who was admiring some of his "new" free furniture.
 
@@ -74,7 +74,7 @@ Olivia ran up the dusty wooden stairs, yelling enthusiastically, "I'm gonna look
 
 "Okay, but be careful!" Tulio yelled back.
 
-Together, we made our way back to the van and began to bring all the birds inside the spacious living room of Tulio's house. But when I was picking up the cage of a large parrot, I stopped to look at something. I put down the cage and got closer to the front of the van, where I saw a large bag leaning up against the wall of the van… in the shape of a human body. A strange smell was coming from it. 
+Together, we made our way back to the van and began to bring all the birds inside the spacious living room of Tulio's house. But when I was picking up the cage of a large parrot, I stopped to look at something. I put down the cage and got closer to the front of the van, where I saw a large bag leaning up against the wall of the van… in the shape of a human body. A strange smell was coming from it.
 
 My heart sank, and a million thoughts raced through my mind in the span of a second. But my rushing thoughts stopped when I heard the sound of footsteps coming up to the rear of the van.
 
@@ -84,7 +84,7 @@ Deciding the best course of action was to act normal, I stammered, "Y-yeah, sorr
 
 "Oh yeah, that one doesn't have a handle, huh? Sorry about that."
 
-I carried the bird past Tulio, his small and unassuming figure now looking much larger in my eyes. Inside the house, I placed the cage down, and then my thoughts once again began to race. That bag could have been anything, but why was it shaped that way? Could this guy really be a murderer? What about his daughter? Does she know about this? When he comes back, what should I do? 
+I carried the bird past Tulio, his small and unassuming figure now looking much larger in my eyes. Inside the house, I placed the cage down, and then my thoughts once again began to race. That bag could have been anything, but why was it shaped that way? Could this guy really be a murderer? What about his daughter? Does she know about this? When he comes back, what should I do?
 
 The noise in my head was forced to quiet once again as I noticed Tulio returning, and to my horror, over one of his shoulders was the large bag. Act cool. He settled the bag down near the front door. I could feel a cold sweat running down my neck, and stupid as it may have been, I spoke.
 
@@ -94,7 +94,7 @@ The noise in my head was forced to quiet once again as I noticed Tulio returning
 
 I felt a wave of relief as my tensed body began to finally relax. Tulio put the knife back in his pocket and then approached me. He patted me on the shoulder and said, “Thanks for the help, Ned. My back has been killing me, you know, haha... I’m gonna go ahead and get the birds situated.”
 
- I let out a nervous laugh. “Yeah, sure. Anytime you need anything, just let me know.”
+I let out a nervous laugh. “Yeah, sure. Anytime you need anything, just let me know.”
 
 That night, as I lay in bed, I remember feeling glad that my new neighbor seemed like a genuine guy, one that I had something in common with. When my wife and I lost our child, she couldn’t cope with it, and one night I found her hanging from our apartment balcony.
 
@@ -122,9 +122,9 @@ Olivia stopped running around and looked over at me. “Oh, but you know, I neve
 
 “Oh yeah? Why not? How old are you now?”
 
-“I’m 12! But when we moved out of our old house, Dad said that seeing Mom again was more important or something. But I think he’s just kinda crazy ‘cause he’s getting old!” She laughed.
+“I’m 12! But when we moved out of our old house, Dad said that seeing Mom again was more important or something. He also said we didn’t have much time because the funny men from his job were looking for him. But I think he’s just kinda crazy ‘cause he’s getting old!” She laughed.
 
-“Hey, that’s your dad! Show some consideration. And you know what? How about we celebrate your birthday soon? Just let your dad know, and I’ll get everything ready,” I said as I brushed the grass off my clothes and headed home.
+“Hey, that’s your dad! Show some consideration. He must have been really good at his job if his previous workplace is still trying to hire him back, huh? And you know what? How about we celebrate your birthday soon? Just let your dad know, and I’ll get everything ready,” I said as I brushed the grass off my clothes and headed home.
 
 “Really!? Okay! It’s a promise then!” Olivia beamed as she waved goodbye.
 
@@ -192,7 +192,7 @@ I cried, and my stomach rejected its contents as I threw up all over my living r
 
 I couldn’t just stay like this. I needed help—quickly.
 
-I ran up the stairs to my room and grabbed my phone from my nightstand. I called 911 and told the operator there had been a murder.
+I ran up the stairs to my room and grabbed my phone from my nightstand. I called 000 and told the operator there had been a murder.
 
 “I’m sending help your way, sir. It seems you live in a rural area, so they may take some time. Please be patient and lock your—” The call cut out.
 
@@ -250,9 +250,11 @@ The makeshift barricade held firm, but by now I was already upstairs, clutching 
 
 It's been an hour since then. I don’t know where the hell the cops are, or if they're even coming. Every sound I hear feels like a trick, a lie. Maybe the call was a lie too.
 
+A lie, huh? I bet everything Tulio told me was a lie too—about his city life, about just moving here, maybe even about his old job. Some neighbor he was, that bastard.
+
 I still hear it pounding on the front door… yet moments ago, I heard a door on the second floor creak open. I don’t know how the hell it’s doing that.
 
-I don’t know what to believe. I can’t trust my ears.
+I don’t know what to believe. I can’t trust my ears. 
 
 It's going to find me, but I’m going to fight back. I’m going to try and kill it. If you hear from me again, it means I was successful. This was the only place I could think to write this. And if I fail—if, god forbid, you encounter this thing—please...
 
