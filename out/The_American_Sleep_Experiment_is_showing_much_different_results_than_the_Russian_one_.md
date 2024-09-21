@@ -190,7 +190,7 @@ Despite sending Murray to check out the facilities, there wasn’t any fire foun
 
 Four and Three seemed to be having contention, each staying in an opposite corner but throwing furtive, venemous looks at each other. I don’t know what their deal was, but at some point, I heard Four ask if they would let him sleep if he killed someone for them. Whoever them was, I don’t know, though he could have been referring to us.
 
-Three complained constistently of a rotten smell, saying it smelled like bodies rotting. It’s possible it could be a side effect of the gas, but the way he was complaining about it, he was convinced that he was really smelling bodies. Though how he knew what that smelled like, I don’t know. He was pretty far into the throes though, and Four seemed to be looking at him for his sacrifice to get his own peace.
+Three complained constistently of a rotten smell, saying it smelled like bodies decaying. It’s possible it could be a side effect of the gas, but the way he was complaining about it, he was convinced that he was really smelling bodies. Though how he knew what that smelled like, I don’t know. He was pretty far into the throes though, and Four seemed to be looking at him for his sacrifice to get his own peace.
 
 Most stayed in their catatonic states for the time being, passing the rest of the day without incident. One was still going, though not doing a whole lot. Despite the massive blood loss, he was miraculously still alive and cognitive.
 
