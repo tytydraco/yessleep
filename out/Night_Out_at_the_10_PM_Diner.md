@@ -226,4 +226,4 @@ We hurried down the street, the diner's oppressive aura fading behind us. Neithe
 
 As we rounded the corner, I chanced a final glance back. The diner stood silent, its dim neon sign flickering in the fog. For a moment, I thought I saw a shadow at the window, staring out, watching us.
 
-I looked away and quickened my pace. Whatever had happened in there, I knew one thing for certain: we were never coming back.
+I looked away and quickened my pace. Whatever had happened in there, I knew one thing for certain: we were never coming [back.](https://www.youtube.com/@CreepyStoriesJR)

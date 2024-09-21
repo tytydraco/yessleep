@@ -234,4 +234,4 @@ And more importantly, what else was it hiding from me?
 
 That was my last night at the gas station.
 
-And I don’t plan on ever going back.
+And I don’t plan on ever going [back.](https://www.youtube.com/@CreepyStoriesJR)
