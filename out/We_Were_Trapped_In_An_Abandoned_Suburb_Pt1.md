@@ -160,7 +160,7 @@ We ended up in the basement. The stairs leading down were past a door in the kit
 
 I tried my best to tune out her rambling, as I didn't want to imagine poor innocent kids being hurt in such a way. I tried to focus on observing the random objects around the room, highlighting things like a half empty cigarette pack and a cracked smartphone… 
 
-Wait, a phone… ? 
+*Wait, a phone… ?* 
 
 “After he was through mutilating them, he took a knife and gouged their eyes out while they were still alive.” Yazmine continued as I bent down to pick up the phone, the others huddled close around her while I lingered in a junky corner. “Then, oddly enough, he wrote a letter confessing to his crimes and hanged himself in this very room. But before he did, he gouged his own eyes out, one of the most bizarre things about this case. Did he feel guilty? Did he want to feel what his victims felt?” 
 
@@ -313,11 +313,11 @@ Several minutes of quiet discussion passed, then Vanessa gasped, attracting ever
 
 We gathered around as she replayed the part of interest. It was when we had just figured out the planchette spelled the word ‘eyes.’ Everyone's voice echoed to us. 
 
- *“Eyes?” John’s voice uttered from the recorder.* 
+*“Eyes?”* John’s voice uttered from the recorder. 
 
 A rushed out, slightly garbled whisper sounded out right after, and then Zack's voice.
 
-*“Eyes, it said eyes! It did!”* 
+*“Eyes, it said eyes! It did!”*
 
 “Wait, can you rewind it and slow it down?” I asked. Vanessa nodded, and pressed a couple of buttons.
 
@@ -389,7 +389,7 @@ The phone rang as we allowed the tension to ooze out of our bodies, anticipating
 
 “Hey, man, we need some help-” Zack began. 
 
-*“The bad man stole our eyes.”* The eerie voice of a child whispered, and we all froze like deer in headlights as we heard it. *“The bad man stole our eyes and now we can't leave. Please help us.”* 
+*“The bad man stole our eyes.”* The eerie voice of a child whispered, and we all froze like deer in headlights as we heard it. *“The bad man stole our eyes and now we can't leave. Please help us.”*
 
 Zack started to hyperventilate as he dropped the phone at his feet. Vanessa looked panicked as she desperately told him, “Your brother's just playing a prank! Tell him to come get us!” Zack shook his head vigorously, his breathing getting more and more out of control. 
 
@@ -407,7 +407,7 @@ Zack started to hyperventilate as he dropped the phone at his feet. Vanessa look
 
 “Okay, I- wait, children? You mean Yaz and the gang?” I asked. 
 
-“No, the children! I want to be there when they ***rip your eyes from your sockets, you filthy diseased bitch!”*** My mom's voice screeched, crescendoing into an unrecognizable unearthly howl, before the call suddenly dropped. 
+“No, the children! I want to be there when they *rip your eyes from your sockets, you filthy diseased bitch!”* My mom's voice screeched, crescendoing into an unrecognizable unearthly howl, before the call suddenly dropped. 
 
 “What the hell type of drug is your mom on?!” John stared at me with wide eyes. 
 
@@ -503,4 +503,5 @@ We slowed down as we got closer to the buildings, a pit of dread opening up in o
 
 When we got close enough for our flashlight beams to reach the place, it dawned on us that the buildings were the abandoned houses of that unfinished suburb, including the one we had just run from. 
 
-We had walked in a straight line for nearly two hours and came back to 52 Magnolia Way.
+We walked in a straight line for nearly two hours and came back to 52 Magnolia Way.
+
