@@ -195,3 +195,5 @@ Three complained constistently of a rotten smell, saying it smelled like bodies 
 Most stayed in their catatonic states for the time being, passing the rest of the day without incident. One was still going, though not doing a whole lot. Despite the massive blood loss, he was miraculously still alive and cognitive.
 
 I’m hoping for a peaceful night of sleep again. Philip took over in a relatively good spirit, so hopefully the worst of the chaos is [done](https://www.reddit.com/u/googlyeyes93/s/jL9JaN12bm).
+
+[Update](https://www.reddit.com/r/nosleep/s/o3E31bJnSE)
