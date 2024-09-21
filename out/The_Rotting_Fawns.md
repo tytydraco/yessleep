@@ -162,7 +162,11 @@ Below me was one of the most grotesque sites I had ever seen. 
 
 
 
-It was a doe. Not just a doe, but one of the does I saw with a fawn earlier in the year. I recognized her by a distinct notch in her ear that none of the other deer on my property had. She was dead, as to be expected. However, the manner in which it died was of major question. The poor thing was eviscerated. It was gutted from tip to tail, its organs spilled out and rotting all over the ground. Small chunks of its flesh were missing all over its body. Looking closer, it was obvious that the flesh was ripped away with sharp teeth. Obviously something had been eating it. The does eyes were missing as well, cleanly scooped out leaving only hollow black holes. 
+It was a doe. Not just a doe, but one of the does I saw with a fawn earlier in the year.
+
+Daisy.
+
+I recognized her by a distinct notch in her ear that none of the other deer on my property had. She was dead, as to be expected. However, the manner in which it died was of major question. The poor thing was eviscerated. It was gutted from tip to tail, its organs spilled out and rotting all over the ground. Small chunks of its flesh were missing all over its body. Looking closer, it was obvious that the flesh was ripped away with sharp teeth. Obviously something had been eating it. The does eyes were missing as well, cleanly scooped out leaving only hollow black holes. 
 
 
 
@@ -386,7 +390,7 @@ Or maybe I was just being selfish in that I was terrified telling others meant t
 
 
 
-Right before they loaded me into the ambulance though, I was greeted with the sight of a severed eyeless doe head sitting on my front porch. Looking closely, it was obvious the doe had a notch in her ear. Looks like Daisy has come back to haunt me again. 
+Right before they loaded me into the ambulance though, I was greeted with the sight of a severed eyeless doe head sitting on my front porch. Looking closely, it was obvious the doe had a notch in her ear. Looks like Daisy had come back to haunt me again. 
 
 
 
