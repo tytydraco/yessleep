@@ -148,7 +148,7 @@ My heart sank. “*Don’t be ridiculous”.*
 
  
 
-*Heart racing, I knew I couldn’t be alone with her. Frantically, I texted.*
+Heart racing, I knew I couldn’t be alone with her. Frantically, I texted.
 
 *“Hey I was just going out to grab coffee meet at the usual?”*
 

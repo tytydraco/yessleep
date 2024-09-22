@@ -798,7 +798,7 @@ Its sight fell on the revolver in my dad's hand. Then it let out a low growling 
 
 
 
-During it,  I tripped, twisting my ankle. Yet, I was too hopped up on adrenaline to notice. I scrambled up and kept going. Its pursuit didn't end so much as stop. I didn't even realize I had wandered into the middle of a road until someone's beans fell on me and they were slamming on their brakes. The driver got out, slamming their door, and was starting to lambast me until they could see the blood covering my body from head to toe.
+During it,  I tripped, twisting my ankle. Yet, I was too hopped up on adrenaline to notice. I scrambled up and kept going. Its pursuit didn't end so much as stop. I didn't even realize I had wandered into the middle of a road until someone's beams fell on me and they were slamming on their brakes. The driver got out, slamming their door, and was starting to lambast me until they could see the blood covering my body from head to toe.
 
 
 

@@ -53,14 +53,17 @@ Around five days passed and I was already beginning to feel the side effects of 
 
 I changed my strategy, since eating just peeled lemons wasn't enough, I tried drinking as much water as I can to trick my stomach to think it's full, I drank so much that I had to bite on raw lemons to stop myself from vomiting, I started using the lemon peels as well, I found a couple of easy candied lemon peel recipes so I started eating those as well, the taste was somewhat different so that was an improvement, as I was getting sick of the same old sweet peeled lemons.
 
-Two weeks passed and the ulcers started, I guess eating just highly acidic fruit for weeks isn't something my body was built to handle, because of my inflamed and bloody lips covered in open sores, I avoided looking at myself in the mirror. 
+Two weeks passed and the ulcers started, I guess eating just highly acidic fruit for weeks isn't something my body was built to handle. 
+
+My gums were swollen so much that I thought they would burst, my bloody lips were covered in open sores which caused me so much pain that I had to actively try to keep myself from passing out, the state of my body was getting so poor that I had to avoid looking at myself in the mirror.
+
 Eighteen days passed, even though I was so close to my goal, I was almost sure that I wouldn't make it.
 
-My mouth ulcers became so bad that eating a lemon or even drinking lemonade became impossible, it was like pouring salt on an open wound.
+My mouth ulcers became so bad that eating a lemon or even drinking lemonade became impossible, it was like pouring salt and sulfuric acid on an open wound.
 
 To avoid any additional pain, I completely stopped eating lemons, my new diet consisted of only drinking cold water which barely helped me soothe the the jolting pain.
 
-Finally, it was the twenty-first day, I felt like my life could turn off like a light switch at any moment, I was severely malnourished, my energy levels were fully depleted, I could barely make two steps before I felt like I need to go to sleep, yet when I tried sleeping, I would immediately get woken up by a burst of pain or I'd start choking on the blood dripping from my swollen lips, I stopped keeping count, but I bet I didn't sleep at all for at least five or six days.
+Finally, it was the twenty-first day, I felt like my life could turn off like a light switch at any moment, I was severely malnourished, my energy levels were fully depleted, I could barely make two steps before I felt like I needed to go to sleep, yet when I tried sleeping, I would immediately get woken up by a burst of pain or I'd start choking on the blood dripping from my swollen lips, I stopped keeping count, but I bet I didn't sleep at all for at least five or six days.
 
 Even my vision detoriated, I would constantly drop my water bottles because everything was getting simply too blurry to see, they would shatter on the floor and I just ignored them because I didn't have the strength needed to pick up the glass fragments and throw them out, after about an hour or so I'd forget that there's glass shards on the floor so I'd step on them and cut my feet, which wasn't too bad, because it at least helped me forget about the ulcer pain which was much worse.
 
