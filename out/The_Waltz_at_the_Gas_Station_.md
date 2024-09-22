@@ -330,8 +330,6 @@ Now ablaze, the top committed itself to one final lap around the station, leavin
 
 When I turned the ignition, I glanced back one final time, catching the look of sheer terror etched in Steve’s eyes as he watched the fiery top spin directly toward him. I shifted gears and sped away, heading to the nearest hospital as the station became engulfed in flames, with Steve's anguished cries echoing behind us.
 
-
-
 \*\*\*\*\*\*\*\*\*\*\*
 
  
@@ -340,22 +338,10 @@ It’s been three weeks since the incident at the gas station and Richard thankf
 
 Yet, I still find myself experiencing sleepless nights every once in a while, haunted by memories of that day. I’ve brought Richard up to speed about the events of that fateful encounter, but he does not have a true measure of Lily’s ability like I do.
 
-He was unconscious and missed almost everything, and Alex is too young to truly understand, even though he witnessed it all. But those worries melt away whenever I look at Lily and see her smile at me. Still, a lingering fear persists deep within me. Perhaps it will go away with time. I know it will.
+He was unconscious and missed almost everything, and Alex is too young to truly understand, even though he witnessed it all. But those worries melt away whenever I look at Lily and see her smile at me. Still, a lingering fear persists deep within me. Perhaps it will go away with time. I hope it will.
 
  
 
-  
 [X](https://www.reddit.com/user/Federal_Machine692/)
-
-  
-  
-  
-  
-  
-  
-  
-
-
-
 
  
