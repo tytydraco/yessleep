@@ -1,0 +1,15 @@
+It was the 18th of September, 2024, a Wednesday that felt like every other. The monotony of my routine had begun to blur the days together. I had settled into a rhythm—8 a.m. to 5 p.m. at the office, followed by a tired walk back to the solitude of my room. It had been two months since I’d started this new chapter of my life, far from home, and yet, not a single day felt different. The same work, the same streets, the same evenings, spent in quiet isolation.
+
+That night, like many before, hunger nudged me out of my room at around 8 p.m. I decided to wander to the nearby street vendors for something simple. A familiar stall caught my eye—a small cart with a lightbulb overhead, the smell of egg bhurji and buttery pav wafting in the air. I ordered my usual—egg bhurji with pav—and stand nearby at the side.
+
+As I savored each bite, I noticed someone approaching the stall. A man, perhaps in his late twenties, came up and asked, “Bhayiya, do you have Maggie? Please give me one.” His voice was gentle, but there was something unusual about hearing him speak English to the stall owner, a quiet dissonance in this corner of the city where people usually stuck to the local dialect. 
+
+He stood waiting for his order, glancing around as if scanning the street for something familiar. His gaze landed on me a few times. Our eyes met briefly, and I wondered if I should know him. Was he from my company? A fellow employee I had missed in the sea of new faces? I couldn’t shake the feeling that there was something about him, something oddly familiar, yet distant.
+
+His Maggie arrived, steaming in its bowl, and as he looked at the serving, he said to the vendor, “Bhayiya, thodi aap lelo, I don’t want itni jada.” The vendor laughed and declined, shaking his head, “No, no, I don’t eat here at my stall.” The exchange was simple, but it felt as though this man carried a different energy, something that didn’t belong in the usual fabric of the street. Then, to my surprise, he turned to me and held out the bowl, offering me some of his Maggie. 
+
+For a moment, I hesitated, caught off guard by the unexpected gesture. Who was this man? A stranger offering his food like we were long-lost friends? I smiled politely and shook my head, “Thank you, but I’m full.” He nodded, without disappointment, and took his meal, moving to another stall across the street.
+
+Still curious, I also wandered over to a nearby stand and ordered a chocolate shake. Across the way, he looked over at me again. This time, I raised my glass of chocolate shake in a silent cheers. He noticed and smiled back, lifting his hand in acknowledgment, gesturing for me to come over. For a moment, I stood there, unsure. Was he a colleague I couldn’t quite place? Or was he something else entirely—someone with a story of his own, waiting to be told? There was a strange sense of inevitability pulling me toward him, but I didn’t move just yet.
+
+To be continued...
