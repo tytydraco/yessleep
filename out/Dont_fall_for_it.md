@@ -170,7 +170,7 @@ I covered my ears as hard as I could with my hands, my fear quickly transforming
 
 Somehow, in my disoriented state, I reached the stairs, but to my horror, I couldn’t climb them. Every step I took sent me crashing down face-first onto the cold wooden steps as the screams robbed me of my balance. My mind’s pleas to my body to stand and walk fell on deaf ears. I felt the unholy cacophony of voices grow closer... this was it. I reached out toward the light above and felt an arm grab me.
 
-Olivia was pulling me up, yelling something that I couldn’t make out through the noise. I had to act quickly. My senses in disarray, I used all my might to perform the menial yet grand task of crawling up the stairs. I shut the door just in time, locking it firmly in place. And then, silence. Olivia and I stared at each other in horror for a moment, but the silence was soon broken by slamming on the door.
+Olivia was pulling me up, yelling something that I couldn’t make out through the noise. I had to act quickly. My senses in disarray, I used all my might to perform the menial yet grand task of crawling up the stairs. I shut the door just in time and locked it firmly in place by resting my back on it. And then, silence. Olivia and I stared at each other in horror for a moment, but the silence was soon broken by slamming on the door.
 
 “RUN!” I screamed at Olivia, and we bolted for the front door and out of the house to the yard. It was at this point I heard the basement door give way with a loud crash, and the birds began going crazy in response to the thing’s presence. I didn’t hear the sound of its pursuit. I didn’t know if it had even given chase, but I dared not turn around. Olivia and I were halfway across the road to my house when we heard the gentle voice of a woman.
 
@@ -254,7 +254,7 @@ A lie, huh? I bet everything Tulio told me was a lie too—about his city life, 
 
 I still hear it pounding on the front door… yet moments ago, I heard a door on the second floor creak open. I don’t know how the hell it’s doing that.
 
-I don’t know what to believe. I can’t trust my ears. 
+I don’t know what to believe. I can’t trust my ears.
 
 It's going to find me, but I’m going to fight back. I’m going to try and kill it. If you hear from me again, it means I was successful. This was the only place I could think to write this. And if I fail—if, god forbid, you encounter this thing—please...
 
