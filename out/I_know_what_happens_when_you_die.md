@@ -39,7 +39,7 @@ I ran down the hall, heavy steps ignoring how early it was, as I'd enter my pare
 
 He'd groggily groan, leaning over to look at the alarm clock. "Hey bud. It's really early. You ok? Nightmare?" he'd ask, sitting up from the bed. Mom wouldn't wake up, heavily sleeping.
 
-"I think something bad happened to Mr. Raymonds." 
+"I think something bad happened to Mr. Raymonds."
 
 "Mmm? Why so, buddy?"
 
@@ -57,7 +57,7 @@ His eyes said "I'm not going to sleep until I do this, am I?" but his face said 
 
 As Dad went down the stairs, I returned to my room. I'd watch from the second story window, hearing him open and close the door. Dad waved at a passing jogger, exchanging a quick discussion before he'd walk across the road. All the while, Mr. Raymond's spirit continued to howl, flail, scream. I don't think it knew where it was or what was going on.
 
-Dad knocked on the door. Silence. Dad looked concerned for a moment. He knocked again. Silence. Now I think he knew something was wrong. He'd do a quick jog back across to our house, where I heard him in the kitchen grabbing the phone and talking to someone. I hoped to see Mr. Raymond's spirit calm down, but he'd just...keep screaming, keep running throughout his rooms and through his walls. 
+Dad knocked on the door. Silence. Dad looked concerned for a moment. He knocked again. Silence. Now I think he knew something was wrong. He'd do a quick jog back across to our house, where I heard him in the kitchen grabbing the phone and talking to someone. I hoped to see Mr. Raymond's spirit calm down, but he'd just...keep screaming, keep running throughout his rooms and through his walls.
 
 There's a danger, in nature, when an animal gets wounded. It calls for help. Sometimes, a kind human finds it and pulls it out of a trap. Other times, a fellow memebr of the species finds it and saves it. But most often, those cries attract a predator. And in this case, Mr. Raymond's spirit was a siren.
 
@@ -71,7 +71,7 @@ Paramedics were having a polite conversation as it barged through them, phasing 
 
 I couldn't see it, but I could hear it. Panicked screams, gutteral cries. And then silence. Eeriely quiet. Maybe Mr. Raymonds had got away? Maybe he went somewhere further into the after life. A child struggled to comprehend nonexistence and the universe was now asking a child to comprehend what came even further after.
 
-Nausea was going to overtake me before my Dad went in my room, making me turn away from the window. "Hey, kiddo. I uh...hey. Mr. Raymond's...listen, he's...yeah..." He seemed unsure of how to broach the subject, doubly-so considering I somehow knew Mr Raymond had died. 
+Nausea was going to overtake me before my Dad went in my room, making me turn away from the window. "Hey, kiddo. I uh...hey. Mr. Raymond's...listen, he's...yeah..." He seemed unsure of how to broach the subject, doubly-so considering I somehow knew Mr Raymond had died.
 
 "It's ok dad," I whispered. "...I thought it was a nightmare but..."
 
@@ -121,9 +121,9 @@ We stared at each other for an uncomfortable amount of time. "How did you know I
 
 It looked at me, seeming to finally parse that I was a child, before it'd tilt its head. "You will understand in time. What's your name?"
 
-"I shouldn't talk to strangers." 
+"I shouldn't talk to strangers."
 
- "I don't want to be a stranger. You're the only voice I've heard since crossing over." It paused, as if trying to figure out how to communicate with a child. 
+"I don't want to be a stranger. You're the only voice I've heard since crossing over." It paused, as if trying to figure out how to communicate with a child.
 
 "Then what's your name? Strangers don't give out their names."
 
@@ -137,11 +137,10 @@ I looked at him. It occurred to me, in some childish capacity, that not having a
 
 "What's the red ranger?"
 
-I stared at him, realizing he probably didn't know much of anything. As an adult, looking back, I realize how idiotic it all is. The juvenile desire to help. Ignoring my own safety because I felt I was special. Nothing bad ever happened to special people, spoke the childlike mind. In fact, YOU can help HIM. And he won't hurt other people. Evil was a choice and maybe, just maybe, I could make him something good. 
+I stared at him, realizing he probably didn't know much of anything. As an adult, looking back, I realize how idiotic it all is. The juvenile desire to help. Ignoring my own safety because I felt I was special. Nothing bad ever happened to special people, spoke the childlike mind. In fact, YOU can help HIM. And he won't hurt other people. Evil was a choice and maybe, just maybe, I could make him something good.
 
 "Rocky, do you want to be my friend?" I asked, oblivious in my youth to how stupid this was, only focused on how I could help him. "But you have to promise that you'll be good.
 
 "...I would like that very much." Rocky would make no promise. Only that he would like that.
 
-
-
+[Part 2](https://www.reddit.com/r/nosleep/comments/1fmpdci/i_know_what_happens_when_you_die_pt2/)
