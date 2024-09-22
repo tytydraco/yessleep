@@ -1,4 +1,4 @@
-I realize now this is all his fault. He made that thing. If you're reading this, stay out of the woods in Australia. It could still be out there, and it’s smart.
+I realize now this is all his fault. He made that thing. If you're reading this, stay out of the bush in Australia. It could still be out there, and it’s smart.
 
 This all started about a month ago. I was startled awake from my couch.
 

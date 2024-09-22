@@ -65,3 +65,5 @@ Despite the now-open observation window, the subjects didn’t make any effort t
 Despite the critical injuries already suffered to the subjects, we had our first deaths today. Two of the security guards were found in their shared room, each one holding a gun with a similar bullet wound in their foreheads. Mutual suicide. Honestly, I’m jealous. I wish I had those kind of guts right now. Something was making me hang on here though, even if it was just some kind of morbid curiosity. I might just be too numb to feel any fear of death at this point. 
 
 This is probably going to become a journal now instead of just research notes. Might as well maintain a record. People will probably consider it the ramblings of a mad man, but we all know what we’re seeing in here is real. Nobody will believe us, but that’s probably the only thing that hasn’t made them cut our internet access [yet](https://www.reddit.com/u/googlyeyes93/s/oJVH8eSFN4). 
+
+[Next](https://www.reddit.com/r/nosleep/s/F7fntipLLG)
