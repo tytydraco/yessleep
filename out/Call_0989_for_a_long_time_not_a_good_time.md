@@ -1,6 +1,6 @@
 “I think that might be the wrong way round,” I said, smirking.
 
-The message had not been inked, but *engraved* into the plastic laminate partition. It’s the staple of any public bathroom stall. A number that, let’s be honest, is either false or owned by an unwilling participant of a bad practical joke. But this message was different. Unlike the other musings and doodles on the cubicle wall, it caught my eye. That’s no meagre feat, considering it was three in the morning, and ten bottles of cider were sloshing around in my belly.
+The message had not been inked, but *engraved* into the plastic laminate partition. It’s the staple of any public bathroom stall. A number that, let’s be honest, is either false or owned by an unwilling participant of a bad practical joke. But this message was different. Unlike the other musings and doodles on the cubicle wall, it caught my eye. That was no meagre feat, considering it was three in the morning, and ten bottles of cider were sloshing around in my belly.
 
 It wasn’t the unbalanced handwriting that entrapped my gaze. Not even the brown trail of rust left in the grooves of the etching. So what if an inebriated moron had written his phone number with his house key? That didn’t interest me at all. My curiosity was piqued by the length of the number.
 
@@ -72,7 +72,7 @@ I trusted my friend, as I’d never seen him that way. Possessed by terror that 
 
 “Fuck off, Barmy!” Mason yelled.
 
-The old, dishevelled gentleman wore a matching waistcoat and corduroy trousers, as if he were either attending a funeral or preparing to perform amateur magic. And knowing Barmy Barry, it may well have been both at the same time. I was actually relieved to see him. Relieved to be drawn back into the real world and forget, for a second, the unsettling nature of the phone call.
+The old, dishevelled gentleman wore a matching waistcoat and corduroy trousers, as if he were either attending a funeral or preparing to perform amateur magic. And knowing Barmy Barry, it may well have been both. I was actually relieved to see him. Relieved to be drawn back into the real world and forget, for a second, the unsettling nature of the phone call.
 
 “What are you boys doing in here?” the grumbling man mumbled as he walked towards our cubicle.
 
