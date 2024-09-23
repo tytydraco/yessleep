@@ -45,3 +45,5 @@ The video showed me tossing and turning violently in my sleep, clutching my righ
 But it wasn’t me. My eyes—they were glowing, just like the creature’s.
 
 The dream wasn’t just a dream. It had left something behind. And whatever it was, it wasn’t finished with me.
+
+[Next](https://www.reddit.com/r/nosleep/s/kW8v0h7ez9)
