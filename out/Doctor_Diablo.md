@@ -42,7 +42,7 @@ The hallway was the only other way out of the room. It was dimly lit with flores
 
 I walked through and entered the open doorway into a dark hallway which had a few open doors on either side. I looked into those rooms as I walked past.
 
-The first one had boxes on the floor and several shelves on the far wall. On one of these shelves I noticed several glass jars with strange looking contents. A few seemed to have dried up fungi or plant specimens but a couple had small skulls which seemed to me to be from small monkeys.
+The first one had boxes on the floor and several shelves on the far wall. On one of these shelves I noticed several glass jars with strange looking contents. A few seemed to have dried up fungi or plant specimens but a couple had little skulls which seemed to me to be from small monkeys.
 
 I wondered for a moment if this guy was some kind of witch doctor, but then I stopped myself. No, I thought, there's no place in my thought process for that kind of cultural bigotry. I'm sure he's just a collector.
 
