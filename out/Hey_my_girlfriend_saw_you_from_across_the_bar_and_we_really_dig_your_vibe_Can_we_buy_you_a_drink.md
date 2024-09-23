@@ -6,7 +6,7 @@ Despite the apparent sparsity of challenging work, the job would do fine. I migh
 
 A fresh start was in order, and what better time than now? I joined a gym and started nodding at a few familiar faces. I went to some nature festival in the town hall and listened to hippies talk about leaves for an hour. There were drinks afterwards, but again, I couldn’t find anyone with my vibe. Everyone there was old, sporty or outdoorsy. I took a swig of warm beer and felt a rush of inspiration. Alcohol was the key. I left my drink and headed home. Scrolling through Facebook, I found a promising event: 
 
-‘*GROUP SOCIAL TWENTY-ONE TO THIRTY: A friendly social meet-up for people new in town or for locals looking to expand their social circles*’. 
+‘*GROUP SOCIAL TWENTY-ONE TO THIRTY: A friendly social meetup for people new in town or for locals looking to expand their social circles*’. 
 
 *Location: McKenzie’s Irish Pub*
 
@@ -22,7 +22,7 @@ Bingo. It was Thursday 12th and McKenzie’s was just down the street. Another d
 
 Inside was a dark, cramped room with several alcoves branching off the main thoroughfare. It was deserted, apart from a group floating around the polished wood of the main bar. I sidled up to a guy leaning against the jukebox.
 
-“Hey, man. Is this the group meet-up?” I asked.
+“Hey, man. Is this the group meetup?” I asked.
 
 “I think so but I only just got here myself.” He said.
 
@@ -66,7 +66,7 @@ Marcus bought me a drink, and we chatted happily about Gojira, Avenged Sevenfold
 
 “Most generous of you, sir. Just a beer–the second-cheapest. I’m not classy but I don’t drink piss. Heading to the little boy’s room, I’ll be back in a sec.”
 
-Marcus clapped me on the back and strolled off to the bathroom as I headed to the bar, wallet in hand. I felt a pleasant buzz at the edge of my senses and realised I was smiling. *God,* it felt good just to shoot the shit with someone like that! I’d missed it. I looked around at the other attendees, feeling my confidence build. As I turned back to the bar, I noticed a shaven-headed man in a faded, brown leather jacket sliding up to me. His shoulders were broad and his jaw square.
+Marcus clapped me on the back and strolled off to the bathroom as I headed to the bar, wallet in hand. I felt a pleasant buzz at the edge of my senses and realised I was smiling. *God,* it felt good just to shoot the shit with someone like that! I looked around at the other attendees, feeling my confidence build. As I turned back to the bar, I noticed a shaven-headed man in a faded, brown leather jacket sliding up to me. His shoulders were broad and his jaw square.
 
 “Hey, my girlfriend saw you from across the bar and we really dig your vibe. Can we buy you a drink?”
 
@@ -100,7 +100,7 @@ I grabbed the two beers and followed her outside to the fenced off smoking area.
 
 “Yep. Are you two?”
 
-“No. We’re locals. Things get a little stagnant after a while, though. Figured we’d come along to this meet-up and see if we found anyone who matched our vibe.” She put a hand on my chest and winked. “Our *freak*, if you know what I mean,” Evelyn said.
+“No. We’re locals. Things get a little stagnant after a while, though. Figured we’d come along to this meetup and see if we find anyone who matches our vibe.” She put a hand on my chest and winked. “Our *freak*, if you know what I mean,” Evelyn said.
 
 I blushed and looked over at Jan, standing rigid.
 
@@ -142,14 +142,14 @@ The TV glowed into a dark living room beyond an open door, the bedsheets were ro
 
 Some burning mucus splashed onto the back of my neck and I leapt forward, bull-rushing Jan. We grappled and fought on the living room floor until the big man straddled me. I bumped him forward with my knees and he planted his veiny arms on either side of my head. Then I lunged for his right arm with my teeth and bit down savagely. Jan screamed, and I broke out from under him. I made for the door, hearing the skittering of legs on the hardwood behind me grow in volume. The vibrations rattled the soles of my bare feet as I slipped out onto the staircase, shutting the door on the hideous shape that had been Evelyn. A huge stinger the size of a kitchen knife splintered through the wood, and I heard the shriek of frothing jaws snapping together, outraged that there was no flesh to feast on. I bolted down the staircase and out into the drizzle, wearing nothing but my grey jeans. 
 
-Marcus found me pounding at the window of McKenzie’s, burned on the back of my neck and screaming about scorpions. He called an ambulance, and I was placed on a secure ward, where I’ve been staying for a week now. You hear about drink spikings sometimes, so I figured that’s what happened. Some psycho at the meetup spiked my beer. There was no Jan and Evelyn. No shapeshifting scorpion lady seducing town newcomers. 
+Marcus found me pounding at the window of McKenzie’s, burned on the back of my neck and screaming about scorpions. He called an ambulance, and I was taken to the emergency room. The sterility, harsh lights and long waiting times soon brought me back to my senses. I hate hospitals, so I got a cab back to my place in the early hours of the morning. You hear about drink spikings sometimes, so I figured that’s what happened. Some psycho at the meetup spiked my beer. There was no Jan and Evelyn. No shapeshifting scorpion lady seducing town newcomers. 
 
-I believed that until a smiling nurse brought me a yellow envelope with my name written on in elegant handwriting. Inside was a card that read:
+I was grateful for the uneventful week that followed. Each hour that passed put distance between that night and the present moment. The embarrassment of it all. I pulled on my work polo shirt, tied my hair back, hooked my laptop bag over my shoulder and headed to the front door. Another Monday. Another tally added to the wall of the capitalist jail cell. Posted under my door was a yellow envelope. I put down my bag and picked it up with trembling fingers. Inside was a card that read:
 
 *Dear Mark,*
 
-*Get well soon,*
+*Great to meet you the other night! We’ll see you around ;),*
 
 *Love from your friends,*
 
-*Jan & Evelyn*
+*Jan & Evelyn xxx*

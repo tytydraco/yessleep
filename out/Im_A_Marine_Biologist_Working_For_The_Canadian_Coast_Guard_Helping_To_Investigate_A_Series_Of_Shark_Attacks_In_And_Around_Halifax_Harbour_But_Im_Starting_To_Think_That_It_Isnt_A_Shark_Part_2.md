@@ -1,5 +1,7 @@
 \[Part 1\](https://www.reddit.com/r/nosleep/comments/1evaapy/im\_a\_marine\_biologist\_working\_for\_the\_canadian/)
 
+\[Part 3\](https://www.reddit.com/r/nosleep/comments/1fnq0wv/im\_a\_marine\_biologist\_working\_for\_the\_canadian/)
+
 Apologies for taking a while to get back to everyone, I've been waiting patiently for our vessel's hotspot to be set up. Now, onto the update.
 
 The following morning after we had started the investigation, we were all separated into teams of fifteen people per boat. Leading the charge was Dylan''s boat the CCGS Amity, a fishing vessel approximately 40ft in length painted in the telltale colours of the Canadian Coast Guard. The Amity had been Dylan's pride and joy, proudly serving the country for 30 years, and yet it was so well maintained that it still looked fresh off the shipyard. Onboard, the crew consisted of: myself; Dylan; my wife Ellen, a Marine Paleontologist who, among seeing the scale I had cut myself on, immediately volunteered to assist with the case however she could;  Matt, a local news reporter onboard to report our findings; Lawrence, a representative of Halifax City Hall sent with us upon request by the Mayor; & ten others consisting of the Amity's crew.
