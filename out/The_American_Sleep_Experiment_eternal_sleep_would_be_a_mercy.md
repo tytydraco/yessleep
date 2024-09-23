@@ -143,3 +143,5 @@ Four, I’ve deduced, is showing signs of rabies infection. I don’t think it�
 If she’s already at that point, I know I’m absolutely past it. It would’ve been better if we didn’t make it out of this alive, but our hubris is going to make sure that we’re here, awake for every screaming minute of this fucking hell.
 
 We parted for the time, both going to ponder what was in store for us, or try to think of a way out of this damned place. I doubt we have anything that can break the windows in, but we’ll see what we can do. Maybe we can get some clean air coming in here some way. At this point I’m ready to try [anything](https://www.reddit.com/u/googlyeyes93/s/F9VE22aLlc).
+
+[Update](https://www.reddit.com/r/nosleep/s/WPjtFJNh3w)
