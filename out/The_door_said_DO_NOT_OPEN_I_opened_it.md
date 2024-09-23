@@ -1,3 +1,5 @@
+PART 2
+
 We drove. 
  
 The drive lasted forever. At first, I didn’t notice, I was too busy fidgeting with my shiny new phone. In my naivety, I figured this venture (rescuing my girlfriend from the hounds of hell) would take a couple hours, and I’d narrowly make it to school on time. Oh, how wrong I was. 

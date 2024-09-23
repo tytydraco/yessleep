@@ -161,3 +161,5 @@ I spit out my coffee, soaking him.
 He asked me to describe it, with detail. I tried, but instead I started weeping. I’d finally gotten over the grief. Now this? He reached into his pocket, produced a small black box, and opened it. What I saw made my skin crawl: A key. It was large and silver, at its tip was a skull. The skull was grinning.
  
 “Let’s go save your girlfriend, shall [we?”](https://www.reddit.com/r/StoriesFromStarr/)
+
+[PART 2](https://www.reddit.com/r/nosleep/comments/1fm1xe9/the_door_said_do_not_open_i_opened_it/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

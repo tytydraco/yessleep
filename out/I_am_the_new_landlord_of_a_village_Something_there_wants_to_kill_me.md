@@ -331,3 +331,7 @@ I wanted to be a reasonably successful litigator. Instead, I’m now on my way t
  
 
 I’ll keep you guys posted. Welcome to Chhayagarh.
+
+
+
+[It did not go well.](https://www.reddit.com/r/nosleep/comments/1fnobi9/i_have_reached_the_village_its_worse_than_i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
