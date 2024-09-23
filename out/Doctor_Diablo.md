@@ -48,7 +48,7 @@ I wondered for a moment if this guy was some kind of witch doctor, but then I st
 
 The next room had a padded table in it with extensions for arms and legs which included leather straps. Again I had a moment of fear. If someone were strapped down on that thing, they'd be helpless for any psychopath to have their way with. "Stop it," I said to myself. "I'm sure it's just for violent mental cases. They have these at insane asylums to protect the staff from out of control nutcases."
 
-The third open door was to a room with cinder-block walls and a single dim light in the ceiling. Hung on the walls were what seemed to me to be medieval instruments of torture. Apprehension filled me up in an instant and I almost turned to leave. Then I came to my senses. 
+The third open door was to a room with cinder-block walls and a single dim light in the ceiling. Hung on the walls were what seemed to me to be medieval instruments of torture. Apprehension filled me up in an instant and I almost turned to leave. Then I came to my senses.
 
 "What are you, some kind of racist?" I asked myself. "Just because you're in Mexico doesn't mean that every doctor is some kind of fly by night quack or serial killer. How do you know what those things are for? Are you a doctor? Did you go to medical school? Okay then."
 
@@ -94,7 +94,7 @@ I was struggling to sit up but it was no use, the pressure sleeves were stiff an
 
 He held it up towards my face and began to approach me. Absolute mortifying terror overwhelmed me. The grimace on his face had now transformed into a crooked evil grin. I squirmed and writhed as I struggled to get off the table. He laughed and laughed the closer he got to my face with the thing.
 
-"Good night Gringo!" he yelped with glee. If only I had listened to Pedro. That little boy had tried to warm me.
+"Good night Gringo!" he yelped with glee. If only I had listened to Pedro. That little boy had tried to warn me.
 
 Then everything faded to black. My vision, the sound, my consciousness.
 
