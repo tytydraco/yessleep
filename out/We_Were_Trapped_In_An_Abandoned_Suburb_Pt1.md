@@ -505,3 +505,4 @@ When we got close enough for our flashlight beams to reach the place, it dawned 
 
 We walked in a straight line for nearly two hours and came back to 52 Magnolia Way.
 
+[Part 2](https://www.reddit.com/r/nosleep/s/lymASvRmfB)
