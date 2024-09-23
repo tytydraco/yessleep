@@ -253,3 +253,5 @@ My mind runs through the events of that night. “Remember how on edge the Carte
 “Yeah, they were talking in hushed tones about ‘la reliquia.’” (the relic) Audrey adds. “It has to be connected.”
 
 “There’s only one way to know for sure,” I nod, already reaching for my jacket. “We have to talk to [Vásquez](https://new.reddit.com/r/PageTurner627Horror/comments/1cu31vv/broken_dawn/) [himself](https://new.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/).”
+
+[Part 5](https://new.reddit.com/r/nosleep/comments/1fnjh49/a_killer_gave_us_a_list_of_instructions_we_have/)

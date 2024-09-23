@@ -115,3 +115,5 @@ Rocío's voice cracks as the background noises grow louder on the voicemail, the
 The voicemail cuts off abruptly, leaving a haunting silence that chills me to the bone. My hand shakes as I lower the phone, the afterimage of the call's timer blinking mockingly back [at](https://new.reddit.com/r/PageTurner627Horror/comments/1cu31vv/broken_dawn/) [me](https://new.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/).
 
 [Part 4](https://new.reddit.com/r/nosleep/comments/1fevv3u/a_killer_gave_us_a_list_of_instructions_we_have/)
+
+[Part 5](https://new.reddit.com/r/nosleep/comments/1fnjh49/a_killer_gave_us_a_list_of_instructions_we_have/)
