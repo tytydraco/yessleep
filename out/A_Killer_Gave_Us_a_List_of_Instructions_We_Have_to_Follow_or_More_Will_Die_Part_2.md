@@ -54,7 +54,7 @@ I scroll through more entries, but none provide a clear motive or reasoning behi
 
 I lean back against the flimsy chair, the metal creaking under my weight. "I've got a bad feeling about this, Aud," I confess, feeling the weight of each word. "It’s like... it’s like that message isn’t just for anyone. It’s for us."
 
-Audrey's eyes narrow, her analytical mind piecing together the unsaid. "The Alvarez case?" she murmurs, the name hanging in the air like a cold breath. "We came out of that by the skin of our teeth.”
+Audrey's eyes narrow, her analytical mind piecing together the unsaid. "The Vazquez case?" she murmurs, the name hanging in the air like a cold breath. "We came out of that by the skin of our teeth.”
 
 "Yeah." The memory sits heavy in my stomach. We'd walked through a nightmare landscape, bodies scattered, a community shattered.
 
@@ -221,3 +221,7 @@ Peeking out from my makeshift shelter, the eerie silence of the chapel weighs he
 I know the monster is using her as bait. It wants us out in the open so it can finish us off. But I can’t leave Audrey to die, not like this, not when I might still [help](https://new.reddit.com/r/PageTurner627Horror/comments/1cu31vv/broken_dawn/) [her](https://new.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/).
 
 [Part 3](https://new.reddit.com/r/nosleep/comments/1ep0le7/a_killer_gave_us_a_list_of_instructions_we_have/)
+
+[Part 4](https://new.reddit.com/r/nosleep/comments/1fevv3u/a_killer_gave_us_a_list_of_instructions_we_have/)
+
+[Part 5](https://new.reddit.com/r/nosleep/comments/1fnjh49/a_killer_gave_us_a_list_of_instructions_we_have/)
