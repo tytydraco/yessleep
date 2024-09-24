@@ -1,0 +1,18 @@
+
+A little background on this story. My great elderly aunt went to bingo one night with her friend. Her name was Beverly but she never told me her friend’s name due to her traumatic experience with the story and the fate of her friend shortly after. 
+
+My great aunt was a very spiritual person and even practiced prayer and even taught me how to pray. Even though I’m not religious. One night I asked my great aunt as she was watching me at her house, and I asked if to tell me a scary story. In which today, I’ll tell you what she told me.
+
+This story was when my great auntie Bev was in a healthier physical state. Therefore, I’ll start the story. One day my aunt caught a ride with her friend and they went to the city hall to play some bingo. I like to mention this part because it’s important later on in the story.
+
+As my great aunt and her friend arrive at the city hall, where the bingo is starting at. They begin to set up their little spot at a table that is a little far away from the entrance but close enough to the middle table. As they started to set up there table to play bingo, my aunt sat face to face with her friend and her back side to the entrance. While her friend had the seat to look at the entrance door and her.
+
+My great aunt starts to set up her bingo Dabbers, In which her friend points at the entrance and says “look”. My great aunt turns her head and sees a handsome young man in a suit walk inside the city hall and walk around and letting his presence be known. Keep in mind people are around and see him too. 
+
+As the man walks around, great aunt notices a tail under his dress pant. Then out of nowhere he knocks on the table with people sitting beside it. Which spoiler she heard later on from people that table kept winning throughout the night. My great aunt tells people about this and how the man is not good and may not be actually a man and may be something else. But the people in the building ignore her and stare at the man with hesitant eyes but also with curiosity.
+
+But so on, but great aunt gets a bad feeling from the man and immediately looks away and the only one In the building to do so. Not to mention but she tells her friend to look away but unfortunately she doesn’t. Her friend described that after the man knocked on the table, he walked into the wall and became a shadow and his long tail showed when he became a shadow and left the building from the entrance. 
+
+My great aunt wanted to leave but her friend didn’t but furthermore my great aunt left and got a ride home but I’m unsure if her friend left or stayed as Bev never mentioned it. But after weeks after this incident, her friend died in a terrible hit and run near the city hall. It’s in the middle of the city or somewhere close enough. But unfortunately they never found out the perpetrator or anything that hit her friend and the case was left unsolved. Scary enough people were around and this was durning the day but with the many eye witnesses they still couldn’t identify the vehicle or person as it was like it vanished.
+
+My now deceased great aunt told me this story when I was a kid and described to me she met the devil and he must have taken her friend’s soul and cursed anyone that was at that bingo hall. Not trying to say anything but my deceased great aunt didn’t leave this earth easily as well. She almost made it to her 70th birthday. However, I’m not spiritual but this story of her’s makes me really think on what’s really out there. 
