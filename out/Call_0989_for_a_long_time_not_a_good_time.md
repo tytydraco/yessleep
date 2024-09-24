@@ -2,11 +2,13 @@
 
 The message had not been inked, but *engraved* into the plastic laminate partition. It’s the staple of any public bathroom stall. A number that, let’s be honest, is either false or owned by an unwilling participant of a bad practical joke. But this message was different. Unlike the other musings and doodles on the cubicle wall, it caught my eye. That was no meagre feat, considering it was three in the morning, and ten bottles of cider were sloshing around in my belly.
 
-It wasn’t the unbalanced handwriting that entrapped my gaze. Not even the brown trail of rust left in the grooves of the etching. So what if an inebriated moron had written his phone number with his house key? That didn’t interest me at all. My curiosity was piqued by the length of the number.
+It wasn’t the unbalanced handwriting that entrapped my gaze. Not even the brown trail of rust left in the grooves of the etching. So what if an inebriated moron had written his phone number with his house key? That didn’t interest me at all. My curiosity was piqued by the *length* of the number.
 
-Four digits. I didn’t ring it, of course, because I didn’t expect that the call would actually connect. That, along with the backwards wording of the message, started to poison my intrigue. There was an omen lurking in the message. I didn’t like any of it.
+Four digits.
 
-But I shook my head, realising that my drunken mind was playing cruel tricks on me. If a drunken stranger had written the message, it would make sense that he’d only remember four digits of his number. It would make sense that he’d mix up a common saying too.
+I didn’t ring it, of course, because I didn’t expect that the call would actually connect. However, when I really started to think about the message, concerns poisoned my intrigue. There was an omen lurking in the message. I didn’t like it at all.
+
+Still, I shook my head, deciding that my drunken mind must be playing cruel tricks on me. If a drunken stranger had written the message, it would make sense that he’d only remember four digits of his number. It would make sense that he’d mix up a common saying too.
 
 *Get a grip, scaredy-pants*, I told myself, chuckling as I struggled to aim my stream away from the seat of the toilet.
 
@@ -36,7 +38,7 @@ I laughed. “Damn.”
 
 “Yeah,” he replied, tapping his temple with a grin. “See? Even tipsy, I’m witsy.”
 
-“Witsy?” I asked, giggling.
+“Witsy?” I asked, guffawing.
 
 “*Witty*,” he corrected.
 

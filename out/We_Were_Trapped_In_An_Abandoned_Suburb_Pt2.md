@@ -295,3 +295,5 @@ I patted the walkie still attached to my belt loop, hovering over my jeans. Yazm
 Little did we know how much worse things would get from that point on...
 
 [Part 1](https://www.reddit.com/r/nosleep/s/O5HkbjGk8F)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/qqM5wzcATp)

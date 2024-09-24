@@ -56,19 +56,19 @@ Still, none of that settled my gut. It made things worse, though I did not know 
 
 *First time at Cine Cinema? Help yourself to FREE pick ‘n’ mix! We won’t tell if you don’t.*
 
-*DISCLAIMER: 1 well-portioned bag per visitor. No more. No less.*
+*DISCLAIMER: 1 portion per visitor. No more. No less.*
 
 *Smile. You’re always being watched.*
 
-Terrified by that final sentence, I snapped my head around and searched the expansive lobby for a couple of watching eyes in the darkness. There was nothing. But, again, that did not slow my heartbeat.
+Haunted by that final sentence, I snapped my head around and searched the expansive lobby for a couple of watching eyes in the darkness. There was nothing. But, again, that did not slow my heartbeat.
 
-I feared the unseen thing in the emptiness of the cinema. If I were going to meet my end, I wanted to see it coming. I remember that strange thought ringing in my head.
+I feared the unseen thing in the emptiness of the cinema. If I were going to meet my end, I would've wanted to see it coming. I remember that strange thought ringing in my head.
 
 *Will you calm the fuck down?* I thought. *There’s a reasonable explanation for all of this.*
 
 However, that lie wasn’t working anymore.
 
-As I squatted to eye the assortment of sweets in the glass casing, I gulped at the fresh licorice, gummy bears, and cola bottles. Unless they’d been encased in futuristic preservatives, the candy should’ve rotted after only a year of the building being abandoned. And that fact, along with the many other facts surrounding me, solidified what I’d known since entering the cinema.
+As I squatted to eye the assortment of sweets in the glass casing, I gulped at the fresh liquorice, gummy bears, and cola bottles. Unless they’d been encased in futuristic preservatives, the candy should’ve rotted after only a year of the building being abandoned. And that fact, along with the many other facts surrounding me, solidified what I’d known since entering the cinema.
 
 This place was *not* abandoned.
 
@@ -92,13 +92,13 @@ Another lightbulb, midway along the corridor, shone from the ceiling. This one, 
 
 I didn’t want to enter that hallway. I truly didn’t. In fact, I’d wanted to turn and run the second I reached the bottom of the staircase. It wasn’t ego that kept me in the underground cinema. It was the invulnerable power that had pulled me across the ocean in the first place. The same power that pulled my legs, one after the other, in a stilted, unwilling walk towards the hallway. Towards the dissonant, chaotic music emanating from one of the cinema’s screens.
 
-As I entered the corridor, torch shaking in my hand, I feared that my light might reveal some figure lurking in the recesses of the hallway unlit by the single, swinging bulb. I didn’t want to venture beyond the reach of the bulb’s light. The torch alone did little to ease my nerves.
+As I entered the corridor, torch shaking in my hand, I feared that my light might reveal some figure lurking in the recesses unlit by the hallway's single, swinging ceiling light. I didn’t want to venture beyond the reach of the bulb’s glow. The torch on its own would've done little to ease my nerves.
 
-Thankfully, I didn’t have to walk far. The music was coming from Screen 3, and I found myself pushing the door with my free hand before I’d decided whether or not I even *wanted* to do so. I was starting to accept that I had no free will in the matter. Accept it, but fear it.
+Thankfully, I didn’t have to walk far. The music was coming from Screen 3, and I found myself pushing the door with my free hand before I’d decided whether or not I even *wanted* to do so. I was starting to accept that I had no free will in the matter. I accepted it, but feared it.
 
-Inside the room, I *certainly* needed my torch. The only other light was coming from the screen itself. A blinding whiteness. No adverts. No trailers. An absence of imagery. An absence of sound. I was grateful that the brass instruments had ceased the moment I opened the door.
+Inside the room, I *certainly* needed my torch. The only other light was coming from the screen itself. A blinding whiteness. No adverts. No trailers. An absence of imagery. An absence of sound. Of course, I was grateful that the awful brass instruments had ceased the moment I opened the door.
 
-It was clear, by this point, that I was going to sit down and watch whatever the wicked place willed me to watch. I had no control over my limbs, so I gave into the feeling. Allowed my wonky legs to carry me over to a seat a few rows away from the front. With a sweaty, fearful thunk, I plopped down. The moment I did, the screen faded to black, as if it had been waiting for me.
+It was clear, by this point, that I was going to sit down and watch whatever the wicked place willed me to watch. I had no control over my limbs, so I gave into the feeling. Allowed my wonky legs to carry me over to a seat a few rows away from the front. With a sweaty, fearful thump, I plopped down. The moment I did, the screen faded to black, as if it had been waiting for me.
 
 Waiting for *eons*.
 
@@ -108,15 +108,17 @@ And then the title card appeared:
 
 “*What the fuck?”* I screamed once my paralysed lips finally loosened.
 
-My name was on the screen. Next to a date that meant absolutely nothing to me. There was no longer any doubt that I had not simply stumbled upon a place. I had been *brought* there.
+My name was on the screen. Next to a date that meant absolutely nothing to me. There was no longer any doubt that I had been *brought* there.
 
-When the film’s opening shot revealed grainy, black-and-white footage of a town. And as the camera zoomed into one house in particular, my throat tightened.
+The film’s opening shot revealed grainy, black-and-white footage of a town. And as the camera magnified one house in particular, my throat tightened.
 
-The camera revealed my childhood home. Not just that, but *me*. Eight-year-old me, standing on the front lawn. Grass strands poked between bare toes as my younger self held his head back and absorbed the sunshine with a large grin.
+The camera revealed my childhood home. Not just that, but *me*. Eight-year-old me, standing on the front lawn. Grass strands poked between my younger self's bare toes as he held his head back and absorbed the sunshine.
 
-I remembered that day. It was a memory I’d long tried to suppress. But there was, of course, an added element of horror to this stroll down Memory Lane. My memory was being displayed on a film screen, featuring shots from numerous angles. Some inches away from my face. And, as I said, I remembered that day. I knew that there had been no cameras filming me.
+I remembered that day. It was a memory I’d long tried to suppress. But there was, of course, an added element of horror to this stroll down Memory Lane. My memory was being displayed on a film screen, featuring shots from numerous angles. Some were inches away from my face. And, as I said, I remembered that day.
 
-The cinema’s revolving door of terrors had left me in tatters. It wasn’t done spinning. What followed was what I had dreaded the most. As young John danced around in the grass, kicking up clumps of dandelions, a vehicle trundled down the street, and it stopped in front of the blissfully-unaware child. A white Morris Van with serif lettering on its side. The advertisement read:
+I knew that there had been no cameras filming me.
+
+The cinema’s revolving door of terrors had left me in tatters, but it wasn’t done spinning. What followed was the part of the memory that I had dreaded the most. As young John danced around in the grass, kicking up clumps of dandelions, a vehicle trundled down the street, and it stopped in front of the blissfully-unaware child. A white Morris Van with serif lettering on its side. The advertisement read:
 
 *FREE CANDY! 96*
 
@@ -124,13 +126,11 @@ If ‘96’ were supposed to be the date, then the driver had got it all wrong.
 
 As I watched, glued to the seat in the theatre, my heart throbbed erratically. Everything started to piece together, yet *nothing* pieced together.
 
-Even on that day, in 1992, there had been something out-of-place about the vehicle with slim wheels, circular lights, and a boxy body. It may well have belonged in 1928, which was the year of release that the film had listed. Even as an eight-year-old, I knew that the vehicle was an antique.
-
-I knew that it shouldn’t have been there.
+Even on that day, in 1992, there had been something out-of-place about the vehicle with slim wheels, circular lights, and a boxy body. It belonged in 1928, which was the year of release that the cinema screen had listed. However, that was not the year in which *A Day in the Garden with John Walton* was filmed. Even as an eight-year-old, I knew that the vehicle did not belong in the early '90s. And the man who smiled at me did not belong either.
 
 “Hello, Jonathan,” the driver of the Morris Van greeted from an ajar side-window.
 
-The camera cut to him, but the shot was distorted. The picture bore holes which should have contained key features of the driver’s face. It was likely the result of frame burn, but I didn’t need to be reminded. I remembered his face well, even after burying that memory decades earlier. I remembered the man’s direful smile and well-combed moustache. Remembered the question he’d asked, which was captured in a crystal-clear whisper that boomed from the theatre’s many speakers.
+The camera cut to him, but the shot was distorted. The picture bore holes which should have contained key features of the driver’s face. It was likely the result of frame burn, but that was fine. I didn’t need to be reminded of his features. I remembered his face well, even after burying that memory decades earlier. I remembered the man’s direful smile and well-combed moustache. Remembered the question he’d asked, which was captured in a crystal-clear whisper that boomed from the theatre’s many speakers.
 
 “Would you like some free candy, Jonathan?” the stranger asked the frightened boy on the lawn.
 
@@ -142,9 +142,9 @@ I remembered it all with such clarity. Remembered everything *except* the camera
 
 “How do I know your name?” the man responded with a broad smile. “I know *all* of the hungry boys and girls, Jonathan. And you’re very hungry, aren’t you? Very, very, very…”
 
-The screen suddenly plunged into darkness, cutting the image and silencing the audio. Of course, I didn’t need to be reminded of that awful day for a moment longer. I knew what had happened next. I’d run back to the house, screaming for my father, and the van driver had fled before facing the full might of Mr Walton.
+The screen suddenly plunged into darkness, cutting the image and silencing the audio. Of course, I didn’t need to be reminded of that awful day for a moment longer. I recalled what had happened next. I ran back to the house, screaming for my father, and the van driver fled before facing the full might of Mr Walton.
 
-I reached for my torch to illuminate the darkness, then I stood up and cast the light around the room.
+Sitting in the blackened cinema, I reached for my torch, then I stood up and cast the light around the room.
 
 “… *hungry*,” finished a whispering voice from behind me.
 
@@ -152,29 +152,31 @@ I screamed at the delayed closure of the sentence, and I spun around to reveal, 
 
 The man from my childhood.
 
-He wore an unbranded, featureless outfit. Something donned by a plumber or a mechanic, not a candy salesperson. The man was not any of those things, of course.
+He wore an unbranded, featureless outfit. Something typically donned by a plumber or a mechanic, not a candy salesperson. The man was not any of those things, of course.
 
 He was not a man at all.
 
-The malignant figure reached a hand forwards, and I froze as his soft fingers lightly brushed my face. I felt only a warm, soothing sensation. But a second later, as the man pulled his searching fingers away from my face, I screamed.
+The malignant figure reached a hand forwards, and I froze as his soft fingers lightly brushed my face. I felt only a warm, soothing sensation. But a second later, as the man pulled his searching fingers away from my cheek, I yelled.
 
 Hanging over the edge of his fingers was a strip of fleshy fabric. The man lifted it to his lips and gave it a timid, bashful lick with a long, white tongue. Then my cheek started to throb painfully. It scorched, in fact, and I reached a shivering hand to my face. I found a skinned wound that stung and stained my hand in blood.
 
 My scream reached a crescendo then disappeared into nothingness as the man raised a finger to his munching mouth.
 
-“Tastes like somebody needs a sweetie,” he mumbled through mouthfuls, hiccuping with delirious laughter. “You’ve been good for *so* long. It’s okay to be naughty, Jonathan.”
+“Tastes like somebody needs a sweetie,” he mumbled through mouthfuls, hiccupping with delirious laughter. “You’ve been good for *so* long. It’s okay to be naughty, Jonathan.”
 
-Mouth unable to release a sound, I swivelled on my heel and ran. Ran down the stairs. Ran out of Screen 3. I lit the way with a torch that flung up and hand in my flailing hand, and I tried desperately to block out the clunking footsteps in tow.
+Mouth unable to release a sound, I swivelled on my heel and ran. Ran down the stairs. Ran out of Screen 3. I lit the way with a torch that flung up and down in my flailing hand, and I tried desperately to block out the clunking footsteps in tow.
 
-The smiling man’s charge was accompanied by the sound of fanfare once more, though it was now wobbly and muffled. I started to wonder, in terror, whether the music might be coming from his own *mouth*, but I didn’t stop to turn and find out. I burst through the door as more laughter sounded from behind me.
+The smiling man’s charge was accompanied by the sound of fanfare once more, though it was now wobbly and muffled. I started to wonder, in terror, whether the music might be coming from his own *mouth*, but I didn’t stop to turn and find out. I burst through the door as more laughter bellowed from behind me.
 
 “Hungry…” the man called, either as a question or a statement.
 
-I pelted through the lobby and found the staircase. Ascending it was *far* harder than descending it. Possibly due to my continued stumbles, as my body wilted in the face of the following monster. A monster intent on seizing a man that it had been stalking for thirty-two years.
+I pelted through the lobby and found the staircase. Ascending it was *far* harder than descending it. Possibly due to my countless stumbles. My body wilted in the face of the following monster. A monster intent on seizing a man that it had been stalking for thirty-two years.
 
-When I made it out, the clunking footsteps stopped, as if the creature were unable to exit its dungeon. And I turned around, fully expecting to see nothing but darkness in the staircase. However, standing silently and motionlessly, a mere three or four steps from the entrance to the staircase, was the Morris Van driver.
+When I reached the building above, the clunking footsteps stopped, as if the creature were unable to exit its dungeon. I turned around, fully expecting to see nothing but darkness in the staircase. However, standing silently and motionlessly, a mere three or four steps from the entrance to the stairs, was the Morris Van driver.
 
-He wasn’t smiling anymore. His lips were horizontal. Perfectly level. And his eyes did not blink as they surveyed me. The driver twisted his head slowly as I backed out of the building. His gaze following me as I moved away. When I reached my car, I looked back to see the man peeking his eyes past the edge of the staircase’s side-wall.
+He wasn’t smiling anymore. His lips were horizontal. Perfectly level. And his eyes did not blink as they surveyed me.
+
+The driver twisted his head slowly as I backed out of the building. His gaze followed me as I moved away. When I reached my car, I looked back to see the man peeking his eyes past the edge of the staircase’s side-wall.
 
 I fled across the sea. He did not follow.
 
