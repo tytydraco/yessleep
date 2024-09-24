@@ -168,7 +168,7 @@ After the massacre, the nightmares started. My shrink said I had PTSD and handed
 
 I raise my gun instinctively. 
 
-Águila holds up a hand. “Relax, amigos," he says with that same sick smile. "You’re not joining them today. Not if you play your cards right.”
+Águila holds up a hand. “Relax, amigo," he says with that same sick smile. "You’re not joining them today. Not if you play your cards right.”
 
 I lower my weapon slightly, though I don’t holster it.
 
