@@ -234,6 +234,6 @@ My harsh tone would have normally sent Gordon into an angry fit, but this time h
 
  
 
-“Not a sacrifice this time, Cliff.  A trade.”  He gestured to the room and then to me.  “One son for another.”
+“Not a sacrifice this time, Clint.  A trade.”  He gestured to the room and then to me.  “One son for another.”
 
  
