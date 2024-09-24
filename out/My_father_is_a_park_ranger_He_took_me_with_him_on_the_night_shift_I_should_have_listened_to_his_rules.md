@@ -329,4 +329,4 @@ I'd thought I'd unlocked the trap door to my dad, when he'd actually taken an AT
 
 The thing I'd ran over wasn't my dad, and I'd known it since I felt that unnerving silence.
 
-However, no one at the checkpoint had seen my father. As I'm typing this, I'm afraid for him, but a part of me knows he's alive. Maybe he took another route, or got lost. Whatever he did, I'll find him.
+However, no one at the checkpoint had seen my father. As I'm typing this, I'm afraid for him, but a part of me knows he's alive. Maybe he took another route, or got lost. Whatever he did, I'll find [him.](https://www.reddit.com/r/nosleep/comments/1fohz8x/my_father_is_a_park_ranger_he_took_me_with_him_on/)
