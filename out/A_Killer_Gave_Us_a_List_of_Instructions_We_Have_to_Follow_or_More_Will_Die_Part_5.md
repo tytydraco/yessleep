@@ -227,7 +227,7 @@ Mateo stares at me, his body shaking as he struggles to his feet. It’s a pitif
 
 “Stop it,” I say, the barrel of the Beretta mere inches from his forehead.
 
-My finger hovers just above the trigger, ready, waiting. But for a brief second, I hesitate, lowing my weapon.
+My finger hovers just above the trigger, ready, waiting. But for a brief second, I hesitate, lowering my weapon.
 
 “Shoot him,” Águila growls, stepping closer. His tone is casual. “Like you did that pig at the warehouse.”
 
