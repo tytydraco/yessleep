@@ -241,3 +241,5 @@ I rewinded and paused the recording at the right time frame. Zack and Bryce's re
 [Part 2](https://www.reddit.com/r/nosleep/s/vuORBvEP9o)[Part
 
  [Part 1](https://www.reddit.com/r/nosleep/s/0BBhpXI4qR)
+
+[Part 4](https://www.reddit.com/r/nosleep/s/x8TqX81VIm)
