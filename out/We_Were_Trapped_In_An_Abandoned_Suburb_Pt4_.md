@@ -1,4 +1,4 @@
-*Their reflections had no eyes."*
+*Their reflections had no eyes.*
 
 Just empty, black sockets. It wasn't a split second frame either, every moment where the camera catches their reflections, they appeared to have no eyes. 
 
@@ -6,7 +6,7 @@ The reality began to set in.
 
 I had been suspicious, but I hadn't known it was truly that bad. If anything, I thought the real Bryce and Zack were somewhere hurt, and these were just copies. The truth was, they were eyeless wraiths, just like the four victims of the Eye Ripper, their spirits corrupted by the evil here.
 
-*'Soullessness hurts,’ that's what Zack had said. Zack fell victim to that boy in the basement, then Bryce fell victim to Zack when we left them alone together. They wanted to lure us outside so they could jump us and take our eyes like their eyes had been taken. It was like a zombie infection type of thing, if your eyes were ripped out in this ghastly place, you ended up a monster as well. Forced to haunt a limbo, looking for something you may never find, driven to mutilating living people despite it not doing anything but spreading the torment like a virus. 
+*'Soullessness hurts,’* that's what Zack had said. Zack fell victim to that boy in the basement, then Bryce fell victim to Zack when we left them alone together. They wanted to lure us outside so they could jump us and take our eyes like their eyes had been taken. It was like a zombie infection type of thing, if your eyes were ripped out in this ghastly place, you ended up a monster as well. Forced to haunt a limbo, looking for something you may never find, driven to mutilating living people despite it not doing anything but spreading the torment like a virus. 
 
 I was determined not to end up like that. 
 
@@ -133,8 +133,8 @@ I thought of something, and patted my pockets. I pulled out the phone I had foun
 *“They won't let me leave!”* She desperately screamed as she ran for her life.  *“If you're here and you're listening to this, you need to find what's left of him here! That boy, Will, he was the last and he got free! He ran into the trees but the killer caught him! His parents are part of the occult, he started this, I just know he did! Please, I don't want to be like them!”* 
 
 “Jesus,” I whispered, Vanessa in silent shock as she looked over my shoulder. Yazmine still hadn't moved from her spot but she stared at us, unnerved. 
-*
-“It's her, it's Rachel,”* the woman cried, *“she doesn't have any fucking eyes and she's been chasing me for hours!”* There was another minute of panting and thundering footsteps before: ***“Nooo! Stop! Rache-!”***  
+
+*“It's her, it's Rachel,”* the woman cried, *“she doesn't have any fucking eyes and she's been chasing me for hours!”* There was another minute of panting and thundering footsteps before: ***“Nooo! Stop! Rache-!”***  
 
 Suddenly, the camera was now focused on the ground as the woman dropped her phone and screamed gutturally, followed by a wet squelching sound and a resounding thud that shook the camera a bit. She was silent. Then feet walked into the frame, wearing sandals. The phone was picked back up, and we gasped as the camera focused on the eyeless corpse of Lisa Waller, sprawled over the forest floor. 
 
@@ -269,3 +269,9 @@ All the entities stopped their creepy activities and watched her for a moment, t
 “Let's go!” I climbed out the car with Vanessa and we ran into the Eye Ripper house through the front door. There seemed to be no wraiths in sight...
 
 ...Not right at that moment, at least. 
+
+[Part 1](https://www.reddit.com/r/nosleep/s/VA4ihtCPHq)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/WiMIkXsrLD)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/YAsOeEK6wc)
