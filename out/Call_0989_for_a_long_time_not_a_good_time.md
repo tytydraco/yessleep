@@ -94,7 +94,7 @@ Barmy Barry narrowed his eyes. “I’m going to tell Michele that you two are u
 
 My friend summoned a deep breath.
 
-“It was only Barry,” I said, before gulping. “Just… hang up the phone, Mason. We don’t need to keep talking to him.”
+“It was only Barry,” I said, before gulping. “Just… hang up the phone. We don’t need to keep talking to him.”
 
 “*Who is this?”* the phone voice repeated with that horridly unnatural timbre.
 
