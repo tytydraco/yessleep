@@ -180,6 +180,6 @@ The driver twisted his head slowly as I backed out of the building. His gaze fol
 
 I fled across the sea. He did not follow.
 
-That was five days ago. I’ve barely slept since. Barely ate, as food only makes me think of the horrible things the Free Candy man said. I’m not safe. I’ve not been safe since I was a child.
+That was five days ago. I’ve barely slept since. Barely eaten, as food only makes me think of the horrible things the Free Candy man said. I’m not safe. I’ve not been safe since I was a child.
 
 And I’ll never be safe [again](https://www.reddit.com/r/dominiceagle).
