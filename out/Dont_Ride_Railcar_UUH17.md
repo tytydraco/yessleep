@@ -42,4 +42,4 @@ My plan is to head to Belize, or maybe even farther. I don’t think I want to b
 
 Whatever the fuck you do, listen to me. Do not ride with the devil and stay the fuck away from UUH17. Don’t ignore this warning, because it will use the things you fear to rob you of everything you know. 
 
-Don’t Ride Railcar UUH177
+Don’t Ride Railcar UUH17
