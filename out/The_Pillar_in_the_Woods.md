@@ -1,4 +1,4 @@
-Growing up in a smaller suburban town, as a 17 year old the only things to do were drugs or late night drives. My best friends, Casey and Danielle were driving with me late at night from a Walmart the next town over. I was always the back seat friend but what can you do? Some people are more meant for each other than others but they were the only two people other than my family that I ever felt any connection to. 
+Growing up in a smaller suburban town as a 17 year old the only things to do were drugs or late night drives. My best friends, Casey and Danielle were driving with me late at night from a Walmart the next town over. I was always the back seat friend but what can you do? Some people are more meant for each other than others but they were the only two people other than my family that I ever felt any connection to. 
 
 We were cruising down the one of the small two-lane highways that stitch towns together between the vast rural areas of Upstate New York, when I saw an erected telephone pole covered in blue flame tucked into the bordering woods.
 
