@@ -184,4 +184,4 @@ It's been two weeks since that incident. My left arm is in a cast now. Something
 
 I'm sure me astral projecting isn't the answer to this whole ridiculous situation. Something is waiting for me to leave my body should I attempt to astral project. It's a no-go.
 
-But, the thing is, when I was alone at the hospital after having my arm put into a cast an idea occurred to me out of the blue. A possible solution to get my family back. It's an insane idea, but I don't see any other way. I'm going to have to try it. Wish me luck.
+I still don't know how to fix this situation. I feel so helpless. I'll keep trying to think of something. Wish me luck. 

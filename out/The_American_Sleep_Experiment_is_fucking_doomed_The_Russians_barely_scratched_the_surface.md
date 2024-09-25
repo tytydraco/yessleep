@@ -58,4 +58,4 @@ I have my own ideas about what it is. It seems too… benevolent, I guess. Like 
 
 The three of us have made a plan. There’s a surgical saw in the medical bay. I’m hoping we can use it to cut through one of the vents, and possibly, just maybe, get the hell out of here. It’s going to be a long shot, but it’s either that or stay here and see what happens. Much rather try to escape than see what happens when those specters turn their full attention to us.
 
-Before anything else happens, I’m afraid I’m going to have to confront mom. I don’t… I don’t want to. But I fear I won’t get out of here alive until I face my [fear](https://www.reddit.com/u/googlyeyes93/s/cqjEavcATb).
+Before anything else happens, I’m afraid I’m going to have to confront mom. I don’t… I don’t want to. But I believe I won’t get out of here alive until I face my [fear](https://www.reddit.com/u/googlyeyes93/s/cqjEavcATb).
