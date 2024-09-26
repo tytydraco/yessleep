@@ -22,9 +22,9 @@ A guy westbound from Gatlinburg told me it was filled with spiders. Another, whi
 
 Melt… like a chocolate bar in the fucking sun. It was then I vowed to ride every car I saw with a Devil graffitied on the side of it. If that was an option, that’s what I aimed for. I thought it fitting, considering what my parents used to call me. The demon child... in a demon car. Badass.
 
-They were always specific about UUH117, but I had never bothered to look at the numbers anyways… who gives a fuck what they’re called, so I just decided I might as well make it my thing. Eventually, if it were gonna show up, it would; and so it became muscle memory to ride with the devil. 
+They were always specific about UUH17, but I had never bothered to look at the numbers anyways… who gives a fuck what they’re called, so I just decided I might as well make it my thing. Eventually, if it were gonna show up, it would; and so it became muscle memory to ride with the devil. 
 
-UUH117 caught me leaving Sacramento, headed back to Portland. Hell, for all I know, I probably passed Stu’s decomposed arm inside it. I had completely forgotten of its existence at this point; a condition I would never be able to enjoy again. I remember thinking the face on the side was a lot more elaborate than any other I had  seen. It had unsettled me as I hopped on and slammed the door home to my own personal hellscape. 
+UUH17 caught me leaving Sacramento, headed back to Portland. Hell, for all I know, I probably passed Stu’s decomposed arm inside it. I had completely forgotten of its existence at this point; a condition I would never be able to enjoy again. I remember thinking the face on the side was a lot more elaborate than any other I had  seen. It had unsettled me as I hopped on and slammed the door home to my own personal hellscape. 
 
 I have worked for a long time to repress this ride, but no amount of brown liquor could wipe clean its memory completely. Bits and pieces of it come back to me in moments of idle silence, causing me to yell like a wounded and afraid coyote. 
 
