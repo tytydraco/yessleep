@@ -2,6 +2,7 @@ I have made this post before a long time ago on a different subreddit, but I thi
 
 I have always believed in ghosts and have seen several and one with video evidence, and even seen what I think may have been a demon one time. But those are all different stories. The reason I mention them is that the events I'm going to describe only cements my belief in the paranormal. 
 
+
 The Black Shuck: 
 It was late one night sometime between 12 - 2 a.m. (the exact time and date is foggy in my memory) in the late summer of 2009. I was 15 at the time. A few friends and I had planned to meet up at the park, namely Brentwood Park, to smoke and hang out for a little while. 
 
@@ -38,6 +39,7 @@ My grandmother on my mother's side passed away in October of 2009, a couple mont
 
 I know this is long, but bear with me for more creepy things. 3 other things have happened to me in this park. The first thing I'll describe happened in the literal exact same spot as I'd seen the black shuck. 
 
+
 A Brilliant Eagle:
 Two or three years before the incident with the black shuck, it was a nice and warm, beautiful spring day. I was going to cut through the park to meet up with some friends to hang out. I went down those same steps and in the exact same spot the black shuck was standing in, there was a giant, bright white eagle. As soon as I got down there, it noticed me before I noticed it. 
 
@@ -45,5 +47,28 @@ As soon as I noticed it, its back was facing me and it was turning its head back
 
 I've spent a long time trying to research what exactly it was that I saw, and have come up empty handed. The only birds on the planet with a relative size are harpy eagles and albatross, which neither of those are the same thing as what I saw. The only other eagle of similar coloration is more gray and much smaller. There are no myths, legends, tales or lore that I can find describing anything like giant white eagles. If anybody can tell me what I saw, please do so. 
 
+
 My Odd Sensation: 
-This one happened sometime after seeing the eagle, but long before my black shuck encounter. A much shorter story, a group of my friends and 
+This one happened sometime after seeing the eagle, but long before my black shuck encounter. A much shorter story, a group of my friends and I were hanging out at the park, planning on going to a place we called "The Spot", which was a part of the nearby creek that has a bunch of concrete debris sitting around, which had a neat little arrangement for people to hang out at. 
+
+We were in the field under that massive old tree at the corner of the field near the creek, standing, goofing off and talking before we went to The Spot. Suddenly, I got a strange feeling over me, telling me we needed to move. 
+
+"Guys, I think we need to move," I said. 
+A few of them responded in tandem, "What, why, what're you talking about?" 
+I said, "we just need to move, please." 
+
+They agreed, to humor me, and so we did. The second we were clear from under the tree, a HUGE branch fell from it right where we had been standing. I was happy to have saved all of our lives, and grateful they listened to me. 
+
+
+The Ghost Army: 
+From now on, when someone tells you a ghost story, it would be wise to believe it. I always believed in ghosts, but when I was confronted with this story, I just didn't believe it. There were always rumors that Brentwood Park was haunted, and many people had differing stories of things that would happen down there. Many of them very believable, others highly skeptical. This one was a skeptical one, so I didn't believe it. The crazy part is it wasn't my experience. This was the first event that ever happened to me in the park. 
+
+So an older kid came to my friend and I with a story about the park, talking about a girl that was murdered there and her ghost walking around the park at night sometimes, looking for revenge. My friend and I didn't believe it. There was a lot of bad things that have happened in the park, and I've been there at night plenty of times and even slept there at night without something crazy happening. (The funny part is that the time I slept there was long after this event.) We said this, and the older kid told us we have to talk about the event while we were down there. 
+
+So we did. That night, my friend and I went down to the park, sat at one of the baseball field team benches and began talking about the event, giggling and joking about it because we didn't believe it. What happened next almost made us defile our pants. Suddenly we started seeing bodies. Bodies everywhere. Dead bodies. All over the ground, all over the park, everywhere we looked. But they were glowing white bodies. So what we were looking at was a bunch of ghost bodies all over the park. 
+
+We started freaking out and left the park as fast as possible, running and jumping over the bodies as we went. As I ran, I noticed something extremely odd about the corpses - half were wearing British Imperial Army uniforms, the other half were wearing kilts and Scottish plaid attire. Why these ghost's corpses were in the United States always made me wonder what on Earth I saw that night. 
+
+My conclusion is that Brentwood Park itself is an anomaly, attracting odd and paranormal creatures and events to it. It would make sense, seeing that so many different things have happened to so many different witnesses down there - specifically including my last story about the ghost army. 
+
+For anyone that stuck around to hear my encounters at Brentwood Park, I thank you. Always be wary that there are things we do not know about this world. And with that, have a great day!
