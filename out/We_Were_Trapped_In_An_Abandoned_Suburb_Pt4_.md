@@ -275,3 +275,5 @@ All the entities stopped their creepy activities and watched her for a moment, t
 [Part 2](https://www.reddit.com/r/nosleep/s/WiMIkXsrLD)
 
 [Part 3](https://www.reddit.com/r/nosleep/s/YAsOeEK6wc)
+
+[Part 5](https://www.reddit.com/r/nosleep/s/GwNtLHB6j6)
