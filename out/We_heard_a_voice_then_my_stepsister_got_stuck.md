@@ -80,7 +80,7 @@ Evie and I stared at each other, then back at the jawbone.
 
 *Boy? Girl? Speak!*
 
-“Can you hear a voice” I asked Evie.
+“Can you hear a voice?” I asked Evie.
 
 “Yeah.”
 
