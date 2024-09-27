@@ -1,21 +1,71 @@
-I sat there at the dead of night, lying on my bed, not even bothering to pick up the litter of clothes that are spread across the floor. I was wide awake while the deafening silence grew louder and louder, so much so that all I can hear is nothing. The pile of clothes seemed to multiply the more I look at them, the dirty stains of ketchup on one of the clothes makes it look like blood in the moonlight, it makes me feel uneasy but I know better that it’s just a piece of spilled condiment. There was no light in the room, the only light source I have are the moon and my computer, making the atmosphere more-gloomy than it should’ve been. I lie on my bed thinking about the choices I have decided and if they are the best or worst choices to make. The night did not seem to end no matter how long I waited, seconds turned into minutes, minutes turned into hours, all I can do now is distract myself with games, but that seems impossible in my current state.
 
-&#x200B;
 
-Out of boredom I got up from my bed and went for a night stroll. The cold breeze instantly hit my skin right as I went outside. The empty streets felt so peaceful, the windy roads, the breeze on the trees, the cold atmosphere, all that and the lack of people is more comforting than I thought, I might've even fell asleep outside on the cold hard pavement, but what was I thinking, I’ll catch a cold and a fever is not worth it for a little bit of comfort. As I walk on the empty street, passing by dark alley ways, stray cats, bus stops, closed shops, and street lamps, I sometimes see something on the corner of my eyes, something dark with bright white eyes, its face oozing with black substances, and its eyes glow bright in the dark but doesn’t emit any form of light. Every time I see that “thing” I thought to myself that it’s just my paralysis demon or just my tired brain making me see things, but deep inside I knew that that “thing” isn’t just in my head. I continued walking seeing that “thing” from time to time, every time I see it makes my body shake, my throat dry, and my heart beating faster and faster.
+This happened earlier in 2024, around January, so for some background information I had been struggling with my mental health for awhile, and I got sent to a inpatient unit, commonly known as a psych ward. 
 
-&#x200B;
+This was nearly a year ago so the dates may be off a bit. So on the night of January 4 I attempted su*c*de. And I got sent to an Impatient facility in early morning of January 5, I got set in the adolescent unit along with others, I am in my late teens. The rooms they had in my unit where all double bedded, so you would have a roommate u less your doctor requested otherwise.
 
-After a long walk I finally found a café that is open 24 hours, I felt a sigh of relief exit my lungs and out my mouth while I made my way to an empty sit nearest to the window. The weird thing is, I have gotten used to that “thing” that has been following me for an hour, I’m still not sure why I got used to it that fast let alone getting used to it in general, there is just that lingering feeling that is strangely familiar whenever I see it. I ordered a small cup of cappuccino, probably not the best thing to drink in the middle of the night when you are a person that can’t sleep at all but what can I say, I loved coffee ever since I was young. The waitress gave me what I ordered in a small tray with some packets and a tiny spoon. I took a small sip on the coffee, it tasted bitter, sweet and very hot while it hit my tongue, as I swallowed, I felt the heat flow through all around my body, that is the greatest feeling after a long night of walking in the cold streets. As I looked out the window, I saw it, that “thing” looking through my soul. Now that I can see it more clearly without being scared, I just now only noticed it’s smile, that horrifying smile, it is as white as its eyes but it has no teeth only a white curve across its face.
+Now into the story, 
 
-&#x200B;
+My discharge date was coming up in a few days, it was a normal day, I’m not sure what week day it was but now it was around early January teens like the 11 or 12, It was a chill day, the unit I was in went down to the gym, most of the other kids where in the corner, talking about whatever they do, girls talk about whatever shit. 
 
-I left the café after finishing my cup of coffee, as I was leaving it started to rain. The little droplets of the rain began to hit my not-so-protected head, I always love hearing the pitter patter of the rain while I walk drenched in water or not. As I walked on the streets, the rain began to drop more rapidly and the wind became stronger, I didn’t bring my jacket when I went outside so I’m just walking in the brewing storm without a little bit of protection. The peaceful sound from the soft rain suddenly disappeared and all I could hear was the rush of water hitting the ground like a person speaking gibberish. Lighting struck suddenly I felt the ground rumble for a bit and a flash of light before it happened, I hear thunder rumble every time lighting struck from cloud to cloud. I ran as fast as I could from the rain stopping under any bus stops I could see to take a short brake.
+Me and my friend where just near the door, sitting next to one of the teks, teks are like the staff, we where like experimenting with music, and the speaker, with staff supervision of course. Keep in mind that I am religious, I won’t specify for reason, but yeah. 
 
-&#x200B;
+We were just sitting in the corner of the gym, with the speaker, chatting when another kid that was another friend of mine walked over to us,
 
-I finally reached my house, I went to take a bath first to avoid getting sick, after that I picked up all my dirty and wet clothes and put all of them in small hamper, waited till my hair dried up and then went to bed. Like before, I couldn’t sleep but it was different this time, that “thing” it is now inside my house and it is staring right at me with its bright soulless eyes. I couldn’t care less because I wanted to sleep, I stayed awake long enough and I needed to sleep. I faced the other side of the bed where the window is, safe to say that the “thing” is not outside the window but it is right behind me still staring. 
+“Hey guys, did you guys see a tall black woman in that corner.” The friend that came over and walked over to us, and pointed to the corner on the opposite corner of the gym.
 
-&#x200B;
+“I’m sorry what?” I said
 
-It has been staring at me for a while now growing closer, as it grew closer, I could even smell it, it stinks like a rotting corpse it also smelled like sewer water, not like that will make me feel better. It made me anxious all over again, the thing grew closer and closer its rancid smell becoming stronger and stronger, smellier and smellier, becoming more unbearable. I didn’t even know if I was awake or not, all I knew is that I wanted this nightmare to end as soon as possible.
+“You haven’t seen her- or it?” The friend I was sitting with said
+
+“N-no!? What? There are spirits in here!?” I was freaking out at this point, my friend then walked away
+
+And I tried to forget about it, the topic really didn’t come up for the rest of the day.
+
+Until the end of the day.
+
+It was around 8 pm, rooms where open and everyone was in and out of their rooms, my friend came out of their room to me and my friend 
+
+“Guys.. I saw her.”
+
+I looked her, startled
+
+Everyone started to talk and whisper about it, and I really don’t remember anything after that.
+
+Fast foward to the morning,
+
+I went out to the day room when I was done getting ready for the day, some people where out in the day room. And they were talking, about- it.
+
+“Whats going on guys?” I asked them
+
+“Oh we we just saw her.”
+
+Everyone said different things like:
+
+“She was laying on the ground, and then she got up, and went into the bathroom, and shut the curtian. She also turned off my light in the bathroom.
+
+“She was standing in the corner next to the closet book case thing, then she walked into the bathroom and shut the curtian.”
+
+Keep in mind that we didn’t have doors to the bathroom, just shower curtains, as a precaution that you can’t hurt yourself. It was wierd because many people saw her, people with roommate and people without roommates. And yes people saw her, many people. 
+
+Someone that came to that unit a year ago, was admitted and they confess that they saw her when they were there a year ago. This freak the fuck out of me. This continued to different people, she would be standing or doing something, sometimes just staring not moving. Sometimes people would even report seeing her leaning over the bed, looking at the patient. 
+
+I didn’t see anything, It was wierd because people that where religious didn’t see anything. That included my roommate, that got moved to another room. Somewhere between all this, it got brought up to the attention of staff. 
+
+She was about 8 feet talll, also keep in mind there was night and day staff, each having 8 hour shifts, changing at 6 am and 6 pm. The nurse when it was brought up to her attention kept saying like,
+
+“It was just staff, they go into the bathroom, and shut the curtains, and then off the lights.”
+
+“The staff shine the light, and can look over you.”
+
+We knew well enough that it wasn’t staff, the tallest staff was male, and was nearly only 6’5,
+
+When we got a new admit, and they could see her, sense the energy. Someone’s room that they had there only room for specific reasons. They saw her.
+
+The person that had that room freaked the fuck out. 
+
+The shadow woman would be in some rooms, and she would be anywhere, then she would go into the bathroom, and wether the shower curtain was open or not, she would go into the bathroom, and just disappear. 
+
+I was freak the fuck out, I slept with all lights on, barely sleeping. 
+
+That was it, people kept seeing her. I left a few days after. I don’t want to know what that thing was.

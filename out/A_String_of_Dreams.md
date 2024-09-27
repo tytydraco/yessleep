@@ -1,0 +1,25 @@
+PART 1 
+
+I’ve opened up my notes app and decided to log strange dreams I had a while ago
+
+It started off in the middle of a patch of woods, almost everything was in black and white all the trees were dead and ash was falling like snow. Every step that was taken was followed by leaves crunching and twigs snapping. As I try to move my legs I’m bound by a pair of arms, I’m being carried deeper and deeper into these woods. I look to my right and see a medium sized man, he looks to be about in his early forties', wearing a light blue flannel and a pair of khakis. He has a pair of circle glasses, clean shaven face, receding hairline, and it’s starting to turn gray. 
+
+While being carried through the woods I hear running water approach behind me. As I get placed into a basket that’s laying on the ground, I get to catch a glimpse of my own body and I’m stuck in a body that can’t be older than 2 years old.
+
+ I get a good look at the woman who carried me this whole time. She wore a deep red bonnet with a white dress, polka dotted with little pictures of cherries, black gloves and had a face with a slightly bluish tint and every feature missing. No eyebrows, only little indentations where eyes, a mouth, and nose were supposed to be. As she picked me up and placed me into the running water behind me. I couldn’t do anything to save myself. It's like I was in some kind of paralysis. I tried to speak but I felt the words bubble up in the back of my throat and any noise that came out was fragmented syllables when strung together made less sense than a word salad. 
+
+I glanced up at the missing canopy’s of the trees as I floated down the stream. Surrounded by the chittering of insects, barks from red foxes, and the calming sounds of the flowing stream I started to doze off and that’s when I woke up. 
+
+The very next dream later the following night picks up where the last one left off. 
+
+Everything was dark, completely embraced in void. I felt my entire body jolt. As I came to I noticed I had stopped floating, I took a step out of the basket the strange woman put me in and stood up on the bank of the stream. Once I gained balance I started walking through the woods and stumbled upon an abandoned shack. I made my way into the broken down bedroom and found an old, slightly burnt oak dresser with one of the drawers open. Inside there was a plain black t-shirt with light blue jeans folded neatly and placed on top like someone had left it there knowing I would find this place. Next to the clothes there were black tall socks and a pair of brand new white high top Converse.
+
+When I placed my hands on the clothes to put them on they were warm to the touch like they had just come out of a drying machine. Closer inspection concludes there wasn’t a single spec on the clothes and the smell of detergent flooded my nose. Once I was dressed I found a shattered mirror on the floor, I picked up a piece and took a good look at myself. I couldn’t be any younger than 17. I knew at that moment I had to find a way out of these woods, just being in them was aging me. I stepped out of the barely stable shack and that’s when I saw the same balding man staring at me. He didn’t move, just stood and stared. A sharp pain shot through my head like a flash of lighting branching out and down my spine, wrapping around my ribs. Presumably the voice of the man rang through my mind in a whispery, echoing voice that sounded almost like he was speaking in reverse and said, “You.” Then I woke up. 
+
+It had been some time from the last dream before I had this next one. I would say about a month or so. 
+
+A white light flashed, quick footsteps fell after another, leaves crunching, heavy breathing. I was running. Like full on sprinting. Every tree that passed I saw its shadow follow. I would approach a tree and its shadow would be cast on me, as I passed the tree the shadow came with me.
+
+Constantly changing like the sun was rising and falling per second. I ran and ran until it felt like my feet were actively falling off. For every other tree I passed on my left I saw the man standing and staring me down. It felt as if there were eyes all around me at all times, his voice echoing through my head as I ran. He would say things like: “you’re encased in these woods”, “why run?”, “come be with your real family”. I felt a force pull me backwards as I ran like I was running straight up a wall, and heard an ear rupturing scream bounce around the walls of inside my head. It was unbearable, as I felt something warm trickle down the side of my face I heard a loud pop and then nothing but ringing. 
+
+As I fell to the ground I grabbed the sides of my head and looked at my hands, they were coated in blood. I looked behind me to see the man standing at the entrance of the woods like he couldn’t get past that last tree. I laid on the soft, vibrant green grass writhing in pain as he spoke to me through my thoughts. All he said was “soon.” Then he turned and walked deeper into the woods.  
