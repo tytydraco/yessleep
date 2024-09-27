@@ -234,4 +234,4 @@ I am typing this out on the road, right next to Ramu’s faceless corpse, but I�
 
 I’m still trying not to look at the body. No villager has arrived on the scene yet. They must all be busy in the fields or at work. The bus driver… I suppose I cannot call him that any longer. The man with the starry eyes? Too long. Anyway, he said this place would be safe for some time, but that provides little comfort now to my shaking hands. I have made an astounding number of spelling mistakes already. Every time I look away from the screen, I see that ashy, grey spiral, burned into my vision.
 
-Just what the hell have I gotten myself into?
+[Just what the hell have I gotten myself into?](https://www.reddit.com/r/nosleep/comments/1fqrdir/chhayagarh_meet_the_family_and_the_monster/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

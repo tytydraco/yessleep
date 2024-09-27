@@ -242,7 +242,7 @@ I can already feel something shifting, inside me. Like roots reaching into my co
 
 If I don’t leave now, I may never leave at all. Not really.
 
-And if that happens, one way or another, I will die here. But if I leave, it’s clear that something is going to go horribly wrong here. The signs are here. I can taste it in the air, like an insurance lawyer can hear sirens all the way on the other side of the city. Chhayagarh is overdue for a disaster.
+And if that happens, one way or another, I will die here. But if I leave, it’s clear that something is going to go horribly wrong here. The signs are clear. I can taste it in the air, like an insurance lawyer can hear sirens all the way on the other side of the city. Chhayagarh is overdue for a disaster.
 
 What do you guys think? Should I go back to the city? While there’s still a chance?
 
