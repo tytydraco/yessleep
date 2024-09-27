@@ -2,31 +2,34 @@
 
 [My Grandpa Knows David Part 2](https://www.reddit.com/u/ThatGuyWhosAfraid/s/lqQT2csSB0)
 
+
 I am unsure how to start this final post, or even how to go about writing this entire thing. It’s been awhile since my last post on David so I suppose I should start with what came after it.
 
-It was my Grandpa, Justin, and me, sitting around the dinner table with plates full of food prepared by Grandma. We did not speak much. All of us, maybe not Grandma, were thinking about David.
+A few days had passed without any news on David. Mom was still in the hospital but was doing better. My Dad and Sister are currently staying at a hotel until mom gets better, not wanting to be at our house if David comes back. Then there was my Grandpa, Justin, and I who prepared to fight David at the first sight of him. We didn’t do much, mostly reading articles about ‘bear’ attacks in the area. Every now and then we’d get bored and watch a YouTube video on a random subject that we wouldn’t know much about. It would be like this for many days, until the night that David attacked
+
+It was my Grandpa, Justin, and me, sitting around the dinner table with plates full of food prepared by Grandma. We did not speak much. All of us (maybe not Grandma), were thinking about David.
 
 It was a good meal.
 
-Time would pass by as the five of us ate. My grandmother talked the most out of us. She would tell Justin how great of company he was and how grateful  that Justin and I were close friends. Of course the two of us let out a small giggle at the comment, we were close but not ‘close’ I suppose.
+Time would pass by as the four of us ate. My grandmother talked the most out of us. She would tell Justin how great of company he was and how grateful  that Justin and I were close friends. Of course the two of us let out a small giggle at the comment as it made us sound like lovers.
 
-After night fell, Justin and I retreated to the guest bedroom. The silence remained. The two of us would just look at our phones, waiting for something to happen, for David to show up. Justin, being bored, opened up his Tik tok. There was little noise coming from our room. It was the first time I let myself relax for a moment. I allowed myself to slowly fall into a sleep.
+After the sun went away to allow the moon to shine, Justin and I retreated to the guess bedroom. The silence remained. The two of us would just look at our phones, waiting for something to happen, for David to show up. Justin, being bored, opened up his Tik tok. There was little noise coming from our room. Being on high alert for several days really drained my energy, waking up at the smallest noise afraid that I missed David walking into the house. But right at that moment I was tired, exhausted from all the sleepless nights I had. I allowed myself to slowly fall into a sleep.
 
-Must have been around 8 when I fell asleep. I woke up around 3 or 4 hours later, checking the clock on the wall. 1 in the morning. Justin must have fallen asleep right as I was waking up as his phone was still playing a video as he slept with the one lamp in the room on. The scene before me was just like one of our sleepovers as kids.
+Must have been around 8 when I fell asleep. I woke up around 3 or 4 hours later, checking the clock on the wall. 12 (almost 1) in the morning. Justin must have fallen asleep right as I was waking up as his phone was still playing a video with the one lamp in the room on. The scene before me made me nostalgic thinking back to our many sleepovers as kids.
 
 I had a few notifications on my phone. Most of them were just updates on the games I had on my phone, one or two of them were just telling me that some famous people I followed had posted, and I had a lot of messages from my Ex. That was a bit strange as we basically cut contact after David attacked me. I unlocked my phone, read a couple of messages, the first one being from a hour previous and the latest being from one minute before. 108 messages were sent to me in that time.
 
-I rushed out of the house, only having time to pick up a few things. As I left I screamed back inside the house where I was going. I hoped for it to wake someone up.
+I rushed out of the house, only having time to pick up a few things. As I left I screamed back inside the house where I was going, not thinking to wake someone up to assist me in this. I hoped that my voice was loud enough for it to wake someone up.
 
-12:59 Help.
+I get another message, 12:59 Help.
 
-It was expected at this point that David would strike again, I just didn’t know who. I hoped it would be me, I wanted to be attacked again, but that girl who cheated on me? Who hurt me? I wanted to just leave her to defend herself, I wanted to pretend like I never got those messages, but I couldn’t. I just couldn’t let her be killed. I hate her, don’t get it twisted, but I wouldn’t wish death on her. It would haunt me.
+It was expected at this point that David would strike again, I just didn’t know who. I hoped it would be me, I wanted to be attacked again, but that girl who cheated on me? Who hurt me? I wanted to just leave her to defend herself, I wanted to pretend like I never got those messages, but I couldn’t. I just couldn’t let her be killed. I hate her for what she had done, don’t get it twisted, but I wouldn’t wish death on her. It would haunt me.
 
 It was a short drive from my Grandparents to Janes’ place.
 
-I only had a few weapons, the Six Shooter, a Rifle, the knife that my Dad got me for my 12th birthday, a bottle of hairspray, and some weed Justin left in my car. For the sake of this situation, I just grabbed the Six shooter my Grandpa gave me, and the knife. The Rifle would be too heavy, and the other items were not even mine- hell they wouldn’t even be useful. I mean, David only has so much hair, and I doubt we could talk things out through a smoke sesh.
+I only had a few weapons, the Six Shooter, a Rifle, the knife that my Dad got me for my 12th birthday, a bottle of hairspray, and some weed Justin left in my car. For the sake of this situation, I just grabbed the Six shooter my Grandpa gave me and the knife. The Rifle would be too heavy, and the other items were not even mine- hell they wouldn’t even be useful. I mean, David only has so much hair, and I doubt we could talk things out through a smoke sesh.
 
-I was parked in the driveway. The entire neighborhood was silent, not even the bark of Janes’ neighbors’ dog could be heard (an annoying little mix between a chihuahua, maltese mix who was always up till three). Walking around the house to the back, I find where David got in. I almost didn’t believe it, the fucker climbed up to the second story of the house. I can tell he broke in by the torn screen and shattered glass.
+I was parked in the driveway. The entire neighborhood was silent, not even the bark of Janes’ neighbors’ dog could be heard (an annoying little mix between a chihuahua and maltese who was always up till three). Walking around the house to the back, I find where David got in. I almost didn’t believe it, the fucker climbed up to the second story of the house. I can tell he broke in by the torn screen and shattered glass.
 
 ‘Hey fucker!’ I scream into the dark home, ‘Come down and fight me like a man!
 
@@ -42,13 +45,13 @@ David was not from this earth.
 
 David quickly began to shut all the curtains and blinds in the house. From the outside, it looked as if they all shut at the same time. I peak down at my phone to see David moving at an impossible speed before stopping by the back door. He was waiting for me to come in. It clicked in my head.
 
-I don’t know if David had a concept of technology, but he understood human behavior. He understood and kept up with human behavior as the generations grew and made technological advancements. This attack on my ex was just like a man using an elk call.
+I don’t know if David had a concept of technology, but he clearly understood human behavior. He understood and kept up with human behavior as the generations grew and made technological advancements. He knew that if he wanted to get me, he needed to lure me in. This attack on my ex was just like a man using an elk call, or a mating call of some other animal.
 
 I was being hunted.
 
-David was the one apex predator to surpass humans.
+David was the one apex predator to surpass humans, a ‘ultimate’ life form, the pinnacle of evolution.
 
-All of the questions came running back, why let me live this long? Why not kill me as a kid? Why now? What is preventing him from breaking down that door and killing me here?
+Then all of the questions came running back, why let me live this long? Why not kill me as a kid? Why now? What is preventing him from breaking down that door and killing me here?
 
 What is David? And what does it want from me?
 
@@ -74,11 +77,11 @@ Would fire even work?
 
 Dam it.
 
-I am not a hero, nor am I am not the heroic type. I want to go home and sleep in my own bed knowing my mom and dad are near. I hate this.
+I am not a hero, nor am I the heroic type. I want to go home and sleep in my own bed knowing my mom and dad are near. I hate this.
 
 I hear the roll of a car coming down the road, the headlights illuminating every house. It wasn’t until the car parked next to mine did I realize that It was Justin’s car. I make a shush finger, Justin immediately picked up what was going on. I hang up on Jane sending her a message saying Justin was here.
 
-Silently, Justin exited the car. We whispered, unsure if this thing had superheating, I hoped not.
+Silently, Justin exited the car. We whispered, unsure if this thing had super hearing, I hoped not.
 
 “Do you have any idea on what to do?” Justin whispered.
 
@@ -90,7 +93,7 @@ Silently, Justin exited the car. We whispered, unsure if this thing had superhea
 
 “Why?” Justin asked. I had that same question. I have seen how David moves, how he runs, his strength, his everything. But it only left me with more and more questions, why why why?
 
-I looked around again, looking at everything that I could grab. I checked Justin’s car as well. There were several household items he had yet to unpack. Apparently he was at Walmart when the events of my last post happened, he was ready to go home when he received my call.
+I looked around again, looking at everything that I could grab. I checked Justin’s car as well. There were several household items from the supermarket he had yet to unpack. Small things like Aluminum foil, a Toothbrush with toothpaste, a few cans of nonperishable food, etc. I couldn’t think of much use for the stuff Justin had until I had another thought.
 
 Me and Justin went over everything, and we had a plan.
 
@@ -102,11 +105,11 @@ In an attempt to get David’s attention, Justin would break a window furthest f
 
 “You understand you could die?” I ask Justin.
 
-“This thing has haunted our town for generations, killing families for hundreds of years. If I have a small chance of bringing David down then I am taking it.” 
+“This thing has haunted our town for generations, killing families for hundreds of years, I mean I could be next if it’s not you. If I have a small chance of bringing David down then I am taking it.” 
 
 “Remind me not to take you gambling.” I respond
 
-Justin let out a small giggle, not too loud. “I’m surprised you can joke at such a time.”
+Justin let out a small laugh, not too loud. “I’m surprised you can joke at such a time.”
 
 I was too. And I agreed with what he said. While I may never have been the heroic type, while I might be scared shitless, I had to do this.
 
@@ -158,7 +161,7 @@ I jump into the bathtub carefully.
 
 David breaks the door down, splinters going everywhere. Simultaneously I throw the bottle at David, ducking for cover in the tub.
 
-The explosion was louder that I thought it would be, I must have used way too much materials.
+The explosion was louder than I thought it would be.
 
 A bright flash took over the bathroom for a brief moment. A loud ringing sound took over my hearing.
 
@@ -176,7 +179,7 @@ The adrenaline was still pumping through my body, I crawled, trying to get outsi
 
 David stood back up, stumbling and clearly in pain, he made his way to my broken body. He lifted me up, my eyes more adjusted, I see what the bomb did to him.
 
-It wasn’t just his mouth shifting this time, all of his skin as well. 
+It wasn’t just his mouth shifting this time, all of his skin as well- a grim reminder of how unnatural this monster was.
 
 “You… prey… challenge…” The words coming out of David, his mouth was unmoving like a ventriloquist. The voice came straight from where I assumed his vocal cords would be.
 
@@ -190,7 +193,7 @@ I grab a few spare bullets from my pocket.
 
 David became a difficult target to shoot at, he was faster and nimble compared to an hour ago. Almost intaintly David reached Jane.
 
-I watched in horror as in one swift movement, David killed Jane.
+I watched in horror as in one swift movement, David killed Jane. A red mist filled the room as her body was obliterated, her entrails falling to the floor, the bones and skin being launched across the room.
 
 I dropped two bullets out of the three I had. David turned to me.
 
@@ -198,15 +201,15 @@ It was all happening so fast but everything seemed to slow down for me figurativ
 
 Anger, Sadness, Fear.
 
-I took a breath, David took a step.
+For every breath I took, David took a step.
 
-This was one of those moments where my non faith in fate faltered. This encounter was several years in the making, I had one bullet- one last shot to correct the hurt and pain that was inflicted on my grandfather, Justin’s upstairs neighbors, the man who told my grandfather about Liver Eating Johnson. This was Justice for Sheridan Wyoming. My home.
+This encounter was several years in the making, I had one bullet- one last shot to correct the hurt and pain that was inflicted on my grandfather, Justin’s upstairs neighbors, the man who told my grandfather about Liver Eating Johnson. This was Justice for Sheridan. My home.
 
 I took another breath, David took a step. He opened up his mouth, his mouth opened and turned his entire body into one large mouth, rows and rows of teeth following the mouth that now consisted of his stomach. I raise my gun, aiming for the head.
 
 I pulled the trigger, and prayed.
 
-Simultaneously, knowing that there was nothing left I could do, I laid down and passed out.
+Simultaneously, knowing that there was nothing left I could do, I pass out instantly, adrenaline starting to fade from my body.
 
 I would wake up to live another day.
 
@@ -222,20 +225,18 @@ Justin would make a full recovery, he would just be in the hospital for awhile. 
 
 I knew the risk of fighting David. For my bravery, god seemingly gave me a second chance at life in exchange for my legs.
 
-The third thing was about legality of what I did.
+The third thing was about legality of what I did. Under normal circumstances, I committed several crimes. But thankfully, there is some sort of officer high in ranking who knew about my grandfather and how his kid was taken away from him. There will be no legal issues that will affect me and Justin. This last situation is being written off as a bear attack. 
 
-Thankfully, there is some sort of officer high in ranking who knew about my grandfather and how his kid was taken away from him. There will be no legal issues that will affect me and Justin. This last situation is being written off as a bear attack. 
+It is the last ‘bear attack’ that will ever be documented- or so I pray.
 
-It is the last ‘bear attack’ that will ever be documented.
-
-So that is it. David is dead. I don’t think I ever will get closure on some things. Things like why David waited so long to attack me, how did he live as long as he did, who was David in the first place.
+And so that is it. David is dead. I don’t think I ever will get closure on some things. Things like why David waited so long to attack me, how did he live as long as he did, who was David in the first place.
 
 But that is alright with me.
 
 It has been a week or two since I got out of the hospital, I started writing this last post yesterday. Jane’s Family came down from New York to gather her things and plan a funeral for Jane. They stopped by my parents house where I will be staying, probably for longer than I ever thought I would, to say hello and goodbye to me.
 
-We had a long conversation about Jane and I, and what our relationship was. Apparently Jane did cheat on me, but felt terrible. Calling her mom about the mistake she made. But that is neither here nor there. I thought about telling them the true story, what really happened, but decided against it. They don’t need to live the horror that I had.
+We had a long conversation about Jane and I, and what our relationship was. Apparently Jane did cheat on me, but felt terrible. Calling her mom about the mistake she made. But that is neither here nor there. I thought about telling them the true story, what really happened, but decided against it. They don’t need to live the horror that I had- and will continue to live through as I started having nightmares of that night.
 
-On a brighter note, once Justin had gotten out of the hospital, he made his entire house handicap accessible. I told him not to but he insisted. He says that I am welcome to stay if I am sick of my parents taking care of me. I think I might take his offer. It would be nice to live somewhere else.
+On a brighter note, once Justin had gotten out of the hospital, he made his entire house handicap accessible. I told him not to, but he insisted. He says that I am welcome to stay if I am sick of my parents taking care of me. I think I might take his offer. It would be nice to live somewhere else.
 
 I suppose that this is the end of my story with David. I apologize if this isn’t the ending that some of you expected or wanted. But that is just how the cards were dealt. I guess If you ever plan on going across Wyoming, come down to Sheridan, it is a beautiful small town with a bright future.
