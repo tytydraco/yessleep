@@ -288,9 +288,6 @@ My heart pounded in my chest as the realization hit me like a wave. Ethan, the E
 
 I stumbled back, the world around me blurring. Ethan had been reaching out, searching for something, closure, perhaps. And now, with his body found, maybe he had finally found it.
 
-I couldn’t stay in Ridgeway Hall any longer. I packed my things and moved to a different dorm that same afternoon. The air felt lighter in the new building, the silence not so oppressive. But even as I settled into my new room, far from the haunted halls of Ridgeway, I couldn’t shake the feeling.
+I couldn’t stay in Ridgeway Hall any longer. I packed my things and moved to a different dorm that same afternoon. The air felt lighter in the new building, the silence not so oppressive.
 
-Somewhere, in the shadows of Ridgeway Hall, Ethan was still watching. And though I had left, a part of me knew that I could never truly escape.
-
-
-
+Ethan has found his closure, and I was [free!](https://www.youtube.com/@CreepyStoriesJR)
