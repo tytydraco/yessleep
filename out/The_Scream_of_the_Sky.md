@@ -6,7 +6,7 @@ Weeks later, he was home, but recovery was slow. He'd lost a lot of muscle mass 
 
 That evening, I looked at the digital clock It read 7:58 PM, when we were laughing our heads off watching videos of explosions and spooky tales, there was a light dancing across the sky as the rumble of distant thunder began, nothing out of the ordinary at first. But this low rumble grew louder and was a sound that felt off, like it was in the wrong key. I turned and saw my dad was sleeping on the couch, shirtless, with his 11-inch scar across his chest visible. Immediately, a huge wave of sympathy and thanks that he was still alive washed over me.
 
-The room was suddenly ablaze with light, as if daytime had shattered the night. I looked out of the window; the sky was black, but from the north east a ball of fire loomed. My father suddenly sat upright in bed, his eyes wide with fear, and shouted, "The sun is on fire!"
+The room was suddenly ablaze with light, as if daytime had shattered the night. I looked out of the window; the sky was black, but from the north east a ball of fire loomed. My father suddenly sat upright, eyes wide with fear, and shouted, "The sun is on fire!"
 
 "What do you mean? Of course it's on fire it's the sun" I asked, as I walked to the window. The yellow disc now spread across the darkness, sending forth great bolts of fire and lightning that shrieked across the sky as if the Sun were screaming at us.
 
@@ -20,7 +20,7 @@ Hey, remember that storm we chased with the 90mph winds in Nebraska?" he said su
 
 "Yeah, but this is different! This isn't just a storm, Dad!" I replied, trying to keep my voice steady.
 
-For what seemed like hours, we sat in the basement huddled together, the sound of crackling flames and the reverberation of thunder sounding like some sort of demonic symphony.
+For what seemed like hours, we sat in the basement huddled together, the sound of crackling flames and the reverberation of thunder sounding like the Devil's personal symphony.
 
  "We've faced worse, right?" I tried to reassure him, though my own heart was racing with fear.
 
@@ -40,12 +40,4 @@ First traces of dawn struggled through the darkness, and all of a sudden, I felt
 
  We had finally breathed a sigh of relief. I glanced over at that digital clock on the wall-8:05 PM.
 
-
-
-
-
-
-
-
-
-EDIT: This is my first story I've written so any criticism is encouraged whether you loved it or hated it. 
+EDIT: This is my first story I've written so any criticism is encouraged whether you loved it or hated it.
