@@ -110,7 +110,7 @@ I heard a hollow laugh before the voice continued.
 
 *You dare to touch me!* 
 
-The chest lid slammed shut on Evie’s right arm, halfway along the bicep, shattering the bone. She let out half a scream before passing out and sliding down the side of the chest. A gristly grinding sound came from her trapped arm as it twisted further. A cold sweat burst out all over my body and I sprang into action, heaving Evie’s body back up from where she’d fallen.
+The chest lid slammed shut on Evie’s right arm, halfway along the bicep, shattering the bone. She let out half a scream before passing out and sliding down the side of the chest. A gristly grinding sound came from her trapped arm as it twisted further. A cold sweat burst out all over my body and I sprang into action, heaving Evie back up from where she’d fallen.
 
 “Let her out! Let her out!”
 
