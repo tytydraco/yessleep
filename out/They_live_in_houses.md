@@ -1,0 +1,13 @@
+I can't be the only one who has seen them. Someone else has to know more about them than I do. I need help and I don't know where else to turn, everyone else laughs. No one I've talked to has admitted to seeing them. They just laugh, or just ask if I'm sure I'm not imagining it.
+
+They live in houses, you see. Sorry, I understand that brief description can conjure several interpretations. When I say they live in houses, I don't mean that they construct and occupy dwellings of their own design. They don't create homes to accommodate a specific lifestyle or purpose. They live in our houses.
+
+But when I say they live in our houses, I don't mean they live with us, as a pet or fellow tenant. Of course, they do live with us, I just said they live in our houses after all, but they live in the spaces of the house we are not meant to go ourselves. They live in the narrow hollow spaces in the walls, or the dirty crawlspaces under the house. They live in the cracks in the corners and behind the molding that has pulled away from the wall. They live in vents, or in the space between the ceiling and the floor of the story above.
+
+They scurry about when they think you aren't around. Honestly you never want something in your house that scurries. But they're quick, and they have great vision. They'll usually see you before you see them. And they'll usually watch you from their little hiding places. They'll usually scurry away if you turn on a light, or if they feel your footsteps. They'll usually only watch from their little hiding places, but not always.
+
+Sometimes they linger a little bit when a light comes on, observing your face for a few moments before bolting back into the wall. Sometimes they come out while you're still awake and moving around. Sometimes they watch you from their little hiding places, but sometimes they watch you from a little bit closer. Sometimes they get curious and follow you to your bed.
+
+They have a grotesque shape, rigid but bending to fit whatever opening is available for them. They are small enough to get around but big enough to be seen scurrying across a room. They make sounds, small chittering noises that you can barely hear, unless you remain perfectly silent. At night, I can hear them in the walls. I can hear them in the ceiling. I can hear them in the room with me.
+
+They live in houses, our houses. They live in the walls and the crawlspace, and we just can't seem to get rid of them. They scurry into the vents and behind the crown molding. They live in our houses and we can't get rid of them. Usually I sleep with the lights on, but tonight there's a storm. Sometimes the power goes out during storms. I can't get rid of them. They live in our houses. All of our houses. Sleep with your lights on.
