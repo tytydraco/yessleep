@@ -212,7 +212,7 @@ I turned to him and hugged him tight. He was confused and dizzy. Martin, on the 
 
 A helicopter. I grabbed the ladder without thinking, and helped my dad up. The last thing I saw before I looked up was the ginger lady, sitting cross-legged on the grass, next to Martin’s body.
 
-We were taken back to the entrance of the park. The next hours were filled with questions. About the park. About our disappearance. About Martin’s murder. We’re now the prime suspects, but I’m just glad I got out, and I know it’s because of his sacrifice. However, I’d really like to speak to him again. I can’t rest knowing his innocent soul is out there.
+We were taken back to the entrance of the park. The next hours were filled with questions. About the park. About our disappearance. About Martin’s murder. We’re now the prime suspects, but I’m just glad I got out, and I know it’s because of his sacrifice. However, I’d really like to speak to him again. I can’t rest knowing his innocent soul is out there. I plan on giving more updates on my account.
 
 There’s one other thing.
 

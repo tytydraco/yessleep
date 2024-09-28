@@ -1,4 +1,4 @@
-Series: [Part 1](https://www.reddit.com/r/nosleep/comments/1em7436/i_think_my_little_sister_is_being_blackmailed_why/), [Part 2](https://www.reddit.com/r/nosleep/comments/1euitqs/i_think_my_little_sister_is_being_blackmailed_why/)
+Series: [Part 1](https://www.reddit.com/r/nosleep/comments/1em7436/i_think_my_little_sister_is_being_blackmailed_why/), [Part 2](https://www.reddit.com/r/nosleep/comments/1euitqs/i_think_my_little_sister_is_being_blackmailed_why/), [Part 4](https://www.reddit.com/r/nosleep/comments/1fr4w8y/i_think_my_sister_is_being_blackmailed_why_else/)
 
 I had given an immense amount of thought to how I might kill Toby, but talked myself out of it every time.
 
@@ -184,4 +184,4 @@ It's been two weeks since that incident. My left arm is in a cast now. Something
 
 I'm sure me astral projecting isn't the answer to this whole ridiculous situation. Something is waiting for me to leave my body should I attempt to astral project. It's a no-go.
 
-I still don't know how to fix this situation. I feel so helpless. I'll keep trying to think of something. Wish me luck. 
+I still don't know how to fix this situation. I feel so helpless. I'll keep trying to think of something. Wish me luck.
