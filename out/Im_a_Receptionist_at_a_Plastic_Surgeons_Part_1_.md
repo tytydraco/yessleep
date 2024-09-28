@@ -174,29 +174,33 @@ I picked up a stress ball and started squeezing it as hard as I could. Not to ge
 
 
 
-Anyway, my curiosity got the best of me and I stood up from my desk again and walked back to that room. I stared at the door for a moment and reached a shaky hand out to the knob and turned it to open. And I came face to face with Kara staring back at me. 
+Anyway, my curiosity got the best of me and I stood up from my desk again and walked back to that room. I stared at the door for a moment and reached a shaky hand out to the knob and turned it to open. And to my surprise, shock and confusion, the room was completely empty. I pushed the door open completely and entered the room to try and find any evidence that anyone had even been here, to begin with. 
 
 
 
-“Oh! Uh…can…can I get you anything?” I asked her, completely caught off guard by the fact that she was perfectly fine. 
+That was when I was tackled to the ground from behind and pinned to the floor. I let out a scream and thrashed about in complete shock and horror. I turned my head to try and see who was attacking me, and I started screaming louder when I saw that it was the skinless Kara. 
 
 
 
-“Some water would be nice!” she said in a chipper tone. I nodded and slowly closed the door and stood there in the hallway trying to make sense of what I had seen. I swore I had just seen her without a majority of her skin. Not to mention the fact that she had seemingly torn a large chunk of her skin off of her cheek when she had just come in for a rhinoplasty. 
+“What have you done to me?!” She screamed at me, which got me to scream even louder at her bleeding and skinless body. She flipped me over with a loud grunt and wrapped her hands around my throat and began to squeeze my throat shut. I gagged and reached out to try and stop her, pushing on her soft squishy form and finding that because she was coated in blood she’d become slick to the touch.
 
 
 
-I turned to go back toward my desk and was met with Dr. Harrison standing behind me. He caused me to yelp out in surprise and I stared at him with just a bit of anger. 
+Just when I’d thought that I was going to die on the floor like this, I heard two pairs of footsteps running in and tackle Kara to the ground, I panted and struggled to breathe and as my vision readjusted itself I was thankful and surprised to see Dr. Harrison’s beautiful face staring back at me. 
 
 
 
-“I need to put a bell on you,” I told him, upset with how silent he was walking around the halls. He smiled at me and noticed which door we were standing by. 
+“Are you alright, Maggie?” He asked me with genuine concern in his voice. His soft voice filled my head and as I stared into his glowing green eyes I swear that an immediate sense of relief and pleasure filled my body.
 
 
 
-“Everything alright?” He asked me. I nodded at him and walked past him to get back to my desk. 
+“I-I’m alight, sir,” I told him, sitting up from the floor and croaking out my words as my throat burnt like all hell. He quickly examined me and deemed that everything was okay. He next turned to the thrashing skinless body that Rachael was busy keeping face down on the floor. 
 
 
 
-Don’t get me wrong, I know all the weird shit happening here isn’t normal. And it does scare the crap out of me, but Dr. Harrison did give me a raise. A big one, and soon we are going to get security to help me out with the more outlandish patients. So I can probably just ignore the stranger things that happen here. Right? 
+“Maggie, please leave this to us. Just keep the waiting room civil while Rachel and I deal with this.” Dr. Harrison told me, his eyes glowing again, and I could’ve sworn that I saw swirls in his pupils. I carefully nodded and exited the room. Quickly I ran to the bathroom and vomited up everything I’d eaten that day. The moment I broke eye contact with Dr. Harrison, everything came flooding back at once and I had a full-blown panic attack in the bathroom. It took me a moment to compose myself before I returned to the front desk. 
+
+
+
+Don’t get me wrong, I know all the weird shit happening here isn’t normal. And it does scare the shit out of me, but Dr. Harrison did give me a raise. A big one, and soon we are going to get security to help me out with the more outlandish patients. So I can hopefully just ignore the stranger things that happen here. Right? 
 
