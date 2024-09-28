@@ -93,7 +93,7 @@ I began to theorize- perhaps she was a recovering addict and suffering from with
 
 Yet, I couldn’t imagine what scenario would cause her to act so… strange. And I couldn’t shake that feeling that she was in some sort of danger. 
 
-In lieu of the incident, I decided to talk to Ray the following morning about what I had seen. I wanted to make sure he was aware of it in case there was something he knew that I didn’t. Or maybe even something he could do to help with whatever was going on.
+I decided to talk to Ray the following morning about what I had seen. I wanted to make sure he was aware of it in case there was something he knew that I didn’t. Or maybe even something he could do to help with whatever was going on.
 
 “Morning, Ray!” I greeted him as I approached his front porch.
 
