@@ -154,9 +154,9 @@ The sound shattered the silence, raw and terrified, echoing across the field. Ax
 
 We didn’t need to be told twice. We sprinted back toward the car, the grass whipping at our legs, the wind howling in our ears. The horse—or whatever it was—remained where it stood, watching us with that awful, predatory smile. But even as I ran, I could feel its gaze burning into my back, following us all the way.
 
-We piled into the car, Axle slamming the doors shut and jamming the key into the ignition. The engine roared to life, and with a screech of tires, we tore away from the field, leaving that horrific, twisted creature behind.
+We piled into the car, Axle slamming the doors shut and jamming the key into the ignition. The engine roared to life, and with gravel kicking up, we tore away from the field, leaving that horrific, twisted creature behind.
 
-But even as the car sped down the narrow dirt road, I couldn’t shake the image from my mind—the sight of that pale, grinning face, watching us go. Back in the car, we sat in stunned silence, the interior heavy with an unspoken fear that none of us wanted to address. My hands were trembling as I pulled out my phone and opened the flashlight app, its harsh white glow almost blinding in the darkness. Axle was clutching the steering wheel so tightly his knuckles were white, staring blankly at the empty field beyond. Stacy, for once, was speechless, her face pale and eyes wide as she exchanged a horrified look with Margret.
+But even as the car sped down the narrow dirt road, I couldn’t shake the image from my mind—the sight of that pale, grinning face, watching us go. Back in the car, we sat in stunned silence, the interior heavy with an unspoken fear that none of us wanted to address. Axle was clutching the steering wheel so tightly his knuckles were white, staring blankly at the empty field beyond. Stacy, for once, was speechless, her face pale and eyes wide as she exchanged a horrified look with Margret.
 
 “Did… did you see its face?” Margret whispered finally, voice shaky. I swallowed hard, my mouth dry, and nodded slowly.
 
