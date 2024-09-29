@@ -204,6 +204,6 @@ We stared at the phone, stunned. Stacy looked up slowly, her face pale as a ghos
 
 “Because we’re not the first to ask,” I murmured, dread coiling in my stomach. “People have seen it before.”
 
-The silence stretched out, thick and suffocating, as we all turned to stare back out at the empty field, where the pale figure had vanished into the night.
+The silence stretched out for an eternity. I looked out the window and rain had begun to soak it. I imagined the rain falling onto the ground of that field, where the horrible crime had taken place so long ago. I hoped that the life giving water would wash away the stains of the past. And maybe that thing would go away. But I knew better. Evil like that doesn’t just wash away, it lingers. The creature was there because of the sins of Robert Usted. That horrible act had tainted the ground of that place and only something unholy could call it home now. 
 
-What the hell had we just seen?
+But that made me wonder, what the hell had we seen?
