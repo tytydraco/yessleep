@@ -1,7 +1,7 @@
 It’s a new “wonder” drug that just entered the market - or at least that's what the doctor on that online prescription service told me. You know the kind of service I'm talking about. The kind that gets advertised on YouTube ads all the time or pops up in between commercial breaks of your favorite reality tv show. This one came to me the old fashioned way though, slipped through the mail slot in my front door inconspicuously. 
 
 
-Are YOU tired of feeling TIRED? Are YOU one of the millions of people suffering from crippling anxiety? Have trouble getting out of bed? Just plain SAD? Go to www.CARE4U.com today to speak to a licensed physician and feel better FASTER!
+Are YOU tired of feeling TIRED? Are YOU one of the millions of people suffering from crippling anxiety? Have trouble getting out of bed? Just plain SAD? Go to CARE4U dot com today to speak to a licensed physician and feel better FASTER!
 
 
 I’ve gotta admit that I’m not one to usually fall for these kinds of things but I’ve really been going through a rough patch in my mental health journey and was looking for a way to start feeling like myself again. I’ve always been an anxious person, even when having no reason to be and it had gotten to a point where I was exhausted. The Zoloft, Citalopram, Hydroxyzine - nothing my primary care doctor prescribed did anything except make me nauseous. So what the heck? Might as well try whatever I can.
