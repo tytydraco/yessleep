@@ -12,3 +12,6 @@ Now I'm terrified of leaving the house.
 
 
 Edit: would love to add pictures (of the animal bones, metal bits/nails&screws, and possibly my dog) but I'm on mobile.
+
+
+Update: Just had a male deer crash into our sliding glass door ( know it's male because I saw the antlers before it shook and bolted off ) that leads to our backyard. 
