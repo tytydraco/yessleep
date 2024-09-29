@@ -1,0 +1,29 @@
+Every night, whenever I would get up to get myself a glass of water, the coat rack on the balcony outside of mine and Christopher’s room would always scare the shit out of me. The rack itself was tall and thin, a large metal sphere perched atop the peak like an eye surveying its surroundings, but we almost never saw the metal due to the avalanche of coats. In the daytime, there was nothing special about the coat rack but at night, it was a different story.
+
+Christopher was a big fan of horror movies - *Black Christmas, When a Stranger Calls, Scream*, you name it - and wanted to pass this love down to our children. I was never a fearful man, and would even go as far as to call myself brave, but horror was never my jam; the same could be said for our youngest son, Bob, who had accidentally walked in on us watching the wardrobe scene from *The Conjuring* and had been leaving his door slightly open every night since. Roy, the oldest, had taken more after Chris in his enjoyment for all things ghastly and ghostly, though at the age of 11, he'd never seen anything more intense than *Poltergeist*. If Christopher ever woke up in the middle of the night, a lifetime of watching horror had numbed him to any potential scare but I was not so lucky and thus, the vaguely humanoid shape would scare me shitless whenever I woke up in the middle of the night.
+
+Let's get this out of the way now, waking up at night wasn't a regular occurrence for me - it just so happened that whenever I would, the coat rack was always there, standing on the balcony perpendicular to our bed, overlooking the starry skies of Martha's Vineyard. It's why I tried to drink water and use the restroom before I went to sleep, so I wouldn't have to encounter that cursed hunk of metal, even if I always knew it would be there, just standing still.
+
+On one particularly hot night in the middle of July, I had woken up feeling particularly parched. I got out of bed, making sure not to look at balcony as I walked to the door and out of the room, making my way downstairs into the kitchen. Bob's door was, as it always had been, slightly opened, his light snores being barely-but-surely audible. I poured myself a glass of water and, still sipping it, walked back upstairs, making sure to close the door behind me but having made a grave mistake when I turned back around - I forgot to avert my gaze and had stared directly at the coat rack. I tripped over my own feet and fell, the glass in my hand getting caught between the floor and my temple and shattering, sending several small shards into my head. I yelled out in pain as Christopher awoke and yelled out at the same time, grabbing several bandages from the bathroom and wrapping them around my head. I could hear the stirring of Bob and Roy downstairs as they had likely heard the thump and my vision began to blur.
+
+A couple hours later, I had awoken in the hospital. The injury fortunately wasn't too serious but did require a fair bit of stitching, which the nurses thankfully applied while I was unconscious. Chris and the boys had stayed in the room with me the whole time and were overjoyed to see my eyes open - Bob ran up and hugged me, which caused a throbbing pain in my head, alerting me to the stiches in the first place. After some paperwork was done, I was free to go.
+
+"Steven, we really need to do something about that coat rack," Christopher said to me when we got back home, staring at the ungodly object.
+
+And so we did.
+
+After several years of the coat rack being the source of fear in our household, the two of us took the heavy coats off, threw them on the floor for the time being, and carried the rack downstairs. We placed it next to Bob's bed in his room as a precaution, just so it wouldn't scare anyone else in the living room or any other part of the house where; in fact, Bob had told us that the rack made him feel safe. That night, as I went to sleep, I knew I would no longer have to worry about getting scared if I had to get up for some water.
+
+I was wrong. Very, very wrong.
+
+In the middle of the night, a small bout of famine hit me. I eased my way out of the bed and nearly jumped out of my skin. The coat rack once again stood on the balcony and while my eyes were still getting used to the dark, I could just barely make out the faint humanoid shape of it standing there.
+
+*I guess Bob must have gotten scared and moved it back,* I thought. *I'll need to talk to him tomorrow about this.*
+
+I stepped over the coats littering the floor and walked downstairs - just to be safe, I drank out of a paper cup and drank the entire thing in the kitchen. As I was heading up, something caught my attention - the door to Bob's room was ajar, as opposed to his usual slight opening. Intrigued, I peered my head inside the room; perhaps Bob had just stepped out to use the restroom or get some water?
+
+The first thing I noticed when I looked inside was the fact that Bob was no longer in his bed, and the second thing was Bob's dead body lying on the ground. A small bloody dent was evident in the center of his forehead, his limbs strewn about as if he had been dragged out directly from underneath his covers, from underneath his safety. I'm not afraid to admit that I yelled, screamed even, bringing to the room the attention of both Roy and Christopher. Roy only managed to look at the scene for a brief moment before his eyes rolled up to the back of his head and he fainted; Chris held me as I, in return, held Bob in my arms, sobbing uncontrollably.
+
+It was only after the fact that I realized something, something which had been nagging me for the entirety of the aftermath. Bob lay next to the coat rack which we had placed there, free entirely of coats as Bob owned none.
+
+So if the coat rack was in Bob's room the entire time, then what the fuck was on our balcony that night?
