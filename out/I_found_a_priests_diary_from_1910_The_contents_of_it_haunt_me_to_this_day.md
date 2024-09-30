@@ -72,4 +72,7 @@ The house loomed in the rearview mirror as I sped away, its dark windows staring
 
 I never went back to the Fischer house. I quit my job the next day, moved to a new town, tried to forget everything I’d read in that diary. But I can’t shake the feeling that something followed me. The whispers still come at night, creeping into the edges of my dreams, filling my mind with dark, ancient words I don’t understand.
 
-And right now as I'm writing this, I feel like I’m being watched. Like there’s something standing in the corner of the room, smiling.
+And right now as I'm writing this, I feel like I’m being watched. Like there’s something standing in the corner of the room, smiling.....
+
+  
+*I hear it now. It is coming for me*
