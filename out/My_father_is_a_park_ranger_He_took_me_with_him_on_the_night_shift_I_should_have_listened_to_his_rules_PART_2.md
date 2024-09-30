@@ -136,4 +136,4 @@ The old man laughed, and I saw his only tooth staring back at me. I pushed him a
 
 Tears gathered in my eyes. My throat hurt to speak, but I did. "Dad? Dad, is that you? Where are you?"
 
-"Kev, get out of the forest. They'll let me go. They want you."
+"Kev, get out of the forest. They'll let me go. They want [you](https://www.reddit.com/r/nosleep/comments/1frfefw/my_father_is_a_park_ranger_he_took_me_with_him_on/)."
