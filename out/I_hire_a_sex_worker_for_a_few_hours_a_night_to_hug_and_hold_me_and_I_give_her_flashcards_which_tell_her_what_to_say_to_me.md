@@ -46,7 +46,7 @@ My heart raced as a knot twisted in my stomach. Was this a coincidence, or had s
 
 “I have to go,” I said as I quickly left. 
 
-That evening, a fragile tension hung in the air as my wife and I sat across from each other at the dining table. She glanced up, her blue eyes searching mine, and for the first time in ages, I felt a flicker of something I thought I had lost a connection.
+That evening, a fragile tension hung in the air as my wife and I sat across from each other at the dining table. She glanced up, her blue eyes searching mine, and for the first time in ages, I felt a flicker of something I thought I had lost.
 
 “I’ve missed you,” she said softly. 
 
