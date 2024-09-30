@@ -87,7 +87,7 @@ These frantic gestures continued for a moment before the bathroom light turned o
 
 A chill ran down my spine. The whole scene was perturbing. 
 
-That night, I lay awake in bed attempting to rationalize what I had seen. 
+That night, I laid awake in bed attempting to rationalize what I had seen. 
 
 I began to theorize- perhaps she was a recovering addict and suffering from withdrawals. Or maybe she was trying to kill a fly?
 

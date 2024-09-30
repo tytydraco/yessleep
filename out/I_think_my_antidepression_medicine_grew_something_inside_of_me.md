@@ -67,7 +67,7 @@ It looked like some kind of large frog with small, human-like arms and legs. It 
 I sat there in amazement and shock. I didn’t know what to do. Do I call someone? Do I run? The strangest part of all though was that I felt better. Like wayyyy better. No more stomach pain and no internal trauma that I could feel. I rushed myself to the E.R. and told the nurses everything that had happened. They checked my vitals and did some scans but everything looked normal. They also did a psych exam on me and that came back normal as well. There were definite signs that I threw up and everyone just assumed I must have had bad food poisoning. I mentioned the drug I was taking and no one had heard of it. The nurse told me to stop taking it and to not trust any online physician again. 
 
 
-When I got back home the window was still broken, confirming any suspicions I might have that I dreamt it. 
+When I got back home the window was still broken, dissipating any suspicions I might have that I dreamt it. 
 
 
 It took a few months for me to get over the shock. After that though…I haven’t experienced any anxiety or trauma. In fact I’m the happiest I’ve ever been. My job is going great, I am extremely active and motivated and I even am in a steady relationship. I still think about that thing sometimes and who Dr. Watkins really was. Was I just a vehicle for something? Either way I try to not ask many questions. I’m doing pretty good after all.

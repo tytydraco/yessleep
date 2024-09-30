@@ -1,0 +1,26 @@
+ I worked at a Dunkin Donuts not too far where I lived. I didn’t want to work at the time, but I can’t be a slug at home, well according to my mom. I was also broke, lawn mowing the neighbors lawn, selling cookies and lemonade wasn’t cutting it. Especially since I spent it all on games. 
+
+So I was an overnight cashier for Dunkin. I hated it at first, but then I got to meet my coworkers and they weren’t so bad. I even sometimes talk to to the Store Manager.
+
+Everything was going the way I wanted it to be until 9/16/24. I was working my overnight as usual when I heard my colleagues talking. I couldn’t hear everything they said, but what I could make out was my colleague Jenna saying something among the lines of“Tomorrow is the full moon. The new guy doesn’t know what he’s in for”. 
+
+I get very anxious when it comes to social  interactions, so I didn’t question them but instead kept listening to their conversation. The other colleague named Tom  goes “I bet 500 bucks he’s gonna quit tomorrow”. They both start to laugh. Jenna then says “That’s just quick guaranteed money for you” before walking away to use the restroom.  
+
+I feel ridiculed inside, but I kept pretending I have no idea they were even conversing. When my shift was done, it was all I could think about. “What was going to happen tomorrow” I asked myself.
+
+Tomorrow quickly arrived. And my overnight shift arrived as well. It’s 9/17/2024. It was a full moon. I was nervous expecting what would happen, but when I got there, nothing was unusual or seemed off. I didn’t know what Jenna and Tom were talking about. It was just me and a 1 coworker. 
+
+For 1-2 hours nothing happened, paranormally anyway  until a very huge man, walks in. He was wearing all black and directly stares into my eyes. I was creeped out and I stood silence before asking him what would he like. “Water” he said in a deep voice. Creeped out I bring him his water and told him to have good day, except that he didn’t leave. He stared at me a bit longer before sitting down at a table. 
+
+10 minutes later he was still at the table and he hasn’t even taking a sip of the water. I’m starting to get scared so I went to go see the baker, but I hear a noise. My heart pounds since I’m easily frightened and anxious about everything. I run back to the cash register and the man was gone. 
+I sprinted to where the baker was but the baker wasn’t there. 2-4 minutes before the man walked in, the baker was still here. I imagined he probably went to the restroom or sneakily left, in the moment I hated him the most for leaving me. 
+
+I was going to call the manager who wasn’t here for some unknown reason, but my phone was on 3 percent. I made better user of the battery by calling the police instead, but when I dialed the 9 button, there was a noise outside the store as if it was a warning to not call the police. My heart pumped harder than the last noise I heard and immediately finished it up by putting  in the next numbers and calling the police. While I was talking to them, I immediately rushed outside and to the direction of the noise, when all of a sudden I hear someone shattering  glass from the opposite side of the store I was at the moment.
+
+I ran into the store where the glass by the front door was broken, with water spilled everywhere. I grabbed a mop nearby and hid behind  the counter. Sweat drips from my head and my gulps are loader than a hammer slamming on a metal surface, and my heart beat was literally hearable from a mile away. I noticed that police weren’t talking so I checked my phone and my phone was off. I went to go call again but my phone was dead. This was the worst situation you can be in. I then hear something from the back door. Like if it was someone knocking on it. Shivers run through my spine as I tiptoe my way to the door, silence grew from every step I take towards the back door.
+
+However, right as I was about to open the back door, a voice emerges near the cash register. “I need more water”. At this point I have to many encounters to focus on. My head is burning as my heart beat can be used as a literal music beat. I ignore the back door to go to the cash register. As I approach the register, I saw him. The big man in black. He says “l need more water” before I feel steps behind me. I feel in intense pressure in my back as I’m launched forward. In mid air, the big man drops his cup and mutters words I couldn’t even hear,  and he lunges at me.
+
+I am sent flying. I then hit the glass by the door, the impact broke the glass and sent me outside the store but at least it put me on the ground. I later sense a pain in my hand and when looked down to look, my hand is bruised and bleeding from clenching the mop too hard. I later throw at the big man blinding him, and run away as far I can. I go to the houses next to a middle school seeking to find someone to help. After 6 unlucky attempts from people not even bothering to open the door, a lovely girl home alone let me inside her home and I call the police and an ambulance.
+
+It’s been 2 weeks since that shift. I immediately quit, and I’m currently not planning on working for the next 4-6 months. And from now on, night shifts aren’t in my vocabulary.
