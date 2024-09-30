@@ -218,4 +218,6 @@ There’s one other thing.
 
 I’d never dare to admit it.
 
-Sometimes, when I look at my dad, even weeks after what happened, I wonder if it’s really [him.](https://www.reddit.com/user/EmmaWatsonButDumber/)
+Sometimes, when I look at my dad, even weeks after what happened, I wonder if it’s really him.
+
+[Update.](http://www.reddit.com/user/EmmaWatsonButDumber/)
