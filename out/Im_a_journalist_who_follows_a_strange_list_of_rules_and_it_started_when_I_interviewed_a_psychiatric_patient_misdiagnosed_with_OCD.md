@@ -1,4 +1,6 @@
-My name is Kai Martin, but I went by a catchier moniker on YouTube. It was about privacy as well as branding. You might’ve seen my channel back in the day, but I’m not going to provide a link. By December of 2021, it was profitable enough for me to quit the day job. The most recent five months of YouTube ad revenue was equal to five years of earnings from *The Daily Shitstain* — not its real name, believe it or not. My local newspaper was an endangered medium. Eyeballed by greasy bundles of cod and chips more than humans. Let’s put it that way.
+My name is Kai Martin, but I went by a catchier moniker on YouTube. It was about privacy as well as branding. You might’ve seen my channel back in the day, but I’m not going to provide a link.
+
+Anyway, by December of 2021, it was profitable enough for me to quit the day job. That month's YouTube ad revenue was equal to a year's worth of earnings from *The Daily Shitstain* — not its real name, believe it or not. My local newspaper was an endangered medium. Eyeballed by greasy bundles of cod and chips more than humans. Let’s put it that way.
 
 Moreover, freelance journalism comes without restrictions. I reported on whatever so pleased me. In the name of a scintillating story, I’d faced war criminals, traffickers, and next-door killers. As a young, steel-balled, investigative journalist, I felt invincible. And that sort of adrenaline blinds a person to danger. It’s why I wasn’t frightened of Cedric Roberts.
 
