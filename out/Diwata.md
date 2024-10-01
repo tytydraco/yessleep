@@ -4,7 +4,7 @@ I'm a third-year student at a Catholic institution, and I'm in the Honors Progra
 
 I went to sit down with my classmates for lunch as he sat alone with that female. I wanted to ease the tension by waving for them to join us, as we were the hosts. Astoundingly, they consented, and the man stomped over while the girl glided almost ethereally at his side.
 
-"Oh my God, Taylor, that guy is such a weirdo," murmured a girl from my class after lunch. The man can't stop babbling to himself. With uncomfortable laughs, everyone nodded in accord. In the pit of my stomach, a knot formed. Rather than seeming strange, he gave off the impression that he was desperately clinging to something. I also realized, nobody else but he and I can see her.
+"Oh my God, that guy is such a weirdo," murmured a girl from my class after lunch. The man can't stop babbling to himself. With uncomfortable laughs, everyone nodded in accord. In the pit of my stomach, a knot formed. Rather than seeming strange, he gave off the impression that he was desperately clinging to something. I also realized, nobody else but he and I can see her.
 
 I noticed the girl he was talking to, and when I motioned for them to come over to join us, she seemed stunned, as if nobody had noticed them. She hesitated before casting a glance at him as she indicated to herself. In an effort to push aside the growing sense of discomfort, I merely nodded.
 
