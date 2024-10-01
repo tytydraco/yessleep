@@ -180,3 +180,12 @@ The more superstitious ones think it's demons  or aliens. The others think it's 
 
 I lay awake at night, knowing that when I close my eyes I'll be haunted by their eyeless faces. I just fear the day I encounter one of them again, and they will force me to join their ranks as they force the eyes out of my skull. 
 
+[Part 1](https://www.reddit.com/r/nosleep/s/VA4ihtCPHq)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/WiMIkXsrLD)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/YAsOeEK6wc)
+
+[Part 4](https://www.reddit.com/r/nosleep/s/0eO0XC9hY9)
+
+[Part 5](https://www.reddit.com/r/nosleep/s/Q7yfbWQr9p)
