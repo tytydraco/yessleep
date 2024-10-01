@@ -1,3 +1,5 @@
+[Part 2 ](https://www.reddit.com/r/nosleep/comments/1ftdd3u/im_a_receptionist_at_a_plastic_surgeons_part_2/) 
+
 When you walk into this office and the first thing you see is me smiling back at you with a big old smile I bet you wonder why I’m the receptionist at a plastic surgeon’s office. And that’s a fair question I sometimes wonder that myself. I’m Maggie and I’ve been working at Dr. Harrison’s clinic for about three years now. One thing to know about me is that I am no supermodel. I’m a little overweight (I like to use my mom’s phrase of tastefully plump!) but my whole life I’ve always been comfortable with who I am. I’ve never let anyone’s words get to me and as such when I applied to work here I fully expected to get rejected, but I needed a job and was willing to try for this spot. 
 
 
@@ -182,7 +184,7 @@ That was when I was tackled to the ground from behind and pinned to the floor. I
 
 
 
-“What have you done to me?!” She screamed at me, which got me to scream even louder at her bleeding and skinless body. She flipped me over with a loud grunt and wrapped her hands around my throat and began to squeeze my throat shut. I gagged and reached out to try and stop her, pushing on her soft squishy form and finding that because she was coated in blood she’d become slick to the touch.
+“What have you done to me?!” she screamed at me, which got me to scream even louder at her bleeding and skinless body. She flipped me over with a loud grunt and wrapped her hands around my throat and began to squeeze my throat shut. I gagged and reached out to try and stop her, pushing on her soft squishy form and finding that because she was coated in blood she’d become slick to the touch.
 
 
 
@@ -190,7 +192,7 @@ Just when I’d thought that I was going to die on the floor like this, I heard 
 
 
 
-“Are you alright, Maggie?” He asked me with genuine concern in his voice. His soft voice filled my head and as I stared into his glowing green eyes I swear that an immediate sense of relief and pleasure filled my body.
+“Are you alright, Maggie?” he asked me with genuine concern in his voice. His soft voice filled my head and as I stared into his glowing green eyes I swear that an immediate sense of relief and pleasure filled my body.
 
 
 
@@ -202,5 +204,5 @@ Just when I’d thought that I was going to die on the floor like this, I heard 
 
 
 
-Don’t get me wrong, I know all the weird shit happening here isn’t normal. And it does scare the shit out of me, but Dr. Harrison did give me a raise. A big one, and soon we are going to get security to help me out with the more outlandish patients. So I can hopefully just ignore the stranger things that happen here. Right? 
+Don’t get me wrong, I know all the weird shit happening here isn’t normal. And it does scare the shit out of me, but Dr. Harrison did give me a raise. A big one, and soon we are going to get security to help me out with the more outlandish patients. So I can hopefully just ignore the stranger things that happen here. Right? 
 
