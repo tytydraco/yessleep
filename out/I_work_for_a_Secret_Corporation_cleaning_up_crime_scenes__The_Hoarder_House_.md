@@ -1,5 +1,9 @@
 [Previous](https://www.reddit.com/r/nosleep/comments/1e5pe86/i_work_for_a_secret_corporation_cleaning_up_crime/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1ftxuwj/i_work_for_a_secret_corporation_cleaning_up_crime/)
+
+[First](https://www.reddit.com/r/nosleep/comments/1e5pe86/i_work_for_a_secret_corporation_cleaning_up_crime/)
+
 Getting the new job was quick. I hadn’t fully recovered from what happened to Victor when an email arrived. I expected something horrifying or dark. Instead, I was asked to clean up a hoarder's house after they passed away. The pay was more than I made in three months. But since the attack in the morgue, I learned a few things.   
 
 The place Victor was recovering in cost a lot of money. The company I would be working for covered some of the costs. The rest would be on him or his family. From what I could tell, he didn’t have any family left. I asked what would happen to him if no one paid. It was implied he would work off his debt once he was able. That meant working for The Corporation that fought against supernatural threats. They had failed to pick up on the infected body that ruined his life. I doubted he would last long in that type of job. And would they really let him work when he was ready, or would they force him?  
