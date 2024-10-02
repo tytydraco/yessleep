@@ -44,7 +44,7 @@ He replied, *I knew Pete was struggling after your mum left, but fuck, mate. Tha
 
 *Oh. That’s not so bad*, Tom messaged. *I was expecting worse.* *No offence, Nick, but it was kind of a given that your dad was into freaky shit. He’s an OF creator.*
 
-*Pete’s page is insane*, Simon said. *His fans are unhinged, Nick. They’re commenting all sorts of degenerate things. I mean, fair play to him. He’s get a devoted following. But he might want to get some security because these subscribers are a little too into him. They’re giving me psycho vibes. Want me to send some screenshots?*
+*Pete’s page is insane*, Simon said. *His fans are unhinged, Nick. They’re commenting all sorts of degenerate things. I mean, fair play to him. He’s got a devoted following. But he might want to get some security because these subscribers are a little too into him. They’re giving me psycho vibes. Want me to send some screenshots?*
 
 I said nothing in response. I closed my laptop, curled into a ball under my duvet, and hoped I would wake hours later to find that the whole thing had been a bad dream. Or that my friends had fooled me. Created some convincing AI images of my father, perhaps. Still, I knew them, and I knew even that level of Simon-and-Tom-foolery, as I often called it, was beneath them.
 
