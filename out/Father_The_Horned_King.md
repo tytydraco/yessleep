@@ -213,4 +213,4 @@ I am the last of my kind, the lone keeper of this place. I never did split my so
 
 And that someone is now you. With you now lies the tale of my father, my forest, and my life.
 
-I trust you to bring the world peace, because I have already found mine, my sweet sweet cub.
+I trust you to bring the world peace, because I have already found mine, my sweet sweet [cub.](https://www.youtube.com/watch?v=mlNCPt7arO0&t=0s)
