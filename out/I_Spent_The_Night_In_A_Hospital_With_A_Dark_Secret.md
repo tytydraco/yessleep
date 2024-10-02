@@ -48,4 +48,4 @@ We searched the place, wary of the creature lurking around. Didn't find much exc
 
 The papers following it contained ripped out pages bearing strange symbols. Not sure how to describe them other than satanic. Demonic.
 
-“You know... In my very little time working here. I never saw any prayer room,” Claire said.
+“You know... In my very little time working here. I never saw any prayer room,” Claire [said](https://www.reddit.com/r/TheBatBelfry/s/geBOwDV7zi).
