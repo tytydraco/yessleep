@@ -1,5 +1,3 @@
-My Wife Did Something Unspeakable 
-
 Mary and I have been married for the better part of a decade now. She is the love of my life, and I wouldn't trade her for anything. The only problem is, the woman who mothered my son is no longer here. I don't mean that in a literal sense; she is alive and well. At least, as well as she can be considering the recent trauma she's been through.  
 
 About three weeks ago, she received terrible news from back home, one that shattered her entire existence. Her parents had died. It was some freak accident, carbon monoxide poisoning. The grief overtook her to the point that she could no longer function. I thought that she would get better after the funeral, but there she was, rocking back and forth in the corner of the living room. I tried to give her as much support as I could, but no matter what I did I could not find a way to quell her pain. It finally got to the point that I feared leaving our three-year-old with her. I needed to get her professional help. 
