@@ -1,0 +1,29 @@
+The story in of itself might not be very scary for some but what made it unsettling for me is the context around it so I will start with that. (I originally posted this on r/scarystories only to find out it's about fiction only, so I'm reposting it here since it's a real experience).
+
+It was a few years back, I was 21 at the time. The story happened in France, I lived in a gendarmerie\* with my mother and father during my master's degree study and no one else, we didn't have any pets either. A gendarmerie is a sort of police station but for military police and generally serve the same purpose but for smaller towns and cities. Since my father used to work there, we had a service flat given to my father so we can live with him at work.
+
+I've lived there for 11 years at that point, it's a nice, quiet little city and there is some wildlife on the edges of the city but nothing too crazy, maybe some wild boars, a few snakes and foxes but that's about it. However, in the center of the city where I'd live, there would never be anything like that.
+
+The appartement I lived in was at the 6th floor, the door that lead to it was very bulky and if you let go of the door it would lock you out automatically. All the windows in the house had double glazing for noise isolation since we lived right next to the highway so if you'd close the windows you wouldn't hear anything except for muffled truck horns at times.
+
+Now for the story itself, I cannot remember the exact month since I shrugged off the story later on, all I can tell is that it was not summer time as we'd let the windows open at night in the summer to cool down the appartement (we did not have AC at the time).
+
+I would wake up very late at night (or early in the morning depending on how you'd look at it) at around 2 AM by a loud banging on my bedroom door. I always keep it locked at night because I like my privacy and my mother has an unhealthy habit of snooping around. I obviously got startled and woke up on the nerves because while it happened that my father or mother would wake me up at night for urgent matters, they would usually knock as well as call out my name and not bang.
+
+However this definetly sounded more like banging and there was no voice calling out to me. I would make for an uninterestsing horror protagonist since I figured that, whatever is out there, I'm safer in my locked room than going out. I was scared that whatever was out would hurt my parents and thought to myself that if I heard my parents be in distress I'd take up my courage and help them.
+
+The banging stopped eventually as I listened carefully and there was nothing, I could even hear my mother snoring in her bedroom so I figured that it was safe to check after 5-10 minutes. I take a TV remote and my cellphone with me just to make myself feel more "armed" and with the flashlight of my phone, I investigate every room.
+
+There seems to be no sign of intrusion, stolen goods or broken stuff anywhere and since both of my parents were still asleep, I figured that it might have been a strong gust of wind hitting my door or at least that's what I rolled with because I needed to reassure myself. It still felt odd that none of my parents woke up from how loud it was. Although our windows were closed at the time so it's more denial than it is an explanation.
+
+I went back to bed, locking my door once more and snoozing once my nerves calm down. I woke up not an hour later to the sounds of screaming, it sounded like a woman was being murdered, I was terrified, shivering in my bed, covers held tight against me. It was loud yet so distant, you could hear it echo so it was outside for sure but it meant that whatever was screaming was louder than a truck horn.
+
+It sounded mostly like a woman but it was very intimidating, not like someone screaming for help but rather out of anger. It also had that uncanny valley of "it sounds human but it's not human" and it also had a sort of breathiness to it like it was panting between the screams. It kept on going for a solid 10 minutes as I cowered in my bed, my mind making thoughts much darker than what was probably the truth.
+
+I stayed up for probably half an hour, my heart beating in my chest as I slowly relaxed to the return of the silence, at that point, I was so exhausted I ended up passing out. I woke up the next morning at 10 which is not unusual for me and the first thing I did was ask my parents.
+
+At first I asked them if they hear any cat fighting last night, thinking that maybe I got the spooks from something that mundane, they told me they did not and asked me why. I explained to them the whole thing and precised that it was almost like a woman screaming for help and I was shocked that none of them heard that with how impossibly loud it was.
+
+They kept dismissing it and it was as if it was weird of me to keep asking to make sure they didn't hear anything that was remotely close to what I could have heard. Nothing, we went on about our days, I was still puzzled but I tried to think that maybe it was just an animal or something but I'm sure that no critters you could encounter at night in our little urban city could have made that noise and the fact that nobody other than me seemed to have heard it was making me uneasy because I am sure that I did not dream all of that.
+
+The only explanations I could rationalize with would be the wind for my door even if I don't understand how wind could have entered my appartement that night as the intrusion scenario is near to impossible in my mind and for the screaming, maybe it was a Lynx ? We have those in France even if they are rare and even rarer where I used to live. Although, those two rational explanations just don't fit entirely in my heart and I suppose I'll never know what happened that night.
