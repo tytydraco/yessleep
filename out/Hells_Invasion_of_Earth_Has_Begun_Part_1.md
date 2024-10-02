@@ -126,6 +126,8 @@ As I helped my father set the table, my mother went upstairs to call my sister d
 
 
 
+
+
 Before I could ask any further questions, my father interrupted bluntly and said:
 
 
@@ -155,6 +157,8 @@ My mother had definitely overheard our conversation, but chose to ignore it, as 
 
 
 “Oh come on now! Just trying to lighten the mood a little, jeez.” - He replied as he threw his hands up.
+
+
 
 
 
@@ -220,3 +224,14 @@ What was this thing? Why did this happen to us? Am I cursed? Did this happen bec
 
 “At least I get to die around my family.” - Was the last thought I remembered.
 
+
+
+“Jonathan.” - I heard the muffled voice of my mother call out to me.
+
+
+
+“Jonathan, wake up!” - Her voice got louder and clearer.
+
+
+
+I opened my eyes to see my mother sitting beside me on the floor. I was bleeding heavily from my stomach right below my solar plexus. My mother may have been a good cook, but she was never one for patching wounds or handling stressful situations. She thanked God after seeing I was responsive. I tried to muster up the strength to ask if my father and sister were okay, but I couldn’t utter a single word. My strength was completely sapped. All I knew is that I was alive.
