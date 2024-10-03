@@ -101,3 +101,5 @@ When he went in next, he insisted to Pete (the manager at the time who would lat
 Dustin and I made our own system then- when one of us would be closing, the other would show up when the sun went down to hang around.
 
 It worked… for a couple of [months](https://www.reddit.com/u/googlyeyes93/s/B0s84M72iS).
+
+[Update](https://www.reddit.com/r/nosleep/s/jnMWUTDZWl)
