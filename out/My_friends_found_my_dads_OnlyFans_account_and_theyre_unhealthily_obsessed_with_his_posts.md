@@ -134,7 +134,7 @@ Stairs creaked rapidly, and I screamed as I hurled my body out of the window, fi
 
 But I made it to the safety of the paving slabs below, and then I fled.
 
-I still want to see Dad. I want to know what he did to the 3789 people subscribed to his OnlyFans account. Before all of this, we’d barely spoken in two years, but I don’t understand what’s happened to him. Don’t understand why my own father would convince thousands of people to do such unthinkably odious things to themselves.
+I still want to see Dad. I want to know what he did to the 3789 people subscribed to his OnlyFans account. We’ve barely spoken in two years, so I don’t pretend to know him anymore, but this still doesn’t sound like the man I know. I don’t understand why my own father would convince thousands of people to do such unthinkably odious things to themselves.
 
 I might never have known my dad at all.
 
