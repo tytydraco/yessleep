@@ -14,7 +14,7 @@ Following a wake his family held for him, me and his friends George and Travis g
 
 I wasn't too big on the idea but everyone else was really into it and I eventually relented. We formed a circle around the board and placed our fingertips on the planchette.
 
-\*Are there any spirits here?\*I asked.
+*Are there any spirits here?* I asked.
 
 Then the planchette began to move.
 
