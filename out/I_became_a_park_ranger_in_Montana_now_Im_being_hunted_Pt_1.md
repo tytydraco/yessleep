@@ -180,7 +180,7 @@ The voice was closer now, but I didn’t move. I couldn’t move. My breath came
 
 Then, from behind me, came a rustling sound, soft at first, but growing louder, closer. I didn’t dare turn around. Every instinct in my body told me not to look, not to acknowledge whatever was behind me.
 
-But the rustling grew louder, and I could feel something watching me, approaching me, something predatory. The hair on the back of my neck stood up. 
+But the rustling grew louder, and I could feel something watching me, approaching me, something predatory. The hair on the back of my neck stood up.
 
 Everything became silent.
 
@@ -242,4 +242,4 @@ The fire crackled softly between us, the flames casting long shadows on the wall
 
 I didn’t sleep that night. And in the morning, I knew one thing for certain. The Wendigo was still out there, and it wasn’t done with me yet.
 
- 
+ [Pt. 2 - Finale](https://www.reddit.com/r/nosleep/comments/1fve2ln/i_became_a_park_ranger_in_montana_now_im_being/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
