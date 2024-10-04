@@ -56,7 +56,7 @@ Nothing but silence followed.
 
 "Lewis!" Travis and George called out to the empty room.
 
-I was about to take my fingers off the board when George's shoelaces began to crawl out of his sneakers like ropey snakes and wrapped themselves around his neck. He tried to get his fingers under them, but to no avail.
+I was about to take my fingers off the board when George's shoelaces began to slide out of his sneakers like ropey snakes and wrapped themselves around his neck. He tried to get his fingers under them, but to no avail.
 
 Travis began backing up from the board and bumped into the dresser, knocking the urn off of it and sending it to the floor where it smashed into a million pieces. I looked up at Travis and screamed, behind him, the photograph of Lewis had come alive, it was banging on the glass frame and screaming something at us.
 
