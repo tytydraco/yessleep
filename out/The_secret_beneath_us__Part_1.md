@@ -8,7 +8,7 @@ Just 10 months ago, a woman named Maria Pedrosa was brought into the Santa Helen
 
 She was alive, but completely unresponsive. An MRI was requested right away. Jorge waited hours. He could see the movement of the doctors and nurses. He could see their confused gazes, the mumbled discussions, the anxiety could chew his bones clean. They did the MRI again. And again. And then they said it.
 
-Jorge, we don’t know how to say this. We don't know how that's even possible. But your wife’s brain is missing. The brain is completely gone, without a trace.
+- Jorge, we don’t know how to say this. We don't know how that's even possible. But your wife’s brain is missing. The brain is completely gone, without a trace.
 
 No words would be capable of describing what must’ve gone through Jorge’s mind. “How’s that possible? What do you mean? Are you fucking serious?” All Jorge could do is cry. She stayed at the hospital for a week, when her heart finally stopped.
 
