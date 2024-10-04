@@ -246,4 +246,4 @@ And if that happens, one way or another, I will die here. But if I leave, it’s
 
 What do you guys think? Should I go back to the city? While there’s still a chance?
 
-[Or do I stand and fight?](https://www.reddit.com/r/nosleep/comments/1frzjzc/chhayagarh_i_cant_leave/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+Or do I stand and [fight](https://www.reddit.com/r/chhayagarh/comments/1fvxxog/posting_part_4_here_for_now/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)?
