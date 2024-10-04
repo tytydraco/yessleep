@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/1fvzzx9/im_a_journalist_who_follows_a_strange_list_of/)
+
 My name is Kai Martin, but I went by a catchier moniker on YouTube. It was about privacy as well as branding. You might’ve seen my channel back in the day, but I’m not going to provide a link.
 
 Anyway, by December of 2021, it was profitable enough for me to quit the day job. That month's YouTube ad revenue was equal to a year's worth of earnings from *The Daily Shitstain* — not its real name, believe it or not. My local newspaper was an endangered medium. Eyeballed by greasy bundles of cod and chips more than humans. Let’s put it that way.
@@ -253,3 +255,5 @@ When I looked down to see only one hand holding onto the steering wheel, I reali
 In an upcoming post, I will tell you what happened next. I will tell you about the things that followed. The things I had to do. But not today. This was already a lot for me. Besides, a tweeting bird just landed on my windowsill. It told me what will happen to Holly if I don’t snap it.
 
 Something I’d rather not [repeat](https://www.reddit.com/r/dominiceagle).
+
+[Part II](https://www.reddit.com/r/nosleep/comments/1fvzzx9/im_a_journalist_who_follows_a_strange_list_of/)
