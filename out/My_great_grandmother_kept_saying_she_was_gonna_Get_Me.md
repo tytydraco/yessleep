@@ -1,47 +1,81 @@
 It was her mantra. 
 
-“I’m gonna get you. I’m gonna get you Dolores. Are your parents awake? What about your aunt and uncles your cousins? Did you get me my Benadryl? My allergies are acting up something awful today.”
+“I’m gonna get you. I’m gonna get you Dolores. Are your parents awake? 
 
-Grandma‘s allergies were always awful. She was always coughing and sneezing and complaining and it was my job to keep her company day after day, week after week, and here I was, only in the sixth grade and on what they call the spectrum. I had no life is what I’m trying to say. A girl in the sixth grade should have a life. My family was no life. I questioned whether they were even capable of being classified as a life form.
+What about your aunts and uncles? What about your cousins? Did you get me my Benadryl? My allergies are acting up something awful today.”
 
-My family was no bowl of fruit, no walk in the park. It was a horror show. It was Halloween every goddamn day, and they were made up for the make up with the fake butt implants, the fake titties, the fillers and botard. 
+Grandma‘s allergies were always awful. She was always coughing and sneezing and complaining and it was my job to keep her company day after day, week after week up in that dusty attic room. 
+
+And here I was, only in the sixth grade and on what they call the spectrum. 
+
+I mean I needed to work on my boundaries is what the school shrink with the stutter had said. Or tried to.
+
+I had no life is what I’m trying to say. A girl in the sixth grade should have a life. My family life was no life. I questioned whether they were even capable of being classified as a life form.
+
+My family was no bowl of fruit, no walk in the park. It was a horror show. It was Halloween every goddamn day, and they were made up for the make up, what, with the fake butt implants, the fake titties, the fillers and botard. 
 
 “Beauty is always natural, Dolores.”
 
 “Yes, Grammy Carrie.”
 
-I don’t know who they thought they were, but we had a very strange background of gypsies from Transylvania with a little hillbilly thrown in it was my great, great grandfather, Heinz McMuggin.
+I don’t know who they thought they were, but we had a very strange background of gypsies from Transylvania with a little hillbilly thrown in, I think it was on my great, great grandfather, Heinz McMuggin’s side
 
 “Doloresssss!!! Get me another beer!!!!!”
 
-You did not contradict great grandma Carrie. She was bedridden with sores on her face and sputum and mucus that would just sometimes erupt as projectiles and she could strike at anytime at all. There was no warning. There was no preparation that could be taken other than to avoid my grandmother entirely.
+You did not contradict great grandma Carrie. She was bedridden with sores on her face and sputum and mucus that would just sometimes erupt as projectiles in one’s general direction, and she could strike at anytime at all. There was no warning. There was no preparation that could be taken other than to avoid my grandmother entirely.
 
+As I said, being in the sixth grade, I could not avoid her entirely. In fact, I was relegated to the role of her caregiver, caretaker, companion, and confidante.
 
-As I said, being in the sixth grade, I could not avoid her entirely. In fact, I was relegated to the role of her caregiver, caretaker companion, and confidante.
+Oh, how could I forget her personal shopper as well.
 
-Oh, how could I forget her personal shopper as well when I wasn’t getting Benadryl to try to keep this the mucus at bay she was having me by the weirdest things online for her. 
+Seriously, when I wasn’t getting Benadryl to try to keep the mucus at bay she was having me buy the weirdest things online for her. 
 
-Grandma‘s eyesight was not too good so she would make me do everything for her. Read everything explaining it to describe it, purchase it and then she would grab it from me upon arrival with arthritic talons tattooed with the words, “Hell’s Angel” and tell me to get lost. 
+Grandma‘s eyesight was not too good so she would make me do everything for her. Read everything, explaining it to describe it, maybe probably purchase it if it was weird enough and then she would grab it from me upon arrival with arthritic talons tattooed with the words, “Hell’s Angel” and tell me to get lost. 
 
-Tell me to get lost like a little goat, who’s been hit in the head with the tire iron and left for dead in the desert. 
+Tell me to get lost like a little goat, who’s been hit in the head with a tire iron and left for dead in the desert. 
 
-Here was the deal. Grandma had diabetes and had to have one of her legs removed, which happened, but unfortunately, the leg that got removed was the good one so then they had to take the bad one once they figured out the fubar. 
+Here was the deal. Grandma had diabetes and had to have one of her legs removed, which happened, but unfortunately, the leg that got removed was the good one so then, then they had to take the bad one once they figured out the fubar. 
 
-Now two personal injury lawyers later it seen grandma was sitting on about $14 million with interest because there was shenanigans with the discovery. At least that’s what I heard my uncle Ernie say uncle Ernie was constipated real bad from that low carb diet looking for the Metamucil and they had it but not the orange one and he got a bad temper uncle Ernie he wants kick the goat in the cat, but he always choke the chicken.
+Now two personal injury lawyers later it seem grandma was sitting on about $14 million with interest because there was shenanigans with the departure or discovery. At least that’s what I heard my uncle Ernie say.
 
-Anyway, so grandma she all fucked up, but she won’t die and now here I am Dolores in the sixth grade, whose life seems to be dedicated to wipe her Heiny getting her beer, dealing with her allergies, trying to keep my family together because they can’t touch the money till grandma died cause she say I can’t take it with me but you gotta wait for it. 
+Uncle Ernie was constipated real bad from that low carb diet. Aunty Gin was looking for the Metamucil and they had it but not the orange one and he got a bad temper uncle Ernie do, and he act like he wants to kick the goat in the cat, but he always choke the chicken and leave it at that..
 
-You gotta wait for it and take care of grandma cause grandma took care of you all so grandma gonna keep taking care of you all until you all taken care of real good and then grandma will know she done what had to be done and she would have to be due .
+Anyway, so grandma Carrie, she all fucked up, but she won’t die. Talking about her legacy and every time she do lights be flickering and Herbie be whining something terrible.
 
-Aside from me, the only person granny talk to was some guy named Stephen. She made me call him on the phone and then she made me go away, but sometimes I would listen and the things they talked about since say and very lovely like there was an intimate deep connection that my six year old brain cannot quite wrap itself around, but that yet somehow rimmed with electricity and the promise of apocalypse dystopia and just misery to numerous to a numerate at this particular moment while I’m trying to explain how grandma kept threatening me, threatening me telling me she’s going to get me. She’s gonna get me. 
+And now, here I am, plain old Dolores in the sixth grade, whose life seems to be dedicated to wiping Carrie’s heinie,  getting her her beer, dealing with her allergies and sputum projectiles, just trying to keep my family together because they can’t touch the money till grandma die.
 
-I’m gonna get you Dolores. That’s how she said. I’m gonna get you Dolores now get me some Benadryl.
+And gram no fool, and cause she say I can’t take it with me but you gotta wait for it and they always be arguing about keeping her here, at home in the attic, away from what Ernie call, “them rest home vultures.” He kept saying Dolores can, “get her her beer.”
+
+You gotta wait for it, Grammy Carrie say. Dolores you gotta wait and I gonna get you. Then Carrie pointed the crooked finger at me and I heard a light bulb pop.
+
+“Wait for it and take care of grandma cause grandma took care of you all so grandma gonna keep taking care of you all until you all taken care of real good.
+
+And then grandma will know she done what had to be done and she would not have to be owing no piss and vinegar god or demon it’s due.”
+
+Aside from me, the only person granny talk to was some guy named Stephen. 
+
+She made me call him on the phone and then she made me go away, but sometimes I would listen and the things they talked about sounded very lovely like there was an intimate deep connection that my brain cannot quite wrap itself around, but that yet somehow rimmed with electricity and the promise of apocalypse, dystopia and just miseries too numerous to enumerate at this particular moment while I’m trying to explain how grandma kept threatening me, threatening me, telling me, she’s going to get me. 
+
+She’s gonna get me. 
+
+I’m gonna get you Dolores. That’s how she said it all sinister . I’m gonna get you Dolores! Now! Now go get me some Benadryl. And Budweiser. And make it snappy.
 
  Go get me a parachute. Go get me these giant tents go get me this go get me that and I always say yes cause I’m scared of granny. Sometimes I can feel the earth shake. 
 
-Sometimes the electricity is in the air when granny Pissed she say it’s like a storm passes Dolores but you never done what they done. You never do what they do but grandma know everything even about you. I’m gonna get you Dolores. She’ll see soon. My sweet, sweet child will see soon.
+Sometimes there is electricity is in the air when granny get pissed.
 
-And one day grandma was really excited. I came into her room and she had been trying to see something on her Internet pad and she said to Laura to look at this get grandma her magnifying glass over there. You know grandma like to pee the bed and get me that magnifying glass, my little chica and I’ll show you and it was some kind of protein bar that was from Africa and had this tree bark from some lost ancient tribe that had been princes with the king live to 340 years old and they could see for miles they could smell a pig from a mile away. They knew what was up and yet somehow grandma with the electricity crackling around her couldn’t see what was right before her eyes.
+Gram Carrie say it’s like a storm passes Dolores but you never done what they done. You never do what they do but grandma know everything even about you. I’m gonna get you Dolores. She’ll see soon. My sweet, sweet child will see soon.
+
+Then she cackle and listen to Dracula on audio.
+
+And one day grandma was really excited. I came into her attic room and she had been trying to see something on her screen and she said to me, “you gotta see this!!!! Get grandma her magnifying glass over there.”
+
+
+“You know grandma like to pee the bed and get me that magnifying glass, my little chica and I’ll show you.”
+
+It was an advert for some kind of protein bar that was from Africa and had this tree bark from some lost ancient tribe that had spawned endowed princes with the king living as long as 340 years old and they could see for miles they could smell a pig from a mile away. 
+
+They knew what was up and yet somehow grandma with the electricity crackling around her couldn’t see what was right before her eyes.”
 
 “It’s a scam, Great Grammy.”
 
@@ -51,7 +85,9 @@ Grandma gave me a look. I looked that said how dare you question me child I coul
  She never got out of that bed. She just kept drinking and drinking with unquenchable undeniable thirst for the future for reality for her final mission that she kept telling me I’m gonna get you Dolores I will get you and it will be the last thing I do and then finally came, the family reunion
 
 Not only were all my uncles and aunts and cousins in the house, but we open up the backyard which usually they never did that was just filled with Herbie‘s dog shit but everybody came in. 
-They busted down trailers. 
+
+The busted down trailers. 
+
 We had a real good time. We had Miami potato salad and we had the macaroni salad with a little square cheese of chunks and and grandma stayed in bed, but she tried to keep them more beer and fat grandma just kept drinking and drinking and drinking, and she kept rubbing her nose or throat every time I came up to get her some more beer and take away the empty she say to me, I’m gonna get you today’s the day. 
 
 My child today is the day and I will feel a snap crackle and pop in the air, it was my hair was standard and I was afraid to touch the door knob. There was spark. It hurt it hurt me.
