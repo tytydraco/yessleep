@@ -80,35 +80,78 @@ They knew what was up and yet somehow grandma with the electricity crackling aro
 “It’s a scam, Great Grammy.”
 
 
-Grandma gave me a look. I looked that said how dare you question me child I could feel the look in my bones so I could hear her words in my head. I could hear everything she had said, even before she thought to say it and the next thing I know we were ordering a case of them special Miami protein parts with the special herb bark that Erbes bark forget about your aloe vera forget about your Australian tea tree oil that shit is all snake juice. What happened with grandma wants them bars came I can’t explain, but I never saw a woman drink so much beer in my life. She said she had new purpose new mission case after the case all kinds of beers. It was like she was running her own brewery in that bed, and I just kept cutting away the bottles cart away the bottles.
+Grandma gave me a look. I looked that said how dare you question me child!?
 
- She never got out of that bed. She just kept drinking and drinking with unquenchable undeniable thirst for the future for reality for her final mission that she kept telling me I’m gonna get you Dolores I will get you and it will be the last thing I do and then finally came, the family reunion
+I could feel the look in my bones so I could hear her words in my head. 
 
-Not only were all my uncles and aunts and cousins in the house, but we open up the backyard which usually they never did that was just filled with Herbie‘s dog shit but everybody came in. 
+I could hear everything she had said, even before she thought to say it and the next thing I know we were ordering a case of them special Miami dracula protein bars with the special herb bark.
 
-The busted down trailers. 
+That magic herb bark do all. Forget about your aloe vera,  forget about your Australian tea tree oil, that shit is all snake juice. 
 
-We had a real good time. We had Miami potato salad and we had the macaroni salad with a little square cheese of chunks and and grandma stayed in bed, but she tried to keep them more beer and fat grandma just kept drinking and drinking and drinking, and she kept rubbing her nose or throat every time I came up to get her some more beer and take away the empty she say to me, I’m gonna get you today’s the day. 
+What happened with grandma wanting them bars and when they came I can’t explain. 
 
-My child today is the day and I will feel a snap crackle and pop in the air, it was my hair was standard and I was afraid to touch the door knob. There was spark. It hurt it hurt me.
+I never saw nobody drink so much beer in my life. She said she had new purpose, a new mission.
 
-“The parachute Dolores. That was the sign. I only needed the will. And to let Stephen know, he’d always be my Daddy.
+Then she eat the Dracula bars and chug beer, case after case and all kinds of beers but just one kinda protein replenishment bar.
 
-Now my child, you’re too young to understand but Grandma has no use for money. Look at these arthritic hands. Look at my gnarled face. I was once beautiful and now I look like a prune that hasn’t been watered since the Civil War. 
+It was like she was running her own brewery in that bed, and I just kept carting away the bottles. Gram was thirsty.
 
-Everything is all gnarled up all gnarly grandma‘s all fucking I’m 103 do you understand that’s why I drink beer all day I had no purpose. I got no legs. They took the wrong one and then they took the right one and then I was I was just in this bed and I weren’t for you my child to work for you.
+ She never got out of that bed. She just kept drinking and drinking with unquenchable, undeniable thirst for the future, for reality, for her final mission that she kept telling me…..
 
-
-I don’t know what I would do with that disgusting clan of orangutans no that’s an insult to orangutans that disgusting clan of vipers that we must call the family my child they live they breathe and they wait for me. They wait for my money. It makes me sick so I needed a golden parachute something greater than money.”
-
-“Grandma what’s fatter than money? That’s how you buy all that shit online you use money nothings fatter and better than money.”
+I’m gonna get you Dolores
 
 
-Silly child silly child now you will soon know what grandma got the parachute and where it belongs as the family gathers around downstairs to sing Satanic songs grandma will remember a part of her from 1976 when she was young and cruelty, the cruelty of a school mates, her acquaintances, the authority figures everyone everyone hating on grandma because she was different with her freckles with her freckles and her mousy ways. Well tonight grandma can get you grandma‘s golden parachute now go go downstairs with your family go downstairs they’ll get grandma soon the matriarch.
+ I will get you and it will be the last thing I do and then the get me day finally came, 
 
-Adidas, I was told when I was downstairs my uncle Fred told me that the doctor said that grandma didn’t really have very much time so they were going to bring grandma down out of bed. It’s the first time grandma had been out of bed in years.
 
- This was an abnormality grandma had been in bed since I could remember everything about her was in bed And since the last three years, I’ve been taking care of her, given her Benadryl for her snot and mucus bring her all them beer bottles clean up her duties everything but I love her. They told me she was my great Grammy Grams so anyway when uncle Fred told me this was it I took my seat at the table and everyone looked grim, but they also look greedy. They look greedy as cats at a fish convention during a riot.
+the family reunion
+
+Not only were all my uncles and aunts and cousins in the house, but we opened up the backyard, which usually they never did cuz it was just filled with Herbie-dog shit but everybody came in. 
+
+They came in in their American made vehicles toting busted down trailers. 
+
+We had a real good time. 
+
+We had Miami potato salad and we had the German macaroni salad, the salad with little squares of hard cheese.
+
+Grandma stayed in bed, but she tried to keep eating protein replenishment bars and guzzling more beer.
+
+Not fat grandma just kept drinking and drinking and drinking, and she kept rubbing her nose or throat every time I came up to get her some more beer and take away the empties, three in each hand. Gram say to me, I’m gonna get you and today’s the day. 
+
+My child today is the day she say and I will feel a snap crackle and pop in the air.
+
+My hair was up on end and I was afraid to touch the door knob. There was spark. It hurt it hurt me.
+
+“The parachute Dolores. That was the sign. You really can buy anything online. 
+
+I only needed the will. And to let Stephen know, he’d always be my Daddy. 
+
+Now my child, you’re too young to understand but Grandma has no use for money. 
+
+Look at these arthritic hands. Look at my gnarled face. I was once beautiful and now I look like a raisin in the Civil War sun. 
+
+Everything is all gnarled up all gnarly grandma‘s all fucking I’m 103 do you understand that’s why I drink beer all day I had no purpose. 
+
+I got no legs. They took the wrong one and then they took the right one and then I was I was just in this bed and I will get you.
+
+
+I don’t know what I would do with that disgusting clan of orangutans, no that’s an insult to orangutans, that disgusting clan of vipers that we must call, “the family”my child. They live, they breathe, and they wait for me. They wait for my money. 
+
+It makes me sick. So, I needed a golden parachute. Something greater than mere money.”
+
+“Grandma!!! What’s fatter than money?” I asked.
+
+“That’s how you buy all that shit online. You use money. Nothings fatter and better than money.”
+
+
+Silly child silly child now you will soon know what is who. Grandma got the parachute.
+
+ It’s for the family gathering when all gathers around downstairs to sing Satanic songs. Grandma will remember a part of her childhood from 1976 when she was young and cruelty, the cruelty of her school mates, her acquaintances, the authority figures everyone, of everyone hating on grandma because she was different with her freckles with her freckles and her mousy ways. 
+
+
+Well tonight, tonight grandma can get you. Get grandma‘s golden parachute now!! Go! Go go downstairs with your family go downstairs they’ll get grandma soon; the matriarch.
+
+Uncle Fred told me this was it m, Gran’s last supper, well I took my seat at the table and everyone looked grim, but they also look greedy. They look greedy as cats at a fish convention during a riot.
 
 Five minutes later, grandma sat at the head of the table regarding a salt. She said please the us don’t think any of the supplies to you. I’m gonna get you and then she said I want us to have one drink together in unity and unison as the matriarch of this family raise your glasses, and everyone did and everyone drank and never saw such pleasing people . 
 
