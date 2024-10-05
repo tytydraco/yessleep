@@ -8,9 +8,11 @@ Grandma‘s allergies were always awful. She was always coughing and sneezing an
 
 And here I was, only in the sixth grade and on what they call the spectrum. 
 
-I mean I needed to work on my boundaries is what the school shrink with the stutter had said. Or tried to.
+I mean, I needed to work on my boundaries, is what the school shrink with the stutter had said. Or tried to.
 
-I had no life is what I’m trying to say. A girl in the sixth grade should have a life. My family life was no life. I questioned whether they were even capable of being classified as a life form.
+I had no life is what I’m trying to say. 
+
+A girl in the sixth grade should have a life. My family life was no life. I questioned whether they were even capable of being classified as a life form.
 
 My family was no bowl of fruit, no walk in the park. It was a horror show. It was Halloween every goddamn day, and they were made up for the make up, what, with the fake butt implants, the fake titties, the fillers and botard. 
 
@@ -34,19 +36,25 @@ Grandma‘s eyesight was not too good so she would make me do everything for her
 
 Tell me to get lost like a little goat, who’s been hit in the head with a tire iron and left for dead in the desert. 
 
-Here was the deal. Grandma had diabetes and had to have one of her legs removed, which happened, but unfortunately, the leg that got removed was the good one so then, then they had to take the bad one once they figured out the fubar. 
+Here was the deal. 
 
-Now two personal injury lawyers later it seem grandma was sitting on about $14 million with interest because there was shenanigans with the departure or discovery. At least that’s what I heard my uncle Ernie say.
+Grandma had diabetes and had to have one of her legs removed, which happened, but unfortunately, the leg that got removed was the good one, so then, then they had to take the bad one once they figured out the fubar. 
 
-Uncle Ernie was constipated real bad from that low carb diet. Aunty Gin was looking for the Metamucil and they had it but not the orange one and he got a bad temper uncle Ernie do, and he act like he wants to kick the goat in the cat, but he always choke the chicken and leave it at that..
+Now, two personal injury lawyers and a decade later, it seem grandma was sitting on about $14 million with interest because there was shenanigans with the departure or discovery. At least that’s what I heard my uncle Ernie say. 
 
-Anyway, so grandma Carrie, she all fucked up, but she won’t die. Talking about her legacy and every time she do lights be flickering and Herbie be whining something terrible.
+Uncle Ernie was constipated real bad from that low carb diet. 
 
-And now, here I am, plain old Dolores in the sixth grade, whose life seems to be dedicated to wiping Carrie’s heinie,  getting her her beer, dealing with her allergies and sputum projectiles, just trying to keep my family together because they can’t touch the money till grandma die.
+Aunty Gin was looking for the Metamucil and they had it but not the orange one and he got a bad temper uncle Ernie do, and he act like he wants to kick the goat in the cat, but he always choke the chicken and leave it at that..
+
+Anyway, so grandma Carrie, she all fucked up, but she won’t die. Talking about her legacy and every time she do that lights be flickering and Herbie be whining something terrible in the corner.
+
+And now, here I am, plain old Dolores in the sixth grade, whose life seems to be dedicated to wiping Carrie’s heinie,  getting her her beer, dealing with her allergies and sputum projectiles, basically just trying to keep my family together because they can’t touch the diabetes money till grandma Carrie die.
 
 And gram no fool, and cause she say I can’t take it with me but you gotta wait for it and they always be arguing about keeping her here, at home in the attic, away from what Ernie call, “them rest home vultures.” He kept saying Dolores can, “get her her beer.”
 
-You gotta wait for it, Grammy Carrie say. Dolores you gotta wait and I gonna get you. Then Carrie pointed the crooked finger at me and I heard a light bulb pop.
+You gotta wait for it. I gonna get you, Dolores.
+
+Grammy Carrie say. Dolores you gotta wait and I gonna get you. Then Carrie pointed the crooked finger at me and I heard a light bulb pop in the hallway casting her sore covered face in flickering shadow play.
 
 “Wait for it and take care of grandma cause grandma took care of you all so grandma gonna keep taking care of you all until you all taken care of real good.
 
@@ -58,29 +66,38 @@ She made me call him on the phone and then she made me go away, but sometimes I 
 
 She’s gonna get me. 
 
-I’m gonna get you Dolores. That’s how she said it all sinister . I’m gonna get you Dolores! Now! Now go get me some Benadryl. And Budweiser. And make it snappy.
+I’m gonna get you Dolores. That’s how she said it all sinister. I’m gonna get you Dolores! Now! Now go get me some Benadryl. And Budweiser. And make it snappy.
 
- Go get me a parachute. Go get me these giant tents go get me this go get me that and I always say yes cause I’m scared of granny. Sometimes I can feel the earth shake. 
+Go get me a parachute. 
+
+Go get me these giant tents, go get me this , go get me that, and I always say, yes, cause I’m scared of granny. 
+
+Sometimes I can feel the earth shake. And this smell. 
 
 Sometimes there is electricity is in the air when granny get pissed.
 
-Gram Carrie say it’s like a storm passes Dolores but you never done what they done. You never do what they do but grandma know everything even about you. I’m gonna get you Dolores. She’ll see soon. My sweet, sweet child will see soon.
+Gram Carrie say it’s like a storm passes Dolores, but you never done what they done. 
 
-Then she cackle and listen to Dracula on audio.
+You never do what they do but grandma know everything, even about you. I’m gonna get you Dolores. She’ll see soon your dirty Momma dearest. My sweet, sweet child , they will all see soon.
 
-And one day grandma was really excited. I came into her attic room and she had been trying to see something on her screen and she said to me, “you gotta see this!!!! Get grandma her magnifying glass over there.”
+Then Carrie cackle and listen to Dracula on audio.
 
+And one day, grandma was really excited. I came into her attic room and she had been trying to see something on her screen and she said to me, “you gotta see this!!!! Get grandma her magnifying glass over there.”
 
 “You know grandma like to pee the bed and get me that magnifying glass, my little chica and I’ll show you.”
 
-It was an advert for some kind of protein bar that was from Africa and had this tree bark from some lost ancient tribe that had spawned endowed princes with the king living as long as 340 years old and they could see for miles they could smell a pig from a mile away. 
+It was an advert for some kind of protein bar that was from Africa and had this tree bark from some lost ancient tribe that had spawned endowed princes.
+
+Advert claimed this bark so beautiful that 90 year-old king living ready to croak grew big immortal stones and sired 99 bastards, living to 340 years old.
+
+And all his bastards it was said could see for miles and even that they could smell a pig from a mile away. 
 
 They knew what was up and yet somehow grandma with the electricity crackling around her couldn’t see what was right before her eyes.”
 
 “It’s a scam, Great Grammy.”
 
 
-Grandma gave me a look. I looked that said how dare you question me child!?
+Grandma gave me a look. A look that looked like how dare you question me insolent child!?
 
 I could feel the look in my bones so I could hear her words in my head. 
 
@@ -101,12 +118,12 @@ It was like she was running her own brewery in that bed, and I just kept carting
 I’m gonna get you Dolores
 
 
- I will get you and it will be the last thing I do and then the get me day finally came, 
+ I will get you and it will be the last thing I do and then the “get me” day finally came, 
 
 
-the family reunion
+THE FAM REUNION
 
-Not only were all my uncles and aunts and cousins in the house, but we opened up the backyard, which usually they never did cuz it was just filled with Herbie-dog shit but everybody came in. 
+Not only were all my uncles and aunts and cousins in the house, but we opened up the backyard, which usually they never did cuz it was just filled to the brim with Herbie-dog shit but it was largely ignored and everybody commingled with cheap beer, old canine shit and dreams of a slice of that gammy fortune.
 
 They came in in their American made vehicles toting busted down trailers. 
 
@@ -130,14 +147,20 @@ Now my child, you’re too young to understand but Grandma has no use for money.
 
 Look at these arthritic hands. Look at my gnarled face. I was once beautiful and now I look like a raisin in the Civil War sun. 
 
-Everything is all gnarled up all gnarly grandma‘s all fucking I’m 103 do you understand that’s why I drink beer all day I had no purpose. 
+Everything is all gnarled up. Grammy is all gnarly gnarled. Grandma‘s all fucking fucked up on decades. I’m 103, legless, trying to stare at a fucking goat, do you understand that’s why I drink beer all day! I had no purpose. 
 
-I got no legs. They took the wrong one and then they took the right one and then I was I was just in this bed and I will get you.
+I got no legs. 
+
+They took the wrong one and then they took the right one and then, I was just in this bed and I will get you for that you little ass wiper.
 
 
 I don’t know what I would do with that disgusting clan of orangutans, no that’s an insult to orangutans, that disgusting clan of vipers that we must call, “the family”my child. They live, they breathe, and they wait for me. They wait for my money. 
 
-It makes me sick. So, I needed a golden parachute. Something greater than mere money.”
+Vultures in the outfield 
+
+It makes me sick. 
+
+So, I needed a golden parachute. Something greater than mere money.”
 
 “Grandma!!! What’s fatter than money?” I asked.
 
@@ -146,22 +169,48 @@ It makes me sick. So, I needed a golden parachute. Something greater than mere m
 
 Silly child silly child now you will soon know what is who. Grandma got the parachute.
 
- It’s for the family gathering when all gathers around downstairs to sing Satanic songs. Grandma will remember a part of her childhood from 1976 when she was young and cruelty, the cruelty of her school mates, her acquaintances, the authority figures everyone, of everyone hating on grandma because she was different with her freckles with her freckles and her mousy ways. 
+ It’s for the family gathering when all gathers around downstairs to sing Satanic songs. 
+
+Grandma will remember a part of her childhood from 1976 when she was young and cruelty, the cruelty of her school mates, her acquaintances, the authority figures, almost everyone, of everyone hating on grandma because she was different with her freckles with her freckles and her mousy ways. Just cause Grammy was hot for John Travolta.
 
 
-Well tonight, tonight grandma can get you. Get grandma‘s golden parachute now!! Go! Go go downstairs with your family go downstairs they’ll get grandma soon; the matriarch.
+Well tonight, tonight grandma can get you. 
 
-Uncle Fred told me this was it m, Gran’s last supper, well I took my seat at the table and everyone looked grim, but they also look greedy. They look greedy as cats at a fish convention during a riot.
+Granny gonna get you back.
 
-Five minutes later, grandma sat at the head of the table regarding a salt. She said please the us don’t think any of the supplies to you. I’m gonna get you and then she said I want us to have one drink together in unity and unison as the matriarch of this family raise your glasses, and everyone did and everyone drank and never saw such pleasing people . 
+Get grandma‘s golden parachute now!! Go! Go go downstairs with your family go downstairs they’ll get grandma soon; the matriarch.
 
-You’d never know what my family was really like but yet they grandma said regal drinking that wine and then she looked at everyone and suddenly the lights they shivered and shim and flickered and there was thunder and lightning and the candles blew out and they said take it easy grandma take it easy, grandma. 
+Gram spat and it hit the far wall and stuck slid.
 
-“You have disappointed Grandma you cheese hunting rat shits. Grandma will have to leave this earthly plane and go find her legs. Thanks to the fuck up of modern science, but before I go, I want you to know how pissed off you all made me.”
+Uncle Fred told me this was it.
 
-Later on after the paramedics and folks in the hazmats had left and my cousin Sadie, who had been with her homeboy Grady and missed the party came and got me she explained everything somehow someway my great Grammy she had this giant parachute bolted to the ceiling and filled with years worth of her urine that she had been somehow getting up into this parachute in this hermetically sealed parachute as if by telekinesis.
+Grammy Carrie’s last supper.
 
-I didn’t know she was famous. They had put her away when she was young after an incident at the prom but how that led to Grams poisoning the whole Family’s intestines with Old Lace Merlot, and then dousing the table in a monsoon of vintage piss, well I was in shock.
+I took my seat at the table and everyone looked grim, but they also look greedy. They look greedy as cats at a fish convention during a riot.
 
-Her last words to me as her mouth foamed from the draino were, “I’m gonna get you rich!”
+Five minutes later, grandma sat at the head of the table regarding us skeptical like. 
+
+She said I want us to have one drink together, in unity and unison, as the matriarch of this family. Bend an elbow bitches. Raise your glasses!!!
+
+They did and everyone drank and I never saw such pleasing people I wonder where my real fam went. 
+
+You’d never know what my family was really like but yet they join grandma in some regal drinking all that wine spodey~Odie and then….
+
+Then she looked at everyone sipping and sucking up and suddenly the lights they shivered and shimmered and flickered and there was thunder and lightning and the candles blew out and they said take it easy grandma take it easy, grandma.
+
+“You have disappointed Grandma you cheese hunting rat shits!
+
+Grandma will have to leave this earthly plane any moment and go find her long lost legs. Thanks to the fuck up of modern science, but before I go, I want you to know how pissed off you all made me. I will return the piss.”
+
+Later on, after the paramedics and folks in the hazmats had left, and my cousin Sadie, who had been with her homeboy Grady and missed the party, came and got me.
+
+Sadie explained everything.
+
+Somehow, someway, my great Grammy, she had this giant parachute bolted to the dining room ceiling. She filled the parachute like a giant bladder with years worth of her accumulated urine that she had been somehow getting up into this parachute, in this hermetically sealed parachute, as if by telekinesis.
+
+I didn’t know Carrie was sort of famous. They had put her away when she was young after an incident at the prom but how that led to Grams poisoning the whole Family’s intestines with Old Lace Merlot, and then dousing the table in a monsoon of vintage piss, well I was in shock.
+
+And like I said I only in the 6th grade and on the spectrum.
+
+Granny Carrie’s last words to me, as her mouth foamed from the draino were, “I’m gonna get you! Get you rich!”
 
