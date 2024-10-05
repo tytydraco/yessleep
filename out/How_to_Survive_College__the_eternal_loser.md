@@ -319,3 +319,5 @@ He placed the stone in my hands.  I ran my fingers over it, staring at the crac
 “I don’t know what to do with this,” I said.  “It doesn’t really look like a heart and I don’t know how that would fit into anything, even if it *did*-”
 
 “That’s because it’s not a heart,” the devil replied.  “It’s a *seed*.”
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1fweyby/how_to_survive_college_either_a_kidnapping_or_an/)
