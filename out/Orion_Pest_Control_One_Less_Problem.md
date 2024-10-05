@@ -468,6 +468,6 @@ He let out a soft *huff*, as if I was inconveniencing him, but slid his arm arou
 
 I don't know if it had just been the ketamine talking when he said that we were ‘even,’ but I’m going to hold him to it. Though, I want to get Deirdre's perspective first. 
 
-On the bright side, we have the hag situation under control. It was messy, but it's done. *Ding dong, the wicked witch is dead.* 
+On the bright side, we have the hag situation under control. It was messy, but it's done. 
 
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/r/atypicalpests/s/spbBjGGVsf)
+Update: I (temporarily) have a new [sword instructor. ](https://www.reddit.com/r/nosleep/s/X9i6ZuFOhF)
