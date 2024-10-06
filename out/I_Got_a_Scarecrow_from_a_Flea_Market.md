@@ -44,7 +44,7 @@ Maybe the old peddler was right. Maybe it really was that effective. 
 
 A couple more days went by, and the crops remained unharmed. Not a single bird or rodent dared to come near them. For the first time in months, I felt a glimmer of hope.
 
-Clara noticed the shift in my mood and began to believe again herself as she watched Emma and Luke play among the crops, their laughter ringing through the air.
+Clara noticed the shift in my mood and began to believe again herself as she watched our children Emma and Luke play among the crops, their laughter ringing through the air.
 
 But on the fourth night, things took a strange turn. I woke up in the middle of the night, my throat dry and aching for a glass of water. After downing it, I happened to glance out the window toward the field—and froze. The scarecrow wasn’t where I had left it.
 
