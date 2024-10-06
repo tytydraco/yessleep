@@ -1,6 +1,8 @@
 It was her mantra. 
 
-“I’m gonna get you. I’m gonna get you Dolores. Are your parents awake? 
+Punctuated with bloody projectile sputum she would remind me:
+
+“I’m gonna get you. I’m gonna get you, Dolores. Are your parents awake? 
 
 What about your aunts and uncles? What about your cousins? Did you get me my Benadryl? My allergies are acting up something awful today.”
 
@@ -12,13 +14,17 @@ I mean, I needed to work on my boundaries, is what the school shrink with the st
 
 I had no life is what I’m trying to say. 
 
-A girl in the sixth grade should have a life. My family life was no life. I questioned whether they were even capable of being classified as a life form.
+A girl in the sixth grade ought to have a life. My family life was no life. I questioned whether they were even capable of being classified as a life form. Some kind of batch of defective fucknuts is what they were if you asked Grammy.
 
 My family was no bowl of fruit, no walk in the park. It was a horror show. It was Halloween every goddamn day, and they were made up for the make up, what, with the fake butt implants, the fake titties, the fillers and botard. 
 
 “Beauty is always natural, Dolores.”
 
 “Yes, Grammy Carrie.”
+
+“Those shallow fuckwits downstairs, Dolores?  I lived long enough to be broad enough to admit I shat out a bad bunch of bananas.”
+
+My fam? Jesus.
 
 I don’t know who they thought they were, but we had a very strange background of gypsies from Transylvania with a little hillbilly thrown in, I think it was on my great, great grandfather, Heinz McMuggin’s side
 
@@ -147,27 +153,33 @@ Now my child, you’re too young to understand but Grandma has no use for money.
 
 Look at these arthritic hands. Look at my gnarled face. I was once beautiful and now I look like a raisin in the Civil War sun. 
 
-Everything is all gnarled up. Grammy is all gnarly gnarled. Grandma‘s all fucking fucked up on decades. I’m 103, legless, trying to stare at a fucking goat, do you understand that’s why I drink beer all day! I had no purpose. 
+Everything is all gnarled up. Grammy is all gnarly gnarled. Grandma‘s all fucking fucked up on decades. I overdosed on time.
+
+I’m 66 but really 103, legless, trying to stare at a fucking goat, do you understand that’s why I drink beer all day! I had no purpose. 
 
 I got no legs. 
+
+In 1976 I suddenly became 18 again. Covered in sangria tears I awoke old and married to your great grandfather. He gambled, cheated, owed everyone and finally, to wipe my rent debt, I gave him up. So you’re piece of shit grandfather could watch Superman and The Lone Ranger. Did it matter? No. He went into finance and was a big man with a big plan until they realized it was all mobbed up film-flam.
+
+Rotten to the bone. Just like Brute. Like Caesar.
 
 They took the wrong one and then they took the right one and then, I was just in this bed and I will get you for that you little ass wiper.
 
 
-I don’t know what I would do with that disgusting clan of orangutans, no that’s an insult to orangutans, that disgusting clan of vipers that we must call, “the family”my child. They live, they breathe, and they wait for me. They wait for my money. 
+I don’t know what I would do without you. Stuck in mobile with that disgusting clan of orangutans, no that’s an insult to orangutans, that disgusting clan of vipers that we must call, “the family”my child. They live, they breathe, and they wait for me. They wait for my money. 
 
 Vultures in the outfield 
 
 It makes me sick. 
 
-So, I needed a golden parachute. Something greater than mere money.”
+So, I needed a golden parachute. Something greater than mere money. Soon you will know why it’s golden.”
 
 “Grandma!!! What’s fatter than money?” I asked.
 
 “That’s how you buy all that shit online. You use money. Nothings fatter and better than money.”
 
 
-Silly child silly child now you will soon know what is who. Grandma got the parachute.
+Silly child silly child now you will soon know what is who. Grandma got the parachute. Gold. Liquid. Vintage. From the attic to the cellar.
 
  It’s for the family gathering when all gathers around downstairs to sing Satanic songs. 
 
@@ -189,6 +201,8 @@ Grammy Carrie’s last supper.
 I took my seat at the table and everyone looked grim, but they also look greedy. They look greedy as cats at a fish convention during a riot.
 
 Five minutes later, grandma sat at the head of the table regarding us skeptical like. 
+
+“First, you Dolores! Sit over there. You will get what’s coming to you soon enough. I’m gonna get you!”
 
 She said I want us to have one drink together, in unity and unison, as the matriarch of this family. Bend an elbow bitches. Raise your glasses!!!
 
