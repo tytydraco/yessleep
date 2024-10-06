@@ -1,0 +1,51 @@
+Growing up in town I've always heard that when the stars blink you must stay inside. It wasn't until I was older that I realized that some people actually go out looking. My mother always told me that it was a time of great evil and that people had to hide inside. She wouldn't even let us look out the window to see the stars fading in and out, though it was really beautiful.  
+
+When I became a teacher, I gained access to the documents. The newer documents were written more recently, but the original tales were spread via folklores and might be corrupted. We teach about the stars right away, in kindergarten, so the kids don't accidently wander off and find the road.  
+
+It wasn't until I moved away that I learned that no one else knew about the blinking stars. It seemed like such a normal part of life here, I guess it never occurred to me that it only happened here. What's even more interesting about the time I spent traveling is that I forgot about the blinking. I never told anyone, because I didn't remember it.  
+
+When mom got sick I moved back to town and that's when the memories came back. I don't know if anyone has ever left town and remembered the blinking stars. Maybe that's why no one's heard of it. I don't think it's ever occurred to anyone to look online. Or maybe if they did, they thought that the twinkling stars and the blinking stars were the same thing. I don't know.  
+
+So... I want to try and share what we know about the blinking stars. Maybe someone out there knows more about them and the road. Maybe someone out there can help us figure out what's happening. Maybe someone else has experiences with the long road.  
+
+I snuck the first document out and I've typed it out. The first document was written, but the story of the first event happened a lot earlier than it was written. So, you have to take it with a grain of salt. But, the details seem to line up so well with the other events that it seems likely to be a true telling of the first time the stars blinked.  
+
+1629, Quapaw tribe ...  
+
+ Aponi was collecting several sunflower heads from the side of the longhouse when she saw the stars blinking. She tilted her head up to look at the sky, her long dark braids falling down her back. She wasn’t sure how long it had been happening before she noticed, but the stars were slowly disappearing and reappearing in the deep black sky. Dark, almond-shaped eyes peered up, trying to spot the lines of the clouds; surely they must be blowing high above them in order to block the stars, though she couldn’t see any. Aponi wasn’t sure what was causing it, but she felt a deep worry in her heart. This wasn’t normal, and with the men off on a hunt, she was worried it might be an omen. She slowly put the basket of flower heads down and watched the skies. Inside the longhouse, she could hear the older women and the children laughing and screaming in delight as Sina told them a story about a curious fox who ended up in her water pot. 
+
+At 17, Aponi was one of the young women of the tribe, and with her upcoming marriage to Hinto, she would soon be seen as a leader in her tribe. Hinto was the son of the head chief and was showing signs that he too would become head chief. As such, Aponi felt a certain amount of responsibility to keep her tribe safe and thought that the stars might be giving her a message. It made sense for them to seek her out; the men were out, and she was a bridge between the two important families in her tribe. This union promised to strengthen ties and ensure the prosperity of their people, and it wasn’t a responsibility she took lightly. 
+
+The stars continued to blink, and she felt her heart speed up. This wasn’t right; this wasn’t normal. She wished the men had come back from the hunt today so she knew they were safe. Something warned her that they were in danger, and this was the stars' way of warning her. She scanned the river, looking for movement or the light of far-off fires, but could see nothing. Then she looked toward the planting grounds, and her breath caught in her chest. There was a thick, deeply beaten path through the grounds. 
+
+She turned and looked again at the longhouse, and then moved slowly toward the path. It was covered in rocks, but they were placed so that she couldn’t see the seam between them. It was unlike anything she had seen, and it wasn’t there earlier. Down the path, she could see the steady flames of some campfires in the distance, but they looked strange. They weren’t near the ground; rather, they floated in the air. They also didn’t flicker; instead, they had a steady light. She felt her heart start up again and then begin beating faster. 
+
+She carefully placed one foot on the path and felt it was hard; it had no give. It was strong and very smooth. She turned once more. She really wanted to go back to the longhouse, to join her sister and her family and sit by the fire, but what if this was a message for her? What if she walked away and missed out on the warning that the stars were trying to tell her? Behind her, her sister’s laugh floated on the air, so similar to her own, and Aponi took a deep breath. She wouldn’t give in to the fear in her heart. 
+
+She lifted her chin and carefully walked on the path. After a few moments, the stars stopped blinking, and the planting grounds stood without interruption. The path and Aponi were gone. Shortly after, Grandmother Nita came to look for Aponi, but she was nowhere to be found. 
+
+The next morning, as the sun rose, the hunting party came back across the field. Hinto strode confidently across the field, the soft light of dawn illuminating his powerful frame. Standing tall and strong, his broad shoulders and muscular build spoke of years spent honing his skills as a hunter. His sun-kissed skin glistened with a light sheen of sweat, a testament to the labor of the hunt and the early morning sun that painted the sky with hues of orange and gold. 
+
+His long, dark hair was pulled back in a loose braid, the ends adorned with small feathers that swayed gently with each stride. Hinto wore a tunic made from the hide of a bison, expertly crafted to allow freedom of movement while offering protection from the elements. The garment was decorated with intricate beadwork depicting animals and symbols of strength, reflecting both his identity and the traditions of the Quapaw tribe. 
+
+As he approached, a sense of pride radiated from him, evident in the confident tilt of his chin and the way his deep-set, dark eyes sparkled with excitement. There was a fierce determination in his gaze, coupled with a hint of softness reserved for his beloved Aponi. Strapped across his back was a quiver filled with arrows, the tips glinting in the light, and in his strong hands, he carried the spoils of the hunt—a bison draped across his shoulders, its powerful presence echoing his own strength. 
+
+His arrival was marked by the joyous cheers of the villagers, their faces lighting up with admiration and respect. Hinto’s lips curled into a broad smile, his deep voice ringing out as he called to his fellow hunters, celebrating their success. He was not just a skilled warrior; he was a protector and a leader in the making, poised to take his place alongside Aponi as they embraced their future together. 
+
+They carried enough meat to last many moons, and they returned full of blessings and happiness at the safe hunt. Hinto was particularly pleased; he was due to marry Aponi, and now they had the meat to celebrate. 
+
+Sina burst from the longhouse, moving with a mix of urgency and apprehension. At twelve, her youthful features were a softer version of her sister’s. Her long, dark hair cascaded in loose waves down her back, brushing against her shoulders as she darted across the open space. Strands of hair framed her round face, giving her a slightly wild appearance in her haste. 
+
+Her almond-shaped eyes, a mirror of Aponi’s, were wide with concern, revealing the depth of her worry for her sister. They flickered between the gathering of men and the approaching hunting party, filled with both admiration and trepidation. She wore a simple woven tunic, the earthy tones blending with the natural surroundings, but her attire felt inadequate under the scrutiny of the older men, whose presence loomed large and intimidating. 
+
+As she ran, her small hands were clenched into fists at her sides, betraying her anxious state. She hesitated for just a moment before reaching Hinto, acutely aware of the weight of tradition and expectation that surrounded her. The excitement of the returning hunters mixed with her fear, creating a whirlwind of emotions that fueled her urgency. 
+
+She gathered her courage, drawing a deep breath to steady herself, but before she could, they all heard Grandmother Nita let out a gasp and a cry of alarm. 
+
+She pointed at the river, and there was Aponi. She was standing, staring at them, not moving. The intricate patterns woven into her clothing, the vibrant colors, stood out. 
+
+Several hours later, everyone was home. Most of the women were working on skinning and butchering the bison, but the moment was no longer joyous. There was a nervous, skittish tension in the air. Within the village chief's longhouse, Aponi, Hinto, and the shaman were gathered, along with several men from the elder’s council. 
+
+Aponi had shared what she could remember—the mysterious path, the stars that spoke to her in blinks, and the sudden feeling of falling once she walked along the path. She couldn’t remember anything that happened past that, however. They could all tell she was acting off, though; her voice was emotionless, and her inner light seemed to be dimmed. That was worrisome enough, but everyone in the tribe had seen the same thing when Aponi had returned. She had been walking toward them, moving across the river, and the sun had been rising behind her. They had lifted their hands to their eyes to cut the glare and watch her return, and almost everyone had noticed that something was wrong. Aponi didn’t look harmed, but the sunshine seemed to glow deep inside her. And on the ground at her feet, she cast no shadow. 
+
+ 

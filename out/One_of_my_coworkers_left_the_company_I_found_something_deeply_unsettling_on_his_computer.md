@@ -103,3 +103,42 @@ He took my hand. His touch was frosty, yet somehow also warm, and gentle. I kept
 I still felt incredibly cold, but maybe…
 
 Maybe he will take me to a warmer place.
+
+-------
+
+
+Well, I'm guessing you can probably imagine I was completely freaking out. My hair was standing up and I was sweating bullets. But my rational brain was still working, and I was ready to discard what I had just read as a creative exercise or even some sort of practical joke.
+
+But you know, Michael didn't do jokes. Ever. And even as I immersed myself in my work tasks and tried to forget about it all, I could still feel my skin crawling.
+
+By the end of the day, I went back home, goofed around with my kids, and fixed myself some tea to relax. It obviously didn't work.
+
+I put one of those dumb Netflix series on the TV and used it as ambient noise to try to fall sleep. But something kept nagging me, like I was missing a crucial piece of the puzzle. And this morning, with the help of a strong coffee, I just figured out what it was. 
+
+**We had cameras in the office.**
+
+So you betcha I sprinted down immediately to security and requested to see logs and video footage for the past week. It was a weird request, but Sally, the chief of security, is a buddy of mine. He shrugged and allowed me in. He briefly showed me how to navigate the system, then stepped out of the security booth.
+
+-"Knock yourself out. I'm going for my smoke break."
+
+And so I did. I knew Michael stopped showing up on Tuesday after lunch, so I started there. I could see Michael eating something behind his desk. I checked the logs: No external visitors were recorded that day. Nothing unusual so far. 
+
+I let out a sigh of relief, and just then...
+
+A guy I had never seen before appeared on the footage, casually strolling past the empty cubicles.
+
+The man had his back to the camera, so I couldn't make out his face. He was huddled in a black jacket, had his hands on his pockets, and was heading towards Michael's desk.
+
+I instantly shivered. 
+
+As if on cue, the man turned around and stared at me through the surveillance camera lens. 
+
+He had a huge scar on his forehead. 
+
+He grinned at me, then the footage faded to black. 
+
+...
+
+I'm writing this from the office bathroom. I'm a grown man and yet I'm too fucking terrified to step out of here. Is that... thing going to come after me next?
+
+Guys, what am I supposed to do?
