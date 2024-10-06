@@ -1,6 +1,4 @@
-
-
-I haven’t slept much these past couple of weeks. Listen, I don’t really know where to begin with this whole ordeal. It’s just been weighing on my mind lately, and no matter what I do, I just can’t seem to get it out of my head. So, I thought I’d write it down. I’m in my second year at university, studying chemistry (rather boring, I know) and I have a friend studying astronomy, called Garth. He was staying late one night, he’d been ill for a week and needed to catch up on some coursework, I decided to accompany him because I honestly didn’t have anything better to do.
+I haven’t slept much these past couple of weeks. Listen, I don’t really know where to begin with this whole ordeal. It’s just been weighing on my mind lately, and no matter what I do, I just can’t seem to get it out of my head. So, I thought I’d write it down. I’m in my second year at university, studying chemistry (rather boring, I know) and I had a friend studying astronomy, called Garth. He was staying late one night, he’d been ill for a week and needed to catch up on some coursework, I decided to accompany him because I honestly didn’t have anything better to do.
 
 
 
@@ -32,7 +30,7 @@ It hasn’t stopped moving since I last looked. It’s big, it had to be if I wa
 
 
 
-My eyes are still fixed on the thing when it stops moving. It turns its head to look at me, at least that’s what I think it’s doing, it’s hard to make out all the details, but I know he’s looking at me. You know that feeling, when it feels like something is watching you, the moment its head stopped moving *that* feeling seemed to burrow itself deep into me.
+My eyes are still fixed on the thing when it stops moving. It turns its head to look at me, at least that’s what I think it’s doing, it’s hard to make out all the details, but I know it's looking at me. You know that feeling, when it feels like something is watching you, the moment its head stopped moving *that* feeling seemed to burrow itself deep into me.
 
 
 
@@ -52,4 +50,47 @@ I don’t want to be on my own with that telescope or that moon any longer than 
 
 
 
-I didn’t go back to that room for a couple of days, and when I did the telescope was no longer there. I didn’t ask around about it, and I honestly don’t intend to either. That was two weeks ago now, and it’s still got me shaken up and Garth still refuses to believe me. It’s gotten to the point that I don’t like walking around at night, especially when in view of the moon. Sometimes, I decide to chance it and look at the moon, and sometimes, just sometimes, I can feel it staring back at me.
+It's been two weeks since that night, and strange things have started happening. For a while now, virtually every time I looked at the moon, I could feel it looking right back at me, once again not at the earth, but at me specifically. And I’m positive that it knows that I know. I’ve also been having these weird dreams– well, dream to be specific. It’s the same one almost every night.
+
+
+
+I’m lying down in my bed, paralysed from the neck down, and that *thing* is in the room with me. It’s far too big to fit inside normally so it’s hunched over to what must be a painful degree, with its long grey fingers gripping the end of my bed like a vice. I can see it no clearer than when I first saw it all those weeks ago, its features are shrouded in a shadow that engulfs my room. The only actual notable features I can make out are the thin, wet hairs that pool on my legs, and the fetid odour that seems to emanate from them. Every time it’s there I feel the need to wretch as the putrid smell creeps towards me. Its ragged breathing is devoid of any rhythm, as if it's learning how to breathe for the very first time in its life, constantly having to remember to use its lungs on our oxygenated planet.
+
+
+
+And then I wake up.
+
+
+
+Though, in all honesty, I don't think I'm dreaming. There's been a few moments when I awaken from the prolonged state of sleep paralysis and find myself feeling that exact same sense of foreboding that I experience when I look at the moon. It's always far too dark for my brain to make out anything in my room, but sometimes, just sometimes, I can feel the disgusting sensation of its long, slick hair slithering away from my legs and out of my room. I could put this down to my brain still being in some sort of sleep state when I wake up, and that would make perfect sense, if not for the fact that every time it happens, my legs are soaking wet; not from sweat, or any other natrual fluids– no, this is far too oily to be anything *human*. It can’t be.
+
+  
+I get up and look, and just like every time before it, a dark trail of *something* leads directly from my bed, across my floor and out of my window. I shudder at the picture my brain conjures of how this thing would have to contort itself just to fit through my window.
+
+
+
+It’s like that almost every night, it’s gotten to the point that I dread going to sleep at night, and actively try and stay awake for as long as I can. It’s not a healthy lifestyle, but in all honesty, I prefer unhealthy to dealing with that thing.
+
+
+
+But something else happened. Something far worse happened than recurring nightmares, and it firmly planted the fact this thing was real in my mind. About a week ago Garth stopped showing up to class. He had been getting worse before then, a little slower to react, too tired to bite back whenever someone insulted him, eyes sunken and dreary. I didn’t understand what was up with him at first. I wish I never found out.
+
+
+
+Three days after he stopped showing up I went to his flat, just to check up on him. I raised my hand and knocked on the door, and waited. No reply. So I went to knock again, and that’s when it hit me. That stench. That foul, wretched stench. The stench of death. I was too scared to do anything, so I ran. I ran out of the university accomodation until I could run no longer. I didn’t know what to do.
+
+
+
+I ended up contacting the staff who run the housing asking to check in on him, hoping– *praying* that he was alright. But, sadly, I knew deep down what had happened.
+
+
+
+The paramedics had ruled Garth’s death a heart attack. He had passed away in his sleep, where he had been left for two days; no one bothered to complain about it because he’d been ill before, and his accomodation block was on the cheaper side, where different smells from different rooms would blend easily. I would often hear classmates go around, saying things like, “Well at least he died peacefully,” or “I think he would’ve been happy,” but I know. I know that whatever happened to him was not peaceful, it was not happy. I don't know what that thing could've done to stop his heart and I'm scared to find out.
+
+
+
+I haven’t slept in four days. I keep seeing things in the corner of my eye, and each day it's getting worse and worse. I don’t know how much longer I can go on, I’ve practically lost all energy and drive to keep going. Maybe I’ll end it on my own terms– but, I don’t think it’d let me, I’m sure it wouldn’t have let Garth.
+
+
+
+I know what’s going to happen. I’m not ready for it, I’ll never be ready for it. In all honesty, I just hope that it’s quick. I’m sorry for burdening you all, and I’m sorry for burdening my friend. Goodnight, everyone.
