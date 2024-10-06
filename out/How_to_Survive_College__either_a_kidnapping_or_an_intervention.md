@@ -183,3 +183,5 @@ My former boss let go of my hand.  I had to do this next part alone.
 I rose, careful not to look back at where the creature had gone, and stepped out into the hallway.
 
 Then I ran.  I ran hard and all around me I felt the building shake and a guttural, broken screech echoed down the corridor.  It was coming.  The ground trembled underneath my feet as it came, clawing its way forwards as it tried to catch up, but up ahead I saw the doors gaping open and the darkness beyond.  I ran as if my heart would burst, as if my lungs would collapse in my chest.  I ran, with the seed clutched to my chest, hot enough that it felt like it would sear through my shirt, and then I was through the doorway and underneath a gray sky.
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1fx7ezz/how_to_survive_college_a_story_about_the_rain/)
