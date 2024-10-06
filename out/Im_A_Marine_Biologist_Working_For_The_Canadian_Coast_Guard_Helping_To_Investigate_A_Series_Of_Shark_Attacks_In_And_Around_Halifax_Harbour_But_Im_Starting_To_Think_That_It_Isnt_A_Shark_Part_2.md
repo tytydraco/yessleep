@@ -1,6 +1,6 @@
 \[Part 1\](https://www.reddit.com/r/nosleep/comments/1evaapy/im\_a\_marine\_biologist\_working\_for\_the\_canadian/)
 
-\[Part 3\](https://www.reddit.com/r/nosleep/comments/1fnq0wv/im\_a\_marine\_biologist\_working\_for\_the\_canadian/)
+\[Part 3\](https://www.reddit.com/r/nosleep/comments/1fxp47e/im\_a\_marine\_biologist\_working\_for\_the\_canadian/)
 
 Apologies for taking a while to get back to everyone, I've been waiting patiently for our vessel's hotspot to be set up. Now, onto the update.
 

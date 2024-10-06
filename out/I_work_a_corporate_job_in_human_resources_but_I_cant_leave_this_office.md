@@ -124,6 +124,10 @@ I walked with a limp towards the door. Freedom at last.
 
 Except not, I was still in my office with the THANK YOU FOR YOUR ATTENTION! last slide of the last presentation.
 
+The cuts on my ankle still hurt. The blood was almost black now, congelead.
+
 Before I could come to terms with what had happened, I heard someone banging violently on the office door.
+
+I answered. The security guard was just checking in. I still am not sure what had happened, but I managed to go home immediately.
 
 It was 3:00 AM [again](https://www.reddit.com/r/PostMortem33/comments/13ehusx/nosleep_award_winning_stories/).
