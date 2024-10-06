@@ -181,4 +181,5 @@ My brother stood next to her body.
 
 “Almost there… brother,”
 
-I looked at him and then glanced at her still body on the floor. There was only one way to end this, one way to make right what we did. I slowly placed the gun in my mouth, for the first time I felt no fear, no panic, I felt cold, like my dead brother. I thought about my mother, I thought about all the decisions I made that led up to this, and then, with my eyes closed, I squeezed the trigger. 
+I looked at him and then glanced at her still body on the floor. There was only one way to end this, one way to make right what we did. 
+I was almost there, and I knew this was the only way to end this nightmare. 
