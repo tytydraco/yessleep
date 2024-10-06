@@ -64,7 +64,8 @@ And then I wake up.
 
 Though, in all honesty, I don't think I'm dreaming. There's been a few moments when I awaken from the prolonged state of sleep paralysis and find myself feeling that exact same sense of foreboding that I experience when I look at the moon. It's always far too dark for my brain to make out anything in my room, but sometimes, just sometimes, I can feel the disgusting sensation of its long, slick hair slithering away from my legs and out of my room. I could put this down to my brain still being in some sort of sleep state when I wake up, and that would make perfect sense, if not for the fact that every time it happens, my legs are soaking wet; not from sweat, or any other natrual fluids– no, this is far too oily to be anything *human*. It can’t be.
 
-  
+
+
 I get up and look, and just like every time before it, a dark trail of *something* leads directly from my bed, across my floor and out of my window. I shudder at the picture my brain conjures of how this thing would have to contort itself just to fit through my window.
 
 
@@ -77,7 +78,7 @@ But something else happened. Something far worse happened than recurring nightma
 
 
 
-Three days after he stopped showing up I went to his flat, just to check up on him. I raised my hand and knocked on the door, and waited. No reply. So I went to knock again, and that’s when it hit me. That stench. That foul, wretched stench. The stench of death. I was too scared to do anything, so I ran. I ran out of the university accomodation until I could run no longer. I didn’t know what to do.
+Three days after he stopped showing up I went to his flat, just to check up on him. I raised my hand and knocked on the door, and waited. No reply. So I went to knock again, and that’s when it hit me. That stench. That foul, wretched stench. The stench of death. I was too scared to do anything, so I ran. I ran out of the university accommodation until I could run no longer. I didn’t know what to do.
 
 
 
