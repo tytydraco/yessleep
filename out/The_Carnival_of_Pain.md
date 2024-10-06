@@ -92,7 +92,9 @@ Please, if someone is listening, I want to leave. You got me, okay? I admit defe
 
 That thing is still floating out there, right over the pathway between the Ferris wheel and the bumper cars. I don’t know how you managed it, but jesus, I can’t look at all those bodies hanging on the hooks, dripping blood like that.
 
-And the thing carrying the hook, it-it *wants* me. I just know it wants me, and it’s going to gut me and put me up on a hook too, oh god please let me go.I am not going to do any more rounds. I will stay here until someone comes for me.
+And the thing carrying the hook, it-it *wants* me. I just know it wants me, and it’s going to gut me and put me up on a hook too, oh god please let me go.
+
+I am not going to do any more rounds. I will stay here until someone comes for me.
 
 *03:05*
 
