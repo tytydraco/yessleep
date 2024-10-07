@@ -1,6 +1,6 @@
 \[Part 2\](https://www.reddit.com/r/nosleep/comments/1f0cdm9/im\_a\_marine\_biologist\_working\_for\_the\_canadian/)
 
-\[Part 3\](https://www.reddit.com/r/nosleep/comments/1fnq0wv/im\_a\_marine\_biologist\_working\_for\_the\_canadian/)
+\[Part 3\](https://www.reddit.com/r/nosleep/comments/1fxp47e/im\_a\_marine\_biologist\_working\_for\_the\_canadian/)
 
 I was vacationing with my family out in Vancouver when I got the call a week ago. I had been sitting on our hotel room's balcony, overlooking the city, when I suddenly felt my phone buzz.
 
