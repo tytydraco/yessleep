@@ -44,7 +44,7 @@ Time ticked away, and I felt more uncomfortable with being there, since the cler
 
 A clerk never showed up and I was getting antsy. Was my mom looking for me? How long was it going to rain like this? Would I be able to find my way home if mom wasn't looking for me? Would I get into deep trouble for choosing to walk the rest of the way instead of simply waiting an hour for my bus? Maybe I should go back and wait for the next one, after all it wasn't too late to fix my mistake. 
 
-But first, I wanted to use the bathroom, so I stood up from the walking chair and dropped my backpack on the floor. That's when I heard it, I heard what sounded like little footsteps padding over the floor somewhere in the furthest aisle. In shock, I recoiled and stepped on the doll I’d taken off the chair. I fell on top of it and it broke, a crack going through its otherwise perfect face. 
+But first, I wanted to use the bathroom, so I stood up from the rocking chair and dropped my backpack on the floor. That's when I heard it, I heard what sounded like little footsteps padding over the floor somewhere in the furthest aisle. In shock, I recoiled and stepped on the doll I’d taken off the chair. I fell on top of it and it broke, a crack going through its otherwise perfect face. 
 
 “Oh no!” I gasped and kneeled down to inspect it. I was absolutely horrified, the doll looked expensive and there was no way my mother would be able to pay for it. Thinking fast, I picked it up and hid it behind a big dollhouse in that corner. Then, I investigated the noise I heard earlier. 
 
