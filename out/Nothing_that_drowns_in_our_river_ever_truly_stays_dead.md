@@ -76,13 +76,13 @@ It reminded me of joining the theater group as a kid, standing on a stage for th
 
 But even that didn’t terrify me quite as much as the prospect of landing in one of those caves. Even as the undercurrent bashed me savagely against rocks, and my lungs cried for air, my only focus was avoiding them. I swear I could see bloated arms and grasping hands, reaching out from the dark of each cave, grasping for me as I passed by. As if each occupant was lonely, desperate for a companion in their eternal resting places.
 
-Suddenly, the current bashed my head against a rock, and from then everything was abstract and fuzzy. I could only muster a single coherent thought. *Please, not here, it went. Don’t let me die here.* Somehow I knew that if I died beneath these waters, my soul would never break the surface.
+Suddenly, the current bashed my head against a rock, and from then everything was abstract and fuzzy. I could only muster a single coherent thought. *Please, not here,* it went. *Don’t let me die here.* Somehow I knew that if I died beneath these waters, my soul would never break the surface.
 
 As if to answer my prayer, a pair of arms settled around me. Not the cold, grasping claws reaching from the caves, but something warm and comfortable, embracing me, cradling me close in a way that told me everything would be okay.
 
 Again, the next few seconds were a blur. I have no explanation for how I ended up back on the shore, shivering from the freezing waters and hacking, retching, emptying the water from my lungs upon the mud. All I know is, when I looked up, a bolt of lightning briefly illuminated the stone memorial looming above me, upon which read: ɪɴ ʟᴏᴠɪɴɢ ᴍᴇᴍᴏʀʏ ᴏғ ᴊᴇssɪᴄᴀ ᴡʜɪᴛᴀᴋᴇʀ.
 
-I know everything about the mythology of the Devil’s gutter, because I was part of it. My family is one of the ones the schoolkids whisper about, the ones they make up wild stories and creepy theories about. *Terminal cancer, they’d say around campfires, that was so horribly painful that not even the morphine could do anything for her. She’d been a painter, you know, always drawing portraits of the gutter. She was the only person who thought it was beautiful, not evil. So the legend goes, she begged her husband, ‘please, take me to the river. Let me become part of it. I don’t want to hurt anymore.’*
+I know everything about the mythology of the Devil’s gutter, because I was part of it. My family is one of the ones the schoolkids whisper about, the ones they make up wild stories and creepy theories about. *Terminal cancer,* they’d say around campfires, *that was so horribly painful that not even the morphine could do anything for her. She’d been a painter, you know, always drawing portraits of the gutter. She was the only person who thought it was beautiful, not evil. So the legend goes, she begged her husband, ‘please, take me to the river. Let me become part of it. I don’t want to hurt anymore.’*
 
 They say that they did it on their anniversary. New Year’s day.
 
