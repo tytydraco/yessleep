@@ -78,4 +78,4 @@ All I could do was pray.
 
 And wait.
 
-The sirens had wailed in the distance, their wails rebounding against silent streets. All i could do is pray in god we trust.
+The sirens had wailed in the distance, their wails rebounding against silent streets. All i could do is pray.
