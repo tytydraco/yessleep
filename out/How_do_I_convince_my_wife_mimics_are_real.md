@@ -1,6 +1,6 @@
 I have a serious problem and I'm hoping y'all can help me.
 
-I'll start by saying I've been reading nosleeps for a long time, the otherworldly and strange have always been something that peaked my interest. Let's just say I love spooky shit. My wife on the other hand does not, which is fine. She keeps me grounded, I keep things interesting, I talk, maybe even a little too much, she listens, albeit skeptically, and round and round we go.
+I'll start by saying I've been reading nosleeps for a long time, the otherworldly and strange have always been something that piqued my interest. Let's just say I love spooky shit. My wife on the other hand does not, which is fine. She keeps me grounded, I keep things interesting, I talk, maybe even a little too much, she listens, albeit skeptically, and round and round we go.
 
 But now I think something strange is happening and I can't really trust her to take me seriously. That is why Im hoping y'all will tell me if I'm letting my imagination run wild or if there's a serious problem here.
 
@@ -26,7 +26,7 @@ Last night we were asleep in our bed and I heard a really strange thud come from
 
 Later I heard another thud and I was still sleepy. As I was muttering something about her being lucky she's a cute kitty to myself I stretched my legs and felt my foot press up against a warm furry lump.
 
-Oh shit
+*Oh shit*
 
 I immediately sat up and grabbed my cell phone to turn on the bedroom lights. After a few frantic seconds of opening apps and cursing myself for not buying a smart switch the lights turned on. I saw that Midnight was in fact there curled up squinting angrily at the unexpected illumination.
 
@@ -34,7 +34,7 @@ My heart stopped, something else was making the noise.
 
 Softly, I shook my wife awake and held my finger to my lips then whispered "stay here there's something downstairs."
 
-Thud
+*Thud*
 
 She kept quiet, staring at me with wide worried eyes but shook her head yes.
 
@@ -49,7 +49,7 @@ I turned the corner and nearly let out a yell as I saw midnight staring up at me
 
 "Good point"
 
-Wait what 
+*Wait what*
 
 I froze mid pet
 
@@ -87,7 +87,7 @@ As I said this I heard the scraping of claws start at the bottom of the bathroom
 
 "Then how..."
 
-Bam
+*Bam*
 
 The door rumbled as a small creature jumped against it.
 
@@ -143,7 +143,7 @@ That's why this morning I grabbed the first cat I could and combed through the f
 
 I found the scar and the green tattoo, it looked just like that day at the vets office.
 
-This must be little midnight I thought. 
+*This must be little midnight* I thought. 
 
 My palms got sweaty as I wrestled the other one and held her tight.
 
