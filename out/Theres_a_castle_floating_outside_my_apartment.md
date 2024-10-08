@@ -36,9 +36,7 @@ One of the figures stepped forward, inclining its head slightly. When it spoke, 
 
 Clicks and whistles.
 
-The other dolphin figure suddenly clicked and whistled.
-
-The main dolphin that was just speaking to me nodded, then used his hand to change a setting on his spacesuit.
+The other dolphin figure suddenly clicked and whistled. The main dolphin that was just speaking to me nodded, then used his hand to change a setting on his spacesuit.
 
 It spoke again, but this time I could understand him. "By royal decree, you are hereby invited to dine with His Majesty tomorrow night, to discuss your opinion on Earth before its destruction."
 
