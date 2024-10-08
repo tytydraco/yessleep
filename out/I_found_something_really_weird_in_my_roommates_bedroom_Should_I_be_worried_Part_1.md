@@ -38,7 +38,7 @@ The next day though, it was Sunday and time for homework. I ended up getting con
 
 It was some kind of lab setup, full of tubes and bottles and with weird liquids and powders inside. Some of it looked a little too piss-colored for my liking, but then a worse thought occurred to me.
 
-“Dude, what the hell is that?” I demanded as Aldous turned back towards me. “You better not be cooking meth or something in here. My landlord *and* my parents would kill me if I had let a drug dealer live illegally in my apartment for 2 months. 
+“Dude, what the hell is that?” I demanded as Aldous turned back towards me. “You better not be cooking meth or something in here. My landlord *and* my parents would kill me if I had let a drug dealer live illegally in my apartment for over 2 months. 
 
 Aldous gave me a confused look, his head tilted to one side slightly. “Does this look like a meth lab to you?”
 
