@@ -44,7 +44,7 @@ Tom was done after a few minutes, I was annoyed at how long he took but I didn�
 We sat in silence until the mass finally finished, and we rang the bells 3 times. The sun was already rising by then and we weren’t that scared to go back down anymore despite the fact that we scrambled our way out the tower.
 
 Our day continued as usual, we went our separate ways and we never spoke about the incident again. Until we were notified of a memorial service by the church 3 days later— I had just gotten back from school and my mom told me to get ready because we were gonna sponsor the mass, I grabbed my albs and quickly changed into them. 
-The church was silent, It was a memorial service for the nun that went missing 5 days ago. She was found by one of the ministers who was looking for an extra ciborium—she was as found with a rope tied around her neck. They said that she had been dead for a week when she was found in the basement.
+The church was silent, It was a memorial service for the nun that went missing 5 days ago. She was found by one of the ministers who was looking for an extra ciborium—she was found with a rope tied around her neck. They said that she had been dead for a week when she was found in the basement.
 
 My eyes widened. “The basement?” I felt my stomach drop, my eyes darting all over the place frantically looking for Tom in the crowd. Turns out he came in late because he had Spanish class, we were both pulled outside as the deceased’s loved ones said their last words and reminisced their last moments with her. The priest, along with the abbess and the minister who found her
 
