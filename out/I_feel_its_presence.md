@@ -22,3 +22,6 @@ I’m currently at my dad’s house in Clifty and I could have sworn I heard it�
 I don’t know what I’m supposed to do. Please I need answers on what this thing might be.
 
 Edit: Any ideas on what I can do? My family and I are gun owners, but I don’t know what to tell my father, “a skinwalker wants me dead, let’s kill it.” That’s not gonna work. Should I just shoot it on sight or what?
+
+
+Link for vid [vid link](https://www.reddit.com/r/skinwalkers/s/wppfyBLLRp)
