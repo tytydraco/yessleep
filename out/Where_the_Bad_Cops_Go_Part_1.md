@@ -1,6 +1,4 @@
-\[1\] - [\[2\]](https://www.reddit.com/r/nosleep/comments/1fwh0lo/where_the_bad_cops_go_part_2/)
-
-
+\[1\] - [\[2\]](https://www.reddit.com/r/nosleep/comments/1fwh0lo/where_the_bad_cops_go_part_2/) - [\[3\]](https://www.reddit.com/r/nosleep/comments/1g1qlqk/where_the_bad_cops_go_part_3/)
 
 I write this as a reminder. To put all that I’ve seen and heard into words. For far too long, I’ve looked back on these past few years as something impossible; something that happened to someone else. But that’s far from the truth, even if the truth and I have always had a tentative relationship at the best of times.
 

@@ -328,6 +328,6 @@ As I sat there, staring out the window, I felt a strange tingling in my hand. I 
 
 I clenched my fist, trying to ignore the chill creeping up my spine. I had made it onto the plane. I was leaving Shanghai. But I knew, deep down, that I hadn’t truly escaped him.
 
-I could still feel his presence. [Watching](https://www.youtube.com/@herscreams). Waiting.
+I could still feel his presence. [Watching](https://www.reddit.com/u/HerScreams/s/sqHw64rZiJ). Waiting.
 
  

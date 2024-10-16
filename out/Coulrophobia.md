@@ -20,13 +20,13 @@ Even though the clown's appearance alone was frightening enough to ruin my day, 
 
 At this point, I was completely frozen in place, my friend tapped me on the shoulder and said "Let's just go and grab the drinks, you don't have to look at that weirdo."
 
-I somehow powered through my panic attack and said "Sure, but I'm gonna stare at the bastard, can't be a coward forever, it's about damn time I try doing something about my problem."
+I somehow powered through my panic attack and said "Sure, but I'm gonna stare at the bastard, can't be a coward forever, it's about damn time I try doing something about it."
 
 My friend gave me a reassuring look and replied with a simple "Alright."
 
 Another even more potent panic attack hit me as soon as I took only two steps towards the clown, I started crying, embarrassed, I barely mustered the strength to tell my friend that I'm going back to the apartment.
 
-I speed walked back to the house, I collapsed on the couch in tears as soon as I entered, Bob rushed to cheer me up by jumping on top of my back and purring.
+I speed walked back to the house, I immediately collapsed on the couch in tears as soon as I entered, Bob rushed to cheer me up by jumping on top of my back and purring.
 
 It didn't take more than thirty minutes for my friend to return, he was proudly carrying two bags full of drinks and snacks like they were trophies.
 

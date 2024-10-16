@@ -1,99 +1,51 @@
-[Part 1.](https://www.reddit.com/r/nosleep/comments/1fnd4pf/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)   [Part 2.](https://www.reddit.com/r/nosleep/comments/1fsmghx/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+All I knew about the next emergency was it was called in after the fact and it was some sort of assault that left a woman almost dead in a bathroom at the rest stop near exit 112 near the interstate. The call ended earlier than usual and I hoped this was not going to be a recurring thing, I barely had time to get that information. I was going to have to stop some sort of attack around the woman's rest room, waiting however long it takes for the would-be attacker and victim to show.
 
-All I knew about the next emergency was it was called in after the fact and it was some sort of assault that left a woman almost dead in a bathroom at the rest stop near exit 112 near the interstate. The call ended earlier than usual and I hoped this was not going to be a recurring thing, I barely had time to get that information. I was going to have to stop some sort of attack around the woman's rest room, waiting however long it takes for the would-be attacker and victim to show.  
+Easy right?
 
+With more time to prepare for this one, I knew I would need to get some supplies. I went to a nearby Walmart and picked up some stakeout equipment. I bought some binoculars and some rope and zip ties in case I could catch the attacker and restrain him. I wanted to try and get a shotgun or something but carrying that around near a public rest stop would draw too much attention so I settled for a short range taser and a hammer for a backup weapon. I had no expectation of what would happen but if this person was violent as the call implied, I would need to be prepared for a confrontation.
 
+With my supplies in hand, I reviewed my plan. I had received the call around four in the afternoon so I knew I had to get there well before then. As for what to do when I got there, I did not know, too few details on what happened specifically. I would have to get there early and wing it and hopefully save that woman. Perhaps just being there might act as a deterrent.
 
-Easy right? 
+I spent the rest of the night trying to research the victims and see if there was any connection between them. I had no idea if there was, but something about those odd texts from M made me think they might be less random than I first thought. I created a makeshift conspiracy board, complete with different colored threads to link people and things together. Despite how crazy I felt when looking at the web of random people and events, I shrugged and set about the task of making sense of as much as I could while I had time.
 
+I looked up any news from the car accident today, I checked the closest hospital and found out that a cyclist was brought in from a reported hit and run by the name of Calvin Thomas. He had arrived by ambulance but he did not survive. I felt the weight of guilt again, I know I was not at fault, but I had known it would happen and my efforts to stop anyone from getting hurt had failed. I tried to ignore the nagging feeling of despair and focus on my research. I considered the name, fairly common last name. Though with my mind searching for connections I thought that maybe, he might be related to the woman who called about tomorrows accident. She said her name was Stacy Thomas. It could be true, but I was not sure. I might be making connections where there are none to try and make sense of it all.
 
+I could not find out much about Kendra Wallace, from the first call. The news had covered the violent stabbing and carjacking of her boyfriend one Mr. Michael Duncan. The only thing I found about him besides the news of the crime itself, was a staff public disclosure request for an odd research firm known as “Hope for the future”. His name showed up as an employee of the firm, but I was not able to glean many details about what sort of work they did or anything else.
 
-With more time to prepare for this one, I knew I would need to get some supplies. I went to a nearby Walmart and picked up some stakeout equipment. I bought some binoculars and some rope and zip ties in case I could catch the attacker and restrain him. I wanted to try and get a shotgun or something but carrying that around near a public rest stop would draw too much attention so I settled for a short range taser and a hammer for a backup weapon. I had no expectation of what would happen but if this person was violent as the call implied, I would need to be prepared for a confrontation. 
+Whoever this M was, he clearly had some kind of control over how and when these things happened. Otherwise, how would he know about them as soon as they occurred? How the hell he could send me those text messages right after they happened, on this time manipulating phone? Maybe he knew about them because he was the one causing them in the first place?  I never got to see the man in black who carjacked that couple and stabbed the man from the first call. He could still be driving the car he stole, the same car he was driving when he killed that cyclist in place of the family. I considered he may even be parked at the rest stop tomorrow somewhere, waiting for another victim to come by. Based on the taunting messages, he would also be waiting for me and whatever it was he expected me to do.
 
+It seemed like it was some sick game and he was using some impossible time manipulation skill to predict the future as a means of messing with or testing people. Those messages he sends, they all read like this is some sort of test that he is giving me and that I have to meet some expected outcome that only he knows about. I felt like I was walking into a trap or some unwinnable situation, yet I knew if I did nothing then the tragedies would really happen.
 
+I slept poorly that night and had dreams of failing to rescue the people who had called for help. I saw the faces of the people I had already failed, the men who died already because I couldn't find a way to save them.
 
-With my supplies in hand, I reviewed my plan. I had received the call around four in the afternoon so I knew I had to get there well before then. As for what to do when I got there, I did not know, too few details on what happened specifically. I would have to get there early and wing it and hopefully save that woman. Perhaps just being there might act as a deterrent. 
+I ended up oversleeping and it was nearly ten in the morning. I had to get going, I had no idea how long the woman was stuck in there before she was discovered. I grabbed my bag of supplies and started on my way to the highway and then to the rest stop by exit 112.
 
+I arrived early in the morning and parked near the men's restroom. I was close enough to the woman's to scout any movement in or out of it with my binoculars. Despite my good intentions I knew how it might look, so I also picked up a newspaper as well, not to read it, but more as a cover in case someone looked too closely and saw me sitting in a car with binoculars trained on the woman's restroom. I did not want to attract notice and throw the whole plan off; I had no idea what might happen if I scared the attacker away by some incidental force. Maybe he would attack someone else? Maybe it would be even worse than just one person? I didn't know but I would not risk it.
 
+A few hours past and it was noon already. The rest stop was not very busy and few cars actually stopped in the hours I had been waiting. I figured that was a good thing since it would be easier to notice anything amiss. I kept my broken phone close at hand in case I received another emergency call while waiting like before.
 
-I spent the rest of the night trying to research the victims and see if there was any connection between them. I had no idea if there was, but something about those odd texts from M made me think they might be less random than I first thought. I created a makeshift conspiracy board, complete with different colored threads to link people and things together. Despite how crazy I felt when looking at the web of random people and events, I shrugged and set about the task of making sense of as much as I could while I had time. 
+At around three o’clock I saw a white sedan drive up and park. A well dressed and fairly attractive woman got out and went in by herself. I was on high alert as I knew it was within an hour of the calls time. My paranoia was vindicated when a moment later I looked and saw a tall figure dressed in dark clothes sneaking quickly to the entrance. He put down a sign that said “Out of order” and appeared to enter the restroom.
 
+I nearly tripped over my own feet scrambling to get out of the car and gather up my gear. I had the taser in hand and the hammer in my pocket. I rushed to the restroom and did not hear anything inside yet. I knew I did not have time to think it over and I rushed headlong through the door. I looked left and right and did not see the figure in black anywhere. As I stood there in confusion, I saw a stall door open and the woman step out. Leaving her stall and seeing me standing there holding a taser looking all around the woman's restroom she very quickly loosed an understandable scream. I realized immediately how it looked and I held up my hands and offered a prompt,
 
+“Sorry, sorry, sorry I am so sorry I thought someone came in here and I was trying to stop them myself. I promise I am not here for you, or rather not here to do anything bad at least, I mean.” I was cut off from my apologetic rambling by a stiff shot to the back of my head. My eyes darkened but I managed to retain consciousness as I fumbled on the ground, dropping the taser and hearing it slid away from where I lay prone on the floor.
 
-I looked up any news from the car accident today, I checked the closest hospital and found out that a cyclist was brought in from a reported hit and run by the name of Calvin Thomas. He had arrived by ambulance but he did not survive. I felt the weight of guilt again, I know I was not at fault, but I had known it would happen and my efforts to stop anyone from getting hurt had failed. I tried to ignore the nagging feeling of despair and focus on my research. I considered the name, fairly common last name. Though with my mind searching for connections I thought that maybe, he might be related to the woman who called about tomorrows accident. She said her name was Stacy Thomas. It could be true, but I was not sure. I might be making connections where there are none to try and make sense of it all. 
+The woman screamed again as I heard heavy footsteps and looked up to see a large man blocking the exit. I thought I heard an amused chuckle as he kicked me in the ribs so hard I thought I would vomit them up. As I writhed on the ground, he took a step toward the woman and she fell back trying to retain her composure but clearly confused and terrified of what she was seeing. I saw the feet of my attacker walk past me; he did not speak but I knew what would happen if I didn't do anything. As he stomped forward menacingly toward the woman, I mustered up enough strength to grab the hammer from my pocket, push myself up enough to a crouched position and swing hard for his legs. I was rewarded with a satisfying crack and I made contact with his ankle and I hoped I had broken it. There was a muffled cry of pain that almost sounded like a scream being put through a static filter and run at ½ speed. The man in black crumpled to the floor to join me. The woman looked like she was going to try and intercede on my behalf but the man produced a large knife and when I saw the gleam of the blade, I shouted to her to,
 
+“Run!” She used the opportunity and leaped over us and out of there.
 
+I heard frantic cries for 911 outside and then distressed screaming about how they were not answering. She was clearly trying to call for help but was unable to get a call out. I saw the man turn to face me and he wore a black face mask as well as clothes. The mask was disturbing, it had no features just a plain blank face mask but it seemed to have a weird sort of ambient static charge like it could send out a jolt at any moment and the weird buzzing sound when he spoke made it more unsettling. I could not see any of his real features underneath but I heard an angry and pained grunt and he raised the knife he had and came after me. I threw myself back at the wall avoiding a stab directed at my heart. I had to disarm him so I swung the hammer at his hand and managed to knock the blade free. In my moment of tactical satisfaction, I did not see his other hand balled into a fist and he smashed me across the face with a brutal hook that left my ears ringing.
 
-I could not find out much about Kendra Wallace, from the first call. The news had covered the violent stabbing and carjacking of her boyfriend one Mr. Michael Duncan. The only thing I found about him besides the news of the crime itself, was a staff public disclosure request for an odd research firm known as “Hope for the future”. His name showed up as an employee of the firm, but I was not able to glean many details about what sort of work they did or anything else. 
+I felt blood coming out of my nose and he struck my several more times in the face. I tried to cover up and he stomped my prone form.
 
+Strange static filled my head and he bent down over me and he proceeded to throttle me. I thought I was going to die but I heard another strange grunt of amusement and he suddenly stood up, somehow on his broken foot and left. Before he was gone, he turned back and spoke in a manner I could actually understand despite the odd static,
 
+“Are you going to check your messages? It’s for you.”
 
-Whoever this M was, he clearly had some kind of control over how and when these things happened. Otherwise, how would he know about them as soon as they occurred? How the hell he could send me those text messages right after they happened, on this time manipulating phone? Maybe he knew about them because he was the one causing them in the first place?  I never got to see the man in black who carjacked that couple and stabbed the man from the first call. He could still be driving the car he stole, the same car he was driving when he killed that cyclist in place of the family. I considered he may even be parked at the rest stop tomorrow somewhere, waiting for another victim to come by. Based on the taunting messages, he would also be waiting for me and whatever it was he expected me to do. 
+I gasped for breath and did not know how I was still alive or why he left. Then I saw the phone had a missed notification. It read,
 
+“Play stupid games, win stupid prizes. You saved an innocent stranger from a beating and took one yourself. Admirable and stupid. Shouldn't say too much, but consider who you are really saving and why? Have to go now, you really should answer your phone someone's calling and it’s rude not to pick up –M"
 
+I sat alone on the restroom floor bloodied and confused as the message vanished and the phone began to ring. I wiped the blood from my nose and answered the call.
 
-It seemed like it was some sick game and he was using some impossible time manipulation skill to predict the future as a means of messing with or testing people. Those messages he sends, they all read like this is some sort of test that he is giving me and that I have to meet some expected outcome that only he knows about. I felt like I was walking into a trap or some unwinnable situation, yet I knew if I did nothing then the tragedies would really happen.  
-
-
-
-I slept poorly that night and had dreams of failing to rescue the people who had called for help. I saw the faces of the people I had already failed, the men who died already because I couldn't find a way to save them.  
-
-
-
-I ended up oversleeping and it was nearly ten in the morning. I had to get going, I had no idea how long the woman was stuck in there before she was discovered. I grabbed my bag of supplies and started on my way to the highway and then to the rest stop by exit 112. 
-
-
-
-I arrived early in the morning and parked near the men's restroom. I was close enough to the woman's to scout any movement in or out of it with my binoculars. Despite my good intentions I knew how it might look, so I also picked up a newspaper as well, not to read it, but more as a cover in case someone looked too closely and saw me sitting in a car with binoculars trained on the woman's restroom. I did not want to attract notice and throw the whole plan off; I had no idea what might happen if I scared the attacker away by some incidental force. Maybe he would attack someone else? Maybe it would be even worse than just one person? I didn't know but I would not risk it. 
-
-
-
-A few hours past and it was noon already. The rest stop was not very busy and few cars actually stopped in the hours I had been waiting. I figured that was a good thing since it would be easier to notice anything amiss. I kept my broken phone close at hand in case I received another emergency call while waiting like before.  
-
-
-
-At around three o’clock I saw a white sedan drive up and park. A well dressed and fairly attractive woman got out and went in by herself. I was on high alert as I knew it was within an hour of the calls time. My paranoia was vindicated when a moment later I looked and saw a tall figure dressed in dark clothes sneaking quickly to the entrance. He put down a sign that said “Out of order” and appeared to enter the restroom. 
-
-
-
-I nearly tripped over my own feet scrambling to get out of the car and gather up my gear. I had the taser in hand and the hammer in my pocket. I rushed to the restroom and did not hear anything inside yet. I knew I did not have time to think it over and I rushed headlong through the door. I looked left and right and did not see the figure in black anywhere. As I stood there in confusion, I saw a stall door open and the woman step out. Leaving her stall and seeing me standing there holding a taser looking all around the woman's restroom she very quickly loosed an understandable scream. I realized immediately how it looked and I held up my hands and offered a prompt, 
-
-
-
-“Sorry, sorry, sorry I am so sorry I thought someone came in here and I was trying to stop them myself. I promise I am not here for you, or rather not here to do anything bad at least, I mean.” I was cut off from my apologetic rambling by a stiff shot to the back of my head. My eyes darkened but I managed to retain consciousness as I fumbled on the ground, dropping the taser and hearing it slid away from where I lay prone on the floor. 
-
-
-
-The woman screamed again as I heard heavy footsteps and looked up to see a large man blocking the exit. I thought I heard an amused chuckle as he kicked me in the ribs so hard I thought I would vomit them up. As I writhed on the ground, he took a step toward the woman and she fell back trying to retain her composure but clearly confused and terrified of what she was seeing. I saw the feet of my attacker walk past me; he did not speak but I knew what would happen if I didn't do anything. As he stomped forward menacingly toward the woman, I mustered up enough strength to grab the hammer from my pocket, push myself up enough to a crouched position and swing hard for his legs. I was rewarded with a satisfying crack and I made contact with his ankle and I hoped I had broken it. There was a muffled cry of pain that almost sounded like a scream being put through a static filter and run at ½ speed. The man in black crumpled to the floor to join me. The woman looked like she was going to try and intercede on my behalf but the man produced a large knife and when I saw the gleam of the blade, I shouted to her to, 
-
-
-
-“Run!” She used the opportunity and leaped over us and out of there.  
-
-
-
-I heard frantic cries for 911 outside and then distressed screaming about how they were not answering. She was clearly trying to call for help but was unable to get a call out. I saw the man turn to face me and he wore a black face mask as well as clothes. The mask was disturbing, it had no features just a plain blank face mask but it seemed to have a weird sort of ambient static charge like it could send out a jolt at any moment and the weird buzzing sound when he spoke made it more unsettling. I could not see any of his real features underneath but I heard an angry and pained grunt and he raised the knife he had and came after me. I threw myself back at the wall avoiding a stab directed at my heart. I had to disarm him so I swung the hammer at his hand and managed to knock the blade free. In my moment of tactical satisfaction, I did not see his other hand balled into a fist and he smashed me across the face with a brutal hook that left my ears ringing. 
-
-
-
-I felt blood coming out of my nose and he struck my several more times in the face. I tried to cover up and he stomped my prone form. 
-
-
-
-Strange static filled my head and he bent down over me and he proceeded to throttle me. I thought I was going to die but I heard another strange grunt of amusement and he suddenly stood up, somehow on his broken foot and left. Before he was gone, he turned back and spoke in a manner I could actually understand despite the odd static, 
-
-
-
-“Are you going to check your messages? It’s for you.” 
-
-
-
-I gasped for breath and did not know how I was still alive or why he left. Then I saw the phone had a missed notification. It read, 
-
-
-
-“Play stupid games, win stupid prizes. You saved an innocent stranger from a beating and took one yourself. Admirable and stupid. Shouldn't say too much, but consider who you are really saving and why? Have to go now, you really should answer your phone someone's calling and it’s rude not to pick up –M" 
-
-
-
-I sat alone on the restroom floor bloodied and confused as the message vanished and the phone began to ring. I wiped the blood from my nose and answered the call. 
+[Part 1.](https://www.reddit.com/r/nosleep/comments/1fnd4pf/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)   [Part 2.](https://www.reddit.com/r/nosleep/comments/1fsmghx/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  [Part 4.](https://www.reddit.com/r/nosleep/comments/1g331eu/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

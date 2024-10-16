@@ -228,4 +228,4 @@ They moved swiftly, stepping inside. Within moments, Tom was in handcuffs, his c
 
 How could I have been so blind? He had been right there, pretending to care, pulling the strings the entire time.
 
-As I sat in my apartment, alone and shaken, I realized how close I had come to losing everything . Not just my life, but my sense of trust. I thought I had known who the real danger was, but the truth had been right in front of me the whole time, hidden behind a [neighbor’s smile](https://www.youtube.com/watch?v=KmeRkJGurY8).
+As I sat in my apartment, alone and shaken, I realized how close I had come to losing everything . Not just my life, but my sense of trust. I thought I had known who the real danger was, but the truth had been right in front of me the whole time, hidden behind a [neighbor’s smile](https://www.reddit.com/u/HerScreams/s/sqHw64rZiJ).

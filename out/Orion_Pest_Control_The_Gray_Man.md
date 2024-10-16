@@ -358,4 +358,6 @@ I may not know where I stand with Iolo, but at least now, we have a Hunter’s a
 
 Now, if yinz will excuse me, I have to go get a Halloween costume. 
 
+Update: Our [Samhain preparations. ](https://www.reddit.com/r/nosleep/s/oakeDXJFDf)
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv) 

@@ -228,4 +228,4 @@ The outside world lay just beyond, a cold, indifferent freedom waiting for me. B
 
 I turned back, my gaze lingering on the dark, cursed corridors of the hospital. I had escaped, yes , but I had left more than flesh behind. Something deeper, something vital, had been torn from me in that place.
 
-And I knew, with a terrible certainty, that it was something I would never [get back](https://youtu.be/C7P-xXtygdI?si=8_zChy5N3mC2ruPQ).
+And I knew, with a terrible certainty, that it was something I would never [get back](https://www.reddit.com/u/HerScreams/s/sqHw64rZiJ).

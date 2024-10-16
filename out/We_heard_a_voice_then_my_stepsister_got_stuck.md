@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1g19xyt/we_heard_a_voice_then_my_stepsister_got_stuck/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 My stepdad, Carl, hates me. There’s just no other way to put it.
 
 “Matt, if you don’t like it, go and live with your dad!” Carl would yell, squinting at me through his wire-rimmed glasses, arms folded.

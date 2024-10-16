@@ -38,8 +38,6 @@ Whether he was cuckoo or not, this boy was proving to be the most interesting pe
 
 “My name’s Maria,” I said. And there I stayed.
 
-
-
 My parents were more interested in dragging out their divorce proceedings than coming back for their own kid, so my temporary stay with my grandparents became permanent. I never quite felt like I belonged anywhere. I never adjusted to leaving the city for a small town. I felt restless, like everything around me was slow and dull and hazy. I was a half-Mexican girl living in a mostly white town with my white grandparents. I was “foreign” enough to elicit stares from the locals, but too American to know how to speak Spanish. I was able to make a few friends, eventually. But George and I, always the odd kids out, became the closest.
 
 I learned pretty quickly that George spent most of his time alone. His parents were social climbers, eager to pretend their weirdo son didn’t exist. Teachers didn’t like him much- he was smart, but his grades were erratic. And he never fit in with the other kids. He was too cheerful for the goths, too quiet for the theater kids, too technologically inept for the geeks and nerds.
@@ -62,8 +60,6 @@ Shortly after that I noticed the crows following *me* around. Not nearly as many
 
 It was a little unnerving, being tailed by little black birds everywhere I went, but I trusted George. If he thought being followed was a good thing, then he was probably right.
 
-
-
 There’s only one event, from before things got so messed up, that stands out in my mind. It was right after I’d gotten my driver’s license and inherited my Grandma’s ancient blue sedan. I was driving into town when I saw George. Now, it wasn’t unusual to see him walking along local roads. But this time, he was standing along the highway, in that thin stretch of grass between the forest and the asphalt, and he was staring at the ground. I pulled over and stepped out of my car to make sure he was okay. 
 
 He didn’t even look up. “Hi, Maria,” he said blandly, “You’re just in time for the feast.”
@@ -82,8 +78,6 @@ I nodded blankly, backed into my car, and drove away.
 
 It was the only truly freaky incident that occurred before the real nightmare. At the time, I put it out of my mind. Crows are scavengers, after all. It was just the circle of life.
 
-
-
 The trouble truly began when George started dating Kate. They were apparently introduced at some rich-people function, and hit it off right away. I seemed to be the only person who thought it was creepy that a 22-year-old was dating a high schooler. The average response to my concerns was, “He’ll be 18 in a few months, anyway.”
 
 Beyond that, they had nothing in common. Kate’s family- I’ll call them the Oxfords- were old money New Englanders, the sort that brag about their ancestors coming over on the Mayflower. The Oxfords owned half the businesses in town, which meant we had to treat them like royalty. Kate wasn’t outwardly mean, but she was shallow, bossy, and entitled.
@@ -92,8 +86,6 @@ Not that George cared. He was head-over-heels, absolutely smitten. George had ne
 
 I didn’t enjoy the wedding- it looked like it was curated for Kate’s Pinterest account, and Kate made it pretty clear that she didn’t want me there. But George seemed happy, and despite my misgivings, I came to support him. Although we had nice weather, Kate opted for an indoor wedding. I heard her tell a bridesmaid it was because “those stupid birds won’t leave us alone.”
 
-
-
  I took a gap year, waiting tables at a local restaurant to raise money for college. After the wedding, I began to see George less and less. Every time I called him, he had a different reason for why he couldn’t hang out: he wasn’t feeling well, he and Kate were going on vacation, he was seeing his parents. He didn’t go for walks anymore, either. By winter, I mostly saw him whenever he stopped by the liquor store next to the restaurant. These liquor store runs were becoming alarmingly frequent.
 
 I found excuses to drive by his house. George and Kate had moved into one of the Oxfords’ many houses- a Victorian mansion at the very edge of town, about a mile away from the nearest neighbor. It was what rich people called “rustic” and the rest of us called “rundown.” Its whitewash and green shutters were peeling. Its driveway, more gravel than pavement, seemed ill suited for Kate’s shiny new Lexus. The house was surrounded by thin strips of yard before giving way to the woods.
@@ -101,8 +93,6 @@ I found excuses to drive by his house. George and Kate had moved into one of the
 But what struck me most of all, was that every time I went there, there were dozens of crows surrounding the house. They flew onto the roof and pecked the dirt in the front yard. They knocked on the windows and perched in the surrounding trees. Sometimes their cawing was unbearably loud. But most of the time they were just silent. As if they were watching. Waiting.
 
 I could only assume they were waiting for George. Occasionally I would see him staring out the window, with glass of wine in his hand and a blank expression on his face. Despite his many friends waiting for him outside, and despite me waving to him from my car window, he would never come out.
-
-
 
 As winter gave way to a damp and chilly spring, I realized I had to do something. The next time I saw George at the liquor store, I ran out of the restaurant to see him.
 
@@ -135,8 +125,6 @@ He thought for a moment. “The park. 6 pm tomorrow. Where no one can see us.”
 “Deal. Just… be safe George. Look out for yourself. Please.”
 
 George didn’t reply, just stumbled down the street with his bottles of wine and a line of crows trailing behind him.
-
-
 
 The next evening I waited for George at a bench in the far corner of the park. The sun was setting rapidly, painting the two of us in blazing oranges, and later velvety blues. George looked better- at least, he was steady on his feet. He wore a huge pair of sunglasses in spite of the fading light.
 
@@ -172,13 +160,9 @@ George was silent for a few minutes. He was cocking his head, listening. I strai
 
 “Yes,” George said, “They say I should leave.”
 
-
-
 I did everything I could to help George. I told my grandparents everything. They believed me, but were too scared of the Oxfords to help. I tried to tell George’s parents, but they hung up on me mid-sentence. They saw George’s marriage as their ticket to high society, and wouldn’t do anything to jeopardize it. I even called the local police. After I could get the deputy who answered to stop laughing and hand the phone over, the chief scolded me for “spreading baseless rumors about a good girl from a good family.” In the end, it was up to myself and George.
 
 Our plan was simple. We’d wait for when Kate was out of the house. George would throw a few clothes and some valuables in a backpack and sneak out through the back door. I would wait for him, parked about 300 feet away. I couldn’t risk driving up to his house; George said the maid was instructed to phone Kate whenever my car drove past. Once George got into my car, we’d drive out of town, to Boston or even further.
-
-
 
 One evening Kate went out to have dinner with her parents. George stayed behind, claiming illness. I drove my crappy blue sedan to our agreed-upon spot, and sat on the hood waiting for George to arrive. It was one of those evenings that was too cloudy for a proper sunset. Instead, the sky shifted from white to dark gray, and the shadows deepened. It was still early spring, and my sweatshirt did little to shield me from the wind. A handful of crows perched on my car, as if they were waiting for George, too.
 
@@ -216,7 +200,7 @@ The other crows soon descended on Kate, tearing the flesh away from her face, he
 
 George had gotten to his feet. I could tell from his slack expression that this was beyond his control. His eyes were so pale and so wide, I could see the swirling circle of crows reflected in each of them. 
 
-I grabbed his hand. “George!”
+I fought the panic rising in my chest, knowing that I was the one who had to act. I grabbed his hand. “George!”
 
 He stood there motionless, mouth open. Watching them. 
 
@@ -224,13 +208,11 @@ I pulled harder. “We have to go! Now!”
 
 That shook him out of it. We didn’t stop, not even to pick up George’s bag. We ran to my car and slammed the doors shut. I floored the gas pedal, drove as fast as the old car would allow, didn’t stop until we were well into town and the caws were too far away to hear. 
 
-We pulled into a parking lot and sat in silence for a few minutes, trying to catch our breath. Then we called 911.
-
-
+We pulled into a parking lot and sat in silence for a few minutes, trying to catch our breath. Sweat and blood dripped down my chin. George struggled to dial 911 with trembling hands. When I could finally loosen my grip on the steering wheel, I stumbled out of the car, fell to my knees, and screamed.
 
 I never got to see what was left of Kate after the crows were done with her. George and I spent the night in the hospital, and the Oxfords held a closed casket funeral. The most I learned came from overhearing my grandpa talking to his friend on the police force. According to him, the only way the police recognized Kate was from her driver’s license. They found it in the designer handbag lying on the road beside her. The local paper reported Kate’s death as “a possible bear attack,” but word got around. Everyone knew it was George’s crows.
 
-After George was released from the hospital, he spent the night with me and my grandparents. Neither of us could sleep, so we stayed up late talking. Around midnight, Lux started pecking at the window, holding a gift in her mouth.
+After George was released from the hospital, he spent the night with me and my grandparents. We were both too shaken to sleep, so we stayed up late talking. Around midnight, Lux started pecking at the window, holding a gift in her mouth.
 
 I should have been more freaked out about seeing a crow again, but I somehow knew that neither she nor any other crow would hurt me.
 
@@ -239,8 +221,6 @@ George opened the window and greeted Lux with a smile. Her white feathers were s
 George thanked Lux and slipped the finger into his pocket. When he turned to me, his pale blue eyes had regained some of their past brightness, his smile warmer despite his bruised face. Perhaps he took the gift as a sign of the crows’ true devotion. Or perhaps he could finally believe that Kate was truly dead. Either way, I was glad to have him back.
 
 I never asked George what he did with the gift. I cared about him a lot, but there were some things I didn’t- and still don’t- want to know.
-
-
 
 That was over a year ago. George and I are both going to college in Boston. I live in an apartment near campus, but George chooses to commute.
 
@@ -251,4 +231,3 @@ Maybe it’s not him they’re scared of, but the crows. They still follow him e
 Sometimes I ask George why he doesn’t move away. Escape the Oxfords who shun him, the close-minded neighbors who fear him. Start over somewhere new. But he always refuses.
 
 He doesn’t want to leave the crows behind.
-

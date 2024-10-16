@@ -1,5 +1,3 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1fnd4pf/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  [Part 3](https://www.reddit.com/r/nosleep/comments/1fxxzwg/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
 Placing the phone to my ear and not knowing for certain what to expect I managed a meek,
 
 “Hello?”
@@ -73,3 +71,5 @@ I backed up with a confused mix of emotions. I had saved the young family but it
 “Very utilitarian of you. You saved three by sacrificing one. You are doing better, but not quite there.  Keep it up and don’t disappoint me –M"
 
 I had no idea how to feel, I thought I could save them and I did, but at the cost of someone else. I could not figure out why this was happening to me. Why was I chosen? I felt confused and numb, but I had to put those feelings aside. Another crisis had to be resolved as I had to prepare to handle the other call from tomorrow, today.
+
+[Part 1](https://www.reddit.com/r/nosleep/comments/1fnd4pf/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  [Part 3](https://www.reddit.com/r/nosleep/comments/1fxxzwg/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  [Part 4](https://www.reddit.com/r/nosleep/comments/1g331eu/i_keep_receiving_911_calls_for_emergencies_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

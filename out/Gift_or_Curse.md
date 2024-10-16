@@ -24,7 +24,7 @@ The old man smiled and said "The prize is the ability to see warnings of the fut
 
 The old man reached into his right pocket and showed me a plastic card, "Certified Wizard" was written on the card.
 
-The so called "Certified Wizard" winked at me and said "As you can see, I'm a real wizard, my game is real as well, best part about the game is the fact that it's completely luck based, just shake my hand and I'll know if you won or lost, think of me as a human slot machine." 
+The so called "Certified Wizard" winked at me and said "As you can see, I'm a real wizard, my game is real as well, best part about the game is the fact that it's completely luck based, just shake my hand and I'll know if you've won or lost, think of me as a human slot machine." 
 
 I was stunned by his confidence, he was telling me insane things, yet he seemed to be so clear-headed and coherent.
 
@@ -40,7 +40,7 @@ I wish that was the case, instead I quickly realized what happened was undisputa
 
 I decided to ignore the whole experience and just go home, but for some unknown reason I had an urge to look behind me.
 
-I turned around, about ten feet behind me was an odd creature, it's body was that of a mangled and twisted human being, it's face was horribly disfigured and covered in dozens of bloody wounds, it was missing one of it's eyes while the other one was bulging and bloodshot, the creature's jaw looked like it was shattered by a sledgehammer, blood was dripping from it's scarred mouth, it's tongue was hanging out of it like a dead earthworm, the creature just stood there, frozen in place, staring at me with it's barely functional eye.
+I turned around, about ten feet behind me was an odd creature, its body was that of a mangled and twisted human being, it's face was horribly disfigured and covered in dozens of bloody wounds, it was missing one of its eyes while the other one was bulging and bloodshot, the creature's jaw looked like it was shattered by a sledgehammer, blood was dripping from its scarred mouth, its tongue was hanging out of it like a dead earthworm, the creature just stood there, frozen in place, staring at me with its barely functional eye.
 
 I almost vomited as soon as I saw it, so I quickly averted my gaze, based on the reactions of the people around me, I was the only person capable of seeing the creature.
 

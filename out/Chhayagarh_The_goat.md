@@ -525,3 +525,5 @@ He ushered us inside, apologizing profusely for the lack of furniture. There was
 I can already move my injured arm, though not by much. Typing like this is difficult. It took a… process, to say the least, but now I’m finally here. I’m going to get answers. Whether they will only lead to more questions, I cannot say.
 
 But there is only one way to find out.
+
+[We talked.](https://www.reddit.com/r/nosleep/comments/1g4enfm/chhayagarh_ram_lal/)
