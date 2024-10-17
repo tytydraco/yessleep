@@ -10,11 +10,11 @@ Every October, around the second week, the rules went up on the fridge. We lived
 
 Here’s how they go:
 
-1. If you hear three knocks at the door after sunset, do not answer.  
-2. If you hear a single, hard knock, open the door, but do not look at who stands there. Hold out a basket of freshly baked bread and wait until you hear the footsteps leaving to shut the door.  
-3. If you hear someone call your name from the woods, do not answer.  
-4. If you see a figure at the tree line wearing a wide-brimmed hat, do not look at him for longer than one second.  
-5. If you hear chains dragging on the ground, sprinkle salt on all windowsills and door thresholds within one minute.  
+1. If you hear three knocks at the door after sunset, do not answer.
+2. If you hear a single, hard knock, open the door, but do not look at who stands there. Hold out a basket of freshly baked bread and wait until you hear the footsteps leaving to shut the door.
+3. If you hear someone call your name from the woods, do not answer.
+4. If you see a figure at the tree line wearing a wide-brimmed hat, do not look at him for longer than one second.
+5. If you hear chains dragging on the ground, sprinkle salt on all windowsills and door thresholds within one minute.
 6. If a candle is burning in the window of the old, abandoned Anderson cabin up the hill, stay indoors, no matter what.
 
 These rules didn’t exist for no reason. They were handed down because bad things had happened. People vanished, people died, and strange things occurred. That’s just how it was.
@@ -93,9 +93,9 @@ But this time, something went wrong.
 
 As Dad leaned forward, he knocked the basket against the doorframe, and lost his grip. The bread tumbled out, scattering across the porch. The sudden movement, the noise, without thinking, I looked up. I looked at it. And I saw it.
 
-It wasn’t a man. It wasn’t anything I could name. It stood hunched over, far too tall to be human, its limbs were unnaturally long, its skin pale and stretched tight over bones that jutted out at odd angles. It’s face was sunken, like a skull with pale white skin pulled tight over it, and its eyes were wild, and wide, too wide, like it didn’t have eye lids.
+It wasn’t a man. It wasn’t anything I could name. It stood hunched over, far too tall to be human, its limbs were unnaturally long, its skin pale and stretched tight over bones that jutted out at odd angles. Its face was sunken, like a skull with pale white skin pulled tight over it, and its eyes were wild, and wide, too wide, like it didn’t have eye lids.
 
-It's mouth opened unnaturally wide, a black, gaping hole that emitted a horrible, deafening wail. It was a sound I had never heard before, like metal scraping against stone, but worse. It drilled into my skull, making my ears ring and my vision blur.
+Its mouth opened unnaturally wide, a black, gaping hole that emitted a horrible, deafening wail. It was a sound I had never heard before, like metal scraping against stone, but worse. It drilled into my skull, making my ears ring and my vision blur.
 
 Before I could react, before I could even scream, the thing lunged. Its bony hand shot out, grabbing my dad by the collar. In one terrifyingly quick motion, it yanked him off the porch, dragging him toward the woods. The sound of his body scraping against the ground, his muffled cries, and the creature’s horrible wail all blurred together into a scene of pure terror.
 
@@ -113,7 +113,7 @@ As if on cue, the door of the cabin suddenly flew open with a loud crash, as if 
 
 “We have to go!” I shouted, dragging Isaac back toward our house. We scrambled inside, slamming the door shut behind us. I locked it, my hands trembling so badly I could barely turn the key. The shotgun was still on the floor by Dad’s chair, but it felt useless. What good would it do against something like that?
 
-But the night was far from over. We huddled in the living room, terrified, waiting for the next rule to break. Isaac was crying, his hands shaking as he tried to steady his breathing. I stared at the door, half-expecting something to come crashing through at any moment. 
+But the night was far from over. We huddled in the living room, terrified, waiting for the next rule to break. Isaac was crying, his hands shaking as he tried to steady his breathing. I stared at the door, half-expecting something to come crashing through at any moment.
 
 The chains came next. We heard them clattering on the ground, dragging closer and closer. I grabbed the bag of salt, getting ready to double check the lines of salt we had placed down earlier. The chains dragged right up to the front door, the metallic clinking echoing in the silence. I could hear it just outside, scraping against the wooden steps of the porch. But I knew the salt would hold. It always did.
 
