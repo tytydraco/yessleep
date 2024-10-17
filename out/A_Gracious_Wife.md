@@ -1,0 +1,45 @@
+I met Sarah in college, and we instantly clicked. Our shared love for literature and film drew us together. Our relationship was vibrant—filled with laughter, spontaneous trips, and long conversations about our dreams. After graduation, we settled into a cozy home in a quiet suburb, excited to build our life together. I was a graphic designer, and Sarah was a freelance writer. We had the kind of comfortable life that many envied, often hosting dinner parties and spending weekends exploring the outdoors.
+But over time, I started noticing subtle changes in her. It began innocently enough—Sarah became increasingly engrossed in her writing, spending long hours lost in her thoughts. I admired her dedication at first; it seemed like a natural evolution of her craft. 
+
+However, her focus shifted toward darker themes, and soon her stories were filled with psychological horror and complex characters.
+I remember the first time I noticed something was off. I came home one evening to find her surrounded by stacks of books on true crime and psychology. She was scribbling notes furiously, her eyes wide with excitement. She was mumbling to herself softly, but quickly, almost as if she was speaking in a different dialect or in another language altogether, but I made out her clearly say “Maybe, just maybe.” 
+A shiver went down my spine, like 1000 spiders crawling towards their pray. Knowing no better, I shook it over assuming she was mulling over a new idea for a plot in one of her stories, and went back up to bed to let her finish her thoughts.
+
+Friends started to notice, too. At gatherings, Sarah would often sit apart, lost in her own world. Her laughter became forced, and her conversations took on a sinister tone. I tried to talk to her about it, to remind her of our life together, but she brushed me off, insisting I just wouldn’t be able to understand. When I suggested seeing a therapist, she became furious, claiming that she was perfectly fine and that I was the one who needed help.
+As the months passed, her obsession deepened. She stopped socializing altogether, hiding behind her work. I felt like a stranger in my own home. Nights became tense, filled with an uncomfortable silence broken only by the sound of her writing. I would catch glimpses of her in the dim light, her face illuminated by the glow of her laptop, but there was an intensity in her gaze that unsettled me.
+
+I tried to make sense of it all. I started doing my own research, desperate to find a way to help her. That’s when I stumbled upon the concept of the “dark triad”—narcissism, Machiavellianism, and psychopathy. I couldn’t shake the feeling that Sarah was slipping into a dangerous obsession with power and control, her personality morphing into something unrecognizable. As time went on, Sarah’s transformation took a turn that I couldn’t have imagined. It wasn’t just her withdrawal from the world; it was the way her demeanor shifted. 
+
+Her smile—once warm and inviting—had morphed into something unsettling. It was a tight-lipped grin, almost a sneer, that didn’t quite reach her widened eyes with all of her teeth showing, tightly clenched to where you would think she would break them. When she smiled now, it felt as if she were indulging in a private joke that I wasn’t a part of.
+
+I began to notice that she would watch me intently, her gaze piercing and unnerving, as if she were cataloging my every move. There were moments when I’d catch her staring at me with that same smile, breathing uncomfortably heavily, and instead of the affection I once saw, there was a glimmer of something darker—a cold satisfaction. It sent shivers down my spine.
+
+One evening, I returned home early, hoping to surprise her. As I entered the living room, I was greeted by an eerie silence. The dim light cast shadows on the walls, and I felt an inexplicable sense of foreboding. I called out for her, but there was no response. As I walked through the house, I stumbled upon her study, the door slightly ajar.
+Curiosity piqued, I pushed it open. What I saw froze me in place. The walls were covered with paper—notes, diagrams, and pages filled with frantic handwriting. At the center of it all was a typewriter, and perched on it was a manuscript labeled "A Gracious Wife." 
+
+Innocent enough, my mind was at a brief ease. As I flipped through the pages, my heart began to raced, each line more chilling than the last. She had crafted an elaborate plot—detailed, methodical, and horrifyingly intimate.
+In her story, the protagonist was a seemingly perfect wife who methodically planned the murder of her unsuspecting husband. The narrative was littered with psychological manipulation, intimate details of our life together, and insights into my routines that made my skin crawl. It was clear she had been studying me, learning my habits, my fears, even my vulnerabilities.
+
+And then I saw it—the climax of her story. She described how the husband would be lulled into a false sense of security, ultimately caught off guard by her sudden shift from loving wife to deadly predator, describing my murder in gruesome detail, but what scared me even more was how she described the act as “a favor to my husband by ridding him of a world of the disgrace of a disgusting breed of humans.” 
+
+My breath hitched as I realized I was reading her plans for me.
+Panic surged through me. I dropped the manuscript, and as it hit the floor, I heard her footsteps behind me. I turned to find Sarah standing in the doorway, her expression eerily calm. “What are you doing in here?” she asked, her voice smooth yet laced with an undercurrent of menace.
+I felt a surge of adrenaline. “Sarah, this is insane! You can’t—”
+She stepped closer, and that smile returned—tight-lipped and unsettling. “It’s just a story,” she said, tilting her head in an inhuman manner. “But it’s more than that, isn’t it?”
+
+My heart raced as I backed away. “You’re scaring me.”
+Her smile widened, the glint in her eyes sharp and predatory. “Good. You should be scared. It means you’re finally paying attention.”
+
+I realized then that I was no longer safe in my own home. The woman I loved had become someone else entirely, a twisted version of the person I once knew. And as she moved toward me, her eyes glimmering with a mix of delight and malice, I understood that I was living in the pages of her dark narrative—her next victim in a story that had become horrifyingly real.
+
+I realized then, for my own safety, that I had to escape. The woman that looked like Sarah was not Sarah anymore, but something else entirely. I crept down the hallway, my heart racing as I watched Sarah hunched over in the corner of the kitchen, talking to herself. “This is it. Tonight is the night,” she whispered, her voice a mix of fear and exhilaration. In that moment, I felt a cold wave of dread wash over me. I knew then that wasn’t my wife anymore.
+
+Desperation led me to confront her, but I didn’t know what to say. This was my final attempt to get through to her, but something inside me knew she was already lost. Without thinking, I muttered, “Who are you?” with a tremble in my voice. Instead of the loving partner I once knew, I saw a cold, calculating stranger. She slowly formulated that disgusting, tight-lipped, malevolent grin as she hissed only three words that will remain engraved in my mind forever, “Sarah is dead,” while she slowly dropped on all fours and began crawling towards me, looking at me with that same grin on her face.
+
+A flood of emotions of sadness and utter fear passed over me. My entire body froze as I watched what used to be my wife begin picking up her crawling pace to a running speed, still crawling like an insect. Without thinking, my body took over and bolted me towards the door. With one last-ditch hope that I would find myself imagining this whole thing, that this was all just a crazy dream, and that I would wake up next to my loving Sarah in just a few moments, I turned around to see my wife was standing there, right below me, blocking the door. Her eyes were glinting with something dark and dangerous.
+
+“Where do you think you’re going?” she asked, her voice low and menacing.
+In that moment, the gravity of our situation hit me. The woman I once adored had become a twisted reflection of herself, and I was trapped in the horrifying reality of her descent into madness. I leaped over her, her arms stretched with fingers stretched like a slinky, and her mouth opened like a snake unhinging its jaws letting out a silent scream in frustration that she missed me by only a centimeter or two. I sprinted for the door, and ran to my neighbors house. 
+
+I slammed on his door praying that he would be home. When he opened the door, I knocked him over and ran to the bathroom and hid. 
+Now that I was alone, I was able to think, and all I could do was cry. My wife is gone, my life as I knew it was over, and something inside me knew that I would never get either back.
