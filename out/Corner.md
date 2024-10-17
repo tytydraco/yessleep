@@ -1,0 +1,13 @@
+It all started with a hat rack. You know, one of those tall metal stands with hooks at the top that old people use to put their hats on? I didn’t use it that way. I picked it up at a garage sale because it was free and my mom said no, so I had to have it. I put it in the corner of my room and hung some LEDs from it that I could set to rainbow vomit or cool wave, depending on my mood. Eventually, it kind of faded into the background of my room.
+
+Last week my idiot brother tripped on it when he was snooping through my shit and knocked it over. It’s like made of three pieces or whatever and it broke into those, so I threw it out. I dragged them down the stairs and put them in the recycling because I assume the metal is probably recyclable, right? Dad took out the recycling the next day and as quick as that, the hat rack was gone.
+
+But that night when I was streaming, chat noticed the lighting change, and it became this whole big deal so I ended early and just solo’d. The corner was dark now. Like, weirdly dark. And you know that feeling you get sometimes when you get up in the middle of the night to go to the bathroom and look into the mirror when you’re washing your hands and you really don’t want to look in the mirror? That’s how I felt about the corner. I didn’t want to look at it.
+
+I hung up my headphones and shut down my PC. The monitor was the last light on in the room so I opened my phone and used it as a light to get my ass to bed. I plugged my phone in and rolled into bed. I felt stupid for thinking about the corner where the hat rack was. What was it about the way the light hit it that made it look so creepy? Was I just over thinking it?
+
+Then I heard it for the first time. It sounded like scratching, like someone was trying to chip paint off the wall. It came from that corner where the hat rack was. I thought I was imagining it at first, so I just tried to go to sleep.
+
+The next day was whatever, normal. Cereal, school, drama, bullshit, homework, streaming, bed, corner, scratching, scratching. Okay what the fuck, I had to go see what the noise was. So I got up. I unplugged my phone and turned on the flashlight. The corner was empty, but I could hear the scratching, so I went and stood in the corner. It sounded like it was coming from the plug where I had the rainbow vomit lights plugged into before my idiot brother tripped on them. I put my ear up to the outlet. The scratching stopped.
+
+Now it’s all good. Here in the corner. I can see just fine. Super nice. I’m glad I don’t have to worry about anything anymore. Or ever again.
