@@ -40,7 +40,7 @@ I stood still for 35 years
 Railway 3578-PZ49, a railroad that used to travel in and out of the friton. It was used for getting people out, bringing resources in, etc. But that was almost 35 years ago, anyone still there surely would have assimilated by now. I wish I knew all of this before I went in there, I wish I was dead, but it’s far too late for that.
 My right to die was taken long ago.
 
-I stood still for 647 years
+We stood still for 647 years
 
 “I” am no longer alone…through time I’ve learned it is “we”. The corpses that we saw all those centuries ago were us. We didn’t know it yet but we were meant for greater things. Our body isn’t for one but is for all, every eye ; every “vine” ; every corpse ; they are all one of us, but we are them, and we are one.
 
