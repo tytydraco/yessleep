@@ -1,4 +1,4 @@
-I was fetching myself a glass of water in the middle of the night when whatever had eviscerated my roommate attacked me. It chased me through the flat. Fear, like liquid fire, coursed through my veins. It was gibbering. Shrieking. I’d been so desperate to escape I’d leapt through my living room window. Luckily, in the aftermath I was found by a neighbor and soon ended up in the hospital. 
+I was fetching myself a glass of water in the middle of the night when whatever had eviscerated my roommate attacked me. It chased me through the flat. Fear, like liquid fire, coursed through my veins. I was gibbering. Shrieking. I’d been so desperate to escape I’d leapt through my living room window. Luckily, in the aftermath I was found by a neighbour. I ended up in the hospital soon. 
 
  
 
@@ -6,7 +6,7 @@ I was fetching myself a glass of water in the middle of the night when whatever 
 
 
 
-When I’d first returned to my senses all I could see were those dark claws slashing. That wriggling, monstrous torso. That human face. An insectoid body. Human limbs and arthropod claws fused together into some horrendous amalgam. 
+When I’d first returned to my senses all I could see were those dark claws slashing. That wriggling, monstrous torso. That rubbery human face. An insectoid body. Human limbs and arthropod claws fused together into some horrendous amalgam. 
 
  
 
@@ -27,41 +27,77 @@ I thrashed and yelled. 
 
 
 
-I was blind to the doctors and nurses around me. They held me down and sedated me. When I woke up again I was calmer. A doctor was by my bedside and pulled up a chair next to me. He looked like he was in his fifties and his hair was black and speckled with grey. “Good afternoon, Mr. Anthony Wyndthorn. My name is Dr. Joshua Stern.” He paused. He seemed to be in the middle of picking the correct words. “Well, there’s no easy way to say this so I’ll just say it. Sometime last night you and your roommate” he glanced down at his clipboard, “Benjamin Harper were attacked by some kind of wild animal. What species is, of course, not yet known. Unfortunately, Ben did not survive. At least that’s what I heard from the cops before they left. 
+I was blind to the doctors and nurses around me. They had to strap me down to sedate me. 
 
 
 
 
 
 
-You were unconscious until earlier this afternoon. You were very lucky you didn’t break any bones. We gave you the standard shots and course of antibiotics. Your wounds have been washed and stitched. We’re going to keep you overnight just to make sure everything’s in order.” He then suddenly added, “You understand?” Then he eyed me for a long moment. “How’re you feeling?” I stared back at him hotly. My gaze betraying my annoyance. “Well I feel just fucking great, don’t I? Don’t I look great? What do you think?” My voice was croaky but it echoed through the room. Dr Stern looked back at me. “No need to be snippy. I just want to gauge the extent of your injuries. You’ve suffered a major trauma. Not just physically, but mentally.” His gaze softened. Suddenly I broke eye contact with him. The memory of seeing Ben’s corpse flashed through my brain. 
+
+
+
+
+
+
+
+
+
+
+
+
+When I woke up again I was much calmer. My head was dizzy. I felt like I was staring down a long dark corridor. A doctor was by my bedside. His expression was serious but empathetic. He pulled up a chair next to me. He looked like he was in his fifties and his hair was black and speckled with grey. “Good afternoon, Mr. Anthony Wynthorn. My name is Dr. Joshua Stern.” My vision cleared. Soon I felt hot pain all through my body. I felt like one giant bruise. Dr Stern paused. He was in the middle of picking the correct words. “Well, there’s no easy way to say this so I’ll just say it.” He coughed softly to clear his throat. “Sometime last night you and your roommate” he glanced down at his clipboard, “*Benjamin Harper*, were attacked by some kind of wild animal. What animal it was, is of course, not yet known.” He paused again. His gaze grew sympathetic. “Unfortunately, Ben did not survive. At least that’s what I heard from the cops before they left. 
+
+
+
+
+
+
+You were unconscious until earlier this afternoon. You were very, *very* lucky you didn’t break any bones. We gave you the standard shots and course of antibiotics. Your wounds have been washed and stitched. We’re going to keep you overnight just to make sure everything’s in order.” He then suddenly added, “You understand? Do you have questions?” Then he eyed me for a long moment. “How’re you feeling?” I stared back at him hotly. My gaze betrayed my annoyance. “Well I feel just fucking great, don’t I? Don’t I look great? Just saw my roommate ripped to pieces. What do you think?”My voice was croaky, dripping with sarcasm as it echoed through the room. Dr Stern looked back at me. His eyes were wide and annoyed. “No need to be shitty with me. It’s my job to gauge the extent of your injuries. You’ve suffered a major trauma. Not just physically, but mentally.” His gaze suddenly softened. My anger waned. I felt suddenly ashamed for snapping. I broke eye contact. 
+
+
+
+
+
+
+The memory of seeing Ben’s corpse flashed through my brain. 
 
  
 
 
 
 
-The blood. The viscera. 
+
+The blood. The viscera. The gnawed bones.
 
  
 
 
 
-I couldn’t even tell what parts of him were left over. He’d been skinned. And eaten mostly to the bone. Then that thing. It had come out of the shadows of his room. Leapt at me. My breathing quickened. I felt my limbs shake from terror. I winced in pain. I was covered in bruises and scratches and moving, even slightly, caused me great discomfort. 
+I couldn’t even tell what parts of him were left over. He’d been skinned. And eaten mostly to the bone. Then that thing. It had come out of the shadows of his room. Leapt at me. 
 
 
 
 
 
 
-Dr Stern continued to eye me. “We have therapists you could chat with before you leave. I’d highly recommend it actually. It will help you to heal faster psychologically.” I looked back up at him. My annoyance gone. All I could feel was terror and sadness. Ben had not been my favorite person but he’d not deserved to die like that.  “Maybe I will. But not right now. I think I should just rest. Could you give me something to help me sleep?” Dr Stern agreed and left me the details of a local therapist he recommended. Before he left my room he turned to tell me, “and the cops want to interview you tomorrow morning. Just so you now. It’s just to get your side of things.” Then he smiled. I couldn’t help but smile back, his was so genuine. “Okay, well I’m off home to the missus. Take that pill there if you need help sleeping. Hope you feel better.” Then he was gone. 
+
+My breathing quickened. I felt my limbs shake with horror. I winced in pain. I was covered in bruises and scratches and moving, even slightly, caused me great discomfort. 
+
+
+
+
+
+
+
+Dr Stern continued to eye me. “You know, we have therapists you could chat with before you leave. I’d highly recommend it actually.” I looked back up at him. My annoyance completely gone. All I could feel now was horror and sadness. Ben had not been my favorite person but he’d not deserved to die like that.  “Maybe I will. But not right now. I think I should just rest. Could you give me something to help me sleep?” Dr Stern agreed and left me the details of a local therapist he recommended. Before he left my room he turned to tell me, “and the cops want to interview you tomorrow morning. Just so you now. It’s just to get your side of things.” Then he smiled. I couldn’t help but smile back; his was so genuine. “Okay, well I’m off home to the missus. Take that pill there if you need help sleeping. Hope you feel better.” Then he was gone. 
 
  
 
 
 
 
-I was alone in my room for the first time since I had awoken. My brain was still groggy from all the sedatives and I finally got a good look at my room. It was relatively nice for what must have been a public hospital. I had an ensuite bathroom but the room was small and the door to my room was within arms-reach of my bed. I turned my head and tried to sit up slightly. I yelled in pain as my stitches pulled in my side. “Ahhgh” I grunted.  
+I was alone for the first time since I had awoken. My brain was still groggy from all the sedatives and I finally got a good look at my room. It was relatively nice for what must have been a public hospital. Despite having an ensuite bathroom my room was quite small. My room door was within arms-reach of my bed. I turned my head and tried to sit up slightly. I yelled in pain as my stitches pulled in my side. “Ahhgh” I grunted.  
 
 
 
@@ -76,7 +112,7 @@ I then realized they’d tied some kind of gauze and brace around my stomach. I 
 
 
 
-As I lay in bed I realized that’s probably exactly what happened. I drank a bunch of water and nibbled on some cheese biscuits they’d left me for my tea. Then I took my blue sleeping pill and got myself as comfy as one could get in those scratchy hospital linens. As I lay in the dark of my room I felt an anxious sweat bead my forehead as I played the events of the last twenty-four hours over and over in my brain.
+As I lay in bed I remembered that’s exactly what had happened. I drank a bunch of water and nibbled on some cheese biscuits they’d left me for my tea. Then I took my blue sleeping pill and got myself as comfy as one could get in those scratchy hospital linens. As I lay in the dark of my room I felt an anxious sweat bead my forehead. I played the events of the last twenty-four hours over and over in my brain.
 
  
 
@@ -84,7 +120,7 @@ As I lay in bed I realized that’s probably exactly what happened. I drank a bu
 
 
 
-I had awoken in the early hours of that fateful morning. It had been a Sunday. I felt that horrendous sticky heat one gets from drinking way too much alcohol. I had hot coals in my throat from all the shots and cigarettes I’d chocked down the previous night. Ben and I had gone out with some friends. It had been pretty wild. 
+I had awoken in the early hours of that fateful morning. It had been a Sunday. I felt that horrendous sticky, sweaty heat one gets from drinking way too much alcohol. I had hot coals in my throat from all the shots and cigarettes I’d chocked down. Ben and I had gone out with some friends. It had been pretty wild. 
 
  
 
@@ -92,7 +128,7 @@ I had awoken in the early hours of that fateful morning. It had been a Sunday. I
 
 
 
-I don’t remember how I got home. All I remember is waking up with an unendurable thirst. With eyes half-open, I groped and shambled my way through our dark flat to the kitchen. I noticed something was wrong when my barefoot stepped on something cold and slimy. I heard a loud squelch. “What the hell is that?” I mumbled. I groped for the lights but couldn’t find them. I was still too asleep and half-drunk, so I did not understand what was happening. I pulled out my phone and turned on the flashlight. 
+I don’t remember how I got home that night. All I remember was waking up with an unendurable thirst. With eyes half-open, I groped and shambled my way through our dark flat to the kitchen. I noticed something was wrong when my barefoot stepped on something cold and slimy. I heard a loud squelch. “What the hell is that?” I mumbled. I groped for the lights but couldn’t find them. I was still too asleep and half-drunk. I held up my phone and turned on the flashlight. 
 
 
 
@@ -100,7 +136,7 @@ I don’t remember how I got home. All I remember is waking up with an unendurab
 
 
 
-There on the floor, just beneath the fridge, was some kind of goo. It was translucent but had a slight blue tint. It smelled sweet like honey but not quite.  My forehead was a knot of confusion. Then I noticed the fridge was slightly ajar. It was an old fridge, one of those models with rounded edges from the 1950s that just never stops running. It was dark blue with a silver outline. I saw traces of the same goo on the sides of the fridge door as I pulled it open. 
+There on the floor, just beneath the fridge, was some kind of goo. It was translucent but had a slight blue tint. It smelled sweet but also had strange sour note. Like decaying honey. My forehead was a knot of confusion. Then I noticed the fridge was ajar. It was an old fridge, one of those models with rounded edges from the 1940s. The kind that was made before planned obsolescence, so it just never needed to be replaced. It was dark blue with a silver outline. It always reminded me of my uncle’s prized blue Cadillac series 61 sedan. I looked up and saw traces of the same goo on the sides of the fridge door as I pulled it open. 
 
  
 
@@ -122,7 +158,7 @@ My mouth hung open in disbelief. 
 
 
 
-My eyes stared unblinking. Within the fridge. Well, there was no fridge. The inside of the fridge was completely gone. No light. No  half rotten veggies. No left-over Chinese food. No. In place of all these things was a worn stone staircase. Cut from a shiny, black stone; I believe it resembled obsidian. The maw of the doorway yawned as cold as the arctic. I felt an icy wind blow softly from within the doorway. Small icicles had formed on the circular roof which sat above the darkened staircase. I gaped still and slowly studied the impossible staircase. The light of my phone cast long shadows. The stairs were coated with a thin film of that same slime and seemed to go on forever down and deeper until darkness swallowed them up below. “No fucking way. Nope. Not today.” I said stupidly and slammed the fridge door shut. 
+My eyes stared unblinking. Within the fridge. Well, there was no fridge. The inside of the fridge was completely gone. No light. No  half rotten veggies. No left-over Chinese food. No. In place of all these things was a worn stone staircase. Cut from a shiny, black stone; I believe it resembled obsidian. The maw of the doorway yawned as cold as the arctic. I felt an icy wind blow softly from within. I shivered. Small icicles had formed on the circular roof which sat above the darkened staircase. I gaped and slowly studied the impossible staircase. The light of my phone cast long shadows. The stairs were coated with a thin film of that same slime and seemed to go on forever down. Deeper and deeper until darkness swallowed them up below. “No fucking way. Nope. Not today.” I said stupidly and slammed the fridge door shut. 
 
  
 
@@ -143,14 +179,27 @@ I should have just run at that moment. I should have run and never looked back.�
 
 
 
-But I looked through the doorway. Transfixed, I stumbled forward. In the blue glow of the moon I saw Ben lying on his bed, spread-eagle. But when I looked closer I saw that it was not him. It was what was left of him. And I saw the thing that did it come scuttling out of the dark. I heard a horrible clicking noise. A click-click-click of giant pincers. I heard a loud trilling sound. 
+But I looked through the doorway. Transfixed, I stumbled forward. In the blue glow of the moon I saw Ben lying on his bed, spread-eagle. But when I looked closer I saw that it was not him. It was what was left of him. 
+
+
+
+
+Then I heard a horrible clicking noise. A *click-click-click* of giant pincers. I heard a loud trilling.
 
 
 
 
 
 
-Then I saw the thing come out of the dark. It was humanoid but only slightly and I only say this because it’s the one word I can think of. Imagine a person except every limb is twisted the wrong way so that this thing was forced to run on all fours, with limbs bent all backwards. It had two heads. One faced me and it was a human mask stretched across something else; the mask was all out of shape. The other face was at the end of a hideously long neck that was held in the dark. Its body was a wriggling mass of human flesh and some kind of carapace, like that of a crab or arachnid. It had ten segmented limbs that ended in large claws. 
+Then I saw the thing come out of the shadows. Imagine a person except every limb was dislocated. Like someone tried to do a tricky yoga pose but ended up all stuck, twisted and wrong. 
+
+
+
+
+
+
+
+The thing ran on all fours, with limbs bent all backwards. It had two heads. One faced me and it was a human mask stretched across something else; something black and slimy. Was that face it wore Ben’s face? The human fave-mask was all out of shape. The other head was at the end of a hideously long neck, held in the dark. Its body was a wriggling fused mass of human flesh and some kind of carapace, like that of a crab or arachnid. It had ten segmented limbs that ended in large onyx, claws. 
 
 
 
