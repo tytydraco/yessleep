@@ -148,6 +148,4 @@ Sho peered back into the scope, gasping as he saw the same thing I did only mome
 
 ”Could… could that be in us?” He asked, looking from me to Sandra. I noticed now his eyes were bloodshot, a dark red against pale skin. It creeps me out, but I’m chalking it up to lack of sleep. Hell, I probably looked no better.
 
-The machine nearby dinged, telling me the first vial’s component testing was done. Paper began feeding from the computer nearby, the results of the machine’s work. I hesitated, swallowing the lump in my throat before grabbing the paper, ripping it off and closing my eyes as I brought it to my face. You have to look. 
-
-[Have to…](https://www.reddit.com/u/googlyeyes93/s/C1D3aqboJh)
+The machine nearby dinged, telling me the first vial’s component testing was done. Paper began feeding from the computer nearby, the results of the machine’s work. I hesitated, swallowing the lump in my throat before grabbing the paper, ripping it off and closing my eyes as I brought it to my face. You have to look. Have to… 
