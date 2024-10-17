@@ -199,7 +199,7 @@ Then I saw the thing come out of the shadows. Imagine a person except every limb
 
 
 
-The thing ran on all fours, with limbs bent all backwards. It had two heads. One faced me and it was a human mask stretched across something else; something black and slimy. Was that face it wore Ben’s face? The human fave-mask was all out of shape. The other head was at the end of a hideously long neck, held in the dark. Its body was a wriggling fused mass of human flesh and some kind of carapace, like that of a crab or arachnid. It had ten segmented limbs that ended in large onyx, claws. 
+The thing ran on all fours, with limbs bent all backwards. It had two heads. One faced me and it was a human mask stretched across something else; something black and slimy. Was that face it wore Ben’s face? The human face-mask was all out of shape. The other head was at the end of a hideously long neck, held in the dark. Its body was a wriggling fused mass of human flesh and some kind of carapace, like that of a crab or arachnid. The way the thing moved toward me reminded of a giant spider. It had ten segmented limbs that ended in large onyx claws.
 
 
 
@@ -207,24 +207,15 @@ The thing ran on all fours, with limbs bent all backwards. It had two heads. One
 
 
 
-Those claws lashed out at me. What felt like hot blades sliced through my chest and stomach. I screamed in pain, nearly fell over. I just managed to back away. The creature stepped back too. I felt something sticky cover my wounds. It was that slime. I looked up again. That whole creeping creature was covered in blue slime. I felt bile rise in my throat as I sprinted away screaming a primal scream of pain and terror. It didn’t sound human. 
-
- 
+Those claws lashed out at me. What felt like hot blades sliced through my chest and stomach. I screamed in pain, nearly fell over. I just managed to back away. 
 
 
 
 
 
 
-The thing chased me. It came scuttling on its arthropod legs, slashing at me; clipping my ankles once or twice. My panting and its trilling filled the darkened flat. I wondered if perhaps a neighbor had heard the noise? Could the police be coming? 
 
- 
-
-
-
-
-
-The way the thing moved toward me reminded of a giant spider. As I entered the living room I realized there was no way I was going to have time to unlock and leave my flat through the front door. 
+I felt something sticky cover my wounds. It was that slime. I looked up again. That whole creature was covered in blue slime! I felt bile rise in my throat as I sprinted away screaming a primal scream of pain and terror that did not sound human. 
 
  
 
@@ -232,7 +223,24 @@ The way the thing moved toward me reminded of a giant spider. As I entered the l
 
 
 
-I knew I didn’t have time to reach my phone and call someone. And then *wait* for them. 
+
+The thing chased me. It came scuttling on its arthropod legs, slashing at me; clipping my ankles once or twice. My yells and its clicking and trilling filled the darkened flat. I wondered if perhaps a neighbor had heard the noise? Could the police be coming? 
+
+ 
+
+
+
+
+
+As I entered the living room I realized there was no way I was going to have time to unlock and leave my flat through the front door. 
+
+ 
+
+
+
+
+
+I knew I didn’t have time to call someone. And then *wait* for them. 
 
  
 
@@ -247,9 +255,7 @@ I needed to get out now. Right now! 
 
  
 
- 
-
-In desperation I picked up the nearest chair and hurled it at the large window. The chair smashed clean through with a loud crash. I prayed the fall wouldn’t be too bad and leapt right through. I didn’t remember anything else until I woke up here. 
+In desperation I picked up the nearest chair and hurled it at the large window. The chair smashed clean through with a loud crash. I prayed the single storey fall wouldn’t be fatal and leapt right through. I remembered nothing else until I woke up here. 
 
  
 
@@ -274,7 +280,36 @@ I went over those memories again and again. I was deciding what I would tell the
 
 
 
-As all this raced through my head I felt a warmness start to spread through my body. I realized the sleeping pill must be working. My thoughts slowed. My breathing calmed. Soon I was fast asleep.
+As all this raced through my head I felt a pleasant warmness start to spread through my body. I realized the sleeping pill must be working. 
+
+
+
+
+
+
+
+
+
+
+My thoughts slowed. 
+
+
+
+
+
+
+
+
+My breathing calmed. 
+
+
+
+
+
+
+
+
+Soon I was fast asleep.
 
  
 
@@ -283,7 +318,12 @@ As all this raced through my head I felt a warmness start to spread through my b
 
 
 
-My ears heard a clicking noise as I awoke. My door stood open. I yelled as my eyes opened and I saw that creature standing down at the end of the hallway. It stood still for a moment. It trilled. I yelled, “Help! Help! Nurse! Anyone?” The hallway remained dark and silent. No one answered me. Were they dead? What had happened? I tried to sit up but my wounds screamed at me to stop moving. Then the thing started walking towards me. It scuttled so like an insect it sent shivers rippling down my spine. My lungs burned with fear. I tried desperately to get up. But I could barely move. 
+My ears heard a clicking noise as I awoke. My eyelids were heavy. I opened them slowly. My door stood open. I yelled with terror. At the end of the hallway I saw that same twisted creature! It stood eerily still. Staring at me. It trilled. I yelled, “Help! Help! Nurse! Anyone?” No one answered me. Were they dead? What had happened? I tried to sit up but my wounds screamed at me to stop moving. The hallway remained dark and silent. As my eyes grew accustomed to the gloom I saw that most of the fluorescent lights in the hallway were smashed. Glass littered the floor. Then the thing started walking towards me.
+
+
+
+
+My lungs turned to stone when I realised the corridors were also covered in dark stains. The corpse of a nurse who’d checked on me earlier lay sprawled. Her head was about a meter away from the rest of her body. It lay in the middle of my doorway. Her empty eyes stared up at me. 
 
 
 
@@ -291,7 +331,25 @@ My ears heard a clicking noise as I awoke. My door stood open. I yelled as my ey
 
 
 
-The pain was excruciating. I yelled as I pulled myself to a sitting position. But it was too late. As I turned to see where the thing was I bellowed. It was hovering right over my bed. It’s horrifying masked face staring down at me. Its eyes were wrinkled and hidden behind disfigured flesh. It pressed a large claw against my cheek. Then it stood back and used another claw to grab my left ankle. I felt all the bones therein snap. The pain I felt cannot be fully described. It was like someone had spilled liquid fire on my leg. I screamed brutally; with full force.
+
+The monster scuttled so like an insect it sent shivers rippling down my spine. My blood burned with fear. I tried desperately to get up. But I could barely move. 
+
+
+
+
+
+
+
+The pain was excruciating. I yelled as I pulled myself to a sitting position. But it was too late. As I turned to see where the thing was, I bellowed. It was hovering right over me. It’s horrifying masked face staring down at me.  Its eyes were wrinkled and hidden behind disfigured flesh. I saw its second head too. The one on its long neck. That second head was like the head of a reptile. But with the composite eyes of a gigantic fly. A horrible, slimy proboscis hung flaccid between its eyes. 
+
+
+
+
+
+
+
+
+It pressed a large slimy, claw against my cheek. Then it stood back and used another claw to grab my left ankle. I felt all the bones therein snap. The pain I felt cannot be fully described. It was like someone had spilled liquid fire on my leg. I screamed brutally; with full force.
 
  
 
