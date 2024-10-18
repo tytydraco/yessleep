@@ -1,3 +1,9 @@
+I might be 76... 
+
+And every joint in my body might crack and pop...
+
+But I still recognize the smell of shit.
+
 My lighthouse has always been a place of solace, a sanctuary from a world I was increasingly having trouble recognizing. Last night was supposed to be no different.
 
 Ollie was asleep at my feet, his black fur rising and falling gently as he snored. I sat with my book, the pages turning lazily as I read in the soft yellow glow of a nearby lamp.
@@ -98,11 +104,11 @@ My hands shook as I set the candle on its tray inside the room, a prayer on my l
 
 I got lucky.
 
-The figure moved toward the candle, its twisted form bathed in flickering light. I didn't hesitate. I slammed the heavy door shut, the metal hinges groaning as I bolted it, my hands trembling with adrenaline. The metallic clank echoed through the dark, sealing whatever this was behind inches of steel. I stumbled back, gasping for air, sweat trickling down my forehead. I watched through the small window as the figure leaned over the candle, its hollow gaze fixated.
+The figure moved toward the candle, its twisted form bathed in flickering light. I didn't hesitate. I slammed the heavy door shut, the metal hinges groaning as I bolted it, my hands trembling with adrenaline. The metallic clank echoed through the dark, sealing whatever this was behind inches of steel. I stumbled back, gasping for air, sweat trickling down my forehead.
 
-It stayed there for what felt like an eternity, its glow dimming, almost breathing over the light. And then, with a sputter, the candle went out.
+I watched through the small window as the figure leaned over the candle, its hollow gaze fixated. It stayed there for what felt like an eternity, its glow dimming, almost breathing over the light. And then, with a sputter, the candle went out.
 
-The silence was shattered by the creature's rage.
+The silence was shattered by the figure's rage.
 
 The door shook under its violent pounding, the heavy thud of its head against the wood reverberating through the narrow corridor. The stench of sulfur seeped through the cracks, and Ollie barked furiously above, the sound distant, desperate.
 
@@ -114,7 +120,7 @@ I didn't sleep the rest of the night.
 
 The hours dragged on, the lighthouse unnaturally silent except for the occasional rattling from below. I sat with Ollie at my feet, the dawn creeping in with pale light, my eyes fixed on the stairs leading down.
 
-Tonight, I find myself sitting out on the balcony, unsure of my next move.
+Today, I find myself sitting out on the balcony, unsure of my next move.
 
 I can still hear it even outside.
 
