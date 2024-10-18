@@ -1,0 +1,25 @@
+ In the heart of the southern Aegean, nestled on a tiny, peaceful island, stood a quiet village. Surrounded by clear blue waters, rocky cliffs, and lush greenery, it was a haven untouched by the tourist crowds. This was the place Janek and Olga, along with their children, Lara and Georg, chose to start a new life. Originally from Slovakia, Janek had secured a prestigious remote job with an international telecom IT company. The only catch? They had to move to Greece. But not to bustling Athens or any major city. The family sought tranquility, beauty, and a close-knit community—qualities they found in this remote village.
+
+The first months were perfect. Their spacious house was just a five-minute walk from the beach, and the children quickly adjusted to their new school, which was taught in English. The family made fast friends with several other local families, many of whom were expats themselves. The village boasted beautiful landscapes, a quality school system, and a comfortable life far from the tourist crowds. Life felt like a dream.
+
+But one night, Georg woke suddenly. Something had disturbed his sleep. As he blinked into the darkness, he noticed faint flickers of light far in the distance, just beyond the window. Curiosity got the better of him, and he crept to the window to see. A line of people—about 60—moved in a quiet procession up the mountain path near the village. The sight was eerie, their torches flickering in the night. Fear tugged at his heart, and he quickly slipped back under his covers, deciding not to mention it to anyone the next day.
+
+A month passed, and life carried on as usual. But then, once again, in the dead of night, Georg saw the same procession, this time determined to understand what was happening. Grabbing a pair of binoculars, he quietly peered through the window. His heart raced as he saw the people more clearly—each one wearing a mask. Animal masks: wolves, owls, foxes, and lions. But he couldn’t recognize anyone. The next morning, like before, everything seemed normal. He remained silent.
+
+Around this time, Janek began to notice something odd. Two of the families they had befriended had left the village suddenly. No farewell, no explanation. Just gone. When he asked around, the other villagers brushed it off, but he couldn’t shake the feeling that something was wrong. Then came the questions from the locals—strange, personal questions. “What’s your blood type?” “How religious are you?” “Do you believe in God?” At first, they seemed harmless, but soon they became unsettling, almost intrusive.
+
+Olga, too, began to feel uneasy. The villagers, once warm and friendly, seemed colder, more distant. Their movements became mechanical, almost robotic. They would ask about the family’s habits and faith, but never revealed anything about their own. A growing sense of dread settled in her chest, but when she tried to talk to Janek about it, he dismissed it as simple culture shock.
+
+One evening, as they sat down for dinner, the power in their house flickered out. Unfazed, the family decided to turn in early. But that night, Janek woke with a start. He wasn’t in his bed. His arms were strapped down, and he felt himself being carried. His mind whirled in confusion and terror. He couldn’t speak—his mouth was sealed shut. Turning his head as best he could, he saw masked villagers all around him, carrying him and his family on stretchers.
+
+The masks were more elaborate now—bears, tigers, rabbits, and one figure in a golden lion mask. Firelight from torches danced in the night air, illuminating their twisted, animalistic faces. His heart pounded as he realized they were heading up the mountain, the very place Georg had seen the strange processions. Olga and the children were with him, but they appeared unconscious, drugged, limp in the villagers’ grip. Janek’s blood ran cold. He struggled against his bindings, but they held firm. Panic surged through him. What was happening? Why couldn’t he stop it?
+
+At the mountain's peak, they were met by more masked figures. There was a makeshift stage, and atop it stood a giant man wearing a raven mask. His presence was overwhelming, and in his hand gleamed a large axe. Janek’s mind raced. Why an axe? What was this? What did they want?
+
+It became clear all too quickly. This was no ordinary gathering. It was a ritual—a gruesome, ancient ceremony. One by one, the villagers lifted Olga, Georg, and Lara onto the stage. The man with the raven mask approached Olga first. With one swift motion, he brought the axe down, and her head fell cleanly from her shoulders. Her blood poured into a basin, passed around for the villagers to drink.
+
+Janek’s heart shattered. He screamed, but no sound escaped his gagged mouth. Next was Georg. Then Lara. He watched, helpless, as his family was butchered before his eyes.
+
+And finally, it was his turn.
+
+As the raven-masked figure approached, Janek’s mind mercifully went numb. His last vision was of the firelight reflecting off the cold, gleaming axe, before everything went black.
