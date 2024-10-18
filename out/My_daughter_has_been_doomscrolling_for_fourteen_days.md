@@ -86,4 +86,4 @@ I looked down at the crowbar and thought about what I might have to do to get my
 
 But when I got closer, I realized that the silhouette wasn't that of one of the possessed teens, but instead Bobby, the very friend who had told me about the train station in the first place.
 
-"Come on, Mr. Silver!" Bobby called out, as I made my way over to him, and he helped me carry my daughter off into the woods, away from the possessed horde of teenagers.
+"Come on, Mr. Silver!" Bobby called out, as I made my way over to him, and he helped me carry my daughter off into the woods, [away from the possessed horde of teenagers](https://www.reddit.com/r/nosleep/comments/1g6nrvq/my_daughter_has_been_doomscrolling_for_fourteen/).
