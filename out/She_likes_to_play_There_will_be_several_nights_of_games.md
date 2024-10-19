@@ -54,7 +54,7 @@ I shivered. There was no breeze. Nothing to move her.
 
 She stepped closer. "Stay with me and play," she whispered.
 
-"You're from the sorority," I said, trying to stay calm. No reason to be afraid. After all, there was a naked woman about my age, maybe a few years older, standing right in front of me. What WAS there to be afraid of? "You're a part of them, right?"
+"You're from the sorority," I said, trying to stay calm. No reason to be afraid. After all, there was a beautiful woman about my age, maybe a few years older, standing right in front of me. What WAS there to be afraid of? "You're a part of them, right?"
 
 "Sorority?" she giggled. "I'm not interested. I'd rather make *you* a part of *me."*
 
