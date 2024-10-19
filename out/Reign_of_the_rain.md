@@ -75,10 +75,6 @@ I blinked hard, trying to make sense of the voice. My pulse raced, my mind strug
 
 The driver leaned forward, a hint of concern slipping into his frustration. “You’ve been standing there like a zombie. You need help or what?”
 
-I staggered forward, my legs shaky and unsteady. This car was different. The driver, his voice—he sounded real. Not like before.
-
-At least, I hoped he was real.
-
 I hesitated for a second longer, then, shivering uncontrollably, I opened the door and climbed into the passenger seat, the warmth of the car hitting me like a shock to my system. As the door clicked shut, I sank into the seat, still dazed, still not fully sure of what had just happened to me.
 
 
