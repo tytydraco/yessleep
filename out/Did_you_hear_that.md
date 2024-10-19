@@ -1,29 +1,87 @@
-Do you hear it? It's soft but loud, like a background sound but more ancient and nocturnal. The closest that I could think of is an ocean at night where you can hear the waves against the sand but there is a lower octave of marine life calling out to each other. The problem is, it's not like any animal I have ever heard of before. It's so...foreign.
+**My first story. Feel free to criticize if you want to. Enjoy!**
 
-I left my apartment about an hour ago I think when I first heard it. I remember opening up my window to take a look outside because my first thought was that it was raining. I love the sound of rain and I'll open up my window any chance I get but when I slid it open and my ears stopped ringing from the metal on metal of the frame, I saw the street was dry and the usual traffic just chugging along.
 
-It was very confusing. I could have sworn that I heard the sound of water. I logged out of my online game and searched my apartment just to make sure that I didn't leave a faucet on or some phone app with ocean noises playing loudly. There was nothing.
 
-I was actually going to chalk it up to me being on the computer way too long and was about to grab a beer and hit the hay when I smelled it. The scent of saltwater and fresh seaweed. How the hell can I smell seaweed and saltwater? I'm in a landlocked state with the nearest lake over a hundred miles away. But there it was, the sound of roaring water so faint that I could only hear it when I wasn't straining to.
+Did you hear that?
 
-Trying to go to sleep was an abject failure. You know that feeling when you are nodding off to sleep and something startles you awake? That's what was happening to me. Every time I drifted off, I jolted awake because I could feel those waves lapping at my socks. Each time that I jerked awake and flipped on my light to look, there was nothing there. Just a dry room and the sound is so far away.
+"What?" Hiroki chimed, his eyebrow slightly arching upwards as he looked back at me, giving me his signature disinterested look as usual whenever he heard something that wasn't either something Outdoorsy like tree-climbing or rock-collecting or beetle-scaling or whatever.
 
-I don't know if I actually got any sleep but I do remember having one dream...I think it was a dream. I remember seeing the starry night sky but everything below the horizon was black, the outline of the waves only being seen when the moonlight glinted off of the water. The moon! How the hell did I forget the strangeness of that moon! It was large filling up most of the sky, shining brilliantly from the sun that had gone down so long ago. On this moon though, I could make out plains, forests, biomes, and life that should not have been on that barren rock in the sky.
+Sarah kept pacing forward alongside the group, her misty green eyes appearing almost a smokey gray from the meager amount of light that illuminated us from the lantern that I was holding. Various discarded leaves and twigs lined the eminent forest, artifacts of a long-forgotten Summer that ended just four weeks ago. Herzen Forest was now a cacophony of red, orange, and yellow tones, the maple trees shaded ever so slightly differently from the other maple forests in the state, which was why we, as mentally well-endowed 15-year-olds, are now exploring it together, after having eschewed it every single time we hit the intersection at Avre Creek, always taking the long walk to the general store instead of taking the narrow, twisting, harrow route through the Old Trail 26.
 
-The waves were loud. I remember that now as I write it. The waves were loud and I could only barely make out the sound of a voice singing to me. She had such a lovely voice. I was angry when my alarm for work woke me up.
+"I... I think I heard something?" I awkwardly spit out, doubting myself immediately. This wasn't the first time my mind had played tricks on me. Or my ears. Either way, none of my other senses had picked up anything, confounding any additional suspicions about the noise.
 
-Fuck those newspapers, I decided not to deliver those newspapers. Especially since after waking up, I could still hear the waves. That's when I started typing this to you all.
+As we passed the low-hanging boulders and curtain of abscissing maple trees, the abject monotony of the twilight forest once again swept our ears, only intermittently interrupted by the sounds of us stepping on a twig or two every 10 seconds or so.
 
-I'm not sure if this is the right subreddit or anything but I needed to post this, just in case because I'm going to follow the sound.
+Hiroki continued onwards soldierly, not hinting at any sense of leisure or loitering in this part of the forest any more than his friends were dragging him into. Sarah, on the other hand, pressed onwards, looking around absently as I trailed behind them, weary and questioning my own sanity.
 
-In the time it's taken me to write this, I've already been in an older abandoned part of the city. The moon is full but like a normal moon. The waves are so much louder now. I can feel the adrenalin going through me. Thank god that auto-correct is helping me keep this straight.
 
-Okay, I’ve turned into another alley and in front of me is the source of the waves. I don’t understand how there is an ocean here but the waves are lapping at the asphalt and trash cans. I can stare ahead and see at the end of the alley it opening up to a beautiful beach. There is a shadow there of a woman. She’s singing. Oh, it is such a beautiful sound. I can't make her out, her outline is only illuminated by the moon. She's has her hands out towards me and beckons me to come to her.
 
-Do you hear that? The waves are behind me now. How the hell am I on the beach?
+Did you hear that?
 
-She’s closer now. I can smell her. She smells beautiful and ancient. She moves like a predator but she’s not threatening me. She keeps beckoning me towards the shores. I know I shouldn’t but I need to know what’s going on.
 
-Dammit. I just looked at the signal on my phone. One bar and it’s barely holding on. I’m going to post this now and hope I get a chance to edit this later and update you.
 
-*EDIT: George is mine now.*
+"...What?" Sarah uttered, glimpsing back at me with a mix of weariness and a skeptic dread that one would expect when traversing a forest with only 2 other people.
+
+
+
+"Nothing..." I say, nodding off, back to pushing on begrudgingly.
+
+
+
+...We spent the next 10 minutes or so in silence, until, finally, I heard the noise again.
+
+
+
+Did you hear that?
+
+
+
+This time, I heard the noise again. But it was in Sarah's voice. I look in front of me, but see only forest ahead. Flabbergasted, I turn back, seeing... me. Yatima. 
+
+
+
+Yatima looked at me with his misty green eyes appearing almost a smokey gray from the meager amount of light that illuminated us from the lantern that he was holding. 
+
+
+
+Those weren't my eyes.
+
+
+
+Did you hear that?
+
+
+
+"What?" Hiroki chimed, his eyebrow slightly arching upwards as he looked back at Yatima, whilst I glanced back at Yatima, with my eyes glazed over.
+
+
+
+Confused, I look at Hiroki. His head turns rigidly, steering to face me. 
+
+His eyes were a misty green, too.
+
+
+
+Wait.
+
+Those are my eyes.
+
+
+
+"Can you see that?" Hiroki utters, his dried, plump lips bending into a long, unwinding smile. 
+
+
+
+Click. Click. Click.
+
+
+
+My neck freezes, as I dare not look behind me. I could hear it now.
+
+"Can you hear that?"
+
+I slowly peer behind me, not daring to act out of place.
+
+Yatima.
+
+He had no eyes.
