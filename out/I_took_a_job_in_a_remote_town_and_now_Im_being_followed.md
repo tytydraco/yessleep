@@ -79,3 +79,5 @@ That was two weeks ago. I wouldn’t be here if I had any other options, but I h
 Because I’ve seen that horse again. Every night since I moved here, it appears. At first, it was just a distant glow, those same amber eyes shining in the darkness, far off in the distance. But with each passing night, it gets closer. I’m terrified of what will happen when it finally reaches my house.
 
 Please, I need urgent advice, I don't think it'll be too long now.
+
+[Temporary link to update](https://www.reddit.com/u/Andy3103/s/JgIBgqaLIg)
