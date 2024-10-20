@@ -424,6 +424,15 @@ It was too.
 
 
 As it realized it had lost my leg it turned to grab me again. In that moment I mustered all my strength and kicked it as hard as I could with my right foot. It clicked loudly as it tumbled forward, already bent out of balance. I heard it fall hard on the stone. It shrieked with pain as it fell down the stairs. Within a few moments the sound of it had faded from my ears. I lay still. My body felt cold. Could I have lost too much blood? Was I going to die? My entire left leg was now numb. I slowly shambled onto my right leg. I shut the pantry door. Then out a strange instinct I knocked on it three times. As I did I forced my eyes closed and willed the doorway locked. The stairway gone. Then I opened the panty door again. I yelled with delight when I saw that there was very normal almost out of date food in that pantry.
+
+
+
+
+
+
+
+
+
 The cops are terrified. And they have a new ridiculous theory. They now believe a madman was responsible for my initial assault and the brutal murder of Ben. That he had followed me to the hospital to finish me off and was then also responsible for the carnage last night.
 
 
@@ -431,9 +440,11 @@ The cops are terrified. And they have a new ridiculous theory. They now believe 
 
 
 
-I was found unconscious in front of the pantry by the first nurse from the morning shift. She also found the bodies of everyone else. It had been absolute pandemonium. There were cops and forensic workers everywhere. I even saw a couple of them puke their guts out. I can\t blame them. There was so much blood. So many bits and pieces of human limbs that needed clearing. It was unbelievable. This creature had killed everyone. Every nurse, patient and doctor on that floor had been torn to pieces. Among those dead were Dr Stern and many nurses who had helped me. I tried really hard not to think about them. I had really liked Dr Stern. It must have been the sleeping pill. I was way too out of it to notice anything. What upsets me more than all the death is that the thing hadn’t killed me like the others. No. It had wanted to take me away. To take me to its home? Its dimension? I really have no idea. I shiver at the thought. I’m still in the hospital but the cops have left someone behind to watch over me. They are looking for some psychopathic killer. They’re wrong of course, but at least we agree there is something dangerous after me. I’ll take their help. And once my leg has healed I’m going to get far away from here.
+
+I was found unconscious in front of the pantry by the first nurse from the morning shift. She also found the bodies of everyone else. It had been absolute pandemonium. There were cops and forensic workers everywhere. I even saw a couple of them puke their guts out. I can't blame them. There was so much blood. So many bits and pieces of human limbs that needed clearing. It was unbelievable. This creature had killed everyone. Every nurse, patient and doctor on that floor had been torn to pieces. Among those dead were Dr Stern and many nurses who had helped me. I tried really hard not to think about them. I had really liked Dr Stern. It must have been the sleeping pill. I was way too out of it to notice anything. What upsets me more than all the death is that the thing hadn’t killed me like the others. No. It had wanted to take me away. To take me to its home? Its dimension? I really have no idea. I shiver at the thought. I’m still in the hospital but the cops have left someone behind to watch over me. They are looking for some psychopathic killer. They’re wrong of course, but at least we agree there is something dangerous after me. I’ll take their help. And once my leg has healed I’m going to get far away from here.
 
  
+
 
  
 
