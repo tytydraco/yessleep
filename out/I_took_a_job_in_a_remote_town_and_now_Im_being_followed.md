@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/J8BiU6hBvC) [Part 2](https://www.reddit.com/u/Andy3103/s/JiNNTsW0hZ)
+
 First of all, I’d like to say that I’ve never really been a believer in the supernatural. Sure, I enjoy spooky stories, especially around this time of year, and I’ve definitely gone down a few rabbit holes exploring weird phenomena, but I wouldn’t really call myself a true believer.
 
 I’ve asked for advice on this topic before, not here but on other forums, but nothing has ever worked. So, I figured that there’s no harm in following some people’s advice and sharing my story here, even though I’m not really sure what to expect from this.
@@ -78,6 +80,4 @@ That was two weeks ago. I wouldn’t be here if I had any other options, but I h
 
 Because I’ve seen that horse again. Every night since I moved here, it appears. At first, it was just a distant glow, those same amber eyes shining in the darkness, far off in the distance. But with each passing night, it gets closer. I’m terrified of what will happen when it finally reaches my house.
 
-Please, I need urgent advice, I don't think it'll be too long now.
-
-[Temporary link to update](https://www.reddit.com/u/Andy3103/s/JgIBgqaLIg)
+Please, I need urgent advice, I don't think it'll be too long  before it reaches my house.
