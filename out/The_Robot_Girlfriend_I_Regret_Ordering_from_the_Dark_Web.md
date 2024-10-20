@@ -159,13 +159,11 @@ I stared down at the plate, thinking for a moment. “Sometimes. It would be nic
 
 Maive nodded, her expression unreadable.
 
-As the day went on, I continued to use Maive for household chores and comforting. The neighbors dog had not once interrupted the day; along with some amazing foods Maive was able to make up for my limited amount of food.
-
 As the day passed, I kept Maive busy with household tasks and seeking comfort from her presence. It was strange but a relief-there was no sign of the neighbor's dog barking all day. Maive even managed to whip up some impressive meals despite the limited food in the house.
 
 When night fell, I crawled into bed, Maive lying next to me. Her arms wrapped tightly around me, and I felt like a baby being cradled to sleep. I drifted off, relaxed and safe. But in the dead night-around 3 or 4 a.m.-I woke up suddenly. I wasn't sure what had stirred me, but the first thing I noticed was that Maive wasn't beside me anymore.
 
-I got up and walked through my bedroom, then the rest of the house, calling her name No response. With each unanswered my confusion turned to fear. Where could she have gone? Did she malfunction?
+I got up and walked through my bedroom, then the rest of the house, calling her name. No response. With each unanswered my confusion turned to fear. Where could she have gone? Did she malfunction?
 
 I kept searching until my eyes landed on the attic. It seemed unlikely she'd be there, but I had to check. I grabbed a stool, pulled the attic cord, and as the stairs dropped, something fell from above, hitting me square in the face. The weight knocked me backward, and whatever it was hit the floor with a thud. It was too dark to see clearly, but I felt fur and warmth seeping through my fingers. Something was leaking.
 
