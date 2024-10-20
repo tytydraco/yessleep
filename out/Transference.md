@@ -104,7 +104,7 @@ The dean stared at me for a moment, realizing my confusion. 
 
 “We’ve been watching Sabian for a long time,” he said. “Trust me when I say he’s not entirely the character he portrays. He’s garnered quite the reputation among the scientific community as someone that’s... well, let’s just say unhinged.” 
 
-“I know his reputation,” I replied. “After everything he’s done to advance this field, after everything he’s brought to Northridge, you’re just going to throw him aside?” 
+“After everything he’s done to advance this field, after everything he’s brought to Northridge?" I replied. "You’re just going to throw him aside?” 
 
 The dean leaned in across his mahogany desk and said, “There is so much you don’t know, and although Sabian was instrumental in the institute's financial stability, money isn’t everything. He went against our standards one too many times, and we won’t have that. Not from him, not from you.” 
 
