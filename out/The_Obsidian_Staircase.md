@@ -1,28 +1,28 @@
 I was fetching myself a glass of water in the middle of the night when whatever had eviscerated my roommate attacked me. It chased me through the flat. Fear, like liquid fire, coursed through my veins. I was gibbering. Shrieking. I’d been so desperate to escape I’d leapt through my living room window. Luckily, in the aftermath I was found by a neighbour. I ended up in the hospital soon. 
 
- 
+ 
 
 
 
 
 
-When I’d first returned to my senses all I could see were those dark claws slashing. That wriggling, monstrous torso. That rubbery human face. An insectoid body. Human limbs and arthropod claws fused together into some horrendous amalgam. 
+When I’d first returned to my senses all I could see were those dark claws slashing. That wriggling, monstrous torso. That rubbery human face. An insectoid body. Human limbs and arthropod claws fused together into some horrendous amalgam. 
 
- 
-
-
-
-
-I felt nausea boil in my stomach. 
-
- 
+ 
 
 
 
 
-I thrashed and yelled. 
+I felt nausea boil in my stomach. 
 
- 
+ 
+
+
+
+
+I thrashed and yelled. 
+
+ 
 
 
 
@@ -60,17 +60,17 @@ You were unconscious until earlier this afternoon. You were very, *very* lucky y
 
 
 
-The memory of seeing Ben’s corpse flashed through my brain. 
+The memory of seeing Ben’s corpse flashed through my brain. 
 
- 
-
-
+ 
 
 
 
-The blood. The viscera. The gnawed bones.
 
- 
+
+The blood. The viscera. The gnawed bones.
+
+ 
 
 
 
@@ -90,14 +90,14 @@ My breathing quickened. I felt my limbs shake with horror. I winced in pain. I w
 
 
 
-Dr Stern continued to eye me. “You know, we have therapists you could chat with before you leave. I’d highly recommend it actually.” I looked back up at him. My annoyance completely gone. All I could feel now was horror and sadness. Ben had not been my favorite person but he’d not deserved to die like that.  “Maybe I will. But not right now. I think I should just rest. Could you give me something to help me sleep?” Dr Stern agreed and left me the details of a local therapist he recommended. Before he left my room he turned to tell me, “and the cops want to interview you tomorrow morning. Just so you now. It’s just to get your side of things.” Then he smiled. I couldn’t help but smile back; his was so genuine. “Okay, well I’m off home to the missus. Take that pill there if you need help sleeping. Hope you feel better.” Then he was gone. 
+Dr Stern continued to eye me. “You know, we have therapists you could chat with before you leave. I’d highly recommend it actually.” I looked back up at him. My annoyance completely gone. All I could feel now was horror and sadness. Ben had not been my favorite person but he’d not deserved to die like that.  “Maybe I will. But not right now. I think I should just rest. Could you give me something to help me sleep?” Dr Stern agreed and left me the details of a local therapist he recommended. Before he left my room he turned to tell me, “and the cops want to interview you tomorrow morning. Just so you now. It’s just to get your side of things.” Then he smiled. I couldn’t help but smile back; his was so genuine. “Okay, well I’m off home to the missus. Take that pill there if you need help sleeping. Hope you feel better.” Then he was gone. 
 
- 
-
-
+ 
 
 
-I was alone for the first time since I had awoken. My brain was still groggy from all the sedatives and I finally got a good look at my room. It was relatively nice for what must have been a public hospital. Despite having an ensuite bathroom my room was quite small. My room door was within arms-reach of my bed. I turned my head and tried to sit up slightly. I yelled in pain as my stitches pulled in my side. “Ahhgh” I grunted.  
+
+
+I was alone for the first time since I had awoken. My brain was still groggy from all the sedatives and I finally got a good look at my room. It was relatively nice for what must have been a public hospital. Despite having an ensuite bathroom my room was quite small. My room door was within arms-reach of my bed. I turned my head and tried to sit up slightly. I yelled in pain as my stitches pulled in my side. “Ahhgh” I grunted.  
 
 
 
@@ -114,15 +114,15 @@ I then realized they’d tied some kind of gauze and brace around my stomach. I 
 
 As I lay in bed I remembered that’s exactly what had happened. I drank a bunch of water and nibbled on some cheese biscuits they’d left me for my tea. Then I took my blue sleeping pill and got myself as comfy as one could get in those scratchy hospital linens. As I lay in the dark of my room I felt an anxious sweat bead my forehead. I played the events of the last twenty-four hours over and over in my brain.
 
- 
+ 
 
 
 
 
 
-I had awoken in the early hours of that fateful morning. It had been a Sunday. I felt that horrendous sticky, sweaty heat one gets from drinking way too much alcohol. I had hot coals in my throat from all the shots and cigarettes I’d chocked down. Ben and I had gone out with some friends. It had been pretty wild. 
+I had awoken in the early hours of that fateful morning. It had been a Sunday. I felt that horrendous sticky, sweaty heat one gets from drinking way too much alcohol. I had hot coals in my throat from all the shots and cigarettes I’d chocked down. Ben and I had gone out with some friends. It had been pretty wild. 
 
- 
+ 
 
 
 
@@ -136,45 +136,45 @@ I don’t remember how I got home that night. All I remember was waking up with 
 
 
 
-There on the floor, just beneath the fridge, was some kind of goo. It was translucent but had a slight blue tint. It smelled sweet but also had strange sour note. Like decaying honey. My forehead was a knot of confusion. Then I noticed the fridge was ajar. It was an old fridge, one of those models with rounded edges from the 1940s. The kind that was made before planned obsolescence, so it just never needed to be replaced. It was dark blue with a silver outline. It always reminded me of my uncle’s prized blue Cadillac series 61 sedan. I looked up and saw traces of the same goo on the sides of the fridge door as I pulled it open. 
+There on the floor, just beneath the fridge, was some kind of goo. It was translucent but had a slight blue tint. It smelled sweet but also had strange sour note. Like decaying honey. My forehead was a knot of confusion. Then I noticed the fridge was ajar. It was an old fridge, one of those models with rounded edges from the 1940s. The kind that was made before planned obsolescence, so it just never needed to be replaced. It was dark blue with a silver outline. It always reminded me of my uncle’s prized blue Cadillac series 61 sedan. I looked up and saw traces of the same goo on the sides of the fridge door as I pulled it open. 
 
- 
-
-
-
-
-
-When I saw what was on the other side I simply gaped. 
-
- 
+ 
 
 
 
 
-My mouth hung open in disbelief. 
 
- 
+When I saw what was on the other side I simply gaped. 
 
-
-
-
-My eyes stared unblinking. Within the fridge. Well, there was no fridge. The inside of the fridge was completely gone. No light. No  half rotten veggies. No left-over Chinese food. No. In place of all these things was a worn stone staircase. Cut from a shiny, black stone; I believe it resembled obsidian. The maw of the doorway yawned as cold as the arctic. I felt an icy wind blow softly from within. I shivered. Small icicles had formed on the circular roof which sat above the darkened staircase. I gaped and slowly studied the impossible staircase. The light of my phone cast long shadows. The stairs were coated with a thin film of that same slime and seemed to go on forever down. Deeper and deeper until darkness swallowed them up below. “No fucking way. Nope. Not today.” I said stupidly and slammed the fridge door shut. 
-
- 
+ 
 
 
 
 
-My heart was beating hard. I felt confused and sick. I spun around when suddenly I heard something scuttle in the corridor. I then noticed, using my phone’s flashlight, that a line of that goo ran from the fridge all the way through the kitchen into  Ben’s room. I saw through the kitchen doorway that his bedroom door was open. 
+My mouth hung open in disbelief. 
 
- 
-
-
+ 
 
 
-I should have just run at that moment. I should have run and never looked back. 
 
- 
+
+My eyes stared unblinking. Within the fridge. Well, there was no fridge. The inside of the fridge was completely gone. No light. No  half rotten veggies. No left-over Chinese food. No. In place of all these things was a worn stone staircase. Cut from a shiny, black stone; I believe it resembled obsidian. The maw of the doorway yawned as cold as the arctic. I felt an icy wind blow softly from within. I shivered. Small icicles had formed on the circular roof which sat above the darkened staircase. I gaped and slowly studied the impossible staircase. The light of my phone cast long shadows. The stairs were coated with a thin film of that same slime and seemed to go on forever down. Deeper and deeper until darkness swallowed them up below. “No fucking way. Nope. Not today.” I said stupidly and slammed the fridge door shut. 
+
+ 
+
+
+
+
+My heart was beating hard. I felt confused and sick. I spun around when suddenly I heard something scuttle in the corridor. I then noticed, using my phone’s flashlight, that a line of that goo ran from the fridge all the way through the kitchen into  Ben’s room. I saw through the kitchen doorway that his bedroom door was open. 
+
+ 
+
+
+
+
+I should have just run at that moment. I should have run and never looked back. 
+
+ 
 
 
 
@@ -215,49 +215,49 @@ Those claws lashed out at me. What felt like hot blades sliced through my chest 
 
 
 
-I felt something sticky cover my wounds. It was that slime. I looked up again. That whole creature was covered in blue slime! I felt bile rise in my throat as I sprinted away screaming a primal scream of pain and terror that did not sound human. 
+I felt something sticky cover my wounds. It was that slime. I looked up again. That whole creature was covered in blue slime! I felt bile rise in my throat as I sprinted away screaming a primal scream of pain and terror that did not sound human. 
 
- 
-
-
-
-
-
-
-The thing chased me. It came scuttling on its arthropod legs, slashing at me; clipping my ankles once or twice. My yells and its clicking and trilling filled the darkened flat. I wondered if perhaps a neighbor had heard the noise? Could the police be coming? 
-
- 
+ 
 
 
 
 
 
-As I entered the living room I realized there was no way I was going to have time to unlock and leave my flat through the front door. 
 
- 
+The thing chased me. It came scuttling on its arthropod legs, slashing at me; clipping my ankles once or twice. My yells and its clicking and trilling filled the darkened flat. I wondered if perhaps a neighbor had heard the noise? Could the police be coming? 
 
-
-
-
-
-I knew I didn’t have time to call someone. And then *wait* for them. 
-
- 
+ 
 
 
 
 
-I needed to get out now. Right now! 
 
- 
+As I entered the living room I realized there was no way I was going to have time to unlock and leave my flat through the front door. 
 
- 
+ 
 
- 
 
-In desperation I picked up the nearest chair and hurled it at the large window. The chair smashed clean through with a loud crash. I prayed the single storey fall wouldn’t be fatal and leapt right through. I remembered nothing else until I woke up here. 
 
- 
+
+
+I knew I didn’t have time to call someone. And then *wait* for them. 
+
+ 
+
+
+
+
+I needed to get out now. Right now! 
+
+ 
+
+ 
+
+ 
+
+In desperation I picked up the nearest chair and hurled it at the large window. The chair smashed clean through with a loud crash. I prayed the single storey fall wouldn’t be fatal and leapt right through. I remembered nothing else until I woke up here. 
+
+ 
 
 
 
@@ -265,16 +265,16 @@ In desperation I picked up the nearest chair and hurled it at the large window. 
 
 I kept my eyes closed as I lay in the hospital bed. My heart was hammering in my chest as I remembered how that thing had nearly got me. Where had it come from? Were there more staircases like that nearby? I shivered at the thought. By around nine o’clock that evening the nurses made one last visit to collect the left-over food I had for tea. They gave me my evening medication and then left.
 
- 
+ 
 
 
 
 
 
 
-I went over those memories again and again. I was deciding what I would tell the cops and what I would omit. I would stick with the wild animal story. I mean, how a wild animal could just appear in a flat in the middle of a city, kill one person and maim another, then just disappear completely? It’s crazy to me. But I’m also not interested in sounding like a crazy person to the cops. If I told anyone about the fridge. About the creature. It’s true nature. Well, I would end up in some terrible mental institution. So, I’ll just stick with whatever crazy story they have. Agreeing with their madness is better than drawing attention because of my own. 
+I went over those memories again and again. I was deciding what I would tell the cops and what I would omit. I would stick with the wild animal story. I mean, how a wild animal could just appear in a flat in the middle of a city, kill one person and maim another, then just disappear completely? It’s crazy to me. But I’m also not interested in sounding like a crazy person to the cops. If I told anyone about the fridge. About the creature. It’s true nature. Well, I would end up in some terrible mental institution. So, I’ll just stick with whatever crazy story they have. Agreeing with their madness is better than drawing attention because of my own. 
 
- 
+ 
 
 
 
@@ -311,7 +311,7 @@ My breathing calmed.
 
 Soon I was fast asleep.
 
- 
+ 
 
 
 
@@ -351,7 +351,7 @@ The pain was excruciating. I yelled as I pulled myself to a sitting position. Bu
 
 It pressed a large slimy, claw against my cheek. Then it stood back and used another claw to grab my left ankle. I felt all the bones therein snap. The pain I felt cannot be fully described. It was like someone had spilled liquid fire on my leg. I screamed brutally; with full force.
 
- 
+ 
 
 
 
@@ -366,16 +366,16 @@ I think I may have blacked out because the next thing I remember I was on the co
 
 
 
-The thing winced at the sudden light and reached up and smashed it so that the flickering ceased immediately. It lurched forward and pushed the door open. Inside was a small communal space. It must be where the hospital staff come to take breaks and make coffee. Of all the pieces of furniture within this room the one the monster cared about most was the door of a large pantry. 
+The thing winced at the sudden light and reached up and smashed it so that the flickering ceased immediately. It lurched forward and pushed the door open. Inside was a small communal space. It must be where the hospital staff come to take breaks and make coffee. Of all the pieces of furniture within this room the one the monster cared about most was the door of a large pantry. 
 
- 
-
-
+ 
 
 
-A chill spread through me. 
 
- 
+
+A chill spread through me. 
+
+ 
 
 
 
@@ -388,39 +388,39 @@ Another doorway? It wanted to take me? As the terrifying thought ripped through 
 
 
 
-All I could hear was my heavy breathing and the soft clicks of the monster. Then it pulled the pantry door open slowly. I knew the chances there would be no staircase was zero, but I still hoped it would be filled with normal food like a normal pantry. But of course there was the black staircase, gaping up at us. I moaned in horror and tried to kick at the thing. Again it was useless. Then the thing bent forward and suddenly I felt its grip on my leg loosen. Then my leg fell and hit the floor. I was momentarily stunned. It was too. 
+All I could hear was my heavy breathing and the soft clicks of the monster. Then it pulled the pantry door open slowly. I knew the chances there would be no staircase was zero, but I still hoped it would be filled with normal food like a normal pantry. But of course there was the black staircase, gaping up at us. I moaned in horror and tried to kick at the thing. Again it was useless. Then the thing bent forward and suddenly I felt its grip on my leg loosen. Then my leg fell and hit the floor. I was momentarily stunned. It was too. 
 
- 
-
-
-
-
-
-As it realized it had lost my leg it turned to grab me again. I mustered all my strength and kicked the thing as hard as I could. It screamed as it tumbled forward, already bent out of balance. I heard it continue to click, shriek and trill menacingly as it fell down those stairs.  As the sound of it faded from my ears I lay still. My body felt cold. Could I have lost too much blood? Was I going to die? My entire left leg was now numb. I slowly shambled onto my right leg. I shut the pantry door. Then out a strange instinct I knocked on it three times. As I did I forced my eyes closed and willed the doorway locked. The stairway gone. Then I opened the panty door again. I yelled with delight when I saw that there was very normal almost out of date food in that pantry. I was really overjoyed. 
-
- 
+ 
 
 
 
 
 
-The cops have a new ridiculous theory. They now believe a madman was responsible for my initial assault and the brutal murder of Ben. That he had followed me to the hospital to finish me off and was then also responsible for the assaults last night. 
+As it realized it had lost my leg it turned to grab me again. I mustered all my strength and kicked the thing as hard as I could. It screamed as it tumbled forward, already bent out of balance. I heard it continue to click, shriek and trill menacingly as it fell down those stairs.  As the sound of it faded from my ears I lay still. My body felt cold. Could I have lost too much blood? Was I going to die? My entire left leg was now numb. I slowly shambled onto my right leg. I shut the pantry door. Then out a strange instinct I knocked on it three times. As I did I forced my eyes closed and willed the doorway locked. The stairway gone. Then I opened the panty door again. I yelled with delight when I saw that there was very normal almost out of date food in that pantry. I was really overjoyed. 
 
- 
+ 
+
+
+
+
+
+The cops have a new ridiculous theory. They now believe a madman was responsible for my initial assault and the brutal murder of Ben. That he had followed me to the hospital to finish me off and was then also responsible for the assaults last night. 
+
+ 
 
 
 
 
 I was found unconscious in front of the pantry by the first nurse from the morning shift. She also found the bodies of everyone else. This thing had killed everyone. Every nurse, patient and doctor on that floor had been torn to pieces. Among these dead were Dr Stern and many nurses who had helped me. I tried really hard not to think about them. I had really liked Dr Stern. I must have been too out of it to notice. What upsets me more than all the death is that the thing hadn’t killed me like the others. No. It had wanted to take me away. To take me to its home? Its dimension? I really have no idea. I shiver at the thought. I’m still in the hospital but the cops have left someone behind go watch over me. They are looking for some psychopathic killer. They’re wrong of course, but at least we agree there is something dangerous after me. I’ll take their help. And once my leg has healed I’m going to get far away from here.
 
- 
+ 
 
- 
+ 
 
 While I lie here in my hospital bed I still wonder: have I killed that thing? Or just pissed it off? Would it be back? I guess, only time will tell.
 
- 
+ 
 
- 
+ 
 
- 
+ 
