@@ -12,7 +12,7 @@ I was about to ask her what was really going on, when she asked the first questi
 
 “Well, I didn't find it, it's my phone, I dropped it down a small flight of stairs near my work. It broke of course and after breaking it started doing this, but what exactly.....” She cut me off again and started in with another barrage of questions.
 
-“Are you able to use it to send any message or call? Do any other functions remain? How many calls have you received? How many message from this M person?” I was starting to get frustrated,
+“Are you able to use it to send any message or call? Do any other functions remain? How many calls have you received? How many messages from this M person?” I was starting to get frustrated,
 
 “Hey I thought you were going to be telling me what happened? I already told you what I know, I don’t know how this works. I have been receiving these calls for a few days and in each case, there has been a call for help to emergency services that somehow comes to my phone. It is always about something exactly twenty-four hours before it happens and I have tried to stop almost all of them. Now if you don’t mind, would you tell me who the hell you think M is?” She looked down at her papers and back at me with a plaintive sigh as if she was not sure if she should humor me in things I would not understand. I tried not to take offense to it, but she was getting more and more impatient with me as we went on.
 
