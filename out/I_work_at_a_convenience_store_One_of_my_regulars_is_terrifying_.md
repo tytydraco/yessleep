@@ -28,7 +28,7 @@ I had just finished sweeping the floors when the bell on the door jingled, signa
 
 “Sure thing.” 
 
-She handed me a twenty and two fives. I could feel her looking me up and down, but I ignored it as a rang her up. 
+She handed me a twenty and two fives. I could feel her looking me up and down, but I ignored it as I rang her up. 
 
 “What happened to you, if you don’t mind me asking?” She said finally, as if she’d mustered up the courage. She pulled the hood of her sweatshirt up over her greasy hair as if she had to hide after giving in to her curiosity.  
 
@@ -181,7 +181,7 @@ As soon as I saw him disappear between the trees, I turned off the computer and 
 
 “I’ll work double hours,” I mumbled, my face growing hot from my very apparent desperation. I hated to beg (or to ask for anything at all, really) but I felt that it was necessary. I was on my last straw. 
 
-Jodie signed a pice of paper aggressively, as if she were trying to rip through it with the tip of her pen, and then brought the back end to her lips. Her unwashed hair, frizzy from application upon application of box black hair dye, was tied back in a ponytail, which made her look like she’d gotten work done. Maybe that was the intention. 
+Jodie signed a piece of paper aggressively, as if she were trying to rip through it with the tip of her pen, and then brought the back end to her lips. Her unwashed hair, frizzy from application upon application of box black hair dye, was tied back in a ponytail, which made her look like she’d gotten work done. Maybe that was the intention. 
 
 “Noah…” She said it in a long breath, like my name was just the byproduct of an exasperated sigh. She rubbed at her temples. “You know I would love to help you, honey, but this is what you signed up for. Besides, I can’t afford to pay you overtime.” 
 
