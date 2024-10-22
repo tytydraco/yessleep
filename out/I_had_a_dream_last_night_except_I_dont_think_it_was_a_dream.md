@@ -1,7 +1,3 @@
-I had a weird dream last night...
-
-Or at least I think it was a dream.
-
 It didn't feel like one, looking back at it. Maybe it was from my lack of rest, or it could’ve been influenced by the podcast I was listening to, Creepcast lol. I fell asleep earlier than usual, around 7pm, but that was because the night before I didn’t go to bed at all. Me and sleep tend to have a love/hate relationship.
 
 Anyway, about that dream. I remember falling asleep at my desk that night, I stream on weekends and was planning on doing a surprise stream since it was Monday and I was a bit bored. After I had booted up my OBS, I needed to decide on which game to play. My choices were alien isolation and the crooked man. I remember closing my eyes to think for a minute. Obviously I never made it to stream, because I ended up passing out crisscross in my chair.
