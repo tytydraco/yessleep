@@ -128,9 +128,13 @@ I clutched Liam close, and squatted down, like I could fully shield him.
 
 I wasn’t a good mother figure. I didn’t read with Liam, I had no idea if he knew his colors, and he’d just spoken to me for the first time. I didn’t know how to take care of anyone besides myself, and I couldn’t keep him safe. 
 
+I realized something, as I held him. These creatures had never bothered my mother, and my aunt had died from a car crash. In all likelihood, if I left Liam, they'd leave me alone, too. They only wanted him.
+
 Back when I was younger, I’d had a neighbor who’d looked out for me when Mom was too hammered to know, or care, where her daughter was.  The neighbor had told me stories, about how, in the Bible, when parents sinned, it was held against the kids. But then Jesus had set people straight, because kids weren’t supposed to be blamed for the their parents sins, it’s just that they were often a casualty. Like me and my bad luck inheritance, like Liam with his inherited demons. Neither of us had ever done anything wrong, and yet we were still doomed by the narrative. 
 
-“I’m so sorry.” I whispered against the back of his head, and he didn’t answer. 
+But I wasn't going to sacrifice him.
+
+“I’m so sorry I can't protect you.” I whispered against the back of his head, and he didn’t answer. 
 
 I don’t know if you believe in miracles or not. Frankly, I don’t care. What happened next was a miracle, and nothing else.
 
@@ -155,4 +159,3 @@ I guess I’m writing this to say, even if you feel doomed, you’re not. You mi
 Good luck. 
 
 And if you see footprints behind you? Run.
-
