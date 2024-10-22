@@ -14,7 +14,7 @@ One night, after a particularly long day at work, I found myself lying awake aga
 
 I started to rationalize it. The building was old, after all. Maybe it was something in the walls—pipes, or the ventilation system. I convinced myself it was something explainable, even though I couldn’t quite pinpoint where it was coming from. I told myself it didn’t matter. I just needed to adjust to the quirks of the place. Besides, there was no one else around to notice it, and none of my neighbors had mentioned anything strange.
 
-But then, one evening, something happened that I couldn’t ignore. I had been home for a few hours, scrolling aimlessly on my phone, the faint hum of the TV in the background. The apartment felt cozy, almost comforting, and I was beginning to feel like I was finally settling in. That’s when I heard it again—that same rhythmic sound. But this time, it was louder, and for the first time, it seemed to follow me.
+But then, one evening, something happened that I couldn’t ignore. I had been home for a few hours, scrolling aimlessly on my phone, the faint hum of the TV in the background. The apartment felt cozy, almost comforting, and I was beginning to feel like I was finally settling in. That’s when I heard it again—that same rhythmic sound. But this time, it was louder, and for the firsttime, it seemed to follow me.
 
 I got up from the couch, thinking maybe I could track it down. As I walked from the living room to the kitchen, the sound seemed to shift. It was still faint, but now it was more noticeable, like someone softly exhaling just behind me. I paused, turning around, expecting to find something, anything that could explain it. But there was nothing. The apartment was empty, just as it had always been.
 
@@ -34,7 +34,6 @@ I turned off the stove, grabbed my phone, and stepped outside for some air. For 
 
 And that’s when I decided I had to find out what was really going on in this apartment.
 
-  
 It wasn’t like me to get so spooked. I wasn’t the type to believe in ghosts or paranormal nonsense, and I’d never been prone to anxiety or overthinking things. But ever since that night when the sound seemed to follow me from room to room, I couldn’t shake the feeling that something was off in the apartment. Rationally, I kept telling myself there was an explanation. Every old building had its quirks, right? Maybe it was the ventilation system, or maybe the walls were thinner than I thought, and I was just hearing the neighbors’ movements somehow.
 
 But it wasn’t just the sound itself—it was the feeling that came with it. A sensation that wasn’t easy to describe, like being observed when you know no one else is there. I started wondering if my mind was playing tricks on me, but the sound was so consistent, so steady. It didn’t feel like something I was imagining.
