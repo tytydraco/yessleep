@@ -32,7 +32,7 @@ He didn’t stop. His growl deepened, a low rumble that sent a chill down my spi
 
 Before I could say another word, Axel lunged.
 
-For a split second, I felt an icy stab of fear. My heart lurched as I realized I might be next. My hand flew to my gun, fingers wrapping around the grip, but I hesitated. It happened so fast. One moment, Axel was sitting at my feet; the next, he was on Father O'Brien, teeth bared, sinking into the man’s throat. The sound. God, the sound. That wet, horrible gurgle as blood sprayed across the polished wood desk. O'Brien's arms flailed, but it was over in seconds.
+I felt an icy stab of fear. My heart lurched as I realized I might be next. My hand flew to my gun, fingers wrapping around the grip, but I hesitated. It happened so fast. One moment, Axel was sitting at my feet; the next, he was on Father O'Brien, teeth bared, sinking into the man’s throat. The sound. God, the sound. That wet, horrible gurgle as blood sprayed across the polished wood desk. O'Brien's arms flailed, but it was over in seconds.
 
 “Axel, stop! Heel!” I shouted, but Axel wouldn’t listen. His eyes were wild, and for a terrifying moment, I thought I might have to pull the trigger. He wasn’t my partner in that moment. He was a beast, a possessed predator, completely overtaken by some primal instinct I had never seen in him before.
 
