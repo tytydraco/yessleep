@@ -76,5 +76,4 @@ They sold Cooper the next day.
 
 I was devastated for months.
 
-  
-just posted part 2 [mixed\_mail](https://www.reddit.com/user/MessHumble1452/comments/1g7e2md/mixed_mail/). 
+EDIT : just posted part 2 [mixed\_mail](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/).
