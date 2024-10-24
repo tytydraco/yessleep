@@ -142,7 +142,7 @@
 
 *They dragged them off. And they…changed them. They somehow turned them into more of their own.*
 
-*And they have done the same to those of our team who they took. Samir, Richter, and Soren. That’s why the screams we heard always came back. Because even though they’re not the same men anymore; they’re not even human anymore, their souls have long been stripped away, leaving what I can only describe as demons spewing from the mouth of Hell itself to wear their bodies, they still retain enough of their intelligence to know how to lure others to them. Like a duck hunter with a call to imitate their own kind.*
+*And they have done the same to those of our team who they took. Samir, Richter, and Soren. That’s why the screams we heard always came back. Because even though they’re not the same men anymore; they’re not even human anymore, their souls have long been stripped away, leaving what I can only describe as demons spewing from the mouth of Hell itself to wear their bodies, they still retain enough of their intelligence to know how to lure others to them. Like a duck hunter with a call, to draw their prey out into the open.*
 
 *Talley says he wants to try and use one of the flare pistols to signal anyone who might be nearby. I haven’t the heart to tell him that even if anyone human is nearby, they know better than to approach this place. They know it is cursed.*
 
@@ -196,7 +196,7 @@
 
 *“What do we do now?” I didn’t answer her. Instead, I simply shook my head to indicate I didn’t know. I waited until she had lowered her head and closed her eyes. Then, before she could open them again, I swung the barrel of the shotgun and aimed.*
 
-*I find a sort of peace that she never knew what was about to happen.*
+*I find a sort of peace in that she never knew what was about to happen.*
 
 *And now, now that I am done writing my account of this all, I have but one thing left to do. I refused to let the demons change Blake into one of their own. As much as I know my soul is damned to Hell for the unforgivable sin I have committed against her, it was a mercy. And it is the same mercy I will give myself.*
 

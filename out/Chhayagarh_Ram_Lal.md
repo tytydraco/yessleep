@@ -367,3 +367,5 @@ Once he left, I decided to type this out before I got to reading. He was right a
 Too many people trust me now for me to not trust myself. I just hope it won’t be misplaced.
 
 And I sure hope I don’t run into that creepy bastard again. I’m not sure my bones can take another pounding like that, notwithstanding what my uncle [said](https://www.reddit.com/r/chhayagarh/).
+
+[I can't decide if this is worse.](https://www.reddit.com/r/nosleep/comments/1gaxhti/chhayagarh_the_backpacker/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
