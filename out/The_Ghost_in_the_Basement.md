@@ -1,5 +1,3 @@
-**This is a true story.**
-
 This is something happening to my friend, not me. She came to me for advice, but I'm at a loss after saging didn't work.
 
 It started all the way back in 2011. My friend, we'll call her M, was having a sleepover for her 8th birthday. I was there, along with a handful of other girls. Her house was quite small, so the only room that would accomodate all of us was their finished basement. The night went well, but when we woke up one of the other girls noticed her digital camera had a new picture on it.
