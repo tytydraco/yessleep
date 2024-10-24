@@ -202,7 +202,7 @@
 
 *I am going to follow the same path that Tarek took. I will jump from the cliff. I will face my own death at the hands of the rocks below, rather than the fate that has befallen the others. That is, beyond all shadow of a doubt, a fate worse than any death imaginable. I pray for my own soul. I pray for Blake’s. I pray for Talley’s. I even pray for Corrin’s; I hope that, like the soldier before him, it is thirst or hunger that takes him.*
 
-*Please. Heed the dire warning this journal contains. While there is treasure above you, do not attempt to climb and retrieve it. You will not live to spend a single bloody shilling of it. The beasts above have claimed it, and the fort for their own. Let it be, if you value not only your life, but your humanity and very soul. For if you don’t, you will find yourself facing a fate that is more horrific than written about in any tomb.*
+*Please. Heed the dire warning this journal contains. While there is treasure above you, do not attempt to climb and retrieve it. You will not live to spend a single bloody shilling of it. The beasts above have claimed it, and the fort for their own. Let it be, if you value not only your life, but your humanity and very soul. For if you don’t, you will find yourself facing a fate that is more horrific than written about in any tome.*
 
 *And please…if you find this, get word back to my sister in Maidenhead. Tell her I’m sorry.*
 

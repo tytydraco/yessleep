@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1ffhtyx/im_a_receptionist_at_a_plastic_surgeons_part_1/) [Part 3](https://www.reddit.com/r/nosleep/comments/1fyqy9y/im_a_receptionist_at_a_plastic_surgeons_part_3/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ffhtyx/im_a_receptionist_at_a_plastic_surgeons_part_1/) [Part 3](https://www.reddit.com/r/nosleep/comments/1fyqy9y/im_a_receptionist_at_a_plastic_surgeons_part_3/) [Part 4](https://www.reddit.com/r/nosleep/comments/1gavtja/im_a_receptionist_at_a_plastic_surgeons_finale/) 
 
 The next time I came into work after the situation with Dr. Harrison and Kara, I thought about whether I should accept the pay raise and continue working at the office. I unlocked the front door and entered the waiting room, still working things out in my mind when I slammed right into a person. I sputtered backward and looked up in confusion and horror since I was supposed to be the only one allowed in this early at the clinic. 
 
