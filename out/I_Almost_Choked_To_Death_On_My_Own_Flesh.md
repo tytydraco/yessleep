@@ -48,7 +48,7 @@ I went to the bathroom sink to try and cough it up. But it wouldnt budge. I trie
 
 The zits were starting to grow on the inside of my throat, and they were big, and getting even bigger. As I felt around the inside of my throat, I realized that there were more. Lots more. 
 
-Gagging, I pulled my finger from my throat, gagging and coughing. I tried to catch my breath, but I couldn't get enough air. I was being strangled from the inside. And it wouldnt be long before I couldnt breath at all. I started crying in fear, I didnt know what to do, I was dying. 
+Gagging, I pulled my finger from my throat, retching and coughing. I tried to catch my breath, but I couldn't get enough air. I was being strangled from the inside. And it wouldnt be long before I couldnt breath at all. I started crying in fear, I didnt know what to do, I was dying. 
 
 I had one last reckless hope in the back of my mind. A knife. I need a knife. I threw open the bathroom door and ran to the kitchen. I frantically rummaged in the drawer before my fingers curled around the handle of a small knife. I tried to breath out, but I found I couldnt. The pimples had grown into my nostrils, blocking off all air entirely. My throat was blocked off too.
 
