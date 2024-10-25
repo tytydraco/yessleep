@@ -158,7 +158,7 @@ My shoulders tensed. Responding to flirty gestures was never my strong suit. "Sh
 
 "Wank stains?" 
 
-"Mhmm. Total butt munches." 
+"Mmhm. Total butt munches." 
 
 I chuckled. "It's not your fault." 
 
