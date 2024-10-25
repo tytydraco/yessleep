@@ -1,3 +1,5 @@
+[previously](https://www.reddit.com/r/nosleep/s/ZaI78mycFr)
+
 Reaching over I opened my glove box. Fishing out a pack of battered and stale Marlboro Reds I placed one between my lips and lit it. 
 
 I inhaled the toxic chemical concoction. It soothed my nerves and tickled that part of my brain that craved nicotine despite more or less quitting a year prior. 
