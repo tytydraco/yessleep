@@ -268,4 +268,4 @@ In a matter of moments, the other alien turned around and took a step forward in
 
 I immediately switched off the telescope, put it back in the briefcase and ran towards my jeep. Buster followed after me. I decided to get to the nearest town and drove as fast as I could.
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1cx7qav/i_work_as_a_security_guard_in_a_secret_government/)
+[Part2](https://www.reddit.com/r/nosleep/comments/1gbs36t/i_work_as_a_security_guard_in_a_secret_government/)
