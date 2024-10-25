@@ -51,3 +51,5 @@ A small yellow envelope.
 I dropped the letters on the floor and ran back to his room. Shoving the blankets over my face.  I tried to convince myself that I didn’t and that I was just remembering wrong, but I never fully could.  I shuffled to my side and closed my eyes, repeating in my head, that I was wrong. As I finally fell asleep I could've sworn I could hear the trees whispering outside my window. '
 
 I didn’t tell Markus it was the same man from years before, and I never told him that that man had come inside at some point that night.
+
+Edit: Part three is now up [bike\_ride](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) 

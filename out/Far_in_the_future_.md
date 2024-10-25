@@ -1,7 +1,6 @@
 I walked to the master bedroom with a series of different unfinished thoughts, I felt some kind of strange anxiety that made me feel in danger, as if hundreds of enemies were conspiring to kill me.
 
-We report again that the last terminal is being flanked. This message completely clouded my vision for a few seconds. I had received it in my body thanks to Sombra, an intracerebral device connected to the nervous system and the left arm.
-At the time it had been implanted in the entire population as a promise to turn them into the next great improved generation of humanity.
+We report again that the last terminal is being flanked. This message completely clouded my vision for a few seconds. I had received it in my body thanks to Sombra, an intracerebral device connected to the nervous system and the left arm. At the time it had been implanted in the entire population as a promise to turn them into the next great improved generation of humanity.
 
 It had caused wars and much suffering, the truth is that I had barely been interested in the history of humanity. The only thing I needed to know is that after a few weeks of peace and incredible results for scientists, as if by God's work, they had achieved unthinkable wisdom thanks to the new invention. When they created it they could not imagine what would happen next.
 
@@ -9,9 +8,7 @@ As a child I used to watch the explanatory videos of the tragedy projected in my
 
 Then the emergency radio transmissions began, in which they explained that these same terminals were being affected by something of unfinished origin. They were causing severe headaches for the entire population, as the least of problems.
 
-For me it was normal to receive hundreds of messages of reassurance. 
-That's what Dos is for, a small graft on the left arm that you can caress when you feel that something out of the ordinary is happening. 
-Not everyone has it, but the war had affected me seriously.
+For me it was normal to receive hundreds of messages of reassurance. That's what Dos is for, a small graft on the left arm that you can caress when you feel that something out of the ordinary is happening. Not everyone has it, but the war had affected me seriously.
 
 It was not common to talk about what had happened. The important thing was to act normally, even if society had been plunged into regret and turned cold forever. There were hundreds of speculations about what could be causing all this to the population, although it was recommended not to consult new information that could induce paranoia.
 
@@ -19,7 +16,7 @@ I have some kind of disorder that I call chaos. I usually do not understand what
 
 The thoughts lacked dialogue, they were like transmuted feelings that something horrible would happen.
 
-People with complex destinies had Two applied.
+People with complex destinies had Dos applied.
 
 In the past it was believed that the future of a person was captured in the left hand, that I had read in the past in an old palmistry book. Sometimes, to escape from my reality, I used to try to find books that I liked in some library.
 
@@ -31,15 +28,13 @@ Reality remained stable.
 
 I took two deep breaths and tried to relax.
 
-I had to find something to fill my time with. It was impossible to relax. It was hard to think of something creative and harmless to do. I already did all the daily tasks and self-care, but I still had time left over.
-He decided to go out for a walk, at least he would see hundreds of people of different conditions and feel somewhat better about my own.
+I had to find something to fill my time with. It was impossible to relax. It was hard to think of something creative and harmless to do. I already did all the daily tasks and self-care, but I still had time left over. He decided to go out for a walk, at least he would see hundreds of people of different conditions and feel somewhat better about my own.
 
 The most common thing was to find insane people outside the house.
 
 It was so easy to program some kind of video or movie to your liking in your own eyes.
 
-The truth is that I had been doing it all my life, but since I have Two it is no longer so necessary. 
-I prefer the reiterations of peace and quiet.
+The truth is that I had been doing it all my life, but since I have Two it is no longer so necessary. I prefer the reiterations of peace and quiet.
 
 I did not want to analyze all those men and women who walked too, but it was almost impossible not to do it for everyone.
 
@@ -55,28 +50,27 @@ A man greeted me when he saw me, his age seemed to be approaching mine. I decide
 
 Everyone lived in their own state of fear, some had more “peace” than others, and it was not really clear in any study what it was due to.
 
-I returned home and had the small idea of ​​checking the time, Shadow quickly recorded the solution 15:22.
+I returned home and had the small idea of ​​checking the time, Sombra quickly recorded the solution 15:22.
 
 I went back to bed.
 
-Dos.
-30 seconds of continuous breathing. I felt some peace.
+Dos. 
+30 seconds of continuous breathing. 
+I felt some peace.
 
 I quickly felt chaos again.
 
-I made a quick gesture to open the project in the I was working on a replica of my reality controlled in real time to reassure myself.
-If it was possible to see that nothing was happening inside and out, I felt safer. The game consisted of creating even the tiniest details of my reality in the fictional one.
+I made a quick gesture to open the project in the I was working on a replica of my reality controlled in real time to reassure myself. If it was possible to see that nothing was happening inside and out, I felt safer. The game consisted of creating even the tiniest details of my reality in the fictional one.
 
 I wasn't sure if it was safe. The game itself warned you of the dangers in the subconscious and it was not possible to play without really knowing if your world was the real one, or just another replica. That's why you had to make an effort to appreciate every detail of the real world and recreate it, otherwise your fictional reality could be scarce, and it was a problem to believe that the real world was a scarce fictional secondary.
 
 That afternoon I was painting in my imagination the fluff on the black bag that I had allowed myself to buy two weeks ago.
 
-I began to be astonished for no reason. I got scared, closed the project and went back to Dos in a panic. Feeling watched could be the worst thing that could happen in Shadow.
+I began to be astonished for no reason. I got scared, closed the project and went back to Dos in a panic. Feeling watched could be the worst thing that could happen in Sombra.
 
 It happened constantly. Developed intelligence was some kind of curse that left no room for peace.
 
-The world is still dangerous, Dos.
-I sighed before touching it. I didn't know what to meditate on anymore. Or what to think about.
+The world is still dangerous, Dos. I sighed before touching it. I didn't know what to meditate on anymore. Or what to think about.
 
 Relief.
 

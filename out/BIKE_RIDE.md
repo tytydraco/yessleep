@@ -1,13 +1,12 @@
-This is part three of the series if you haven't checked it out here's the link [mixed\_mail](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/).
+This is part three of the series if you haven't checked it out here's the link for part one [Scopaesthesia](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/)
 
-  
-Since the break-in, I've never been able to shake the feeling of being watched, but I always tried to ignore it. One night when Markus and I snuck out, we were just taking a walk through the woods nearby, but I could have sworn I heard somebody following us. I looked back constantly to find nothing. We passed a few wild animals, and they all were running in the same direction, we thought it was really weird, but we just joked about it. It wasn't until we saw a coyote run past us. We got uneasy and thought we could head back, especially since coyotes were running around. We headed back to our homes, walking at a slow pace. We heard a branch snap, and we broke into a run. 
+Since the break-in, I've never been able to shake the feeling of being watched, but I always tried to ignore it. One night when Markus and I snuck out, we were just taking a walk through the woods nearby, but I could have sworn I heard somebody following us. I looked back constantly to find nothing. We passed a few wild animals, and they all were running in the same direction, we thought it was really weird, but we just joked about it. It wasn't until we saw a coyote run past us. We got uneasy and thought we could head back, especially since coyotes were running around. We headed back to our homes, walking at a slow pace. We heard a branch snap, and we broke into a run.
 
 We got back to my house and sat on the porch for a while, Markus eventually calmed down and headed back to his place. I walked to the backyard and started to open the door when the hairs on my neck stood up. I turned around slowly, to see the gate connecting to the streets behind. I saw nobody, but I couldn't help but feel like I was looking straight at them.
 
 I made I crazy face to try to "scare" anything away, but I knew nothing was there, so I just walked inside. I walked up my stairs and unto my room. I looked out my window, peering into the backyard. There I saw nothing but the trees and grasses blowing in the wind. Until I looked at the street behind the fence.
 
-I could see someone passing by over and over as if they would turn back around when they hit the end of my street. I watched for a while, until I got to tired to watch. I crawled into bed, and went to sleep
+I could see someone passing by over and over as if they would turn back around when they hit the end of my street. I watched for a while until I got too tired to watch. I crawled into bed and went to sleep
 
 The next day. It was Valentine's Day. I was in eighth grade and my communications class had a project where we had to place four cards each with one compliment, in someone's box. Although I found it a little dumb I was still nervous, thinking no one would put any cards in my box. I felt like I was back in kindergarten stressed whether I would get a golden star in class or not. Although I wouldn't know what for, I’m not someone who would stick out, I’m not special.
 
@@ -97,7 +96,7 @@ I left the door wide open.
 
 There was nothing stopping them from getting to me.
 
-I couldn't speak, I didn't know what to say. “Where are you?” He asked I heard the floorboards above me starting to creak, knocking dust down from the ceiling onto my face. They were in the living room now. “The basement,” I said, stuttering through my fear. “Can you hear where they are?” He sounded on the edge of tears. “I think they’re in the living room.” I could barely hold my phone now, my hands were shaking so badly that I had to hold my phone with both hands.. “Do you think you can get out of the house?” “No, I can’t, they're too close to the basement.” 
+I couldn't speak, I didn't know what to say. “Where are you?” He asked I heard the floorboards above me starting to creak, knocking dust down from the ceiling onto my face. They were in the living room now. “The basement,” I said, stuttering through my fear. “Can you hear where they are?” He sounded on the edge of tears. “I think they’re in the living room.” I could barely hold my phone now, my hands were shaking so badly that I had to hold my phone with both hands. “Do you think you can get out of the house?” “No, I can’t, they're too close to the basement.” 
 
 I heard Markus take a deep breath. “ I…I'm gonna run downstairs to you. Hang up the phone and I’ll run, ok?” ”No, just leave me.” “No, hang up when you need me to run to you.” I was paralyzed but I knew I couldn’t afford to be. I forced myself to focus. “Ok.” I waited a few seconds before I hung up the phone and closed my eyes. I heard a pair heard footsteps running then I heard another pair slowly follow. I heard Markus fly down the stairs, and run into the basement, slamming and locking the door behind him. He jumped down the stairs.
 
@@ -133,6 +132,6 @@ The moon was full and bright. I always found comfort in the moon, just seeing it
 
 He tucked me into bed. Humming my favorite bedtime song, Summertime. I knew I was too old for my dad to tuck me in and sing me to bed, but I always found his voice comforting. He sat brushing my hair from my face. He eventually got up and walked downstairs to join my mom. While I lay there I stared at the ceiling, thinking. I tried to rationalize everything, it had to be some homeless, and that he was just on drugs or something. I think the worst part of my situation is that I don’t have any idea who the arm belonged to. I couldn’t see them but they could see me, at least I think they could. I didn’t sleep that well.
 
-I kept getting the feeling I was being watched. 
+I kept getting the feeling I was being watched.
 
 I'll be here to answer any comments or questions you guys have, though I doubt anyone will.
