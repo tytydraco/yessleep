@@ -12,7 +12,7 @@ To say this theater was trapped in the nineties was an understatement. The teal,
 
 *Seriously?* I pursed my lips and slid him the money. This was the premiere, after all. Which begged the question: "Where is everyone?" I asked. "This is 110 Willow Creek, isn't it?" 
 
-A rippp sliced through the air as he swiped the ticket from the printer. "That's right. You're just a bit early." I glanced at my watch: Eleven-thirty PM, half an hour before showtime. 
+A *rippp* sliced through the air as he swiped the ticket from the printer. "That's right. You're just a bit early." I glanced at my watch: Eleven-thirty PM, half an hour before showtime. 
 
 "And the other showings?" 
 
@@ -190,7 +190,7 @@ His brows furrowed. "You saw this just now?"
 
 "Nope." 
 
-I rubbed my temples in frustration. "I... I guess I could have been seeing things. It just felt so real." 
+I rubbed my temples in frustration. "I... I guess I could be seeing things. It just felt so real." 
 
 "Look, is this about what Larry said?" Jonathan asked. "Don't let him get to you, there's nothing wrong with this auditorium. Just sit back and enjoy the movie." His calming tone pacified my nerves. "Anyways, I better get back before Larry sees that I'm gone. Meet me in the lobby after?" 
 
@@ -279,10 +279,12 @@ My face fell.
 
 The man reached into his mouth and took out a small pistol, covered in chunky pulp. Cries of disgust rang throughout the auditorium. "What the fuck?" River yelled, echoing all of our thoughts at that moment. A flurry of frenzied words flooded my brain. I needed to get out. Run. Scream. Find Jonathan.
 
-And yet, we all stood still. Prisoners to the terrifying scene before us. And as his lips parted into another smile, I knew our nightmare was only beginning. He vomited his final words, looking directly at me. "This is the only way out." He aimed the gun at his temple. 
+And yet, we all stood still. Prisoners to the terrifying scene before us. And as his lips parted into another smile, I knew our nightmare was only beginning. He vomited his final words, looking directly at me. "This is the only way out." 
 
-Then, red. 
+He closed his eyes.
 
-All I saw was red.
+And pointed the gun at his temple.
+
+
 
 (Part 2 coming soon)
