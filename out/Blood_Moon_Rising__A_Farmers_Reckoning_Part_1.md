@@ -289,3 +289,5 @@ When he knew he had my attention, he nodded slowly, then turned and disappeared 
 I grabbed my revolver and flashlight from the drawer, the weight of the gun heavy in my in my hand. Something told me this wasn’t just another scare—this was it.
 
 Quietly, I made my way outside and into the field. The air was thick with tension, the only sound being the soft crunch of the dirt beneath my boots. The light from my flashlight cut through the darkness as I crossed the field, my heart racing with every step.
+
+[Part2](https://www.reddit.com/r/nosleep/comments/1gbhxvo/blood_moon_rising_a_farmers_reckoning_part2/)
