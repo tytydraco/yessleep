@@ -22,7 +22,7 @@ Over the next few days, she started to sit with me during breaks. She always kep
 
 She scribbled in her notebook.
 
-*'Apple and yogurt.'*
+*'Yogurt.'*
 
 We became sort of friends. She never really interacted with anyone besides me, and most of the time we sat in silence eating or playing snake on my Nokia.
 
