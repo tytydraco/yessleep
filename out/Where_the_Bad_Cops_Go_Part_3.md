@@ -1,4 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/1frodeb/where_the_bad_cops_go_part_1/) – [\[2\]](https://www.reddit.com/r/nosleep/comments/1fwh0lo/where_the_bad_cops_go_part_2/) – \[3\] - [\[4\]](https://www.reddit.com/r/nosleep/comments/1g7brq9/where_the_bad_cops_go_part_4/)
+[\[1\]](https://www.reddit.com/r/nosleep/comments/1frodeb/where_the_bad_cops_go_part_1/) – [\[2\]](https://www.reddit.com/r/nosleep/comments/1fwh0lo/where_the_bad_cops_go_part_2/) – \[3\] - [\[4\]](https://www.reddit.com/r/nosleep/comments/1g7brq9/where_the_bad_cops_go_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/1gco12h/where_the_bad_cops_go_part_5/)
 
 I stayed at Nick’s far longer than I ought to. The guy was rarely ever home anyway, spending most of his time either working overtime or helping at his brother’s garage. Nick didn’t talk much about his brother, but he seemed to be a hard-working red-blooded kind of guy. Nick would only talk about him in ways that would start with ‘this one time, Tommy did the craziest shit’.
 
