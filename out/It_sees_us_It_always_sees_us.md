@@ -5,7 +5,7 @@ Hi I'm 16 living with my mum and am British and live in a rural ish area its qui
 I have a little sister and she's nothing but a cute monster with her toys and tantrums I love her or loved her.until he took it from us  I'm going to ask you guys to take a seat or stand whatever you prefer this may be a long story.
 
 
-It was a friday qe had just finished off school and I was done with high school ready to work full time I arrive home and my sister was off sick. Weird I thought she was fine this morning watching bluey and  eating pancakes. I asked what's up with her and rather worried in cold tone my mum replied 
+It was a friday we had just finished off school and I was done with high school ready to work full time I arrive home and my sister was off sick. Weird I thought she was fine this morning watching bluey and  eating pancakes. I asked what's up with her and rather worried in cold tone my mum replied 
 She's sick 
 I asked her sick with what the flu? Common bug? Anything no reply just my mum's dry face staring at me. I thought not much off it and walked away and got on the playstaion.
 
@@ -66,7 +66,7 @@ He asked me to join them and be happy I refused I was sobbing at this point I sa
 No blood ever leaked out of him he was clearly not human just a shadow. I took this time and ran to my mum and sister knife clenched in fist. They had tentacles in their mouths I already horrified and adrenaline taking over removed them from my mum and sister they gasped and screamed looking st the dead body's and blood everywhere. On me. Among the fight I had been cut alot bleeding down my arms and legs I didn't even notice until I saw it. Blood ran down my body as hot painful agony washed over me. I don't have time for pain I grabbed my mum and sister and turned for the stairs. At the top of the stairs he stood. Staring at me. At us.
 
 
-I screamed ajd closed my eyes and he muttered his last words " you will be back soon I'm watching" 
+I screamed and closed my eyes and he muttered his last words " you will be back soon I'm watching" 
 
 
 We walked home all three of us horrified by the scene we watched unfold. We didn't tell my other sisters about this or brother. Not even the police they would call me insane us insane. 
