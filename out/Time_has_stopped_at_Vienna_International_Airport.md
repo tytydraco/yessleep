@@ -1,0 +1,127 @@
+I mean, the title is rather self-explanatory. I'm at Vienna International Airport, and everything is frozen in time. All the morning passengers are here, all of them unmoving like fleshy, warm statues. Looking outside through the window, I see a flight departing, suspended in the air. Next to me, a woman is dropping her handbag, and all the contents are frozen in the air, unaffected by gravity's pull. 
+
+Suppose I can elaborate a bit, as, at the moment, it appears that I have… all the time in the world. 
+
+I was on a business trip in Vienna, and I had to travel back to Paris CDG Airport with an early morning flight. On the way towards the terminal, staring out of the cab, I saw the airport lights in the dim, cloudy dawn sky. Some of the departing planes were awfully slow - almost like they were not moving at all. I was thinking of pointing this out to the cabbie, but I chalked it up to tiredness. See, after-conference "networking cocktails" and 6am flights are not a great combination, so I was far from being in a chatty mood. Either way, the guy dropped me off, and I decided to have a quick ciggie before checking in.
+
+While smoking, I wondered about airports - how fascinating they are. A while ago, during my university years, I had a part time bartender job at one, and I always found them eerie. They were "liminal spaces": areas of the inbetween, people just heading there to pass through it - sort of a border world. Of course, seeing airports like that could've been Stockholm syndrome caused by this student job as well - after all, I needed some sense of wonder to tolerate five am shifts. And now, many years later, here I am, at five am again, but this time, as one of the travellers, a wandering soul lost in the liminal landscape... I let out a brief laugh - the hangover left me way too philosophical. Yet, the eerie feeling I had turned out to be more of a premonition, rather than a hungover inner monologue-ramble.
+
+Things took a sharp turn for the weird at security. While there were quite a few people, many gates were open, so the crowd moved fast. I got directed towards a freshly opened security station. It was surrounded by tired looking officers. One instructing me to put my laptops, and fluid containers on separate trays, the other two standing behind the metal detector gate, waving me through... and a third one - slightly peculiar. He was sitting behind the monitor of the x-ray machine you put your bags through, wearing huge aviators, basically covering half his face. Ah well, I figured you gotta make a fashion statement somehow, even if you're obligated to wear a uniform. 
+
+Anyways, I was about to walk through the gate - the metal detector, the symbolic border between the mundane and the liminal. But the very moment I stepped through it, complete silence engulfed everything. I reflectively touched my ear, thinking my earbuds somehow turned on noise cancelling, when I realised that they were in the tray - which slowly rolled down on the pickup area. 
+
+And that was the only thing moving. Everything else stopped - like someone hitting a pause button. Odd, I figured. I slowly walked back through the gate, but nothing changed. Everything around me stood still. The security guy's hand frozen in a bored wave, a man putting his belt back on unmoving next to me, a family in the other queue, stuck in mid-argument, their small kid, her face trapped in a mid-crying expression, but no sound leaving her mouth... wish I could do this to kids once the plane took off. Nevertheless, temporal anomalies be damned, I did not want to miss my plane, so I grabbed my stuff from the tray. Yet, as I was putting my laptop back into my bag, I saw one thing - or, well, the absence of it. The security guy with the sunglasses was nowhere to be found. This whole thing did not look like something that respects airport security standards.
+
+Walking towards my gate, d24, in the dead silence was certainly an experience. I moved through crowds in suspended animation (or I sure as hell I hope it was that - it would be rather awkward to be at an airport full of dead people). Still, it had a certain beauty. Upon arriving to d24, an unusual sight welcomed me. The monitors showed that boarding was open - and indeed, the doors were ajar - but the flight destination, instead of “Paris CDG” just looked like a jumbled mess of characters. Now, while my app said that this was the correct gate, I did not want to end up at the wrong location, so I decided on not boarding for now, waiting it out instead, hoping that a staff member or an announcement will clear up the confusion soon. I was a bit hungry, and the nearby bar seemed, albeit overpriced, but fairly attractive. I walked over, crisscrossing the statue-like crowds. I grabbed a sandwich, and - as the staff was unavailable on account of being frozen in time - I decided to walk behind the till to the coffee machine, and help myself to some drinks. For a moment I entertained the thought of making myself a nice flat white, but I figured that if time restarts and I am standing in a restricted area steaming milk, I may get some angry looks, so I opted for an espresso instead. The tiny cup was halfway through when I heard something familiar: the breaking news announcement of Euronews on a nearby TV screen.
+
+Well, something - apart from me - was unaffected by this time-fuckery, so I quickly grabbed my coffee and my sandwich. The total was 12.30€, so I put a tenner on the counter and figured they can keep the change. Indeed, at the back of the bar, there was a tv, broadcasting the morning news, oblivious to the frozen world around it. 
+
+"...chief investigator of the crash of AirFrance flight***** (I have hidden the flight ID, just in case) at Vienna Schwechat Intl. Airport this morning states that at this time, the exact cause of the accident cannot be determined. While the number of confirmed casualties just passed 80, the search for survivors continues. According to witness testimonies, the aircraft overran the runway during takeoff, and crashed into the industrial area of Schwadorf, a settlement near the airport. Authorities have asked the public to forward any information, including recordings of the events to the authorities..."
+
+Rather macabre, watching these news at an airport, I was thinking, when it hit me like a freight train (or like a crashing plane) - the flight they were talking about was the one I was supposed to board.
+
+Now, while I was trying to cut down on my smoking, this news warranted another cigarette. The airport has a nice smoking area, looking at the runway, where a flight was taking off - except it wasn't, as it was just floating silently , in a surreal manner. Some sight for a smoke. Yet, as I was clicking my lighter, I noticed something weird. Well - something that should've not been weird, but in this specific scenario, it was rather unusual: a few airport technician looking guys, in high visibility vests, cargo pants - and despite the cloudy early morning, dark aviator sunglasses - were walking around. Y'know, actually walking - while the world around them was dead still. 
+
+I'm back now at the restaurant, typing this down on my laptop. Now, I know that my demeanour may feel like I'm not taking the situation seriously enough, but trust me, this is my defense mechanism when I am positively shitting myself - which is pretty much the case now. I mean I'm not stupid. I saw the news of my crashed plane, and I can connect the dots. I'm wondering if this is limbo, death or some otherworldly shit… But the call of nature is disrupting my spiral into anxiety. After the coffee and the ciggie, I’m not only about to shit myself figuratively, but also literally, so I will try to hunt down a bathroom in this hellscape of an airport. I'll check back in a bit to see if anyone's around, and update y’all. Cheerio.
+
+Update 1
+
+So I went to answer the call of nature. Luckily one out of the four  stalls was open at least. I was also not jealous of the poor bastards whom eternity found in the middle of dropping a log. So, I was doing my business when I noticed... feet. First I could see shadows under the stall door, through the gap, then two pairs of work shoes - two people, walking around in the bathroom. Now, I was about to call out, but something held me back - on top of how awkward it is to have a mid-shit conversation. Soon I realised what set my alarms off. I saw the feet - but I did not hear them. They were walking in complete silence - until they started talking. I mean I reckon they were talking, but I couldn't understand shit. Saying their words were garbled is an understatement. It sounded like a recording of an already foreign language being played backwards, while distorted via a radio. So - I clenched my buttocks and remained silent, until they left. I was not against the idea of trying to communicate with.... whatever these lads were, but the situation was not exactly ideal, so I decided to delay.
+
+Instead of immediately heading back towards the bar near my gate where I’ve left my luggage and my laptop, I wandered around a little bit, as my plane was not about to leave. Upon inspecting the motionless terminal, I found some of the guys I've seen earlier on the runway, and in the toilet. Contrasting how everything was halted around them, they stood out being busybodies, but they were always behind locked doors, on different floors, or otherwise inaccessible territories. In parts that you would normally not notice while wandering around an airport.
+
+Forgive me for sounding like a broken record with the whole liminal spaces thing, but this was another aspect of that. When you're at a place like this - a place of transition - there are so many little nooks and crannies you just look straight through. At an airport, you move with purpose - everyone moves with purpose - , so these areas escape your attention. Now, it was the contrary, in an uncanny way. Noone moved with purpose - noone moved, period - except in these hidden places, which highlighted them, making me feel like I'm seeing things I shouldn't be seeing.
+
+However, this was not reciprocated. See, I was not particularly hiding - yet none of the employees appeared to react to me in any way. It looked like I had two options: reenact the movie "Terminal" except in this ghost airport or just take my chances to get  noticed - so I chose the latter. I started waving at them through the windows of locked doors and shouting at them from floors below, yet they all remained unfazed. Pretty fucking rude, honestly. Or at least, this was the case until I got back to my spot. Then things escalated.
+
+Returning to the bar where I left my laptop and bags, I could see three of these airport-security looking guys (?), carefully circling my luggage, discussing it in their garbled radio language. However, upon my arrival, unlike the other airport staff, this trio noticed me - and they made it painfully obvious that they did. As soon as I approached, they turned towards me in perfect unison. Now, I know that leaving your bags unattended like that is a big no-no at airports - and in a normal situation, I wouldn't have done so, but it's rather clear that this was far from what could be considered normal. I hoped that they would agree, so I apologetically explained to them that I was just heading to the pisser for a little bit. My excuse did not seem to convince them.
+
+The two dudes on the side kept staring at me through their oversized sunglasses unmoving, while the third one began to walk towards me with seemingly malicious intent. I attempted to defuse the situation diplomatically, but seeing how he steadily moved his hand towards a black, taser looking device holstered on his belt, I concluded that my charisma will not save me today. So I resorted to the next best alternative: violence.
+
+I know full well that my following reaction was not a rational, well adjusted one - assaulting airport staff is a fine way to get banned from flying for life after all - , but let me explain. See, in my late teenage years, I had a short stint as en employee at a shoddy nightclub. Some of my experiences there irreversibly altered my "fight or flight" instinct into "punch first, ask questions later". And believe me, I felt threatened enough to have my reflexes take over. So anyways, I swung at the bastard. Admittedly, I am not in my best shape, definitely not after last night, so I was somewhat surprised seeing him collapse like a sack of flour, as soon as my knuckles connected to his face, sending his earpiece, cap and glasses flying. I was somewhat even more surprised seeing the other two guards immediately dematerialize in the same moment. Just gone, in a blink. 
+
+I began to suspect that these guys were not your usual, bored, underpaid caffeine-addicted airport staff but something more sinister. Soon enough, my suspicion became certainty. The less lucky one of these... entities (?) I whacked laid in front of me, face down. To see the damage I may have caused, and to check his pulse just in case, I grabbed his shoulders and turned him on his back, so he faced towards me. Now, remember I said these guys looked like normal airport employees? Well - there was a little bit of a difference. The guy had like a million eyes. 
+
+The face, previously covered by the dark tinted lenses, which now lay shattered on the floor, stared at me with countless pupils. Small ones, big ones, just dotted all over the sockets, in a way that should not be possible. Not entirely unlike a spider, but way more crowded. In fact, there were simply too many of them: they should have not fit the space normally only occupied by two eyes, yet there they were - kind of like a Mandelbrot fractal, they appeared to be almost infinite - and frankly, fairly hypnotic. But I had to snap out of it. For the lack of anything better to do, I figured I sit down, and type this update.
+
+I have mixed feelings about the situation. On the one hand, I'm somewhat relieved that I didn't ruin the day of some poor bastard at the airport (amd parallelly, didn't ruin my chances of me flying ever again), but in the meantime, I am a tad perplexed by what could be the consequences for KO-ing a timeless, slightly eldritch entity. On top of that, I can’t really get those eyes out of my mind - and not in a romantic way. See, (no pun intended) I honestly don't know for how long I was staring into them, but once I was out of it, I felt like… I remembered something. I'm not too sure what yet, but I think I’ll take another smoke break to try and figure it out. Here's hoping that my pal won't go anywhere. I'll get back to y'all soon.
+
+Update 2
+
+Midway through my ciggie, I realised that the unconscious guy may have a way of entering those little hidden areas I was ranting about beforehand. Since at this point I was fairly certain that the areas accessible for passengers won’t hold any answers, I figured I could borrow a keycard. (Spare me from the moral lesson of looting from a (hopefully only) unconscious entity).
+
+Of course these security gates also require a password in addition to the keycard, but since apart from the trio messing with my luggage, no one acknowledged my existence, it was not particularly difficult to follow one of these mysterious walkers towards an off limits area, and peek at the 4 digits password over their shoulders. 
+
+The keycode was, I shit you not, "4444". Airport security my ass.
+
+I opened the security door, and entered a bland, white, blindingly lit hallway. Leaving the passenger area, with its soothing colours, kitschy decorations and fake plants, and entering a blindingly lit, barren security hallway... Surprisingly it didn't give me as much of a whiplash as I expected it would. Of course, this corridor had none of the artificially welcoming atmosphere of the travellers lounge, but it still felt like that the two areas were related (I can already hear your snarky comments saying 'yes, both are parts of the airport dumbass' - but it's not that.) It felt like the empty corridor represented the reality of this place, and outside of it, all the bits and bobs that made it feel welcoming were just there to ease people in a sense of familiarity instead of liminality. But here, behind the thick blue doors, that poorly fitting facade was dropped. No siree, no comfy feelings, colourful advertisements and 2 Euro massage chairs here for you: the corridor screamed, through the humming of the bright white neon lights, that you're a stranger, and you shouldn't be here.
+
+Too bad I got used to people screaming at me not to do things, then doing them anyways (and corridors I guess? Kinda ruined that metaphor here).
+
+So I marched on, peering into barren office rooms, some of them containing some oblivious airport-entities, their real self hidden behind their sunglasses. After a bit of wandering, I noticed an area labelled "monitoring room", and on a whim, I entered. The label didn't lie. There sure were some monitors in there. Like, a lot of monitors - way too many for it to fit a room of this size. They weirdly reminded me of the jumbled mess of eyes the entity I knocked out. And, as this thought entered my mind and I remembered staring into those eyes, the smorgasbord of screens suddenly started to make sense, and I began to see security camera footage steadily shifting through all of them.
+
+At first glance, they appeared to be normal security feeds, but upon closer inspection, I noticed some increasingly unusual things at each one I looked at. The first anomaly I noticed was an image depicting the frozen scenery at the departure gates, including the big board listing all the flights, flight numbers and destinations. Except apparently the 1300 Aeroflot flight was scheduled to leave to.... Pulkovo Airport, Leningrad.
+
+On another screen, the corridor with unmoving people had big billboards behind them - one of them proudly displaying a vaguely familiar, elderly guy, who, despite looking 80+, still had a fabulous pompadour haircut - and next to it, with big bold letters: THE KING 90 - Elvis Live, at Ernst-Happel-Stadion, Vienna - 08 January.
+
+On another, every sign and advertisement was written in german. I am in Austria, but still, the complete lack of English was unusual in an international airport. In addition, airport security was wearing uncomfortably sharp uniforms with red armbands. As I looked closer in a corner of the screen, I had to do a double take, as a sizable portrait of a certain moustached failed artist, and piece of shit was there on full display.
+
+Each screen I looked at showed this airport, but subtly - or less subtly - altered. I was witnessing different realities from a nondescript nerve centre. After a certain point, I found the security footage of the little bar I left my stuff at earlier. And I noticed something pretty upsetting (and bear in mind, after  seeing a long dead dictator's painting on a wall, the bar to upset me was placed pretty fucking high).
+
+See, you remember that TV I've seen the news report of the plane crash of my flight. I could kind of make out through the security screens that it was still broadcasting about the accident. The issue is - the broadcast was the same in all the alternative realities, no matter how many screens I was looking at. Apparently there are some worlds where Elvis survives or where the USSR still stands, but it appears that my fucking plane overshoots the runaway and blows up in each one. Bit of a bummer, really.
+
+I snapped out of staring at the screen thanks to the beep of a walkie-talkie laid down on the table next to the screens. The sound was followed by a conversation of the airport staff, in their unusual incomprehensible language... until it stopped being incomprehensible. As I started to focus on it, just like on the creature's eyes, and later on the screens, I simply realised that I understood what they were saying.  I'll try my best to translate.
+
+“....execution error for cornerstone event #4778, due to passenger/victim manifest incomplete. Please advise, handler A out.”
+
+“...Handler A, we may have an update on your situation. Analytics dept. confirmed the identity of the interloper. Missing cornerstone event manifest parameters are at value match with interloper...Handler B out"
+
+You know those moments when two people are shit-talking a third one, not knowing that said third person is within clear earshot of them? The whole stitch began to feel like that. I mean I'm pretty sure that you figured out who they refer to as interloper the same time as I did: yours truly. Now, as the subject of the conversation, I felt that I was warranted to contribute. So I pressed the button on the radio, and, to the best of my ability, I tried to speak in their language (and mimic their "expert" talking style).
+
+“...Handler A, Handler B, this is interloper reporting. Please advise on how to assist in resolving issue with cornerstone event parameters. Interloper out"
+
+A bit of inconvenient silence followed. I had a feeling that someone was about to be fired.
+
+“...Roger that, interloper. Please standby until HQ is instructed.”
+
+More silence
+
+“This is Handler A to HQ. Initiate cornerstone event rollback”
+
+“Active handler group, this is HQ. Please confirm rollback request”
+
+I was wondering if they were aware that I can hear all this shit.
+
+“Handler A, confirming”
+
+“Handler B, Confirming”
+
+“Active handler group, this is HQ. Airfrance flight xxxx (of course - my goddamn flight) returned to cornerstone event launch position. Awaiting parameter correction.”
+
+Finally, they got back to me
+
+“Interloper, this is Handler B, do you copy? Interloper, come in.“
+
+“Loud and clear, handler B” I responded, fighting back the urge to wish him good luck in his future job hunt.
+
+“Interloper, please return to the initial spatial coordinates of departure from your host timeline. Once your spatial coordinates are approved, your temporal coordinates will be reset. Please continue routine to ensure cornerstone event success.”
+
+Right, great. So I go back to the security gate where this whole mess started, my good friend Handler B resets time, I board my flight, then crash and die, and ensure that the "cornerstone" event is done in my timeline. Wouldn’t that be a right, heroic sacrifice.
+
+“...Roger that interloper, will comply”
+
+ I said. “Hell fucking no", I thought. 
+
+I'm typing this note just in front of that ominous security gate that froze time the moment I passed it. If I understand the handler correctly, the moment I pass it again, time will restart. 
+
+One way to find out - see you on the other side.
+
+Final update: 
+
+Okay, so it worked. I'm typing away from the same bar I was sitting at, except now everything is in motion again. All is well now. Well, almost all. As soon as I passed through the gate and everything suddenly reanimated, I began to feel a bit nauseous. Was it the fact that after hours spent in a frozen, soundless and timeless world, suddenly the hustle and bustle of reality returned? Or was it because I was still hungover as hell, and it didn’t occur to me that I could’ve nicked a paracetamol while time stood still? Dunno. But I needed to shake it off and get the closest thing I could to a cold shower - a thorough face wash. Except, as I was drying my mug, staring at myself in the bathroom mirror, the eyes of my mirror image started to blur, and proliferate. Who knows, maybe soon I will have to invest in some large dark aviators... I can also catch some unusual changes in the corner of my eyes. Is that a poster of Elvis over here? That sign that was in english just a moment ago, is it now written in cyrillic? But apart from these minor inconveniences, most things seem to be okay.
+
+So - am I about to board a crashing plane? Nah, as you may have figured that I am not great in following instructions. As soon as I was back, I set my VPN up and, sent a couple of anonymous emails - to airport security, to the police, to Air France - letting them know that something is off with that flight. I see that it is delayed now, and they are replacing the craft, citing "technical issues". If I'm actually losing it, and imagined the whole thing, I probably ruined the day of my fellow travellers. But if not, then I just helped those poor bastards to live to see another day. But about the implications of me doing that, well...
+
+So, all sunshine and rainbows right, I oughta pat myself on the back. I fucked around with beings beyond time, and prevented a major accident. Yea, normally I would, but there are some subtle things going on that overshadow my urge to celebrate. See, the eerie sunglasses-wearing part of the crew is still around, and they definitely look a bit more agitated than before. And while I couldn't really catch all their conversations, here and there I hear some jumbled radio fragments I still understand.
+
+They mention a certain "cornerstone correction protocol" and "enhanced intensity events" in "close proximity". Now, what does that mean in practice? Hell if I know. But, and I know I am being pretty vague here, it sounds like shit is about to go down. Well, either way - they’re calling my flight. Suppose it is ….time…. for me to leave this godforsaken airport.
