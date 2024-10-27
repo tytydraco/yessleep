@@ -30,7 +30,7 @@ The scene inside the room was surreal. The three children sat in a circle on the
 
 "You're supposed to be asleep. What are you three doing?" Carl shouted, his voice bouncing off the walls covered in glow-in-the-dark star stickers.
 
-Conner pointed trembling fingers in the direction of the two girls. "A-Abby jinxed Charlotte," he stammered. "They said the same thing at the same time."
+Conner pointed a trembling fingers in the direction of Charlotte. "A-Abby jinxed her," he stammered. "They said the same thing at the same time."
 
 "Now she can't talk till somebody says her name," said Abby calmly, as she turned to face us. Whatever had Conner on edge didn't seem to affect her. There was something unsettling about Abby's composure, a glint in her eye that I'd never noticed before.
 

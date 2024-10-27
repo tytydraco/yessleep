@@ -1,165 +1,174 @@
-Hey there, I’m glad you guys liked my last [post](https://www.reddit.com/r/nosleep/s/ZQ0ShvOqAn) about the weird calls we get here at Greenbrier 911. To answer a few questions, we don’t have a SWAT team here at Greenbrier. Our officers are given a large allowance each year for firearms and body armor. 
+[previously](https://www.reddit.com/r/nosleep/s/9yXXAos7Ti) 
 
-You might be wondering why anyone would choose to work on the police force when the fatality rate is fairly high, well it’s pretty much all due to money. 
+So I’m at the call center, I’m by myself for now. If you read the last part you know things were getting out of hand, it sounds like they might be under control for now. And if they aren’t, I’ll be here to take your calls and send help. 
 
-If you make it through your probationary period you’ll be making around $200k a year when you add in all the benefits and allowances. And to be clear most officers make it to retirement, it’s not like it’s a death sentence to work at Greenbrier PD. 
+Dean had been staying at my place off and on lately, Allyson and I were working nights at the call center and he was pulling night shift at the police station. 
 
-Unfortunately I got carried away reading your comments and arrived to work at 6:01pm. As I walked in the door to release Andy from day shift he gave me a look that told me all I needed to know. 
+The three of us were growing steadily more exhausted, the call volume was through the roof. Dean was going out to violent crimes daily. It was wearing us out. 
 
-My absence had been noted, Andy shot me a sympathetic look as he passed by me. Clearly he didn’t want to stick around any longer then he had to. 
+Things came to a head Wednesday night. You see there’s this taco truck that parks a few blocks from my house. Allyson and I were tired of our own cooking so we got dressed up and walked to Angels truck. 
 
-Night supervisor Jordan called out from his office, “Kylie come here”. With a sigh I dropped my things on my desk and made my way to the tiny closet Jordan used as an office. 
+I was no stranger to his menu but Allyson was confused, “so what kind of food is this?” I didn’t understand her question, “what do you mean? Like is it authentic Mexican?” 
 
-“Hey Jordan what’s up?”  “Tardiness is not tolerated, consider this your first verbal warning next time I will have to write you up”. 
+She shook her head, “no like what is a torta or casa or carne?”  “Allyson have you never had Mexican?” She looked embarrassed, “no I guess not”. 
 
-“Seriously? I’ve been showing up ten minutes early for months, I was one minute past and you’re going to hold that against me?” Jordan’s dead pan look held no leniency, “Kylie why would having done the minimum required to maintain employment excuse you from discipline?” 
+So we had the sample platters. 
 
-I felt my face turn red, Jordan didn’t seem to notice or care. Thankfully the phone rang before I could let the angry retort building up inside me spill out. 
+On the walk back we saw him, he was behind us but approaching fast. His seven foot tall stature easily visible, he pushed his way past people in his pursuit of us. 
 
-Jordan did a little shooing motion with his hands before turning back to his monitor. 
+Before we had a chance to run a siren whooped right next to us, tires screeched as Dean came to an abrupt stop. He jumped out of the car and quickly placed himself between us and the lumber jack from hell. 
 
-I slammed my headset on, taking a deep breath I turned on my customer service voice. “This Greenbrier 911 how may I assist you?” 
+“Hey! Stop right there!” To his credit the lumber jack obeyed. Dean rested his hand on his service gun, “ok now slowly lower the ax and place it on the ground”. 
 
-A female voice replied, young, college age maybe. “uh hi. So like I’m not sure if this is the right line to call but the PSA’s all say to report anything weird…” Her voice trailed off. 
+The man’s presence was so intimidating I hadn’t noticed the weapon in his hand. The blade was as large as my head and was polished to a mirror like finish. 
 
-“Ok, let’s start with your name and what’s going on”. I could hear her humming nervously, “ok I don’t really want to get involved. I’m pretty new here and don’t need to make a bad impression you know? So there’s this dude on the street and he’s naked. Like totally bare ass dingling a dangling naked. And I am all for letting people live how they want but there’s kids on this road and they don’t need that”. 
+The lumber jack looked at the ax than back to Dean. He shook his head and stepped forward. Dean raised his voice, “HEY! Hey back up right now!” 
 
-“All calls are anonymous” I assured her, “but if you don’t want to give your name that’s alright, can I get a location though? At the very least a cross road?” The girl answered, “oh yeah sure, of course so he’s currently… well he’s doing a cartwheel which is actually kind of impressive. But yeah he’s going north on Prometheus towards Fern Street”. 
+The man ignored him, “come on man! No one needs to die today!” the lumber jack was nearly on top of Dean. 
 
-I sent dispatch a message and they replied that they had officers in the area. 
+Dean swore, he let go of his gun and drew his Taser. He fired it into the lumber jack who stiffened and grunted in pain before grabbing the leads and ripping it from Dean’s hand. Dean stumbled forward and the lumber jack swung a giant fist into his head. 
 
-Before I could get anymore information the caller hung up. 
+Dean flew back, his skull bouncing off the pavement. He was bleeding but managed to roll over, the lumber jack kicked him in the ribs sending him flying. He landed in a crumpled mess, Dean looked up at us then threw his hands in the air in frustration. “Get out of here!” 
 
-I tuned my second headset to the police channel sure that this would be an interesting encounter. 
+In two enormous steps the lumber jack was at Dean’s side, he swung his giant ax! It caught Dean in the chest knocking him clear across the street and out of sight. 
 
-Officer: 1 “dispatch show us as on site please”.
+I grabbed Allyson’s hand and we ran, when we got to my house the lumber jack wasn’t far behind. 
 
-Dispatch: “Roger that, let me know if you need assistance”. 
+I knew it wouldn’t do much but locked the front door anyways. The gun was upstairs, I had stupidly left it on my nightstand. I rushed to the bottom of the stairs but froze, there was footsteps running across the second floor. Someone was in the house! 
 
-Officer: 1 “come on, why’s he have to be naked?” 
+Allyson grabbed my arm and pulled me back, “there’s someone up there!” Just then I heard a crash at the front door, an ax head was poking through it. In the distance I heard sirens but they were minutes away and we had seconds left to live. 
 
-Officer: 2 “if they have to be naked can’t they at least be hot?” 
+Allyson opened a door behind me, the basement door. “Abso-fucking -lutely not!” I yelled but she pulled me in with little effort. 
 
-Officer: 1 “come again?” 
+The door closed and we were bathed in darkness. We fumbled down the stairs until we reached the bottom and turned on our phone lights. 
 
-Officer: 2 “if I have to tackle a naked person I would prefer it to be an attractive naked person not a fat sweaty guy”. 
+Allyson went deeper and I hesitantly followed. I doubted this would buy is enough time for the police to arrive but it was better than dying instantly. 
 
-Officer: 1 “…so you want to wrestle hot dudes?” 
+That’s when I saw it, an old door propped against the wall. I think it was my houses original door, I just know I never tried to remove it from the basement because it was heavy as can be. 
 
-Officer: 2 “what? No, but if I have to wrestle someone I would prefer it be a good looking person”. 
+Allyson walked up to the door, she gently traced its perimeter. Light suddenly engulfed us, we both looked up to see the lumber jack at the top of the stairs. 
 
-Officer: 1 “you need a girlfriend, or Jesus. Probably both”. 
+We were cornered.
 
-Officer: 2 “shut up, let’s just get this guy off the street. Why is he so sweaty?” 
+Allyson grabbed my hand, with her other hand she opened the door. The door that was leaning against a concrete wall. The same door that I had moved out of my way in the past. She opened it, and on the other side was brightly lit forest meadow. 
 
-Officer: 2 “oh shit! Did you see that? That was a perfect backflip!” 
+Allyson shoved me through just as that giant ax struck the concrete wall next to the door. I flinched at the shower of sparks. Allyson jumped through the door as well, as she was closing it I saw a second figure at the top of the steps. I couldn’t be sure but it almost looked like Jordan. 
 
-Officer: 1 “you worry me sometimes. Hey! Hey! Greenbrier PD! Hold still sir!”
+The door closed and the air instantly felt different, there had been a strange hum to it before. Now it was calm, almost therapeutically so. 
 
-Officer: 2 “sir you are naked on a public Street, let’s get you somewhere private so you can explain what’s going on. Do you live on this street?” 
+I couldn’t bring myself to care about the weirdness that had just happened. I just wanted to take a nap, but Allyson kept pulling on me. 
 
-Officer: 1 “hey! No handstands! Stop that! Do not approach us in that manner sir!” 
+“Come on Kylie, you can’t stay here. We have to get you back”. 
 
-Officer: 2 “sir if you do not comply, *stifled laughter* sir don’t make me taze your dingleberries”. 
+Man did my head feel light, I couldn’t really stand. Is this what huffing markers feels like? I knew I was being led somewhere. 
 
-Officer: 1 “damnit Conner can please behave?” 
+“Focus Kylie, you can’t be here”. 
 
-I jump as an explosion rips through the headset. I frantically tune back in my free hand on the radio to dispatch. 
+I couldn’t help but laugh, “Allyson you nut, of course I can be here. Where ever I am is here so I’m always here no matter where I go”. Clearly this truth was so profoundly obvious she had to be able to see it. 
 
-Officer: 1 “the fuck was that?! Conner are you good?” 
+Allyson yanked my hair, like the little ones on my temple. I opened my eyes, how long had they been closed? Why did Allyson do that? It hurt! 
 
-Officer: 2 “yeah yeah, I mean not emotionally but physically I’m fine. Did he… did he really just pop?”
+Was that a circle of flames floating in the air? 
 
-Officer: 1 “like a mother fucking balloon”. 
+I hit the ground, way to much feeling rushed into every inch of my body. Before I could stop myself I puked all over the ground. 
 
-At that point they called in EMTs and detectives. Despite a thorough investigation they never found a DNA match for the naked man nor did they find any explosives residue.
+“fuck!” 
 
+Everything hurt, another convulsion racked my body and I dry heaved a couple times. Even my eyes hurt. 
 
- 
+Allyson was leaning over me looking concerned. “Are you ok?” I shook my head, hell no I wasn’t ok. 
 
-I think Jordan was attempting to give me a cold shoulder as a punishment for being late. Honestly I enjoyed the lack of interaction between us. At least until the next call came in. 
+“What just happened Allyson? I feel like I got turned inside out, and where are we?!” 
 
-“Greenbrier 911 what’s your emergency?” The clock read 5:05AM, another hour and I would have been clocked out. “Hi, there’s this creep walking around my backyard. Could I get someone out here to chase him off or take him to jail?” “Yes ma’am of course”. She gave me her address and I sent a message to dispatch, 
+I didn’t recognize our surroundings, we were clearly in some sort of forest but how did we get here? 
 
-“Ok ma’am the police have been notified, could I get a name and any details while we wait for them to arrive?” The woman was surprisingly calm, she sounded more annoyed than scared that there was a stranger in her yard. 
+“That’s normal” Allyson replied, “it will all fade shortly. But we should figure out where we are and start moving”. 
 
-“I’m Adeline Joy, the motion lights woke me up, I don’t have to be up for another hour so I tried to go back to sleep but than this white faced creep started tapping on my window. I was going to ignore him but he was tapping so hard I was worried the window would break and I really didn’t have time to deal with that”. 
+My head was still too fuzzy to bother pressing her for answers. And not a nice fuzzy but more like having been kicked in the face by a mule fuzzy. 
 
-“Are you saying his Caucasian?” Adeline laughed, “no my dear. Well probably, but that’s not what I meant. His skin is as white as paper. Maybe it’s makeup, maybe a birth defect, who knows”. That was an interesting detail, I forwarded it to the officer on route. 
+I did have the wherewithall to pull out my phone, I had service. My first thought was to call Dean but then I remembered what had happened. 
 
-“As I was saying, I didn’t want him to break the glass so I yelled at him. He just smiled like an idiot and dangled a shitty looking knife like it was a clock pendulum”. 
+Instead I went to Google maps, we were in the Darkwood Park. It looked like there was a gravel road not horribly far away. I mentioned as much and we decided to head for it, we needed backup. I tried calling 911 but there was no answer. 
 
-“Hold up” I interrupted, “he’s armed? You probably should have led with that part!”
+I didn’t get a chance to try any other calls. My phone shut off on me, typical for this area. Everyone knows you don’t take electronics into Darkwood Park. 
 
-Adeline scoffed at the idea, “it’s just a little kitchen knife, it’s not like…” the line went quiet. 
+Allyson dropped into a crouch, I followed suit. “What is it?” I whispered. Allyson looked hesitant to answer, “you should stay here Kylie. There’s something I need to do, it could be dangerous and you’ve already shown me so much kindness and I can’t bear the thought of you getting hurt”. 
 
-Adeline yelled out angrily “you dumb ass Heath Ledger looking wank stain!” 
+I put my hands on my hips, “Allyson what are you talking about? First of, if it’s dangerous I will most certainly not let you go alone and secondly what aren’t you telling me?”
 
-“What happened?! Adeline are you ok?” “Don’t worry, I’m ok. He got in the house somehow, when I saw him he threw that damn knife and stabbed me in the shoulder. Where are those cops?” 
+There was that aura about her again, nothing that could be picked out. Just a difference, like she wasn’t coded right. That’s when I saw the concrete building behind her, it was nearly invisible but I could see a key pad on it. 
 
-I updated dispatch and they let me know ten minutes out. “Hang on Adeline officers are just a few minutes out”. “Well that’s nice to know, tell them to bring a body bag. I’m going to blow that assholes head off!” 
+“There really isn’t time Kylie, just know that I’m thankful for all that you did”. She stood and started towards the little concrete shed. 
 
-“Adeline please stay inside! Preferably in a secure room”. She laughed, “not going to happen. He ruined my night gown! I night just gut him with his own knife!” 
+I grabbed her hand stopping her, “I’m coming with you. And that’s final”. She pulled her hand free but didn’t argue. 
 
-The line went dead. “Adeline? Adeline!” I threw my headset onto my desk in frustration. 
+As we got closer I could see the concrete building was just ten by ten with a slanted roof also made out of concrete. The door was thick steel but Allyson typed in a code and it opened smoothly. Inside was almost completely dark, the only thing the building contained was a staircase that spiraled downward. 
 
-The police arrived two minutes later. They found the house empty but ransacked. Broken furniture littered the floor along with numerous broken items. Adeline Joy Whitaker is officially missing at this point. Thanks to her security camera we have a decent picture of the man in her yard. 
+Each step had a dim light illuminating it. I glanced at Allyson but she was already starting the descent. 
 
-She was right about his face, it was so white it nearly glowed. His eyes looked bloodshot and open unnaturally wide. He had weird scaring on his cheeks and was thin. 
+A lot of things weren’t adding up, “are your parents really in Europe?” I asked in a whisper. Somehow whispering felt required. 
 
-Definitely a poor way to end my shift. 
+“Yes but not in the way you understood it. I never lied to you, but I did conceal the truth when I felt it was necessary”. 
 
+I thought that was a pretty bullshit excuse and told her as much. She didn’t disagree. 
 
+“So what are we looking for?” We had reached the bottom of the stairs and were facing another door. “Records, I need to remove information before I can go home. I honestly thought I could get away with living here but it’s just not possible as long as they know I’m here”. 
 
+Her answers were getting more and more annoyingly vague. “That’s not much of an answer Allyson”. 
 
-The next day an hour before my shift Jordan texted me, “Kylie, please be ready to clock in by 6:00pm -Jordan”. 
+She sighed and turned to me, “Kylie I’m not going to tell you everything. It would be counterintuitive if I did. Just let me know if you see computer things”. I was a bit miffed by her reply. I felt like she owed me some answers. 
 
-Who signs their name at the bottom of a text? I don’t even do that for emails. 
+We walked the dark quiet halls of the underground labyrinth for an hour. We found multiple rooms of unknown uses but none that held what Allyson was looking for. We went up a floor and everything changed. 
 
-Anyways I made sure I wasn’t late. 
+The walls went from bare concrete lit by naked bulbs every ten feet to painted walls and well lit corridors. There was even carpet on the floor. This part felt used, like people often traveled the area. 
 
-I parked my Cruiser in its usual spot and made my way in. Day shift looked exhausted, and judging by the amount of call logs stacked on Jordan’s desk it had been a crazy day. 
+And it didn’t take us long to see someone, far ahead a man in digital camo holding a rifle walked past the hallway we were in. He didn’t appear to have seen us but Allyson pulled me into the closest empty room. 
 
-I made it nearly to midnight before the first call came in, the voice was soft and I mistakenly thought it was a child at first, “hello? I need some assistance?” 
+We stood in the dark not daring to breath. When it became apparent no one was coming I turned on the light. 
 
-“Greenbrier 911, what is the nature of your situation?” 
+A voice deeper than any I had heard before spoke. “Well well well, what do we have here?” I spun around expecting some sort of guard, instead I saw something else. Something horrible. 
 
-“My bitch ass wife locked me out of the house”. That line of dialogue coming from such a soft innocent sounding voice stupefied me for a moment. 
+Behind a set of thick steel bars stood a dark skinned man, not like African dark but rather his entire body from head to toe was a shiny black color. He was entirely hairless, I can say entirely because he was nude, and unfortunately happy to see us. His eyes were a dark red and without pupils, behind him swished a tail . 
 
-“Oh, I’m sorry. Are you… is this a domestic issue?” 
+“It has been so long since someone has entered my room. What brings a pair so fine here to me?” I backed up until I bumped into the far wall. This thing shouldn’t exist, it was so wrong. In a similar way that Allyson had an aura that smelled of distant places the thing in front of us had an aura that oozed death and hatred. 
 
-Jordan leaned out of his office shooting me an inquisitive look. My half of the conversation definitely sounded a bit weird. I tapped my head set and he tapped into the call. 
+Allyson glared right back at the abomination, “we are not here for your pleasure, in fact we’re leaving right now”. It chuckled, “oh I doubt that”. Just then the door beeped and started to open inward. Allyson kicked it back shut. I heard cursing outside. Through the small window I could see at least four and guards. 
 
-Just as he did the soft little voice replied, “like a domestic assault? Of course not! I’m locked out, once I get in that could change though!” 
+We were trapped once again. The death demon was enjoying himself, “where was it you were going changeling? Surely not into the hands of those waiting?” Allyson was biting her lip, she kept looking between that thing in the cage and the door. Finally she turned to the cage, “speak clearly wretch, what is your proposal?” It smiled widely revealing a long set of fangs.
 
-Jordan’s shocked face caused me to snort ever so slightly. But it was enough for the caller to hear. “Oh you think that’s funny do ya? Yeah you must be real tough!”
+“I have no quarrel with your kind, let me play with those who wish you harm. You will find it beneficial”. 
 
-I quickly backpedaled, “it was just a sneeze sit, it’s allergy season”. 
+I couldn’t help myself, I asked “what are you?” The things gaze snapped to me, I felt such hate radiating off of it that I was almost sick again. 
 
-“Like hell! You know something missy? I don’t even want in my house, I’m gonna come down there and teach you some respect! Do you hear me??” 
+“I am what they made me, the perfect tool for their needs. They twisted me, made me cold so that your world might be a little warmer. Yet my effectiveness scared them, so they locked me away for they lacked the courage to kill me”. 
 
-He hung up. I know I should have been worried but that little voice was hard to take serious. 
+I had to lean on Allyson, that thing had an effect on me that I couldn’t explain. Allyson spoke sharply, “Kylie is off limits, but do what you will with the others here”. 
 
-Regardless we put in a call to the police station and explained what happened, they told us they would have a couple cars drive by throughout the night. 
+She confidently strode forward and started typing on the keypad. I was horrified, she was actually going to let that thing out! “Allyson! Wait, don’t!” 
 
-It didn't do much good, to hours later I heard a thud in the bathroom. I looked over to confirm Jordan was in his office. He must have felt my gaze because he looked up from the mountain of paper work and frowned at me. 
+With a beep the cage opened. The thing inside laughed, it sounded like a legion from hell echoing out of him. He turned to smoke, than appeared inches from my face. His black tongue licking his lips, those dreadful eyes peering into me. He caressed my cheek, his fingers ending in long, thick fingernails. 
 
-I turned back to my game of solitaire. Less than a minute later the bathroom door crashed open! I jumped to my feet and looked in that direction. 
+And then he was gone, nothing more than a faint hint of smoke remained. 
 
-The hallway was empty, well empty save for a little brown teddy bear with a stick on his back. I stared at it for a while. Confused as to how it got there. 
+Instantly the hallway outside was filled with screams and gunfire. I covered my ears, the sound of flesh separating from bone was too much. 
 
-A scream escaped me as the bears head turned to look at me. “What’s the matter doll? I told you I was coming over”. 
+I’m not going to describe the scene that waited for us when we left the room. Just know that there was no one to bother us as we walked out. 
 
-The teddy grabbed what I had thought was a stick, it turned out to be the handle of knife from a 90’s Outback Steakhouse. “Now how about some damn customer service?” said the bear in that soft child like voice. 
+It wasn't just the hallway, every room had victims in it. Every wall had a new paint job. The carnage was more than just a fight, that thing had taken a lot of joy in what it did to those people. Its art work will haunt me until the day I die.
 
-I jumped onto my desk as he angrily waddled towards me. He did the cutest little hops while swinging the knife in an attempt to each me, I just couldn’t get myself to take him seriously. 
+We did finally find what Allyson was looking for, she set fire to the room. How she knew that would be sufficient I don’t know. I was done asking questions, I just wanted to go home and never think about this day again. 
 
-Next he tried to climb the desk but his fuzzy little paws couldn’t get any grip. He threw the knife onto the ground and fists raised he growled up at me. Right then Jordan came around the corner and punted the teddy bear across the room. 
+We left the same way we had gotten in. Our walk through the woods was silent. Save for the group of helicopters that flew over head no doubt to the facility we had left. 
 
-He barely made a noise as he collided with the far wall and then the floor. Hands on his hips the teddy bear scowled at Jordan, “why don’t you come down here and fight me like man?” The bear then raised his paws in a classic boxers stance. 
+I had a feeling there was going to be a lot of empty houses in town, and I didn’t even know why. But I felt like I was partially responsible for it. 
 
-Jordan wasn’t having any of it, he grabbed an empty file box and strode over to the bear who instantly attempted to turn and run. His stubby legs failed him and Jordan scooped him into the box and taped it shut. 
+When I reached the edge of town I had to call Greenbrier PD directly since 911 was still down. Adrian picked me up in a squad car. It was then I noticed Allyson was missing, I looked around for a bit but she was nowhere to been seen. And I didn’t really mind, sure she had tried to warn me but I felt like she could have been way more honest before putting me into that shit show. 
 
-“Alright let’s get back on track. Kylie monitor the phones while I put this outside for the police to handle”. 
+Adrian was babbling at ten million miles an hour like usual when I interrupted him, “Adrian have your heard anything about Dean?” 
+“Dean? Oh yeah, Mr ax wrestler is fine. His body armor took most of the blow. A few broken ribs and some missing molars. Shoot half the precinct would be ecstatic to have gotten off that easy. I’m telling you girl, we gotta get you back to your desk. Shit be wild, wild I tell ya”. 
 
-So that was my night, still not as hectic as day shifts raccoon fiasco but busy enough for me. 
+Adrian did just that, he dropped me off at the call center. The lights were out so I had to start the backup generator. I tried not to think about the blood splatter across one of the desks. 
+
+With the power back on, put on my head set and answered the first call. 
+
+“Greenbrier 911 what is the nature of your emergency?” 
