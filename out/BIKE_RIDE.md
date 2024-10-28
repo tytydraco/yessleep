@@ -135,3 +135,5 @@ He tucked me into bed. Humming my favorite bedtime song, Summertime. I knew I wa
 I kept getting the feeling I was being watched.
 
 I'll be here to answer any comments or questions you guys have, though I doubt anyone will.
+
+EDIT: Part four is out! [I was\_around\_16\_when\_I\_first\_started\_getting\_the pictures ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/) 
