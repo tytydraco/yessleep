@@ -2,7 +2,7 @@ Haunted World is a roadside creep show that gets very busy around Halloween time
 
 1. If you get lost in the corn maze, do not cut through the corn stalks.
 2. On the chance that you do get lost, don't panic, it will only encourage him.
-3. If you disregard the two rules above, you will die.
+3. If you disregard the two rules above, you must die.
 
 "What a load of crap," I say, my friend Jenny nodding in agreement. The sign before us is the one at the entrance of the corn maze. This is the hundredth time we've seen this sign since we walked through the front gate, it's posted everywhere. To me, the signs seem like a ploy to build up anticipation for the corn maze. As soon as we walk in there, some high school kid will trail behind us, popping out through the brush, screaming like a loon. I know how this works. Once you've been in one Halloween corn maze, you've been in all of them.
 
