@@ -1,0 +1,13 @@
+I don’t know if anyone will see this. I’m sitting on the floor somewhere I can’t describe, and I don’t even know if I can get out. I’ve never been one to believe in the paranormal, but after this… I don’t know what’s real anymore. I’m hoping someone can give me some guidance, or at least tell me if they’ve ever heard of anything like this. This is my first update—I’ll try to keep posting if I can.
+
+This all started three days ago. Just an ordinary Saturday afternoon in October. I was home, alone in my small house near Duluth, with the quiet I’m used to. Around 1 PM, someone knocked on my door, which was strange—I rarely get visitors. I ignored it. I didn’t feel like talking to anyone. But later, when I went to grab a drink from the fridge, I saw it: a door. Not behind the fridge—inside it, right in the middle of my shelves.
+
+The door looked ancient, with splintered wood and a barely-attached handle. My heart was pounding, but I couldn’t help myself; I pulled the trays out to see it more clearly. It shouldn’t have been there. But without thinking, I reached for the handle, opened it, and stepped through. The moment I did, I knew I’d made a mistake. I turned to look back, but the door was gone.
+
+Since then, I’ve been wandering this place, and nothing about it makes sense. Every area I walk through is completely different from the last, but they all feel wrong. I walked through a grand, empty ballroom yesterday, the floor so polished I could see my reflection, but it was silent, echoing with footsteps that weren’t my own. The next door led me to the middle of a forest, dense with trees, but when I looked up, there was no sky—just a flat, endless ceiling stretching above me.
+
+Every door leads to a different place, but none of them feel like the way out. I even found a skyscraper at one point, completely abandoned, filled with empty offices. When I opened a door on the 15th floor, I was back in what looked like my own living room, but the furniture was covered in dust, like it had been untouched for decades. None of it makes any sense.
+
+The worst part is the feeling that I’m not alone here. Every time I stop to rest, I can feel something watching me, though I never see anyone. Shadows flicker in the corners of my vision, and once I thought I heard a whisper—my own name, spoken from somewhere deep in the empty rooms. I tried calling out, hoping for some kind of response, but it only made the silence heavier.
+
+It’s been three days, and I’m running out of food and water. My phone battery is almost dead, and I don’t know how much longer I can keep doing this. If anyone out there has any advice, please, I need help. Ill be responding to any comments under this thread
