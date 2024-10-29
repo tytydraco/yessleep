@@ -432,7 +432,7 @@ Dread wore my skin.
 
 Gigi shot again, this time in my leg. The bone breaking was excruciating, but it stopped me from crawling. I layed there screaming, blood leaking out of me as my body tried to transform.
 
-“Say my name!” I screamed at Gigi again, hoping she’d understand. She raised the gun again.
+“Say my name!” I screamed at Gigi, hoping she’d understand. She raised the gun again.
 
 “Patrick.” I heard her say.
 
