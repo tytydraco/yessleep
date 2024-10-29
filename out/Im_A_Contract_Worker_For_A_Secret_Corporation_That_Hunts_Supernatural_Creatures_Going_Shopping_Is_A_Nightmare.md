@@ -1,4 +1,4 @@
-First
+[First](https://www.reddit.com/r/nosleep/comments/1fz6zph/im_never_doing_door_to_door_sales_again/)
 
 [Previous: ](https://www.reddit.com/r/nosleep/comments/1g8w6cj/im_a_contract_worker_for_a_secret_corporation/)
 

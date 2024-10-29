@@ -12,7 +12,7 @@ The best thing about Mindy’s home was a little playhouse she had, tucked right
 
 Inside were two wooden stools, and a toy box filled with make-believe kitchenware. A faux-stove, completely covered with painted appliances, and a rocking horse in the corner. Floral curtains to draw out the light. It was every little girls’ dream. And Mindy let it be mine as much as it was hers. Ours.
 
-Sometimes we’d have sleepovers in there. The door had a hatch key lock on the inside, so it felt like we really were adults; pretending to be roommates in our own grown up apartment. Telling each other stories over make-believe tea, and leaving the curtains open to star at the stars in the sky. The warm, summer nights left us comfortable in our sleeping bags, and I truly thought I’d never be happier. 
+Sometimes we’d have sleepovers in there. The door had a hatch key lock on the inside, so it felt like we really were adults; pretending to be roommates in our own grown up apartment. Telling each other stories over make-believe tea, and leaving the curtains open to stare at the stars in the sky. The warm, summer nights left us comfortable in our sleeping bags, and I truly thought I’d never be happier. 
 
 My therapist says trauma can hide a lot of things from you. It’s a tricky thing; leaving you with the dread and anxiety without ever revealing the extent of it all. I suppose PTSD is the phrase I should be using. My fond memories of Mindy’s house are still there, untouched—untainted. Maybe my own childhood experiences with my Mom didn’t allow me to realise the cracks that were forming in Mindy’s home. 
 

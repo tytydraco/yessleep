@@ -1,5 +1,7 @@
 [First](https://www.reddit.com/r/nosleep/comments/1fz6zph/im_never_doing_door_to_door_sales_again/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1g8w6cj/im_a_contract_worker_for_a_secret_corporation/)
+
 I found myself sitting on the floor of my apartment, wearing three layers of clothing while cutting out coupons for tonight's meal. Any money in the bank was put aside for my phone bill and rent. I didn’t even have enough for a loaf of bread. My work options had also dried up. Who would want to hire a guy with a resume like mine? For most of my adult life, I did a job where I couldn’t be upfront with new employers. If I said I had been a monster hunter until two years ago, I would be kicked out of any interview. I found myself at a breaking point.
 
 I needed a job soon or else I would be on the streets in a few weeks. Or starve to death. Whichever came first.

@@ -1,6 +1,8 @@
 [First](https://www.reddit.com/r/nosleep/comments/1fz6zph/im_never_doing_door_to_door_sales_again/)  
 [Previous ](https://old.reddit.com/r/nosleep/comments/1g4dsto/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next:](https://www.reddit.com/r/nosleep/comments/1gezwb6/im_a_contract_worker_for_a_secret_corporation/)
+
 I had enough money for rent but not to heat my apartment. I’ve been curled up on my bed for days under every scrap of fabric I own. My last job paid some bills but also ruined my left hand. I only got feeling back after days after all my other cuts healed. The freezing cold of my apartment didn’t help.   
 
 Freeze to death or die by some sort of monster? Every day I had a terrible choice to make. I hadn’t eaten a decent meal in a while as well. I looked through some regular job postings desperate to find one that would accept someone who hadn’t finished high school—no such luck. I then went to my email to find one of the less dangerous requests.  
@@ -148,5 +150,3 @@ Before I left for the night Lucas met me by the door. To my shock, he hurried ov
 He rushed off clearly embarrassed by the exchange. If I didn’t care about that kid before, now I very much did. But my face dropped when I looked up to see August overjoyed over the new development. So far, we bumped into each other by chance. I now worried there was no longer going to be any luck involved. I felt doomed to now see August far more often than I would like.  
 
 Here I just wanted to do a few jobs to cover my bills. Monster hunting is tricky. No matter what, it’ll take over your life regardless of how hard you try to avoid it.   
-
-  
