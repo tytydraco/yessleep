@@ -28,3 +28,4 @@ One incident, however, changed things. Right before summer break, a girl went to
 
 After this, the principal approved building a new washroom facility, tearing down most of the old one. The remnants of the old washroom, though, were still visible near the new one. Although girls continued to report strange sounds, nothing serious happened again.
 
+"Note: I received some help refining the language to make this story easier to read."
