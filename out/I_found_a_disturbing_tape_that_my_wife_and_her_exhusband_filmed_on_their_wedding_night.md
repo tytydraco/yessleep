@@ -1,24 +1,24 @@
-My name’s José, and I (49m) have been married to Kelly (42f) for 6 years. We met at Mexico City International Airport in 2014 — both of us were waiting in a bar for a late-night long-haul to London. She quickly clocked my black epaulettes, each bearing four yellow stripes, then swivelled in her barstool to smile at me. It was an unconvincing smile. I remember that. She looked like she’d been crying.
+My name’s José, and I (49m) have been married to Kelly (42f) for 6 years. We met at Mexico City International Airport in 2014 — both of us were waiting in a restaurant for a late-night long-haul to London. The pretty stranger quickly clocked my black epaulettes, each bearing four yellow stripes, then swivelled in her barstool to smile at me. It was an unconvincing smile. I remember that. She looked like she’d been crying.
 
 And I also remember her asking, “Are you flying somewhere far, far away?”
 
-When I revealed my destination, this pretty stranger laughed and said that she would be on my flight. I don’t remember much of what I said, truth be told, but I quipped about her not needing to worry because I’d just read Flying for Dummies. I know. I’m not the first captain to make that joke.
+When I revealed my destination, Kelly smiled and said that she would be on my flight. I don’t remember much of my response, truth be told, but I quipped about her being in safe hands because I’d just read Flying for Dummies. And Kelly laughed politely as if it were the first time she’d heard that joke.
 
-In all honesty, as scummy as it seems, I wanted to impress this heartbroken wife. She captivated me. After all of these years, I still remember every last thing she said. On the other hand, *my* words and feelings are fuzzy memories. Have been from the get-go. My mother used to say Kelly had put a spell on me.
+In all honesty, as scummy as it seems, I wanted to impress her. She captivated me. After all of these years, I still remember every last thing she said. Oddly, however, I only have fuzzy memories of my own words. My mother used to tease that Kelly had put a spell on me.
 
-Anyway, without being prompted, the sullen woman told me her story. That she was enjoying a honeymoon in Mexico, but she’d booked an early return flight home. Kelly explained that her husband, Michael, wasn’t the person he’d purported to be. He was an abuser. A liar.
+Anyway, without being prompted, the sullen woman told me her story. That she'd booked an early flight home in the middle of her honeymoon because her husband, Michael, wasn’t the person he’d purported to be. He was an abuser. A liar.
 
 “And he’s making me tell lies too,” she said. “He emptied me.”
 
-That bizarre and unsettling choice of words would ring in my head for the next 10 years. And only one day ago, after I found and watched that cursed tape, did I *finally* understand what Kelly meant. I think, at that airport bar a decade ago, she might’ve been warning me to stay away from her. I think that’d been a glimpse of the real Kelly.
+That bizarre and unsettling choice of words would ring in my head for the next decade. And only yesterday, after finding and watching that cursed tape, did I *finally* understand what Kelly meant. I think, 10 years ago, she might’ve been warning me to stay away from her. I think that’d been a glimpse of the real Kelly.
 
 But I’m not making sense. Let me explain.
 
-It could’ve ended at the end of that conversation. We could’ve parted ways. I wish we had. But I was compelled to see Kelly again. I know that’s awful. It’s not a habit of mine — falling for a married woman. I just felt something indescribable. Something I now realise may not have been love at all.
+Everything could’ve ended with that conversation. We could’ve parted ways. I wish we had. But I was compelled to see Kelly again. I know that’s awful. It’s not a habit of mine — falling for a married woman. I just felt something indescribable. Something I now realise may not have been butterflies at all.
 
-I spent a week in London before the return flight to Mexico, so I frequently met up with Kelly at her hotel to check that she was okay. She was too frightened to return to her hometown in Cambridge, as she believed that Michael would find her. Kelly ignored my pleas to report everything to the police, which seemed strange even at the time.
+I had a week in London before the return flight to Mexico. During those seven wonderful days, I frequently met up with Kelly at her hotel. Said that I had to 'check on her'. She was too frightened to return to her hometown in Cambridge, as she believed that Michael would be waiting for her. And she ignored my pleas to report everything to the police, which, I'll admit, seemed strange even at the time.
 
-To cut a long story short, we quickly formed a bond, and things didn’t end when I returned to Mexico. I visited Kelly every time I flew to England. She moved to Brighton, so I took the train to see her, depending on where I landed. I once took a short-haul flight from Paris to London just to see her.
+We quickly formed a bond, and things didn’t end when I returned to Mexico. I visited Kelly every time I flew to England. After she moved to Brighton, a month later, I started taking the train to her new apartment. Believe it or not, I once took a short-haul flight from Paris to London just to see her.
 
 A year later, when our relationship inevitably became something more, I’d already made the decision: I wanted to move to England to be with her. I’d been training to become an airport technician, and I secured a job at Heathrow in late 2015. By early 2017, Kelly and I had bought a house together. In 2018, we got married.
 
