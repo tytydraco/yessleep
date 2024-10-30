@@ -447,3 +447,5 @@ We got to the office in less than two minutes. No one else was in, so my uncle t
 The Man in the Cloak said I would get a clue tonight, during the ritual. By the way, I still don’t know what this ritual entails. Everyone has been remarkably clammy about it, and that is never a good sign when it comes to ancient rituals. Assuming I survive that, I then have to go deal with Mr. Spawn of Satan again, and hopefully get him to apologize. Every single day, some new aspect of this world opens up to me, and I’m pretty terrible at all of them so far. Here’s hoping that will change.
 
 In any case, buckle up. This is going to be [wild](https://www.reddit.com/r/chhayagarh/).
+
+[By wild, I meant storytime, of course.](https://www.reddit.com/r/nosleep/comments/1gflepl/chhayagarh_there_is_no_church_in_chhayagarh/)
