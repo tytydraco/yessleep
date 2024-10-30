@@ -2,9 +2,9 @@ My name’s José, and I (49m) have been married to Kelly (42f) for 6 years. We 
 
 And I also remember her asking, “Are you flying somewhere far, far away?”
 
-When I revealed my destination, Kelly smiled and said that she would be on my flight. I don’t remember much of my response, truth be told, but I quipped about her being in safe hands because I’d just read Flying for Dummies. And Kelly laughed politely as if it were the first time she’d heard that joke.
+When I answered, Kelly smiled and revealed that she would be one of my passengers. I don’t remember much of my response, truth be told, but I quipped about her being in safe hands because I’d just read Flying for Dummies. And she laughed politely as if it were the first time she’d heard that joke.
 
-In all honesty, as scummy as it seems, I wanted to impress her. She captivated me. After all of these years, I still remember every last thing she said. Oddly, however, I only have fuzzy memories of my own words. My mother used to tease that Kelly had put a spell on me.
+In all honesty, as scummy as it seems, I wanted to impress her. She captivated me. I still remember every last thing she said, even after all of these years. Oddly, however, I only have fuzzy memories of my own words. My mother used to tease that Kelly had put a spell on me.
 
 Anyway, without being prompted, the sullen woman told me her story. That she'd booked an early flight home in the middle of her honeymoon because her husband, Michael, wasn’t the person he’d purported to be. He was an abuser. A liar.
 

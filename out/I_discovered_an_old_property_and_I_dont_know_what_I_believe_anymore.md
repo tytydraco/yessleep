@@ -125,7 +125,7 @@ The more he spoke the more twisted his expression became like a wolf staring dow
 "It's a surprise of course. You'll have to follow me to the basement if you want to see it. We're playing some games down there. Come on you'll love it. I don't know if you've seen but I've been so busy lately. But hey life isn't all about work! Let's celebrate!"
 
 
-He pulled out a dagger from underneath his suit jacket and held it over me. In a soft voice be began muttering the happy birthday song to me. I could feel my entire body shake, my legs twitching as he followed me around the room muttering. I took the first opening I could get.
+He pulled out a dagger from underneath his suit jacket and held it over me. In a soft voice he began muttering the happy birthday song to me. I could feel my entire body shake, my legs twitching as he followed me around the room muttering. I took the first opening I could get.
 
 
 I ran out of the room and soon after felt his feet facing behind me. In a surge of terror I raced for the front door but it was barred from the outside and I had no time to unlock it as he chased me around with the knife laughing like an esctatic boy. Then I heard a commotion come up from below as a couple of others stormed through a door.
