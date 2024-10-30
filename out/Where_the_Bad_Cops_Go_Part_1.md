@@ -514,7 +514,7 @@ It was a comment to lighten the mood, but Nick just shook his head. Without a wo
 
  
 
-All the while, the New Year’s Eve celebrations were going strong. Rockets and lantern lighting up the sky to distant cheers. Warmth was returning to my hands and feet. I was starting to understand. When they said the town of Tomskog was unlike anything else, this was what they were talking about. It wasn’t just some hick town in the middle of nowhere, it was a place where the rules are different.
+All the while, the New Year’s Eve celebrations were going strong. Rockets and lanterns lighting up the sky to distant cheers. Warmth returned to my hands and feet. I was beginning to understand. When they said the town of Tomskog was unlike anything else, this was what they were talking about. It wasn’t just some hick town in the middle of nowhere, it was a place where the rules were different.
 
 And where rules are different, laws had to be different. This wasn’t just the place where the bad cops go – we were a necessary evil.
 
