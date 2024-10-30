@@ -2,7 +2,7 @@ I noticed this perhaps three weeks ago while brushing my teeth. My reflection wa
 
 I had just had a long day at work and simply thought my brain didn’t work. But it kept up the next morning. Same situation: teeth brushing, out of sync. 
 
-I attempted to use the mirror in the downstairs bathroom. But here, when I smiled, I noticed my reflection took that extra half for the lips to move. When I frowned, it was not quite right, as if this person frowning was not me, but another version of me.
+I attempted to use the mirror in the downstairs bathroom. But here, when I smiled, I noticed my reflection took that extra half second for the lips to move. When I frowned, it was not quite right, as if this person frowning was not me, but another version of me.
 
 This problem did not persist at work. At work the mirrors were functioning as usual. No delay. Nothing. So it is specific to my house.
 
@@ -17,4 +17,3 @@ One evening, I couldn’t take it anymore. I took a hammer to my mirrors. I don�
 I thought then that I had rid myself of them. But this was not the case. They only became more ambitious, if that is the right word. I saw them in the reflections of my window panes or in the steel pans I use to cook. They are smiling there, of course, with the same rotten teeth. They know they’ve got me, I suspect. That the joke they’re playing is in full effect.
 
 I’m writing this on my laptop. I went to the bathroom just now and when I came back, the screen reflected a pair of ugly gray hands perched upon my keys. As such, I can’t bring myself to write anymore. Please, if anybody else has ever suffered from this problem, can you write with advice. I think if it persists, I may go mad.
-

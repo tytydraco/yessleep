@@ -3,7 +3,7 @@
 
 The attack came like a nightmare, crawling from the depths of a silent, glassy sea that swallowed even the stars. We were floating under a moonless sky when shadows clawed their way over the rails, breathing death into the night. Their faces—painted with ash and firelight—contorted into vicious grins as they tore through our ranks. The stillness of the night shattered under their war cries and the wet, sickening sound of blades meeting flesh.
 
- We fought, but our resistance was nothing more than a feeble gasp against the tide. Men I had sailed with for years—my comrades, my brothers—were gutted like animals, their lives pooling across the deck in glistening pools that reflected the grim work of the pirates' torches. I clung to the shadows, rooted by fear and helplessness, waiting my turn to be slaughtered.
+ We fought, but our resistance was nothing more than a feeble gasp against the tide. Men I had sailed with for years—my comrades, my brothers—were gutted like animals, their lives pooling across the deck in glistening trails of blood that reflected the grim work of the pirates' torches. I clung to the shadows, rooted by fear and helplessness, waiting my turn to be slaughtered.
 
  Then, just as suddenly as they came, they were gone, slinking back into the dark without a backward glance, leaving the deck littered with the dead. They'd left nothing behind—no food, no water, and nothing of any worth. They had taken everything and reduced our ship to a floating tomb, rocking gently under a dead sky.
 
