@@ -26,7 +26,7 @@ As we rounded the bend, the path ended in a T. There was a metal sign, eroded at
 
 At the bottom of the sign, there were two arrows, and it read:
 
- **EASY KIDS’ MAZE (EST. 20 MINS) … CHALLENGING MAZE (EST. 1 HOUR) **
+<-- **EASY KIDS’ MAZE (EST. 20 MINS) … CHALLENGING MAZE (EST. 1 HOUR) -->**
 
 “Can we just do the kids’ maze?” Tyler asked. “It’s kind of cold.”
 
@@ -368,7 +368,7 @@ Somehow, I evaded the scarecrow all night. Before I knew it, the sun was rising.
 
 It was *our* voices.
 
-I screamed until I was hoarse, telling them—*us?—*to stay away. I screamed for help. I tried everything. I clawed my way through the corn, towards where I’d heard them—because clearly they were at the entrance—but all I found was more and more corn.
+I screamed until I was hoarse, telling them—\*us?—\*to stay away. I screamed for help. I tried everything. I clawed my way through the corn, towards where I’d heard them—because clearly they were at the entrance—but all I found was more and more corn.
 
 It was futile.
 
