@@ -246,7 +246,7 @@ His mouth stretched to an impossible amount, the ends almost touching his ears t
 
 “There you are, Mr. Eden. I was beginning to think you would never find me.”
 
-His voice was mine, but there was another layered under it: an older, deeper, sinister rasp. Whatever this was, it wasn’t inhuman. Remembering Shivdas’ advice, I kept my eyes on it.
+His voice was mine, but there was another layered under it: an older, deeper, sinister rasp. Whatever this was, it wasn’t human. Remembering Shivdas’ advice, I kept my eyes on it.
 
 “I have come to—”
 
