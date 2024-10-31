@@ -416,6 +416,6 @@ I should have felt hatred towards the man. I should have held him responsible fo
 
 I walked out the apartment, descended down the stairwell, entered into the lobby and finally, I stepped out of the building onto the bustling sidewalk. If not for the polaroid tucked away in my pocket, I might have tried to convince myself that it was all a fever dream for the sake of my sanity. I took the photo out just to confirm it. 
 
-I studied it for a moment, confused that the picture had now changed. In place of the four horses that ran across the horizon now stood four children. Two boys and two girls. They watched as before them, a lone man stood atop a corpse with a caved in skull with a bloodied stone in his hand. I flipped the polaroid over and as I had predicted, the poem had also been replaced. 
+I studied it for a moment, confused that the picture had now changed. In place of the four horses that ran across the horizon now stood four children. Two boys and two girls. They watched as before them, a lone man stood atop a corpse with a caved in skull, a bloodied stone in his hand. I flipped the polaroid over and as I had predicted, the poem had also been replaced. 
 
 It now simply read: *The folly of Cain*
