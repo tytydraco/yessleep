@@ -413,4 +413,6 @@ As far as the real shit goes, we’re still not done preparing. We’ll be gathe
 
 I just hope it'll be enough. 
 
+Update: [Dullahan time. ](https://www.reddit.com/r/nosleep/s/TwuT7dHmKw)
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv) 

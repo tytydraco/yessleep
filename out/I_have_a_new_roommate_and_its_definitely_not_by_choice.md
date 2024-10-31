@@ -24,7 +24,7 @@ So I finally turned around and looked at the stranger. He was still standing nex
 
 He took a few steps to get to the kitchen part of my studio and pulled out a large knife. 
 
-"Now check this out." De moved closer, showing me the knife from all sides before he turned it around and rammed it right inside his stomach.
+"Now check this out." He moved closer, showing me the knife from all sides before he turned it around and rammed it right inside his stomach.
 
 He giggled before pulling it back out, leaving a red stain on his white shirt. 
 
@@ -42,7 +42,7 @@ Then he walked up to the window and tried to pull it open.
 
 "What *are* you?" I spat out.
 
-"Oh, shut up. You sound like some character in a shitty movie. I'm Jimmy."
+"Oh, shut up. You sound like some character in a shitty movie. I'm Jimmy. Just Jimmy."
 
 He left the knife on the ground and walked up to my bed, sitting down and bouncing on the mattress a few times. "Hmm, comfy. Are you gonna stand there all night? Come on," he patted the mattress with his hand, gesturing to me to come closer but I was still glued to the door that wouldn't budge. 
 
@@ -74,7 +74,7 @@ When enough time passed, I dared to speak again.
 
 I locked myself inside the bathroom and just sat there, panting and wondering what to do. I spent so much time there that I almost convinced myself that I'd imagined it all, so I finally unlocked the door and walked out. At first there was no sign of Jimmy and I almost let the feeling of relief go through until I found him crouching on the kitchen floor. There were scissors and tape on the floor next to him and it seemed like he was making some kind of collage but he was leaning over his supplies so I couldn't see much.
 
-"What are you doing there, Jimmy?"
+"What are you doing there, Jimmy?" I asked in a shaky voice.
 
 "Crafting. You were in there so long I thought you'd fallen into the toilet," he snorted.
 
@@ -134,7 +134,7 @@ It took the last of my willpower not to throw the soup back up again. Some time 
 
 Luckily though, the soup was the only food Jimmy made. He left me in charge of our other meals, when we ran out of something, he left for a while and came back with food. I had to make specific lists, however. If I didn't, he just came back with rocks or pieces of skin that I didn't want to know where he got. 
 
-Jimmy was able to come and go as he wanted but I was stuck the entire time. During the few times that he left, I looked for ways to get out but so far I haven't found any. I keep wondering if anybody missed me. My parents or friends. But nobody has tried to come for me. I'm not sure if they haven't noticed or if they aren't able to. I've tried texting and calling but nothing will go through.
+Jimmy was able to come and go as he wanted but I was stuck the entire time. During the few times that he left, I looked for ways to get out but so far I haven't found any. I keep wondering if anybody misses me. My parents or friends. But nobody has tried to come for me. I'm not sure if they haven't noticed or if they aren't able to. I've tried texting and calling but nothing will go through.
 
 I'm truly stuck here but as long as I keep my roommate happy he doesn't harm me. So we play games, we watch shows and we craft. The crafting is always a little gory but I'm getting used to it.
 
