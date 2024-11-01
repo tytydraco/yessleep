@@ -74,7 +74,7 @@ Depth, pressure, oxygen. So far, so good.
 
 "Shit, really?" I asked.
 
-"Let's hope the connection fixes itself. Radar's still clear," they said.
+"Let's hope the connection resolves itself. Radar's still clear," they said.
 
 The descent continued.
 
@@ -184,7 +184,7 @@ My eyes were drifting down to my right wrist, where I could see that it was swol
 
 "We think you may have freaked out and had a panic attack," he said.
 
-"Fix your fucking cameras," I said to him.
+"Fix your fucking cameras," I snapped back to him.
 
 After being cleared by medical, I was sent home on leave.
 
