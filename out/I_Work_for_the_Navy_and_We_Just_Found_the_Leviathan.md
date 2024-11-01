@@ -1,29 +1,37 @@
-I’ve been in the Navy for nearly a decade, serving on submarines, patrolling the depths, doing my duty in the cold, quiet dark below. I thought I’d seen everything the ocean had to offer: massive squids, deep-sea fish with teeth like knives, the eerie glow of bioluminescent creatures. But nothing could’ve prepared me for what we found on our last mission.
+I’ve been with the Navy for over a decade, stationed on all kinds of vessels, but the submersible we took down on this last mission was something else entirely. It was designed for deep-sea observation, and equipped with reinforced viewing ports—windows, basically—so we could visually survey the depths. We weren’t told much, just that it was an “observatory” mission to gather data on unusual activity in one of the deepest parts of the Mariana Trench. The secrecy was unusual, even for the Navy, but we didn’t ask questions. We never do.
 
-The mission itself was classified, something about investigating unusual seismic activity in a trench farther down than we’d ever been. No one gave us specifics, just coordinates and orders to keep it silent. “Silent running,” they said, as if the water itself was listening.
+The sub was one of the most advanced in the fleet, built to withstand the crushing pressures at extreme depths, and staffed with top scientists, engineers, and military personnel. As we descended, all we had was the faint glow of the control panels and the soft, constant ping of the sonar as it mapped the abyss around us. The deeper we went, the more it felt like the ocean was closing in, an endless, black void pressing against us from all sides.
 
-It was deep. I’m talking depths that no sub should be able to survive. The pressure outside was enough to crush any normal vessel, but we were Navy, equipped with some of the most advanced tech in the world, so we went in. As we descended, everything became darker, heavier, like the ocean itself was pressing against us, telling us to turn back. But we kept going.
+At around 30,000 feet, the sonar tech picked up something. At first, it was subtle—a blip, too large to be a school of fish, too slow-moving to be a current. It was just… there, a solid mass, sitting in the trench. The tech adjusted the sonar range, trying to get a clearer picture, and we all leaned in, squinting at the screen. Whatever it was, it was massive, spanning the entire width of the sonar display. It stretched on, a solid, unbroken shape, too big for any known creature, too strangely organic for rock.
 
-After hours of descent, the sonar tech caught something—something massive. At first, we thought it was a cliff or part of the trench wall, but as we drew closer, the thing started to move. Slow, deliberate. We all froze, eyes glued to the monitors. Whatever it was, it was big, larger than any creature ever documented, stretching out in the darkness like the ocean floor had come to life.
+Our commanding officer ordered us to move in closer, to get a better scan. And as we approached, the thing began to resolve on sonar. It wasn’t stationary—it had a faint, pulsing movement, like it was breathing. As we drew near, we saw other structures attached to it, things that looked like massive fins or appendages, bigger than anything I’d ever seen.
 
-We didn’t realize what we were looking at until the lights hit it.
+And then we felt it.
 
-It was flesh.
+A low, deep vibration resonated through the sub, like a hum that rattled our teeth and made our skulls ache. It was too deep, too far down, for any sound to reach us from the surface. This sound was coming from… it. We froze, every eye in the control room fixed on the sonar display, watching as this… thing shifted, its enormous form moving, almost like it had woken up.
 
-A mottled, dark hide covered in scars and ridges, skin like ancient leather that looked tougher than the hull of our sub. Massive scales shifted like tectonic plates, each one larger than our sub’s viewing window. It was just… lying there, almost still, as if it were asleep. And then, a single eye opened.
+“Bring the lights to full,” the CO ordered. The exterior floodlights flickered on, casting beams into the blackness outside, illuminating the silt and scattering it like underwater dust. The windows creaked under the pressure, and we all braced ourselves, watching as the lights began to reveal its shape.
 
-I’ll never forget that eye. It was black, fathomless, staring through us, into us, a cold, primal intelligence that felt… wrong. It was like looking into a void, an emptiness so deep and old that it made my skin crawl, made my mind strain to comprehend it. The creature’s gaze held something ancient, something that had been there since the dawn of time, lurking in the depths, waiting.
+And that’s when we saw it.
 
-Then it moved.
+A wall of dark, mottled flesh, stretching up and down beyond the windows. I couldn’t even guess at its full size—it was like trying to comprehend a mountain in the dark. The skin was thick and leathery, covered in scars and barnacles, each marking older than anything we’d ever encountered. We traced the lights down, following the contours of its body, and then… we saw the eye.
 
-The creature began to unfurl, layers of scaled flesh peeling back as it rose, stretching, muscles rippling under its dark skin. It was like watching an island come to life, a landmass stirring awake, something that should never have been seen by human eyes. Its body went on and on, vanishing into the darkness like it had no end.
+It was massive, at least fifteen feet across, inky black, and utterly still. It stared back at us, an ancient, unblinking gaze that seemed to pierce through the hull, as if it knew we were there. There was intelligence in that eye—something cold, something that felt older than the sea itself.
 
-Panic set in as we realized how small we were, how utterly helpless. The captain ordered us to ascend, full throttle. We tried to turn, to get away, but then we felt it—a low hum, deep and resonant, filling the sub with a pressure so intense it felt like the walls would cave in. It wasn’t a roar. It wasn’t even a growl. It was something worse, something ancient, like the voice of the ocean itself vibrating through our bones.
+We froze, every nerve on edge. The eye moved, slowly, tracing the sub’s hull as if it were examining us, studying us. And then it blinked, and a low, thunderous vibration shook the sub, almost like a growl but far too deep, too primal. Our sonar screens went static, and the lights flickered. It was then that we realized the horrifying truth.
 
-And then, it moved faster than anything that size should. It surged, filling the sonar screen with its vast, sprawling form. I swear I saw teeth the size of buildings, rows upon rows, each one jagged and scarred, dripping with some dark, viscous liquid. Its mouth was wide enough to swallow our entire sub whole.
+This wasn’t just a creature—it was something beyond life as we understood it. Something ancient, a relic from a time when the earth itself was young. And it was awake.
 
-The last thing I remember was the alarm blaring, the lights flickering as we rose. We lost power for a second, the darkness swallowing us, and in that moment, I felt it—a deep, predatory intelligence brushing against my mind, something that had been waiting, lurking, and watching.
+The CO ordered an immediate ascent. The engines whirred, and we began to rise, but then… we felt it again, that deep, resonant hum, now louder, closer. The sonar flickered back on just in time to show the creature moving, turning its massive body with a slow, deliberate motion to follow us.
 
-When I woke up, we were back on the surface, drifting. None of us remember the last few minutes. The brass told us not to speak about it, ever. “A gas leak,” they said. “An underwater hallucination.” They shut us up, shut us out, transferred us to separate posts, but I can’t unsee it. I can’t forget what we found, what’s lurking down there, something too big, too old, too dangerous.
+Our screens went dark again, and the sub lurched violently, throwing us against the walls. Something was pressing down on us, like a wave of pressure that seemed to squeeze the very air from our lungs. And then… the scraping began.
 
-I know it’s still down there, waiting in the deep, biding its time. And every time I close my eyes, I see that endless, fathomless black eye, staring back at me. It knows I saw it. And I have this gnawing fear that one day, it’ll come looking for me.
+Something sharp—massive, clawed maybe—dragged along the hull, leaving deep, reverberating groans through the metal. I could feel it, this creature’s presence pressing against us, like it was probing, testing. Another scrape, this one longer, and deeper, made the sub shake so hard I thought it would tear in two. My mind reeled, the reality of it sinking in as I stared through the thick glass, where the dark eye loomed, watching.
+
+Somehow, the engines roared back to life, and we surged upward. The sonar returned, showing the creature slowly descending, slipping back into the trench as if losing interest. But I could feel it, even as we rose, the weight of that gaze following us all the way to the surface.
+
+When we finally broke into daylight, there was a tense silence, broken only by the labored breaths of the crew. None of us could find the words to speak about what we’d seen. They’re calling it a “sensor anomaly,” erasing the records, reassigning us to different stations, but I know the truth.
+
+We found something down there, something that doesn’t belong in our world, a living nightmare hiding in the deepest parts of the ocean. And it’s still there, waiting. I can feel it every time I look at the ocean, that cold, ancient eye staring back, remembering us.
+
+And I have no doubt that one day, it’ll rise again.
