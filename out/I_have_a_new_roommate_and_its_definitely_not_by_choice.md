@@ -110,7 +110,7 @@ I'd already learned that he didn't like it when I acted helpless or afraid, so I
 
 "I don't have my camera, sorry, buddy."
 
-"That's okay," I whispered. I slowly got back f to my feet and went to the bathroom to throw up until there was nothing left inside my stomach.
+"That's okay," I whispered. I slowly got back to my feet and went to the bathroom to throw up until there was nothing left inside my stomach.
 
 \--
 
@@ -128,7 +128,7 @@ I only shrugged because I didn't know what he wanted to hear. 
 
 \-
 
-I'm not sure what that concoction was that he made, but I ate it all the same. It smelled like sweat and tasted like vinegar, but there were crunchy pieces in it that I tried not to think about. Jimmy joined me and when he finished his bowl, he kicked it clean with his tongue. A tongue that had little suction cups all over it but I decided not to comment on that.
+I'm not sure what that concoction was that he made, but I ate it all the same. It smelled like sweat and tasted like vinegar, but there were crunchy pieces in it that I tried not to think about. Jimmy joined me and when he finished his bowl, he licked it clean with his tongue. A tongue that had little suction cups all over it but I decided not to comment on that.
 
 It took the last of my willpower not to throw the soup back up again. Some time passed and I seemed to be fine so at least he hadn't poisoned me. Quite the opposite actually, I felt pretty good. Not mentally, of course, but physically I was doing quite well. My panic had receded and I was fully awake. 
 
