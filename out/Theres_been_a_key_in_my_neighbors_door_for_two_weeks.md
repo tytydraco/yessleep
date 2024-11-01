@@ -68,7 +68,7 @@ But before I could bask in the moment, she interrupted me.
 
 "Just wait. He'll be back. Especially now that you're here." Mr. Carlson said.
 
-"He's right. I entered just like you did, after dropping off the mail and wondering if something was the matter, finding Mr. Carlson here and that I was trapped insidr. And within a few minutes, the man arrived." Brenda explained.
+"He's right. I entered just like you did, after dropping off the mail and wondering if something was the matter, finding Mr. Carlson here and that I was trapped inside. And within a few minutes, the man arrived." Brenda explained.
 
 "Wait, what are you trying to tell me?"
 
@@ -112,9 +112,9 @@ Then, I walked over to the front door and inserted the key.
 
 "Don't do it!" Brenda cried out.
 
-"He's tricking you!" Mr. Carlson cried out.
+"He's tricking you!" Mr. Carlson added.
 
-But I was too compelled by my plan to listen to them, and turned the doorknob.
+But I was too compelled by my plan to listen to them, and proceeded to turn the doorknob.
 
 CLICK.
 
