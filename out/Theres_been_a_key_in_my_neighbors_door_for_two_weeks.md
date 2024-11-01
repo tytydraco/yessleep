@@ -50,7 +50,7 @@ I was about to find out.
 
 "Brenda? What are you doing in Mr. Carlson's house?"
 
-She simply replied. "They key."
+She simply replied. "The key."
 
 "Oh, it's yours?" I asked, letting out a sigh of relief, after spending two weeks running through every possible reason for it being left in the door.
 
