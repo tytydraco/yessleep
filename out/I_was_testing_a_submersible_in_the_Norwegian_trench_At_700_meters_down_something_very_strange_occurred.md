@@ -32,7 +32,11 @@ The entire front panel of the pod is a special glass, a viewing porthole.
 
 They're sending me down, pulling me up. Easy.
 
-“Ready, Maria?” crackled through the speakers, snapping me back to the here and now. I stared out the porthole at the water. It was this endless, gorgeous blue that was just begging me to come get lost in it.
+“Ready, Maria?” crackled through the speakers, snapping me back to the here and now.
+
+I stared out the porthole at the water.
+
+It was this endless, gorgeous blue that was just begging me to come get lost in it.
 
 “Shit, I guess so,” I replied, adding a grin.
 
@@ -44,7 +48,7 @@ I watched as the world outside shifted from bright turquoise to this dark, almos
 
 **100 METERS**
 
-By a hundred meters, it was getting murkier.
+It was getting murkier.
 
 The sunlight faded, replaced by a deep blue that was almost hypnotic.
 
@@ -52,7 +56,7 @@ The sunlight faded, replaced by a deep blue that was almost hypnotic.
 
 **200 METERS**
 
-At two hundred meters, I could feel the weight of the ocean pressing in, squeezing the pod. The light outside was nearly gone, and all I saw were shadows.
+I could feel the weight of the ocean pressing in, squeezing the pod. The light outside was nearly gone, and all I saw were shadows.
 
 Strange shapes drifted by. Maybe fish, maybe something else. But it was hard to tell.
 
@@ -60,13 +64,13 @@ The deeper I went, the less anything looked familiar.
 
 **300 METERS**
 
-At three hundred meters, the pod’s lights clicked on, casting a faint glow into the darkness. It was eerie, the way the beam just vanished into the black, like the ocean was swallowing it whole.
+The pod’s lights clicked on, casting a faint glow into the darkness. It was eerie, the way the beam just vanished into the black, like the ocean was swallowing it whole.
 
 The pressure built with every meter down, squeezing in, like the ocean’s giving the pod a hug that just kept getting tighter. I tried to keep my breathing steady, my eyes flicking over the gauges.
 
 Depth, pressure, oxygen. So far, so good.
 
-"Visuals seem to be struggling," Control said.
+"Camera feed seems to be struggling," Control said.
 
 "Shit, really?" I asked.
 
@@ -76,13 +80,13 @@ The descent continued.
 
 **500 METERS**
 
-At about five hundred meters, it was completely dark.
+It was completely dark.
 
 I mean, it was dark in a way you don’t really get until you’re down there. I’d always liked my alone time, but this was next-level isolation. Even my thoughts sounded louder than they should.
 
 **700 METERS**
 
-At seven hundred meters, it felt like the ocean was closing in, squeezing tighter and tighter.
+It felt like the ocean was closing in, squeezing tighter and tighter.
 
 The pod’s lights barely cut through the darkness, and suddenly, there they were...
 
@@ -120,17 +124,17 @@ Then -
 
 One of the ships crashed into the pod, the sound echoing through the small cabin. I could almost hear the groaning of metal, like a deep, ancient sigh, as if the ocean itself resented my intrusion.
 
-“Maria, stay calm,” Control said, voices overlapping, urgent now. “Your readings are… Hold on, we’re seeing a drop in—” The radio crackled, then cut off entirely, leaving me in total silence.
+“Maria, stay calm,” Control said, voices overlapping, urgent now. “Your readings are… Hold on, we’re seeing a drop in—”
 
-Before they could finish, there was a loud hiss, and the air inside the pod thinned out.
+The radio crackled, then cut off entirely, leaving me in total silence. Then there was a loud hiss, and the air inside the pod thinned out.
 
 The following happened in an instant. I will try to describe best I can remember it.
 
-It felt as though the pod was struck from behind by something else. Maybe a ship. I could sense the pod was about to split apart from the pressure.
+It felt as though the pod was struck from behind by something else. Maybe another ship. I could sense the pod was about to split apart from the pressure.
 
 My heart rate was cruising up and up.
 
-I was staring at the top of the pod, looking for where the seal might give.
+I was staring at the pod's ceiling, wondering if it might give out.
 
 Then the banging on the front porthole started.
 
@@ -152,15 +156,21 @@ Then. Total blackness. Nothing.
 
 When I came to, it was the harsh, buzzing lights of the Fjord Explorations office that greeted me. My head was pounding, and I was wrapped in this scratchy-ass blanket that smelled like it had been in storage for a while. Across from me were two HR types, looking at me like I was some science experiment gone wrong.
 
-“Maria, can you hear us?” one of them asked, leaning forward like he was talking to a kid. I blinked, trying to piece together what was real.
+“Maria, can you hear us?” one of them asked, leaning forward like he was talking to a kid.
+
+I blinked, trying to piece together what was real.
 
 “Uh, yeah,” I croaked. “What… happened?”
 
-The guy glanced at his tablet, scrolling through something. “We’re still figuring that out. The pod’s systems registered a depressurization event, but when we pulled you up, everything was… fine.”
+The guy glanced at his tablet, scrolling through something.
+
+“We’re still figuring that out. The pod’s systems registered a depressurization event, but when we pulled you up, everything was… fine.”
 
 “Fine?” I repeated, my brain still foggy. “I saw things down there. It wasn’t fine.”
 
-The woman beside him cleared her throat, frowning. “We reviewed the footage. And I'm sorry to say we lost signal about 300 meters down.”
+The woman beside him cleared her throat, frowning.
+
+“We reviewed the footage. And I'm sorry to say we lost signal about 300 meters down.”
 
 I stared at her, my mouth dry.
 
@@ -170,7 +180,7 @@ I stared at her, my mouth dry.
 
 “Yeah,” I mumbled, barely listening.
 
-My eyes were drifting to my right wrist, where I could see that it was swollen and bruised. It was already a mixture of deep purple. Blood was pulling under my skin.
+My eyes were drifting down to my right wrist, where I could see that it was swollen and bruised. It was already a mixture of deep purple. Blood was pulling under my skin.
 
 "We think you may have freaked out and had a panic attack," he said.
 
