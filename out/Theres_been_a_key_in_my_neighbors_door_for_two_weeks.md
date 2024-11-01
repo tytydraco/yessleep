@@ -14,15 +14,15 @@ And the next day after that.
 
 Eventually, after a week had passed, I started to get worried.
 
-See the thing is, I would have maybe written off the key as a simple mistake before going on a trip,  but Mr. Carlson was quite old and frail, and had stopped leaving his house a long time ago, depending on caretakers for groceries and basic home goods.
+See the thing is, I would have maybe written off the key as a simple mistake before going on a trip, but Mr. Carlson was quite old and frail, and had stopped leaving his house a long time ago, depending on caretakers for groceries and basic home goods.
 
-Which brought me to my next conclusion... that if must have been one of his caretakers.
+Which brought me to my next conclusion... that it must have been one of his caretakers.
 
 But then I remembered that they stopped by his house every few days, and surely would have noticed the key.
 
-Finally, after two weeks of indecision, I finally worked up the courage to walk over to Mr. Carlson's door, place my hand on the doorknob, the key still hanging from, turning the knob.
+Finally, after two weeks of indecision, I worked up the courage to walk over to Mr. Carlson's door, place my hand on the doorknob, the key still hanging from it, and turn the knob.
 
-As I turned it, I couldn't help but hear a faint echo, like several people shouting from a hundred yards away.
+As I turned it, I couldn't help but hear a faint echo, like the sound of a couple people shouting from a hundred yards away.
 
 I stopped and looked around.
 
@@ -30,7 +30,7 @@ Nothing.
 
 I turned back to the door... and opened it.
 
-Fearing the worst, I braced myself, closing my eyes. Upon opening them, I simply saw an empty foyer, and let out a sigh of relief. But what I didn't know… was that "worst" thing that I feared, was nowhere near what I'd soon discover.
+Fearing the worst, I braced myself, closing my eyes. Upon opening them, I simply saw an empty foyer, and let out a sigh of relief. But what I didn't know… was that the "worst" thing that I feared, was nowhere near what I'd soon discover.
 
 "Mr. Carlson." I called out, before shutting the door behind me.
 
@@ -42,9 +42,9 @@ Suddenly, the lights went out, and I saw...
 
 ...Mr. Carlson and Brenda, our neighborhood post office worker, sitting on the staircase together, a look of horror in their eyes.
 
-Mr. Carlson! What a relief. And Brenda? I haven't seen her in a couple weeks. I thought to myself, remembering the past week's strange lack of mail that everyone in the neighborhood had been talking about.
+Mr. Carlson! What a relief. And Brenda? I haven't seen her in a week. I thought to myself, remembering the past week's strange lack of mail that everyone in the neighborhood had been talking about.
 
-Looking back on it, I should have put two and two together. But what possibly could the disappearance of our mail person and a key in my neighbor's have in common?
+Looking back on it, I should have put two and two together. But what possibly could the disappearance of our mail person and a key in my neighbor's door have in common?
 
 I was about to find out.
 
@@ -56,7 +56,7 @@ She simply replied. "They key."
 
 But before I could bask in the moment, she interrupted me.
 
-"No. It's not mine. Or his." She said menacingly, before turning to Mr. Carlson, who looked exhausted.
+"No. It's not mine. Or his." She said, before turning to Mr. Carlson, who looked exhausted.
 
 "It belongs to him." The old man said.
 
@@ -68,7 +68,7 @@ But before I could bask in the moment, she interrupted me.
 
 "Just wait. He'll be back. Especially now that you're here." Mr. Carlson said.
 
-"He's right. I entered just like you did, after dropping off the mail and wondering if something was the matter, finding Mr. Carlson here. And within a few minutes, the man arrived." Brenda explained.
+"He's right. I entered just like you did, after dropping off the mail and wondering if something was the matter, finding Mr. Carlson here and that I was trapped insidr. And within a few minutes, the man arrived." Brenda explained.
 
 "Wait, what are you trying to tell me?"
 
@@ -98,7 +98,7 @@ I couldn't bear to turn around. So I simply called back to the voice.
 
 "I'm the keeper of the keys to your worst nightmares."
 
-I turned around, to find a man standing there in the darkness, his eyes glowing, and keys dangling from every inch of his body.
+I turned around, to find a man standing there in the darkness, his eyes glowing, and keychains dangling from every inch of his body.
 
 "Let us out!" I screamed at him, pretending to be courageous, but terrified by the mere sight of such a thing.
 
@@ -114,13 +114,13 @@ Then, I walked over to the front door and inserted the key.
 
 "He's tricking you!" Mr. Carlson cried out.
 
-But I was too compelled by my plan to listen to them, and turned the knob.
+But I was too compelled by my plan to listen to them, and turned the doorknob.
 
 CLICK.
 
 It opened.
 
-"See?" I said, as I turned back to them with a smug look on my face.
+"See?" I said, as I turned back to Brenda and Mr. Carlson with a smug look on my face.
 
 They simply shook their heads in disappointment.
 
@@ -132,11 +132,11 @@ What the? I thought to myself, as once again, chills ran down my spine.
 
 Feeling unsettled by being in there, I opened the door and entered the second story hallway, where I heard the sound of someone being strangled in a nearby bedroom.
 
-Normally, I would have been shocked to hear it, but this was a sound I had before. This...
+Normally, I would have been shocked to hear such s sound, but this was one that I had heard before. This...
 
 ...Was a memory. A memory that I was reliving in real life, now as an adult.
 
-A tear rolled down my cheek, as I knew exactly what was happening in the other room, and despite my attempts to hold back, couldn't stop myself from attempting to stop him.
+A tear rolled down my cheek, as I knew exactly what was happening in the other room, and despite my attempts to hold back, I couldn't stop myself from rushing into the bedroom and trying to stop him.
 
 But just as it had unfolded in real life, many years ago, by the time I opened the door... it was too late.
 
@@ -154,7 +154,7 @@ But all that I found... was Brenda and Mr. Carlson. Staring up at me with wide e
 
 "I'm sorry." Brenda said, seeing the expression on my face.
 
-"How did you know? And how did that happen?"
+"How did you know?"
 
 "Because it happened to us. Over and over. No matter which key he handed us."
 
@@ -164,7 +164,7 @@ But I should have.
 
 As I stood there, shaking in horror, I heard the sound of keys rattling, and I turned around to find the monster standing there again.
 
-"What do you want?" I called out.
+"What do you want?" I cried out.
 
 But he didn't answer. He simply looked down at his body and removed a particular keychain with one key on it.
 
@@ -172,7 +172,7 @@ But he didn't answer. He simply looked down at his body and removed a particular
 
 I looked at the key, then back at the door, then back at the monster, this time unable to smile.
 
-I knew another horror lay before me. Knew that  the key would not help me escape the house.
+I knew another horror lay before me. Knew that the key would not help me escape the house.
 
 But for reasons I can't quite explain... maybe I thought there was an inkling of a chance that the key would work... or maybe it was a desire to see my father again... I took it anyway.
 
@@ -184,7 +184,7 @@ This went on and on, until I couldn't bear to take it anymore, and eventually ga
 
 When I finally declined the man's key, he simply replied, "Have it your way," before disappearing into the darkness.
 
-I turned to Brenda and Mr. Carlson, who went on to explain how they, too, had tried the keys and experienced nightmare after nightmare from their respective pasta. Then we all retired to the living room where we slept on the couch, chair, and floor, respectively, reasoning that we should stay in the same room.
+I turned to Brenda and Mr. Carlson, who went on to explain how they, too, had tried the keys and experienced nightmare after nightmare from their respective past. Then we all retired to the living room where we slept on the couch, chair, and floor, respectively, reasoning that we should stay in the same room.
 
 The next day, we huddled together, eventually coming to the conclusion that the house, its door, and the keys, must be some sort of twisted test, caused by the key in the home's front door, and enforced by the monster that wore an armor of keyrings.
 
@@ -200,19 +200,19 @@ That's when... someone else arrived.
 
 
 
-"Nooooo!" We all screamed, our voices surely echoing outside as Officer Howe turned the key outside, and let himself in.
+"Nooooo!" We all screamed, our voices surely echoing outside just as I heard them, as Officer Howe turned the key to the front door, and let himself in.
 
 
 
-By the time the door had closed behind him, it was two late... and three... had become four.
+By the time the door had closed behind him, it was too late... and three... had become four.
 
 
 
-Once again, the monster returned, this time offering Office Howe a key, who took and let himself out, experiencing a nightmare of his own, only to return from upstairs a short time later with a look of horror in his eyes.
+Once again, the monster returned, this time offering Officer Howe a key, who took it and let himself out, experiencing a nightmare of his own, only to return from upstairs a short time later with a look of horror in his eyes.
 
 
 
-After we told him our stories, he too, declined the monster's next key, and we once again huddled together, eventually deciding that the answer must not lie in the house itself, but within the monster.
+After we told him our stories, he too, declined the monster's next key, and we once again huddled together, eventually deciding that the answer must not lie in the house itself, but with the monster. But how do I stop it? I wondered.
 
 
 
@@ -236,7 +236,7 @@ Suddenly, I saw a window slowly pry open, as a masked man broke in, and moved to
 
 
 
-Not knowing what else to do, I sprang to the young man's rescue, darting toward the intruder and grappling with him, waking the young man, who watched on in horror, as the man was somehow impaled on his own knife, and toppled out the window.
+Not knowing what else to do, I sprang to the young man's rescue, darting toward the intruder and grappling with him, waking the young man, who watched on in horror, as the masked man was somehow impaled on his own knife, and toppled out the window.
 
 
 
@@ -260,7 +260,7 @@ I turned back to the young man, who was still staring at me, then stumbled backw
 
 
 
-When I finally emerged from the darkness, holding the key, I found Brenda, Mr. Carlson, and Officer Howe all standing there in shock, having clearly expected that I may never return.
+When I finally emerged from the darkness, holding the key, I found Brenda, Mr. Carlson, and Officer Howe all standing there in the foyer, a look of shock on all their faces, having clearly expected that I would never return.
 
 
 
@@ -276,7 +276,7 @@ The door still open, I looked back inside the home and saw Brenda, Mr. Carlson, 
 
 
 
-I signaled them to join me.
+I signaled for them to join me.
 
 
 
@@ -296,7 +296,7 @@ But he didn't reply. He simply took a seat on the staircase.
 
 
 
-"Do me a favor? When you shut the door, leave the key inside the door." The old man said.
+"Do me a favor? When you shut the door, leave the key inside the doorknob." The old man said.
 
 
 
