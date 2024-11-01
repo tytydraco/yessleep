@@ -1,8 +1,8 @@
-I wasn’t supposed to have anything to do with it. 
+I wasn’t supposed to have anything to do with it.
 
 Really. I mean it. I ain’t a detective. I wasn’t looking for answers. I kept to myself all my life; I just wish I could’ve been left alone in turn. Even when the bodies started going missing, I kept my head down. Grim stuff, for sure. But what was I supposed to do? 
 
-I guess it’s old-fashioned now - maybe a cliche, but I’m a small-town guy. I go at a slower pace than most folks, I've never lived anywhere other than my hometown, and I've never regretted. At least, I didn’t before. 
+I guess it’s old-fashioned now - maybe a cliche, but I’m a small-town guy. I go at a slower pace than most folks, I've never lived anywhere other than my hometown, and I've never regretted that. At least, I didn’t before. 
 
 Sure, I knew Dr Geller. We grew up just a couple of streets apart. Even if we were on the other side of the tracks, so to speak. He was younger than me, but we was in all the same classes. Me held back a year, him pushed forward. They kept pushing him forward. He was out of state and going to college by the time he was 16. Duke, I think it was? Yeah, Duke. He became the... oh, what was it?  The Dean of Surgery there. I saw that on Facebook once, before he came back. 
 
@@ -18,7 +18,7 @@ No one knew what he’d done to get his license taken away. There was rumors, co
 
 Quite a change, going from the Dean of Surgery to a local biology teacher. Going all across the country back to his hometown. But I don’t think that’s any great mystery. Least weird thing about the story if you ask me. It weren’t no secret that his wife had died; cancer, of course. So now it were just him and Nina. 
 
-Poor Nina. She was a real nice girl. Always cleaned up after herself. Even apologized when I had to clean up the mess her friends had left behind in classroom, and helped me tidy it up. See, it’s kids like her that make me have a little hope. I see the worst parts of kids doing what I do. 
+Poor Nina. She was a real nice girl. Always cleaned up after herself. Even apologized when I had to clean up the mess her friends had left behind in a classroom, and helped me tidy it up. See, it’s kids like her that make me have a little hope. I see the worst parts of kids doing what I do. 
 
 Now I seen the worst parts of fathers too.
 
