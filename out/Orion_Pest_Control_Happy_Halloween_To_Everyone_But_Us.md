@@ -395,5 +395,7 @@ As she tended to them, taking her time cleaning and dressing the wounds, we wait
 
 The sky is getting lighter. We're still waiting. 
 
+Update: [What happened to the Dead Duo. ](https://www.reddit.com/r/nosleep/s/0UsEb9fKv4)
+
 [(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv) 
 
