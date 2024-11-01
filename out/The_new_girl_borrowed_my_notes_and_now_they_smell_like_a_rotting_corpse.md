@@ -1,0 +1,47 @@
+My name is Jane. I'm in a friend group of 4 girls, including me. Recently, I made friends with this girl, Sarah, and introduced her to my other friends. I met her through my Biology class. Mr. Williams sat her next to me, since she switched schools to our school mid-semester. I lent her my notes from the previous semester to catch her up on exam prep.
+
+Most of my friends were fine with her, but one of my friends, Maria, wasn't. I never bothered to ask why since I usually talked to Sarah outside of the 4-girl friend group anyways. I did try not to bring her around Maria as much, because I could always sense that Maria was uncomfortable around her. This worked for the most part, until Sarah began joining us for lunch almost everyday. I didn't specifically tell her to sit with us, she just started sitting at our table.
+
+Because of this, she started to get closer to another girl from my friend group, Jen, thus making Sarah talk more whenever she sat at our table. Maria really hated this, and stayed silent the entire time. I started feeling bad and got curious so I asked her about it during our only shared period, Math.
+
+She told me there was no specific reason, it was just that Sarah gave her "bad vibes". I was a little confused, but brushed it off for a while. I suppose it's not entirely abnormal to get bad vibes from a new person in your friend group.
+
+Anyways, last Tuesday, during Biology, which was the last period, Sarah had returned all my notes and reviewers I had created back to me. I was shocked at how fast she picked up a semester's worth of lessons, but still thanked her and accepted it. When I got home, I started studying, until I noticed an odd smell coming from my books. It smelled something like left out fish. Kind of like the leftover sushi a Japanese restaurant would throw into the trash.
+
+I asked her about it the next day, and she started getting emotional. She said that her family had been evicted the previous month and they had been moving from place to place for shelter. On the days she studied my notes, her family was staying at a musty old motel and had been struggling a lot fincancially. I felt a surge of guilt flow through my veins for asking her about it. She walked away before I could apologize.
+
+During lunch, I talked to Jen about it, since she was also getting close to Sarah. She looked confused. Then, she explained that Sarah had just gifted her a Kate Spade bag a few days ago, as an early birthday gift. How could her family be struggling if she could afford to gift Jen a Kate Spade bag. I was shocked.
+
+Why would she lie about that? Also, what was the cause of the smell of my books if her explanation *wasn't* true? I couldn't take notes during class because the smell kept distracting me. I just borrowed notes from Anna, the last girl from my friend group. I was too awkward and shy to bring the information to Sarah.
+
+I tried to forget about it, but I couldn't. The smell was so distinct, I couldn't forget it. That spoiled fish stench, with... an almost... burnt smell? It was hard to explain. I couldn't take it anymore. I decided just to take a picture of my notes then copy them onto a new notebook, so I could throw the stinky books out after that.
+
+I wanted to tell Jen about it the next day, but she started ignoring me. She didn't even sit at the same table as me. Maria *also* sat at a different table from "fear" of Sarah sitting with us. Yeah, *fear*.
+
+I just ate lunch with Anna that day. She hadn't talked to Sarah much, other than small talk whenever she joined our table for lunch. Anna suggested that I text her when I get home. I *did* text her when I got home, but she didn't reply. She left me on "read".
+
+Maria pulled me aside the next day. She finally explained why she had been avoiding Sarah. She had recognized Sarah from the summer camp she attended the previous year. She never really talked to Sarah there. She recognized Sarah because she had attempted to hit a girl on the head with a giant *wood plank* and was kicked out. She was sent to jail for about 4 months. That's why she had joined late *this* semester. Chills were sent down my spine. It all began to make sense... *for a while*, at least. The next day, Maria was absent from class. I didn't know why. She wasn't replying to my texts or answering my calls, either.
+
+I had lunch alone with Anna, again, and she told me that Jen had given her a note that she said to give to me. I took it, and read it after finishing lunch. The note read, "I'm being **threatened**." Another round of chills took over my body. Who was threatening her? Sarah?
+
+Like I had mentioned before, exams were coming up. Our final project before that was a model of a wind turbine. We were already 2 days behind schedule, so we agreed to meet up at her house, to my dismay. "Wait, her *house*?" I thought, right before I left. I remembered how she got emotional a few days ago speaking about how she was just evicted the month before and how she had been moving from motel to motel for shelter. I hesitated going to her house, but I was already doing bad in chemistry and I *couldn't* afford to waste anymore time for this project. I brought a small bottle of pepper spray with me. Just to be safe.
+
+I arrived at her house at around 6 PM. Not to offend anyone, but it did *not* look like the house of anyone who would be suffering financially. It wasn't a mansion or anything, but it had grey painted concrete walls, polished floors of wooden planks. Her parents weren't home. She explained that they had gone on a 2-month business trip. "It's fine. I'm independent, I can take care of myself," she explained. It was pretty comfortable, too. It made me even more uneasy. At some point during the project-making, I told her I needed to use the bathroom. She told me to use the guest one, downstairs. On my way there, my nose started tingling, as if alerted or startled by something. It had caught the whiff of a *very familiar scent*. That burnt rotten fish smell.
+
+I looked behind me, and realized it was coming from a small hallway. I entered the hallway slowly until I reached the door. The smell got stronger, until it was almost *unbearable*. I still had that small bottle of pepper spray in my pocket. I was smarter than to leave it in my bag. I opened the door, my right thumb hooked onto my back pocket, where the pepper spray was. The was a small staircase leading down, into the *basement* of the house.
+
+It was dark. I couldn't see anything apart from the outline of a chair, and a shelf. I felt the light switch, right beside the bottom of the staircase. I turned the lights on. In the center of the room, was *Maria*. She was unconscious, with a few scratches on her face, arms, and knees. Near the sides and corners of the room, were about 4 dead and bloody birds, the corpse of a *medium-sized deer*. I gasped, stopping myself from screaming. I had been gone for about 3 minutes by then, and if Sarah had thought I was using the restroom, she would probably expect me to be back up soon. The stench was killing me, and I almost passed out. Maria's hands were tied to the back of the chair, and her face was covered with duct tape. I covered my nose, and tried to untie her.
+
+Suddenly it all went black. *Not* because I fainted, but because Sarah had found me in the basement and shut the lights. I had forgotten to close the door. I took out my pepper spray. "This is fun! Not for *you*, though," I heard a voice cackle. The innocent demeanor and voice turned into a dark and murderous aura. A tiny light flashed behind me, leaving a shadow on the wall.
+
+I looked behind me, and it was Sarah. "Boo!" she screamed, as I jumped up in horror at the sight of her lit up face, from the flashlight under her chin. I fell backwards, bumping into the chair Maria was half-tied to. She woke up from the fall. I took out my pepper spray, and sprayed Sarah in the face. She screamed in pain, blinded, as she bumped into the shelf, making it topple over onto her, while she landed on the carcass of the dead dear. I finished untying Maria, and removed the tape on her face, and we hurried out of the house. I helped her as she limped out of the house, as Sarah's screams grew quieter and quieter the further we got from her house. We rode home on my tiny pink moped scooter.
+
+I called the police once we got home, as my mother treated Maria's wounds. Once the officers arrived at Sarah's house, she was *nowhere* to be found. What would have happened to Maria if I *hadn't* chosen to go to her house that day?
+
+Though this traumatic experience will follow me for a while, I'm glad I did it for Maria.
+
+The next day, during lunchtime, the four of us finally gathered again. Including Jen. She told us that Sarah threatened to kidnap her if she didn't get away from me, as Maria and I shared the terrifying experience at her house. Now, *nothing* could break the bond between my friends and I. Not even some rando psycho-killer.
+
+Every now and then, I pass by the park to cool my ever-growing thoughts. I always pass by the same flyer near the lamp post beside the dumpsters. A missing person's report for Sarah Smith. Not wanted, *missing*.
+
+Why she did all of this, I don't know. I seemed to have stopped her plans before she even finished it half-way, thankfully. I get curious *sometimes*, but I know it's better that I *didn't* find out.
