@@ -1,4 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/1frodeb/where_the_bad_cops_go_part_1/) \- \[2\] - [\[3\]](https://www.reddit.com/r/nosleep/comments/1g1qlqk/where_the_bad_cops_go_part_3/) \- [\[4\] - \[5\]](https://www.reddit.com/r/nosleep/comments/1g7brq9/where_the_bad_cops_go_part_4/)
+[\[1\]](https://www.reddit.com/r/nosleep/comments/1frodeb/where_the_bad_cops_go_part_1/) \- \[2\] - [\[3\]](https://www.reddit.com/r/nosleep/comments/1g1qlqk/where_the_bad_cops_go_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/1g7brq9/where_the_bad_cops_go_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/1gco12h/where_the_bad_cops_go_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/1gi1a48/where_the_bad_cops_go_part_6/)
 
 For a couple of weeks after our run-in with the contaminated apartment building, there were a lot of people coming and going. Sheriff Mason had called in the cavalry. I saw a couple of unmarked vans, and at one point, a bus - a sort of mobile base. I saw people associated with the DUC once. They were wearing a sort of battery-powered full-cover helmet that looked straight out of a cheap sci-fi flick.
 
