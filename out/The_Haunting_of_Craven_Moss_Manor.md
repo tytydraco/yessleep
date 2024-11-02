@@ -26,7 +26,7 @@ Wallace’s fingers twitched around his flashlight. "We need to find out what ha
 
 The guide swallowed hard, his voice barely a rasp. "If we go in there… we might not come back."
 
-We stepped inside, the door groaning shut behind us. As the heavy sound echoed through the decaying halls, the temperature dropped, and the stench of rot hit them like a wall. Cold, damp air weighed on their lungs.
+We stepped inside, the door groaning shut behind us. As the heavy sound echoed through the decaying halls, the temperature dropped, and the stench of rot hit us like a wall. Cold, damp air weighed on our lungs.
 
 “Well, that isn’t ominous or nothing.” I joked, trying to lighten the mood. 
 
@@ -90,9 +90,9 @@ We sprinted toward the hallway, but the walls were shifting, closing in. The onc
 
 "Don’t stop!" Wallace gasped, pulling Hartman along. "It’s trying to trap us!"
 
-The warped walls cracked open and gave us an exit from this, all of us could be eaten buffet. I grabbed both of them and pushed them toward that last opening available. We bolted from the library, the green fog of the void chasing like a nipping dog after our retreating feet, devouring the floor, walls, and ceiling as we ran. The house shifted and contorted around our party, walls elongating and twisting like the intestines of some hellish beast. The air grew thick with the stench of blood, and the rhythmic thumping was now accompanied by guttural whispers, speaking in a language older than time itself. 
+The warped walls cracked open and gave us an exit from this, all of us could be eaten buffet. I grabbed both of my friends and pushed them toward the last opening. We bolted from the library, the green fog of the void chasing like a nipping dog after our retreating feet, devouring the floor, walls, and ceiling as we ran. The house shifted and contorted around our party, walls elongating and twisting like the intestines of some hellish beast. The air grew thick with the stench of blood, and the rhythmic thumping was now accompanied by guttural whispers, speaking in a language older than time itself. 
 
-Finally, we reached the main hall. Just as we sighed with relief, having thought we had found a way out, the entrance was sealed shut, stone lay where the doorway used to be, as though the house itself refused to let our dwindling group escape. The thumping was now unbearably loud, shaking the very foundation of the manor. Every corner we turned led them deeper into the nightmare. Doors disappeared, and windows melted into the walls.
+Finally, we reached the main hall. Just as we sighed with relief, having thought we had found a way out, the entrance was sealed shut, stone lay where the doorway used to be, as though the house itself refused to let our dwindling group escape. The thumping was now unbearably loud, shaking the very foundation of the manor. Every corner we turned led us deeper into the nightmare. Doors disappeared, and windows melted into the walls.
 
 “We’re… we’re trapped,” Hartman panted, tears streaking her face. “There’s no way out.”
 
@@ -104,7 +104,7 @@ I bounded up the stairs two at a time, thankful I had kept my body as sharp as m
 
 The house groaned again, this time louder, as though savoring its victory. And then, from deep within its walls, came the sound of that laughter—a dark, resonant voice speaking words that none of us learned professors could understand. The ancient entity was alive, free, and it had no intention of letting us leave.
 
-As the shadows crept toward us, we heard a deep, resonant voice from the void, speaking in a tongue that burned our ears and attempted to shred our minds. The entity was whispering its dark will, its words clawing at our sanity. Hartman closed her eyes, the horror too great to bear. Wallace clenched his fists, his mind unraveling under the weight of the ancient, malevolent presence. As the shadows enveloped us, a final, chilling whisper from the house issued a promise that echoed through the void: **"You are home."**
+As the shadows crept toward us, we heard a deep, resonant voice from the void, speaking in a tongue that burned our ears and attempted to shred our minds. The entity whispered its dark will, its words clawing at our sanity. Hartman closed her eyes, the horror too great to bear. Wallace clenched his fists, his mind unraveling under the weight of the ancient, malevolent presence. As the shadows enveloped us, a final, chilling whisper from the house issued a promise that echoed through the void: **"You are home."**
 
 In a last-ditch effort to save us, I grabbed both and pulled them to a window. Hartman opened her eyes, looked out, and looked back at me just as a tendril snatched at Wallace. My friend of many years was hurled through the air and pulled into a hungry maw waiting for all of us.
 
