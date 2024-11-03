@@ -122,7 +122,7 @@ The other *her*.
 
 That night in the industrial kitchen turned me into an agoraphobic.  I’d become so dedicated to avoiding the outside world that I’d forgotten to buy groceries, and I didn’t even have coffee.  So I thew on my hoodie and set off for my favorite bakery on Nostrand.  
 
-I found an empty table for me and my iced latte.  Someone had scribbled on the green-painted wood with a sharpie.  **Abandoned tunnels are best seen with dead, bloodshot eyes***.*  The words felt oddly rounded, like they’d been waiting there for me.  I took a picture with my phone.  Then, I peered through the window of the coffee shop.
+I found an empty table for me and my iced latte.  Someone had scribbled on the green-painted wood with a sharpie.  **Abandoned tunnels are best seen with dead, bloodshot eyes**\*.\*  The words felt oddly rounded, like they’d been waiting there for me.  I took a picture with my phone.  Then, I peered through the window of the coffee shop.
 
 She sat at an outdoor table under a Covid shelter, sucking down a green smoothie.  She had a round face, with chubby, freckled cheeks and small features, rimmed by frizzy brown hair.  She wasn’t wearing her pink babydoll shirt - she’d switched it out for a collared button-down under a posh periwinkle sweater - but I recognized her immediately as the girl from the QR code.  The girl from the video.  
 
@@ -277,3 +277,5 @@ I stared at that last phrase: *sadness will become your only friend*.  And it b
 The mirror bubbled, like hot lava.  Searing black balls protruded from the cracked glass.  The balls became fingers.  Then thumbs.  Then whole hands - pitch black, putty, reaching hands.  Reaching for me.  Cold hands on my hands, clutching my arms, running fingers through my hair, brushing my face…
 
 The last thing I remembered, before the smoke thickened and reality blurred and blackness overtook me, was the sound of my own primal screams.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1gidlsl/like_last_words_scraped_on_forgotten_walls_part_2/)
