@@ -60,7 +60,7 @@ I turned and sought out the light up display hoping to see progress. There was s
 
 So, I abandoned the elevator and rushed into the stairwell. I took the stairs two at a time, but no matter how far I went, I never passed any doors. I could hear the first floor doors open and something skitter in. The scraping sound accompanied it. I thought the scraping was something being dragged and my imagination thought of a giant centipede with a bloated body that scraped along. Either way, I tried to focus on the stairs in front of me. The last thing I wanted to do was trip and fall. Something told me that I wouldn’t be able to get up again. Yet, the stairs seemed endless, spiraling up and up, the thing behind me getting closer with every  step.
 
-Finally, I reached the sixth floor. I bolted to my office, entered the side entrance and slammed the door behind me. I checked four times that it was locked. And…now I’m waiting here. I’ve tried everything. The outlets don’t work. My phone won’t charge. The computers are dead, no internet.
+Finally, I reached the sixth floor. I bolted to my office, entered the side entrance and slammed the door behind me. I checked four times that it was locked. And…now I’m waiting here. I’ve tried everything. The outlets don’t work. My phone won’t charge. The computers are on but have no internet.
 
 At least that thing in the stairwell never seemed to emerge. At least, I don’t think it did. Shortly after I started to settle in here for the night, I heard our front lobby doorbell ring. 
 

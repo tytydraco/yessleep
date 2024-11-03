@@ -18,4 +18,4 @@ I just checked my locks again. Over and over, telling myself each time it would 
 
 I was halfway into the hallway, my hand outstretched toward her door, when I heard a sound—a door creaking open below, footsteps climbing the stairs. My heart surged, and I bolted back inside, turning the lock so hard I nearly broke it.
 
-I stood there, my back pressed against the door, staring down at my trembling hands, and I had one thought: I need to re-hide all of the knives.
+I stood there, my back pressed against the door, staring down at my trembling hands, and I had one thought: I need to re-hide every single knife. 
