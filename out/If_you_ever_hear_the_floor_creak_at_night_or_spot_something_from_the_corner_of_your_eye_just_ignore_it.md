@@ -99,7 +99,7 @@ Right when I slid the door open, the thing came bursting out. I fell to the grou
 
 There it was, in a corner with its crooked back to me. It had its hands raised to its face and in a child-like voice it began to count down from ten. With every number its voice became more distorted and its back began to stretch and grow as if something was trying to escape from under its pale skin. My stomach knotted as it doubled in size. Time slowed down for me.
 
-*“Don’t play the game.” “Just ignore it.” “Just think of it as a game.”*This whole time this thing was living in my house or I was living in his and that feeling that something was watching me, it was this— this creature playing some game of hide and seek with me… and it was finally my turn to hide.
+“*Don’t play the game.” “Just ignore it.” “Just think of it as a game.*” This whole time this thing was living in my house or I was living in his and that feeling that something was watching me, it was this— this creature playing some game of hide and seek with me… and it was finally my turn to hide.
 
 Before it could finish its sick distorted countdown, I found what courage I had left and ran blindly upstairs. I heard it finish and give a gargling deep laugh. I felt its footsteps reverberating, crashing down on the ground. I made it to my room and shut the door, barricading it with the wardrobe. I backed away to a corner and sobbed.
 
