@@ -49,7 +49,7 @@ Out of nowhere, the same sound woke me, now louder and more clearly than ever. I
 
 Neither of us were huge believers of the supernatural. But we both enjoyed a good horror story, and this had the makings of one. It was all part of the “plot,” something to fixate on. It’s what drew me towards urban exploration in the first place. There was seldom a dull moment. I’d only made the mistake of assuming that was a good thing.
 
-With the newly established energy from my moment of respire, I had slowly climbed out from my thick woolen covers and unzipped the tent door. The air was thick with fog, and other than the occasional yap from whatever creature was lurking, there was neither a living sound nor a sense of anything resembling civilization.
+With the newly established energy from my moment of respite, I had slowly climbed out from my thick woolen covers and unzipped the tent door. The air was thick with fog, and other than the occasional yap from whatever creature was lurking, there was neither a living sound nor a sense of anything resembling civilization.
 
 The sky was so damn black that I couldn’t see my hand stretched more than two feet. My cheery outlook was beginning to falter, and telling myself it was all part of some story didn’t do much when real life felt so much more real now than ever before. 
 
@@ -65,13 +65,13 @@ The screeching had soon resumed as we set off from our campsite, and I could fee
 
 We whispered back and forth about what the sounds could be, and we debated between a few different options. We both decided that it had to be some sort of dog or doglike animal, but we couldn’t agree on which kind exactly. The idle banter soothed the feeling of unease slightly, and it made the walk a hell of a lot more pleasant.
 
-The sound was consistent in location at that point, so we knew roughly which direction it was coming from. Ww traveled toward it slowly hoping to catch the culprit off guard and scare it off. Neither of us would ever get any rest with whatever that thing was yammering through what little early morning was left. 
+The sound was consistent in location at that point, so we knew roughly which direction it was coming from. We traveled toward it slowly hoping to catch the culprit off guard and scare it off. Neither of us would ever get any rest with whatever that thing was yammering through what little early morning was left. 
 
-James prodded me about the necessity of our search, and I became confused by his sudden change in tone. I knew he was scared but we had both agreed that investigating made the most sense. It was soon obvious that he was growing more exponentially more anxious by the second. I didn’t know what to say. I hadn’t ever seen him that way before. I told him we were going to be fine, and he feigned a final agreement as we headed forward, more slowly now. 
+It was obvious that James was growing exponentially more anxious by the second. I didn’t know what to say. I hadn’t ever seen him that way before. I told him we were going to be fine, and he feigned agreement as we headed forward, more slowly now. 
 
 The sound was incredibly unnerving at that point, and almost ear splitting. I’d felt an oncoming headache which only made me more concerned with tracking our annoying friend. 
 
-As we crept along the ridge of the hillside, we slowly lifted our flashlights to reveal a little fox. It was just a pup. Instantly James and I felt relieved. It was only a small thing. The harmless creature seemed abandoned, with no parents in sight nor any siblings. Our next course of action wasn’t very clear, but we definitely couldn’t scare it off now. 
+As we crept along the ridge of the hillside, we slowly lifted our flashlights to reveal a little fox. No goblins or gremlins. It was just a pup. Instantly James and I felt relieved. It was only a small thing. The harmless creature seemed abandoned, with no parents in sight nor any siblings. Our next course of action wasn’t very clear, but we definitely couldn’t scare it off now. 
 
 It came down to soothing the animal or sucking it up and dealing with the incessant cries. I thought we could give it some of our jerky. But James began to protest some potential concerns with feeding the small animal processed food. However, it seemed like the only easy option at the time.
 
