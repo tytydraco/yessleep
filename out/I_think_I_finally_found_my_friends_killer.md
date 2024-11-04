@@ -24,7 +24,9 @@ Or I guess I'd try my best...
 
 When my grandma passed away earlier this year, she left me an inheritance.
 
-It wasn’t a fortune, but it was enough to change my life. Enough that I could take a break from work, enough that I didn’t have to worry about paying rent for a while. Enough to make a difference. I could’ve put it toward something practical, something responsible, but what good would that do when my best friend was still missing and the police weren’t even trying?
+It wasn’t a fortune, but it was enough to change my life. 
+
+Enough that I could take a break from work, enough that I didn’t have to worry about paying rent for a while. Enough to make a difference. I could’ve put it toward something practical, something responsible, but what good would that do when my best friend was still missing and the police weren’t even trying?
 
 There was no better way to spend it than to find Maggie’s killer.
 
