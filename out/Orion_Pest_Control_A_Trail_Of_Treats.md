@@ -428,16 +428,11 @@ The seed had been planted. The idea that the hag would want to take what he thou
 
 I know I’m playing a dangerous game. Manipulation doesn’t come to me as naturally as it does to him. And if he figures out what I’m up to - what *we’re* up to - it’s going to get ugly. 
 
-But it’s more of a chance than I had before. We’ll just see if I can pull it off. 
+But it’s more of a chance than I had before. We’ll just see if I can pull it [off](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Edit: I have no idea what is going on with the formatting of this post. Oh my Lord. 
 
 Edit2: Some ['monster hunters'](https://www.reddit.com/r/nosleep/s/EdpTlcBGC2) have arrived. Great. 
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
-
-
-
 
 
 
