@@ -1,8 +1,8 @@
-“You must remain in the room whilst I dine,” he told me three years ago. “But face the wall, and *do not* turn around until I have finished.”
+“You must remain in the room whilst I dine,” he told me three years ago. “But face the wall, and *do not* turn around until I've eaten every last crumb.”
 
 I nodded. “How will—”
 
-“I will tell you when I’ve finished,” he brashly interrupted, having anticipated my question.
+“I will *tell* you when I’ve finished,” he brashly interrupted, having anticipated my question.
 
 And when I made the mistake of breaking his one rule, I saw something terrifying.
 
