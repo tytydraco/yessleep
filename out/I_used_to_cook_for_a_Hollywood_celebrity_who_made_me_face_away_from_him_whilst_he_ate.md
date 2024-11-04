@@ -14,7 +14,7 @@ This is a Hollywood icon, and I cooked his lunches and dinners every day from No
 
 A flatbread topped with charred spring onions, chilli flakes, and feta. That was the dish. A modest lunch for a self-proclaimed modest man. Perfectly ordinary food. I didn’t serve the heart of a stillborn babe. Not the ribs of some famous rival. Just a light, nutritious dish to bridge breakfast and dinner.
 
-That day was the same as any other, so I don’t know why I did it. Looked, I mean. I’d spent four years cooking for my client, and I’d never previously questioned his only rule. I hadn’t dreamt of disobeying him, as he paid such a disgustingly inflated salary. Not until one ordinary day in late February.
+That day was the same as any other, so I don’t know why I did it. Looked, I mean. I’d spent three years cooking for my client, and I’d never previously questioned his only rule. I hadn’t dreamt of disobeying him, as he paid such a disgustingly inflated salary. Not until one ordinary day in late February.
 
 I placed the flatbread on the table, walked over to the kitchen counter, then focused my gaze on the wall ahead. Twiddled my thumbs and waited patiently whilst he tucked noisily into his meal.
 
