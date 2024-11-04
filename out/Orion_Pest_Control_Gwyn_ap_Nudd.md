@@ -452,7 +452,5 @@ I’ll be taking a bit of a break from posting. For how long, I don’t know. Bu
 
 That being said, we all need time to figure out where to go from here. A lot has happened for everyone. 
 
-There is one bright side to all of this, though: Orion Pest Control has proven that our services can extend beyond some simple infestations. We’re still not heroes, but we try our best. For now, I think that’s enough.  
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv)   
+There is one bright side to all of this, though: Orion Pest Control has proven that our services can extend beyond some simple infestations. We’re still not heroes, but we try our best. For now, I think that’s [enough](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv).  
 

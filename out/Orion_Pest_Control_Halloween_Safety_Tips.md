@@ -411,8 +411,6 @@ By this point, Reyna regained the ability to talk, managing to get out, “This 
 
 As far as the real shit goes, we’re still not done preparing. We’ll be gathering more weapons as well as trying to ward off the barn as much as possible. In the meantime, I’ll be searching for gold pieces that won't cost an arm and a leg. 
 
-I just hope it'll be enough. 
+I just hope it'll be [enough ](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Update: [Dullahan time. ](https://www.reddit.com/r/nosleep/s/TwuT7dHmKw)
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv) 

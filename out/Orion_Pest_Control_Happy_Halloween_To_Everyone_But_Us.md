@@ -393,9 +393,6 @@ Reyna seized the first aid kit from the truck, telling me to stay sitting so tha
 
 As she tended to them, taking her time cleaning and dressing the wounds, we waited anxiously for the Dead Duo. Listened for hounds. Kept an eye out for crows. 
 
-The sky is getting lighter. We're still waiting. 
+The sky is getting lighter. We're still [waiting. ](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Update: [What happened to the Dead Duo. ](https://www.reddit.com/r/nosleep/s/0UsEb9fKv4)
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv) 
-

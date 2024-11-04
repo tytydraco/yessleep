@@ -398,14 +398,9 @@ Once again, Deirdre had the last laugh over the Wild Hunt.
 
 As of right now, the Cookie Hag hasn't attacked anyone else, human or Neighbor,  but I’m certain that it's only a matter of time. When it comes to taking her down and avenging the False Tree, Iolo agreed to meet with the boss tomorrow to discuss a plan of action. 
 
-I’ll let yinz know the results of that when I can. 
+I’ll let yinz know the results of that when I [can](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Update: [Oh boy.](https://www.reddit.com/r/nosleep/s/KNgpcMajhG)
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/r/nosleep/s/OpNHnxiz8U)
-
-
-
 
 
 

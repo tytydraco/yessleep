@@ -356,8 +356,6 @@ I don't know what to make of the Huntress. On the surface, she seems more straig
 
 I may not know where I stand with Iolo, but at least now, we have a Hunter’s account on what to look out for. That's more than what we had before. 
 
-Now, if yinz will excuse me, I have to go get a Halloween costume. 
+Now, if yinz will excuse me, I have to go get a Halloween [costume ](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Update: Our [Samhain preparations. ](https://www.reddit.com/r/nosleep/s/oakeDXJFDf)
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv) 
