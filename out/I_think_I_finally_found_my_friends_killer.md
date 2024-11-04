@@ -64,7 +64,7 @@ I eased off the gas, letting my speed drop even further, almost to a crawl. If t
 
 The seconds dragged on, my heartbeat loud in my ears.
 
-I told myself to reach for my phone, to start recording, but my hands were frozen. I was scared. I kept my eyes on the road, feeling my pulse thundering in my temples.
+I told myself to reach for my phone, to start recording from my POV as well, but my hands were frozen. I was too scared. I kept my eyes on the road, feeling my pulse thundering in my temples.
 
 And then, just as suddenly as they’d appeared, the headlights veered off onto a side road, disappearing into the trees. I let out a breath I hadn’t realized I’d been holding, feeling the tension drain from my body. Relief washed over me, followed by a sickening disappointment.
 
@@ -82,14 +82,14 @@ He didn’t hesitate. He was sprinting toward me, his steps heavy and determined
 
 Panic took over, and I fumbled with the keys, my fingers trembling as I jammed them into the ignition. The engine roared to life, and I slammed on the gas, the tires spinning on the gravel before gripping. I shot forward, the headlights disappearing behind me as I sped down the road. In the rearview mirror, I saw him standing there, his face twisted in anger or disappointment. I couldn’t tell which. But I’d seen that look before, on other men, other nights. The look of a predator who had just lost his prey.
 
-My hands were shaking as I drove, adrenaline flooding my veins, my mind a whirlwind of fear and fury. I’d been so certain I was in control, that I could outsmart him. But in that moment, I realized how wrong I’d been. I’d been playing with fire, and it had almost consumed me.
+My hands were shaking as I drove, adrenaline flooding my veins, my mind a whirlwind of fear and fury. I’d been so certain I was in control, that I could outsmart him. But in that moment, I realized how wrong I’d been. I’d been playing with fire, and it almost consumed me.
 
 I kept driving, my eyes darting to the rearview mirror every few seconds, half-expecting to see those headlights reappear. But the road remained empty, stretching out ahead of me like an endless, dark tunnel. It was only when I reached the lights of Meridian that I finally pulled over, my entire body shaking as I gripped the wheel.
 
 I sat there in silence, staring into the darkness.
 
-I still didn’t have the answers I needed. But maybe I was a closer to finding the truth about what happened to Maggie. One thing was abundantly clear: I wasn’t the hunter here. I’d been the prey all along. And he was still out there, waiting for someone else to stumble onto those roads, another college kid, just like Maggie.
+I still didn’t have the answers I wanted. But I felt like I was closer to finding the truth about what happened to Maggie. One thing was abundantly clear: He was still out there, waiting for someone else to stumble onto that road, another college kid, just like Maggie.
 
 Honestly, I'm a little overwhelmed tonight.
 
-I'm going to go get the USB drives from my cameras in the car in the morning. I'm not ready to look at what's on them yet. I know once I do... there's no going back.
+I'm going to go get the USB memory cards from my dash cameras in the morning. I'm not ready to look at what's on them yet. I know once I do... there's no going back.
