@@ -2,6 +2,8 @@
 
 * Recovered journal from alias Jane, a convicted bank robber. She is currently being treated at Blackgate Prison Hospital.
 
+___________________________________________________
+
 **March 15th, 1964**
 
 * I spoke with Father Caughtree today. He says I can trust him, that he’s here to listen if I ever need someone. He gave me a candy bar—said it was because I’d been so good in church. He’s kind, though I didn’t want him to think I was needy. It’s been a long time since anyone cared like that. He even let me visit his house once. I was scared at first, but it felt safe. Father listened to me talk about my family—about how Daddy would hit me when I didn’t do things right. How he’d look at me with that mean stare and call me useless. I cried. Father didn’t judge. He just touched my face. He says God has a plan, that everything will be alright.
@@ -20,6 +22,8 @@
 
 * I’m starting to think I should’ve known better. Father Caughtree never came back after mass that Sunday. They said he’d gone missing. The news said they found his purple blood-soaked coat and a smiling badge. It was like he vanished into thin air. But I saw him yesterday. I felt him. I don’t know what to think anymore. Was he ever real?
 
+___________________________________________________
+
 **October 12th, 1985**
 
 * Apparently, the owner of this bank - Mr. Maroni - was a very rich man. According to Mr. Falcone, that means a fat paycheck for me. All I need to do is get the money. Just this one job and I'll be set.
@@ -29,7 +33,8 @@
 **October 13th, 1985**
 
 * We met at the warehouse south of Gotham last night. It was a dead drop. Mr. Falcone has a contact for the job, some guy I’ve never met before.
-* “New blood in the underworld,” according to Mr. Falcone. Though, this clown has been climbing the ranks as a “crime lord” for only three years. Apparently, he's got his hands dirty enough to prove himself. But there’s something about him. Something I can’t quite place.
+* “New blood in the underworld,” according to Mr. Falcone. Even though this clown has been climbing the ranks as a “crime lord” for only three years, he's got his hands dirty enough to prove himself. 
+* But there’s something about him. Something I can’t quite place.
 * His smile is… off. It’s too wide, like it doesn’t belong. Like it’s been glued on———too fake, too rehearsed. He’s younger than I expected for someone at his level, and he doesn’t act like the usual thugs we work with. But that smile… I swear I’ve seen it somewhere before. Or someone wearing it, maybe. There’s a rumor going around that he killed his old boss and wore his face like a mask to intimidate underlings who wouldn't submit. There was another story that says his "face" mask belonged to some priest. Crazy shit, right? I don’t know if I believe it, but the smile, that damn smile, keeps nagging at me.
 
 **October 14th, 1985**
@@ -55,5 +60,8 @@
 * I felt pathetic.
 * But the boogeyman's shadow loomed over me, cold and monstrous, as if it swallowed the light around us. I could see his eyes now.
 * His eyes… They’re not human.
+
+
+___________________________________________________
 
 **\[The author scribbled out the rest of the journal\]**

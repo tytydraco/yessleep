@@ -1,0 +1,63 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ghasze/the_arcadian_hotel_night_attendant_training_tapes/)
+
+it’s been a few nights since I last posted, and... well, a lot has happened. I’ve been following the rules as best I can, but for every answer I find, it feels like two more questions take its place. Working these night shifts has my mind in knots, with every night bleeding into the next until I can barely remember what day it is. I’ve seen things, things that don’t add up, things I can’t explain away. And yet, here I am, showing back up night after night. I want to quit, but I’ve made more money in the past few nights than I have working an entire two weeks at other jobs.
+
+Night two was mostly uneventful.
+
+Ronald made his usual appearance; same dull uniform, same shuffle to the front desk and repeating the right phrase, “I’m here to clean the mess”. I tried to stay out of his way, and everything seemed calm, until I noticed that key 309 was missing again. Sticking to the rules, I made my way to the kitchen. It was still stocked with fresh ingredients, which I still can’t wrap my head around. Who’s restocking this stuff? Shaking it off, I made a simple ham and cheese, then took the elevator up to the third floor. The ritual continued as usual: I knocked, kept my gaze down, and waited. The door creaked open, and this time, the person lingered in the doorway longer than before, like they were waiting for me to make eye contact. I held my ground until I heard the door shut slowly. On my way back, I skipped the elevator altogether. No way was I risking a detour to the basement again. I took the stairs instead, counting each step down, hoping nothing else would happen.
+
+After night two ended without any major surprises, I felt a spark of confidence. Just follow the rules, take the stairs down, don’t overthink it, maybe this gig was simpler than I thought. By the time night three rolled around, I showed up feeling a lot more assured, already $500 richer, and convinced I had cracked the code. I had this in the bag, or so I thought.
+
+But as soon as I settled in for my shift, it became clear that night three had other plans for me.
+
+Not long after I started my shift, Ronald made his entrance. I felt a bit relieved to see him. There was something reassuring about having someone else around, even if he wasn’t exactly chatty company. But that night, Ronald seemed... different. His uniform looked freshly pressed, like he’d actually taken care to look sharp, and his usual sluggish walk had turned into a brisk stride. When he reached the desk, he looked at me with a strange grin and said, “Time to get this place spick and span!” I froze. Ronald had always said the same phrase, without fail. My mind scrambled, trying to remember what the rules said about this. He kept staring, his grin unwavering, eyes locked on me like he was waiting for something. Then it hit me: “No cleaning needed tonight, Ronald.” As soon as I said it, his smile fell, his expression darkening. Through gritted teeth, he repeated his phrase, “It’s time... to get this place... spick... and span”. With adrenaline beginning to pump through my body, I repeated with a shaky voice, “No cleaning needed tonight, Ronald.” He finally backed away, slowly, staring at me with hatred until he reached the door. I waited until he was gone and locked it tight behind him.
+
+After Ronald left, I stood there, my pulse hammering as I tried to process what had just happened. What the hell was that? Ronald’s strange behavior, his creepy demeanor, wide smile, fresh clothes, what was wrong with him? What's wrong with this whole place, for that matter? I thought I had things figured out, but now I wasn’t so sure. I began to question if I’d really be able to handle whatever else this hotel had in store. That confidence I’d felt at the beginning of the night was fading fast.
+
+That night, I decided it was time to get a better sense of this place. The rules and strange encounters had thrown me off balance, and I thought that maybe exploring a bit would help me make sense of it all. Armed with my master key, I left the desk behind and wandered down the corridors. Being the only person in a giant hotel felt unnatural, the silence broken only by the sounds made by my feet. I passed rows of tarnished brass fixtures and faded wallpaper, remnants of a once-grand elegance that had long since slipped away.
+
+On the second floor, I found the ballroom, a huge echoing space that seemed frozen in time. Dust coated every surface, and a once-sparkling chandelier hung above, its crystals now clouded and covered in cobwebs. I ran my hand along the edge of a table covered in a fine layer of dust, my fingers leaving tracks as if no one had touched it in decades. For a moment, I tried to imagine what the place must have looked like in its heyday. Just as I turned to leave, I heard a sound on the other side of the room, by the bar. I turned around, half-expecting someone, or something, to be waiting behind me, but there was nothing. I slowly backed out of the room with an intense feeling of being watched.
+
+As I continued my tour, I noticed that most rooms unlocked easily with the master key. But a few doors, oddly, wouldn’t budge. I tried the key, jiggling it and pushing, but it was as if these doors were meant to stay closed, resisting every attempt to pry them open.
+
+As I moved up to the seventh floor, I passed by a particular room that made me stop in my tracks. I could hear a soft voice from within the room. I froze, heart pounding as I leaned in to listen. The voice was faint but unmistakable; someone was inside. As I was straining to hear it, the voice abruptly stopped. My breath caught, and I took a step back, every instinct screaming at me to leave. As I backed away, I heard heavy footsteps approach the door and stop. Looking at the door, I couldn’t help but feel like whoever it was, was looking at me through the peephole. I thought I saw the doorknob twitch, just the faintest movement, as though someone inside was reaching for it. “Nope” I told myself, and I hurried down the hall, leaving the floor entirely. I tried to convince myself it was my imagination. But either way, I had no desire to stick around and find out. 
+
+After exploring the eighth floor, I made my way up to the ninth, which looked just like the others, dimly lit and lined with old doors. I had seen enough for one night. The thought of a long journey down the stairs back to the lobby loomed ahead, but it felt like a welcome return to familiarity. As I turned to head toward the stairwell, I caught a glimpse of my reflection in a mirror mounted on the wall.
+
+Looking at myself in the mirror, I couldn’t help but notice how tired and beat-down I looked. As I was examining myself, almost looking at myself with pity, I saw something else in the mirror. Behind me, down the hall, I saw *someone* else. A figure standing far behind me at the other end of the hall, peaking at me from around the corner. My stomach dropped, a cold knot tightening in my gut as fear washed over me. I whipped around, heart racing, but the hallway was empty. I turned back to the mirror, my breath hitching in my throat, and there it was again, the figure still there, peeking at me from around the corner. It was too far down the hallway to make out any of its features, but it was unmistakable. Suddenly, I remembered the rule, “don’t look into any mirrors after midnight”. Checking my phone, there it was, 1:23, a.m. *Shit, shit, shit*, I thought. I burst through the doors of the stairwell and made my way down the nine flights of stairs as quickly as I could.
+
+Finally, back at my desk, I sank into the chair, my heart still racing and my breath heavy from the frantic descent down the stairs. I decided to stay put for the rest of the night, unwilling to venture out again. The hours crept by slowly, but the rest of the night was thankfully uneventful. The sun was beginning to rise, and with my shift over, I clocked out, a fresh $500 check in hand. Relief flooded over me as I thought about the safety of the morning outside and another night successfully in the books. As I was turning to leave though, I noticed something.
+
+An error. A mistake. Key 309 had been missing, and I never noticed. I never brought the guest of room 309 a ham sandwich. Yet, with morning breaking and my shift officially over, I shrugged it off, telling myself it was too late to go back now.
+
+When I finally got home, exhaustion weighed heavily on me. I collapsed onto my bed, desperate to catch some sleep after the long night at the hotel. But sleep never comes easily after working the night shift. The unnatural hours play tricks on my body. Even with blackout curtains pulled tight against the early morning light, I tossed and turned, restless and unable to fully escape the haunting images of the night. The figure in the mirror, Ronald's strange appearance, and the voice in the room. I couldn’t shake the feeling that something is seriously wrong, and that the hotel is somehow seeping into my mind. On the bright side, the money I’m making allowed me to catch up on bills and finally start paying down my loans, a small victory amid the growing unease. With little sleep to show for my efforts, I begrudgingly pulled myself up and got ready for another shift, bracing myself for whatever the night would throw my way.
+
+When I arrived at the hotel for my next shift, a note was waiting for me on the desk:
+
+ 
+
+*We would like to take a moment to address an important matter regarding your recent shift. It has come to our attention that the guest in Room 309 did not experience the high level of service we strive to provide. As you know, adhering to our established rules and protocols is vital for ensuring an exceptional experience for our guests, safeguarding the esteemed reputation of the Arcadian Hotel, and maintaining your own safety. We would like to remind you of the importance of following the rules.*
+
+*In light of this, we would urge you to avoid the kitchen at all costs for the next 24 hours.*
+
+*Additionally, we are pleased to announce that the hotel will soon undergo renovations as part of our commitment to restoring the grandeur of the Arcadian Hotel. The Arcadian Hotel will be preparing for a new Grand Opening in the coming weeks.*
+
+*Thank you for your dedication to the legacy of the Arcadian.*
+
+*Management*
+
+ 
+
+As I read through the letter, a surge of anger bubbled within me. “It’s just a damn ham sandwich,” I muttered under my breath. The implications of the note twisted my stomach into knots. What did they mean by "my safety". Avoid the kitchen? Why? A wave of confusion washed over me as I replayed the past few nights in my head. The rules seemed increasingly strange, and their vague warnings started to feel more like threats than guidance. It felt like a game I was losing, like I was just a pawn in a strange, unsettling scheme.
+
+Every time I’ve been ready to quit, the money has made me hang on, just a little longer. Just enough to really make a difference in my life. To finally be ahead.
+
+Just as I was stewing in my frustration, Ronald shuffled in, back to his usual shabby self. His uniform was wrinkled, and he moved with his familiar, slow shuffle. For a fleeting moment, a wave of hope washed over me at the sight of him. “I’m here to clean the mess” he said. His familiar routine felt like a comforting. Maybe tonight would be okay after all, I thought.
+
+As Ronald was getting his cleaning supplies ready, I finally worked up the courage to approach him. "Hey, Ronald, can I ask you something? What was with you last night? You seemed… different. And what's the deal with all these rules? What are they really for?"
+
+At my words, Ronald shot me a sharp look, his expression darkening. "Listen, kid," he said, his voice low and serious. "You don’t go looking for answers. You don’t go asking questions. Just stick to your job, follow the rules, collect your money, and keep your head down. It’s for your own good." His quickly looked around, his eyes flickering with a hint of fear. He then turned away, leaving me with a knot of unease in my stomach, and more questions.
+
+The rest of the night was spent behind my desk. All keys were accounted for, I avoided the kitchen, and nothing else strange happened. Another $500 in the bank, another night down. Follow the rules, collect the money, I reminded myself.
+
+And I thought I could handle it. The basement, the mirror, the strange noises. I thought I had dealt with the worst of it. That was, until last night.
