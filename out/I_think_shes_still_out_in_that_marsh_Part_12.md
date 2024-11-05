@@ -4,7 +4,7 @@ Yet there I was years ago, my motorcycle roaring down the roads with four others
 
 I dread that day with every waking moment, and the only reason I am bothering telling this to anyone is because my therapist told me, "Now Scott, you know holding it in is killing you." If it might help stop the cold sweats and screaming fits, then here we go. Enjoy, you sick fuckers.
 
-My compadres and I were apart of a biker gang in Southern California called the Grave Runners. We weren’t the biggest operation, but we were certain-fuckin’-ly aiming for it. My brother Trey cofounded the Runners with an old school, long bearded, no shit taking rider everyone called Croc back in 99’.
+My compadres and I were apart of a biker gang in Southern California called the Grave Runners. We weren’t the biggest operation, but we were certain-fuckin’-ly aiming for it. My brother Trey co founded the Runners with an old school, long bearded, no shit taking rider everyone called Croc back in 99’.
 
 When I turned 18, my brother came to me and said, “Scott, get you’re bike. You’re rolling with us now.” And that was that. From then on, I was one of them, through and through. That was back in May of 01’. I rode and bled for those wonderful bastards, and they did the same for me. Still would to this day… if anyone was left to ride with.
 
@@ -24,9 +24,9 @@ I waited as the sun beat down on us just overhead, the whole desert shining slig
 
 The strange woman stopped mid way, and slowly turned her head to me. In a shrieking voice that sounded like it was dragged against against sheet metal, she shrilled loudly over the coming winds, “Somehow, I doubt that, dearie.”
 
-With that, she dropped the lock box and scurried off, out into the desert. She kept dragging her leg quickly out into the vast wasteland, right into a rumbling sandstorm that was quickly tearing it’s way towards me. 
+With that, she dropped the lock box and scurried off, out into the desert. She kept dragging her leg quickly out into the vast wasteland, right into a rumbling sandstorm that was tearing it’s way towards me. 
 
-I sighed annoyedly. Fucking junkie courier, is what I thought. Not wanting to get caught up in the sandstorm, I grabbed up the box and slung it into my pack. I hopped up on my bike and started riding south to try and avoid it altogether. The storm ripped across the landscape and casted dark and impossibly long shadows across the sand of the now darkening desert, thrashing about rocks and the little plant life that we had out that way. I had seen plenty of shitty weather, but this… It was absolute madness. I felt a cold shiver down my spine in the searing heat as the darkness of the storm devoured the land, crawling with malicious intent in my direction. As I made it well out of reach of the storm, I looked back.
+I sighed, annoyed and a bit freaked out. Fucking junkie courier, is what I thought. Not wanting to get caught up in the sandstorm, I grabbed up the box and slung it into my pack. I hopped up on my bike and started riding south to try and avoid it altogether. The storm ripped across the landscape and casted dark and impossibly long shadows across the sand of the now darkening desert, thrashing about rocks and the little plant life that we had out that way. I had seen plenty of shitty weather, but this… It was absolute madness. I felt a cold shiver down my spine in the searing heat as the darkness of the storm devoured the land, crawling with malicious intent in my direction. As I made it well out of reach of the storm, I looked back.
 
 I almost thought I could still see that crazy bitch, running though the storm. It looked like her, or whatever I saw, was being ripped apart slowly as it made its way through the hellish sands. It looked like flesh was being thrown into the wind and swirling bits of bone began to mix in with the swirling storm.
 
@@ -126,11 +126,13 @@ He began taking fire from some distant gunmen, and with a disgusting noise, like
 
 A group of the locals that we had came across earlier had come by while we were in our scuffle. They were all dressed for cold weather and packing some serious guns. Some guys had .50 cals on them, and I couldn’t help but think they brought it just for that nasty old monster in it’s hut. 
 
-I walked right up to the woman who was giving commands, but before I could say a word, I was being grabbed by a few of her henchmen and being dragged to the tree we were retreating towards. I saw they had Croc and Reggie surrounded, but the two decided to surrender. At this point, we were out numbered thirty to one. Some of the villagers were repeatedly putting down the crowd of twenty or so ghouls as they continuously reanimated every time they were killed. Men with flamethrowers were approaching the horde as the others corralled my friends and I against the tree.
+I walked right up to the woman who was giving commands, but before I could say a word, I was being grabbed by a few of her henchmen and being dragged to the tree we were retreating towards. I saw they had Croc and Reggie surrounded, but the two decided to surrender.
+
+At this point, we were out numbered thirty to one. Some of the villagers were repeatedly putting down the crowd of twenty or so ghouls as they continuously reanimated every time they were killed. Men with flamethrowers were approaching the horde as the others corralled my friends and I against the tree.
 
 The woman I had approached began speaking to the villagers in another language, I think it was Dutch they were speaking, looking back, but they all followed her command without question. She looked like she was beautiful once. She looked to be in her early thirties, but it was hard to tell, given that she had one of those wretched flesh infections across her face. A mass of black, dripping tendrils protruded from her right eye socket, the rotted meat dripping in tiny bits from it occasionally as she spoke. The tendrils reached down the side of  her neck and went below her leather coat. I gagged as I saw what appeared to be a monstrous, pasty yellow eye tucked in the folds of the growth of what must be pure evil itself. Even from a distance the sight of her was enough to give you nightmares.
 
 I wanted so badly to be speechless. But these fuckers killed my brother. So I yelled at the bitch, “I want whoever shot my brother out here right now. I don’t care who the fuck you people are, someone’s going to pay!”
 
 \- - - - - - - -  
-I have to wait 24 hours to bring you the rest of my fucked up tale. Until then, good luck sleeping tonight. I know I won't.
+I am tired, it's late. I will have to finish typing this up tonight. I'll post Part 2 tonight.
