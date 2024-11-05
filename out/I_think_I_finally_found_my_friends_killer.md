@@ -1,4 +1,4 @@
-Two years ago, my best friend, Maggie, vanished. 
+Two years ago, my best friend, Maggie, vanished.
 
 I feel terrible for her and her family. Every time I press the police, I get the same tired answer:
 
@@ -82,9 +82,11 @@ I shot forward, the headlights disappearing behind me as I sped down the road. I
 
 My hands were shaking as I drove, adrenaline flooding my veins, my mind a whirlwind of fear and fury. I’d been so certain I was in control, that I could outsmart him. But in that moment, I realized how wrong I’d been. I’d been playing with fire, and it almost consumed me.
 
-I kept driving, my eyes darting to the rearview mirror every few seconds, half-expecting to see those headlights reappear. But the road remained empty, stretching out ahead of me like an endless, dark tunnel. It was only when I reached the lights of Meridian that I finally pulled over, my entire body shaking as I gripped the wheel. I sat there in silence, staring into the darkness.
+I kept driving, my eyes darting to the rearview mirror every few seconds, half-expecting to see those headlights reappear. But the road remained empty, stretching out ahead of me like an endless, dark tunnel. It was only when I reached the lights of Meridian that I finally felt a little bit more at ease.
 
-I still didn’t have the answers I wanted. But I felt like I was closer to finding the truth about what happened to Maggie. One thing was abundantly clear: He was still out there, waiting for someone else to stumble onto that road, another college kid, just like Maggie.
+When I finally pulled into my driveway, I just sat in my car in silence.
+
+I still didn’t have the answers I wanted. But I felt like I was closer to finding the truth about what happened to Maggie. And one thing was abundantly clear: He was still out there, waiting for someone else to stumble onto that road, another college kid, just like Maggie.
 
 Honestly, I'm a little overwhelmed tonight.
 
