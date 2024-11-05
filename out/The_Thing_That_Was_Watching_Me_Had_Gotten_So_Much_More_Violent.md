@@ -2,7 +2,7 @@ This is part 5 of the series,
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/) |[ Part 2](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) |[ Part 3](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) | [Part 4 ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/)
 
-Just a note, Parts 3 and 4 are removed right now, for formatting issues and such, but they should be back up soon. Markus says it because I'm not good with writing, but it's hard to write memories like these down.
+Just a note, Part 3 is removed right now, for formatting issues and such, but they should be back up soon. Markus says it because I'm not good with writing, but it's hard to write memories like these down.
 
 When Markus and I turned fifteen we promised we would find our first job together and work the same shifts, a few months later we found this sad convenience store out on the outskirts of town, they were desperate for employees so Markus and we didn't even need an interview before we started working. The pay was really good for a convenience store. Around 13.50 an hour, I think it was, which is sad I can't remember since it was only like 2 - 3 years ago  I think, anyway It was probably the most fun I had while in school, it was our last year of high school, and we were both relieved to get the fuck out.
 
