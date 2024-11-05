@@ -28,7 +28,7 @@ The trees loomed too high, the track too straight. Had this have been logical I 
 
 "Their driveway is awful if I find a spot I am going to turn around and come home, it's not possible," I said, hoping my boss would do as he usually does and take my side with matters regarding customers. I heard a pause far too long over the line and was met with a phrase that almost froze my blood;
 
-"They were promised a meal," The sound of a dead phone line met me after that and shocked me, my boss was never one to hang up on me and was someone who would usually take my side. I could not understand why he was so determined to have me deliver these pizzas. The phone line faded my phones music kicked back in, some terrible song from the 90's.
+"They were promised a meal," The sound of a dead phone line met me after that and shocked me, my boss was never one to hang up on me and was someone who would usually take my side. I could not understand why he was so determined to have me deliver these pizzas. The phone line faded and my phones music kicked back in, some terrible song from the 90's.
 
  
 
@@ -36,8 +36,7 @@ I shrugged and moved on, my car roaring loud as I over revved the clutch to clim
 
 It seemed so normal, that it was only when I snubbed out a cigarette into the old coffee jar in my console that I realised that I had been on this path for almost 10 minutes, taking me far into where the nearest town should be, and when looking at my GPS, said I was only 100 meters from the road I turned off of.
 
-  
-I'm sitting on a road that every map says is twenty meters above a river half a suburb away, typing this all out. I don’t know if it's all a glitch of my phone and Navman's GPS but I feel as if somethings wrong. Why can't I see the sun? It was supposed to be bright for another two hours but all I can see is the darkness of the moonlight sky in the very small gaps in the trees, and all I can hear is crickets. I will take off in a moment, a delivery is a delivery, but if you have any ideas, please let me know.
+I'm sitting on a road that every map says is twenty meters above a river half a suburb away, typing this all out. I don’t know if it's all a glitch of my phone and Navman's GPS but I feel as if somethings wrong. Why can't I see the sun? It was supposed to be bright for another two hours but all I can see is darkness as if the night was in sky in the very small gaps in the trees, and all I can hear is crickets. I will take off in a moment, a delivery is a delivery, but if you have any ideas, please let me know.
 
  
 
