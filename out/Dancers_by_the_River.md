@@ -1,0 +1,16 @@
+This was originally going to be a reply to a post about "Strangest experiences in the woods" on the Ghosts reddit, but the automod kept triggering and wouldn't let me post for some reason, so I thought I'd share it here.
+
+
+The paranormal woods experience that stands out to me was when I was dozing off in a small dilapidated chapel carved into the base of a cliff in Alabama, on a stretch of woods that at the time was called "Camp O'rear." We called the chapel ["The rock house,"](https://imgur.com/a/yleDTAh) and when we'd go for camping trips, we'd occasionally bunk down there if it was cold since it had an actual fireplace and shelter from the wind.
+
+On one such trip, after building a fire and reading beside my sleeping friends I was staring into the flames and out of nowhere, very faintly, I heard a fiddle playing a tune. I wanted to get up and look, but it was as if a severe lethargy was keeping me pressed flat. Not sleep paralysis, but more like I was having trouble even wanting to look outside.
+
+As I was laying there I started to drift to sleep but my head lolled, and suddenly pain shot through my mouth as I bit my tongue.  It felt like a bubble burst, similar to when your ear pops and the pressure drains away, and I was free and alert. I bolted up, turned and looked outside, and I saw people dancing down by the water, old country boys playing fiddles and banjos on ledges of rock that I knew were not there. I'd camped here more than a dozen times, fished the very spots those ledges were above. 
+
+My head started feeling like it was packed with wool. I grew dizzy, put my hand against the wall and slid back down to my pallet and fell asleep to the sound of a country reel. The next morning I told my friends, and we agreed it was a dream brought on by too many freeze dried banana chips and trail mix.
+
+Maybe five months later we were back, this time with our boy scout troop, and as we were debating whether to hike down to the rock house before bed one of the lads who had been there at the time reminded me of my dream and wanted me to tell the others. One of our Scoutmasters, whose grandson was in the troop, was in his mid seventies and as he tuned in to our conversation he suddenly went pale and held up a hand, as if to stop traffic, so I halted my story.
+
+"Son," he said, "There were indeed shallow rock ledges that overhung that spot, and when my parents were courting they would come here and have dances there. After a particularly rainy spring when the water was higher than normal, one sheered off, and it was deemed too dangerous, so they were leveled even with the river bank by the Army corps. of engineers so nobody would get hurt if one broke during a party."
+
+Now, I'm not saying I saw the past. It may well have been some bit of dimly remembered history. But I'd swear any oath that, before I heard that fiddle, I'd never, ever known anything about the history of the area as a Civil War era party spot. I searched for the tune I remembered for most of High School and was relieved in a way to never find quite the same, but close to graduation it was verified by a local piano teacher to indeed be a popular song of the time called "I'm Bound for the Promised Land," and hearing it made my blood run cold. It is the strangest and scariest experience in all my forty-seven years of life.
