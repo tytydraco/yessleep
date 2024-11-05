@@ -4,7 +4,7 @@ I feel terrible for her and her family. Every time I press the police, I get the
 
 ***“These things happen sometimes... It's best to move on...”***
 
-She was out one night with friends celebrating finals being over, laughing, living, just a college kid letting off steam. And the next morning? Gone. She was driving home to visit her parents for the weekend. Her car was found empty on a remote highway just outside of Meridian, Idaho, miles from town.
+She was out one night with friends celebrating finals being over, laughing, living, just a college kid letting off steam. And the next morning? Gone. She was driving home to visit her parents for the weekend. Her car was found empty on a remote highway, about 30 miles east of Meridian, Idaho.
 
 The police combed the area for several weeks, but their conclusion was maddening.
 
