@@ -1,6 +1,6 @@
 Nobody ever told me that the ride to Massachusetts from California took quite so god damned long. Or how much evil there really is out in those foreboding marshes.
 
-Yet there I was years ago, my motorcycle roaring down the roads with 4 others riding with me.
+Yet there I was years ago, my motorcycle roaring down the roads with four others riding with me.
 
 I dread that day with every waking moment, and the only reason I am bothering telling this to anyone is because my therapist told me, "Now Scott, you know holding it in is killing you." If it might help stop the cold sweats and screaming fits, then here we go. Enjoy, you sick fuckers.
 

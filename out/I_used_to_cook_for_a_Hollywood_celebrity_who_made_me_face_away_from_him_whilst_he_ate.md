@@ -28,7 +28,7 @@ There were even the distant sounds of what I’d convinced myself were tiny voic
 
 The snippets of insights were always too quiet to fully distinguish. Of course, it was the wet sloshing and smacking that stole most of my attention.
 
-I tried to make meals that were drier, in the hope that this would lead to quieter munching. I served yoghurt, risotto, and so on. No matter what I attempted, the sounds never lessened. And I knew that this was no mean-spirited joke. He wasn’t sharing a meal with hidden guests. Though I certainly wouldn’t have been the first woman to find myself at the receiving end of his bizarre antics.
+I tried to make meals that were softer, in the hope that this would lead to quieter munching. I served yoghurt, risotto, and so on. No matter what I attempted, the sounds never lessened. And I knew that this was no mean-spirited joke. He wasn’t sharing a meal with hidden guests. Though I certainly wouldn’t have been the first woman to find myself at the receiving end of his bizarre antics.
 
 Believe me. Over the years, I’d considered numerous scenarios in my head, but none of them felt right. None of them warmed my chilled flesh whilst that awful man ate, so I eventually broke. Something came over me. Madness, I suppose, born of years working in a draining environment. All for a healthy heap of bucks.
 
