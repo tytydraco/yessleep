@@ -1,4 +1,4 @@
-Hi, I’m GloopyGhost366, and I’m the poster who got banned off X (twitter) for posting my occult findings. No way the pics I posted were a violation of TOS. I don’t think the content was half as horrible as the Ukraine videos I’ve seen scrolling, but somebody reported my account.
+Hi, I’m Seiqe, and I’m the poster who got banned off X (twitter) for posting my occult findings. No way the pics I posted were a violation of TOS. I don’t think the content was half as horrible as the Ukraine videos I’ve seen scrolling, but somebody reported my account.
 
 Today, I’m here to clear my name. If this thread gets popular enough, I might get my account back.
 
