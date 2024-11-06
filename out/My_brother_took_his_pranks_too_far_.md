@@ -18,3 +18,4 @@ We're safe right now but her parents are in Europe so it's just us here.
 
 Hopefully this won't go any further but if it does you'll be the first to know.
 
+Part 2: https://www.reddit.com/r/nosleep/s/cuwoBUOMps
