@@ -2,7 +2,7 @@ I could feel my mind spinning out of control as the smell of the burning ghoul c
 
 Reggie, who’s shotgun was being confiscated by several blackened and rotting folk, took a step towards the woman, but was quickly pushed back against the tree that seemed to create a looming dome around us all. The nasty woman approached us, holding the box that we brought all the way out into this horrible place. Her smile curled across her face like a worm pushing it’s way into a rotted corpse. She opened the box, revealing it’s contents to us all. 
 
-Her voice pierced the thick air that threatened to choke us all. It was like a woman and a fiendish animal were competing with alluring tones and hungry raspy growls to calm down it’s prey. “Oh, wicked outsiders, you have brought to us the tool that will bring my people their salvation, and free the Mother from her prison!”
+Her voice pierced the thick air that threatened to choke us. It was like a woman and a fiendish animal were competing with alluring tones and hungry raspy growls to calm down it’s prey. “Oh, wicked outsiders, you have brought to us the tool that will bring my people their salvation, and free the Mother from her prison!”
 
 As she spoke, the growing crowd of malformed swamp people chattered restlessly. The sound began to bounce off of the willow tree branches above in a cacophony of sweltering anger and excitement. Some of them were screaming “On with it, Isabelle!” Other villagers began chanting in that ancient Dutch dialect, some calling to “Mother” both with longing and with terror in their voices. 
 
