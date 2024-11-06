@@ -135,4 +135,4 @@ The woman I had approached began speaking to the villagers in another language, 
 I wanted so badly to be speechless. But these fuckers killed my brother. So I yelled at the bitch, “I want whoever shot my brother out here right now. I don’t care who the fuck you people are, someone’s going to pay!”
 
 \- - - - - - - -  
-I am tired, it's late. I will have to finish typing this up tonight. I'll post Part 2 tonight.
+I am tired, it's late. I will have to finish typing this up tonight. I'll post Part 2 tomorrow. Good luck sleeping. I know I won't.
