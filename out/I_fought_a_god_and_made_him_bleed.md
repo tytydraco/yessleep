@@ -34,7 +34,7 @@ As I was about to carve the fucking reporter like a pumpkin, he came.
 
 He stood above me at the top of the stairs, Vasiliy’s limp body dangling from his grip. Vasiliy, a six-foot mountain man of fat and muscle, hung like a ragdoll, utterly helpless in the hands of this Übermensch.
 
-My men didn’t hesitate; rifles snapped to shoulders, pistols aimed. There was gunfire. He just stood there as the bullets bounced off him like harmless raindrops. Then this demon, draped in shadow, laughed. He laughed, my brother, mocking me and my men.
+My men didn’t hesitate; they raised their rifles and aimed their pistols. First, there was a click. Then, there was gunfire. But he just stood there as the bullets bounced off him like harmless raindrops. Then this demon, draped in shadow, laughed. He laughed, my brother, mocking me and my men.
 
 Then his eyes flared. A deep crimson glow, like something straight from hell.
 
@@ -58,11 +58,11 @@ I heard the groans and mumbles of men supposed to be dead. Only the faint shuffl
 
 A Perfect Man lunged, fists swinging with bone-crushing force. The room swallowed them back into shadow, leaving only the shuffle of fighting and the sound of ragged breathing until—flash!
 
-A flare of light ripped through the dark, illuminating the chaos for a split second, as the Übermensch's eyes ignited, sending a wave of red flame through the air. The Perfect Men writhed and twisted, some of them catching fire as they advanced. One lunged through the searing heat, landing a powerful blow to the Übermensch's jaw. The sound of impact reverberated through the room. For the first time, the Übermensch staggered, stunned but unhurt.
+A flare of light ripped through the dark, illuminating the chaos for a split second, as the Übermensch's eyes ignited, sending a scarlet beam of death through the air. The Perfect Men writhed and twisted, some of them catching fire as they advanced. One lunged through the searing heat, landing a powerful blow to the Übermensch's jaw. The sound of impact reverberated through the room. For the first time, the Übermensch staggered, stunned but not in pain.
 
 Another Perfect Man tackled him like a freight train. They crashed to the concrete floor and rolled in the dark. I saw the undead clawing at the Übermensch's throat. Their hands, straining with monstrous strength, tried to choke him.
 
-Flash! His eyes blazed again, shooting searing red fire across the room. The Perfect Man choking the Übermensch staggered back, smoke rising from his face. Yet, he lunged forward, refusing to relent. Two others joined, attacking in tandem. The Übermensch swung his arm like they were made of steel. It cracked their undead ribs and flung one into the wall. But the others surged on, clawing and punching, using their bodies as weapons. The darkness swallowed them whole again, leaving only grunts and the clash of fists.
+Flash! His eyes blazed again, shooting searing red fire across the room. The Perfect Man *(choking the Übermensch)* staggered back, smoke rising from his face. Yet, he lunged forward, refusing to relent. Two others joined, attacking in tandem. The Übermensch swung his arm like they were made of steel. It cracked their undead ribs and flung one into the wall. But the others surged on, clawing and punching, using their bodies as weapons. The darkness swallowed them whole again, leaving only grunts and the clash of fists.
 
 The caped demon snarled, grabbing the attacker by the head and twisting sharply. But as that Perfect Man fell, another one grabbed the Übermensch's arm, twisting it backward. Another slammed into his ribs with enough force to crack stone. They fought like cornered beasts. Relentless and mindless, they were driven only by whatever spark of life animated them. The Übermensch's red eyes glowed even brighter, and he let out a laugh—a cruel, taunting laugh—as he wrenched free, flinging two of them across the room in one motion.
 
@@ -78,13 +78,13 @@ What was the point of going up against someone you knew you could never escape, 
 
 This was the moment I fought a god.
 
-Ever since I was a child, I saw that the world was ugly. So I hurt it. I hurt again, and again, and again. They begged, they screamed, they bled, they died. But this was different, he was not concerned about what I was going to do. And I understand that. I know it was useless. I know I was a dead man.
+Ever since I was a child, I saw that the world was ugly. So I hurt it. I hurt it again, and again, and again. They begged, they screamed, they bled, they died. But this was different, he was not concerned about what I was going to do. And I understand that. I know it was useless. I know I was a dead man.
 
 So I pulled out your green scalpel and I stabbed him in the eye. The blade pierced through with a sickening pop. The god screamed in pain. His voice tore through the air, a guttural, raw sound that almost destroyed my ears.
 
 His hand shot up, gripping the scalpel, his fingers closing over it like a vise. With a twist, he crushed it into splinters, fragments of green metal scattering to the floor. I didn’t wait to see the rage in his one good eye—I spun around, legs pounding as I bolted for the back gate, heart hammering, his furious roars chasing me into the darkness.
 
-I flung open the gate, breathless, only to freeze. He was already there, a shadow stretching across the ground in the faint light, blocking my escape.
+I flung the gate open, breathless, only to freeze. He was already there, a shadow stretching across the ground in the faint light, blocking my escape.
 
 He cocked his head, one hand resting loosely at his side, the other dripping blood from where the scalpel had bitten. His voice sliced through the silence, low and icy.
 
