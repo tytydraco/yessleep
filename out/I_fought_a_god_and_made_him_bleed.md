@@ -1,4 +1,4 @@
-*Übermensch - Above or Beyond man*
+* *Übermensch - Above or Beyond man*
 
 To William Ernest Lex Jacobi. My Brother.
 
