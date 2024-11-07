@@ -1,6 +1,6 @@
-Click [here](https://www.reddit.com/r/nosleep/comments/1g5gdob/i_discovered_something_grotesque_in_the_archives/) to read part 1.  
-  
-This post will be a bit shorter than the first two, but I am confident of what I need to do next and will keep on updating you guys until I get to the bottom of the situation.I feel as if finding and listening to these songs has unleashed some kind of evil presence into my life. Whatever it is, it’s been haunting me in ways that become more obvious and frequent with time. At home, I constantly find things out of place that I know I didn’t move, things like my keys, books and frames fall to the floor with no explanation, the smoke alarm has gone off a couple of times and I’ve been experiencing sleep paralysis pretty much every night.
+Click [here](https://www.reddit.com/r/nosleep/comments/1g5gdob/i_discovered_something_grotesque_in_the_archives/) to read part 1.
+
+This post will be a bit shorter than the first one, but I am confident of what I need to do next and will keep on updating you guys until I get to the bottom of the situation. I feel as if finding and listening to these songs has unleashed some kind of evil presence into my life. Whatever it is, it’s been haunting me in ways that become more obvious and frequent with time. At home, I constantly find things out of place that I know I didn’t move, things like my keys, books and frames fall to the floor with no explanation, the smoke alarm has gone off a couple of times and I’ve been experiencing sleep paralysis pretty much every night.
 
 Worst of all, I hear noises of something or someone moving around in my house. This happens at all hours of the day - I hear things in plain daylight and they also wake me up in the middle of the night. I’ve searched the house multiple times but there’s never any evidence of anyone having been there other than me.
 
@@ -61,4 +61,3 @@ I grabbed the oscilloscope from one of the rooms and connected it to the old com
 It was an image of my mother.
 
 [The witch has been dead for years.](https://www.youtube.com/watch?v=Pyw-tglLx-o)
-

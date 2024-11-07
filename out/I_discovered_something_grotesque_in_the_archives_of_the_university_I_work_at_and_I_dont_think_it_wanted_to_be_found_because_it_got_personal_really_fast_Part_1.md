@@ -20,7 +20,7 @@ The files from the unaccounted-for USB drive have parasitically attached themsel
 
 I haven’t listened to much else, despite being a prolific music listener and audiophile all of my life. I’ve developed a kind of obsession with these songs. I’ve come to know them like the back of my hand. Well…more or less. I came to know the lyrics, structure, instrumentation, arrangement, etc. of each song, and that’s given way to a series of dizzying problems.
 
-Going back to my previous post, I mentioned how on first listen while in the basement, I had a strong feeling that there was something wrong with the songs. I don’t just mean with the strange behavior of the files but with the music itself - it really came off as ominous and threatening. Naturally, I assumed that becoming familiar with them, I would gradually outgrow those feelings.  
+I had a strong feeling that there was something wrong with the songs. I don’t just mean with the strange behavior of the files but with the music itself - it really came off as ominous and threatening. Naturally, I assumed that becoming familiar with them, I would gradually outgrow those feelings.  
 
 The opposite has happened. I mean, I did eventually overcome my fear of the music itself - in fact I find it to be quite profound and interesting. But something else is wrong.
 
@@ -67,4 +67,3 @@ It was solid—motionless, yet the shadows around it seemed to twist and writhe 
 I glanced back down the hall. The figure had moved closer. I could see it now—its face, if you could call it that, was nothing more than a void, a hollowed-out absence in the shape of a person. 
 
 The lights blinked out completely. And then, nothing but darkness—and the sound of breathing that wasn’t mine.
-
