@@ -454,3 +454,4 @@ That being said, we all need time to figure out where to go from here. A lot has
 
 There is one bright side to all of this, though: Orion Pest Control has proven that our services can extend beyond some simple infestations. We’re still not heroes, but we try our best. For now, I think that’s [enough](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv).  
 
+Update: [Deirdre may have found a solution. ](https://www.reddit.com/r/nosleep/s/g6xM2rXfP1)
