@@ -76,6 +76,8 @@ She reached a hand up to my hair, tracing through it. Her fingers twirled throug
 
 When the sirens approached, Mary jerked away from me and ran. Police rushed into the gym, and when they saw me as the only living thing there they took me away and wrapped me in a shock blanket. It wasn’t cold, but the heavy and uncomfortable fabric soothed me. I told the police what I saw, and when the other survivors confirmed the story the police got off my back.
 
+There weren’t too many causalities, according to the police. Apparently only a few people actually died before making it to the hospital, I think our local news put it to three deaths? I don’t think anything’s made it to the big news networks, we’re a small town and it’s not like death is uncommon these days. They’d want something big, I don’t really know if this qualifies.
+
 They’re still looking for Mary, and even if they haven’t found her it’s only been a month. We all know she’s still out there. They would have more answers, but when the police went to her parents house they found their fate. According to the police there were symbols tattooed on their backs.
 
 I know my dad knows something about it, but he won’t tell me anything. He says it’s not worth it. He says Mary’s gone now. I know she’s not. I know she’s still out there, still in this neighborhood, still lurking. I know she won’t hurt me, but anyone could be next. I don’t know what to do. I still care about Mary, and I know she cares about me but I can’t just go after her can I?
