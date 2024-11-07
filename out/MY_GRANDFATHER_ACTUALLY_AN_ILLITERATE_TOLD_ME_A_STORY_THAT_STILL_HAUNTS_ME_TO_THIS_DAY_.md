@@ -19,12 +19,14 @@ They searched for him for a month and more yet couldn't find him. People said, h
 They held his funeral.
 As Time flows, he was slowly forgotten.
 
-Yet 35 years later, HE CAME BACK. Wearing the same clothes he wore, fresh muds on his foot and  he didn't age at all. His house was flooded with people of the village. His friends and family even I have aged 35 years yet he is still the same as he was 35 years before. 
+Yet 35 years later, HE CAME BACK. Wearing the same clothes he wore, fresh muds on his feet and  he didn't age at all. His house was flooded with people of the village. His friends and family even I have aged 35 years yet he is still the same as he was 35 years before. 
 In confusion with the changes in his surrounding he asked "what was going on?" He was explained everything that had happened. He cried seeing his  wife in her 70s. 
 He was also asked where the hell he was to this he answered, FIELD!! I WAS IN THE FIELD"
 
-We looked at my grandpa and asked "WHAT??" and all he said was he saw it and it is real.
+We looked at my grandpa and asked "WHAT??" and all he said was he saw it and it was real.
 
 Now, I realised this is a very controversial topic of physics and reality. And even if he made up the story, how on earth could one do it without any physics knowledge? 
 
 Thank you guys for reading🖤
+
+
