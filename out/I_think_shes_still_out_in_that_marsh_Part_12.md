@@ -136,3 +136,5 @@ I wanted so badly to be speechless. But these fuckers killed my brother. So I ye
 
 \- - - - - - - -  
 I am tired, it's late. I will have to finish typing this up tonight. I'll post Part 2 tomorrow. Good luck sleeping. I know I won't.
+
+edit: part 2 is now posted up on my page, have fun, you masochists.
