@@ -278,4 +278,16 @@ The mirror bubbled, like hot lava.  Searing black balls protruded from the crac
 
 The last thing I remembered, before the smoke thickened and reality blurred and blackness overtook me, was the sound of my own primal screams.
 
+\*\*\*\*\*
+
+I woke up warm.  Two thoughts popped into my mind at the same time: w*here am I*?  And, *I need to pee right now.*  
+
+Luckily the resolution to one of the two was right in front of me - a small bathroom across a carpeted floor.  I threw a blanket off myself, climbed out of my bed du jour (a green couch), and stumbled into a much more inviting commode than the one I’d encountered the night before.  My eyes were bloodshot and my hair stuck out at odd angles, but I hadn’t sustained any obvious injuries from my adventure in a drug den.
+
+After peeing and cleaning myself up a bit, I wandered back into the room where I’d slept.  It was, in one word, witchy.  Purple sponge-painted walls with stencils of stars and moons.  Herbs, crystals, an altar in one corner, and a bookcase filled with Tarot guides and Goddess Magic and Healing Plants.  A doorway lead to a railway-style bedroom with an empty wall-mounted bed, then through a second doorway into a small kitchen.
+
+A woman stood there, pouring freshly-made coffee into a mug.  She saw me and smiled.
+
+“Coffee?”
+
 [Part 2](https://www.reddit.com/r/nosleep/comments/1gidlsl/like_last_words_scraped_on_forgotten_walls_part_2/)

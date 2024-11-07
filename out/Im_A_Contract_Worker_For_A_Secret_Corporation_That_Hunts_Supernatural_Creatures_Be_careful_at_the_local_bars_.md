@@ -10,7 +10,7 @@ There have been three disappearances in the past two weeks. All were male and ea
 
 The job was simple. To act as bait to lure out anything that may be targeting men in the area. The Corporation would cover the bar tabs for food and nonalcoholic drinks. I heard there were at least three others who took the job ready to sit around in different bars in the area looking for signs of a predator. It seemed easy enough. I didn’t even need to fight the monster if I found it. Passing along info to stronger Agents was good enough.   
 
-I didn’t want to wear my better clothing I was able to remove the security tags. Thankfully my local thrift shop had a sale I spent some of my recycle money on. Sure, the clothing was a little worn and I could not get the thrift shop smell from them, but what supernatural monster would ever notice that?   
+I didn’t want to wear my better clothing I was able to remove the security tags from. Thankfully my local thrift shop had a sale I spent some of my recycle money on. Sure, the clothing was a little worn and I could not get the thrift shop smell from them, but what supernatural monster would ever notice that?   
 
 I hoped this job lasted a few days for the free meals. The first night was uneventful. I talked to some of the regulars and bought them some food on my company's dime. No one had noticed anything strange lately. The bar wasn’t overly busy, but I assumed that would change the next night. It was near a college so on Friday and Saturday nights it was normally packed regardless of the odd recent death in a nearby bar. From what I could tell this place was for normal humans to make bad choices. I wanted to wait through the weekend just to be certain.   
 
