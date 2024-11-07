@@ -46,29 +46,39 @@ Rocky wheeze-laughed again. His head tilted further down, twisting his neck unti
 
 "But—"
 
-"You like games," Rocky interjected before I could finish. "Do you want to play a game -I- made?"
+"You know so little of this world. You know so little of my own. One day, you will understand."
 
-The room felt just a bit colder but I wasn't going to back down. "Uhm. Sure?"
+The room felt just a bit colder. I stared back at the board, playing my game which at this point was me moving pieces while he watched.
 
-"It is a simple game. You are the player. I will watch you. For five days. Only five. You will not eat. Water is fine. But no food. You tell me to stop, but you will show me first. Five days only. If you can do so, I will stop feasting." Rocky raised those five, knifelike fingers. "Do we play?"
+"Where do you go when I'm away?" I asked.
 
-Five days without food is the sort of challenge a monk would do. Five days without food as a child is borderline neglect. I was certain however. Call it arrogance, call it wanting to be "the hero" in this story, call it my hope that I could stop Rocky from "feasting". "We play."
+"I search to fill the void."
 
-Rocky offered his hand to shake. I took it, my smaller hand passing through his. It was only then that I noticed Rocky's entire hand could wrap around my torso if he was in the room with me.
+"And...uh...what fills the void?"
 
-Those five days were difficult, though I had my tricks. Mom asked if I wasn't feeling well during breakfast but I shrugged her off. I told her I just wasn't hungry. My tummy hurt. During dinner, Dad thought I was sad or upset, but I assured him it was nothing. I don't think either of them believed me but they were simply watching. Surely if I was hungry, I'd at least grab a snack, and it was easier to be mad at a child for only eating sweets and treats as opposed to meatloaf.
+"Do not ask questions that we both know the answer to."
 
-What made it far easier to distract myself was Rocky. True to his word, Rocky followed me everywhere. Usually he'd stay at home when I went to school or would disappear to do his own thing. Trying to learn about multiplication tables or the proper use of puncuation is a sentence was hard as you could see this crimson behemoth, looming in the room.
+We'd continue our game in silence after that, me moving pieces, just trying to enjoy myself. But the question lingered. Did it really take him that long to live? Was that his equivalent of chores? I didn't know. Looking back, I should have shooed him off then and there. But I didn't. I wanted to try and "help" Rocky. Whatever that meant. Maybe if he saw how I lived my life, he'd have a change of heart?
 
-The one brief note was that as we were walking to lunch one day, Rocky stopped. I didn't say anything and kept walking but he seemed to be drawn to another classroom. My school went from kindergarten to eighth grade, Rocky focused entirely on a history class watching what I think was a war movie. His head tilted to the side, breaking away from me as he went to look through the window. It occurred to me now that I could cheat, I could have something quick. It was day three now and water had begun to not cut it. I needed more. Just one quick snack?
+"Do you want to come to school with me?" I asked.
 
-No, I'd think to myself. The Power Rangers wouldn't cheat and neither would I.
+A confused look, the tapping of knife-like fingers. "I could."
 
-Rocky would rejoin me later after lunch. It was during recess now and I was distracted playing kickball. Rocky followed me, watching children play, as I guarded the outfield. "...Did you eat?" he'd ask bluntly, not a hint of trust in his voice.
+"It'll be fun if you do."
 
-"No."
+"...I will do this. I will see how things have changed since I was in your world."
 
-"Good. I woul—"
+I wish there was more to talk about. More hints, more things, but that was the thing about Rocky. He was an observer. A guardian angel, if you believe he was pure. A malevolent curse, if you don't. It was rather unnerving how normal that school day was. He didn't comment or say anything, he merely watched. The expression never changed: Passive confusion. An alien on the outside, watching acts and rituals. Nothing seemed to click. It finally occurred to me that...maybe Rocky was too far gone? Maybe Rocky had just let his mind wander away from what it meant to be like us? To be human?
+
+The one brief note was that as we were walking to lunch, Rocky stopped. I didn't say anything and kept walking but he seemed to be drawn to another classroom. My school went from kindergarten to eighth grade, Rocky focused entirely on a history class watching what I think was a war movie. His head tilted to the side, breaking away from me as he went to look through the window.
+
+Rocky would rejoin me later after lunch. It was during recess now and I was distracted playing kickball. Rocky followed me, watching children play, as I guarded the outfield. "Did you see something that you remembered?" I asked in a hushed whisper.
+
+"Yes. Maybe. Possibly."
+
+"What was it?"
+
+"A far away place. Blood. Fire. Noise. Hate fo—"
 
 Rocky stopped what he was saying. Those slits on his face where his nose would be opened up, drinking the air of the after in deeply. A low, gutteral groan rippled from his throat, his words stopped. Every muscle on his body flexed, growing taut, his fingers writhing as he smelt something. "Rocky?" I whispered, confused.
 
@@ -76,41 +86,45 @@ He didn't respond to me. I don't think he even knew who I was. He dropped to all
 
 "IDIOT! THE BALL!"
 
-I was so distracted that I hadn't noticed that the kickball had landed in my field. The other kids were pretty upset at me about it. We'd finish the game but I wouldn't see Rocky for the rest of the day, nor for the next three days. At any time, I could have cheated, but I was too stubborn. I was too prideful and too assured in my victory. Rocky would come back, see that I had won, renounce "feasting" and he'd...I don't know. Go to heaven? Stop being a scary monster? I didn't know what "victory" was.
+I was so distracted that I hadn't noticed that the kickball had landed in my field, tumbling toward the direction Rockey had gone. Morbid curiosity overcame me as I saw it roll where he had gone, his mountainous form hunched over...something. "Sorry, sorry, I'll get it," I called out, rushing to follow it. When others weren't looking, I'd subtly nudge it toward the treeline. Our school was on the very edge of a forest, with no fence to stop children. An oversight from the pre-millenium, to be sure.
 
-By the fifth day, I felt lethargic and sick. Water wasn't enough and I felt dizzy when I got on and got off the school bus. I wondered if Rocky had quit. Had he left because he knew he'd lose? I don't think so. Did he just not want to participate anymore? I didn't care. All I did know is that when I got home with mom, Rocky was there. He watched me enter, following me as I passed the living room. Only a few more hours to go. Smugly, I thought he was scared to lose.
+The ball tumbled down into the forest's edge, just close enough to where Rocky was. I could finally see it then. The scene before me. It was the first time I had seen Rocky actually doing what he did as opposed to hearing from afar. In the physical world, I saw a dead body for the first time. A deer, freshly deceased. Nothing that would scare someone, unless they'd never seen a dead body before.
 
-It happened just as he said it would.
+The spirit world, on the other hand, was a different story.
 
-The smell hit my nose first, immediately making me salivate. Reflexively I breathed deeply. Dad was still wearing his work clothes, on the phone with someone having a serious conversation. "We can afford that, yes, we— Hold on one second." He'd put the phone to the side as he'd look at me. "Hey buddy. Mom and I were pretty worried about you. We figured this would help?"
+The blue "body" of the spirit was torn apart. I would have never considered such a sight could exist in the realm beyond life, yet here it was. The deer wasn't a deer anymore, having been rended apart with a brutal savagry my young mind could have never comprehended. Limbs sent in all directions, the body torn asunder. Yet there was a...softness to it. Already, that gore began to evaporate, disappearing from the world around it.
 
-In hindsight, it was their last ditch effort to get me to eat before taking me to the doctor for my makeshift hunger strike. Loving as they could be, they knew my favorite food well: Pizza with onions. Mom didn't like pizza, Dad liked his with cheese only. This was for me and me alone.
+And there, hunched over the spiritual carcass, was Rocky. Shoveling pieces of of it into his blender maw, completely ignoring me. Gore shot out from his mouth, anything that wouldn't feed him staining the ground. Claws tore apart what remained, getting pieces that could fit. He gorged himself on whatever he could, ignoring me watching. Did he not care? Did he want me to watch? Or was that hunger so all-consuming that he couldn't be bothered to think about anything other than eating?
 
-I'm not proud of how it must have looked. I didn't even bother with a plate. Six year old me, running to the box, tearing it open, and immediately beginning to stuff my face with pizza. I was too hungry. It had been days. I was ravenous. Grease stained my hands, cheese on my face, the crunch of onions as I'd bite down. It was exactly what I wanted and needed. I ate my fill and then some but that wasn't what gave me pause.
+"Dude, what's taking so long!?" one of my classmates called out, running up to me. "...Woah, is that a dead deer!? GROSS!"
 
-In the corner of the room, Rocky sat there. That hole he had for a mouth taking an oblong shape, as if he was pulling it in two long directions. More jagged teeth and fangs, displayed to me. I swear I saw some stained with blue, but I think I might have just been starved and was seeing things. But I wasn't hallucinating his expression or the shape of his mouth.
+It was right then that I collapsed.
 
-Rocky was smiling at me.
+=========================================================================
 
-I ended up throwing up about two hours later. It turns out almost five days without food and your only sustenance being greasy pizza doesn't go well on your body. But that didn't bother me. What did bother me was losing. As a child, I was never one to like losing. It felt bad. It didn't help that I was so close to winning, stolen from me by my stupid parents getting me my favorite food.
+I got to go home early after that. The guidance counselor recommended some time with me, see how I felt and if things could help. I'd have to visit them a bit considering I had such a strong aversion to what they thought was me seeing a dead animal. Maybe I was frail mentally, in their eyes, to the idea of mortaility. I kept my mouth shut. Nobody would believe me if I told them what I saw. If anything, they may consider me wrong. Having vivid, violent images in my head. It didn't take a child to know that the things you imagine tell a lot about your own mind.
 
-After mom and dad helped me back to bed, bidding me to rest, I'd stare at the ceiling. I could see Rocky out of the corner of my eye, waiting until I heard mom and dad's room close before I'd speak: "Stop smiling at me. That was cheating."
+Rocky followed me home, as he always did. I couldn't look at him. I think he realized, finally coming off of his binge of feasting, that he might have frightened me. Maybe he'd see my reaction and change his ways? I had hope he'd realize things were dire between us.
+
+When I finally got to bed, alone in my room after a horrid day, Rocky just...stared at me. I couldn't read his expression, but it slowly dawned on me: There was no apology to be given. No remorse. Nothing. What looked back at me, across the edge of my room, was something that held no forgiveness. Why would it forgive what was normalcy?
+
+"That was horrible, Rocky," I said.
 
 "I told you. There is no fairness in the here nor the after."
 
-"I could have done it."
+"You didn't have to be so mean."
 
-"Maybe you could have."
+"Maybe not."
 
-"...I was so hungry."
+"...Was that what you did to Mr.Raymonds?"
 
-Rocky, however, stopped smiling. He'd slowly claw his way over to me, sitting by the bed parallel to me. "Now you know why I cannot stop. That hunger. That pain. I feel it all the time. I need it to stop. I need it to end. Even now, I am in agony. Talking helps me forget. But it never goes away. Be it napalm or be it a campfire, it's still fire. It's always there, burning me."
+Rocky slowly clawed his way over to me, sitting by the bed parallel to me. "I cannot stop. That hunger. That pain. I feel it all the time. I need it to stop. I need it to end. Even now, I am in agony. Talking helps me forget. But it never goes away. Be it napalm or be it a campfire, it's still fire. It's always there, burning me."
 
 "I'm sorry it's like that for you," I'd say.
 
 "If I could stop, I would. But I don't act through hate or vengence or spite. I do this because I need to."
 
-It made me feel sad for Rocky. He couldn't help it. But sadness would last for only a moment. He couldn't help it. He'd probably never stop. Could Rocky die? Was it possible for him to die and pass on? Could something bigger and meaner than him come along? I don't know. I didn't want to know. Rocky was scary, yes, but the idea of something bigger than him was scarier. "Rocky?" I asked.
+The pity I had felt, the empathy, vanished. It dawned on me that Rocky was not something or someone that could change. Rocky was less of a person and more of a sentient animal, driven by food, driven by whatever he needed. I had let the wolf into my home and now it was there. But something else clawed at my mind. "Rocky?" I asked.
 
 "Yes?"
 
@@ -122,6 +136,10 @@ Now it was my turn to be silent. I didn't want to know, but I knew. Nothing last
 
 My knowledge about the after had once given me peace. Now it made me reconsider everything. I couldn't be near Rocky when I died. But what if there was an accident? What if a meteor fell on my house tonight? What if I got hit by a car? And what if Rocky was there?
 
-These were things a child shouldn't have to think about. Rocky watched me sit in contemplation, opting to join me in it. Those long, sharp fingers resting on boney knees as he'd stare forward. How many times had he watched me sleep? How many more would he? Could I run from him? What if I went to space? Maybe then I could escape him? My "friend" became much less of a friend, much more of an omen with each passing thought and fantasy of how to get away from him.
+The thing I had once considered my friend was now an omen. An ominous reminder. Always following me, always watching. I felt ill, I felt terrified. Existential dread, the thing I had believed I had passed, loomed over me now more than ever. Every day that passed, I was closer to dying. And Rocky would be there, waiting for me, whether I liked it or not. It's there that I realized that he was a sword looming over me. Could I get away from him? Could I escape him? No. He didn't need to sleep. Rocky could watch and wait, eyes locked on me.
+
+I could never escape him. I couldn't run from him. He was a ticking timebomb. The day I would die, he'd be upon me. I felt nausea overcome me, dread, terror. He would always be there. Watching, waiting. Yet to him, he couldn't grasp my terror. To him I was just a friend. A friend he'd one day tear apart when the final breath escaped his body.
+
+These were things a child shouldn't have to think about. Rocky watched me sit in contemplation, opting to join me in it. Those long, sharp fingers resting on boney knees as he'd stare forward.
 
 I was so focused on myself that I hadn't considered death may come for someone else close to me.
