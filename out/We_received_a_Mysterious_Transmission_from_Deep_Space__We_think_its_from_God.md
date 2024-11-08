@@ -1,191 +1,279 @@
-Space to me, is simply put beautiful. No, I don’t mean the endless void that stretches far beyond the horizon into unfathomable depths. Rather, I find the existence of stars, planets, and cosmic phenomena—serene and pristine….that pave the way of finding millions of data in undiscovered science. 
+I work for NASA. What my position is and what I do does not matter. I can be sent to jail for posting this here but I don't even care anymore. People have to know about this....The following log was received from the Nebula Explorer V2 on November 7th, 2022. It is the last log of the vessel and since communications from it have been lost.
 
-When you’re floating aimlessly through the cosmos, the silence can weigh heavily upon you. For many, the solitude and boredom of space are haunting, and I would agree. In the vastness of the universe, you are but a whisper, insignificant against the backdrop of infinite obscurity. Being grounded on Earth could never compare to the exhilarating isolation of space.
+*The following is the log from Captain Ethan Cross from the Nebula Explorer V2*....
 
-My mission is anything but simple, and what it was no longer matters. To be honest, I’d rather spare you the details—for your own safety. Just know this: I wasn’t a man of faith, not before. But now... I’m not so sure anymore.
+*September 15th, 2022*
 
-3 weeks ago, HQ intercepted a transmission from an unknown signal. While we’ve encountered similar communications before—often misidentified as echoes from nearby satellites—this one was……*quite different*. 
+Deep space has always seemed beautiful to me. The endless void that stretches beyond the horizon into unfathomable depths, the existence of stars, planets, and cosmic phenomena offer a gateway to the unknown. It’s a place where the boundaries of science blur, paving the way for discoveries in regions untouched by human knowledge. 
 
-I emerged from my standard cryo-pod to the incessant beeping echoing through the command deck. A transmission from HQ… I tapped the console, bringing the message into clearer focus. The voice crackled through the comms, tense but steady.
+When you’re floating aimlessly through the cosmos, the silence can often weigh heavily upon you and the solitude and boredom of space can be…. *haunting*, and I would agree. In the vastness of the Interstellar void, you are but a whisper, merely insignificant against the backdrop of infinite obscurity. Earth could never match the exhilarating isolation of space.                       
 
-'Captain Cross... We’ve received a transmission from Rosette Nebula... but something’s off. The signal is weak, distorted—barely holding. It's not on any known frequency. We can’t trace the source.'
+My mission was anything but simple, and what it was no longer matters. To be honest, I’d rather spare you the details—for your own safety. Just know this: I wasn’t a man of faith, not before. But now... I’m not so sure anymore. 
 
-I stared at the flickering display, confused and dazed….Rosette Nebula? That can’t be possible…
+Three weeks ago, HQ had intercepted a transmission from an unknown signal. We’ve encountered similar transmissions before which are often misidentified as echoes from nearby satellites—this one was……quite different. 
 
-"‘Are we certain it's originating from the vessel and not a stray satellite?’ I asked, initializing the caffeine synth dispenser.
+When I emerged from my standard cryo-pod, there was an incessant beeping echoing through the command deck. A message from HQ… I tapped the console, bringing the message into clearer focus. The voice crackled through the comms, tense but steady.
 
-‘Confirmed, Captain,’ the comms officer responded, his voice steady. ‘The signal’s unique—it's being transmitted by a device specifically calibrated for Rosette Nebula. No other tech in the sector uses this frequency.’"
+"Captain Cross... We’ve received a transmission from the Rosette Nebula... but something’s off. The signal is weak, distorted—barely holding. It's not on any known frequency. We can’t trace the source."
 
-'Patch it through,' I ordered, my voice calm, though the air felt heavier around me.
+I blinked at the flickering display, trying to wrap my head around it. The Rosette Nebula? That’s over 5,000 light-years away… *How is it reaching us now?*
 
-There was a long pause, a static hiss, then the screen illuminated, revealing some sort of symbols
+"Are we certain that the signal is not from a stray satellite?" I asked, initializing the caffeine synth dispenser. It hummed to life, producing the liquid in seconds.
+
+"Confirmed, Captain," the comms officer responded, his voice steady. "The signal’s unique—it’s being transmitted by a device specifically calibrated to penetrate the dense dust clouds of the Rosette Nebula. No other tech in this sector uses this frequency."
+
+I stared at the monitor, unsettled. The nebula's gas clouds might be interfering... but a signal from that distance? It shouldn't even be possible.
+
+“Patch it through,” I ordered, my voice calm, though the air felt heavier around me. There was a long pause, a static hiss, then the screen illuminated, revealing some sort of notations
 
 Δ ∅ | # | ⅃ Δ ⊤ | ∘ ∅
 
 “Have we deciphered them yet?”
 
-“Only the first 3 symbols….ANN….We’re currently working to decode the remaining characters…”
+“Only the first 3 notations”
 
-“‘HQ, I’ll remain on standby for the rest of the message. In the meantime, I’ll proceed with my scheduled tasks for the day…’ 
+…. A-N-N….
+
+“We’re currently working to decode the remaining characters…”
+
+“I'll maintain standby for any incoming transmission. Have we received any data bursts or signals from the Nebula Explorer V1?”
+
+“Negative, Captain. We’ve isolated Connors in quarantine protocols. It appears he's gone into self-confinement for now, but we're working on extracting him.”
+
+“It’s been four weeks since our last deployment and four days without contact. Are we certain he’s stable?”
+
+“Affirmative, Captain. His biometrics are active and nominal.”
+
+“Something’s off. I’ve got a bad feeling about this… Maybe I should initiate a manual inspection.”
+
+“Negative, Captain. Protocol is clear—your directive is to remain on standby. We can’t authorize an EVA transfer to the other vessel. Resume your current assignments and await further instructions.”
+
+“Understood, I’ll proceed with my scheduled tasks for the day” 
 
 A brief silence followed, then came the crisp response: ‘Affirmative, Captain.’”
 
-The Rosette Nebula, commanded by a brilliant man known as Benjamin Armitage. He had made numerous groundbreaking scientific discoveries that had reshaped our understanding of the cosmos. His research on exoplanetary atmospheres and the potential for habitability garnered widespread acclaim, and I had diligently followed his work, drawn to his innovative theories and relentless pursuit of knowledge. Months ago, Benjamin had taken the Rosette Nebula to find a planet that could sustain human life for centuries. Since then, it had simply vanished…. 
+I’ve been running diagnostics on the ship’s propulsion systems for the past few days, ensuring all modules are functioning within optimal parameters. My next task was to recalibrate the oxygen filtration system, but honestly, that’s routine at this point. HQ had also assigned me to monitor deep space comms, the Nebula Explorer V1 was the vessel sent before me. Between that and the scheduled exterior hull inspection later this week, I’ve had my hands full. 
 
-Benjamin Armitage had commanded a crew of about fifteen souls, each with families, each representing generations of bloodlines. They had simply vanished, forever lost among the stars, their existence and their findings swallowed by the obscure cosmic void. HQ was quick to label them as “Annihilation”, which was a term reserved for vessels that slipped beyond the boundaries of known space. However, this signal—it seemed to be emanating from it…
+Still, none of these tasks were enough to distract me from the uneasy silence coming from Connors. Four days without contact—it’s gnawing at me….
 
-I immersed myself in my daily tasks, gathering atmospheric readings, carbon pressure levels, and scanning for any new star formations in the vicinity. *That’s when I heard it*—a slow, deliberate tapping through the metal hull. It was faint at first, almost like a whisper and I mostly ignored it. Until it cut through the tranquility of the ship. I paused….straining my ears against the silence that followed, only to be met with an unsettling stillness that felt almost oppressive. Then it came again, a gentle tapping, like fingers drumming on the surface of the universe itself. My pulse quickened as I stepped cautiously towards the command room. 
+“Connors, have you ever thought about what’s out there?” I asked him one evening, the low hum of the ship’s systems providing a backdrop to our conversation. We were in the common area, sipping recycled coffee as we stared out at the stars.
 
-*Until the alarms rang…*.
+He leaned back in his chair, a distant look in his eyes. “You mean besides the endless void? Yeah, I’ve thought about it. But what’s really out there? It’s just… vast emptiness. It can get overwhelming.”
+
+“I guess it’s a double-edged sword. On one hand, it’s beautiful. On the other, it’s suffocating. It’s hard to shake the feeling of isolation.”
+
+Connors sighed, scratching his chin. “You know, when I signed up for this mission, I thought I’d be doing something monumental. Discovering new worlds, pushing the boundaries of human knowledge. But sometimes, I wonder if it’s worth it. The solitude can feel like a weight pressing down on you.”
+
+I chuckled softly, trying to lighten the mood. “You signed up for the trip, Connors. You knew what you were getting into”
+
+“Right,” he replied, but I noticed a flicker of uncertainty in his eyes. “Just promise me you won’t get lost out there, okay? I’d hate to have to send a search party after you.”
+
+“Likewise, my friend,” I said, raising my coffee cup in a mock toast. “Let’s make a pact. If either of us goes quiet for too long, the other comes looking.”
+
+*“Deal.”*
+
+I immersed myself in my daily tasks, gathering atmospheric readings, carbon pressure levels, and scanning for any new star formations in the vicinity. *That’s when I heard it….*
+
+A slow, deliberate tapping through the metal hull. It was faint at first, almost like a whisper and I mostly ignored it. Until it cut through the tranquility of the ship. I paused….straining my ears against the silence that followed, only to be met with an unsettling stillness that felt almost oppressive. Then it came again, a gentle tapping, like fingers drumming on the surface of the universe itself. My pulse quickened as I stepped cautiously towards the command room. 
+
+*Until the alarms deafened me….*
 
 "Status report!" I barked, my voice barely rising above the cacophony of sirens.
 
 The ship's AI flickered to life, its voice steady but laced with urgency. "Warning: Unidentified object detected in proximity. Trajectory indicates potential collision course. Estimated time to impact: three minutes."
 
-My heart raced as I glanced at the sensor readouts, a cluster of data scrolling rapidly across the screen. An unidentified object? My mind raced through possibilities, each more chilling than the last. What have I stumbled upon? I gripped the console, my knuckles white, as I focused on the blaring alerts.
+My heart raced as I glanced at the sensor readouts, a cluster of data scrolling rapidly across the screen. An unidentified object? My mind raced through possibilities, each more chilling than the last. What have I stumbled upon? an asteroid? No, the Ships AI must have identified it…
 
-“Divert all power to shields! Prepare for evasive maneuvers!” I commanded, the weight of command settling heavily on my shoulders.
+I gripped the console as I focused on the blaring alerts. “Divert all power to shields! Prepare for evasive maneuvers!” I commanded.
 
-Then, as abruptly as it had started, the alarms fell silent. The oppressive stillness enveloped me, leaving only the sound of my own heartbeat echoing in my ears. I was alone with my thoughts, the tension thick enough to slice.
+I couldn’t see outside; for some reason, it was dark and blurry. The vessel slammed into something. I hadn’t engaged my safety harness, and I was violently ejected from my command seat, my body tumbling against the bulkhead.
 
-Suddenly, HQ crackled to life over the comms, the voice of my superior cutting through the silence. “Captain Cross… it seems that a vessel is within your vicinity…”
+The AI hummed, its voice urgent, piercing through the chaos.
 
-I couldn't help but smirk, a bitter taste in my mouth. “I don’t suppose I’ll be assigned to find out what it is?”
+*WARNING... WARNING... WARNING...*
 
-“It is heavily damaged, and we need you to investigate,” the voice replied, lacking any trace of hesitation.
+I couldn’t see outside. I didn’t know what I had hit—some unseen object in the void—until it became silent. The alarm ceased, leaving an eerie quiet in its wake. My heart raced as I pushed myself upright, the cold metal of the console digging into my back.
 
-A heavy sigh escaped me. Of course, they would send me. After all, *I was an experiment gone wrong…*
+“Status report!” I shouted, forcing my voice to remain steady despite the dread that clawed at my insides.
 
-As I prepared my spacesuit, the familiar routine grounded me amidst the chaos of uncertainty. The fabric of the suit felt reassuring against my skin. I meticulously checked the seals, ensuring they were airtight, and secured my helmet, the visor reflecting the dim lights of the command deck. Once I was ready, I took a deep breath and stepped into the airlock, my heart pounding in rhythm with the mechanical whir of the closing hatch. With a hiss, the chamber depressurized, and the door to the outer void slid open, revealing the damaged hull of the lost vessel. HQ had sent me to find it, and now I stood at the threshold of *obscurity*.
+“Systems compromised,” the AI replied, its tone dispassionate as ever. “Shields at fifty percent. Hull integrity fluctuating. Unknown entity detected—location: 030 mark 18.”
 
-The journey across the void was eerie, my boots pushing off against the jagged remnants of the ship. As I glided toward the entrance, I felt the cold embrace of the void wrapping around me. Once inside, the carbon pressures surged, and to my astonishment, they stabilized. A miracle—the oxygen systems were still operational.
+I blinked, struggling to comprehend. Unknown entity? “What do you mean, ‘unknown entity’? Can we identify it?”
 
-Inside of the vessel was dark…I flicked on the helmet’s night vision, illuminating the darkened interior with a spectral green glow. The sheer size of the ship was overwhelming; massive corridors stretched into the shadows, but a sinister stillness pervaded the air. Not a soul in sight. *The silence was deafening.*
+“Insufficient data. Visual feeds are compromised. Recommend initiating external scan.”
 
-I cautiously ventured deeper into the belly of the beast, my footsteps muffled by the thick silence. The walls, scarred and dented from external damage, seemed to whisper secrets of the lives that once thrived here. As I explored, remnants of humanity emerged from the darkness—personal effects scattered about, a half-finished meal.
+I rubbed the back of my neck, feeling the tension knotting deeper. “Do it. Get me eyes on whatever we collided with.”
 
-*Then, I found the captain’s quarters.* 
+As the AI began its scanning process, I took a moment to gather my thoughts. The darkness outside my viewport felt oppressive, swallowing the starlight, as if the universe itself was watching me. I fought against the rising tide of panic.
 
-The door hissed open, revealing a space cluttered with the echoes of its occupant. A cabinet caught my eye, its surface adorned with scratches and wear. I approached, my fingers trembling as I opened it, revealing a journal.
+“*Come on, come on…”* I muttered under my breath, staring at the flickering display as it struggled to process the input.
 
-The initials "BA" were etched into the cover, along with the name of the vessel: *Rosette Nebula*.
+Suddenly, the screen cleared, revealing a shadowy silhouette drifting just beyond the hull. A massive structure, alien and unsettling, loomed ominously against the void. Its surface was textured, like a complex web of dark materials, pulsating with an eerie glow.
 
-“What?” I murmured, disbelief washing over me. Had I truly found the lost ship? It had come into my grasp, slipping through the fingers of fate.
+“What the hell is that?” I breathed, fear coursing through my veins. “AI, enhance the scan! Identify that structure!”
 
-But then, the helmet's night vision flickered and cut out, plunging me into an impenetrable darkness. I stood still, the absence of light amplifying my senses. Deep into the blackness, I peered, but all I found was a suffocating void filled with my own thoughts. The sound of my heartbeat echoed like a distant drum, reverberating through the forewalls of my mind. Here, in this forsaken vessel, the weight of isolation pressed down on me, mingling with the chilling realization that *I may not be alone*.
+“Enhancing now,” it responded. The screen pulsed as the AI processed data, but the results were slow. A dread began to settle in my gut—a feeling that whatever lay before me was more than just an object in space.
 
-As I stood in the shadows of the captain’s quarters, the eerie stillness was shattered by the familiar crackle of the comms. HQ came online, their static-filled voices cutting through the suffocating silence.
+“Captain,” the AI finally said, “I cannot identify the structure. Preliminary scans indicate it emits an unusual energy signature. Suggest caution in approaching.”
 
-“Captain Cross, report your findings,” the voice of Commander Hayes came through, clipped and professional.
+Caution? I was already too close. My heart raced as I tried to think clearly, weighing my options. Should I attempt to maneuver away? Or would it be better to try and communicate?
 
-“I’ve located the lost vessel,” I replied, forcing the words past the knot in my throat. “The Rosette Nebula is here, but… there’s not a soul present. It’s as if the crew vanished into thin air.” I felt a chill run down my spine as I refrained from mentioning the journal.
+I hesitated, uncertainty gnawing at me. Just then, a series of faint vibrations reverberated through the ship. It felt like a heartbeat, rhythmic and steady, sending shivers down my spine.
 
-“Understood,” Hayes replied. “We’re analyzing the signal from the vessel. We’ve decoded the initials from the transmission… I-H-I.”
+“AI, did you detect that?” I asked, my voice barely above a whisper.
 
-“I-H-I?” I echoed, brow furrowing. “Nothing further?”
+“Affirmative. The structure appears to be reacting to our presence. Energy levels are rising.”
 
-“Negative. That’s all we have for now. We’ll keep you updated if anything changes,” Hayes said, and the transmission went quiet, leaving only the faint hum of the ship’s systems in my ears.
+With a sinking feeling, I realized the entity had noticed me. Whatever it was, it was alive—*and it was watching*\*\*.\*\*
 
-Then, as if the air itself thickened, a voice emerged from the darkness, thin and raspy. “You shouldn’t be here.”
+“Prepare for any incoming transmissions,” I ordered, adrenaline pumping through me. “We need to know what we’re dealing with.”
 
-I whirled around, my heart racing. A figure loomed in the corner, skeletal and ghostly, as if he had been plucked from the very fabric of time. The man looked as if he had died years ago, his skin stretched tight over bone, eyes sunken and hollow but his face, oh god his face was hollow…crisp and dark. “I found a star,” he rasped, “a habitable one. I wanted to bring it to Earth… but I found something else, I’ve found…*Annihilation*”
+But as I waited, the silence returned, heavier this time, as if the very fabric of space held its breath. I felt utterly exposed, trapped in a cocoon of darkness, with only the unknown entity before me.
 
-His gaze bore into me, a mix of madness and reverence. “A deity…” His voice trailed off, lost in the echo of his own despair. “ I wanted Immortality.....and he has given me.....”
+“AI, keep the shields at maximum,” I commanded, feeling a knot of fear tighten in my stomach. “If it decides to attack, I want to be ready.”
 
-My breath caught in my throat as the old man stepped closer, his frail hands reaching out. “*My ancestors foretold the prophecy*”
+Then, as abruptly as it had started, everything fell silent. The oppressive stillness enveloped me, leaving only the sound of my own heartbeat echoing in my ears. I was alone with my thoughts, the tension thick enough to slice.
 
-In a panic, I stumbled backward, but he lunged at me, hands tightening around my throat. A struggle erupted between us—his strength belied his frail appearance. I fought against his grip, adrenaline surging through my veins.
+The darkness outside the viewport pressed against the hull like a weight, a reminder of the vast, uncaring universe surrounding me. I could almost feel the cold expanse of space wrapping around my ship, isolating me further from any sense of normalcy. My mind raced, piecing together the fragments of what had just occurred. What had I hit?
 
-With a burst of energy, I broke free and bolted toward the exit, sprinting through the dark corridors of the Rosette Nebula. My mind raced as I navigated the wreckage, heart pounding in my chest. I could feel his presence hot on my heels, a specter of madness from the depths of the void.
+I forced myself to take a deep breath, steadying my pulse. I had to assess the situation. I fumbled for the control panel, my fingers brushing against the cold metal as I reestablished my grip. The interface flickered to life, the dim glow illuminating the command deck like a distant star in the void.
 
-Reaching my ship, I slammed the hatch behind me, heart pounding as I engaged the airlock mechanisms.
+“AI, status check!” I commanded, my voice steadier than I felt.
 
-"Lock it down, lock it down!”
+“Systems are nominal,” the AI replied, its synthesized voice echoing through the stillness. “However, navigational sensors are offline, and visual feeds remain compromised. Energy levels are fluctuating within normal parameters.”
 
-I urged myself, fingers flying over the controls as I sealed myself inside my vessel. The hiss of the airlock filled the cabin, a sound of safety—at least for now.
+Normal? The word felt almost absurd in this context. “What about external scans? Can you provide any data on what we collided with?”
 
-Just as I secured the hatch, HQ crackled back online. “Captain Cross, we’ve been monitoring your live feed. We need to discuss your situation.”
+“Analyzing… no significant anomalies detected in the immediate vicinity. The object is classified as an unknown entity. Energy readings indicate a strong electromagnetic field surrounding it.”
 
-I took a deep breath, the air feeling heavy with dread. “I need to get out of here now,” I said, urgency lacing my voice. “There’s something aboard this ship—someone who should not be here.”
+I squinted at the monitor, frustration gnawing at me. “Give me a visual feed if you can.”
 
-“Hold your position,” Hayes commanded. “We need to analyze the full situation. The transmission data suggests the I-H-I sequence is connected to protocols. It could be crucial.”
+The screen pulsed, and for a brief moment, static danced across the display before settling on an image—a vast, shadowy mass drifted silently beyond my hull, its contours indistinct in the darkness, yet undeniably present.
 
-“I don’t care about protocols! I’m telling you, there’s a man here… he claims to have found Immortality!” I shouted, desperation clawing at my chest.
+“Can you enhance that?” I asked, my breath catching in my throat.
 
-“Maintain control, Captain,” Hayes replied, but I could hear the tension in his voice. “We’ll assess your situation from here.”
+“Enhancing image… completed,” the AI responded. The silhouette sharpened, revealing a complex structure, interwoven with what appeared to be organic-like tendrils that pulsated faintly, as if alive.
 
-As I sat in my ship, the weight of the encounter settled over me like a suffocating shroud. I locked my gaze on the dark viewport, heart racing, fully aware that I was no longer just a captain exploring the cosmos. I was now a witness to something far more terrifying—something that had stirred from the depths of the *Rosette Nebula*, and it hungered for attention.
+My heart raced; *“What the fuck is that?*”
 
-Desperate for answers; I read through the journal entries. BA, Benjamin Armitage; inside, the ink was smudged, some pages worn and torn, but the words were still legible. They told a story.
+“Unknown,” the AI repeated. “Further scans are required to ascertain its properties and intentions. Recommend maintaining a safe distance while attempting to establish communication protocols.”
 
-His initial entries started hopeful. The same optimism I had, the same ambition, the same thirst for discovery. But as I flipped through the pages, the tone shifted. The words became darker, more erratic. Benjamin Armitage and his crew had discovered something. Something far out, deep in space, something ancient, buried beneath the surface of a rogue planet. At first, they thought it was a piece of alien technology. But it wasn’t. It was something alive.
+I felt a chill run down my spine. Communication? I didn’t want to communicate with whatever the hell this thing was
 
-The entries began to fragment. He spoke of voices in his head, of strange symbols appearing on the walls of the ship, symbols that hadn’t been there before. His crew began to change—mentally, then physically. He tried to explain it to Earth, to tell them what they had found, but they dismissed him. They called him delusional. A man driven mad by isolation.
+“Can we initiate contact?”
 
-But it was the last few entries that chilled me to my core. They weren’t written in ink anymore. They were scratched within the confines of the pages.
+“Attempting to establish contact,” the AI replied, the console lighting up with a series of beeps and whirs.
 
-"*We are not meant for this. We are not meant to inherit the stars. We are not meant to understand them"*
-
-*He watches. He waits. Do not follow.*
-
-The more I read, the more I felt the same pull that the captain must have felt. That awful, magnetic tug that kept me turning the pages even though every fiber of my being screamed to stop. I wasn’t sure if I wanted to know the truth anymore. But I kept reading. I had to.
-
-The final entry contained symbols. The same ones HQ had initially found; 
+I gripped the edge of the control panel, anticipation thrumming in my veins. A moment passed, the silence wrapping around me like a shroud. Then came the response—a low-frequency hum, resonating through the ship, sending vibrations rattling through the hull.
 
 Δ ∅ | # | ⅃ Δ ⊤ | ∘ ∅
 
-*“Annihilation”*
+“What is that?” I whispered, staring at the screen as it displayed a notation.
 
-*The man I had found aboard the vessel. It was Benjamin Armitage….*
+“Unidentified transmission detected,” the AI stated. “Frequency modulation is inconsistent with known communication methods.”
 
-The silence in the vessel was deafening, broken only by the soft hum of the ship’s systems. Just as I began to steady my breath, the coms crackled to life. An ancient voice filtered through, its words jumbled and incoherent.
+It sounded almost… organic, like the pulse of a heartbeat echoing in the stillness.
 
-*“Annihilation.”*
+“Can you decode it?” I pressed, every instinct telling me to be cautious.
 
-The AI interface flickered to life, struggling to decipher the distorted sounds. As the words emerged clearer, a chill ran down my spine. 
+“Only three Initials; A-N-N....Insufficient data to decipher further intent or meaning. Recommend further analysis and monitoring.”
 
-“**Δ ∅ | # | ⅃ Δ ⊤ | ∘ ∅**,” 
+I swallowed hard, my mind racing. Here I was, a speck in the void, facing a phenomenon that defied everything I knew about the universe. I was on the edge of discovery—or *destruction*.
 
-it repeated, and then the single word followed, almost like a chant. 
+“Prepare to initiate a deep-space scan of that entity,” I ordered, forcing myself to maintain focus despite the rising tide of uncertainty. “And keep the shields at full power. I don’t want to find out what it can do.”
 
-*“Annihilation.”*
+A small static came when the AI replied, “Affirmative, Captain.”
 
-“What are you?” I called out into the void, my voice trembling against the oppressive darkness.
+As I settled into my seat, the weight of isolation pressed down on me again. I was alone, drifting through the depths of space, waiting to uncover the secrets of an entity that seemed all too aware of my presence. Suddenly, HQ crackled to life over the comms, the voice of my superior cutting through the silence. “Captain Cross… Report your findings…”
 
-“Annihilation,” the voice returned, eerily echoing my own question. It felt as if the sound had seeped into my mind, wrapping around my thoughts like a vice. Panic surged through me. I stumbled backward, my legs giving way as I collapsed onto the cold metal floor.
+I straightened in my seat, adrenaline coursing through me. “Commander Hayes, I—” My voice faltered for a moment as I glanced at the ominous mass on the screen. “I’ve encountered an unknown entity in the vicinity. The collision has compromised navigational sensors, but I’m attempting to assess its properties.”
 
-In an instant, the world faded away, and I was swept into a universe of some sort—a singular celestial body: a radiant star encircled by a luminous moon, this world…..*it had bloody lakes.* 
+“Unknown entity?” Hayes’s tone was sharp, laced with urgency. “Are you in danger?”
 
-“Captain Ethan Cross,” the voice resonated, deep and resonant like the rumbling of distant thunder. It filled the emptiness of space, reverberating within my very essence. 
+“I’m not sure,” I replied, trying to maintain my composure. “The entity appears to be… alive, or at least it has organic characteristics. It’s emitting a low-frequency signal that I’m currently analyzing. I recommend sending a probe to gather more data before we make any decisions.”
 
-“You have wandered far, yet you seek what should remain hidden.”
+“Negative, Captain. We cannot risk losing another asset. Maintain distance and gather intel from your current position. Can you confirm the object’s stability?”
 
-“Wha…What the fuck are you?” I stammered, the enormity of the being overwhelming me. It defied comprehension, its form shifting in a way that defied all logic, something that shouldn’t exist.
+“Stability is unclear. It’s pulsating and—” My words caught in my throat as the entity shifted slightly on the screen. *It……What the fuck…. It seems to be reacting to my presence.”*
 
-“I am he who dwells in the shadows between stars,” the entity replied. “I am the truth that dwells beyond the veil of your understanding. You see, Benjamin Armitage sought the stars, and in his arrogance, he attempted to claim them as his own. His sin was to reach for what was never meant for mortal hands. He lives, but his existence is now one of eternal servitude, chained by his ambition.”
+“Is it attempting communication?”
 
-“So... he’s not dead?” I gasped, the pieces beginning to fit together like fragments of a shattered mirror.
+“I don’t know yet,” I admitted, my eyes narrowing at the screen. The pulsing intensified, the low hum deepening in tone, resonating in a way that felt almost—intentional. “It’s almost like it’s… trying to talk.”
 
-“No,” the voice echoed, its tone both melancholic and accusatory. “He is condemned, a shadow of what he once was, roaming the halls of his dreams, forever haunted by his failure. You tread the same path, Captain. Your mission is akin to his. You will meet the same fate if you continue.”
+“Captain, you’re to prioritize your safety above all else. Do not engage unless absolutely necessary,” Hayes warned, his voice steely. 
 
-“But I have to find it!” I protested, desperation bubbling within me. “I need to know! Humanity needs to know!”
+I clenched my fists, frustration bubbling beneath the surface. “Commander, if this entity poses a threat, we might not have the luxury of waiting. If we don’t act now, we could lose the opportunity to understand it.”
 
-“Knowledge is a double-edged sword,” the voice cautioned, its voice shifting to a softer timbre. “Your desire blinds you, for the truth is a burden too heavy to bear. The stars you seek may yield answers, but they may also consume you. Do not follow in his footsteps. Turn back while you still can.”
+“Your priority is to ensure the safety of the mission,” he repeated firmly. “Maintain monitoring and keep me updated. HQ out.”
 
-As the cosmic deity’s words washed over me, a whisper broke through the ethereal conversation, indistinct yet insistent.
+The comms went silent again, leaving me in the oppressive quiet of the command deck. I glanced at the console, the waveform still pulsing in front of me. The low-frequency hum began to shift again, its rhythm changing, more urgent now.
 
-*“No... no... no...”*
+“AI, can you analyze that change in the signal?” I asked, my heart racing.
 
-“What is that?” I asked. The whisper grew louder, more frantic, reverberating in my mind. “Turn back... find rest...”
+“Analyzing… The signal exhibits patterns reminiscent of communication methods unrecognizable,” the AI reported. “Possible attempts to convey a message. However, the modulation remains unique and indecipherable.”
 
-Suddenly, the celestial landscape began to dissolve, and darkness enveloped me.
+“Can you approximate its intent?”
 
-I jolted awake, gasping for breath, finding myself confined within the cryptic pod of my ship. It had all been a dream? 
+“Insufficient data. However, it may imply curiosity or caution.”
 
-*“Being alone in the void for so long…has taken its effect on me. But nevertheless, space is beautiful to me…I am sending this final log before my next mission which is to find the remnants of a planet that contains elements of habitual substances. Wish me luck…..”*
+Curiosity or caution? In the cold embrace of space, either could spell destruction.
 
-As I recorded my final log….an incessant beeping echoed through the command deck. A transmission from HQ… I tapped the console, bringing the message into clearer focus. The voice crackled through the comms, tense but steady.
+“Activate the external camera feed,” I ordered. The display flickered, and the viewport illuminated, revealing the entity in full view. It's dark mass loomed large against the backdrop of stars, its tendrils undulating slowly, almost as if they were breathing.
 
-'Captain Cross... We’ve received a transmission from the lost Rosette Nebula….
+“AI, initiate a slow rotation of the ship. I want to get a full visual of this thing without moving too close,” I instructed, hoping to buy time while my mind raced through the possibilities.
 
-*“Annihilation”*
+“Affirmative,” the AI responded, and the vessel began to turn.
+
+As I watched the entity shift and ripple in the starlight, an unshakable feeling of dread settled over me. I had ventured into the unknown, and now *I was staring into the abyss, waiting for it to gaze back.*
+
+After what felt like an eternity, a rhythmic sound echoed through the metallic hull of the vessel.
+
+*Tudd… Tudd… Tudd…*
+
+I tried to ignore it, but the noise was relentless, like a heartbeat in the silence of space. There was something far more terrifying awaiting me beyond that sound—something that could lead the mission into…..*Annihilation*.
+
+ 
+
+*Tudd… Tudd… Tudd…*
+
+The sound grew louder, filling the empty corridors of the vessel
+
+*Tudd… Tudd… Tudd…*
+
+I tightened my grip on the control panel, feeling a chill creep up my spine despite the warmth of my suit.
+
+I scanned the monitors, hoping to find something—anything—that might explain the noise. Yet, the screens showed nothing but the static hum of deep space. The vast darkness loomed beyond the hull, pressing against the ship as if something massive and unseen watched from the void.
+
+*Tudd… Tudd… Tudd…*
+
+I tried to focus on the entity…. *But this noise…* this endless, insistent drumming… was like a warning, echoing from some primal depth I couldn’t understand.
+
+Suddenly, the lights flickered, casting strange shadows across the bridge. I forced myself to breathe, slow and steady, but my heart raced in time with that infernal beat. 
+
+*Tudd… Tudd… Tudd…*
+
+A faint voice crackled through the comm system. “*Ethan*…”
+
+I froze. That voice—it sounded distorted, stretched by static, but familiar. *Impossible*. 
+
+*Conners? My voice ached…..*
+
+“*Ethan….”*
+
+The lights dimmed entirely, and the darkness became suffocating. The sound now pounded in my ears.
+
+I turned, but I was alone. Or so I thought. In the shadows at the edge of the bridge, a figure began to form, outlined by the faint emergency lights. The face came last—his face. *Conners*. He stared at me, hollow-eyed, as if peering from some eternal abyss.
+
+*"Did you think it would end with me?”* he whispered, his voice barely more than a rasp against the drumming beat. 
+
+*Tudd… Tudd… Tudd…*
+
+Panic clawed at my mind as I took a step back, my boots heavy, rooted to the floor. I tried to speak, to explain, but words failed.
+
+And then, as I watched, he stepped forward, his gaze burning with a fury that transcended death, his figure shifting and flickering like static on a broken screen.
+
+“*Ethan*…..” he murmured, each syllable dripping with bitterness. "*You will face it too as I have faced*…..*Complete and utter….Annihilation*"
+
+End of Log 1....
+
+I think I hear someone coming. I'm gonna try post the remaining logs tomorrow. That is IF I make it out of here.....
