@@ -117,3 +117,6 @@ I climbed the hill and peaked down the other side hoping to find our buddy just 
 
 The poor fox was barely even there anymore—reduced to ivory scraps and rotting flesh. The items it had slept upon were now coated in blackened and thick blood.
 
+Part two, here:
+
+https://www.reddit.com/r/nosleep/s/ZscIgxlJIk

@@ -327,5 +327,3 @@ I don’t know what happens. But it can’t be good.
 As I write these last few lines, I can feel a little bit of drowsiness coming back to me. Just as well. I think I’ll sleep in for a bit, and have a late breakfast. Grandmother would be disappointed, but I have little choice in the matter.
 
 After all, I have a long day [ahead](https://www.reddit.com/r/chhayagarh/comments/1fqrllm/index_welcome_to_chhayagarh/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button).
-
-[It was an eventful day too, apparently.](https://www.reddit.com/r/nosleep/comments/1fy1y7k/chhayagarh_the_goat/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
