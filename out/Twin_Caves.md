@@ -39,7 +39,7 @@ The image was really something. It looked like a top down view of the entrance, 
 
 “They had a team of scientists down there a few weeks ago. They say no one knows how it formed this way. Isn’t that amazing?”
 
-“Chels…” I stared at the image on the phone screen in awe, but another vague feeling was building inside me. Something about it seemed… unreal, unbelievable. It looked otherworldly, like something that didn’t belong here. “Don’t you think it’s weird how much of these woods we explored and never found? It looks huge.”
+“Chels…” I stared at the image on the phone screen in awe, but another vague feeling was building inside me. Something about it seemed… unreal, unbelievable. It looked otherworldly, like something that didn’t belong here. “Don’t you think it’s weird how much of these woods we explored and we never found this? It looks huge.”
 
 “Oh come on, we were just kids then. We just thought we explored every inch of those woods because we didn’t know how big it was.”
 
@@ -135,7 +135,7 @@ Chelsea laughed. “A crocodile, Charlie? There’s no crocodiles in Alabama. It
 
 “I don’t recall anyone ever seeing a gator in sticks creek. And I don’t think they come in black.” We both laughed. 
 
-It was now day three of our trip, and I knew I couldn’t put off Twin Caves any longer. We ate a terrible breakfast courtesy of the Blackwoods, who were just as creepy as always. Seconds after stepping out the back door, the ugliest damn dog I ever seen in my life came charging and snarling at me, sending me reeling backwards. I landed hard on my ass. The awful creature resembled the shape of a dog, but it was hairless with blood red skin and patches of rough black flesh that almost charred. 
+It was now day three of our trip, and I knew I couldn’t put off Twin Caves any longer. We ate a terrible breakfast courtesy of the Blackwoods, who were just as creepy as always. Seconds after stepping out the back door, the ugliest damn dog I ever seen in my life came charging and snarling at me, sending me reeling backwards. I landed hard on my ass. The awful creature resembled the shape of a dog, but it was hairless with blood red skin and patches of rough black flesh that almost looked charred. 
 
 “Sentinel!” Suddenly Sam appeared out of nowhere and grabbed the thing by its thick black leather collar. 
 
@@ -153,7 +153,7 @@ The cave wasn’t too far from their house. I truly couldn’t fathom how it wen
 
 “It’s creepy as fuck.” I remarked. 
 
-She started off into the left hand entrance and I followed behind. The entrance was wide and tall, plenty of room for us to walk side by side. Not too far in the light began to fade into darkness, so we switched on our flashlights. We didn’t speak much through our awe, just the occasional whisper of “whoa” or “cool” as we drug the beams of light over the walls and floors and ceiling of the cave, marveling at this new wonder of the natural world. There were a few places where the cave branched off, but it seemed an easy enough path to backtrack so we didn’t worry about it. 
+She started off into the left hand entrance and I followed behind. The cave was wide and tall, plenty of room for us to walk side by side. Not too far in the light began to fade into darkness, so we switched on our flashlights. We didn’t speak much through our awe, just the occasional whisper of “whoa” or “cool” as we drug the beams of light over the walls and floors and ceiling of the cave, marveling at this new wonder of the natural world. There were a few places where the cave branched off, but it seemed an easy enough path to backtrack so we didn’t worry about it. 
 
 It started to get cold. I stopped and shivered, questioning my choice of a light hoodie instead of a jacket. That’s when I heard an eerier whooshing sound rush through the darkness. 
 
@@ -167,7 +167,7 @@ She paused and listened. “Yeah I do… How’d that get in here?” She giggle
 
 It seemed like only a few minutes had passed when suddenly I realized I couldn’t hear my sisters footsteps anymore. I turned around, swinging my flashlight everywhere. She was gone. 
 
-“Chels??” I called, panic in my voice. How long ago had gotten separated? How far had I gone without her? I tried to recollect when we parted ways, but for some reason my memory seemed foggy. I wasn’t even sure how long I’d been down here. I pointed my flashlight at the mechanical watch on my wrist. It read 1:13. I tried to remember what time we entered the cave, but I couldn’t. I knew was in the morning, we set off not long after waking up. There was no way we’d been down here for hours already. 
+“Chels??” I called, panic in my voice. How long ago had we gotten separated? How far had I gone without her? I tried to recollect when we parted ways, but for some reason my memory seemed foggy. I wasn’t even sure how long I’d been down here. I pointed my flashlight at the mechanical watch on my wrist. It read 1:13. I tried to remember what time we entered the cave, but I couldn’t. I knew was in the morning, we set off not long after waking up. There was no way we’d been down here for hours already. 
 
 A cold chill froze me when I heard the hellish sound washing through the cavern again. It was louder this time, and almost sounded like screaming. 
 
@@ -251,7 +251,7 @@ I slammed on the brakes, the car swerved hard and we nearly went off the road. A
 
 “Oh my God oh my God oh my God….” Chelsea cried. “What’s happening… what’s happening?!”
 
-All I could do was cry and drive. I pulled back into the driveway of Jerry Bed and Breakfast and slammed on the brakes. I turned to my sister. 
+All I could do was cry and drive. I pulled back into the driveway of Twin Caves Bed and Breakfast and slammed on the brakes. I turned to my sister. 
 
 “Go inside and get as much of our stuff as you can. I’ll meet you back here in five minutes.” 
 
