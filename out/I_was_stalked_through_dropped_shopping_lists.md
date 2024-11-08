@@ -1,11 +1,3 @@
-It has been difficult to talk about this in the past since it takes the place over so many years.  I've broken up the main bits into the following sections to hopefully clarify to all the arc of this tale.
-
-
-
-*Picking them up*
-
-
-
 Until a couple of days ago, I was certain cell phones saved my life.  
 
 Back in the before-times (I’m bringing out my old man voice here), we wrote so many things on paper:  Quick notes, directions, addresses, and most of all, shopping lists.  When used up, they mostly made it in the garbage bins since those were on many street corners.  
@@ -20,11 +12,7 @@ For the two of us, this became a joyful hobby.  Lots of scraps of paper that we
 
 Until it wasn't.
 
-
-
-*The Special Note*
-
-
+*---*
 
 I still have the piece of paper that started everything off.  Below is everything it says:
 
@@ -62,11 +50,7 @@ I shrugged.
 
 “Me neither.”
 
-
-
-*Silence is Broken*
-
-
+*---*
 
 Through the next weeks, we could see the effects of the cell phone’s advancement.  Cheaper and cheaper phones had cameras and texting was easier, so paper was less necessary.  Still, we found some slips here and there.  There was nothing out of the ordinary on those slips.  Not until the middle of the summer. 
 
@@ -84,19 +68,15 @@ Through the next weeks, we could see the effects of the cell phone’s advanceme
 
 December of 2005.  The loose paper is harder to find, but every slip now comes with a message from this thing that’s following us.  
 
-“Ha!  Cleaning the planet.  Whatever you say.”  “This is what you had for dinner last night.”  “You two have predictable patterns.”  
-  
+“Ha!  Cleaning the planet.  Whatever you say.”  “This is what you had for dinner last night.”  “You two have predictable patterns.”
+
 More details slipped into the notes.  Whatever was leaving them could hear and see us.  It commented on our clothing, our meals, even our sleep.  
 
 The stalking became more obvious with the last few slips that we found.  
 
 “Watched you snooze your alarm twice.”  “I have a knife.”  “Do you recognize these?” and some squares of our clothing.
 
-
-
-*The “Final” Note*
-
-
+*---*
 
 The last slip we ever found happened when my friend and I were out together.  We passed a school and a piece of paper was lying on the sidewalk.  We looked at each other and debated on picking it up.  On the one hand, the possibility of a guardian’s note - the prize finds.  On the other hand … we didn’t want to know what the bottom would say.  The wind picked up a little and one of us stepped on the paper so it wouldn’t blow away.  
 
@@ -115,4 +95,3 @@ My friend and I hoped this would be the end of everything.
 I hadn’t thought about these messages or the time my friend and I had this hobby for a while now.  Except I found a piece of paper in front of my car at a parking lot.  It was flipped written side up and all it said was: 
 
 “I’m still watching you.”
-
