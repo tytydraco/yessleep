@@ -57,4 +57,4 @@ I charged towards him and was pushed back with equal force as he grabbed my daug
 
 Tears flood my eyes as I saw him grab my daughter. "THIS IS...", my words trailed of as I smiled. A wave of realization hit me accompanied by laughter. "So there is no forgiveness to even accidents huh." I smirked.
 
-That night I laughed as it killed the girl in front of me.
+That night I laughed as it killed the thing in front of me.
