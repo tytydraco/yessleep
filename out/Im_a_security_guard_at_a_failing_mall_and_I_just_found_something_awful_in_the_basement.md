@@ -20,7 +20,7 @@ I groaned. “Whatever you say pal, just put it back in your pants, for the love
 
 I had had just about enough of this and walked up behind the man to detain him but he spun around with the quickness of a gazelle, startling me.
 
-“I THINK NOT!” He exclaimed, jumping away from me. “I am a warlock of the highest caliber! I have been protecting this realm since before you were but a twinkle in your fathers eye.”
+“I THINK NOT!” He exclaimed, jumping away from me. “I am a warlock of the highest caliber! I have been protecting this realm before you were a twinkle in your fathers eye.”
 
 “Look, this doesn’t have to be difficult, I just need you to go and we can put this all behind us.”
 
@@ -48,13 +48,13 @@ Me and Connor quickly ran in and noticed the air vent had been ripped off of the
 
 We made our way through the employees only doors and down a small hallway of offices until we reached a locked set of double doors. After trying almost half the keys on the cartoonishly large mall key ring, I heard a *click* and the knob turned. There was a rickety old set of wooden steps in front of us leading down to basement.
 
-I turned on the little flashlight I keep on my security belt next to my taser and proceeded down the steps. Every board creaked and groaned underneath me and middle of the steps bowed, threatening to break the deeper I descended.
+I turned on the little flashlight I keep on my security belt next to my taser and proceeded down the steps. Every board creaked and groaned underneath me and the middle of the steps bowed, threatening to break the deeper I descended.
 
 I made it to the bottom and began looking around for a light switch when I heard a scream followed by a crash behind me. I spun around to see Jeff had fallen through the stairs, taking most of them with him.
 
 "Jesus fuck! You ok down there?" I heard Connor yell from above us.
 
-"I'm fine, I slipped in something" Jeff said, brushing himself off. "But there's no chance we're getting back up that way. Go look for a ladder or something while we look for that little shit ball hiding here."
+"I'm fine, I slipped in something" Jeff said, brushing himself off. "But there's no chance we're getting back up that way. Go look for a ladder or something while we look for that little shit ball."
 
 I could see Connor nod and dart away from the door as me and Jeff explored the room. I found the small beaded chain from an overhead light hanging from the ceiling and pulled it, illuminating the room in a warm fluorescent glow. Unfortunately, I could now also see that the room we were in was covered with thick, wet looking black mold all over the walls and ceiling.
 
