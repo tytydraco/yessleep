@@ -425,14 +425,9 @@ The dance continued on after that.
 
 Sorry this update was a bit later than usual. As yinz can see… I've had my hands full. And unless the mechanic accepts my offer, it's probably not going to get easier any time soon. 
 
-At least now I know that he considers the Cookie Hag to be a genuine threat. I'll let yinz know if he makes a decision. And I think I have a girlfriend, now. So that’s something. 
+At least now I know that he considers the Cookie Hag to be a genuine threat. I'll let yinz know if he makes a decision. And I think I have a girlfriend, now. So that’s [something ](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Update: [the mechanic is still an evil bastard. And the Cookie Hag somehow manages to be worse.](https://www.reddit.com/r/nosleep/s/QRV2CGCSe2)
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
-
-
-
 
 
 
