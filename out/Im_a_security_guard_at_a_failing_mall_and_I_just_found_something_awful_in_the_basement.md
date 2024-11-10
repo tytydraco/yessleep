@@ -38,7 +38,7 @@ Conner sighed "ok guys, we gotta work together here, we go in single file and su
 
 We all agreed and Jeff (bald, buff and the most intimidating of us) went in first.
 
-"Heloooo? Mr wizard? Are you... oh god damn it!"
+"Helloooo? Mr wizard? Are you... oh god damn it!"
 
 Me and Connor quickly ran in and noticed the air vent had been ripped off of the wall.
 
@@ -56,9 +56,9 @@ I made it to the bottom and began looking around for a light switch when I heard
 
 "I'm fine, I slipped in something" Jeff said, brushing himself off. "But there's no chance we're getting back up that way. Go look for a ladder or something while we look for that little shit ball."
 
-I could see Connor nod and dart away from the door as me and Jeff explored the room. I found the small beaded chain from an overhead light hanging from the ceiling and pulled it, illuminating the room in a warm fluorescent glow. Unfortunately, I could now also see that the room we were in was covered with thick, wet looking black mold all over the walls and ceiling.
+I could see Connor nod and dart away from the door as me and Jeff explored the room. I found the small beaded chain from an overhead light hanging from the ceiling and pulled it, illuminating the room in a warm fluorescent glow. Unfortunately, I could now also see that the room we were in was covered with thick, wet looking black mold that consumed the walls and ceiling.
 
-"That's the shit I slipped in, it's sticking like glue." Connor said, scraping his boot across the concrete floor.
+"That's the shit I slipped in, it's sticking like glue." Jeff said, scraping his boot across the concrete floor.
 
 Behind me was the malls HVAC system for ventilation, unlabeled boxes of odds and ends, a few fake Christmas trees and... a trap door that led somewhere deeper then we already were.
 
@@ -68,13 +68,13 @@ Behind me was the malls HVAC system for ventilation, unlabeled boxes of odds and
 
 "Well he's certainly not in this room, but he came this way." Jeff gestured at a piece of ventilation that had been kicked open.
 
-Jeff opened the heavy looking door and I was starting to feel claustrophobic just watching him descend the ladder.
+Jeff wrenched the heavy looking door open and I was starting to feel claustrophobic just watching him descend the ladder.
 
 "I really don't know about this Jeff..." I started to say.
 
 "Oooooooh spooky hole in the ground, I'm shaking like Michael J Fox. C'mon pussy, get your ass down here!" Jeff snapped at me.
 
-I followed Jeff down the ladder into some cement tunnel that seemed to stretch endlessly. I cautiously walked behind Jeff being careful not to touch mold covered walls. Eventually the tunnel split into three different directions, then three more different directions.
+I followed Jeff down the ladder into some cement tunnel that seemed to stretch endlessly. I cautiously walked behind Jeff being careful not to touch the mold covered walls. Eventually the tunnel split into three different directions, then three more different directions.
 
 "What is this?" I asked.
 

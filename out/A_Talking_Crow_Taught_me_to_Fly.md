@@ -1,85 +1,35 @@
-I used to look out the rusted iron bars of my window and dream about being a bird.
+I used to stare out through the cracked, blackened bars of my window and dream about escaping into the shadows. The chain that bound me to my bed was just long enough to let me reach the window ledge, so every night, after my father would lock the door from the outside, I would lie in silence, watching the dark settle over the earth, waiting for the last whispers of the day to die away.
 
-The chain that shackled me to my bed was just long enough to reach the windowsill, and so every night after my father would visit my room I would lie awake and wait for the first rays of light to creep over the horizon, then walk over to my window to listen to the morning’s first few notes of birdsong.
+I’d listen to the low rustle of the trees and the faint scratchings from somewhere outside, where I imagined things that lived beyond the light, things that crept through the night unnoticed. I knew they saw me too, just beyond the window, held tight in their ghostly gaze.
 
-Their melodies were so beautiful, I knew that they must have been singing about places far away and wonderful, about sailing on the wind through endless blue skies, looking down at the treetops that dotted the land below.
+Then, one midnight as I lay awake, something impossible happened. I had drifted off into a restless sleep, only to be awakened by a quiet tapping on the glass. Rubbing my eyes, I looked up to see an owl perched just outside, its hollow eyes staring right into mine.
 
-Then, one morning as I lay in bed, something impossible happened. I had fallen asleep the night before, and would have missed my morning birdsong but for a tapping on my window. I rubbed the sleep out of my eyes and sat up to see a crow sitting outside on the sill, tapping my window with his beak.
+I crawled over to the window, feeling the cool metal of the bars, and whispered to the creature, “Hello, Mr. Owl.”
 
-I crept over to the window and smiled at the bird.
+“Hello, little one,” the owl replied, in a voice that sounded like distant thunder.
 
-“Hello, Mr. Crow,” I said.
+I froze, unsure if I was still dreaming, my pulse loud in my ears. Finally, I managed to speak.
 
-“Hello little girl,” said the crow.
+“Do you know how to talk?” I asked.
 
-I stood there dumbfounded for a moment, not knowing what to say. Finally, after what seemed like an eternity, I forced myself to speak.
+“All creatures do,” he replied softly. “But not all listen closely enough to hear.”
 
-“You know how to talk?” I said.
+The owl blinked, its large, unblinking eyes reflecting shadows that seemed to twist and writhe. He cocked his head and said, “Why do they keep you in a cage?”
 
-“All birds know how to talk,” he replied. “It’s just that not all humans know how to listen.”
+I looked down at my bound feet and muttered, “I think it’s my fate.”
 
-I pushed my window open a crack until it hit against the bars. The bird cocked its head in curiosity.
+He only nodded, watching me as if he knew all my secrets.
 
-“Why are you in a cage?” it asked.
+He flew off silently into the night, leaving me to drift into a sleep filled with shadowed wings and low voices. And each night, he would return, with secrets of the dark to share, tales of things that slithered beneath the ground and spirits who whispered in forgotten tongues.
 
-“I think it’s my destiny,” I said. “It’s always been this way.”
+As winter crept in, our conversations grew longer, filled with warnings about the cold and what it brought with it. “The frost isn’t the only thing that stirs in the dark,” he said one night. I didn’t understand what he meant, but I felt a chill even in my sleep.
 
-“You look rather thin,” replied the crow. “Would you like something to eat?”
+Finally, the first night of snowfall came, blanketing everything in eerie silence. I lay awake, waiting for the owl’s familiar tap, but he didn’t come. Instead, a strange darkness gathered outside, blotting out even the dim moonlight. Then, without warning, I heard scratching, louder than before, like a hundred claws against the walls.
 
-My stomach gave a weak growl.
+Suddenly, there was a loud crash, and the window shattered, the glass exploding inward. Something pale slipped through the bars, long and twisting, filling the room with an unnatural chill. It whispered to me in a voice colder than ice, calling my name, echoing the words I had shared with the owl night after night.
 
-“Yes,” I said. “That would be wonderful.”
+As I felt its touch, cold and consuming, a shiver ran through me—a silent scream caught in my throat. The room was dark, filled with shadows that moved and pulsed like a living thing.
 
-Without another word the crow took flight. A few minutes later he returned with a small branch of figs. The crow watched me as I greedily devoured the fruit. After I had finished he stared at me for a moment before speaking again.
+The next morning, when the first light crept over the horizon, there was nothing left but a single feather on the floor and the distant cry of an owl that sounded almost like laughter.
 
-“I didn’t know they put people in cages,” he said. “Do you think they mistook you for a bird?”
-
-“I don’t think so Mr. Crow,” I said.
-
-We whiled away the rest of that day talking. The crow told me all about what it was like to fly, how there was no better feeling in the world. He told me about the far away lands he had visited when he was a young bird and could still make the journey north with the changing of the seasons. Finally, evening came and the crow said that he had to go. The next morning he was back, however, with two more branches of figs.
-
-I thanked him for his generosity, and we talked another day away. That day he even sang me a song. He didn’t have a voice for singing, but I thought his song was beautiful anyway.
-
-We passed the entire fall that way, and the bird’s visits became the only bright spot in my life. He brought me not only figs, but cherries and walnuts too\-\-anything small enough for him to carry.
-
-Soon, however, winter came, and with it the frosts that destroyed the figs and cherries that the crow had used to bring me. His gifts became fewer and fewer, and I could tell from his tired voice that he was flying farther and farther away to get them.
-
-One morning, when the first snows of winter had fallen, the crow asked me a question.
-
-“What would you do to leave this place?” he asked, cocking his head to the side.
-
-I thought for a moment, but I wasn’t sure how to answer. Finally, I told the truth.
-
-“I would do anything to leave this place,” I said. “Anything at all.”
-
-The crow solemnly nodded and said, “The frost isn’t the only thing that winter brings.”
-
-He flapped his wings once and jumped from the windowsill, and I didn’t see him for three days. I began to fall into a deep depression. Every morning I would still listen to the birdsong, but it sounded forlorn and empty without my friend there to listen with me.
-
-The morning after the third day my crow friend returned. It was so beautiful that day; the sun had come out from behind the clouds to melt the snow\-\-one of the last green days before winter came in earnest. As the shadow passed over the valley in which we lived, I first mistook it for a storm cloud, but then I heard the sound. It was loud enough to crack the sky, but it wasn’t thunder\-\-it was birds.
-
-Thousands upon thousands of them descended on our house. A whirling storm of beating wings and shrieking caws, they crashed into the walls and windows, pecking at them with wild ferocity. The house shook under their assault, and their calls were so loud that I didn’t even hear the windows breaking.
-
-They were not so loud, however, that I could not hear my father scream. It was over in a matter of minutes, and the key to my shackles slipped under the door. I rushed over and picked it up with trembling hands, sliding it into the metal cuff around my ankle and turning it.
-
-The cuff came loose with a heavy click, and for the first time I was free.
-
-The key to the door slipped under the jamb as well, and I opened the door to the rest of the house. The place had been all but destroyed. There was splintered wood and broken glass everywhere, and in the center of the living room was what remained of my father\-\-a pile of bloodstained feathers.
-
-The birds had all flown off, but Mr. Crow sat on top of the living room fireplace, regarding me with a curious look.
-
-“Now you can fly free, little girl,” he said. “No more cages for you.”
-
-“Thank you, Mr. Crow,” I said. “Will you come with me?”
-
-Mr. Crow shook his head.
-
-“I am an old bird,” he said. “And my journey is coming to a close. But yours is just beginning.”
-
-Mr. Crow flapped his wings and took flight, and I never saw him again. As I stepped out of the front door my bare feet touched the grass for the very first time, and I could smell the flowers on the breeze as it drifted over me.
-
-At that moment, though my feet were firmly on the ground, my heart was soaring through endless blue sky, far above the world that I had left behind.
-
-I still wake up every morning to hear the birds sing, and when the first few notes break the silence of the early dawn, I think of Mr. Crow and smile.
-
-[x](http://facebook.com/lifeisstrangemetoo)
+And now, every night, I hear that familiar tap, but when I look, there is nothing there. Only darkness and the faint memory of a promise I made, echoing back to me, calling my name, again and again.
