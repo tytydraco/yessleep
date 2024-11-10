@@ -1,30 +1,14 @@
 **1989**
 
-
-
 I was 12 at the time. I was excited because my grandpa was finally going to be taking me raccoon hunting i had went hunting for other things such as squirrel and deer but there was something that made me like raccoon hunting it could've been just being out late when you should be in bed or the excitement of the dogs running around looking for a sign of one then barking till you take the shot. 
-
-	
 
 It was 11:36 the wind was almost savage it pierced right through my hand me down camo pants that where for someone twice my size but i didn't care i felt unstoppable walking through the woods with my grandpa flashlight in hand shining the trees looking for eyes my grandpa doing the same we decided that we would let the dogs run down the mountain side while we stayed on the top waiting for them to bark.  
 
-
-
 We waited for what seemed hours even though it was probably only 10 minutes. We heard barking about 100 yards down the mountain so my grandpa picked up the Ruger 10/22 that he had leaned up against a freshly fallen tree and we started walking. i started complaining as soon as i made it just out of sight of the clearing now everywhere we looked it was just trees. I couldn't help but let my young imaginary mind run wild i thought about what i would do if i got lost the cabin we were staying in was only 200 yards down a path from the clearing we where just at but just as i thought i was going to get scared i looked at my grandpa and that was enough to know i was going to be alright. 
-
-
 
 After walking for about 10 minutes we found the dogs so we shine our lights in the tree and we found the sets of eyes in the tree so my grandpa told me he was going to take the first one for whatever reason then said i could have the next one but after i shot it stuff got a weird we had just let the dogs go look for another raccoon while me and my grandpa where looking at the two that we had just shot when out of the corner of my eye i saw something walk past. I would've just chalked it up to a light or something if it wasnt for the human… demon sounding footsteps behind us. But i finally snapped out of thinking about that when we heard the sound that i'm only able describe of a dog getting killed and then it went silent for about a minute then it happened again i didn't know what was out there but all i did know whatever it was got both our dogs my grandpa handed me his watch with a compass and his .45 he always carried on his hip and said “walk northwest till you get to the clearing then run to the cabin and tell your grandma what happened but dont come looking for me no matter what if i'm not back by 8am drive to the police station and tell them” 
 
-  
-  
-
-
 So I turned around and started walking. Then that walking turned to jogging then jogging to running. I didn't turn around once until I saw the moon light pouring through the clearing and I had to stop running. I was completely out of breath and I had started to almost calm down when I heard it. A scream so loud and horrifying the devil would be disturbed. I ran into the clearing and down the path not stopping until i got to the cabin steps i flung open the door and ran into the room my grandma was in and broke down crying and told her everything that happened except for something the scream when i was walking into the clearing i knew my grandpa isn't making it home by 8am. 
-
-  
-
 
 My grandpa didn't make it home so me and my grandma decided to drive down the mountain and inform the police so they could search for him and they did them as well as hundreds of locals helped search for my grandpa but a month with no signs of us even being there that night they called off the search. And since then everything that happened that night seems to be gone in history with only my memories and what little i remember of it. That mountain is still in my family so who knows someday i might work up the courage to go back out there.        
 
-(first short horror story i've written hope you enjoyed)
