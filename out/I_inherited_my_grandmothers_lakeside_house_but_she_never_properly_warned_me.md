@@ -2,7 +2,7 @@ My grandmother, when she was alive, lived on an old farm on the side of a hill i
 
 Of course, time passes, and last year so did my grandmother. My grandfather died when I was very young, so my grandmothers passing left the house empty, and neither my mother nor any of her siblings were interested in moving out to the middle of nowhere. I, on the other hand, work remotely most of the time, and even though I don't really expect to work the land, the solitude sounded quite appealing. Along with the house itself, I inherited furniture, a tractor, some old farming equipment, and, of course, the small wooden rowing boat we would use whenever we were visiting.
 
-I had a single neighbour, a strange old man named Lennart, who lived in a small cottage further up the hill across the road from me. He mostly liked to keep to himself, but I had offered to let him use the boat if he wanted to do some fishing, and to help out with clearing snow during the winter.
+I have a single neighbour, a strange old man named Lennart, who lives in a small cottage further up the hill across the road from me. He mostly likes to keep to himself, but I have offered to let him use the boat if he wants to do some fishing, and to help out with clearing snow during the winter.
 
 One night after I had finally settled in, and was mostly unpacked, I stood by the window in my bedroom looking out over the lake. The moon was peaking out over the mountain opposite, and cast a beautiful glow on the still water. Suddenly, I was reminded of my grandmothers warnings not to go out on the lake during the night. Curiosity got the better of me, and I made my way down to the boat house.
 
