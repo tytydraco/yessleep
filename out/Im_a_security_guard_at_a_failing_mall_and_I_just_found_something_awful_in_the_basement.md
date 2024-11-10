@@ -4,7 +4,7 @@ I groaned, then picked my radio up to answer.
 
 "Alright Connor, but did the mad shitter try to kiss you again this time?" I said, grinning into my radio like he could see me.
 
-"Fuck you, she had a handful of shit ready to go. I really don't know why she hates the *GAP* store so much. We seriously need guys posted at the front doors of this place at all times."
+"Fuck you, she had a handful of shit ready to go. I really don't know why she hates the *GAP* so much. We seriously need guys posted at the front doors of this place at all times."
 
 "Alright buddy, I'm almost at the bathroom, I'll get back to you."
 
