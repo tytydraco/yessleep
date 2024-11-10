@@ -1,0 +1,15 @@
+to everyone reading this, i am completely serious when i say this is completely real, and a cry for help. for some backstory, i (17f) have lots of problems, i suffer from chronic nightmares, insomnia, i see things that arent there, i constantly am paranoid, and the worst one, every time i go to sleep i go into some type of paradox where i wake up repeatedly (around 10+ times) but they are all dreams. lets start with my childhood. 
+
+i had a horrible childhood, starting with my abusive mom and nonchalant dad, my mother was extremely abusive to my siblings and me, me being the youngest i was always the golden child, i couldnt be seen with bruises, so instead of hitting me she would keep me awake or do things to give me nightmares like lock me in a closet for hours on end (i no longer live with her due to seperate reasons) well, as i have grown up, my mind gives me chronic nightmares, along with insomnia due to the fear of going to sleep. 
+
+the dreams all started around 2-3 years ago. i would wake up, about to go to school and as soon as i leave the door i would wake up again. it gradually got worse, from me actually having the memories of the dream as if they were real, and now its to the point of me questioning reality, as if i could do drastic things to get myself out of the “dream” state. 
+
+i have gone to burning myself to “wake up” when in reality i was already awake. last night, i had one of those dreams, or i think it was a dream, i still dont know if i am real right now or not? anyway i was in bed, woke up, made me some coffee, ate breakfast, then decided to go to the bathroom. 
+
+i went to the bathroom, took a shower, just the general getting ready stuff, but as soon as i saw the mirror i knew something was wrong, i had never seen my reflection in a dream, and i guess my brain couldnt register it because the mirror was just black, pitch black, as if there was some kind of dark void behind it. 
+
+then, i woke up, confused i just figured it was a bad dream, that was until i went into my kitchen to see the windows now black, like my house was floating in some void, i got scared obviously and went into the bathroom, as soon as i say the mirror again (still black) i woke up. at this point i am horrified, i dont know whats happening so i just immediately look out my window next to my bed, black again. 
+
+i wake up. i am now crying, i run to the bathroom to see the mirror now normal. you think i would be happy, right? i had no reflection. i looked out the window to see mirrors everywhere, i woke up. but instead of waking up in bed, i am now in my bathroom, looking down as i sit on the ground. i look up at the mirror and i see my mother, but its me?
+
+i wake up. and now here comes the present. i am currently sitting on the ground in my bathroom, scared out of my mind to look out the window or at the mirror. i dont know if i am real and im too scared to find out. somebody, please help me.

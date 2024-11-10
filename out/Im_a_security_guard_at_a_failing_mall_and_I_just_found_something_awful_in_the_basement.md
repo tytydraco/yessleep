@@ -1,4 +1,4 @@
-"Hey, I just got a complaint that some guy is washing his dick in the men’s room sink, can one of you guys go deal with this? I had to kick the mad shitter out of the mall this morning, again.”
+"Hey, I just got a complaint that some guy is washing his dick in the men’s room sink, can one of you guys go deal with this? I had to kick the mad shitter out this morning, again.”
 
 I groaned, then picked my radio up to answer.
 
