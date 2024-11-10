@@ -50,11 +50,11 @@ My eyes wandered towards the trash bins outside the entrance. The mound of bulgi
 
 
 
-“I’m sure it’ll be fine,” I told her, “you haven’t told me much about him, just that he gets really into character. Some people might be interested to see that even… don’t you think?”
+“I’m sure it’ll be fine,” I told her, “you haven’t told me much about him, just that he gets really into character. Some people might even be interested to see that… don’t you think?”
 
 
 
-“I guess we’ll see.” Jessica pushed open her door and headed up towards the studio. I followed, giving her what I hoped to be a comforting smile as she pulled the door open. 
+“I guess we’ll see.” Jessica pushed open her car door and headed up towards the studio. I followed, giving her what I hoped to be a comforting smile as she pulled the doors open. 
 
 
 
@@ -82,7 +82,7 @@ I nodded, turning my focus to the sound of polished shoes approaching from the h
 
 
 
-I will say the interior of the studio was very well kept compared to the exterior. As Youry led us down the hallway the tiled floor was extremely smooth. Portions marked with wet floor signs were even noticeably fresh with cleaning solutions. *Like they prepared it just for our visit.* 
+I will say the interior of the studio was well kept compared to the exterior. As Youry led us down the hallway the tiled floor was extremely smooth. Portions marked with wet floor signs were even noticeably fresh with cleaning solutions. *Like they prepared it just for our visit.* 
 
 
 
@@ -94,7 +94,7 @@ My eyes roamed the space as Youry talked on. The loose stone shifted beneath my 
 
 
 
-“I’ve found it,” the voice ranted with glee, “the voice, the movement. Thank you, Thank you for showing me. At last, It's all coming together.” I now stood right above the trapdoor. There was a big gold star hastily nailed into the wood. 
+“I’ve found it,” theyranted with glee, “the voice, the movement. Thank you, Thank you for showing me. At last, It's all coming together.” I was now standing right above the trapdoor. There was a big gold star hastily nailed into the wood. 
 
 
 
@@ -146,7 +146,7 @@ I flinched as Andy’s eyes flashed towards me. “Isn’t that why you brought 
 
 
 
-“Fine then… fade to black,” Andy snarled, clenching his jaw. He then darted away on all fours. Like an animal he reached the side of the clocktower. We could still see his eyes as he crouched among the rubble. The sound of chewing followed.
+“Fine then…”  Andy snarled, clenching his jaw. “Fade to black.” He then darted away on all fours. Like an animal he reached the side of the clocktower. We could still see his eyes as he crouched among the rubble. The sound of chewing followed.
 
 
 
@@ -154,7 +154,7 @@ I flinched as Andy’s eyes flashed towards me. “Isn’t that why you brought 
 
 
 
-“You alright?” I asked. She held onto my arm tightly as we followed Youry to the next set of double doors. She looked back towards the clocktower, making sure he was out of earshot before pulling me closer. In a hushed voice she told me Andy Baker wasn’t actually his name. It was his character’s name. The cannibal. 
+“You alright?” I asked. She held my arm tightly as we followed Youry to the next set of double doors. She looked back towards the clocktower, making sure he was out of earshot before pulling me closer. In a hushed voice she told me Andy Baker wasn’t actually his name. It was his character’s name. The cannibal. 
 
 
 
@@ -190,7 +190,7 @@ Jessica looked towards me. “Are you sure about picking me up after?” she ask
 
 
 
-“Alright, drive safe then,” Jessica gave my hand a squeeze, “I’ll give you a call when things finish up here.” She then hurried off with the other actors, giving me a final wave before disappearing down the hall. 
+“Alright, drive safe then,” Jessica gave my hand a squeeze, “I’ll give you a call when things finish up here.” She hurried off with the other actors, giving me a final wave before disappearing down the hall. 
 
 
 
@@ -198,7 +198,7 @@ Jessica looked towards me. “Are you sure about picking me up after?” she ask
 
 
 
-I found my car and climbed into the driver’s seat. The others began to leave, one by one, until it was just me alone in the parking lot. As I started the ignition I glanced over at the driver’s seat. There was Jessica’s phone. *How am I supposed to know when to come back if she doesn’t have it?* I wondered. *She must have forgotten it.*
+I found my car and climbed into the driver’s seat. I watched the other guests begin to leave, one by one, until it was just me alone in the parking lot. As I started the ignition I glanced over at the driver’s seat. There was Jessica’s phone. *How am I supposed to know when to come back if she doesn’t have it?* I wondered. *She must have forgotten it.*
 
 
 
@@ -206,11 +206,11 @@ Stepping out of the car I returned to the studio. There was a man dressed in bla
 
 
 
-Marching up to the front door, I nodded to the smoker. “Thanks man,” I said, heading through the open door. *Probably not supposed to be here,* I thought, *there should be someone who can give this to her though.*
+Marching up to the front door, I nodded to the smoker. “Thanks man,” I said, heading through the open door. *Probably not supposed to be here,* I thought, *there should be someone who can give this to her though.* 
 
 
 
-A few paces down the hall I paused. Looking back at the doorway, the smoker at the door was nowhere to be seen. I wasn’t far from the main stage now, but I couldn’t hear any voices within. The studio itself was eerily quiet. I was very aware of my footsteps after that. The unavoidable wet squeaking followed as I walked over the wet floor.
+A few paces down the hall I paused. Looking back at the doorway, the smoker was nowhere to be seen. I wasn’t far from the main stage now, but I couldn’t hear any voices within. The studio itself was eerily quiet. I was very aware of my footsteps after that. The unavoidable wet squeaking followed as I walked over the wet floor.
 
 
 
@@ -286,7 +286,7 @@ Andy turned his head to stare directly toward me. “The brotherhood warned me o
 
 
 
-His attack was a blur of teeth and nails. I yelled as pain erupted in my neck and shoulder. My arm instinctively landed against his upper chest, pushing off his bloody teeth. I threw him off of me and backed away. He charged once more, diving into me. The air wheezed from my lungs as my back struck the hard floor. My vision blurred. The world was broken into raw shapes as I struggled to regain control. His body was a grey smudge. A white face that gleamed in the eclectic light above. 
+His attack was a blur of teeth and nails. I yelled as pain erupted in my neck and shoulder. My arm instinctively landed against his upper chest, pushing away his bloody teeth. I threw him off of me and backed away. He charged once more, diving into me. The air wheezed from my lungs as my back struck the hard floor. My vision blurred. The world was broken into raw shapes as I struggled to regain control. His body was a grey smudge. A white face that gleamed in the eclectic light above. 
 
 
 
@@ -362,5 +362,5 @@ I don’t think that’s true—that it’s all in her head. At one point last n
 
 
 
-“This voice, it’s so faint,” she whispered as she stared at me. Once more, I peered deep into her eyes, searching. They had an unfamiliar dullness to them. Grey streaks around the edges. “I can’t make out the words yet,” she told me, “but I can’t help but listen.” 
+“This voice, it’s so faint,” she whispered as she stared at me. Once more, I peered deep into her eyes, searching. They had an unfamiliar dullness to them. Grey streaks around the edges. “I can’t make out the words yet,” she told me, “but I can’t help but listen.” 
 
