@@ -1,4 +1,4 @@
- It was the summer of 2022. I just finished my freshman year at college. I wanted to get a job over the summer. Especially since my college tuition was so high. My roommate, Troy, suggested working at his father’s restaurant. I considered taking him up on this offer but then I saw a headline on craigslist.
+ It was the summer of 2022. I just finished my freshman year at college. I wanted to get a job over the summer. Especially since my college tuition was so high. My roommate, Troy, suggested working at his father’s restaurant. I considered taking him up on this offer but then I saw a job on craigslist.
 
  “No experience necessary. Work is for one month. 24/7 on the clock work. Location: Oregon Pay: $100,000”. The job posting was only up for a few minutes. I immediately rushed and applied. Thinking back on it now, I was a dumbass for not questioning the job posting at all. It had no details. Location was in Oregon, which would mean I had to travel across the country (I lived in Massachusetts). But I didn’t question it. A few minutes later I got a text. It said my application was accepted and gave me an address, date and time to meet.
 
@@ -88,9 +88,9 @@ I woke up on the 8^(th) night to screaming and banging on my door. They were try
 
 “Then you’re fine”, he said and immediately hung up the phone.
 
- The nights continued like this. Constant screaming and banging on the door. The stress started to get to me and I couldn't sleep. I started sleeping during the day and stayed up during the night. I would put on airpods and listen to music or watch a movie to drown out the noise.  Eventually I started getting used to this.
+ The nights continued like this. Constant screaming and banging on the door. The stress started to get to me and I couldn't sleep. I started sleeping during the day and stayed up during the night. I would put on airpods and listen to music to drown out the noise.  Eventually I started getting used to this.
 
- But then things got even worse during the third week. I was catching up on sleep during the day when I woke up to a moaning sound. “That must be my imagination”, I thought. I’m in the bedroom. I only hear the moaning or screaming sounds during the daytime if I’m near the basement.  But then I heard even more moaning and screaming sounds. It wasn’t my imagination. In fact throughout the whole mansion I could hear it. I soon figure out the sounds were still coming from the basement. It just that they were now being much louder that it was echoing throughout the hall mansion. I decided to call Mr. Butler again.
+ But then things got even worse during the third week. I was catching up on sleep during the day when I woke up to a moaning sound. “That must be my imagination”, I thought. I’m in the bedroom. I only hear the moaning or screaming sounds during the daytime if I’m near the basement.  But then I heard even more moaning and screaming sounds. It wasn’t my imagination. In fact throughout the whole mansion I could hear it. I soon figure out the sounds were still coming from the basement. It just that the residence from hell were now being much louder and it was echoing throughout the hall mansion. I decided to call Mr. Butler again.
 
 “No worries”, he said.
 
@@ -126,6 +126,6 @@ I asked Mr. Butler, “Who are you? Your job isn’t really to watch the gateway
 
 He smiled, “You’re right, I lied. I don’t watch over hell.. Why did I hire you to do this? That's not your concern”.
 
-And so that was my final night at the mansion. I was more than happy to leave i5 behind me for good. And I got my $100000. I was happy not to see that Mr. Butler ever again too.
+And so that was my final night at the mansion. I was more than happy to leave it behind me for good. And I got my $100000. I was happy not to see that Mr. Butler ever again too.
 
-It’s been two years since that day. I’m now in my senior year of college. Everything was fine up to this point. However, tonight I just got a text from Mr. Butler. He wants me to do another job. I ignored the text at first. But he sent me another saying it’s for $1 million and that there’s nothing supernatural about this job. Do you think I should take it?
+It’s been two years since that day. I’m now in my senior year of college. Everything was fine up to this point. However, tonight I just got a text from Mr. Butler. He wants me to do another job. I ignored the text at first. But he sent me another saying it’s for $1 million and that there’s nothing supernatural about this new job. Do you think I should take it?
