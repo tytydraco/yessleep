@@ -208,3 +208,5 @@ The tension snapped. Joshua lunged at me, fists flying. I barely dodged, stumbli
 
 But it was too late. The forest was never going to let us leave. *It was only the beginning….*
 
+  
+[Part 2](https://www.reddit.com/user/philosophysubboy/comments/1gp51h7/the_four_of_us_went_camping_in_the_woods_only_one/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
