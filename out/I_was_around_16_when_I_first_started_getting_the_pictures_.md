@@ -1,6 +1,8 @@
 this is part 4 of the series
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) | [Part 5 ](https://www.reddit.com/r/nosleep/comments/1gjiwwn/the_thing_that_was_watching_me_had_gotten_so_much/) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/) |[ Part 2](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) |[ Part 3](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/) | [ ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/)[Part 5 ](https://www.reddit.com/r/nosleep/comments/1gjiwwn/the_thing_that_was_watching_me_had_gotten_so_much/) | [Part 6](https://www.reddit.com/r/nosleep/comments/1gouk5m/it_wasnt_human_it_couldnt_have_been/)
+
+
 
 I was 16 when I started getting the photos. It seemed to come out of the blue, but I assume it was because whatever was taking them saw I was now grabbing the mail for my mom since I started getting mail from colleges and work. It was normal for a while until one day, when I tossed them onto the table I saw there was a small pink envelope in the mix. I looked for any signs as to whom it was from, but I couldn’t find anything on it, it was completely blank.
 

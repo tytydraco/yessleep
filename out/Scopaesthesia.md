@@ -162,5 +162,4 @@ They sold Cooper the next day.
 
 I was devastated for months.
 
-**EDIT: Parts 2-4 are up now.** [ **Part 2**](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) **|**[ **Part 3**](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) **|** [**Part 4** ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/)**|** [**Part 5** ](https://www.reddit.com/r/nosleep/comments/1gjiwwn/the_thing_that_was_watching_me_had_gotten_so_much/) 
-
+**Other parts -** [**Part 1**](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/) **|**[ **Part 2**](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) **|**[ **Part 3**](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) **|** [**Part 4**](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/) **|** [ ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/)[**Part 5** ](https://www.reddit.com/r/nosleep/comments/1gjiwwn/the_thing_that_was_watching_me_had_gotten_so_much/) **|** [**Part 6**](https://www.reddit.com/r/nosleep/comments/1gouk5m/it_wasnt_human_it_couldnt_have_been/)
