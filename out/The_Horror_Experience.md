@@ -1,6 +1,6 @@
 This will be the first time I have ever told anyone this. Even now, speaking about it, it was one of the most terrifying situations I have ever been in. To this day, I tend not to look out my window in the dark. It was October time last year and I needed to catch a break, so I did what any normal person would do and looked up social media for a getaway break. I've been single for 2 years now, and I usually do these things by myself. I find it a good way to get away from everything.
 
-I came across a wilderness experience. You would stay in a cabin out in the woods with one gigantic window that looks out at the wilderness. The cabin isn't much of a cabin at all. It is quite small, basically just one room, one gigantic window, a bed facing the window, and a small bathroom. So, I booked it that very weekend. The drive was uneventful; it took 2 hours to get there. When I was booking, I was told I was going to meet a man named Tom. Tom owned the cabin and, I presume, the land that it was on. I drove into a laneway. The lane went on for about 5 minutes of windy roads, gritted gravel, and shrubs on each side. The further I went in, the denser the shrubbery and trees became.
+I came across a blog about a ''wilderness experience''. You would stay in a cabin out in the woods with one gigantic window that looks out at the wilderness. The cabin isn't much of a cabin at all. It is quite small, basically just one room, one gigantic window, a bed facing the window, and a small bathroom. So, I booked it that very weekend. The drive was uneventful; it took 2 hours to get there. When I was booking, I was told I was going to meet a man named Tom. Tom owned the cabin and, I presume, the land that it was on. I drove into a laneway. The lane went on for about 5 minutes of windy roads, gritted gravel, and shrubs on each side. The further I went in, the denser the shrubbery and trees became.
 
 I pulled up in front of a big, square, white house. As I got out of the car, the gravel underneath sank me just a little bit by my own weight. I walked up to the door and rang the doorbell, then took two steps back. The door opened immediately. An old man greeted me at the door. He was around 5'6", bald, in his 60s or 70s, wearing blue jeans.
 
@@ -10,11 +10,11 @@ I walked up the two steps and into the house. The house was pretty regular, exce
 
 "Okay, so what time would you like breakfast at?" said Tom
 
-"Um, anytime really. I'm not in any rush." 
+"Um, anytime really. I'm not in any rush."
 
 "Okay, we'll say 9:30."
 
-"Yeah, that's great." 
+"Yeah, that's great."
 
 "And what experience are you looking for?" asked Tom.
 
@@ -24,7 +24,7 @@ I walked up the two steps and into the house. The house was pretty regular, exce
 
 The list was an A4 sheet of paper. It had an option for four items: number one, Christmas, and then just beside it, in brackets, it said Santa Claus; number two was horror, and beside it, in brackets, it said Halloween; number three was New Year's; number four was Thanksgiving.
 
-"Um, which one is the best?" I asked the man, still confused by the offer. 
+"Um, which one is the best?" I asked the man, still confused by the offer.
 
 "Well, while you're here, you will still get the whole experience of the wilderness, but what happens tonight will be completely up to you. Personally, I do think you should avoid the Christmas one, as we are still in October. But, are you brave enough to pick horror?"
 
@@ -56,6 +56,30 @@ I kept my eyes on the figure as Tom wasn't answering his phone. The figure's hea
 
 The loud scream came back again. I pressed my hands against my ears yet again, keeping an eye on the window. The deer vanished as if thrown away from the glass. The screaming slowly deteriorated into silence. All there was, was silence: me and my reflection. I hesitantly went to go and turn off the light switch. I took a deep breath, closed my eyes, and flicked the switch. Slowly opening them, I noticed nothing. There was nothing there, only the vast field and the tree line. I didn't get a wink of sleep that night.
 
-The next morning, I went back to Tom's house to check out. I rang the doorbell to be greeted by Tom. "Why, hello. Welcome." "Um, I was just about to come down with your breakfast." "Yeah, that's quite all right. I honestly didn't get a wink of sleep last night, and I need to go home. But thank you so much. I'm going to hit the road as soon as I can." "That's no problem at all. Come on in and I'll check you out."
+The next morning, I went back to Tom's house to check out. I rang the doorbell to be greeted by Tom.
 
-I stepped back into the high-ceilinged hallway. I handed over the keys to Tom as he took out the card machine for me to pay. "So you must have had a hell of an experience last night, then?" "Yeah, you weren't kidding with the horror experience anyway." "Oh, it's just a little bit of fun. It wasn't supposed to scare you that hard." "Well, I just couldn't sleep, knowing there could be someone just standing outside my cabin the whole night." Then Tom said it. "Oh, I don't be standing out in the middle of the field all night. I just do a simple knock and run by, that's all." "Yeah, and the tall, skinny man who was off in the tree line?" "Excuse me? What tall, skinny man? We only have one experience here for horror, and that's me knocking on the door and running by. What man in a field are you talking about?" Then it hit me. If it wasn't him that was out in that field staring at me, then what was it?
+"Why, hello. Welcome." Tom said in suprise. "Um, I was just about to come down with your breakfast."
+
+"Yeah, that's quite all right. I honestly didn't get a wink of sleep last night, and I need to go home. But thank you so much. I'm going to hit the road as soon as I can."
+
+"That's no problem at all. Come on in and I'll check you out." Tom said in a welcoming manner
+
+I stepped back into the high-ceilinged hallway. I handed over the keys to Tom as he took out the card machine for me to pay.
+
+"So you must have had a hell of an experience last night, then?" Tom smiled gleefully
+
+"Yeah, you weren't kidding with the horror experience anyway." I replied in a friendly laugh
+
+"Oh, it's just a little bit of fun. It wasn't supposed to scare you that hard." Tom said proudly
+
+"Well, I just couldn't sleep, knowing there could be someone just standing outside my cabin the whole night." I laughed back
+
+Then Tom said it.
+
+"Oh, I don't be standing out in the middle of the field all night. I just do a simple knock and run by, that's all." Tom said non chnonchalantly
+
+"Yeah, and the tall, skinny man who was off in the tree line?" I said raising my brow still putting on a grin
+
+"Excuse me? What tall, skinny man? We only have one experience here for horror, and that's me knocking on the door and running by. What man in a field are you talking about?" Tom finished speaking lower with each word he said staring at me....worried.
+
+Then it hit me. If it wasn't him that was out in that field staring at me, then what was it?
