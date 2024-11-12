@@ -1,3 +1,5 @@
+[Next](https://www.reddit.com/r/nosleep/s/z1TgwFXmWd)
+
 Well, Halloween *sucked.* So much so, that it’s taken me a couple days to physically recover, but more on that later.
 
 If you're confused, you can read my first case [here.](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/)

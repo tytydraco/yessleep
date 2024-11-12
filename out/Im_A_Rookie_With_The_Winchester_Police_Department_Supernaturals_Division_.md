@@ -1,3 +1,5 @@
+[Next](https://www.reddit.com/r/nosleep/s/NgekZTmrrI)
+
 Funnily enough, I never believed in the supernatural up until a couple months ago. Hell, part of me *still* doesn’t believe in it, even with the things I’ve seen. 
 
 For example: just this past week the division detained its first mermaid. Correction, sorry, *siren*. The two entities absolutely loathe being mistaken for the other. 
