@@ -80,6 +80,6 @@ Then Tom said it.
 
 "Yeah, and the tall, skinny man who was off in the tree line?" I said raising my brow still putting on a grin
 
-"Excuse me? What tall, skinny man? We only have one experience here for horror, and that's me knocking on the door and running by. What man in a field are you talking about?" Tom finished speaking lower with each word he said staring at me....worried.
+"Excuse me? What tall, skinny man? We only have one experience here for horror, and that's me knocking on the door and running by. What man in a field are you talking about?" Tom finished speaking, lower his voice with each word he said, staring at me....worried.
 
 Then it hit me. If it wasn't him that was out in that field staring at me, then what was it?
