@@ -1,4 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/1gn4tkf/i_went_searching_for_my_missing_sister_but/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \- \[2\]
+[\[1\]](https://www.reddit.com/r/nosleep/comments/1gn4tkf/i_went_searching_for_my_missing_sister_but/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \- \[2\] - [\[3\]](https://www.reddit.com/r/nosleep/comments/1gpd8il/i_went_searching_for_my_missing_sister_but/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 After my visit to Mirror Pool, sleep is no longer the escape it once was. Nights are fractured into a string of feverish dreams, each one pulling me back to that lake. I wake up in the dark, feeling like something cold and wet is clutching my wrist. I tell myself it’s just leftover adrenaline, but I can’t shake the feeling that my reflection—or whatever I saw in the water—followed me home.
 
