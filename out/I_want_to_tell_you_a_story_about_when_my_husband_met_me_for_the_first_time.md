@@ -54,7 +54,7 @@ Before I could pull my leg away, he clasped the second cuff around my other ankl
 
 I thrashed, kicking out as he fumbled with the chains. My heel caught him in the face, and blood streamed from his nose. With a snarl, he slapped me hard, and the world went dark.
 
-When I came to, I was sitting on a wooden chair with my wrists bound to its arms. Eric sat across from me, wiping the blood from his face. His expression was calm, almost serene, with a strange gleam in his eyes.
+When I came to, I was sitting on a wooden chair with my wrists bound to its arms. Philip sat across from me, wiping the blood from his face. His expression was calm, almost serene, with a strange gleam in his eyes.
 
 “What are you doing?” I gasped.
 
