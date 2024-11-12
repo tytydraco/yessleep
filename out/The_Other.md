@@ -1,104 +1,191 @@
- 
+My name is Claire, this happened to me just over ten years ago now. If I’m going to tell this story, then I’m going to tell it right.
 
-The first Monday in October was a shitter of a day. Up there with the worst I have had.
+When I was in my early thirties, my husband passed away. He was driving home one night from a long day of work when a drunk driver hit his car. From what the coroner told me, he died on impact. And the state of his car was in shambles, the driver’s side was completely crumpled in. I was distraught with grief, and my then-six-year-old son, Tommy “Tom” didn’t understand what was happening. He kept asking where his daddy was and I had to tell him that daddy wasn’t coming back home. 
 
-It had started off reasonably normally albeit I was woken up with the drilling noise of my wife’s alarm. Let me tell you that woman sets an alarm every five bloody minutes- she really does hate mornings. When I turned over to admonish her for the shitty way to start my day, I realised that she had already arisen. Finding her phone underneath her pillow I went to stop the incessant noise when I also saw a message had popped up on her home screen. “Can’t wait to taste your pussy again today”. Up to this point I was bleary eyed with sleep, but this woke me up. I tried to flip up the home screen and enter the password but her usual one had been changed. I suddenly heard her coming back into the bedroom and for some reason I just put the phone back under her pillow.
+A year after my husband’s passing, we moved away. I couldn’t stay in that house anymore. We ended up selling it and moving to a small town just two states away in Indiana. I won’t say the name of the town, as I don’t want this to happen to anyone else. 
+The house we moved into was a small, remote house that almost resembled a cabin. The interior walls were made up of dark wood paneling, and it reminded me of my grandparent’s house. That’s why I wanted to move there in the first place. Somewhere that felt familiar. The house had some distance from the neighbors, which I liked. Behind our home were thick woods that went on for miles, and I remember telling Tommy to never go into those woods unless I said it was okay. 
 
-“Sorry babe, I heard the alarm, did you turn it off”.
+For the first year that we lived in that house, everything was normal. Although, Tommy was struggling to make friends at school. I can’t say that I blame him, he took his father’s death very rough and maybe that is why he would go on to disobey me in the next few years. I didn’t make friends any quicker than he did and most days I would find myself gardening to pass the time. That was something that I didn’t do before my husband died. I think it was a way for me to have some control over something, whether a plant lived or died depended on me. It calmed me and it made me happy to be able to do something good. 
 
-Still in some daze I said that it had turned itself off. I had turned over on my side not knowing what to do or say when she grabbed her phone. I waited for her to say something, try to explain the message that she may have thought I had now seen but nothing happened. She came over to my side of my bed, kissed my cheek, and left.
+I was in the backyard one afternoon while Tommy was at school. I was watering my lilies. It is important to note the layout of our backyard. Upon exiting the backdoor, you step out onto the patio which was layered with clay bricks on the ground. They were put in long ago and some were loose and would shake when I would step on them. Then almost against the wall of the house was where my flowers would be. I would often have my back facing away from the woods when I would water my plants. That specific afternoon, I was listening to music on my MP3 player as I tended to the flowers, and I thought I heard something. I thought I heard people talking. But not just people, but children. I pulled out my earbuds and listened closely. I could hear the murmurs of children whispering. I couldn’t make out what they were saying. I would try to write it out but it would just read like gibberish. And that’s what I thought it was, just gibberish. But it was children, there was no doubt about that. I turned around and faced the woods. 
 
-“See you tonight baby, let me know if I need to pick up anything on my way home. Oh, and don’t forget I’m going to be a couple of hours later- going for that quick drink with the girls”.
+“You kids should be in school!” I called out
 
-And with that she was gone.
+the whispering stopped. 
 
-I replayed that interaction for the rest of the morning, that was until the shit continued to pile on me. I received a letter from the tax man letting me know that I owed them as they had miscalculated my tax code, a speeding ticket also landed simultaneously on that mat, and a bunch of other mail that I failed to look at due to my despondency.
+There was nothing but the sound of a light breeze in the air. But the sudden silence of the children made my skin go cold. Usually, children liked to mess around and disobey adults, which is why it was so peculiar that they stopped talking about whatever it was that they were talking about. Nothing like that happened for a while, until a month later.
 
-I continued with my work. At least I had the benefit of working from home and would not have to deal with interacting with others. I doubt very much that I could have put on any sort of demeanour that would not have betrayed the mood I was in. Nonetheless the work was unrelenting. I just needed a fucking break. I needed to think properly. Who was messaging my wife and why the fuck were they talking about her pussy. Just as I tried to remember who the message was from my zoom notification popped up. Barry from accounts wanted to talk. Probably needed the spreadsheet that I had promised him two days ago. I let the call ring out. Barry would have to wait until I got a coffee and reviewed the work I had left to do. It was not the first time that I wished that I could just pause time and catch up with everything.
 
-Returning to my laptop I entered my password as the screen had gone idle. As I waited to see my email inbox a pop up flashed on the screen. Oh, fucking great. I had contracted a virus. As I was about to click on the x and restart the red flashing words seemed to pulsate more vigorously-
+I was lying in bed one night, my window was cracked open because it was July and the summer heat made our house unbearably hot. I kept the screen of the window closed, as I didn’t want mosquitoes to infest our home. While I lay in bed, I thought I could hear something outside. It again, sounded like the whispers of children. But now, instead of there just being whispers, there was giggling too. The soft sound of children giggling. Something that I was very familiar with. But hearing that in the dead of night was chilling. It all happened so quickly. The next thing I heard was the sound of Tommy giggling from his bedroom. 
 
-**“Need more time? Need more time?**
+I sprang out of bed and ran to Tommy’s room, opening the bedroom door to see Tommy staring out of his bedroom window. His small body was illuminated by the moonlight. He giggled again at something that I didn’t see. 
 
-**Life getting too much?**
+“Thomas? What are you doing up?” I asked
 
-**Do you just need a second to yourself?**
+Tommy turned to face me.
 
-**Just a second, or maybe a minute?**
+“The kids momma, the kids are here” he replied giggling.
 
-**We have the solution!!**
+I froze in place and goosebumps began to form on my bare arms. I ran to the window, looking out to see what Tommy was seeing. And I saw them too. Kids were walking into the woods behind our house. They must have been at Tommy’s window. I didn’t get a good look at the kids, but I could tell from the silhouettes of their bodies that they were children. Some are taller than others. 
 
-**START**
+“Tommy, honey… who were those kids?” I asked
 
-Well of course we all need a second. Damn it I could do with an hour, maybe two and I could fit in a nap. Shaking my head, I ignored the red start button and looked for the x but there wasn’t one. Of course, there wasn’t. These hackers were getting better and better. I went down to the glass pain box clicked it and pressed restart. Waiting for the start up was tortuous. Ironic that something promising more time would lead to less.
+“the kids from the grove Mommy” Tommy replied
 
-When I logged in my email box was not there. Just that bloody pop up. Frustrated, and increasingly angry, I restarted the laptop 5 more times. Each to no avail. I was about to say fuck it to the day but then realised that spreadsheet for Barry really had to be completed so I pressed the START button. Yes, yes, I can hear your judgement- but come on it had been a shitty shitty day and I just need to clear something of this desk.
+“the grove? What’s the grove, honey?” I questioned
 
-The next screen that popped up was one of those that look like you have won the Nigerian Lottery. CONGRATULATIONS shimmied across the screen, still in the awful eye hurting red, and looking like the whole thing had been made with ClipArt. After the dancing words abated, or timed out, the following message filled up the whole screen, still in shocking red.
+“it’s where they live.”
 
-**CONGRATULATIONS**
+Tommy slept in my bed that night, I couldn’t sleep after that and stayed up to watch the windows, making sure those kids wouldn’t come back. 
 
-**You are a winner!!!**
 
-**We are giving you the gift of time. But this is a one time only deal and we will know if you have accepted our generous and kindly offer.**
+Nothing happened for another two years. 
 
-**We do not ask any money from you, kind sir, just your gratitude is more than enough for us!**
+The next event that happened was similar to the first encounter that I had with the whispers. 
 
-**You are now part of an elite group of select people. Time is now in your control. So, whenever you need to take a break just follow these exact directions.**
+I was in the backyard gardening again. Tommy was at a friend’s house, it was a Friday and if I am being honest, I didn’t want to see him for the rest of the day. We had gotten into an argument that morning and he said some things to me that I’d rather not repeat. 
 
-1. **Take a deep inhaling breath.**
-2. **Exhale with a count of three**
-3. **Speak the words- ALOUD- OTIUM**
-4. **TIME IS NOW YOUR OWN**
+While I was gardening, I heard the snapping of twigs behind me, near the woods.
 
-**Finally, to come out of your own timely paradise just say the word NON TEMPUS and it will be like you were never away.**
+Snap
 
-**N.B. This should go with out saying but if you tell anyone of this prize it will no longer be yours to enjoy.**
+Crack
 
-**PRESS END**
+I turned, gasping as I did so. 
 
-Reading the page, I think I laughed out loud. But I pressed END and my computer appeared as if nothing had ever been on the screen except for the deluge of increasing emails in my inbox. I could even see three from Barry, the high importance flag flashing and the subject box emboldened by being in caps lock. I clicked on the spreadsheet and realised that I wasn’t even halfway completed. Feeling like I had nothing to lose I followed the instructions I had been given. After saying OTIUM I looked around. Nothing was any different. Well of course it wasn’t, I hadn’t really expected it to be but hey, it was worth a shot!
+I came face to face with an older gentleman who threw his arms up as if he had been caught.
 
-I looked at the spreadsheet and began entering the details. At least if I got it done Barry could bitch but he would have what he needed. An hour seemed to pass, and I was about the email the spreadsheet when I noticed the time on the clock. 2.34. It couldn’t possibly be 2.34 I had been working on this for ages. Nevertheless, I attached the spreadsheet to the email and waited for it to send. Nothing happened. Brilliant – just fucking brilliant that virus must have penetrated something. Probably like that dude’s tongue on my wife’s pussy. Fuck fuck fuck.
+“W-who are you?” I asked
 
-Getting up I turned on the tv, nothing but static, I loaded up reddit, would not refresh. You get the picture. Nothing worked. Probably like how my wife sees my cock. Unworking, unusable, replaceable. I saw the clock on the mantle piece. 2.34. What in the actual? It was then (yeah, yeah I clearly am slow) that it dawned on me. Time had stopped. To say I started to laugh would be an understatement. I fucking nearly fell on the flaw with a fit of the giggles I had not experienced since I was a boy. Time had stopped. TIME HAD STOPPED. Grabbing a piece of paper, I wrote down the instructions from the pop up and then said NON TEMPUS aloud. The TV seemed to blast out noise making me jump and, when I returned to my laptop, I could see the email was sending, and finally whooshed to Barry. Well fuck you very much Barry stick that spreadsheet up your arse. I then hid the instructions where Claire would never find them- with all the house information that she never bothered to look at the first time.
+“My name is Allen, I’m your neighbor I guess” he replied
 
-Despite the knowledge that my wife was with another man I had a smile on my face for the rest of the day. I had tested out the sequence a couple more times and every time the same thing happened. Time was in my control.
+“you guess?” 
 
-Shutting my laptop down for the day I began to think of all the newfound possibilities this power could give me. The actual number of hours I now had in my day was limitless. I would never be behind for a deadline or late for anything ever again. I felt all powerful. That was until Claire walked in and suddenly my joy dissipated.
+“I didn’t know that anyone lived here, I haven’t seen you at all.”
 
-“Hey babe, you eaten. I’m starved- I was just going to order something for us if that’s ok? Let me just jump in the shower yeah? Anything you want- it’s on me!”
+It didn’t make any sense, how could he not have known that we live here?
 
-Before I could even reply she had practically skipped to the shower. I sat practically agog. Not knowing what to say or do. When she returned, smelling of coconut and lime (and I assume not another mans jizz) I still had no idea what to say.
+“You didn’t know? We’ve been living here for nearly three years” I exclaimed
 
-“Chinese ok, just put in an order, got your favourite” she moved closer to me on the sofa, kissed my cheek, like this morning, and asked how my day had been.
+He paused for a moment.
 
-“Oh, you know, same old shit- Barry pissing me off again, yours”
+“Well, your house is surrounded by woods on all sides and I never usually pass by your house unless I have to” he tried to reason for why he was standing in my backyard. I looked at him for a moment. His face was worn with wrinkles from stress over the years and his eyes darted to his left toward the trees, as if he were paranoid.
 
-“Oh good good – Sherry thinks she’s found the man of her dreams, you know, the man of this week more like” She laughed at her own bad joke.
+“Why were you in the woods?” I asked unconsciously
 
-“Many girls go tonight- “I didn’t even get to finish before she got up as her phone rang-
+“I decided to go on a walk this afternoon, I haven’t been in these old woods in a long time. Which reminds me” he stopped for a moment.
 
-“Sorry babe, just got to take this – work you know how it is….”
+“Be careful in these woods, a lot of strange things in there.” 
 
-Of course, I knew how it was, but I knew it wasn’t work. She never smiled when her work called. In fact, she mostly ignored the calls- especially after work hours finished. I needed to know who this great pussy eater was, but time was on my side now. There would be no rush. And when I found out what was going on I would have the time to deal with it.
+He waved and walked back into the woods, back onto the trail. The entire scenario perplexed me, I didn’t understand what he meant and at the time, I hadn’t even thought of what had happened a few years prior. But after thinking about it, I now understood what Allen had meant. He wasn’t talking about animal noises or anything like that. He was talking about the children in the woods. 
 
-When I awoke the next day, I felt Claire’s arm over my body. I wanted to feel hate, anger, but for those couple of minutes I decided I wanted to not plough into it right now. Surrounded by her warmth I closed my eyes until the blaring of her alarm surrounded again. As she moved to turn it off, I remained still, my breathing deep and slow. When I heard her go to the shower I checked for her phone, she had taken it with her, and I flopped back on the pillow. I know I could stop time and check in the shower, but I would need to find the passcode first- and that would take more than time.
+Everything changed after Tommy turned nine. After school one day, we got into a heated argument about him not cleaning his room. Tommy was upset and packed a bag full of clothes and walked out of the back door and into the woods. He said that he was running away. I let him. Looking back now, it wasn’t the right decision. But I did the same thing at his age, and all he needed to do was go outside and let off some steam. But when he didn’t return by sundown, I knew something was wrong. Panicked, I grabbed a flashlight and ran into those old woods. 
 
-For the first time in a long while she seemed to get ready whilst doing as little as possible to wake me. I pretended to be asleep until she left. 8.05. I should really get up and get ready myself, but the bed was so warm. I decided I could do with some time now, went through the process, and afforded myself the luxury of a lie in. Hours drifted by until I decided that it really was time to get on with the day. I said NON TEMPUS and began my routine safe in the knowledge that lunchtime could be as long as I wanted.
+I ran down the trail, calling for him and I weaved out of the way of overhanging tree branches. I was distraught and thought of the possibility of him being lost in the woods. I didn’t want to think about it. But the woods were thick and went on for miles, the thought of him out there gave me a fear that I didn’t know I had. I ran for what felt like hours.
 
-I think I stopped time three times that day, I felt refreshed. I could relax, eat, and sleep as much as I wanted. I made some half attempts at finding the names of who Claire could be seeing but the lure of nothingness was too enticing. I promised myself that I would do better tomorrow. But you see I didn’t do that either, or the next day, and yes, you’ve guessed it kids- the day after that. I walked, I slept I read old books, I wrote in my journal. Having all this time helped put the relationship with my wife in perspective. Yes, it was nice to have someone around but was it really that important in the grand scheme of things? Was it as important as being the architect of my own schedule?
+As I was running through the woods, I kept hearing the familiar sound of children whispering, giggling, and laughing. I stopped and turned in circles again and again. But I couldn’t see anyone through the brush. But I could hear them cackling.
 
-This continued for days and then weeks. The time I was in the real world may have been 24 hours, but my other time was far far longer. You would think it would get boring, and to a degree it was, but then I just would return to my bed, lazing, sleeping and luxuriating in the nothingness.
+I continued to run down the path until my flashlight caught something just off of the trail, like a deer in headlights. It was nearly hidden out of view. It was Tommy’s shirt. He was wearing a black T-shirt with the Batman logo on it. But now it was in the leaves. I grabbed it and quickly examined it. The back of the shirt was torn, it had a big hole, almost appearing like there was no back to the shirt.
 
-It must have been two months after that pop up that I realised how much I had been spending in The Other. That’s what I called it now. It was nicer there. There were no emails, no Claire, no need to do or be anything at all. The hobbies that I began pursuing again with vigour dissipated quickly. You see the more time you have to sleep the more you want to. The more you want to do absolutely nothing. After a while I even failed to care about Claire and the great pussy eater. In the end what did it matter what she did when I wasn’t there. I had a whole other thing that didn’t involve her anyway.
+“Mom?” Tommy called out in the distance.
 
-The lethargy did seem to seep into my real time. Ironically, even with all the time in the world, I fell behind on deadlines and commitments. I knew that I should care but I didn’t. I had The Other. Claire would leave in the morning, failing to even acknowledge me now, and I would stop time. I would sometimes set a stopwatch- see how long I was really out for but even that became too arduous. Did it really matter?
+I dropped the shirt and ran quickly in the direction of his voice.
 
-After six months after finding my paradise, I was looking in the mirror. I seemed to have aged an inordinate amount. There were grey hairs sprouting where there had been none before, and lines sprinkling under my eyes. If I had spent six months in real time, I dread to think how many months, or even now years, had really passed. Claire was packing the bedroom. You guessed it between Mr Great Pussy Eater and her husband, who I don’t think I could get it up even if I could be bothered to try, had decided was enough was enough. I want to tell you I was sad- but I was relived. Pretending to want to be in the real world with her had become more hassle than it was worth. In fact, everything in the real world was more hassle than it was worth. Why be stressed by commitments when there was no need? Why push yourself for the promotion, the bigger house, the kids when there was something demanding nothing of you but your time.
+“Tommy!” I shouted, my voice echoed through the woods.
 
-See this is the thing with unlimited time. It really isn’t unlimited. Not for us anyway. We think we are infinite in the place where the clocks do not work but our bodies have no concept of watches or alarms. They carry on, they age- they decay. The mind, however, is different. It becomes acclimatised to the environment we give it in ways that we cannot appreciate. If we are given abundant peace and rest, we crave it more, it becomes a habit, a need, a desire.
+My flashlight caught him, shirtless, standing in the middle of the trail. He raised his hand over his eyes, and I lowered the flashlight, not wanting to blind him. 
 
-After she had left, I went to the desk to retrieve some of the house documents I would need to go through to help with the divorce. But she had clearly got there first. My first emotion was relief- let her deal with this shit- but then it struck me. It didn’t just strike me- it hit me like sledgehammer. This is where I had put the instructions for stopping time. What if Claire read them, worse still what if she tried them. My paradise My Other, oh fucking shit.
+“Tommy, are you okay? What happened?” I asked
 
-So, Reddit, with sweat culminating at my temples I am asking for advice. I don’t have a fucking clue what to do. What if I can never go back or never come back? And more importantly, where the fuck did Claire say she was moving too?
+“M-my s-shirt got c-caught” he struggled to speak. 
+
+I guided him out of the woods and back into the house. Tommy didn’t speak for weeks after that night. I had to plead with him just to tell me goodnight. I had to send him to a psychiatrist, who eventually told me that Tommy may have suffered some trauma from being lost in the woods. 
+
+It took Tommy seven months before he spoke again. 
+
+
+Tommy turned seventeen, and things began to change with him. He didn’t hang out with any kids after school, and sometimes I would catch him in the backyard, just staring into the woods. I knew that what had happened to him was traumatic but I thought he overcame that memory. As the weeks passed on, I kept noticing Tommy’s strange behavior. Sometimes, I would catch him watching me from around the corner as I cooked dinner. When I would catch him, he wouldn’t be smiling or anything. He would just stare with a blank expression on his face. 
+
+I didn’t understand the surfacing of the behavior. He was always very private before he turned seventeen. He would always be in his room. And maybe he wanted me to think that he was still doing that. Maybe he didn’t know that I could him several times, staring at me. 
+
+One day, after school, he told me that he was going on a hike in the woods. I said that it was okay. And as I grabbed his backpack to bring it into his room, one of his notebooks fell out. I bent over to pick it up and when I did, it was open. In the notebook there were no notes from his classes, it was drawings. I didn’t understand them.
+
+One of the drawings was of him standing in the woods, and next to him was a black tree and what I think was a face in the tree.
+
+Then next page revealed another drawing of the tree digesting what looked like a woman. The tree had a wide mouth with wooden teeth that bit down on the lower torso of a person. It didn’t make any sense. Why would he draw something like that? Are these nightmares that he had after that night in the woods? Did he draw them when he woke up? 
+
+I did not understand where this sudden change in behavior came from. Tommy had problems, that much I knew. He was diagnosed with depression and social anxiety when he was fourteen. But this was something entirely different.
+
+Then, one night while I was laying in bed, attempting to fall asleep. I laid on my side, facing the doorway. The bedroom door was cracked and my bedroom window was cracked as well, letting in the cool air in the autumn night. 
+
+I thought that I noticed something in the crack of my bedroom door, I squinted my eyes, attempting to get a clear view of what I was seeing. It was… Tommy. He was standing outside of my bedroom door, staring in. What horrified me more was what Tommy was wearing or what he wasn’t wearing. When he saw that I noticed the lack of clothing, he barged into the room. After that night, I knew that this person wasn’t my son.
+
+I spent the next two days throwing up on and off all day. And I considered taking my own life after that. Leaving whoever that person was behind. 
+
+But when I realized that I couldn’t do that, that I couldn’t just kill myself, I knew that I had to do something. And I confronted Tommy.
+
+He had skipped school that day and went into the woods, he didn’t return for hours until he finally emerged. When he did, I asked him to come inside and sit down. I had a knife hidden up my sleeve, knowing that I was either going to get answers about where the real Tommy was or I would have to kill him.
+
+He sat down on the sofa across from me as I sat in the loveseat. He smiled as I sat down, staring at my breasts. 
+
+“Tommy, do you know what you did?” I asked
+
+He smiled, “I showed you love” he replied
+
+I wanted to vomit.
+
+“No Tommy, that was not love. That was hate, that was… it was evil.”
+
+“What do you mean, mother?” he asked
+
+I paused for a moment, not wanting to remember that night.
+
+“Tommy, you violated me.”
+
+He didn’t speak, he just smiled as he watched me in my vulnerable state.
+
+“My son would never do that to me.”
+
+His smile faded.
+
+“You are not my son.” I muttered and lunged at him with the knife.
+
+Tommy was quick, he stuck out his feet, propelling me into the air and tossing me behind the sofa. I landed on my back, dropping the knife as it skid across the floor. I groaned and reached for my back. He had thrown me so hard that I thought that I broke my spine. 
+
+“You stupid bitch” he let out in a gutteral tone, sounding like he wasn’t human.
+
+He stood over me, his fists bawled. He crouched down, getting to my level.
+
+“You had it coming, you stupid whore” 
+
+I couldn’t believe what I was hearing, he wrapped his hands around my neck, tensing his muscles so that my breath would slow.
+
+“You know, you were right about one thing… I’m not your son.”
+
+My face began to turn from a light red, to a dark purple.
+
+“I’m surprised you didn’t figure it out sooner.”
+
+A shot rang out. The other Tommy’s grip loosened as he collapsed to the ground, a black sludge gushed from the open hole in his forehead. I gasped for air, looking over to the front door to see my neighbor, Allen, standing there with his rifle.
+
+“You okay?” he asked
+
+I sat up, gripping my throat and catching my breath.
+
+“Yeah, I’m okay” I replied. 
+
+I glanced at the body, and was unsettled to see that it started to wither away, the skin began to shrink, turning a light grey, to a charcoal black. Until eventually, there was no skin at all, not even a skeleton, but instead there was what looked like dirt, and tree bark. 
+
+“What the fuck was he?” I asked
+
+Allen stood over the mound of dirt.
+
+“I don’t know for sure, but he wasn’t human. He was a copycat”
+
+“A copycat?” I asked
+
+“The thing that lives in those woods, it makes them. It happened to my daughter, whatever it was, it ate her, and it spat out a copycat.” 
+
+It’s been ten years since that day, I moved out shortly after. I reported my son as missing but I knew that he had been dead for years. Allen was there for me, he told me that he never told me about the thing in the woods because I wouldn’t believe him. But he did warn me. Now, I have to live, knowing that my son died years ago, alone, and scared. 
+
+I’ve had my own theories over the years of what the truth may have been. The drawings that the copycat drew, it was of a person being eaten by a tree. That is what I believe makes the copycats. I don’t know what their purpose was, whether it was to cause chaos or if it was to make more of them. Either way, I have been in therapy for years for what happened. And even though he wasn’t my real son, he still had his face. So after having nightmares about him violating me, I went to therapy. I am doing much better now. Allen lost his wife before Tommy and I moved in, and we eventually started a relationship together. We decided that we didn’t want to get married or have children. But we’re happy most days, and we deal with the trauma together. 
