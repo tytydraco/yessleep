@@ -172,3 +172,6 @@ Adrian did just that, he dropped me off at the call center. The lights were out 
 With the power back on, put on my head set and answered the first call. 
 
 “Greenbrier 911 what is the nature of your emergency?” 
+
+
+[Next](https://www.reddit.com/r/nosleep/s/cRz26zGusw)

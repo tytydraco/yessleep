@@ -95,3 +95,5 @@ When she was gone Dean turned more serious, “so I want to talk to you about so
 I winced at the memory. 
 
 “Yeah I know, pretty rough. But listen Kay, that’s the seventh call like that this week. And that’s just the beginning, I heard the voice. I’m not crazy, I heard a faint whisper coming from that blood filled drain. It knew things that it couldn’t have known. That no one knows. The reason I'm here though is because it said they will be coming soon, coming for the girl on the phone”.
+
+[Next](https://www.reddit.com/r/nosleep/s/1NEy7kyU8Y)
