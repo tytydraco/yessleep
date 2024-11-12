@@ -324,6 +324,4 @@ I headed for the airlock, but she was nowhere in sight, still her voice was emer
 
 “Just open the outer hatch. I’ll be right there.”
 
-The voice emerging from the radio at the bridge was barely intelligible. I could only just make out a few names he kept calling for—Henderson, Lowe, Levi—all people I’d never met. I only had one partner, and she would have been trapped in the vacuum of space if not for me. Not needing her to ask again, I pulled the lever to open the outer hatch. I wouldn’t have to be alone anymore.
-
-[R](https://www.facebook.com/richard.saxon.author/)
+The voice emerging from the radio at the bridge was barely intelligible. I could only just make out a few names he kept calling for—Henderson, Lowe, Levi—all people I’d never met. I only had one partner, and she would have been trapped in the vacuum of space if not for me. Not needing her to ask again, I pulled the lever to open the outer hatch. I wouldn’t have to be alone [anymore.](https://www.facebook.com/richard.saxon.author/)
