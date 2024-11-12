@@ -125,3 +125,6 @@ Dawn was just beginning to challenge the darkness of the clouds when rescuers fo
 I checked my SatNav again before leaving the hospital, and saw that one message had come through since we were rescued. I showed the message to the other guys. It had come from Patricks device, and all it said was: “fr i ends”
 
 I still don’t know how to explain it. Maybe it doesn’t mean anything. People mysteriously survive dangerous stuff all the time. But I can’t shake the feeling that Patrick is still out there, and maybe he was the reason we survived.
+
+
+Edit: hey guys, thank you for all the kind words about Patrick. Park services recovered his cellphone and they were able to pull some voice notes that Patrick made while he was hiking. I transcribed them and posted it here: https://www.reddit.com/r/nosleep/s/LIO3RWgDil

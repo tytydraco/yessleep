@@ -150,7 +150,7 @@ Darren hurled into me. A heavyset man with a bulging gut and eyes to match. And 
 
 Realisation hit once the terror abated. The terror of trying and failing to smell his breath — inhuman breath neither stale nor rosy. But that was Darren. He was nothing. Just an empty vessel. And I’d always known that, somehow. Just never had any proof until that dreadful day.
 
-I realised, as my abdomen started to throb, that my brother-in-law had thrust something into me. Sharp steel buried in my flesh and, I would later learn, just shy of puncturing my lung. Then Darren lifted his free hand to my hair and brushed it off my ear as he continued to twist the knife deeper into my gut — some practised idea of what it means to be human. Something he’d seen me do to Anna, I think.
+I realised, as my abdomen started to throb, that my brother-in-law had thrust something into me. Sharp steel buried in my flesh and, I would later learn, just shy of puncturing my lung. Then Darren lifted his free hand to my hair and brushed it off my ear — some practised idea of what it means to be human — as he continued to twist the knife deeper into my gut. Something he’d seen me do to Anna, I think.
 
 And that, in itself, made me feel sicker. Reminded me that this creature before me was no person. It propelled me though. Motivated me, as Darren continued to talk, to plunge my quaking fingers into the back pocket of my jeans.
 
