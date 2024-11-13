@@ -28,7 +28,7 @@ I never was one to run. I punched my bully when he was twice my weight as a litt
 
 By the time I got on a road where I may have interacted with another driver my fear had settled, instead of rushing away I focused on every little detail around me, I scanned for any marking or movement. I analyzed every landmark possible. But now as I saw me phone tell me it was 19:00 I was in town. As I pulled into my driveway and started unloading my loot I saw something on the side of the trunk.It was a set of six scrapes.
 
-I rushed to store my loot and then grabbed some chalk from my magical workspace. I scribbled down a pentacle and some protective sigils at the doors and windows. I started to make some witch bottles when my mother caught notice of my erratic behavior.
+I rushed to store my loot and then grabbed some chalk from my magical workspace. I scribbled down a pentacle and some protective sigils at the doors and windows. I started to make some spell bottles when my mother caught notice of my erratic behavior.
 
 “Dear, what happened,” She asked. She was well aware that I didn’t react like this normally. When I didn’t respond she continued, “It’s okay dear, what’s going on?”
 
@@ -36,7 +36,7 @@ I rushed to store my loot and then grabbed some chalk from my magical workspace.
 
 My mother, unsurprisingly, did not take my orders and instead asked a question, “What do you mean by ghost thing?”
 
-As I made my last witch bottle I answered, “I know you don’t believe but there is some sort of spirit which was causing me issues.”
+As I made my last spell bottle I answered, “I know you don’t believe but there is some sort of spirit which was causing me issues.”
 
 I quickly ran past her into our yard and buried one bottle in each corner of the property and ran back inside. I then heard my siblings scamper out of their rooms.
 

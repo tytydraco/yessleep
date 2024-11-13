@@ -429,8 +429,6 @@ I hope he gets a chance to smack the mechanic, too, someday.
 
 Currently, the ledger is hidden with all of our other important things (Reyna's apartment) until we can find someone who is willing and able to translate it. Initially, I'd been worried that it had gotten damaged during the whole water war, but, thankfully, it was unscathed. My guess is that it's protected by magic. 
 
-I think I might have an idea of who to ask to translate the book. I'll be seeing her in a few days to hear her sing. Wish me luck.
-
-[(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
+I think I might have an idea of who to ask to translate the book. I'll be seeing her in a few days to hear her sing. Wish me [luck](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv).
  
 Update: [The mechanic's true name. ](https://www.reddit.com/r/nosleep/s/jxP409Zcvk)
