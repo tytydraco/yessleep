@@ -152,4 +152,4 @@ The only thing I know for certain is that I’ll never step foot in another cave
 
 I’m afraid of the dark in ways I never imagined, paranoia gnawing at me every time I turn off a light. Even here, in my own home, I can feel it—the creature’s gaze, lurking just beyond the glow of my lamp, hidden in the pockets of darkness, patient and unyielding.
 
-It’s waiting for me. I can feel it, lurking, watching, waiting for that one moment when I’m left alone in the dark. And I know, deep down, that it won’t stop until it pulls me back into the shadows… just like it did with them.
+It’s waiting for me. I can feel it, lurking, watching, waiting for that one moment when I’m left alone in the dark. And I know, deep down, that it won’t stop until it pulls me back into the shadows… just like it did with [them.](https://youtu.be/_qyZins7xMg?si=ALanckwKPPwwIe6b)

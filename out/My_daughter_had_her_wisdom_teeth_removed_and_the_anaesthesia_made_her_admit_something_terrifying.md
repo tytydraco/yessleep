@@ -1,6 +1,8 @@
-I (37f) have a son (12m), who I’ll call Nathan, and a daughter (14f), who I’ll call Anna. A couple of months ago, I took Anna to a private hospital for a procedure to have four of her wisdom teeth extracted. Teeth that were, unfortunately, well-embedded in her gums, necessitating the use of a general anaesthetic. The doctor explained that it would be a lengthy procedure. Local anaesthesia just wouldn’t cut it. Anna wasn’t best pleased about that, and neither was I.
+I (37f) have a son (12m), who I’ll call Nathan, and a daughter (14f), who I’ll call Anna. A couple of months ago, I took Anna to a private hospital for a procedure to have four of her wisdom teeth extracted. Teeth that were well-embedded in her gums, necessitating the use of a general anaesthetic. Necessitating a visit to an all-hours private clinic, given the state of the impacted molars.
 
-Now, anybody who’s seen the aftermath of such sedation, whether in reality or from sadistic, film-making YouTube parents, knows that it often leads to wonky, witty remarks. Though I didn’t personally have a recording phone at the ready, I’ll admit that I *was* hoping for some bizarre wordplay after the procedure. Instead, my daughter uttered something vile.
+There were unforeseen delays with other surgeries that day, which meant Anna spent hours sitting and waiting. Waiting in agony for what ended up being an extremely late surgery. It was an involved and, admittedly, quite frightening process that lasted a couple of hours.
+
+Now, anybody who’s seen the aftermath of such a procedure, whether in reality or from a sadistic, film-making parent on YouTube, knows that it often leads to wonky, witty remarks. Though I didn’t personally have a recording phone at the ready, I’ll admit that I *was* hoping for some bizarre wordplay after the procedure. Instead, my daughter uttered something vile.
 
 Before I repeat her confession, I need to give you some context.
 
@@ -12,21 +14,21 @@ So, around eleven in the evening, when my daughter woke from the anaesthesia, al
 
 “Hello, darling,” I said softly, using a pinky to hoist Anna’s sweaty bangs out of her rolling eyes. “How are you feeling?”
 
-Anna’s doped up face observed me absently. But within the teary pools of her wandering eyes, there swam thoughts. Loose, disconnected thoughts, but thoughts that still *meant* something. And when she opened her mouth to speak, two wads of tissue spilled from her puffy cheeks.
+Anna’s doped up face observed me absently. But within the teary pools of her wandering eyes, there swam thoughts. Loose, disconnected thoughts, but thoughts that still *meant* something. And when she opened her mouth to speak, words spilled from her puffy cheeks.
 
 “The house looks empty…” Anna said in a half-muffle, wafting both of her hands at the right-hand side of the hospital room, which was an unlit space lined with empty beds.
 
-“We’re not at our house, sweetpea. We’re in the recovery room,” I explained, poking a slight gap between the overflowing tissues so I could hear her more clearly. “This is a hospital, remember? And you’re got this massive space all to yourself, so I suppose it does seem quite empty.”
+“We’re not at our house, sweetpea. We’re in the recovery room,” I explained. “This is a hospital, remember? And you’re got this massive space all to yourself, so I suppose it does seem quite empty.”
 
-Anna mumbled something incoherent.
+Anna responded incoherently.
 
 “You’ve had your teeth removed,” I continued. “And you’re going to feel a little out of it whilst the drug wears off, honey.”
 
 “Where’s the man?” my daughter asked in that low, disoriented moan.
 
-I smiled. “Dr Addis? He’s doing the rounds. But the nurse is here. Joyce. Remember her from earlier?”
+I smiled. “Dr Addis? He’s doing the rounds. But Joyce is here. Remember her from earlier?”
 
-The young nurse, fiddling with various instruments on a trolley, looked up and beamed. “Hello again, Anna! Everything went well, and you’re being really brave. I’m going to run a few tests now, then we’ll give you an oxygen mask to get you back into fighting shape. Make sure you tell me if you feel any pain or sickness, okay? It’ll—”
+The young nurse, fiddling with various instruments on a trolley, looked up and beamed. “Hello again, Anna! Everything went well, and you’re being really brave. I’m going to run a few tests now. Make sure you tell me if you feel any pain or sickness, okay? It’ll—”
 
 “No…” Anna groaned. “The man.”
 
@@ -34,7 +36,7 @@ The young nurse, fiddling with various instruments on a trolley, looked up and b
 
 I looked at the nurse apologetically. “Sorry.”
 
-The woman grinned widely and shook her head. “Don’t be silly, Mrs Kary. I’m only teasing! Anna, I’m sure Dr Addis will be back soon, but we—”
+The woman grinned widely and shook her head. “Don’t be silly, Mrs Kary. I was only teasing. Anna, I’m sure Dr Addis will be back soon, but we—”
 
 “The man!” Anna insisted loudly. “Nathan didn’t see…”
 
@@ -68,7 +70,7 @@ My daughter loudly shushed me, trying to lift a finger to her lips, but her dozy
 
 I shook my head. “I don’t know. I don’t know *what* we should be doing right now. Anna, was this a dream that you had? Please tell me that you—”
 
-“This!” my daughter interrupted, showing a scar on her forearm. “This wasn’t from the oar… It was from *him*.”
+“This!” my daughter interrupted, showing a scar on her forearm. “This wasn’t from the oar. It was from *him*.”
 
 My face turned pale as I eyed the faded scar on my daughter’s arm. A scar that Darren claimed Anna had acquired from her oar after it hit a rock, causing a large, jagged splinter of wood to cut into her flesh.
 
@@ -100,21 +102,21 @@ I was ready to tear my daughter out of her bed, regardless of the nurse’s advi
 
 I didn’t finish that thought.
 
-The recovery room was alarmingly quiet. Anna’s segment, semi-partitioned from the rest of the space by a thick curtain of green fabric, was the only lit section of the large area. One solitary fluorescent light hummed loudly above my daughter’s bed — the only sound in the room. And my daughter had been left unattended.
+The recovery room was alarmingly quiet. Anna’s segment, semi-partitioned from the rest of the space by a thick curtain of green fabric, was the only lit section of the large area. One solitary fluorescent light hummed loudly above my daughter’s bed — the only sound in the room.
 
-I rushed over to her bed and asked, “Where’s Nurse Joyce?”
+I rushed over to my daughter, who'd been left unattended, and cried, “Where’s Joyce?”
 
 Anna looked at me with teary eyes. “She’s here.”
 
 Rather than unpacking that, I pulled the duvet off her robed body. “We’re going home now, Anna. Come on. Nathan and I will help you stand.”
 
-My son lifted his half-conscious sister with his shoulder under her arm, and I ran around to the other side of the bed. But before I managed to grab Anna from the left-hand side, I slipped — train sole squeaking unbearably on the tiles blow. Fortunately, my hand reflexively reached outwards and gripped onto the green curtain for security.
+My son lifted his half-conscious sister with his shoulder under her arm, and I ran around to the other side of the bed. But before I managed to grab Anna from the left-hand side, I slipped — trainer sole squeaking unbearably on the tiles blow. Fortunately, my hand reflexively reached outwards and gripped onto the green curtain for security.
 
-I didn’t want to look down. And when I did, I wished I hadn’t. There, starting to stain the lower half of my white converse, was a pool of red — a spreading pool that flooded underneath the partitioning curtain.
+I didn’t want to look down. And when I did, I wished I hadn’t. There, starting to stain the lower half of my white Converse, was a pool of red — a spreading pool that flooded underneath the partitioning curtain.
 
-*This wasn’t pulled so far across before*, I thought, rubbing the fabric between my shaking fingers.
+*This wasn’t pulled so far across before*, I thought, rubbing the fabric between my unsteady fingers.
 
-I only noticed because my brain wanted a distraction from the horror of wading through a shallow pool of red.
+Something I only noticed because my brain wanted a distraction from the horror of wading through a pool of red; a pool that seemed to swallow me, though it may not have been deep. May not have even resisted my feet.
 
 “Mum?” Nathan asked as he helped Anna stand on the other side of the bed. “What happened?”
 
@@ -124,9 +126,9 @@ I tore the curtain backwards to reveal, once again, the blackened side of the ro
 
 The lifeless body of Nurse Joyce.
 
-Her face, arms, and scrubs were drenched with thick layers of blood. Her mouth hung open in a final cry, and her eyes gone. Gone not in the sense that they had been clawed to ribbons, but in the sense that they had been plucked cleanly from their sockets. Two deep, blood-filled cavities filled her skull.
+Her face and scrubs were drenched with thick layers of blood. Her mouth hung open in a final cry, and her eyes gone. Gone not in the sense that they had been clawed to ribbons, but in the sense that they had been plucked cleanly from their sockets. Two deep, blood-filled cavities filled her skull. Her body was gutted, gushing what remained of the blood in her body onto the floor; adding to the growing puddle.
 
-I turned to my children, and I was thankful that Anna’s vacant eyes were staring at the corner of the room. However, Nathan saw Joyce’s body, in spite of my effort to stand in the way, and he began to cry. Began to buckle under the weight of supporting his sister, for fear had weakened his body.
+I turned to my children, and I was thankful that Anna’s vacant eyes were staring at the corner of the room. However, Nathan saw Joyce’s body, in spite of my effort to stand in the way, and he began to cry. Began to buckle under the weight of supporting his sister. Fear had weakened his body.
 
 “Look at me, both of you!” I cried, nearly slipping in the blood a second time as I rounded the edge of the bed. “Please…”
 
@@ -134,7 +136,7 @@ Nathan bawled as I tried to sling Anna’s right arm over my shoulder, hoping to
 
 Before I said a word, Anna pointed a shaking finger at the far corner of the room. Pointed at something past the darkened beds. I think she might’ve tried to say something out of her tissue-filled mouth — some jumbled, muffled words. But she seemed even less coherent than before. And when I turned, I saw something worse than Joyce’s body.
 
-There was just enough light to illuminate the vague outline of the room. The curtains drawn back to the wall, revealing the full stretch of the room. The four empty beds, and a fifth bearing the nurse’s mutilated corpse. It was all made slightly clearer thanks to the window at the end of the room. A long glass pane which allowed a smidge of moonlight into the room — onto the far corner, near the sixth bed, at which Anna was pointing.
+There was just enough light to illuminate the vague outline of the room. The curtains drawn back to the wall, revealing the full stretch of the recovery area. The four empty beds, and a fifth bearing the nurse’s mutilated corpse. It was all made slightly clearer thanks to the window at the end of the room. A long glass pane which allowed a smidge of moonlight inside — onto the far corner, near the sixth bed, towards which Anna was pointing.
 
 I saw the outline of an armchair, partially visible in that dark pit, and a dark, featureless head rising above the backrest. Somebody was sitting in the darkness. Watching us.
 
@@ -144,17 +146,17 @@ I saw the outline of an armchair, partially visible in that dark pit, and a dark
 
 There came the crying of my son, the door handle squeaking downwards, and shoe soles hurriedly beating against the floor. Loudening as something invisible charged towards me. There is no horror quite like knowing that something in the dark approaches. A horror that fixed me to the tiles, left to helplessly eye my oncoming fate.
 
-Darren hurled into me. A heavyset man with a bulging gut and eyes to match. And I was stuck so rigidly within his animalistic gaze, which saw only prey before it, that I barely noticed the searing pain in my gut. It came, of course, when the adrenaline started to wear off.
+Darren hurled his body into me. A heavyset man with a bulging gut and eyes to match. And I was stuck so rigidly within his animalistic gaze, which saw only prey before it, that I barely noticed the searing pain in my gut. But the agony came, of course, once the adrenaline started to wear off.
 
-“It was always meant to be us,” the man told me, his scentless breath stinging my eyes as he hovered an inch away from me.
+“It was always meant to be us,” the man told me, his scentless breath stinging my eyes as he hovered an inch away from my face.
 
-Realisation hit once the terror abated. The terror of trying and failing to smell his breath — inhuman breath neither stale nor rosy. But that was Darren. He was nothing. Just an empty vessel. And I’d always known that, somehow. Just never had any proof until that dreadful day.
+Realisation hit once the terror abated. The terror of trying and failing to smell his breath — inhuman breath neither stale nor rosy. But that was Darren. Had always been Darren. He was nothing. Just an empty vessel. I’d always known that, somehow. I just never had any proof until that dreadful day.
 
-I realised, as my abdomen started to throb, that my brother-in-law had thrust something into me. Sharp steel buried in my flesh and, I would later learn, just shy of puncturing my lung. Then Darren lifted his free hand to my hair and brushed it off my ear — some practised idea of what it means to be human — as he continued to twist the knife deeper into my gut. Something he’d seen me do to Anna, I think.
+I realised, as my abdomen started to throb, that my brother-in-law had buried something in me. Sharp steel in my flesh, just shy of puncturing my lung. Then Darren lifted his free hand to my hair and brushed it off my ear — a practised idea of what it means to be human — as he continued to twist the knife deeper into my gut. Something he’d seen me do to Anna, I think. And that made me feel sicker. Reminded me that the creature before me was no person.
 
-And that, in itself, made me feel sicker. Reminded me that this creature before me was no person. It propelled me though. Motivated me, as Darren continued to talk, to plunge my quaking fingers into the back pocket of my jeans.
+Still, that awful concept propelled me. Motivated me, as Darren continued to talk, to plunge my quaking fingers into the back pocket of my jeans.
 
-“Don’t worry about this,” the man whispered, motioning at the blade in my belly. “I’ll take you home now. *Quietly*. And I’ll get you fixed up. Then I’ll look after you, baby. I’ll tend to you. Care for you, just as I have for the past two years. Look after you so much better than my weak, pathetic excuse for a—”
+“Don’t worry about this,” the man whispered, motioning at the blade in my belly. “I’ll take you back to the van. *Quietly*. And I’ll get you fixed up. Then I’ll look after you, baby. I’ll tend to you. Care for you, just as I have for the past two years. I will care for you so much better than my weak, pathetic excuse for a—”
 
 Halfway through the man’s long monologue, powered by the last dregs of adrenaline and blood in my fading body, I punched my makeshift weapon forwards — a set of keys that I wielded between my two middle fingers.
 
@@ -164,10 +166,10 @@ The keys met Darren’s jugular, and his flapping lips froze mid-sentence. Then 
 
 I moved with his body as he pulled away, fearing what would happen if I were to lose that opportunity. I jabbed those keys into his jugular repeatedly, intending to inflict as much damage as possible. Intending to stop Darren from ever hurting my family again. I didn’t want him to rot in prison, as I knew I would forever live in terror of him finding me again. The next time, he wouldn’t have kept me alive to do as he wished with me. He would have ended me.
 
-Above all else, I wanted Darren to drown as Ed had drowned. Worse, in fact, as he drowned in his own blood.
+Above all else, I wanted Darren to drown as Ed had drowned. Worse, in fact, as he drowned in his own blood. They say his airways filled with it; that was an indicator of the extent to which I wounded him.
 
-The authorities say I stabbed Darren 46 times. Let his neck a mangled mound of skin and blood. He was pronounced dead before the police even arrived on the scene — responders called by Dr Addis, who dialled 999 as soon as my children found him in a nearby corridor. He did, of course, rush to Darren’s aid. Such was his oath.
+The authorities say I stabbed Darren 46 times. Let his neck a mangled mound of skin and blood. He was pronounced dead before the arrival of the police — responders called by Dr Addis, who dialled 999 as soon as my children found him in a nearby corridor. He did, of course, rush to Darren’s aid. Such was his oath.
 
-That was why I’d ensured that there would be no salvaging him. You see, I knew that it would never end. Not really. I will always hear, as I lie in my room at night, Darren’s unholy confession of what he did to the love of my life.
+That was why I’d ensured that there would be no salvaging my brother-in-law. You see, I knew that it would never end. Even once he ended, it stayed with me. That fear. I will always hear, as I lie in my room at night, Darren’s unholy confession of what he did to the love of my life.
 
-Hear an unspoken confession of what he was going to do to [me](https://www.reddit.com/r/dominiceagle).
+Will always hear an unspoken confession of what he was going to do to [me](https://www.reddit.com/r/dominiceagle).

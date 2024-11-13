@@ -4,7 +4,7 @@ The memories flood back whenever a new face appears. Emily in '92 - she had that
 
 I watched Sarah fill out her paperwork, her hand steady and sure. If only she knew what those forms really meant - not just employment agreements, but potential obituaries waiting to be written.
 
-The factory hasn't changed much since I started here in 1990. The same industrial lights flicker overhead, casting long shadows between the rows of machinery. The air still carries that distinct mix of cotton fibers and machine oil. But now it carries something else too - whispers, echoes, and the lingering presence of those who never left.
+The factory hasn't changed much since I started here in 1985. The same industrial lights flicker overhead, casting long shadows between the rows of machinery. The air still carries that distinct mix of cotton fibers and machine oil. But now it carries something else too - whispers, echoes, and the lingering presence of those who never left.
 
 I remember my first day like it was yesterday. Margaret, the floor supervisor then, had given me the same tour I now give to others. She'd seemed distracted that day, her eyes constantly darting to empty corners of the room. I understand now what she was seeing. She didn't make it to retirement - lost to the cutting machine in '93. Sometimes I still hear her counting inventory in the storage room.
 
