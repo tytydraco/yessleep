@@ -20,7 +20,7 @@ At graduation, I looked for her. While I was accepting my fake diploma up on the
 
 She was looking somewhere behind me. 
 
-After the ceremony, I looked for her again. I tried to part the mass of bodies, muttering *excuse me'*s and *sorry'*s as I went. She was surrounded by a throng of her peers, all speaking so loudly and cheerfully that I couldn’t make out anything she was saying. I got a glimpse of her face for a split second — she was smiling in that same strange way, almost sad. I finally heard her say something, her pink lips parting like they were crumpled up, as if she was crying. 
+After the ceremony, I looked for her again. I tried to part the mass of bodies, muttering *excuse me's* and *sorry's* as I went. She was surrounded by a throng of her peers, all speaking so loudly and cheerfully that I couldn’t make out anything she was saying. I got a glimpse of her face for a split second — she was smiling in that same strange way, almost sad. I finally heard her say something, her pink lips parting like they were crumpled up, as if she was crying. 
 
 *“I’m going to miss you all so, so much.”* 
 
@@ -48,7 +48,7 @@ Emma was on the table, and everyone in the room was facing her, as if she were a
 
 “N-No,” she moaned, wiping at her mouth with the back of her hand, the bottle clanking against her shirt buttons. “I’m sor-sorry… I’m sssso sorry…” 
 
-Clearly she had had too much to drink, and I wondered what I had missed before we’d come in. My friends were laughing, nudging each other and me, but I didn’t join them. Emma keeled over, flopping pathetically on the table, as someone shouted *“get down!”,* their voice brash and cruel. Someone else laughed. Someone else started taking pictures of her. 
+Clearly she had had too much to drink, and I wondered what I had missed before we’d come in. My friends were laughing, nudging each other and me, but I didn’t join them. Emma keeled over, flopping pathetically on the table, as someone shouted *“get down!”,* their voice brash and cruel. Someone else laughed. Someone else started taking pictures of her.
 
 I had never seen her like this. And I had never seen anyone be mean to Emma, not since middle school, at least. 
 
@@ -60,10 +60,7 @@ She finally acknowledged me when I scooped her up into my arms, wincing at the w
 
 “An… Andrew?” She slurred. I nodded, my face made of stone. The people all around us let out a collective *oooh*, and I was back in middle school, letting go of Emma’s hand, refusing to look her in the eye. 
 
-I look her in the eye now, though, and she smiles in that sad way that only I seem to ever notice. Then she throws up on my shirt. 
-
-  
-
+I looked her in the eye then, though, and she smiled in that sad way that only I seemed to ever notice. Then she threw up on my shirt. 
 
 I got her to the bathroom and I locked it behind us as thralls of people pounded against it with their fists, chanting our names. *EM-MA! AN-DREW! EM-MA! AN-DREW! We’ve become the most interesting thing at the party*, I thought. *We've become the spectacle*. Emma sobbed as I helped her into the bathtub, figuring it would be the easiest to clean off later.
 
@@ -125,7 +122,7 @@ I felt suddenly very cold. I heard the words she wasn’t saying: *you were the 
 
 “You’re safe in here, and I’m your friend… I’m still your friend…” 
 
-I reached out, and I took her hand. Her skin is white and cold, as if she’s already dead. 
+I reached out, and I took her hand. Her skin was white and cold, as if she was already dead. 
 
 ***EMMAEMMAEMMAEMMAEMMAEMMAEMMABANGBANGBANGBANGBANG!***
 
@@ -143,9 +140,7 @@ She scooted closer to me, resting her head on my shoulder at an awkward angle. �
 
 Then, the bathroom door gave way. 
 
-
-
-When the police arrived, I told them the truth. I didn’t know what else to say. I was far too out of it to make up a story. So, after hours of interrogation and psych evaluation, I was finally released to go home and scrub her blood off of me. Probably because it was impossible to fathom how I, one boy, could possibly do to her what was done to her. 
+When the police arrived, I told them the truth. I didn’t know what else to say. I was far too out of it to make up a story. So, after hours of interrogation and psych evaluation, I was finally released to go home and scrub her blood off of me. Probably because it was impossible to fathom how I, one boy, could possibly do to her what was done to her.
 
 It brought me no relief. 
 
