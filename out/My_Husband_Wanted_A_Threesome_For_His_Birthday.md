@@ -16,7 +16,7 @@ We negotiated some ground rules and he set up a meeting. When I got there, the f
 
 When Jenny arrived, we sat around chatting nervously and drinking wine (mostly me), and then we got to it. I was nervous, but I think it went ok. My husband paid sufficient attention to me, stuck to our rules, and seemed to have a good time. In the morning, we said goodbye and sent her on her way. 
 
-But then he began asking when we could do it again. I reminded him that I’d said one, but then he asked “didn’t you have a good time?” And the pressure started. I also noted that my hair was a little shorter in one spot, and there was a locket I couldn’t find. But it wasn’t a big deal - I just wanted to get back to our normal life. 
+But then he began asking when we could do it again. I reminded him that I’d said once, but then he asked “didn’t you have a good time?” And the pressure started. I also noted that my hair was a little shorter in one spot, and there was a locket I couldn’t find. But it wasn’t a big deal - I just wanted to get back to our normal life. 
 
 The next week, we were out when we ran into Jenny at the store. We got to talking, and she asked if we’d be up for a repeat. My husband said absolutely - when we left I asked him what the hell he was doing, but he just said he thought I’d be into it. After several conversations, I gave in and we scheduled another get-together. 
 
