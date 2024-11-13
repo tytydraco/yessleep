@@ -474,12 +474,9 @@ It brings to mind that old saying: ‘Better the devil you know than the devil y
 
 I'll be honest with yinz, I don't know about this one. I really don't. The idea of him being around forever, even with his name to keep him in line, makes my blood boil. However, if he is telling the truth, getting rid of him could prove to be more trouble than it's worth. I know Victor confirmed that the Neighbors can't lie, but Iolo is manipulative as hell. His word isn't trustworthy. 
 
-I've got some time to figure it out. Pushing myself so hard made the pneumonia angry at me, so I'm taking some time off to wallow in mucous and dread. 
+I've got some time to figure it out. Pushing myself so hard made the pneumonia angry at me, so I'm taking some time off to wallow in mucous and [dread](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Edit: The beginning of the mechanic's name starts with an "I" even though it looks like an "L," thanks to this typeface. It's some old Welsh name. 
 
 [I'm sick and bored, here's a story from my childhood. ](https://www.reddit.com/r/nosleep/s/lY85ZUJkKQ)
-
-[(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
-
 

@@ -1,6 +1,6 @@
 I'm writing this here because I don't know what else to do.
 
-Let me start from the start. I lived with my two roommates, Carmen and James, in a typical millennial grey apartment off-campus. The three of us shared a fridge, and space was pretty tight, but we'd worked out as good system to avoid disagreements—ensuring that each of us had our own shelf, and anything in other areas of the fridge was labelled.
+Let me start from the start. I lived with my two roommates, Carmen and James, in a typical apartment off-campus. The three of us shared a fridge, and space was pretty tight, but we'd worked out as good system to avoid disagreements—ensuring that each of us had our own shelf, and anything in other areas of the fridge was labelled.
 
 Carmen and James had been living in the apartment for a semester prior to me moving in, and while I was worried initially that the two of them might be cliquey, they were very welcoming. Both of them were straight-talking and adult without being rude or blunt, which was so refreshing after my experiences with some terrible roommates in places I'd lived before.
 
