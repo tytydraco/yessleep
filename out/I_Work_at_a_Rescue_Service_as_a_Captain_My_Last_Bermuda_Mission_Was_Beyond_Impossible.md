@@ -1,4 +1,4 @@
-They call me a captain, but some days it feels like I’m just a ferryman for the damned, navigating waters that seem to reject reason itself. The sea and I have an understanding—its beauty, its cruelty, and the cold certainty that it plays by no one’s rules. But the Bermuda Triangle is something else entirely; it bends reality, unravels time, and devours those who dare intrude. When the distress call came—a stranded liner supposedly overtaken by pirates—I felt the lie beneath the words. The Triangle doesn’t play by human rules, and pirates are the lies people tell themselves to sleep at night. Still, I lit a cigar and steeled myself, staring into the mist that consumed the horizon. Fear has no place on the bridge, not for a captain, not when lives hang in the balance. Whatever waited out there, it was my job to face it and bring my crew back—even if the sea demanded its due.
+The sea had taken many things from me over the years—friends, crew, even pieces of myself—but it had never taken my sense of duty. A captain’s burden is the lives of others, and every decision weighs heavier when those lives hang by a thread. I’d made mistakes before, the kind that leave scars no storm can wash away, but I’d always sworn to put my crew and those in need above all else. That’s why I answered the distress call, even though it came from the Bermuda Triangle—a place where sailors vanish, and reason unravels. I didn’t trust the call, but I trusted my purpose: to bring people home, no matter the cost.
 
 The distress signal came three days ago. A luxury liner, *Starfall Horizon*, stranded deep within the Bermuda Triangle, had stopped responding to all communication. The passengers were reportedly taken hostage by a group of pirates. Maritime law and duty made it my job to intervene, but this wasn’t my first brush with the strange and treacherous waters of the Triangle. I knew better than to trust a simple explanation in this cursed expanse.
 
@@ -276,8 +276,8 @@ Maclin nodded, but neither of us spoke as the **Aegis** moved away from the wrec
 
 The Parasite King was dead, but the slime, the infection, the creatures—they weren’t just random horrors. They were part of something larger, something far older and more terrifying than I could imagine. And as much as I wanted to believe we’d left it behind, a part of me knew the Triangle wasn’t done with us yet.
 
-But that was a worry for another day. 
+But that was a worry for another day.
 
-For now, we were alive. 
+For now, we were alive.
 
 And for a captain, that was enough.
