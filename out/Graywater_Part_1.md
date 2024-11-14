@@ -164,10 +164,10 @@ We started walking back to the directory by the parking garage, cutting across t
 
 As we walked up to the triangular prism coated in maps, one side of it caught my eye. I stepped around, and felt my head flush. Written in blood, there was a red arrow lining the entire route all the way to the hospital. It was circled and red lettering wrapped around it that said *“You couldn’t. What makes you think they can?” Who’s taunting me? What is this?* I wondered. I could feel Ryan’s gaze on me. As if he was questioning my thoughts without being able to hearing them. I was determined to get all THREE of us out of here. Together.
 
-According to the map, the hospital around 2 miles southeast of us. That’s all I needed to know. I looked around at the surrounded buildings to get my directional bearings. I pointed southeast-ish.
+According to the map, the hospital was around 2 miles southeast of us. That’s all I needed to know. I looked around at the surrounded buildings to get my directional bearings. I pointed southeast-ish.
 
 “Let’s go then.” 
 
 ——
 
-I need to catch my breath and collect myself. There’s so much a need to scavenge through in my head to make this comprehendible.
+I need to catch my breath and collect myself. There’s so much I need to scavenge through in my head to make this comprehendible.
