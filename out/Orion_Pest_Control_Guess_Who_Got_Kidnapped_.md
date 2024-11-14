@@ -294,13 +294,9 @@ I wish I could end this update on a positive note. Just know that I have hope.
 
 Something yinz need to know is that Orion will have to do some mutual aid for another specialty pest control provider in the next week. We'll be working with Victor's old employer, the River Kingz Pest Specialties, located near Cuyahoga Falls in Ohio. I can't give any details at the moment, just know that it's… a situation. 
 
-I’ll fill yinz in when I can. We're making the journey out tomorrow. And I’ll have to make it back before my evil fairy godfather decides to turn me into a pumpkin. 
+I’ll fill yinz in when I can. We're making the journey out tomorrow. And I’ll have to make it back before my evil fairy godfather decides to turn me into a [pumpkin](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Update: First day of sword training. Also, [we're hiring. ](https://www.reddit.com/r/nosleep/s/fsxMLDglMG)
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
-
-
 
 
 
