@@ -53,7 +53,7 @@ As we wound between an endless sea of pine trees, I couldn’t help but feel shi
 *Gr ywa e 1|0
 Portland 75*
 
-I couldn’t help but tighten my grip on the steering wheel. *Why would you go home? I thought. Why wouldn’t you tell us? What the hell kind of bender are you on?* No matter how I tried to put the pieces together in my head, I could never find the answers to the questions swirling in my head.
+I couldn’t help but tighten my grip on the steering wheel. *Why would you go home?* I thought. *Why wouldn’t you tell us? What the hell kind of bender are you on?* No matter how I tried to put the pieces together in my head, I could never find the answers to the questions swirling in my head.
 
 The radio caught my ear, snapping me back to reality. I reached down, pinched the volume knob and turned it slightly up. 90’s punk rock spun around the car. I could feel Luke’s energy in there with us. I let him and the familiar music wind me down even more familiar dense forest roads and buried memories…
 
