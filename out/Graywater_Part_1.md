@@ -79,7 +79,7 @@ Luke was knocked out, his vitals had evened out, and he was on a full saline dri
 
 “No, please. I….I don’t want to sleep. I’ll be good, please.” He’d beg, jerking his arms away from them. He was completely delirious. Ryan was sleeping on one of those shitty blue couches they always have in those rooms, and I had pulled up a chair next to Luke’s bed. *Why, Luke? Why can’t you give this up? Why can’t you just let us help you out of this for good?* I laid my head on a spare pillow I had fixed on the side of bed, and sobbed. I desperately wanted my friend back.
 
-____
+——
 
 Present day.
 
