@@ -162,7 +162,7 @@ Ryan wasn’t losing it. The bar was baron. Not a soul wandered between its wall
 
 We started walking back to the directory by the parking garage, cutting across the park to save time. The soft dead grass crunched lightly beneath my shoes. We passed completely  abandoned cars slightly parked on the sidewalk. Open balcony doors of second floor apartments with curtains blowing in the breeze. The trees drooped and their leaves had started to fall ever so softly the ground.
 
-As we walked up to the triangular prism coated in maps, one side of it caught my eye. I stepped around, and felt my head flush. Written in blood, there was a red arrow lining the entire route all the way to the hospital. It was circled and red lettering wrapped around it that said *“You couldn’t. What makes you think they can?” Who’s taunting me? What is this?* I wondered. I could feel Ryan’s gaze on me. As if he was questioning my thoughts without being able to hearing them. I was determined to get all THREE of us out of here. Together.
+As we walked up to the rectangular prism coated in maps, one side of it caught my eye. I stepped around, and felt my head flush. Written in blood, there was a red arrow lining the entire route all the way to the hospital. It was circled and red lettering wrapped around it that said *“You couldn’t. What makes you think they can?” Who’s taunting me? What is this?* I wondered. I could feel Ryan’s gaze on me. As if he was questioning my thoughts without being able to hearing them. I was determined to get all THREE of us out of here. Together.
 
 According to the map, the hospital was around 2 miles southeast of us. That’s all I needed to know. I looked around at the surrounded buildings to get my directional bearings. I pointed southeast-ish.
 
