@@ -1,0 +1,26 @@
+
+I had another terrifying dream. I found myself in a house that felt oddly familiar, like a bigger version of an old one-story home I used to know on Malvern, except everything was blindingly white and strangely empty. It was simple yet unsettling. My mom was lying on her bed in her room, calm, almost unaware of the creeping darkness around us.
+
+I stepped outside and noticed moving trucks parked to the left, but something else caught my eye. The entire front of the house was covered in graffiti—not just any graffiti, but symbols and strange words, like some kind of code or curse I couldn’t decipher. The vibrant colors—red, yellow, blue—clashed against the stark white, almost glowing in the dim light, as though the walls themselves were alive with a message I couldn’t understand. The paint had even spread to the trucks, winding around them like vines.
+
+Suddenly, I heard my mom’s voice—a muffled, gargled scream coming from her room. My heart froze as I turned and saw the curtains of her window wide open. Rushing over, I peered inside, and there she was, lying with her arm draped across her body, resting near her chest and stomach. A knife with a black plastic handle was lodged in her forearm. For some reason, it was only her arm, and I couldn’t figure out why that detail mattered, but I didn’t question it. I just bolted inside, shouting, “Mom, are you okay? What happened?” She looked at me, dazed and in pain, and said, “Something stabbed me.”
+
+I called 911, frantic, but only an ambulance arrived—and even that felt wrong. It wasn’t a real ambulance but an old beige minivan with windows that weren’t even tinted black; they were tinted beige, painted over as if to blend in completely. A young woman, unfamiliar and unsettlingly calm, approached us. My mom hesitated, whispering she didn’t want to go to Kaiser, the local hospital. The woman in beige shrugged, offering other hospitals like Hoag, which my mom agreed to, but something still felt off. We eventually decided on Cedars, a longer drive but somehow comforting, as though we’d be safer there.
+
+Then, without reason, it was suddenly night, and Mom was still in pain, back in the house, the same house, like we’d never left. I couldn’t shake the feeling that someone was watching us, so I started gathering any clues I could find, hoping to piece together what was happening.
+
+Outside, I saw a car slowly passing by with a group of people inside, each one strange and threatening. There were six of them, all with a sinister, almost cholo gangster look. The men were bald, with goatees and mustaches, tattoos snaking up their necks, their eyes cold and unyielding. The three women had a more feminine yet intense look—dark lipstick, sharply drawn eyebrows, and a mix of loose and tied-up hair, wearing form-fitting flannels in classic chola style. They watched us with an unsettling familiarity, like they knew us and enjoyed the fear they stirred.
+
+But something kept nagging at me. I kept trying to remember—did I see these people in the house? Had they been inside? How did the person who stabbed my mom escape so quickly? I was just with her in the room moments before. Then, within minutes, I heard her scream, and by the time I ran in, he was gone. I couldn’t stop thinking: was he hiding somewhere, maybe in the corner, just out of sight, waiting until I’d left the room? I was so focused on my mom that I didn’t even look for anyone else. How did he get out without me seeing him?
+
+Back in her room, I found strange objects they’d left behind: bottles of liquid with odd, floating substances inside—something that looked like raw meat, or maybe worse. It felt like a warning, some sort of twisted ritualistic token meant to intimidate us.
+
+Then, I went into the garage. The garage was identical to the one I remembered from Malvern: cluttered, dark, and thick with memories. Amid the junk, I found a piece of paper with something scrawled on it, though I couldn’t read it. I felt certain it was a message from whoever was tormenting us.
+
+As I went back outside, a police officer arrived. He was an older, heavyset cop, the kind you’d imagine from the 1980s with that classic trench coat and a clean-shaven face. His hair was neatly trimmed, like a cop who still took pride in his appearance, even as age crept in. His voice was deep and scruffy, with just enough gravel to make it sound stern but still clear. He looked annoyed, almost angry, that I was investigating on my own. He told me to leave it to them, but I didn’t care. This was my mom. I remember saying, “Over my dead body.”
+
+Then everything shifted, as though the house and street folded back into themselves, and I awoke.
+
+Even awake, the images were vivid, each detail etched in my mind. It was like being there, moving from place to place with ease, no choppiness or confusion—just a terrible, unbroken clarity. It wasn’t a dream I could shake off; it felt like a place, a place waiting for me to return.
+
+(Sent to me by a friend with permission to publish)
