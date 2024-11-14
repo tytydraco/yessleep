@@ -34,7 +34,7 @@ I locked the door to my apartment and walked briskly down the stairs to the park
 
 Luke was incredibly predictable. He developed patterns, just like the rest of us. We could always tell when Luke was about to take a step too far and fall over the edge. This time was different, though. No warning. He was just gone. No clothes packed, no note left on our counter telling us how sorry he was for fucking us over again. Just a cold, empty space on my couch and a strange letter that came in the mail after the fact.
 
-I looked over at the clock. It blinked 10:00. *We’re coming buddy.* I’d hoped my thoughts would transmit to him. I was sending him warm frequencies to let him know he wasn’t alone. I’d hoped he could heard me. 
+I looked over at the clock. It blinked 10:00. *We’re coming buddy.* I’d hoped my thoughts would transmit to him. I was sending him warm frequencies to let him know he wasn’t alone. I’d hoped he could feel me too. 
 
 ——
 
@@ -44,7 +44,7 @@ Jumping in my seat, the seatbelt locked as I realized I was drenched in sweat. M
 
 Ryan opened the driver side door, and sat down. He held out a drink to me.
 
-“He lives!” He cackled. “You conked out man. I got you something, it’s almost your turn to drive.”  He held out a bright red energy drink. I gladly accepted it; those days I survived solely on caffeine. I looked at the clock. 12:30. “Dude you look like you’re gonna hurl. You alright?” No, I had never been more not alright but I couldn’t bring myself to tell him that.
+“He lives!” He cackled. “You conked out man. I got you something, it’s almost your turn to drive.” I gladly accepted it; those days I survived solely on caffeine. I looked at the clock. 12:30. “Dude you look like you’re gonna hurl. You alright?” No, I had never been more not alright but I couldn’t bring myself to tell him that.
 
 “Yeah, yeah. Just anxious. I’m ready to get Luke the fuck out of Graywater.” I was only half lying. Wiping the sweat from my face, I cracked open the can and took a deep swig. “I’m good to switch out if you want to get some rest.”
 
@@ -55,13 +55,13 @@ Portland 75*
 
 I couldn’t help but tighten my grip on the steering wheel. *Why would you go home? I thought. Why wouldn’t you tell us? What the hell kind of bender are you on?* No matter how I tried to put the pieces together in my head, I could never find the answers to the questions swirling in my head.
 
-The radio caught my ear, snapping me back to reality. I reached down, pinched the volume knob and turned it slightly up. *1979* by The Smashing Pumpkins spun around the car. I could feel Luke’s energy in there with us. I let him and the familiar music wind me down even more familiar dense forest roads and buried memories…
+The radio caught my ear, snapping me back to reality. I reached down, pinched the volume knob and turned it slightly up. 90’s punk rock spun around the car. I could feel Luke’s energy in there with us. I let him and the familiar music wind me down even more familiar dense forest roads and buried memories…
 
 ——
 
 2 Years Ago. October 15th 12:53am.
 
-*1979* was playing on Ryan’s radio. The windows were down, filling the car with fresh cold oxygen. We were leaving Judy’s, the local dive bar our friend group, along with the rest of the college aged population, frequented. We’d spent the night under the glow of a lone red light on the balcony, overlooking the streets of downtown. Ryan was driving, as he preferred to DD after his uncle died in a died in a drunk driving accident. I was in the middle seat in the back, trying to keep my recently sweaty hair out of my eyes.  I promised myself I’d keep it cut shorter after this. My right hand was firmly placed on the back of Luke’s neck. We were flying through town way too fast for comfort. But there was no time to think about speed limits. Luke had the worst alcohol poisoning I’d personally ever witnessed, and we were on our way to the emergency room.
+Rock music was playing on Ryan’s radio. The windows were down, filling the car with fresh cold oxygen. We were leaving Judy’s, the local dive bar our friend group, along with the rest of the college aged population, frequented. We’d spent the night under the glow of a lone red light on the balcony, overlooking the streets of downtown. Ryan was driving, as he preferred to DD after his uncle died in a died in a drunk driving accident. I was in the middle seat in the back, trying to keep my recently sweaty hair out of my eyes.  I promised myself I’d keep it cut shorter after this. My right hand was firmly placed on the back of Luke’s neck. We were flying through town way too fast for comfort. But there was no time to think about speed limits. Luke had the worst alcohol poisoning I’d personally ever witnessed, and we were on our way to the emergency room.
 
 If he wasn’t choking up his typical jager-dark beer potion, he was completely unconscious. He had already spilled his bladder, several times, and he was muttering strange phrases.
 

@@ -18,19 +18,19 @@ On October 17th, 1998, Heather and Alisha biked from their homes to the Bertrand
 
 But 8:00 pm came and went, and the girls’ bikes remained untouched in the parking lot. No one had seen them. No one had heard from them. By then, Heather and Alisha’s parents were frantic. They’d already called 911, and a couple of officers had gone out to the Bertrand Nature Preserve to search for the missing teens. All they found were the bikes, still chained up outside the nature center.  
 
-Over the following weeks, a huge search party combed the mountains. Hundreds of volunteers and SAR personnel checked behind every tree, looked within every bush, and turned over every rock, searching for clues. They found nothing! 
+Over the following weeks, a huge search party combed the mountains. Hundreds of volunteers and SAR personnel checked behind every tree, looked within every bush, and turned over every rock, searching for clues. They found nothing!
 
-Eventually, the news reports stopped. The missing posters on telephone polls and outside shops started to fade, fall off, or were even pasted over with fliers advertising local bands or politicians running for upcoming elections. As sad as it was, the case would’ve disappeared into total obscurity were it not for a strange discovery almost two years later. 
+Eventually, the news reports stopped. The missing posters on telephone polls and outside shops started to fade, fall off, or were even pasted over with fliers advertising local bands or politicians running for upcoming elections. As sad as it was, the case would’ve disappeared into total obscurity were it not for a strange discovery almost two years later.
 
-In 2000, a local Boy Scout troop was camping in the Bertrand Preserve when one of the kids stumbled upon a rusted single-lens reflex (SLR) camera half-buried in the dirt near their campsite. He didn’t know it then, but the boy had just discovered Heather’s most prized possession. She’d taken the camera with her on that fateful day in October two years prior. 
+In 2000, a local Boy Scout troop was camping in the Bertrand Preserve when one of the kids stumbled upon a rusted single-lens reflex (SLR) camera half-buried in the dirt near their campsite. He didn’t know it then, but the boy had just discovered Heather’s most prized possession. She’d taken the camera with her on that fateful day in October two years prior.
 
 When the authorities developed the camera’s film roll, they uncovered a breakdown of that day’s events. The first half of the pictures are known colloquially as **The** **Day Shots**. These pictures were all timestamped on October 17th, 1998, likely taken over two to three hours while the girls were on their hike. The photos showed squirrels scurrying among the canopy, alien-like mushrooms growing on the moist ground, and various angles of Alisha hiking up to Bald Head Rock. There were shots of Alisha silhouetted against the afternoon sun and others showing her disappearing into an endless forest. Heather had a good eye for composition, and she knew how to make the most of natural lighting. It’s sad looking at the Day Shots now because you can see the raw talent of a burgeoning artist finding her voice. She would’ve made a great photographer had she come home that day. 
 
-Another thing people noticed was the way Heather captured Alisha’s beauty in the photos, the way she brought out her best friend’s hazel-green eyes, and accentuated her sharp facial bone structure using a juxtaposition of light and shadow. There was already speculation among their classmates that Heather had a crush on Alisha. Some even believed they were a couple, though Alisha had many boyfriends in high school, and there was no evidence the two girls had ever hooked up. Some speculated that Heather may have killed Alisha after she’d rejected Heather’s advances, and then Heather killed herself. But there was no evidence of this from eyewitnesses or the photos themselves.  
+Another thing people noticed was the way Heather captured Alisha’s beauty in the photos, the way she brought out her best friend’s hazel-green eyes, and accentuated her sharp facial bone structure using a juxtaposition of light and shadow. There was already speculation among their classmates that Heather had a crush on Alisha. Some even believed they were a couple, though there was no evidence the two girls had ever hooked up. Some speculated that Heather may have killed Alisha after she’d rejected Heather’s advances, and then Heather killed herself. But there was no evidence of this from eyewitnesses or the photos themselves.  
 
 What was clear from The Day Shots was that both girls had a zest for life. They were having fun and goofing off. There were even some forced-perspective photos of Heather and Alisha pretending to eat a downed tree. These pictures contradicted one of the authorities’ early theories regarding the girls’ disappearance: that they might have taken their own lives due to depression. It was a reasonable theory, given that both girls were bullied at school and had no real friends outside of each other. But they never left a note, and neither their parents nor their classmates felt they were depressed. 
 
-What really got the authority's attention was a second set of photos on the roll. They called them--  
+What really got the authority's attention was a second set of photos on the roll. They called them--
 
 **The Night Shots.** 
 
@@ -40,7 +40,7 @@ The photos on Heather’s camera were never officially released to the public. T
 
 There was a popular theory that the girls had gone off the trail and became lost, and The Night Shots were a way of signaling rescuers with the camera flash. There was a massive search of the Bertand Nature Preserve on Halloween 1998. The SAR personnel were likely close to the girls at that time. 
 
-Another popular theory posited that the girls became incapacitated. Perhaps they had got lost and then fallen off the trail in the dark. Both girls were too injured to hike out. Many believed Heather had died from her fall, and Alisha used the camera to see her friend and get a bearing on where they had landed. 
+Another popular theory posited that the girls became incapacitated. Perhaps they had got lost and then fallen off the trail in the dark. Both girls were too injured to hike out. Many believed Heather had died from her fall, and Alisha used the camera to see her friend and get a bearing on where they had landed.
 
 Some armchair sleuths even believed Alisha had killed Heather, given the close-up of Heather’s bloodied scalp, though there was no clear motive for such a crime. Jealousy? A verbal fight that had escalated into something physical? Perhaps Alisha pushed Heather, causing her only friend to accidentally fall to her death. Alisha, overcome with guilt and worried that she would be arrested for murder, then took her own life, but not before providing a confession in the form of random photos. 
 
@@ -122,7 +122,7 @@ Sam sat back in his chair, studying me with pensive eyes. “I need an assurance
 
 “You don’t do this for the money, do you?” Sam asked. 
 
-“No. Of course not,” I said, though even at that moment, I was reminded of how often I'd hoped I could turn this side hustle into a full-time gig. Running a podcast was a lot of work and money, especially one that involved such heavy research, not to mention all the logistics involved with interviewing witnesses and loved ones. “I want to bring closure," I said. I’d always felt that the only thing worse than losing a loved one in a violent crime was having that person go missing instead. At least a murder gave you a definite answer. A missing person was like a never-ending haunting, a spirit taunting you with the possibility, however faint, of a miraculous return. 
+“No. Of course not,” I said, though even at that moment, I was reminded of how often I'd hoped I could turn this side hustle into a full-time gig. Running a podcast was a lot of work and money, especially one that involved such heavy research, not to mention all the logistics involved with interviewing witnesses and loved ones. “I want to bring closure," I said. I’d always felt that the only thing worse than losing a loved one in a violent crime was having that person go missing instead. At least a murder gave you a definite answer. A missing person was like a never-ending haunting, a spirit taunting you with the possibility, however faint, of a miraculous return.
 
 “You want the truth,” Sam said. 
 
@@ -142,17 +142,17 @@ As soon as I did, I noticed that Sam had brought much of his brother’s RV hoar
 
 “It’s fine,” I said. The house was dark and musty. A heaviness lingered in the air. It felt like walking underwater. 
 
-Sam led me to a kitchen table, the one pristine spot in the house. There, he pulled out a dusty photo album. It was big and black with a leather exterior. “I found the rest of his photos in here.” The album creaked as he opened it. 
+Sam led me to a kitchen table, the one pristine spot in the house. There, he pulled out a dusty photo album. It was big and black with a leather exterior. “I found the rest of his photos in here.” The album creaked as he opened it.
 
 Inside were pictures of roadside attractions, long stretches of highway, national parks, and random people. It looked like the photo journal of a relentless traveler. There were pictures of temperate rainforests in the Pacific Northwest, desert canyons, big cities, rest stops, and lots and lots of forests. Sam stopped as he reached a section with photos of the Appalachian Mountains. “This is where it begins.” 
 
 The first page showed pictures of the Bertrand Nature Center and parking lot. I leaned in. There were the girls’ bikes tied up outside. 
 
-Flip. Creak. 
+Flip. Creak.
 
 Pictures of the main hiking trail. Trees. Mountain vistas. 
 
-Flip. Creak. 
+Flip. Creak.
 
 There was the photo of Heather and Alisha, the same one Sam had shown me at Coffee Land. Alongside it were other photos of the girls: some of them smiling for the camera, others where they struck semi-serious poses like they were fashion models. They appeared to be having a great time.
 
@@ -194,9 +194,9 @@ I still didn’t take it. Instead, my hand shot to my iPhone. 
 
 “Very good, Brian. Very good.” Sam offered for me to take a seat at his kitchen table, but I stood right where I was, with a clear shot to the front door in case he tried anything. 
 
-"Fine. You can remain there." 
+"Fine. You can remain there."
 
-Sam grabbed the photo album and held it up for me to see its contents. He turned the pages. Creak… At first, I thought someone had scrawled over the photos with a red marker. But then I realized the crimson was part of the photos; each shot a different angle of the girls lying in a dark forest. They’d been ripped to shreds, limbs torn off, intestines splayed across the dirt. It was like a pack of wolves had killed them. 
+Sam grabbed the photo album and held it up for me to see its contents. He turned the pages. Creak… At first, I thought someone had scrawled over the photos with a red marker. But then I realized the crimson was part of the photos; each shot a different angle of the girls lying in a dark forest. They’d been ripped to shreds, limbs torn off, intestines splayed across the dirt. It was like a pack of wolves had killed them.
 
 I hunched over, fighting the urge to vomit. 
 
@@ -220,12 +220,14 @@ I sprinted for the front door, accidentally knocking over a tower of boxes on my
 
 —
 
-I called the cops as soon as I was back in my car, speeding away from Sam’s house of horrors. How could I not call them? That creature had to be stopped. 
+I called the cops as soon as I was back in my car, speeding away from Sam’s house of horrors. How could I not? That creature had to be stopped. 
 
-The police descended upon the location within the hour. By then, Sam, his RV, and photo album were gone. But the house was still full of hoarded junk and plenty of bones. A CSI team found the remains of forty victims in Sam’s demented collection. All of them were from missing-person cases,  cases that had grown icy over the years. I took some consolation in the fact that Heather and Alisha’s parents were among the first to be notified. 
+The police descended upon the location within the hour. By then, Sam, his RV, and photo album were gone. But the house was still full of hoarded junk and plenty of bones. According to the FBI team that interviewed me, investigators found the remains of forty victims inside. They wouldn't tell me who, but all were from missing-person cases.
 
-When the FBI brought me in for questioning, I told them everything I’ve just told you. They think Sam is some deranged serial killer, not a supernatural entity. That last part was just a fear-induced hallucination, at least according to my therapist. 
+When they brought me in for questioning, I told the agents everything I’ve just told you. They responded by handing me a massive NDA. For some reason, the authorities are keeping a lid on all information regarding Sam, his house, and his connection with any missing persons cases, including Heather and Alisha. They've even scrubbed the Internet and forced me to remove all traces of my podcast, *Eidolon*. I kept asking them why, but the agents never gave me a reason, just some vague bullshit like "it could jeopardize our investigation."
 
-There’s currently a nationwide manhunt for my biggest fan. Charnel Sam is out there somewhere, roaming the highways, looking for his next meal. I’ve gone into hiding, too. Witness Protection. The authorities claim Sam will never find me or my family here, but I don’t believe them. I broke Sam’s promise. He’ll never let me forget that. 
+There’s supposedly a top-secret nationwide manhunt for my biggest fan. Charnel Sam is still out there, somewhere, roaming the highways, looking for his next meal. I’ve been forced into hiding, too. Witness Protection. The FBI says Sam will never find me or my family here, but I don’t believe them. I broke Sam’s promise. He’ll never let me forget that. 
 
-The only comfort I have now is the fact that if I were to disappear next, the FBI would immediately know who did it. Charnel Sam feeds on the mystery as much as he feeds on the flesh. That’s why I’ve posted this story. To warn the world. Because Sam’s most likely victim is someone who has never heard of him. Don’t let that someone be [you](https://www.reddit.com/user/BoxGoblin/)!
+But I won't rest until the truth is revealed. Charnel Sam feeds on mystery as much as he feeds on flesh. That’s why I’ve posted this story. I needed to warn the world since the police never will. Because Sam’s most likely victim is someone who has never heard of him.
+
+Don’t let that someone be [you](https://www.reddit.com/user/BoxGoblin/)!

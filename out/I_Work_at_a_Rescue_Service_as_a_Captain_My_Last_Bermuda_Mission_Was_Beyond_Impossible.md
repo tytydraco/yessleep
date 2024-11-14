@@ -248,15 +248,13 @@ I tackled Maclin out of the way just as the creature struck, its claws carving d
 
 The creature turned toward us, its eyeless head tilting again. The pulsing light beneath its skin grew brighter, faster, as though it was feeding off the energy of the room. The slime coating the walls began to ripple, spreading outward in a wave that made the entire hold feel alive.
 
-“We need to blow it now!” I shouted. “Set it off!”
+“Captain, we need to blow it, NOW!” Maclin shouted. 
 
-Maclin hesitated, his gaze darting to the rest of the crew still scattered around the hold.
-
-“There’s no time!” I yelled, grabbing the detonator from his belt.
+“Set it off, Captain!”
 
 The Parasite King lunged again, its movements impossibly fast. I rolled to the side, the detonator clutched tightly in my hand. My breath came in ragged bursts as I struggled to find an opening. The creature loomed above me, its claws raised for a killing strike, when a blast of fire caught it in the side. One of the crewmembers, bloodied but alive, had picked up a flamethrower and was pouring flames into the creature’s exposed core.
 
-“Do it, Captain!” Maclin screamed.
+“Do it, Captain!” he bellowed, his voice straining against the chaos around us.
 
 I pressed the detonator.
 
