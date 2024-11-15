@@ -379,3 +379,4 @@ She also said that she wants to gauge the Huntsman's reaction to the news of my 
 
 On another note… Nessa has asked if she can publish my account of events, provided that I'm comfortable with it. Admittedly, I'm nervous to have my private thoughts put before the eyes of strangers, but in the end, it might not be a terrible idea to have a few more sets of eyes to look over our circumstances. It's entirely possible that there is something we are missing that someone else could [see](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
+Update: We had another [human infestation. Ugh!](https://www.reddit.com/r/nosleep/s/0BckGm9j2a)
