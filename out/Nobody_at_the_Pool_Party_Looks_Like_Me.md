@@ -32,6 +32,4 @@ My heart lights up as a shape crawls and tumbles. I realize, to my delight, that
 
 I whisper through tears of joy. “You came for me, even though I look wrong now.”
 
-Anju smiles as she holds me. “I’ll always be here for you, sis, no matter what you look like. A pair like us belongs together.”
-
-[X](https://www.reddit.com/r/PeaceSim/)
+Anju smiles as she holds me. “I’ll always be here for you, sis, no matter what you look like. A pair like us belongs [together.](https://www.reddit.com/r/PeaceSim/)”
