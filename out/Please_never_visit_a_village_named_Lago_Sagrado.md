@@ -1,0 +1,84 @@
+I think I really messed up. I've always been a huge fan of horror and enjoy researching rituals, cursed places, creatures, and stuff like that. So, when I received a letter in my mailbox last week, containing something along those lines, I was immediately excited.
+
+Some people might have questioned why they'd receive such an anonymous message, but not me. I specifically have a website with my address for this very purpose—so I can receive these kinds of letters. Of course, I also have an email address for it, but for some reason, many people still prefer good old-fashioned paper for this sort of thing. Anyway, here's what the letter said:
+
+**"Dear Mr. Jackson,**  
+**I’ve read about your interest in the paranormal. Here in Lago Sagrado, we have something that will surely captivate you—assuming the distance doesn’t deter you from visiting. As you might guess from the name, our humble village is by a lake. This lake is why I’m writing to you.**
+
+**It’s beautiful, no question, especially under the moonlight, but it harbors a secret. Allegedly, an ancient lake monster feared by the Native Americans before our time dwells here. Stories passed down through generations all revolve around what happens every 99 years during the tenth week of the year at this lake.**
+
+**If you are brave—or foolish—enough, I invite you to find out for yourself. I’ll meet you at the edge of the village on the Sunday of the ninth week next year and guide you to a secluded house where you can stay for the week. If you know others who might be interested, feel free to bring them along, as the house has five beds."**
+
+ 
+
+On the back was a hand-drawn map showing the way to Lago Sagrado. At first, I wondered why someone would use a map in this day and age. But when I tried searching for the location on Google Maps, nothing came up.
+
+I should have dismissed it as a prank and moved on. Instead, I photographed the letter and shared it in a group chat with my friends—most of whom aren’t as into creepy stuff as I am—asking if they’d be up for checking it out. After some back-and-forth, we decided to take a trip. Worst case? If the place turned out to be a bust, we’d drive to the nearest city for a week’s vacation instead.
+
+So, we—me, Josh (my childhood best friend), his girlfriend Brittany, Marc (a school friend), and Marc's twin brother Anthony—set off for Lago Sagrado. I believe Josh and I were the only ones in our group who truly hoped the village was real.
+
+After hours on the road and crossing a border, we came to the first turn, which wasn’t on Maps but clearly existed in reality, even though it was an unpaved road. Brittany protested, but curiosity got the better of us guys, and with Marc driving, we pressed on.
+
+About half an hour later, on unmarked roads, we reached our destination. From a distance, we saw the letter’s author—a very old man with a long white beard and a bald head. Despite the chilly weather, he wore thin, outdated clothing. He introduced himself as José Guzman and led us to the village.
+
+The village looked old but impeccably maintained. There were only about 50 houses, and most of the residents we saw were as elderly as José but looked quite friendly. After a brief tour, José showed us to the house where we’d be staying. It was spotless and stocked with food, as the village had no shops, and supplies allegedly arrived only on Sunday mornings for all residents.
+
+Since it was already quite late, we spent the rest of that Sunday making ourselves something to eat and inspecting the house from the inside. Unsurprisingly, the interior also looked like it was straight out of the early 20th century. There was no television or internet, but there was a very retro-looking refrigerator, which had a lot of meat in it. For some reason, we simply assumed that the inhabitants were extremely nostalgic and that the ageing population was a result of younger people moving away due to the village’s isolated location. Obviously, this was a gross underestimation of the reality, but the actual truth was beyond anything anyone could have anticipated.
+
+The next morning, José knocked on our door promptly at sunrise. None of us were awake yet, and he didn't seem like he was going to stop knocking until someone answered. Begrudgingly, I dragged myself half-asleep to the door to ask him what he wanted. He insisted that everyone in the village had to gather at the main square within 400 seconds of sunrise. When I pointed out that my friends weren’t even awake yet, he remained adamant, warning that if we didn't make it in time, we’d have to leave immediately and that he’d invoice us for the overnight stay. He even mentioned we could come in our pajamas if necessary.
+
+Reluctantly, I woke up my friends, and we hurried to the square in our sleepwear and jackets, determined to comply, if only to uncover more about the lake creature. When we arrived, the villagers were just starting to count down the last 20 seconds in unison. As they hit zero, José closed the small gate that marked the only entrance to the fenced-in area where we stood. Following that, a list of all the residents was read aloud, and each person raised their hand in response, acknowledging their presence. We couldn’t help but laugh a little, as it felt oddly reminiscent of roll call back in school.
+
+When they finished, they read our names as well. We raised our hands, and afterward, everyone was free to leave. On the way back, Brittany scolded me, accusing me of having given out our full names, and likely even our addresses and phone numbers too. However, I began to feel uneasy because while José could have known my name from my website, I had not shared my friends' names anywhere. I resolved to ask him about it at the earliest opportunity.
+
+That opportunity came soon enough, as about 15 minutes later, José returned to our house. He wanted to show us the lake and encouraged us to swim in it, claiming it was a thermal spring and therefore comfortably warm despite the season. When I asked how he knew my friends' names, he simply replied that we had told him the previous evening and must have forgotten. In hindsight, I am fairly certain that was a lie, but at the time, it seemed plausible enough.
+
+So, we put on our swimsuits and followed José to the lake, which was only about 100 meters away. It was surrounded by stone walls, making it accessible only from a single entry point. Admittedly, swimming in a lake rumored to harbor a monster wasn’t the brightest idea, but most of us didn’t believe in monsters anyway. Josh and I, eager to search for signs of the creature, brought snorkels and diving masks I had packed for this very reason. However, the water was so opaque that even with the snorkels, we couldn’t see the bottom despite its shallowness. Disappointed, we gave up our search for the day after an hour and joined the others for a bit of water play before heading back to our house for a late lunch.
+
+The rest of the day was spent lamenting the lack of internet and passing time with board games. The following two days were quite similar: we attended the bizarre attendance checks, searched for clues about the lake monster, swam, and entertained ourselves with board games. We had little interaction with the villagers, most of whom seemed to speak only Spanish—which, to be fair, was not unexpected in a Spanish-speaking country.
+
+On Thursday, however, things took a stark turn. One of the villagers, a man named Hernando Lopez, was late for the morning roll call and tripped on his way to the gate, missing the cut-off as José closed it just a meter before he arrived. Hernando broke into tears and walked toward the lake. His absence from the roll call was met with nothing more than a somber “desafortunado”.
+
+The rest of the day unfolded as usual for us, until Josh found Hernando’s coat at the edge of the lake that afternoon. Without telling the others, we took the coat to José’s house. To our surprise, he opened the door before we even had a chance to knock. Laughing, he said he had been missing “his” coat. When we pointed out that it seemed to belong to Hernando Lopez, José denied the man’s existence, claiming no such person lived in the village. Unwilling to let him gaslight us, we refused to hand over the coat unless he showed us the roll call list. Begrudgingly, he agreed—and sure enough, there was no Hernando Lopez listed.
+
+Though unsettled, we decided to drop the matter, leaving the coat with José and returning to the lake. There, we asked the others if they remembered the man who had stumbled during the roll call. Strangely, they all denied seeing anyone fall. That day, during our diving attempts, I discovered a small cave entrance underwater. However, it was too late in the day to explore it, so I resolved to investigate it the following day.
+
+On Friday, Anthony, who had been nursing a sore throat the day before, joined us for the roll call, which now lacked an Hernando Lopez, but chose to stay in bed afterward. He said he felt too unwell to swim or play, preferring instead to sleep. During our search at the lake that day, I stumbled upon a muddy imprint on the shore—a large fin-like mark far too big to belong to any fish that could live in such a small lake. Excitedly, I called Josh over and snapped a few photos. We were both ecstatic, far more than we should have been, given the circumstances. We called Brittany and Marc over to show them, but their reactions were far less enthusiastic. Brittany was especially concerned, fearing the mark was left by something dangerous, like a shark.
+
+While we debated its origin, Anthony suddenly appeared, fuming and cursing José. He called him a “crazy, senile old man” and ranted about “those demented cultists.” As it turned out, José and two other villagers had entered our house while Anthony was alone, doused him with a bucket of water, and declared him “blessed five times.” Then, without another word, they left. This was the last straw. We decided it was time to pack up and leave immediately.
+
+At that moment, a now-familiar voice with a Spanish accent called out to us: “My friends, you can’t leave without seeing the monster!” Anthony charged toward him, seemingly ready to throw a punch, but he was stopped short when José pulled an old firearm from beneath *his* coat and fired at Anthony. Anthony let out a piercing scream, as his right hand was evidently severely injured. “It is done!” shouted the old Mexican man just as the lake water mixed with Anthony’s blood.
+
+We immediately rushed to our friend’s side, but suddenly, a snake-like creature about 20 meters long with fins just behind its head rose from the water, drawn by the blood. We froze in place, unable to process the chaos that had unfolded in the last few seconds. We were trapped with the monster, as José blocked the exit, now joined by more men. The delight on his face didn’t suggest he thought the situation was particularly dangerous for him.
+
+As I considered whether climbing the roughly five-meter-high wall was a feasible escape plan, the creature lunged at the sitting, stunned Anthony and swallowed him in a single bite.
+
+“I do feel a bit sorry for such young people,” José said, almost mockingly, “but anyone foolish enough to voluntarily arrive here as our sacrifice shouldn’t complain. I hope our God of Eternal Life is exciting enough for the rest of your lives!”
+
+Marc was the first to react, bolting toward the beast. I assume he was trying to either avenge his brother or somehow rescue him. Either way, his attempt ended with the creature’s tail smashing him against the wall, leaving him to join Anthony shortly thereafter.
+
+At that moment, I remembered the cave. It wasn’t far from where we stood and was narrow enough that we could fit through, but the monster likely couldn’t. The questions I couldn’t answer, however, were whether the cave was only partly submerged and if it had an exit at all or whether we had to starve inside. Still, the chance of escape seemed better than facing a supposed god and several armed men without a weapon.
+
+I screamed for everyone to follow me and leapt into the water. Whether Josh and Brittany followed was honestly not my primary concern at that moment—I was focused on saving my own skin. However, I’m fairly certain at least Josh followed me, as I saw him behind me when I reached the cave’s entrance. What I also know for sure is that he never entered the cave with me. I assume he went back to try to save his girlfriend; he seemed like that kind of person. A brave, but stupid discission.
+
+The water stung my eyes, and I was running out of air when I finally surfaced inside the cave. Though I had scraped myself on the narrow tunnel walls, and the creature likely knew where I was, I felt relatively safe for the time being. Inside the cave, there was thankfully dry ground to stand on and some visibility, as sunlight shined through small cracks.
+
+I lay there for at least a minute, gasping for air, mentally shattered. Then, I finally stood up to search for an exit. What I saw first, however, were paintings on the walls, unmistakably depicting the monster along with what appeared to be a story involving human sacrifices. Either the paintings didn’t offer more detail, or I simply wasn’t in a mental state to interpret them further. Beneath the images, something was scrawled in blood in Spanish. Since I don’t speak the language, I didn’t retain much of it. The few words I did remember seemed to mean something like “strangers,” “sacrifice,” “century,” “more,” and “immortality.”
+
+I would have loved to photograph everything, but unfortunately, my phone broke during the escape through the underwater tunnel. After taking a brief look around, I stumbled onward and eventually saw a corridor that seemed to lead outside. Just as I was nearing the exit, I heard someone else entering the cave through the water tunnel.
+
+For a moment, I hoped it might be Josh or Brittany who had made it, but that hope was crushed by a string of Spanish curses echoing through the cave. I hurried out as fast as I could and heard a desperate, loud “¡No!” just as my foot stepped into freedom. At the same time, I felt a sharp pain in my left leg. I looked down and saw an old, completely rusted rapier embedded in it, apparently thrown by someone. When I turned around, my attacker was nowhere to be seen.
+
+At that point, I had already resigned myself to the likelihood of dying out here in the middle of nowhere. I could barely walk, was miles away from any civilization, and couldn’t go back to my car because it was parked in that cursed village full of lunatics. Limping a few meters from the cave entrance, I realized I had exited on the side of the rock wall that encircled the lake.
+
+What I saw next, however, wasn’t a horde of armed villagers charging toward me, but *Lago Sagrado*, completely in ruins, as if the town had been abandoned for ages. Everything was covered in sand, and my car was barely visible beneath it. Utterly confused, I made my way to the house where we had stayed the past week—my last hope. After digging through the sand for a while, I finally found Anthony’s phone, which he had left behind in his anger.
+
+The phone barely had any battery left since it hadn’t been charged in six days, but luckily, it hadn’t been used much either. While there was no signal in that desolate area, I managed to drag myself about a mile closer to civilization, where I could finally call for emergency help.
+
+At some point, I must have collapsed because I woke up in a hospital. For a brief moment, I hoped everything that had happened was just a nightmare. But that hope was crushed for good when police officers arrived to question me about why I had been found in the desert with the rusted blade of a 500-year-old rapier lodged in my leg.
+
+I told them everything that had happened, though I understand why the authorities believe I’m just a tourist who went on some wild drug trip with friends. At least they don’t think I killed them. Their theory is that all four of my friends likely died of dehydration somewhere in the desert while under the influence, as their bodies were never found.
+
+The police did, however, find my car in what they described as a long-abandoned village dating back to the European conquest of the Americas, buried under a sandstorm. They also recovered the rest of the rapier that had been stuck in my leg, along with many other artifacts of similar age.
+
+The one thing the authorities couldn’t explain was why the house we stayed in contained a destroyed refrigerator, over a hundred years old, with meat inside that was still perfectly edible.
