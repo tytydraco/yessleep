@@ -1,4 +1,6 @@
-Raucous music shook the window shutters as people paraded past, shouting and singing in memory of those they lost to the other world. Every year, on El Dia de Muertos, my small dilapidated shop shook. It was on the ground floor of a building so old the thundering footsteps outside reverberated through ancient wooden floorboards.  I watched the small flames of candles drift past the window, flashes of shadowed faces, sugar skulls and headdresses floating past like ghosts in the inky blackness. 
+Raucous music shook the window shutters as people paraded past, shouting and singing in memory of those they lost to the other world. 
+
+Every year, on Dia de los Muertos, my small dilapidated shop shook. It was on the ground floor of a building so old the thundering footsteps outside reverberated through ancient wooden floorboards.  I watched the small flames of candles drift past the window, flashes of shadowed faces, sugar skulls and headdresses floating past like ghosts in the inky blackness. 
 
 I waited for my next customer, sketching shadows with charcoal idly on a roll of paper, my supplies laid out around me in expectation of guests.
 
@@ -38,7 +40,7 @@ I did not ask him for payment, it didn’t even occur to me. I never knew if he 
 
 The next year, there were more. I knew then, that it worked. 
 
-For the past three years, every year, on Dias de Muertes, they shamble into my store, hoping to be alive for a night. Some come to join the parade without being noticed, others like him, come to see their loved ones, to hear their voices, while they can still pass for someone who is alive. Some come because they are curious about the magician who brings them back to life, just for a day.
+For the past three years, every year, on Dias de los Muertes, they shamble into my store, hoping to be alive for a night. Some come to join the parade without being noticed, others like him, come to see their loved ones, to hear their voices, while they can still pass for someone who is alive. Some come because they are curious about the magician who brings them back to life, just for a day.
 
 I am an artist, putting layers upon layers on pallid, grey skin, breathing life into the lifeless. I have become a surgeon, teaching myself how to stitch loose bowels back into abdominal cavities, how to mold prosthetic eyes and insert them into empty, cold eye sockets. 
 
