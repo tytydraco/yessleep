@@ -1,6 +1,4 @@
-[\[1\]](https://www.reddit.com/r/nosleep/comments/1frodeb/where_the_bad_cops_go_part_1/) – [\[2\]](https://www.reddit.com/r/nosleep/comments/1fwh0lo/where_the_bad_cops_go_part_2/) – [\[3\]](https://www.reddit.com/r/nosleep/comments/1g1qlqk/where_the_bad_cops_go_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/1g7brq9/where_the_bad_cops_go_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/1gco12h/where_the_bad_cops_go_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/1gi1a48/where_the_bad_cops_go_part_6/) \- \[7\]
-
-
+[\[1\]](https://www.reddit.com/r/nosleep/comments/1frodeb/where_the_bad_cops_go_part_1/) – [\[2\]](https://www.reddit.com/r/nosleep/comments/1fwh0lo/where_the_bad_cops_go_part_2/) – [\[3\]](https://www.reddit.com/r/nosleep/comments/1g1qlqk/where_the_bad_cops_go_part_3/) \- [\[4\]](https://www.reddit.com/r/nosleep/comments/1g7brq9/where_the_bad_cops_go_part_4/) \- [\[5\]](https://www.reddit.com/r/nosleep/comments/1gco12h/where_the_bad_cops_go_part_5/) \- [\[6\]](https://www.reddit.com/r/nosleep/comments/1gi1a48/where_the_bad_cops_go_part_6/) \- \[7\] - [\[8\]](https://www.reddit.com/r/nosleep/comments/1gssob9/where_the_bad_cops_go_part_8/)
 
 Nick and I had to isolate ourselves. Not only because we had to stay up for 72 hours straight, but because we were scared we might spread what we had to others. Neither of us knew what this SORE thing might do to us, but if 72 hours of being awake was what was necessary to keep us and others from getting sick, we were gonna do it.
 

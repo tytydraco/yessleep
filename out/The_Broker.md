@@ -1,3 +1,7 @@
+*Based on my true experience*
+
+By [Ringo Cross](https://www.reddit.com/r/RingocrossStories/s/2hRjs9OdKZ)
+
 It had been a lengthy flight from my hometown of Detroit to the bustling city of New York. How did I even end up on this journey? Phew. Long story for another day. A tale that I still find difficult to believe. What the hell. I guess things happen for a reason, you know. Well at least that’s what I keep telling myself to feel better about this. It’s funny in a twisted kind of way. I thought I knew not to make promises I couldn’t keep.
 
 I was surprised and a bit unprepared for how long the flight lasted. I don’t know why, but for some reason, I thought the two cities were much closer. I couldn’t have been more wrong or more irritated about being wrong. The one saving grace was that I had been given a nice comfy seat in business class. Now I could at least ruminate in opulence and maybe even parcel my decision into one nice and neat mental package, I reminded myself as I thought about my situation quite bitterly.
@@ -518,4 +522,4 @@ He took out his planner and jotted down a date. Then he looked over at me and sa
 
 “Just hold up your end of the bargain.”
 
-“Hopefully, our next encounter won’t be for a very long time. For your sake, Mr. Cross. Oh, and my secretary has something for you. A parting gift if you [will.”](https://www.reddit.com/r/RingocrossStories/)
+“Hopefully, our next encounter won’t be for a very long time. For your sake, Mr. Cross. Oh, and my secretary has something for you. A parting gift if you will.”
