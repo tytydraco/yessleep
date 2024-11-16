@@ -138,3 +138,7 @@ It was a few days ago, I had to wait till I could get to the late 90s computer t
 I mean, I'm hoping for advice I guess, baring that just to let people know things like him… and me exist. Maybe pull a pinnochio and end up a real boy if I can save a few lives? Who knows. 
 
 One of you I hope.
+
+How things progressed
+
+https://www.reddit.com/r/nosleep/s/kKSPVH7zc1

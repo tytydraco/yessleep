@@ -10,7 +10,7 @@ I nudged Irving who was just ahead of me to my right, he turned around pointing 
 
  “Yo Tommy, how much further is this thi-”
 
-“SSSHHH!“
+“SSHH“
 
 There was a brief pause as Irving gave Tom a done look
 
@@ -580,7 +580,7 @@ Tommy was whispering now… I didn’t even want to speak. When Tommy noticed th
 
 Tommy.. Tom!
 
-He just kept on speeding up until he was in a full jog, still breathing hard. I just couldn’t go any further, the air around us suddenly felt pressurized, like if I just noticed that the weight of the Earth above was finally making its mass known.
+He just sped up until he was in a full jog, still breathing hard. I just couldn’t go any further, the air around us suddenly felt pressurized, like if I just noticed that the weight of the Earth above was finally making its mass known.
 
 Tommy finally reached the wall, it was actually split in two, there was a slit in the wall where he shone the light into. Whatever was on the other side responded with its own light shining back at Tommy. Tommy leaned on the two sides of the slit with his forearms. He stared thoughtlessly like a moth to a flame, the glow intensified as he stared into it.
 
@@ -640,7 +640,7 @@ It was as quiet as it was dark, besides the rhythmic pattern of dripping water. 
 
 \*Drip\*
 
-I shuffled along the stone, scraping away rocks as my feet slid. I held my arms out expecting to hit a wall. I slowly made my way through the cave, occasionally stubbing on my environment
+I shuffled along the stone, scraping away rocks as my feet slid. I held my arms out expecting to hit a wall eventually. I slowly made my way through the cave, occasionally stubbing my toe on a big rock, or even a small one that I’d kick away.
 
 \*Drip\*
 
