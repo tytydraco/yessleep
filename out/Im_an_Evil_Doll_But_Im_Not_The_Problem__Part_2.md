@@ -153,4 +153,9 @@ And that is where we are. A little further than before, but what should I do now
 
 Do I try and break that guy out? Seems like he'd be a good ally, even down an eye and a leg. Or should I find a way to go through those books? 
 
-Chances are though,  it's going to be a while before I get the tickle trunk open, I think next thing I do will involve some supply gathering of a more mundane type
+Chances are though,  it's going to be a while before I get the tickle trunk open, I think next thing I do will involve some supply gathering of a more mundane type. 
+
+For anyone that wants to know what happens next
+
+
+https://www.reddit.com/r/nosleep/s/qLPasbrVEl

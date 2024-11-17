@@ -1,4 +1,4 @@
-Orange narcotic strips and pink cotton candy clouds filled the sky. Two lovers sat on a bench, shared laughs and wondered about a life together forever. Children played in a park and drew chalk animals on concrete.
+Orange narcotic strips and pink cotton candy clouds filled the sky. Two lovers sat on a bench, shared laughs and wondered about a life together forever. Children played in parks and drew chalk animals on concrete.
 
 Summer’s end neared. Society and life would change forever. People would meet their dead relatives again. Moments later, millions of bright stars bloomed across the sky—the rapture, or a miracle from God? The small spheres materialized into existence as if by the flip of a switch, oblivious to any and all effects against humanity. The daytime stars exploded into an orange-purple dust—a silent process save for the distant boom at the end.
 
