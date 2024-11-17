@@ -1,3 +1,5 @@
+
+
  
 
 Hello,  Reddit. I'm not one for forums much, or for how to write to one, for that matter. My husband is sending me here to the experts in this sort of phenomenon. After one too many rough nights, I had a lot of suppressed memories come bubbling up to the surface of my worries, some I forgot and one's I can't.
@@ -46,7 +48,7 @@ A good few years had come and passed since my first bright dream. We still lived
 
 *"You think you're gonna miss this place much?"* I asked him, just trying to start some silence ending chitchat.
 
-*"Am I gonna miss what? The house? you mean fuckin' home?  You know it. You can't not miss where you grow up R-tard."* It was the early 00s and his vocabulary was as of the time as his fashion sense.
+*"Am I gonna miss what? The house? you mean fuckin' home?  You know it. You can't not miss where you grow up."*  It was the early 00s and his vocabulary was as of the time as his fashion sense.
 
 *"It's gonna suck trying to feed myself, but you know what ain't gonna suck? No more pushing jersey shit on my d*ays off. *No more hearing your sleep farts through the wall, and finally. Finally not being frosted with frigging cat hair on all my clothes.*
 
