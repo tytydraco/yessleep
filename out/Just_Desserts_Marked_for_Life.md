@@ -26,7 +26,7 @@ I scrubbed until my skin was raw, but the marks only darkened. And then I heard 
 
 “You are a snake.."
 
-The faces of the men I’d used appeared in the mirror, their hollow eyes accusing me. Their whispers grew louder, suffocating me with their anger, their pain, and how I'm ugly in their eyes. 
+The faces of the men I’d used appeared in the mirror, their hollow eyes accusing me. Their whispers grew louder, suffocating me with their anger, their pain, and how I'm ugly in their eyes.
 
 “No,” I whispered, trembling. “No! I’m still beautiful. I’m still young!”
 
@@ -35,3 +35,5 @@ I swung my fist into the mirror, shattering it. The glass cut deep into my skin,
 But the marks wouldn’t fade, and the faces wouldn’t disappear. They were etched into my skin, my very being, a haunting reminder of everything I’d taken and destroyed. As I collapsed onto the floor, surrounded by blood and broken glass, I repeated the words like a mantra: *I’m still beautiful. I’m still young.*
 
 But even I didn’t believe them anymore.
+
+[Roger's Story](https://www.reddit.com/r/nosleep/comments/1gt8ycn/just_desserts_weight_of_my_desire/)
