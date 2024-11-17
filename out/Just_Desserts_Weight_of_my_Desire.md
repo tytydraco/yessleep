@@ -12,9 +12,9 @@ By the time I returned from India, I was obsessed. Priyam wasn’t just a fling;
 
 “*Roger, what’s going on?*” she asked, her voice trembling. “*You’ve been distant since you got back.*”
 
-I couldn’t lie to her—not entirely. “*We’re not going anywhere, Mary*,” I said, cold and detached. 
+I couldn’t lie to her—not entirely. “*We’re not going anywhere, Mary*,” I said, cold and detached.
 
-Her face crumpled, and I remember the way her shoulders sagged as if I had physically struck her. She resigned a week later. I didn’t even tell her I fell for someone or that someone was Priyam. What would have been the point? 
+Her face crumpled, and I remember the way her shoulders sagged as if I had physically struck her. She resigned a week later. I didn’t even tell her I fell for someone or that someone was Priyam. What would have been the point?
 
 Priyam was everything I’d ever wanted. She was submissive yet fiery, seductive yet playful. She kept me on my toes in ways no woman ever had. I loved the way her lacy pink bras teased me, the way she could turn a simple glance into a promise. She was married, too, but she justified our affair as life balancing itself out. She said her husband neglected her, that she deserved to feel wanted.
 
@@ -22,7 +22,7 @@ I told myself the same thing. We deserved each other. But what I didn’t tell h
 
 It all came crashing down in a single night. My wife found me in the study, the door ajar, Priyam’s naked body on the screen. I hadn’t even noticed her standing there until she slammed the keyboard in rage. The screen flickered, and before I could react, the video call broadcast to everyone on our company network.
 
-“What is this, Roger?” my wife screamed, her voice cutting through my panic. “Cheating is one thing, but with some hussy from work? Priyam, of all people?!”
+“*What is this, Roger*?” my wife screamed, her voice cutting through my panic. “*Cheating is one thing, but with some hussy from work? Priyam, of all people?!*”
 
 Her voice echoed through the speakers as my colleagues logged in one by one, their shocked faces filling the screen. Priyam’s name was out there now, her reputation shredded along with mine.
 
@@ -31,21 +31,21 @@ That night, I drank myself to sleep in the Airbnb. I thought the whiskey would d
 
 I woke—or thought I did—to Mary sitting beside me. Her face was calm, but her eyes were sharp, accusing. Then my wife appeared at the foot of the bed, arms crossed, her lips twisted in a sneer. Finally, Priyam joined them, her thighs bloodied, her hands clutching glass shards.
 
-“You’re nothing,” Mary said, her voice low and venomous. “I wasted my time on you.”
+“*You’re nothing*,” Mary said, her voice low and venomous. “*I wasted my time on you.*”
 
-“You’re overweight and unappealing,” I snapped, the words spilling out before I could stop them.
+“*You’re overweight and unappealing*,” I snapped, the words spilling out before I could stop them.
 
-“You’re useless as a lover,” my wife said coldly. “I was better off with my vibrator.”
+“*You’re useless as a lover*,” my wife said coldly. “*I was better off with my vibrator*.”
 
-“Shrew. Cold. Frigid,” I retorted, my voice rising in anger.
+“*Shrew. Cold. Frigid*,” I retorted, my voice rising in anger.
 
-Then Priyam spoke, her voice breaking. “You’re a coward, Roger. You let them destroy me. You let me destroy myself.”
+Then Priyam spoke, her voice breaking. “*You’re a coward, Roger. You let them destroy me. You let me destroy myself*.”
 
-She began slicing her thighs with the glass, her blood pooling around her. “Save me, Roger,” she cried, her voice desperate.
+She began slicing her thighs with the glass, her blood pooling around her. “*Save me, Roger*,” she cried, her voice desperate.
 
-I turned to Mary and my wife. “Help her! Stop her!” I screamed.
+I turned to Mary and my wife. “*Help her! Stop her!*” I screamed.
 
-“Why should we?” Mary replied, her voice dripping with contempt. “You did this.”
+“*Why should we?*” Mary replied, her voice dripping with contempt. “***You*** *did this*.”
 
 Their voices grew louder, overlapping, drowning me in accusations. I begged, pleaded, but they didn’t stop.  
 I woke up screaming, my throat raw, my body drenched in sweat. The banging on the door didn’t register until I heard the voices—neighbors, police. They broke it down and found me on the floor, clutching my head, muttering incoherently about blood and glass.
