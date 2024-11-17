@@ -74,3 +74,5 @@ When I came to, I sat straight up in bed and ripped the mask off of my face to g
 He did his best to calm me down, even asked if I wanted something for my nerves but honestly I just wanted to go home. I wanted to forget about all of it and... And not think about everything I'd just experienced. 
 
 In the end, Dr. Luske and I concluded that I wouldn't be a good fit for the drug trial and I cut contact with Sovna afterwards. Since then, the sailboat has been a recurring nightmare to the point of threatening my sanity. I've admitted myself for several 72 hour holds in the local mental hospital since then- I'm not sure why, I just haven't been able to shake this nightmare and it's... it's driving me crazy. 
+
+[[Part Two]](https://www.reddit.com/r/nosleep/s/a4MxgFjGMb)
