@@ -22,7 +22,11 @@ We hadn’t seen Luke in about three weeks. We’d thought he’d just been on a
 
 “We have to go get him.” I said, fear scittering through my voice.
 
-“I know.” Ryan stated solemnly. “I already packed a bag. You should do the same.” All three of us used to lived together, but Ryan was in and out, pretty much living with his long time girlfriend, Emma. Ryan and I had always been on the same wavelength. Especially when it came to Luke. Luke was a different story, though. His reactions were always sporadic. You never knew if something you said to him would strike a nerve. He was usually always happy, but he had developed manic episodes that progressively got worse as we got older. He said the drinking helped. We knew better.
+“Jay, let me speak. For just a minute.” Ryan stated solemnly. “I already packed a bag, because I knew how you’d react to all of this.” *Yeah. Like we should be.* I thought to myself. “I’ll go, man. But you know how this ends and I told you a long time ago I was done with all of this. You have to promise me that this it. We go get him. We put him in rehab. Thats it. After that, I’m done.” I had to fight my frustration with him. Ryan and I had always been on the same wavelength, for a while at least. Ryan had put up with way too much. Especially when it came to Luke.
+
+“I understand.”
+
+Luke had become a glass canon. His reactions were always sporadic. You never knew if something you said to him would strike a nerve. He was usually always happy, but he had developed manic episodes that progressively got worse as we got older. He said the drinking helped. We knew better, but he would never let us in. We could never pin down why Luke had to drown himself in liquor.
 
 I walked back to my room, and stared into the stain on the carpet. Vomit from the last time Luke and I had sweat it out in there. It had turned a dark visceral brown. It wouldn’t come out, no matter how many chemicals I threw at it. I grabbed some clothes from the closet, loosely stuffed them into my gym bag, and started to turn around. I couldn’t help but feel like something was in the corner of my eye. Scratching at the strangest itch in my brain. A shadow. Something familiar, but I just couldn’t make anything of it. I shook it off and shut the door behind me as I walked out.
 
@@ -73,7 +77,7 @@ If he wasn’t choking up his typical jager-dark beer potion, he was completely 
 
 “Great fucking driving buddy. Go park the car, I’ll go back with him and I’ll grab you from the waiting room once he’s settled in.”
 
-“Okay, see you in a few.”
+“Okay,” he sighed, “I’m not happy about this, but I’ll see you in a few.”
 
 Luke was knocked out, his vitals had evened out, and he was on a full saline drip. The subtle beeping of the monitors droned on over the noises outside of the room. He had fought the nurses for a solid five minutes as they tried to stick him with the damn IV.
 
@@ -108,9 +112,9 @@ There was a single two-level parking garage on the west corner of the town cente
 
 We exited the parking garage, and found a directory sitting right at the edge of the block we were on. It showed the full layout of downtown Graywater, showcasing all of the local shops and bars. Just two blocks south, there was a bar called Patty’s.
 
-“Bingo! If anyone’s seen Luke it’s a bartender.” Ryan suggested.
+“Bingo! If anyone’s seen Luke it’s a bartender. Let’s get him and get the fuck out of here.” Ryan suggested with a heaviness in his voice.
 
-“Anyone ever tell you you’re really smart?”
+“Anyone ever tell you you’re really smart?” Flattery was the only weapon I had to keep him here as long as possible.
 
 “I could stand to hear it a few more times.” He snarked.
 
@@ -150,7 +154,7 @@ When I turned around, Ryan had a blank expression on his face. My right sneaker,
 
 “Yeah?” He said, wiping his lips.
 
-“We really gotta find Luke.”
+“We really gotta find Luke.” I didn’t want to speak about what just happened and I know he didn’t either. It was just too much to cope with. 
 
 Ryan wasn’t losing it. The bar was baron. Not a soul wandered between its walls. The lights remained glowing, and drinks had spilled over onto the tabletops. *How?* I started to run towards the door frantically.
 
@@ -158,7 +162,11 @@ Ryan wasn’t losing it. The bar was baron. Not a soul wandered between its wall
 
 “You coming?” I proposed. He didn’t answer, and stared wildly at me. “I saw a sign for a hospital coming into town. If he’s not at the bar, my guess is that he was already taken there after he did what he always does.”
 
-“Yeah. Let’s go.” I didn’t want to speak about what just happened and I know he didn’t either. It was just too much to cope with. 
+“Jay, stop. I told you this was in and out. Snatch and grab. Not a trip down memory lane that I can’t even remember.” He told me.
+
+“I’m not leaving him here. You can go, Ryan. No one is stopping you. But you saw what I saw back there, and you’re seeing what I’m seeing.” It was hard to contain my lack of patience. I let out a long sigh. “I got this…if you need to go.” He looked like he was losing his patience with me too. He swallowed his feelings, and looked me in my eyes.
+
+“Luke made his bed…but I can’t leave you here too.” We shared an understanding look.
 
 We started walking back to the directory by the parking garage, cutting across the park to save time. The soft dead grass crunched lightly beneath my shoes. We passed completely  abandoned cars slightly parked on the sidewalk. Open balcony doors of second floor apartments with curtains blowing in the breeze. The trees drooped and their leaves had started to fall ever so softly the ground.
 
@@ -166,7 +174,9 @@ As we walked up to the rectangular prism coated in maps, one side of it caught m
 
 According to the map, the hospital was around 2 miles southeast of us. That’s all I needed to know. I looked around at the surrounded buildings to get my directional bearings. I pointed southeast-ish.
 
-“Let’s go then.” 
+“Let’s go then.” I said. Ryan sighed at me.
+
+“Okay.”
 
 ——
 
