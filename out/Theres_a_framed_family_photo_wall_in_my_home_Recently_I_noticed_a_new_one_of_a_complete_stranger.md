@@ -114,7 +114,7 @@ Outside, I saw no footprints or tire marks that weren’t the truck’s. Nobody 
 
 
 
-The next day I had someone from SPC Security come out and installed a home alarm system, complete with a tablet that controlled its every move. It was very fancy. The man showed me how to arm and disarm the system, and helped me create an access code. After he left I felt a bit better. At least now I’d know if something in the house was moving while I wasn’t.
+The next day I had someone from SPC Security come out and install a home alarm system, complete with a tablet that controlled its every move. It was very fancy. The man showed me how to arm and disarm the system, and helped me create an access code. After he left I felt a bit better. At least now I’d know if something in the house was moving while I wasn’t.
 
 
 
@@ -312,7 +312,7 @@ A sound upstairs caught my attention. *ACK! ACK!* *CLUNK!* I rounded the corner 
 
 
 
-ACK! It coughed again, closer this time. It was coming from the top of the steps now. I dropped the tablet onto the ground where it landed with a splash in a pile of goo. There, at the top of the stairs, I saw it. It was shrouded in the darkness of the upstairs hallway, but it was there. I saw its skinny, vibrating body. I saw its bright red eye. I saw…I saw…
+ACK! It coughed again, closer this time. It was coming from upstairs. I dropped the tablet onto the ground where it landed with a splash in a pile of goo. There, at the top of the stairs, I saw it. It was shrouded in the darkness of the upstairs hallway, but it was there. I saw its skinny, vibrating body. I saw its bright red eye. I saw…I saw…
 
 
 
