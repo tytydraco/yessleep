@@ -1,128 +1,67 @@
 “Oh this one here’s turning out to be a real hit, it even has quite an intricate parental control system to monitor his socials”
 
-
-
 The gamezone employee rambled on and on about multiplayer features, but at this point I had already zoned out. After a whole hour of browsing the kids section, the oversaturated heap of games on the shelves were starting to look the same to me. The colourful cartoon graphics that nearly every single game uses at this point were really starting to give me a headache, but after all, it's not like I have any other choice. It’s not like I’m gonna walk up to my 8 year old son and hand him a first person shooter or something. 
-
-
 
 My wife was really particular about the types of games Dylan was starting to get into, and really didn't like the fact that I was encouraging him in the first place. After all, I myself spent most of my time as a child on the N64, and I didn’t really mind the fact Dylan was starting to take an interest in video games. My wife was however, very adamant about age ratings for any game Dylan showed even a slight interest in, growing increasingly anxious due to media headlines like “video games impacting children”, and “video games cause violence”. We have fought over those specific pieces of news, but I do agree with her on the age ratings, so our compromise restricted me to the bounds of the kids section of gamezone. 
 
-
-
 Something on the shelf caught my eye as the employee reached the hardware requirements section of his pre-memorized mandatory sales pitch format. I wasn’t sure what in particular even set off my senses, but I found myself stealing a glance at a disk case on the rack.
-
-
 
 “The Saga of Sigbeard and Sorgenson: Special collectors collection”
 
-
-
 Who on earth would want to get a collectors edition of what seemed to be some low quality console port of some random chinese mobile game, I thought to myself. I turned the case to view its details, but its description was as generic and stale as my own life, nothing that brought up any red flags, but nothing that made it extraordinary either. It really was just another one of those generic games on the rack, but there was something within it, something that stopped me from looking away or putting it back. 
-
-
 
 “Oh that one’s kinda fresh, hasn’t really been flying off the shelves so I’ll give you 60% off for the collectors edition.”
 
-
-
  Well 60% off for a product that looked identical to almost everything on the shelf was good enough of a bargain to me, so I checked out and headed home just in time for the party to start. As I pulled into the driveway flanked by balloons, I tried to imagine Dylan’s reaction to what I had just bought him. 
 
-
-
-“DAD DID YOU SEE WHAT JONAH GAVE- ”, Dylan exclaimed, jumping up and down with excitement holding a Nerf gun that was probably as tall as him. I gave a silent sigh, wondering if he’ll be remotely as excited if he sees what I’ve bought him. I gave him the gift, and as he ripped through the wrapping I’d so neatly done sitting in the gamezone parking lot, his face revealed a brief shimmer of disappointment as he picked up this game he’d probably never heard of.   
-  
-
+“DAD DID YOU SEE WHAT JONAH GAVE- ”, Dylan exclaimed, jumping up and down with excitement holding a Nerf gun that was probably as tall as him. I gave a silent sigh, wondering if he’ll be remotely as excited if he sees what I’ve bought him. I gave him the gift, and as he ripped through the wrapping I’d so neatly done sitting in the gamezone parking lot, his face revealed a brief shimmer of disappointment as he picked up this game he’d probably never heard of.
 
 “Aww thanks dad, can we check it out now pwees?” Dylan said with a pleading look in his eyes. I allowed him, still feeling mildly insecure about his reaction to Jonah’s gift and mine, but I pushed it out of my mind and sat on the couch as Dylan inserted the disk. Jonah came and sat next to me, and grabbed one of the two controllers without asking Dylan. The two of them waited as the game loaded, and watched as I debated within myself if I wanted to play the role of the father who tries too hard to fit in with his kid’s friends.
 
-
-
 As the game loaded up, an animated screen displayed a message: “SELECT YOUR CHARACTER:”, and showed the two title characters: Sigbeard, who looked like your stereotypical cartoon wizard, and Sorgenson the dwarf, with his bright red beard and eyes that looked like they were popping out of his skull. The two argued for a while, until Dylan let Jonah choose to be the wizard. Sometimes I wondered why my son always let Jonah have his way, but before I could go on that thought train again, the opening sequence loaded up and I saw as the looks on their faces transformed completely, as they marvelled at the scenery of the level itself once it loaded. 
-
-
 
 I’ll have to admit, even I was thrown back by how much effort was actually put into the setting itself. The fantasy forest looked absolutely magical, bringing back memories of all the days I spent as a child, buried in fantasy books all the while kids my age played outside. Even for a “cartoon-game”, there seemed to be a level of passion put into the level design. The character models for the wizard and the dwarf looked, well, a lot less well made than their surroundings, sticking out like sausages in ice cream. As the game started, the boys received their starting weapons. Jonah marvelled at his “sleeping staff”, which could apparently put enemies to sleep if he uses it enough, and Dylan got the “confetti cannon”, which didn’t really seem like a traditional dwarven weapon to me, considering it made enemies burst into confetti, but I didn't think much of it. 
 
-
-
 At this point, the entire party had nestled into the couch to watch Dylan and Jonah rip through the poor level 1 enemies of the tutorial level, so I retreated to the kitchen to help my wife with the dishes and leftovers. While cleaning, she kept sneaking looks at Dylan, every so often calling out to check if he’s alright, invariably being met with a somewhat apathetic “yes mom”.
-
-
 
 Once everyone had left, Dylan jumped into my arms with a hug. “Daddy, that was the best gift I’ve ever ever getten. I love you so so so much”
 
-
-
 Ignoring his grammatical errors, I felt a warm glow in my heart, knowing that in the end, my son was happy. Jonah and his nerf gun can go suck it. 
 
-
-
 The following weeks however, were not as wholesome. Jonah would come over every few days, and the boys would sit at the console, grinding on and on until my wife had to remind them about their screen time limit. A once hyperactive and energetic Dylan began to become more and more withdrawn with the passage of time, and his conversations with Jonah became almost incomprehensible to the parental mind. 
-
-
 
 One day I came home early from work, after a horrendous bashing from one of our clients. I was so exhausted, I collapsed in the bedroom across from the living room, and almost immediately dozed off. 
 
 I must have woken up around 1:00 am, to the familiar sound of the Xbox starting up. Wondering if it was an accident, I slowly opened the bedroom door to investigate, walking slowly so as not to disturb my wife. As I neared the living room, I saw a bright colourful cartoon loading screen on the TV, and to my shock, Dylan sitting on the couch, controller in hand. His eyes remained fixed on the TV, locked with such a look as if he was conducting a sacred ritual that required complete focus. 
 
-
-
 My first instinct was to storm out and give him the mouthful which he so rightfully deserved, but once the game loaded up, some curiosity within me decided to wait and see what it was that made Dylan wake up in the middle of the night to continue. Maybe my mind wanted some justification, perhaps some big boss fight that he couldn’t stop thinking about. Whatever it was, I knew it was no excuse, and he would definitely be grounded if my wife found out, but whatever the case, I just didn’t approach him immediately, and decided to wait and watch. 
-
-
 
 The game loaded to the scene of a village, drawn in the same art style as I’d seen when the game first loaded up, except this time, the village was in flames. People ran left and right, their clothes covered in dirt, their faces locked in an expression of terror and angst that would fit right in an Edward Munch painting. A child in the centre of the courtyard wailed, as masked men went through the houses with swords, screams erupting each time they entered a hut. 
 
-
-
 An old man ran up to Dylan’s character and pleaded for help. “Help us noble dwarf, you are our only hope, lest our lives and livelihoods be burned to the ground.” Sorgenson the dwarf ignored him, and went at the raiders, who had now formed a circle around him. Sigbeard the Wizard stood next to him, which I assumed was a bot as Jonah wasn’t there.”
-
-
 
 “Ah so this was the great boss fight he so desperately wanted to beat”, I thought as I wondered what my next move would be. Before I could ground Dylan for a week however, the pair engaged the enemies, and I could not have guessed what happened next. 
 
-
-
 Sigbeard the wizard dashed for the nearest enemy, and brought up his “sleep staff”. I’d seen this thing when Dylan and Jonah played together, how upon contacting with enemies, it would play a cute little animation of birds twittering and circling about their head while cartoon “zzz’s” came into thin air, but this time, what came out was a thin stream of dark red blood, and what looked like 2 front teeth. The wizard bashed the back of the bandit’s head, and the poor generic enemy vomited blood onto the mud, as his eyes bulged out of his head, turning red. The wizard then cast a spell that made the man spin so fast, his stomach, guts, and heart came out his mouth, splattering onto the stones in front of him, the heart still beating as blood poured from its ventricles. 
-
-
 
 I stared in shock, my legs going weak, as Dylan moved Sorgenson to attack another enemy, whose legs were shaking almost as much as mine were. The hefty dwarf pulled out a pickaxe, and slammed it into the villain’s head, blood, bone, and brain matter pouring out the other side. He knocked the poor man down, and struck straight into his back, the sound of his spine cracking sending shivers down mine. 
 
-
-
 One by one, the two hacked and dismembered their way through the entire group of raiders, so much so that the last one was on his knees begging for mercy. From the corner of my eye, I saw Dylan smirk as he pulled out the “confetti cannon”, and the game cut to a cutscene of the dwarf firing the cannon at the last man, as he erupted into an inferno of blood, guts, and bone, his eyeballs being flung towards the camera.
-
-
 
 It wasn’t the gore that really disturbed me, it was Dylan. His face, which had mostly remained entirely emotionless during the slaughter, curled at one end once the last man exploded in a cacophony of organs and fluids. I felt a deep pit in my stomach, as my son had shown no semblance of humanity. “Who would even animate something like that”, I thought, “much less market it to kids”. But I had seen this game before. My wife wouldn’t just let something like this slip under her radar. This was different. This wasn't the happy adventure we thought Dylan was playing. There was something ... sinister ... so to speak, about the massacre too. It wasn’t the usual animated gorefest you usually see in R-rated movies, there was something about this game that was more … real. More visceral. It wasn’t just realism, the motions, and the emotions of these NPCs were almost like watching real people die. Their blood-curdling screams were a far cry from the usual Wilhelm screams heard in most media. 
 
-
-
 “You have saved us all, dwarf!”. The voice of the old man on-screen brought me back to reality. I was about to shut this thing down for real when I heard a soft voice:
-
-
 
 “No one calls me a dwarf.”
 
-
-
-Dylan spoke so quietly, I doubted at first if I’d even heard him. His slight smirk had grown into a full grown smile, stretching across the ends of his once innocent face. He moved his character forward, and with one stroke, sunk the pickaxe into the old man’s head, its rusted metal end jutting out of his open jaw.   
-  
-
+Dylan spoke so quietly, I doubted at first if I’d even heard him. His slight smirk had grown into a full grown smile, stretching across the ends of his once innocent face. He moved his character forward, and with one stroke, sunk the pickaxe into the old man’s head, its rusted metal end jutting out of his open jaw.
 
 I had seen enough. I ran upstairs, woke up my wife and dragged her down. We turned on the lights to catch Dylan red-handed, but instead of the horror I had seen, the game had reverted to its happy blooming fantasy landscape. My wife was angry at Dylan for staying up so late, but she stared at me blankly when I explained to her what I saw. “Look at the TV babe, you see that fluffy pink castle, you think THAT was the site of a blood-curdling massacre?”. I stood dumbfounded, not knowing what to even say as my wife chewed Dylan out for staying up late. The entire time, Dylan seemed almost mildly amused, like he was holding in his laughter while my furious wife lambasted him for his casual breach of household rules. 
 
-
-
 It’s been one week since. We aren’t letting Dylan use his Xbox for the next week, and he’s been strangely cold ever since. I tried explaining to my wife what I’d seen that night, but she looked at me in such a way, I thought I was being delusional myself. I haven’t brought it up again after that. 
-
-
 
 But one sleepless night, I couldn’t hold my curiosity in anymore. I pulled the xbox out from the shelf we’d hidden it on, plugged it into the TV and inserted the disk. This was it. I’d find the answers to what I saw here, right now. As I waited for the game to load, I felt a sudden chill go down my spine. On the black TV screen, I could see the faint light of the rear bedroom on, and in front of it, a silhouette of what seemed to be Dylan, standing erect, with a long straight stick in his hand.
 
-
-
 “Could you not slweep daddy? Don’t worry. The shweeping staff will help you.”
 
+[S.P](https://www.reddit.com/r/PaintedPorch/)
