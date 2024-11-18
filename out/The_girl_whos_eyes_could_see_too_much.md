@@ -93,7 +93,7 @@ Before Grace could process this, Emily pulled her aside.
 
 Grace clenched her jaw. Something wasn’t right, but no one seemed willing to see it.
 
- A voice whispered in the little girls ear "good job hiding the tiffin" she smiled.
+ 
 
 ---***
 

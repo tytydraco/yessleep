@@ -207,3 +207,6 @@ The very idea of this thing and the person who might've made it, sent a shiver d
 We brushed off the incident and decided to continue on.
 
 As the guys got the cameras set up, I walked around looking for something interesting to use in the video. Something did catch my eye, but I don't think it was going to do our project any good.
+
+  
+[Part Two](https://www.reddit.com/r/nosleep/comments/1gu3qrq/the_cabin_that_consumes_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
