@@ -184,7 +184,7 @@ Dr. Patel explained that she’s been listening to the recordings of Zoe crying 
 
 *“Of course not,"* I answered.
 
-*“From an infant… No, from any human alive, I have never heard anything like this my entire life,"* she continued. *"I wonder..."*
+*“From an infant… No, from any person, I have never heard anything like this my entire life,"* she continued. *"I wonder..."*
 
 She went silent for a while, then asked me if we could come in for more tests tomorrow night. 
 
