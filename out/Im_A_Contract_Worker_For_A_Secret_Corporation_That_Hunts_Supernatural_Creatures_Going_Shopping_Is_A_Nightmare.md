@@ -2,6 +2,8 @@
 
 [Previous: ](https://www.reddit.com/r/nosleep/comments/1g8w6cj/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next:](https://www.reddit.com/r/nosleep/comments/1glai6j/im_a_contract_worker_for_a_secret_corporation/)
+
 When you hunt monsters for a living there are two hard facts. You'll die young, and you’ll ruin all your clothing. My new jacket had been shredded during my last job. I learned how to sew and to mostly remove blood stains. My old jacket was going to be for hunting only. I wanted a new coat. One to wear outside of my contract work. Since I moved around a lot I kept what I owned down to at most two boxes. It was a little sad that a new jacket was a highlight in my life.
 
 A somewhat high-end store was closing and having a big sale. The weather that day was awful. Wet and cold. It hadn’t snowed yet, but it was so unpleasant not too many people were out. When I walked inside the store, I found it to be nearly empty. I had expected it to be busy with others trying to scoop up deals.

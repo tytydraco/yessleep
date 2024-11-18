@@ -2,6 +2,8 @@
 
 [Previous: ](https://www.reddit.com/r/nosleep/comments/1gezwb6/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1gps7bi/im_a_contract_worker_for_a_secret_corporation/)
+
 My hand had been slowly healing. Not being able to fully flex my fingers the first few days was a little annoying. I didn’t want to strain myself chasing down supernatural monsters until the tainted magic faded. Instead of monster hunting, I took some time to collect cans and bottles off the street in my neighborhood. I got a few judgmental glances. It got me out of the house and enough money to buy a loaf of bread and a carton of eggs. Plus, some trash got recycled. A win for everyone.  
 
 Finally, a new request came in that sounded simple enough. I was surprised to find out August passed on it. He said he didn’t want anyone to see him hanging around in bars and assuming he was a bad parent who stayed out all night.  
