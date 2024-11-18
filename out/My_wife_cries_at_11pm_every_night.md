@@ -1,4 +1,4 @@
-The only word that I can think of that describes how I feel, *inadequate.*  
+The only word that I can think of that describes how I feel, *inadequate.* 
 
 I’ve always wanted to do more for my wife. But she’s always assured me over and over that things are fine and that she just needs the time and space to process things. 
 
@@ -8,27 +8,29 @@ Just before 11 p.m., as if driven by some unseen force, Ellen rises, quietly exc
 
 I often find myself thinking about our life together. 
 
-When did this start? Did I do something? Did I miss something when we first started dating? I tend to then replay our entire relationship in my head, looking for signs, while I wait for her to come out of the bathroom.
+When did this start? Did I do something? Did I miss something when we first started dating?
+
+I tend to then replay our entire relationship in my head, looking for signs I might have missed, while I wait for her to come out of the bathroom.
 
 We met during our junior year of college.
 
-Our first run in was at one of those cliché frat parties, an event called *Jerseys & Jorts*. And as you guessed it, every guy and girl there was sporting some sort of sports jersey and a pair of cut off jeans. 
+Our first run-in was at one of those cliché frat parties, an event called *Jerseys & Jorts*. And as you guessed it, every guy and girl there was sporting some sort of sports jersey and a pair of cut off jeans. 
 
 Our eyes met while we were both waiting in an obnoxiously loud line for a drink. She was stunning. Then, after I probably stared a little too long, she said hello and introduced herself.
 
 *“Ellen Callas.”*
 
-She complimented my Mutombo Nuggets jersey, an old vintage jersey imbued with a rainbow of vibrant colors. I complimented her retro Robinson USA jersey, a bonafide classic. 
+She complimented my Mutombo Nuggets jersey, an old vintage jersey imbued with a rainbow of vibrant colors. I complimented her retro Robinson USA jersey, a bonafide classic. She had borrowed it from her roommate.
 
-She had borrowed it from her roommate. A couple minutes into our conversation, I realized she didn’t know who either Dikembe Mutombo or David Robinson were. 
-
-Then we laughed at everyone in jean shorts, and how everyone would secretly look forward to somehow coming up with a new excuse or themed party where they could sport their jean shorts again.
+A couple minutes into our conversation, I realized she didn’t know who either Dikembe Mutombo or David Robinson were. Then we laughed at everyone in jean shorts, and how everyone would secretly look forward to somehow coming up with a new excuse or themed party where they could sport their jean shorts again.
 
 *“Why can’t people just admit they like wearing jean shorts?”* 
 
 We continued poking fun at Greek life at schools, and somehow ended up talking about our classes and our majors, then our roommates. It felt like we talked the entire night.
 
-I was in love. We followed each other on Instagram. It took me three weeks of barraging her with memes, which she often hearted, before she responded with a fateful message.
+I was in love.
+
+We followed each other on Instagram. It took me three weeks of barraging her with memes, which she often hearted, before she responded with a fateful message.
 
 **DO YOU WANT TO GET COFFEE WITH ME?**
 
@@ -40,7 +42,7 @@ I was so caught off guard by her order, I somehow ended up ordering a berry blas
 
 When we finally sat down with our drinks, she laughed and pointed out that neither of us got a coffee, and that maybe it was a sign we would have to go again sometime soon. 
 
-I officially asked Ellen to be my girlfriend at the art museum one morning while we were finally sipping coffees. We were standing opposite Van Gogh’s painting, The Ravine. It was her favorite painting in the museum. She loved talking about it.
+I officially asked Ellen to be my girlfriend at the art museum one morning while we were finally sipping coffees. We were standing opposite Van Gogh’s painting, *The Ravine*. It was her favorite painting in the museum. She loved talking about it.
 
 *“Not only is it one of his masterpieces, but underneath, there’s a totally different painting, maybe another masterpiece. He struggled to pick which image he wanted to present to the viewer.”*
 
@@ -52,9 +54,11 @@ At times, the years feel like a single memory.
 
 Ellen and I have been married three years now, and we have a beautiful eight-month-old daughter named Zoe. I like to think we’re the picture of a happy family—weekend trips to the park, family dinners, and bedtime stories every night. 
 
-Ellen has been everything I ever wanted in a partner: loving, supportive, and devoted to our family. I think we’ve been in love since our first *coffee date*, and having Zoe has only strengthened our relationship.
+Ellen has been everything I ever wanted in a partner: loving, supportive, and devoted to our family. I think we’ve been in love since our first "coffee" *date*, and having Zoe has only strengthened our relationship.
 
-But this peculiar fact has always weighed on me, and it’s something I still, after everything, can’t make sense of. Every night at 11 p.m, Ellen is in a locked bathroom and crying. When she returns, her eyes are a little red, but she smiles and insists everything is fine.
+But this peculiar trait of hers has always weighed on me, and it’s something I still, after everything, can’t make sense of. Every night at 11 p.m, Ellen is in a locked bathroom and crying.
+
+When she returns, her eyes are red and puffy, but she smiles and insists everything is fine.
 
 The truth is I can’t quite remember exactly when it started, but I’m almost sure I first noticed it a couple weeks after we moved into the new house. Looking back, maybe it did start around then.
 
@@ -88,7 +92,7 @@ Some strong mixture of sleepy comfort and courage.
 
 I was ready for any explanation. But I realize now I’ll never know.  
 
-I’m sorry, I read back what I’ve written and haven’t made it clear. I guess in some ways, Ellen is here with Zoe and I. 
+I’m sorry, I read back what I’ve written and haven’t made it clear. I guess in some ways, Ellen is still here with Zoe and me. 
 
 We lost Ellen in a car accident recently.
 
@@ -102,9 +106,9 @@ So it’s me and Zoe now. And our families. 
 
 My parents have been helping out as much as they can, though they both still work. 
 
-Ellen’s dad tried his best for a few days.
+Ellen’s dad tried his best for a while.
 
-But I think the grief of losing both his wife and daughter was too much. Just a few days after Ellen’s funeral, he abruptly said he needed to go to Greece to visit family, which I didn’t even know they had.
+But I think the grief of losing both his wife and daughter was too much. Just a few weeks after Ellen’s funeral, he abruptly said he needed to go to Greece to visit family, which I didn’t even know they had.
 
 I look back now and wish I had asked Ellen’s dad about it after I first noticed.
 
@@ -116,15 +120,27 @@ But now I find myself in the same position. Unable to help someone I love.
 
 The night Ellen died, after the hospital, after sitting for hours in that cold, fluorescent waiting room, I finally came home with Zoe. My mom and dad stayed over with us.
 
-Just a baby—too young to understand what had happened. 
+Just a baby. Too young to understand what had happened. 
 
-But that night, when I put Zoe to bed, she started crying. It was loud and heart-wrenching, nothing like the soft cries of a sleepy baby. I held her, soothing her as best I could until she finally calmed down.
+But that night, only more questions came.
 
-It wasn’t until later, after she’d fallen asleep in my arms, that I glanced at the clock. It was just a few minutes after 11 p.m. My stomach dropped.
+When I put Zoe to bed, she started crying. It was loud and heart-wrenching, nothing like the soft cries of a sleepy baby. I held her, soothing her as best I could until she finally calmed down.
 
-I hoped it was maybe just a coincidence. Though as the days and nights passed, it was clear...
+It wasn’t until after she’d fallen asleep in my arms that I glanced at the clock. It was just a few minutes after 11 p.m. My stomach dropped.
+
+I hoped it was maybe just a coincidence.
+
+Though as the days and nights passed, it was clear...
 
 Every night at 11 p.m. on the dot, Zoe cries a horrible cry. Her body writhes, as if she's in some great pain. I can’t do anything for her. I hold her tightly in my arms and just let her cry out. 
+
+Sometimes,  when Zoe starts crying, the room seems to grow colder, like a sudden drop in temperature that chills my skin, my bones. The air itself feels heavy, as if something unseen is pressing down on us. It's not like this every time. Some times it seems to do the opposite.
+
+Like the room gets warmer, lighter.
+
+I know I probably sound crazy.
+
+This has obviously been like this longer than I'd care to admit. I just haven't known what to do.
 
 Feeling hopeless, I finally confided in my parents about Zoe’s nightly crying.
 
@@ -134,7 +150,7 @@ My parents did say no matter what was going on, I should get Zoe looked at it if
 
 Dr. Connelly performed a comprehensive physical exam, checking Zoe’s vitals, growth metrics, and reflexes, but nothing appeared out of the ordinary. 
 
-After a thorough discussion of her symptoms, including the recurrent 11 p.m. onset of intense screaming and crying, Dr. Connelly suggested we rule out any underlying sleep disorders, such as parasomnia or night terrors. However, when initial polysomnography tests came back normal, he referred us to a pediatric neurologist for further evaluation, suspecting a possible neurological component.
+After a thorough discussion of her symptoms, Dr. Connelly suggested we rule out any underlying sleep disorders, such as parasomnia or night terrors. However, when initial polysomnography tests came back normal, he referred us to a pediatric neurologist for further evaluation, suspecting a possible neurological component.
 
 After a week of waiting, a neurologist named Dr. Patel conducted a full neurological examination, assessing Zoe’s cranial nerve function, motor coordination, and sensory responses. 
 
@@ -148,7 +164,7 @@ Zoe was perfectly healthy. 
 
 In the end, Dr. Patel offered one suggestion, an explanation that was almost impossible to test—her body reacting to something that wasn’t physically there but perhaps emotionally imprinted. It was the only explanation she could offer, though it left me with more questions than answers.
 
-Last week, while I was holding Zoe tightly as she let out a long, drawn-out wail, starting with a high-pitched scream, almost ear-piercing.
+Last week, while I was holding Zoe tightly as she let out a long, drawn-out wail, starting with a high-pitched scream, a possible path forward came to me.
 
 I knew hearing it was the only way I could get help, so I grabbed my phone and started recording. I did this for 3 nights in a row. Then I drafted an email with the recordings to Dr. Patel’s office with a simple note.
 
@@ -168,9 +184,9 @@ Dr. Patel explained that she’s been listening to the recordings of Zoe crying 
 
 *“Of course not,"* I answered.
 
-*“From an infant… No, from any person, I have never heard anything like this in my life,"* she continued.
+*“From an infant… No, from any human alive, I have never heard anything like this my entire life,"* she continued. *"I believe... I wonder..."*
 
-She then asked me if we could come in for more tests tomorrow night. 
+She went silent for a while, then asked me if we could come in for more tests tomorrow night. 
 
 From 10pm to midnight. Dr. Patel wants to take new scans during an actual episode.
 
@@ -182,4 +198,4 @@ Then I'm going to get ready for tonight. Get ready to hold Zoe in my arms, and t
 
 Even though I know deep down, I don’t know if I can help her.
 
-I hope the tests tomorrow night brings answers.
+I hope the tests tomorrow night bring answers.
