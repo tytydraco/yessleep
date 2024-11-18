@@ -514,13 +514,9 @@ As far as my situation goes, I must admit that I don't have a plan yet. We’ve 
 
 I have until Samhain. Roughly two months to figure this out. 
 
-I'm not giving up. None of us are. 
+I'm not giving up. None of us [are](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Update: I found a cake on my [doorstep. ](https://www.reddit.com/r/nosleep/s/iGhlO9augV)
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
-
-
 
 
 
