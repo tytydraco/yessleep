@@ -1,4 +1,4 @@
-The only word that I can think of that describes how I feel, *inadequate.* 
+The only word that I can think of that describes how I feel, *inadequate.*
 
 I’ve always wanted to do more for my wife. But she’s always assured me over and over that things are fine and that she just needs the time and space to process things. 
 
@@ -52,9 +52,9 @@ Then time flew by. 
 
 At times, the years feel like a single memory.
 
-Ellen and I have been married three years now, and we have a beautiful eight-month-old daughter named Zoe. I like to think we’re the picture of a happy family—weekend trips to the park, family dinners, and bedtime stories every night. 
+Ellen and I have been married three years, and we have a beautiful eight-month-old daughter named Zoe. I like to think we’re the picture of a happy family—weekend trips to the park, family dinners, and bedtime stories every night. 
 
-Ellen has been everything I ever wanted in a partner: loving, supportive, and devoted to our family. I think we’ve been in love since our first "coffee" *date*, and having Zoe has only strengthened our relationship.
+Ellen has been everything I ever wanted in a partner: loving, supportive, and devoted to our family. I think we’ve been in love since our first "coffee" date, and having Zoe has only strengthened our relationship.
 
 But this peculiar trait of hers has always weighed on me, and it’s something I still, after everything, can’t make sense of. Every night at 11 p.m, Ellen is in a locked bathroom and crying.
 
@@ -108,7 +108,7 @@ My parents have been helping out as much as they can, though they both still wor
 
 Ellen’s dad tried his best for a while.
 
-But I think the grief of losing both his wife and daughter was too much. Just a few weeks after Ellen’s funeral, he abruptly said he needed to go to Greece to visit family, which I didn’t even know they had.
+But I think the grief of losing both his wife and daughter was too much. Just a few weeks after Ellen’s funeral, he abruptly said he needed to go to Greece to visit family. I honestly didn’t even know they had family in Greece. Ellen nor anyone in her family ever mentioned them.
 
 I look back now and wish I had asked Ellen’s dad about it after I first noticed.
 
@@ -134,13 +134,13 @@ Though as the days and nights passed, it was clear...
 
 Every night at 11 p.m. on the dot, Zoe cries a horrible cry. Her body writhes, as if she's in some great pain. I can’t do anything for her. I hold her tightly in my arms and just let her cry out. 
 
-Sometimes,  when Zoe starts crying, the room seems to grow colder, like a sudden drop in temperature that chills my skin, my bones. The air itself feels heavy, as if something unseen is pressing down on us. It's not like this every time. Some times it seems to do the opposite.
+Sometimes, when Zoe starts crying, the room seems to grow colder, like a sudden drop in temperature that chills my skin, my bones. The air itself feels heavy, as if something unseen is pressing down on us. It's not like this every time. 
 
-Like the room gets warmer, lighter.
+Sometimes it seems to do the opposite. Like the room gets warmer, lighter.
 
 I know I probably sound crazy.
 
-This has obviously been like this longer than I'd care to admit. I just haven't known what to do.
+It's been like this longer than I'd ever care to admit. I just haven't known what to do.
 
 Feeling hopeless, I finally confided in my parents about Zoe’s nightly crying.
 
@@ -184,7 +184,7 @@ Dr. Patel explained that she’s been listening to the recordings of Zoe crying 
 
 *“Of course not,"* I answered.
 
-*“From an infant… No, from any human alive, I have never heard anything like this my entire life,"* she continued. *"I believe... I wonder..."*
+*“From an infant… No, from any human alive, I have never heard anything like this my entire life,"* she continued. *"I wonder..."*
 
 She went silent for a while, then asked me if we could come in for more tests tomorrow night. 
 
