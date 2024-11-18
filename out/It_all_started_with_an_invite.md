@@ -67,7 +67,7 @@ The people behind it were dressed nicely, from what I could see, suits & the lik
 
 They weren’t laughing at the“play" & they seemed to be looking at Us… 
 
-I felt something twinge in the air and I turned to the exit door, noticing the same ticket usher now standing by it, his hands clasped in front of him.
+I felt something twinge in the air and I turned to the exit door, noticing a ticket usher now standing by it, his hands clasped in front of him.
 
 I stood up to get out.
 I had to.
