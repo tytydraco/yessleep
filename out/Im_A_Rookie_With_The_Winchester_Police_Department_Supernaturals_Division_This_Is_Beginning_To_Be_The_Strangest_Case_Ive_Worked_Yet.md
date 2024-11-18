@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/) | [Previous](https://www.reddit.com/r/nosleep/comments/1gljtwb/im_a_rookie_with_the_winchester_police_department/)
+[First](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/) | [Previous](https://www.reddit.com/r/nosleep/comments/1gljtwb/im_a_rookie_with_the_winchester_police_department/) | [Next](https://www.reddit.com/r/nosleep/s/NMhi4ZaPTa)
 
 After extensive testing and a thorough examination, Detective Davidson has been officially cleared of possession.
 
