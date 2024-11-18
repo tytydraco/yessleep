@@ -156,7 +156,7 @@ A shocked and horrified look filled his eyes, but something else swirled in them
 
 Rudy squirmed in his seat. He closed his eyes and turned his head away from me. “No! Stop, please!”
 
-“What about when you followed that poor nursing student into the hospital? Did you enjoy picking the stringy sinew of his teeth out of your fangs after you ripped his throat out?” I got up close and personal, “Huh? HUH?”
+“What about when you followed that poor nursing student into the hospital? Did you enjoy picking the stringy sinew of his neck out of your fangs after you ripped his throat out?” I got up close and personal, “Huh? HUH?”
 
 Rudy whimpered as tears started streaming down his face. I was getting close to striking a nerve. He wouldn’t be reacting this way if he wasn’t guilty.
 
