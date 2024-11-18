@@ -1,6 +1,6 @@
 This is part 5 of the series,
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/) |[ Part 2](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) |[ Part 3](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/) | [ ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/)[Part 5 ](https://www.reddit.com/r/nosleep/comments/1gjiwwn/the_thing_that_was_watching_me_had_gotten_so_much/) | [Part 6](https://www.reddit.com/r/nosleep/comments/1gouk5m/it_wasnt_human_it_couldnt_have_been/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/) |[ Part 2](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) |[ Part 3](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/) | [ ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/)[Part 5](https://www.reddit.com/r/nosleep/comments/1gu75vu/he_follows_and_hes_violent/) | [Part 6](https://www.reddit.com/r/nosleep/comments/1gouk5m/it_wasnt_human_it_couldnt_have_been/)
 
 When Markus and I turned fifteen we promised we would find our first job together and work the same shifts, a few months later we found this sad convenience store out on the outskirts of town, they were desperate for employees so Markus and we didn't even need an interview before we started working. The pay was really good for a convenience store. Around 13.50 an hour, I think it was, which is sad I can't remember since it was only like 2 - 3 years ago  I think, anyway It was probably the most fun I had while in school, it was our last year of high school, and we were both relieved to get the fuck out.
 
@@ -83,4 +83,3 @@ When my parents woke up I confessed what happened to my dad. He comforted me say
  I think about it almost every day. I’ve come to his gravestone every other month since his funeral. There wasn't much to bury at the time, but nonetheless, I brought a bouquet of flowers to Gabe and his sister. I kept all the photos of us, even if they reminded me it was my fault.
 
  I just couldn’t bear forgetting his face.
-

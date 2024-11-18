@@ -203,3 +203,8 @@ A lot to digest, I know. But what do you think?
 Should I accept my fate to be a killing machine? Or should I spit in the face of cold reason ? 
 
 And do I check out this "Flea Market" , how much can I trust Kaz?
+
+
+How things are progressing
+
+https://www.reddit.com/r/nosleep/s/iIB0OqYsUv

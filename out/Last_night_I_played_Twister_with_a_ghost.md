@@ -22,10 +22,10 @@ I’d read about people using all kinds of weird items for spirit communication�
 
 A Twister mat. Why not? It wasn’t like I had anything to lose.
 
-So, one night, when my parents were asleep and the house was dark and quiet, I decided to give it a try.  
-  
-\* \* \* \* \* \* \*  
-  
+So, one night, when my parents were asleep and the house was dark and quiet, I decided to give it a try.
+
+\* \* \* \* \* \* \*
+
 Setting up was easy. I just grabbed the old Twister game from the closet, the one we’d had since I was little. The box was dusty, the mat crumpled and faded, but it would do. I spread it out on the floor of my bedroom and pulled out the spinner, feeling silly the whole time. If my parents knew what I was up to, they’d probably have a stroke.
 
 But they didn’t know. And that’s what made it thrilling.
@@ -84,10 +84,10 @@ Before I could even move, I felt it—a pressure on the mat, the faintest sense 
 
 My whole body shook with a mix of fear and excitement.
 
-We kept going. Me and this... ghost. This spirit. My invisible opponent.  
-  
-\* \* \* \* \* \* \*  
-  
+We kept going. Me and this... ghost. This spirit. My invisible opponent.
+
+\* \* \* \* \* \* \*
+
 It took ten minutes, maybe less. But somehow, I won.
 
 The spinner stopped, landing nowhere in particular. The room warmed instantly, the candles flickering softly. And I was left kneeling on the Twister mat, staring at the empty space where that icy, ghostly presence had been.
@@ -124,8 +124,8 @@ This time, I wasn’t scared. If anything, I was *excited*. I started talking to
 
 I don’t know why I opened up. Maybe because, in some strange way, I felt... *heard*. The spirit didn’t speak back, of course, but every now and then, I’d feel a soft brush of cold air against my cheek or the lightest touch on my shoulder, as if it was trying to say, “I’m listening.”
 
-We played Twister for what felt like hours. The whole time, I felt the spirit’s presence next to me—its cold, weightless form brushing against my skin whenever we got close. And when the game finally ended, with me twisted awkwardly across the mat, it almost felt like a shared victory. A secret between just the two of us.  
-  
+We played Twister for what felt like hours. The whole time, I felt the spirit’s presence next to me—its cold, weightless form brushing against my skin whenever we got close. And when the game finally ended, with me twisted awkwardly across the mat, it almost felt like a shared victory. A secret between just the two of us.
+
 That was how it started.
 
 Night after night, I’d sneak out of bed and set up the game. And each time, without fail, the spirit would appear. We’d play for a while—sometimes Twister, sometimes something else. I even tried cards once, spreading them out on my bedroom floor and inviting it to move one.
@@ -140,10 +140,10 @@ But this spirit—it didn’t judge me. It didn’t make me feel stupid or borin
 
 At first, I didn’t tell my parents. What could I say? “Hey, Mom, Dad, guess what? I made friends with a ghost using the Twister mat from the *closet*!” Yeah, that would’ve gone over well. But it was more than that. I didn’t want to *share* my ghost. It was *mine*. My secret.
 
-That all changed the day my mom caught me talking to it.  
-  
-\* \* \* \* \* \* \*  
-  
+That all changed the day my mom caught me talking to it.
+
+\* \* \* \* \* \* \*
+
 It was a Saturday afternoon, and I’d gotten cocky. I’d forgotten to lock my door, forgotten to be careful. I was on my bedroom floor, cards spread out around me, my invisible friend nudging one toward me. The King of Hearts.
 
 “Nice try,” I teased, reaching out to pick up the card. “But I’m still gonna win.”
@@ -174,10 +174,10 @@ At first, I didn’t think the spirit would answer. The room was still, my breat
 
 “I’m sorry,” I whispered, feeling stupid and childish. “I can’t... I can’t play tonight.”
 
-The room stayed cold for a long time. And then, as gently as it had come, the presence faded away.  
-  
-\* \* \* \* \* \* \*  
-  
+The room stayed cold for a long time. And then, as gently as it had come, the presence faded away.
+
+\* \* \* \* \* \* \*
+
 My parents started watching me more closely after that. They didn’t know exactly what was wrong, but they knew *something* was. And I, stupidly, let it get to me. Instead of waiting until they were asleep, I started sneaking little games during the day, whenever they were out running errands or at work.
 
 The spirit didn’t seem to mind. It showed up whenever I called—just a chill in the air, a light touch on my shoulder. I even started bringing out board games I hadn’t touched in years, like Monopoly and Scrabble. I’d play for hours, talking to it, laughing with it, the way you would with any friend. And for the first time in forever, I felt *happy*.
@@ -202,10 +202,10 @@ The spirit didn’t respond, of course. But as I looked down at the board, at th
 
 The air around me seemed to shimmer, the faintest hint of warmth brushing against my cheek, like a ghostly caress.
 
-I chuckled again, shaking my head. “Yeah, okay. Nice to meet you, too.”  
-  
-\* \* \* \* \* \* \*  
-  
+I chuckled again, shaking my head. “Yeah, okay. Nice to meet you, too.”
+
+\* \* \* \* \* \* \*
+
 My parents noticed. They noticed everything.
 
 One evening, I was sitting on the living room floor with the Twister mat spread out again. I’d been twisting myself into knots, laughing softly whenever I bumped into that cold, ghostly presence, when I heard the unmistakable sound of the front door creaking open.
@@ -232,10 +232,10 @@ Before I could stop him, he stormed to the front door and threw the Twister mat 
 
 “No! What are you doing?” I cried, reaching for the door. “Give it back! You can’t just—”
 
-“Enough!” My dad’s voice cracked through the room like a whip. “You’re done with this, Helen. No more games. No more *spirits*. I’m calling Father Martin, and he’s going to put a stop to this, once and for all.”  
-  
-\* \* \* \* \* \* \*  
-  
+“Enough!” My dad’s voice cracked through the room like a whip. “You’re done with this, Helen. No more games. No more *spirits*. I’m calling Father Martin, and he’s going to put a stop to this, once and for all.”
+
+\* \* \* \* \* \* \*
+
 That night, the house was thick with tension. My parents barely spoke to me as they made dinner, glancing at me with wary, anxious eyes. I sat at the kitchen table, arms wrapped around myself, trembling with a mixture of fury and fear.
 
 I could *feel* it. The absence. The emptiness. Without the Twister mat, without my games, it was like a part of me had been ripped away. I knew the spirit—*Helen*—was still there, still *watching*, but it was distant now, its presence weak and strained. As if it didn’t know what to do without the familiar rituals.
@@ -268,10 +268,10 @@ I turned on him, fists clenched, heart pounding in my chest. “You don’t unde
 
 My chest ached. I looked around the room—the Twister mat gone, my books and notes thrown away, the candles they’d tossed out with the trash. Everything that had made me feel like I was finally *something* was gone. And they were looking at me like I was the problem.
 
-I turned back to Father Martin, swallowing hard. “Fine,” I muttered, hating how weak I sounded. “Do whatever you want. But it won’t work.”  
-  
-\* \* \* \* \* \* \*  
-  
+I turned back to Father Martin, swallowing hard. “Fine,” I muttered, hating how weak I sounded. “Do whatever you want. But it won’t work.”
+
+\* \* \* \* \* \* \*
+
 Father Martin knelt in the middle of the living room, clutching his rosary, and began to pray.
 
 At first, it was just words—a soft murmur of Latin, the sound filling the room like a quiet chant. My parents bowed their heads, their lips moving silently in unison. I just stood there, glaring at them, arms crossed, resisting the urge to bolt.
@@ -352,10 +352,10 @@ I stared at him, numb and shaking. “But—”
 
 “Do. You. Understand?” he snarled, his grip tightening on my shoulders until it hurt.
 
-“Yes,” I whispered, my voice barely audible. “Yes, I—I understand.”  
-  
-\* \* \* \* \* \* \*  
-  
+“Yes,” I whispered, my voice barely audible. “Yes, I—I understand.”
+
+\* \* \* \* \* \* \*
+
 The next few hours passed in a blur. My parents moved like ghosts through the house, whispering frantically to each other, casting fearful glances in my direction. I watched in horrified silence as my dad dragged Father Martin’s body into the back room, his face set in a grim mask. I didn’t dare ask what they were planning to do with it.
 
 I just stood there, trembling, my eyes fixed on the empty space in the living room where *Helen* had appeared. The air still felt cold, heavy with the lingering presence of something that shouldn’t have been there. Something I had *invited* in.
@@ -368,10 +368,10 @@ The thought echoed through my mind, relentless and unyielding, twisting in my ch
 
 The truth was there, staring me in the face.
 
-I was a murderer.  
-  
-\* \* \* \* \* \* \*  
-  
+I was a murderer.
+
+\* \* \* \* \* \* \*
+
 When I finally stumbled up to my room, hours later, I was exhausted. My parents had locked themselves in their bedroom, leaving me alone to grapple with what had happened. I felt hollow, numb, my mind a swirling storm of guilt and confusion and fear.
 
 I sank onto the edge of my bed, burying my face in my hands. “Helen?” I whispered, my voice shaking. “Are you there?”
@@ -464,10 +464,10 @@ But I knew she was still there.
 
 I could feel it, lingering at the edges of my mind—a faint, whispering presence, watching. Waiting.
 
-And then, one night, everything changed.  
-  
-\* \* \* \* \* \* \*  
-  
+And then, one night, everything changed.
+
+\* \* \* \* \* \* \*
+
 I’d been lying in bed, staring at the ceiling, when I felt it—a soft, featherlight brush against my cheek. My heart stuttered, my breath catching in my throat.
 
 “Helen?” I whispered, sitting up slowly. “Is that you?”
@@ -508,10 +508,10 @@ I let out a choked sob, dropping to my knees. “Please,” I begged. “Please,
 
 But she was already gone.
 
-The room fell silent again, the cold dissipating, leaving me alone in the dark.  
-  
-\* \* \* \* \* \* \*  
-  
+The room fell silent again, the cold dissipating, leaving me alone in the dark.
+
+\* \* \* \* \* \* \*
+
 After that night, the hauntings changed.
 
 They weren’t... *friendly* anymore. They weren’t playful, like the games we used to play. There were no more touches, no more gentle breezes. Instead, there were whispers—faint, hissing voices that echoed through the house at night, filling the silence with a low, menacing hum.
@@ -534,10 +534,10 @@ I didn’t tell my parents. I couldn’t. They’d already started avoiding me�
 
 So I just bandaged the cuts, put on a long-sleeved shirt, and tried to pretend everything was fine.
 
-But it wasn’t. It would never be fine again.  
-  
-\* \* \* \* \* \* \*  
-  
+But it wasn’t. It would never be fine again.
+
+\* \* \* \* \* \* \*
+
 The weeks dragged by, slow and torturous. The hauntings grew worse. My parents finally decided to leave, whispering in hushed voices about moving away, getting a fresh start somewhere far, far from the house and whatever nightmare I’d brought into our lives.
 
 They thought leaving would save them.
@@ -580,14 +580,14 @@ But it was too late. They were gone.
 
 And as I knelt there, sobbing over their bodies, the shadow slowly faded away, leaving me alone.
 
-Alone with the darkness I’d created.  
-  
-\* \* \* \* \* \* \*  
-  
+Alone with the darkness I’d created.
+
+\* \* \* \* \* \* \*
+
 I moved in with my grandparents shortly afterward. I never heard from the ghost again and never dabbled in the occult again. But what happened... it shook me. I don’t believe in any of it now—the prayers, the rituals, the promises of salvation. And I’ll never set foot in a church again. Not for as long as I live.
 
 My parents’ deaths were ruled the result of a break-in and an attempted robbery. That’s what the police decided, anyway. It was easy to blame it on that, considering the state the house was in. I kept tight-lipped, always claiming I’d been asleep in my room during the worst of it, hiding myself away from the violence. To this day, it’s a cold case.
 
 And it’ll stay that way forever.
 
-[Colder than anyone knows.](https://www.youtube.com/watch?v=mxUp8lhXKaA)
+Colder than anyone [knows](https://www.youtube.com/watch?v=mxUp8lhXKaA).
