@@ -134,9 +134,9 @@ Though as the days and nights passed, it was clear...
 
 Every night at 11 p.m. on the dot, Zoe cries a horrible cry. Her body writhes, as if she's in some great pain. I can’t do anything for her. I hold her tightly in my arms and just let her cry out. 
 
-Sometimes, when Zoe starts crying, the room seems to grow colder, like a sudden drop in temperature that chills my skin, my bones. The air itself feels heavy, as if something unseen is pressing down on us. It's not like this every time. 
+Sometimes, when Zoe starts crying, the room seems to grow colder, like a sudden drop in temperature that chills my skin, my bones. The air itself feels heavy, as if something unseen is pressing down on us. 
 
-Sometimes it seems to do the opposite. Like the room gets warmer, lighter.
+But it's not like this every time. Sometimes it seems to do the opposite. Like the room gets warmer, lighter.
 
 I know I probably sound crazy.
 
@@ -184,17 +184,17 @@ Dr. Patel explained that she’s been listening to the recordings of Zoe crying 
 
 *“Of course not,"* I answered.
 
-*“From an infant… No, from any person, I have never heard anything like this my entire life,"* she continued. *"I wonder..."*
+*“From an infant… No, from any person, I have never heard anything like this my entire life,"* she continued.
 
 She went silent for a while, then asked me if we could come in for more tests tomorrow night. 
 
-From 10pm to midnight. Dr. Patel wants to take new scans during an actual episode.
+From 10pm to midnight. Dr. Patel wants to take new scans during an actual crying episode.
 
 *“Yes! Thank you so much!”* I nearly yelled back on the phone when she asked my thoughts on the plan.
 
-I'm going to go cook some dinner for Zoe and I now.
+It’s 10:44pm now.
 
-Then I'm going to get ready for tonight. Get ready to hold Zoe in my arms, and tell her again and again that it will be over soon. That she doesn’t need to cry. 
+I am going to get ready to hold Zoe in my arms, and tell her again and again that it will be over soon. That she doesn’t need to cry. 
 
 Even though I know deep down, I don’t know if I can help her.
 
