@@ -2,13 +2,15 @@
 
 Morning light blasted through my blinds, jolting me awake.
 
-I had only been asleep for a couple hours.
+I had only been asleep a couple hours.
 
 My fingers trembled as I plugged the USB flash drive into my laptop, dreading what I’d see. My laptop screen flickered, and I clicked on the file, reliving last night’s nightmare in grainy footage.
 
 It was worse than I remembered. 
 
-The headlights the footage were like eyes, unblinking, menacing. I could feel being there in the driver seat again, my body shivering involuntarily. But even with the rear dash cam, I couldn’t make out his face. 
+The headlights in the footage were like eyes, unblinking, menacing.
+
+I could feel being there in the driver seat again, my body shivering involuntarily. But even with the rear dash cam, I couldn’t make out his face. 
 
 He stayed in the shadows, his features blurred.
 
@@ -218,10 +220,12 @@ I was enthralled.
 
 Then it happened.
 
-Ryan came sprinting around the corner and towards the porch.
+Ryan came sprinting around the corner.
 
 "Don't you hear that?!" he yelled. "We have to go! Now!"
 
-I had been in a trance. I snapped out of it and listened.
+I had been in a trance. 
+
+I snapped out of it and listened.
 
 A car was coming down the road, the churning of gravel and branches breaking under the car growing louder as it came right towards us.

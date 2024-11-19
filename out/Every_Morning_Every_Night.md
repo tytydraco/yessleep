@@ -1,88 +1,58 @@
-**Chapter 1**
-
-Jared sits in his apartment, on his favorite divot on the couch. The living room’s bare brick walls and mismatched furniture were empty space to Jared—familiar, unassuming. On the television, sitcom laughter erupted, the noise sharp against the quiet hum of the fridge. The chatter of the characters fills the room, a distraction from the silence he dreads. It was in moments like these that his mind would betray him, conjuring her voice, her laugh, the sound of her key in the door.
+**Chapter 1(Edited)**
 
 
 
-There’s a lot to do, the threat of the LSAT looms dreadfully. Jared scheduled a test date around a time he’d likely need an effective distraction. A February test date offered the illusion of progress, but progress required effort. There’s a birthday card for his boss sitting blank on the table and an essay due tomorrow at midnight, each task no more than a fleeting thought in his unmoving haze. Because for now, Jared just sits. For a month and a half, give or take, just sitting has been his most practiced hobby.
+Jared sits in his apartment, on his favorite divot on the couch. The living room’s bare brick walls and mismatched furniture are empty space to Jared—familiar, unassuming. On the television, sitcom laughter erupts, the noise sharp against the quiet hum of the fridge. The chatter of the characters fills the room, a distraction from the silence he dreads. It’s in moments like these that his mind betrays him, conjuring her voice, her laugh, the sound of her key in the door.
 
+There’s a lot to do, the threat of the LSAT looming dreadfully. Jared scheduled a test date around a time he’d likely need an effective distraction. A February test date offers the illusion of progress, but progress requires effort. There’s a birthday card for his boss sitting blank on the table and an essay due tomorrow at midnight, each task no more than a fleeting thought in his unmoving haze. Because for now, Jared just sits. For a month and a half, give or take, just sitting has been his most practiced hobby.
 
+Eventually, as it always does, his hatred of himself for putting aside all of his responsibilities overrides the numbing of his brain. He opens his laptop, the light of the screen shocking his bloodshot eyes. His fingers begin to move, almost on their own. With every tap and click, he feels his senses returning. Jared has always had the skill of making himself sound a lot smarter than he is. It’s incredible how a potato-brained fool can be a legal analysis savant for two thousand words in Times New Roman, double-spaced font. Well, five hundred words for now—genius and effort have their limits.
 
-Eventually, as it always does, his hatred of himself for putting aside all of his responsibilities overrides the numbing of his brain. He opens his laptop, the light of the screen shocks his bloodshot eyes. Fingers begin to move, almost on their own. With every tap and click he feels his senses returning. Jared has always had the skill of making himself sound a lot smarter than he is. It’s incredible how a potato brained fool can be a legal analysis savant for two thousand words in Times New Roman, double spaced font. Well, five hundred words for now, genius and effort has its limits.
+Next, attention shifts to LSAT review note cards. With every card, Jared imagines a little checklist in his head. Little nuggets of information slowly being absorbed, the monotonous turning of small pieces of paper adding a sense of calm to the room. Jared flips to the next card, the word *quixotic* staring back at him. He rubs his eyes, trying to clear the fuzziness clouding his vision. The letters shimmer for a second, twisting and warping into something indecipherable. He blinks hard, and the word returns to normal.
 
+Must be the lack of sleep, he thinks, tossing the card onto the table. But the unease lingers, curling in the back of his mind like smoke.
 
+Now, the most heartfelt and passionate birthday wishes are due. It isn’t that Craig Evans, esteemed manager of the prestigious Burger Barn, would actually care. But Jared’s performance review is coming up, and every little bit helps. His focus breaks as his attention is drawn to his phone. The glowing notification stares back at him like an accusatory finger. His stomach sinks. Of course, he forgot about the appointment. What else is new?
 
-Next, attention is turned to LSAT review note cards. With every card, Jared likes to imagine a little checklist in his head. Little nuggets of information slowly being absorbed, the monotonous turning of small pieces of paper adding a sort of calm to the room. Jared flipped to the next card, the word *quixotic* staring back at him. He rubbed his eyes, trying to clear the fuzziness clouding his vision. The letters seemed to shimmer for a second, twisting and warping into something indecipherable. He blinked hard, and the word returned to normal.  
-  
-
-
-*Must be the lack of sleep,* he thought, tossing the card onto the table. But the unease lingered, curling in the back of his mind like smoke.
-
-
-
-Now, the most heartfelt and passionate birthday wishes were due. It wasn’t that Craig Evans, *esteemed manager* of the *prestigious* Burger Barn, would actually care. But Jared’s performance review was coming up, and every little bit helped. His focus is broken as his attention is drawn to his phone. The glowing notification stared back at him like an accusatory finger. His stomach sank. Of course, he forgot about the appointment. What else was new
-
-
-
-The thing about Jared, he holds an expertise in two skills actually. One would be sitting and doing nothing, and the other is forgetting. His boss’ birthday card will have to wait until after his appointment with Dr. Wright, which he is now on pace to be ten minutes late for.
-
-
+The thing about Jared, he holds an expertise in two skills, actually. One is sitting and doing nothing, and the other is forgetting. His boss’s birthday card will have to wait until after his appointment with Dr. Wright, which he’s now on pace to be ten minutes late for.
 
 \*\*\*
 
+“I’ve just been chillin’ to be honest.”
 
+“Now Jared, I can’t and won’t force you to share more than you’re comfortable with. But you might find these sessions more helpful if you can give me a little more detail.” Dr. Wright looks up from her notes, her kind eyes offering an inviting expression to Jared. Her warm smile establishes an aura of trust.
 
-“I’ve just been chillin’ to be honest”
-
-
-
-“Now Jared, I can’t and won’t force you to share more than you’re comfortable with. But you might find these sessions more helpful if you can give me a little more detail.” Dr. Wright looks up from her notes, her kind eyes give an inviting expression to Jared. Her warm smile establishes an aura of trust.
-
-
-
-Jared chuckles, his cheeks blush slightly out of embarrassment. “My bad, I’m still in homework mode. I’ve been doing okay. Trying to work the piano a little bit more, and I’ve been going to the gym more often.”
-
-
+Jared chuckles, his cheeks blushing slightly out of embarrassment. “My bad, I’m still in homework mode. I’ve been doing okay. Trying to work the piano a little bit more, and I’ve been going to the gym more often.”
 
 Dr. Wright nods thoughtfully. “How’s your diet been?”
 
+“Fine,” Jared says, avoiding her gaze. He notices her raised eyebrows and frown, prompting him to add, “I’ve been doing better. I try to schedule times to eat so I don’t forget or lose track of time, you know, with LSAT stuff and work.”
 
-
- “Fine,” Jared says, avoiding her gaze. He notices her raised eyebrows and frown, prompting him to add, “I’ve been doing better. I try to schedule times to eat so I don’t forget or lose track of time, you know, with LSAT stuff and work.”
-
-
-
-As Dr. Wright nods her head, her hand begins to scribble. As she writes, Jared is drawn to a bowl of spearmints that sit in between him and his therapist. Their smell is strong in breaking the air but gentle upon his nostrils. The walls were adorned with paintings—probably a side hobby of Dr. Wright, Jared assumed. One sits on the east wall, staring directly at Jared. It’s a dog, it’s just sitting there, it’s just staring. Behind the dog is a beautiful meadow, the unnaturally green grass is contrasted by red, blue, and yellow flowers. The pure blue sky is broken by ghastly clouds, somehow softening the already serene environment. It’s all nauseatingly calm, annoyingly perfect.
-
-
+As Dr. Wright nods her head, her hand begins to scribble. As she writes, Jared is drawn to a bowl of spearmints that sit between him and his therapist. Their smell is strong in breaking the air but gentle on his nostrils. The walls are adorned with paintings—probably a side hobby of Dr. Wright’s, Jared assumes. One sits on the east wall, staring directly at him. It’s a dog, it’s just sitting there, just staring. Behind the dog is a beautiful meadow. The unnaturally green grass contrasts with red, blue, and yellow flowers. The pure blue sky is broken by ghastly clouds, somehow softening the already serene environment. It’s all nauseatingly calm, annoyingly perfect.
 
 “That’s a good habit to build,” Dr. Wright says, jotting down a note. After a brief pause, she looks up again. “How are you doing with staying in no contact?”
 
-Jared shifts in his seat. The question breaks his calm, and he feels the pressure inside himself begin to rise. “I mean... I just...” He takes a moment to compose himself. “I don’t know, really. I’ve just been doing nothing. I guess there’s nothing to do, so I’m doing nothing. Does that make any sense?” Dr. Wright nodded, but Jared felt exposed, like she could see past the shrug, past the nonchalance. The quiet pressed down on him, and his mind screamed, *Say something else! Anything else!* But all he could do was sit there, the silence loud in ways it shouldn’t be.
+Jared shifts in his seat. The question breaks his calm, and he feels the pressure inside himself begin to rise. “I mean... I just...” He takes a moment to compose himself. “I don’t know, really. I’ve just been doing nothing. I guess there’s nothing to do, so I’m doing nothing. Does that make any sense?” Dr. Wright nods, but Jared feels exposed, like she can see past the shrug, past the nonchalance. The quiet presses down on him, and his mind screams, Say something else! Anything else! But all he can do is sit there, the silence loud in ways it shouldn’t be.
 
 Dr. Wright’s tone remains gentle. “I understand. It can be hard to accept situations for what they are right now. But taking this time to heal is important. Think of it as a chance to reconnect with yourself—to figure out who Jared is, outside of anyone else. It might feel uncomfortable, but it’s good to know the value you have by yourself.”
 
-By himself. That’s exactly the reality Jared has been trying to avoid. It’s the reality that makes itself known in the moments of silence. It's the reality that makes itself known when he cooks, by himself. When he cleans, he does it alone. When he listens to the same songs, watches the same movies, he does it by himself now.
+By himself. That’s exactly the reality Jared has been trying to avoid. It’s the reality that makes itself known in the moments of silence. It’s the reality that makes itself known when he cooks, by himself. When he cleans, he does it alone. When he listens to the same songs, watches the same movies, he does it by himself now.
 
-
-
-“Well Jared, that is all the time we have for this session. I want to challenge you to keep up with your journal, and recognize how your emotions continue to shift with everything.”
-
-
+“Well Jared, that’s all the time we have for this session. I want to challenge you to keep up with your journal, and recognize how your emotions continue to shift with everything.”
 
 Jared stands from his seat, his brow furrowed, mouth tightening into a faint grimace. “Thanks, Dr. Wright,” he mutters, the words automatic. She gives him a small nod, her warm expression unchanged, as though she’s accustomed to goodbyes that don’t quite stick.
 
-The receptionist flashes a polite smile as he walks past her desk, but Jared doesn’t meet her eyes. The faint humming of fluorescent lights fill the lobby, blending with the muted tap of keyboards and the shuffle of papers. He steps into the elevator, pressing the button with more force than necessary.
+The receptionist flashes a polite smile as he walks past her desk, but Jared doesn’t meet her eyes. The faint humming of fluorescent lights fills the lobby, blending with the muted tap of keyboards and the shuffle of papers. He steps into the elevator, pressing the button with more force than necessary.
 
-As the doors slid shut, Jared exhaled, his eyelids heavy. The growl of the elevator motor filled the small space, leaving no room for distraction. In the quiet, his mind drifted—not forward, but back. And with that drift comes a familiar ache. His thoughts wander, unbidden, to places he’d rather avoid—ghosts of conversations, the echo of laughter that feels like a punch to the chest.
+As the doors slide shut, Jared exhales, his eyelids heavy. The growl of the elevator motor fills the small space, leaving no room for distraction. In the quiet, his mind drifts—not forward, but back. And with that drift comes a familiar ache. His thoughts wander, unbidden, to places he’d rather avoid, ghosts of conversations, the echo of laughter that feels like a punch to the chest.
 
 It’s always like this. In the quiet, his mind doesn’t drift; it digs. Callused though it is, it still knows where to press hardest. His mind slips to a distant time, to the beginning.
 
-He couldn’t exactly describe how he felt the first time he met her. It was strange—like tasting a food you instantly love but can’t compare to anything else you’ve ever eaten. How do you describe something so new? Like discovering a completely new color, how do you begin to name it? How do you attribute value to it in your own mind?
+He can’t exactly describe how he felt the first time he met her. It was strange—like tasting a food you instantly love but can’t compare to anything else you’ve ever eaten. How do you describe something so new? Like discovering a completely new color—how do you begin to name it? How do you attribute value to it in your own mind?
 
 Their first conversation was casual, nothing out of the ordinary. Jared had given her some general advice as she prepared for college, nothing he hadn’t said to others before. But this time, something felt different. Every time she smiled, a warmth stirred in him. When she began rambling question after question, her nervous energy on full display, he found himself grinning back. Her anxiety was palpable, almost endearing, and he’d never been so drawn to someone so preoccupied with the smallest details.
 
-There was something about her—something he still struggled to put into words. Her brown eyes didn’t just look at him; they seemed to look *into* him. They pierced, not like a knife, but like a vaccine, soothing the sickness he hadn’t realized had taken hold of his heart. Sharp and striking, their shape added an edge to her beauty, pulling him further into her orbit.
+There was something about her—something he still struggles to put into words. Her brown eyes didn’t just look at him; they seemed to look into him. They pierced, not like a knife, but like a vaccine, soothing the sickness he hadn’t realized had taken hold of his heart. Sharp and striking, their shape added an edge to her beauty, pulling him further into her orbit.
 
 Her long black curls framed her face perfectly, tumbling over her shoulders with effortless strength. Her skin was soft, her hands delicate, though they carried the strength of her cautious confidence. She intrigued him—the confidence she kept buried under layers of careful precision, the contradictions that made her more compelling with every word.
 

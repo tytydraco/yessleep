@@ -1,0 +1,15 @@
+Hi, I'm putting this story out after so long \[ a decade\] because I feel so guilty. If I had just taken him to the school, so many people would still be alive. So many people died because of me. But first some background.
+
+
+
+ I'm 43 and have always been a very paranoid person since my mum went missing when I was 8. This has only made it worse . So, this all started when my son came back with his new homework which was to capture a frog and 'gut it' for biology then to put the guts in a jar then in a spare bag, drawer etc.. and leave it for a couple days. I found it weird but it seemed believable enough. Until the teacher gave them chalk and told them to draw 12 circle's on the ground and put the frog's guts in the middle, outside of the jar. At this point I was thinking '' okay, what the fuck is going on''. This was not homework anymore it was something much more sinister. Something much much worse. Worse than I could have known. At this point I went into the school to ask this teacher what the fuck she was trying to get my son to do. So that's what I did and when I went, she said something that sent a shiver down my spine. ''I'm sorry sir, Ashton has not had any homework for 2 weeks.'' ''oh fucking hell no.'' I muttered. 
+
+
+
+But when I got home it was too late. Ashton, my baby boy was dead. Gutted on the ground. I screamed and cried while calling 911. '' Hello 911 what's your emergency'' ''MY SON, MY SON I- IS DE-D- DEAD '' I screamed. ''Okay is the killer still in the house?'' At this, I froze with fear. I didn't know, in fact I had not even checked the house. But before I could, the woman on the phone told me ''no, leave the house sir.  If they are still there, leave it to the police''. ''NO I WILL FIND HIM, I WILL FIND THE ONE THAT KILLED MY BABY BOY I WILL KILL HIM MYSELF.'' and with that I grabbed my shotgun from above the fireplace and ran upstairs to find this murderer. But when I searched the entire house I only found some smashed windows ,broken furniture and a trail of blood leading out of a giant hole in the roof. 
+
+
+
+ When the cops arrived, I was outside the house, still crying. They took my son out on a stretcher and the police ran through the building, checking for any sign of the monster who killed my son. 
+
+Wanted posters where put up for 5000 USD if there were any tips. But by the following week, there were no leads. But the most bonechilling discovery was the 12 chalk circles and the frog guts in the middle. '' Oh hell no'' I said as I realized this was not a killer. In fact, the fake homework was never some funny prank. It was a ritual all along, and I had fallen right into this things trap. I didn't want to say anything to them because they would put me in a psych ward. I knew they would never believe me. I needed the only kind of people that would still believe me. So i went on reddit and made a post that went like this, '' If anyone lives in the Cilckeck area and believes in the paranormal go to Cilckeck park at 5 PM today \[ part 2 out tomorrow or Thursday - it is my first story so I'm taking it easy and not going all out right now\]
