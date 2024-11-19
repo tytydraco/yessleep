@@ -4,46 +4,12 @@ Trigger Warning: This story contains themes of self-harm and suicidal ideation.
 
 ________***
 
-*Baking a dream*
-
-A small bakery with the fragrance of sweet pastries,
-
-Colourful candies on the tabletop,
-A cozy atmosphere, filled with smiles,
-
-With the sound of wind chimes,
-A tall chef's hat adorning my head,
-
-And a heart full of happiness
-Is all I wish for.
-
-Small plants along the door,
-And a carpet-covered floor...
-
-And wooden tables,
-Little kids who drool over the cookies
-On the counter...
-
-Meeting customers in a hurry—
-With a silly smile, what a funny encounter.
-
-Sounds of grinding coffee,
-And a faint aroma of toffee.
-
-Someone getting a forgetful cake for a late birthday gift,
-A small, sparkly cupcake—perhaps for the date?
-
-And the soft creak of a rusted doorknob!
-
-A dream that in my heart remains untold...
-A life of sweetness, warmth, and gold...
-
-
-_______***
 
 "What the hell are you doing, Siya?" barked Mr. James, my English professor, as he yanked the paper from my desk.
 
-"Haha, you silly little thing. You're not thinking of submitting this for the annual literary competition, are you? That would be hilarious." He smirked, crumpling the page before tearing it from my notebook.
+"Haha, you silly little thing. You're not thinking of submitting this for the annual literary competition, are you?  He said mocking my poem
+
+That would be hilarious." He smirked, crumpling the page before tearing it from my notebook.
 
 Tears stained my desk that day.
 
