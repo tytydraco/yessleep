@@ -36,7 +36,7 @@ I walked over during the day looking for any kind of clues. The park led off int
 
 Aside from some recent graffiti, nothing appeared out of place around the park or the trial. My legs ached from all the walking. I spent a few hours sitting on a bench almost wanting for something to happen.   
 
-I found out the hard way if I focused hard way not use my talent of seeing traces of magic after my leg treatments. The migraines I got did not mix well with the leg pain, making them both unbearable. Speaking of something unbearable, my phone kept going off because August figured out how to send GIFs. I should have blocked him. He would on occasion send a good cat gif in the mess of other memes that made it worth letting his messages go through.  
+I found out the hard way not to use my talents of seeing magic after my leg treatments. The migraines I got did not mix well with the leg pain, making them both unbearable. Speaking of something unbearable, my phone kept going off because August figured out how to send GIFs. I should have blocked him. He would on occasion send a good cat gif in the mess of other memes that made it worth letting his messages go through.  
 
 “Is your girlfriend worried about you?”  
 
@@ -86,7 +86,7 @@ I frantically ran through my brain trying to figure out what the hell these crea
 
 “Give me a damn break.” I said to any higher power that might be listening.  
 
-Again, my luck turned around in a way I never would have guessed. The larger crow let out a noise over something that was happening behind me. The knocked-out bird's eyes flew open as its chest feathers budged outwards. It let out a strangled cry, then rolled on its back. My body felt cold when I saw a human shape literally rip its way through flesh, blood, and feathers. The girl stood covered in gore. Her once-white dress clinging to her and my jacket was ruined. Sharp claws hung at her side. A wide smile cracked her face in half. She shook the hair from her hair and then grabbed her blood-soaked clothing. She ripped it off to stand in the cold wearing nothing but a sports bra and shorts.   
+Again, my luck turned around in a way I never would have guessed. The larger crow let out a noise over something that was happening behind me. The knocked-out bird's eyes flew open as its chest feathers budged outwards. It let out a strangled cry, then rolled on its back. My body felt cold when I saw a human shape literally rip its way through flesh, blood, and feathers. The girl stood covered in gore. Her once-white dress clinging to her and my jacket was ruined. Sharp claws hung at her side. A wide smile cracked her face in half. She shook the hair from her face and then grabbed her blood-soaked clothing. She ripped it off to stand in the cold wearing nothing but a sports bra and shorts.   
 
 The larger crow started to move knowing it wasn’t wise to stick around. She didn’t give it time to flee. Within seconds she was on the monster ten times her size. Claws and teeth ripping deep into the monster's body.  
 
@@ -94,9 +94,9 @@ I should have stayed home that night.   
 
 I took a few steps away, the pain slowing my movements. If I was lucky, I had enough time to get out of the park before she finished the one-sided fight. I’m never lucky.   
 
-She tackled me from behind easily knocking us bother over. I rolled on my back ready to fight back. She quickly pinned down my arms, blood dripping from her stained face.  
+She tackled me from behind easily knocking us both over. I rolled on my back ready to fight back. She quickly pinned down my arms, blood dripping from her stained face.  
 
-“Come on darling, show me what you can do! You knocked down that chicken, didn’t you? What else do you have up your sleeve?” She said her voice now lacking the fact sweetness she used before.  
+“Come on darling, show me what you can do! You knocked down that chicken, didn’t you? What else do you have up your sleeve?” She said her voice now lacking the fake sweetness she used before.  
 
 She was crazy. Legit a nutcase. I’ve come across monsters that love nothing but fighting. She had acted as bait not to lure in humans to eat but for other monsters. Since I showed a hint of skill, I was now the next target.  
 
@@ -145,7 +145,6 @@ April gave a tooth-filled smile and I wanted to die. She should have just eaten 
 Yeah, I wanted to die. Evie stared at me as if I was on the same mental level as April. She carefully took hold of the other girl who now was wrapped in a blanket one of the cleanup crews brought.  
 
 “Just friends?” She asked very weary of my motives.  
-
 “Just friends. She’s like, a kid.” I defended myself.  
 
 “Oh, so we’re grooming supernatural girls now.” Evie replied hugged April tighter.  
