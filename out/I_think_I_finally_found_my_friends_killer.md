@@ -1,18 +1,22 @@
 Two years ago, my best friend, Maggie, vanished.
 
-I feel terrible for her and her family. Every time I press the police, I get the same tired answer:
+I feel terrible for her and her family.
 
-***“These things happen sometimes... It's best to move on...”***
+Every time I press the police, I get the same tired answer:
+
+“These things happen sometimes... It's best to move on...”
 
 She was out one night with friends celebrating finals being over, laughing, living, just a college kid letting off steam. And the next morning? Gone. She was driving home to visit her parents for the weekend. Her car was found empty on a remote highway, about 30 miles east of Meridian, Idaho.
 
 The police combed the area for several weeks, but their conclusion was maddening.
 
-***“She'd been drinking with friends. We know that much. Something happened on the road. She stopped. Went looking for help and probably ended up succumbing to nature.”***
+“She'd been drinking with friends. We know that much. Something happened on the road. She stopped. Went looking for help and probably ended up succumbing to nature.”
 
 Maggie probably had a drink or two after finishing her finals... But no way she was drunk driving, if that's what they were insinuating. That wasn't Maggie. Then one of the idiots even suggested she’d just taken off, like she’d decided on a whim to leave her life behind.
 
-But I knew better. I knew something bad happened to her. Something dark.
+But I knew better.
+
+I knew something bad happened to her. Something dark.
 
 Maggie didn’t just wander off, and neither did the two other college kids who’d vanished over the past five years after nights of partying, found only by their abandoned cars along these lonely mountain roads. Someone was out there, lurking, and if no one else was going to do anything about it, then I would.
 
@@ -90,4 +94,4 @@ I still didn’t have the answers I wanted. But I felt like I was closer to find
 
 Honestly, I'm a little overwhelmed tonight.
 
-I'm going to go get the USB memory cards from my dash cameras in the morning. I'm not ready to look at what's on them yet. I know once I do... there's no going back.
+I'm going pull the flash drive from my cameras in the morning. I'm not ready to look at what's on them yet. I know once I do... there's no going back.

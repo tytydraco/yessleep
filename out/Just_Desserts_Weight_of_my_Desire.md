@@ -55,3 +55,5 @@ I lost everything that night—my career, my reputation, my sanity. My bosses di
 I thought I could control my life, but the truth is, I was never in control. Not of my career, not of my women, not even of myself. Now, all I have left is the weight of my own actions, crushing me day by day.
 
 [Priyam's Story](https://www.reddit.com/r/nosleep/comments/1grwiyw/just_desserts_marked_for_life/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Mary's Story](https://www.reddit.com/r/nosleep/comments/1gv47nv/just_desserts_deathly_despair/)

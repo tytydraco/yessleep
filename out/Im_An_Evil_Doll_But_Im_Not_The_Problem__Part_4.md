@@ -201,3 +201,9 @@ And that is where we are, a handful of shaky alliances , a surgery I hope has no
 As always, I ask you guys, what do you think? I've got so many plates spinning right now I can only hope I'm making the right choices. 
 
 Before I go, I want to apologise to people that have been cheering for me. I could have just omitted the details, but you guys deserve better than that. You should know who you are helping . For all you know it could be your future house I'm living in
+
+
+For everyone who wants to see where this goes
+
+https://www.reddit.com/r/nosleep/s/ZfbbR1CRHw
+

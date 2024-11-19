@@ -37,3 +37,5 @@ But the marks wouldn’t fade, and the faces wouldn’t disappear. They were etc
 But even I didn’t believe them anymore.
 
 [Roger's Story](https://www.reddit.com/r/nosleep/comments/1gt8ycn/just_desserts_weight_of_my_desire/)
+
+[Mary's Story](https://www.reddit.com/r/nosleep/comments/1gv47nv/just_desserts_deathly_despair/)
