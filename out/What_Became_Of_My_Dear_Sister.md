@@ -87,7 +87,9 @@ As my father answered he wept, his tears like those on the face of Christ.
 “In burning your tongue out when you were born. Your mother saved us all from greater suffering that day, and you, boy, most of all.”
 
 
+
 *
+
 
 
 Through fear of what else might be done to me in reprimand I made a great pretence of understanding my parents’ acts of zealous mutilation, falling to my knees and weeping, grateful for it all, and they, in their madness, believed it of me. 
@@ -114,6 +116,6 @@ I may not have followed their religion, but some sediment of its superstition fo
 
 My restless habit of wandering persisted, also, which in taking me through the city, lost in contemplation of my family’s disappearance, led me to hear amongst the vagrants and the preachers there of a changed branch of their strange sect. The Holy Order of Saint Justice, they called it, my only proof that my parents and sister remained in that place three years after.
 
-I looked for them in the streets and shabby buildings to which their circle was ordinarily drawn, intent on acting as the law had failed to in liberating my sister from them. Each time I imagined I’d find her where I sought, set upon some overturned box made an altar, her tortured body and eyes without thought lit by the reeking flame her congregants each prayed by.
+I looked for them in the streets and shabby buildings to which their circle was ordinarily drawn, intent on acting as the law had failed to in liberating my sister from them. Each time I imagined I’d uncover her where I sought, set upon some overturned box made an altar, her tortured body and eyes without thought lit by the reeking flame her congregants each prayed by.
 
 Yet in the catacombs we called our city my parents had hidden her too well for me to find, for they had always loved the result of her suffering more than they did Justice and I.

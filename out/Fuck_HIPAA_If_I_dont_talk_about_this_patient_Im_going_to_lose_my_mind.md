@@ -106,8 +106,6 @@ So, rather than try and probably fail to explain it all — what I have to do, w
 
 For what it’s worth, I was told that Numa is the least dangerous inmate in the Pantheon.
 
-
-
 # Numa
 
 ***Classification String: Noncooperative / Indestructible / Gaian / Constant / Moderate / Teras***
@@ -173,8 +171,6 @@ Numa has a humanoid appearance, although he is significantly larger than any hum
 His jaws possess extra bones and joints that allow Numa’s mouth to open excessively wide. These extra bones fold parallel to the teeth, and are effectively invisible when Numa is speaking or at ease. When Numa feeds or wishes to intimidate Agency staff, he unlocks these joints and opens his mouth to its widest point, baring all teeth.
 
 Numa’s conversations with staff are numerous, repetitive, and generally very short. Despite serious ongoing concerns for my personal safety throughout his treatment, I believe I have made significant progress with Numa. An edited and clarified record of his longest interview to date, which I performed, can be found below:
-
-
 
 **SUBJECT: NUMA**
 
@@ -263,3 +259,11 @@ Now I have told you. It is Pup. And I promise you this – I will no longer be a
 Please bring him back. Please.
 
 I miss him so.
+
+
+
+  
+\* \* \*
+
+  
+Second Interview: [https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck\_hipaa\_i\_messed\_up\_hardcore\_and\_if\_we\_dont/](https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
