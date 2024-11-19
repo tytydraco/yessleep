@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/wFL8NQRddd)
+
 Day One Cont’d 
 
 (First of all, I want to apologize for having to split up Day One – I don’t have a lot of time to write things down, but there was a lot that happened that I need to explain. I have to constantly be looking over my shoulder. I will try to do better moving forward)

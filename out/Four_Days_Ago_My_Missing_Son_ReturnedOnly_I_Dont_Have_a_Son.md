@@ -97,3 +97,5 @@ He sounded so excited, it was almost contagious. Until I remembered that there w
 I stepped timidly into the office. A boy—maybe six or seven—sat perched on a chair, his dark curly hair disheveled and standing up at odd angles on his head. He clutched a juicebox in one hand and a ratty teddy bear in the other. He was pale, but his cheeks were unnaturally rosy, and he looked up at us with the darkest, widest eyes I’ve ever seen. 
 
 Seeing him was like a gut punch. Fear course through me like an electric shock. This kid, whoever he was, definitely wasn’t my son. In fact, I was pretty sure he was pure fucking evil. 
+
+[Part 2](https://www.reddit.com/r/nosleep/s/DFpQ2C3fni)
