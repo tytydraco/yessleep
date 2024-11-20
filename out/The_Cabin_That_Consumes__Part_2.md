@@ -375,3 +375,6 @@ He began to cry, struggling to get out "I hear it again. It's back! I don't know
 I went to say something, but he shushed me. And as soon as he did, I shut the hell up. The next word out of my word could get my friend killed.
 
 I gave the phone to Brandon and put my head back down into the hole, hoping to hear whatever Jake was talking about. But it was silent. It was way too quiet for all of this to be going on.
+
+  
+[Part Three](https://www.reddit.com/r/nosleep/comments/1gvdylz/the_cabin_that_consumes_part_3_final/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
