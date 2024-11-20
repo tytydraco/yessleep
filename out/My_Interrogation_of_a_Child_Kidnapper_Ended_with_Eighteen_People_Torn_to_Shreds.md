@@ -294,6 +294,8 @@ Serlana looked at the door, then back to me.
 
 Something crossed over the girl-thing’s face. A glint of understanding.
 
+They weren’t human, sure. And who knew what their intentions had been in the first place. But at the core, I couldn’t get that image out of my head. A creature, hunched over and taking advantage of someone weaker. Serlana wasn’t the monster in that scene. 
+
 I’d said all I could. My fate was in their hands now. Whatever the fuck these things were, whatever was waiting around that corner, I had no shot against it if they decided they wanted to rip my face off too. 
 
 An eternity passed as I waited. 
@@ -322,7 +324,7 @@ It took a moment for me to realize that the rumbling and the screaming had stopp
 
 I didn’t look into Tallor’s room. 
 
-I stumbled out of the hallway and around the corner, vision blurred. The entire station had been ripped apart. 
+I stumbled through the hallway and around the corner, vision blurred. The entire station had been ripped apart. 
 
 I dropped to my knees and vomited as I exited the open wall of the station where the front doors used to be, and into the grey daylight of winter. Mass chaos and commotion played out all around me, people screamed and cried, sirens wailed, there was a coppery and blood drenched haze hanging in the atmosphere where Serlana and her mother walked their path of destruction. 
 
