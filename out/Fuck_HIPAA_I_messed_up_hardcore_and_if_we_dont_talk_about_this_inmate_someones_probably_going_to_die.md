@@ -508,8 +508,8 @@ The Paean is the Agency’s medical division. It includes doctors, surgeons, nur
 
 Agents with abilities that require dynamism classification — in other words, agents whose abilities necessitate incarceration at NASCU. Once identified, they are required to either join the Agency or submit to termination. Thiessi function similarly to K9 units, and are always partnered with an Argonaut or Varangian. When not in the field, Thiessi are housed inside NASCU to ensure their continued compliance with Agency directives. Their primary duty is the protection of their Argonaut or Varangian partner at any cost. Failure to perform their duties may result in termination.
 
-  
 \* \* \*
 
-  
-First Interview: [https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
+First Inmate: [//www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](//www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
+
+Third Inmate: [www.reddit.com/r/nosleep/comments/1gve4dc/fuck\_hipaa\_this\_inmate\_is\_the\_most\_dangerous/](http://www.reddit.com/r/nosleep/comments/1gve4dc/fuck_hipaa_this_inmate_is_the_most_dangerous/)
