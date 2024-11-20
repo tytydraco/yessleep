@@ -16,7 +16,7 @@ There was a pause, the sound of her moving away from the crowd. “Not really,�
 
 That was all it took. I glanced back at the guys, all of whom had gone silent, listening in as I finished the call. “We gotta go,” I said, feeling a prickle of worry. I didn’t explain, but they didn’t ask. They all just stood, shaking off the comfort of the night and grabbing their jackets, feeling a shared sense of urgency settle over them.
 
-“Guess we’re going for a drive,” Kev said, trying to keep it light as we all piled into Greg’s car. But even he was quieter than usual, and I could feel my own tension spreading to the others. 
+“Guess we’re going for a drive,” Kev said, trying to keep it light as we all piled into Greg’s car. But even he was quieter than usual, and I could feel my own tension spreading to the others.
 
 Greg’s car rattled as it picked up speed, the low hum of the engine filling the silence that had settled over us. I sat in the passenger seat, my fingers drumming nervously against my thigh as I tried to explain where we are headed. We all knew the city well, but even I wasn’t exactly sure where this party was, and every turn we took seemed to make the streets feel less familiar.
 
@@ -44,11 +44,11 @@ Tommy, sensing the mood, let out a shaky laugh. “Man, you guys are acting like
 
 We pulled up a few houses down, parking under a half-dead tree that cast warped shadows across the hood of Greg’s car. The house we were looking at, the one my sister had described, was at the end of the block, its dim porch light flickering in a slow, irregular pattern. But everything else about it seemed…off.
 
-Greg cut the engine, and the silence hit us like a weight. No bass thumping from inside the house, no laughter drifting out into the night, no sounds of people spilling onto the porch for a smoke or some air. The place looked abandoned, except for the dim yellow light over the door, swaying slightly in the breeze. It was a big house, three stories tall, the kind of place that felt like it had its own ghost stories. The windows were dark, and the yard was overgrown, as if no one had cared for it in years. 
+Greg cut the engine, and the silence hit us like a weight. No bass thumping from inside the house, no laughter drifting out into the night, no sounds of people spilling onto the porch for a smoke or some air. The place looked abandoned, except for the dim yellow light over the door, swaying slightly in the breeze. It was a big house, three stories tall, the kind of place that felt like it had its own ghost stories. The windows were dark, and the yard was overgrown, as if no one had cared for it in years.
 
 “You sure this is the right spot, man?” Kev asked from the back, leaning forward to get a better look. He squinted, peering through the darkness like he could will the place to look more lively.
 
-“This should be it,” I said, pulling out my phone and trying to call my sister. I waited, listening to the ringing, but it went to voicemail. 
+“This should be it,” I said, pulling out my phone and trying to call my sister. I waited, listening to the ringing, but it went to voicemail.
 
 “Maybe they all went somewhere else?” Tommy offered, though even he sounded unconvinced. “Or it ended early. I mean, it’s almost one in the morning.”
 
@@ -74,7 +74,7 @@ It swung open slowly, as if someone—or something—inside had been watching us
 
 Greg swallowed, his hand hovering just inches from the door, and my heart was racing, each beat louder than the last.
 
-And then, finally, my sister picked up her phone. 
+And then, finally, my sister picked up her phone.
 
 “Casey?” Her voice was low, urgent, barely more than a whisper. “Casey, listen to me. I’m…I’m not in the house anymore. I don’t know how to explain it, but you need to leave. Now. Don’t ask questions. Just get out of there. Please.”
 
@@ -86,7 +86,7 @@ Her words hit me like ice water, sending a shiver down my spine. I looked around
 
 “What the hell!?” Kev shouted, his hands clawing at the ground as he tried to crawl backward, away from the small, pale hand clutching his ankle.
 
-My phone almost dropped as i looked down. A girl was lying there on the edge of the porch, half-hidden by shadows, her face twisted in pain. Her skin was ashen, her clothes torn and stained with dark patches of blood. She looked barely conscious, her eyes half-closed, 
+My phone almost dropped as i looked down. A girl was lying there on the edge of the porch, half-hidden by shadows, her face twisted in pain. Her skin was ashen, her clothes torn and stained with dark patches of blood. She looked barely conscious, her eyes half-closed,
 
 “Oh, my God,” Tommy whispered, his face pale as he backed up, his eyes glued to the girl.
 
@@ -130,7 +130,7 @@ We just stood there, frozen, staring at the spot where she had fallen, trying to
 
 Kev’s voice broke the silence, hoarse and trembling. “What…what the hell was that?”
 
-No one answered, because none of us had an answer. We just stood there in silence and tried to proccess what had just happend. 
+No one answered, because none of us had an answer. We just stood there in silence and tried to proccess what had just happend.
 
 I swallowed hard, glancing around at my friends. Kev was on his knees, clutching his shoulder where the girl’s claws had torn into him, his clothes stained with dark red smears. I crouched beside him, extending a hand to help him up.
 
@@ -222,6 +222,4 @@ When he hung up, we were all watching him, his expressions a mix of worry and dr
 
 They all nodded, and the car fell silent as we turned onto the road leading toward the high school. But as we rounded the last corner, my heart skipped a beat. Standing in the middle of the street, illuminated by the glow of the headlights, were three figures. Their heads snapped toward the car, eyes wide, yellow, and hungry.
 
-
-
-More of them.
+[More of them.](https://www.reddit.com/r/nosleep/comments/1gvy5qm/my_sister_called_me_to_pick_her_up_from_a_party/)

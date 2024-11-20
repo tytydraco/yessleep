@@ -145,3 +145,5 @@ I snatched the phone from the base. “Hello?”
 I scrunched up my face. “Is what true?”
 
 “That they found him, they found Logan?”
+
+[Part 3](https://www.reddit.com/r/nosleep/s/9CirXBtLoR)
