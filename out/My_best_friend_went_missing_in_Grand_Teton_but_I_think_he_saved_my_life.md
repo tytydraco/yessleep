@@ -127,11 +127,12 @@ I checked my SatNav again before leaving the hospital, and saw that one message 
 I still don’t know how to explain it. Maybe it doesn’t mean anything. People mysteriously survive dangerous stuff all the time. But I can’t shake the feeling that Patrick is still out there, and maybe he was the reason we survived.
 
 
-Edit: hey guys, thank you for all the kind words about Patrick. Park services recovered his cellphone and they were able to pull some voice notes that Patrick made while he was hiking. I transcribed them and posted it here
+A few days later, I got a call from the park services. They told me they had recovered Patrick's cellphone, which they found abandoned deep in the forest. They were able to pull some voice notes from it, and I was listed as one of his emergency contacts. I wasn’t sure if I even wanted to hear them, part of me wanted to forget the whole experience, to leave it behind. But curiosity, or maybe loyalty to my friend, pushed me to listen.
 
-Edit 2: My update got taken down so I'm going to post it below instead: 
+They sent me the files in an email. It was late afternoon when I finally settled into my small living room, the kind of quiet that only comes with isolation filling the space. I stared at my laptop screen for a long time, hesitating. I could feel the weight of the unknown pressing on me. Finally, I clicked on the first audio file. I plugged my headphones in, taking a deep breath, half-hoping that what I was about to hear would bring some kind of closure.
 
-Hey everyone, you may have read about what happened to my friends and I in Grand Teton. Patrick wasn’t recovered after the flash flood, but his phone and pack were. They were able to pull his voice notes from the time he was gone, and I transcribed them here.
+The first audio file opened, and as soon as I heard Patrick's voice, it filled me with a sense of hope, like maybe Patrick's words could help me understand what really happened. His voice was steady at first, full of enthusiasm, talking about the adventure, but as I continued listening, I could hear it shift, from confidence, to confusion, then to something I could only describe as acceptance. There was a heaviness in his words that felt almost tangible, like he knew something was coming but couldn’t articulate it. Here’s what he said:
+
 
 June 29th 
 
