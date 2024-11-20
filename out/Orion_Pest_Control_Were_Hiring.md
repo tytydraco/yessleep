@@ -326,9 +326,6 @@ I didn't have the heart to tell her that in reality, combat isn't pretty. It's f
 
 Truthfully, I just wanted an excuse to keep the dance going. As tired as I was, I was willing to fight the exhaustion if it meant I got to do something pleasant that night. Even if I was not very good at it. 
 
-But like with using the sword, I'll learn. I'll learn how to become a hero. I'll learn how to dance with a pretty fairy. I'll learn about what happened to my grandfather. 
+But like with using the sword, I'll learn. I'll learn how to become a hero. I'll learn how to dance with a pretty fairy. I'll learn about what happened to my [grandfather ](https://www.reddit.com/r/atypicalpests/s/kvnRWF2wFv). 
 
 Update: [Found Grandpa. ](https://www.reddit.com/r/nosleep/s/OSdj41PjMs)
-
-[(Here's an index of all the cases that have been discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
-
