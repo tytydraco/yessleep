@@ -26,7 +26,7 @@ In a final, desperate attempt, Greg whipped the steering wheel to the right, the
 
 With a sickening crash, we smashed into the curb and spun sideways. The creature flew off the roof, disappearing into the darkness behind us as the car finally lurched to a stop, tilted halfway up on the curb. The silence that followed was deafening.
 
-For a moment, none of us moved. Then, slowly,wetook stock ofourselves. I reached up and touched my head, relieved to find no blood. My shoulder ached from the impact, and i could feel a bruise forming along my side, but i was otherwise okay. Around me, the others were doing the same—Tommyrubbing his elbow,Kevclutching his shoulder, Greg with a split lip from where he’d bitten down too hard.
+For a moment, none of us moved. Then, slowly, we took stock of ourselves. I reached up and touched my head, relieved to find no blood. My shoulder ached from the impact, and i could feel a bruise forming along my side, but i was otherwise okay. Around me, the others were doing the same—Tommyrubbing his elbow,Kevclutching his shoulder, Greg with a split lip from where he’d bitten down too hard.
 
 “Everyone…good?” i asked.
 
