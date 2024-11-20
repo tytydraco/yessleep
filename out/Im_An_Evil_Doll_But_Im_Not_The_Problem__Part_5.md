@@ -170,3 +170,8 @@ And that’s where I am.
 I guess if this goes as bad as it’s looking, this will be the last you hear from me. But by all means, I'm in need of any advice you have left to give, and I'll be checking the comments till I have to man up. 
 
 If this is goodbye though, watch out for the shit that goes bump in the night. It's smarter than you can imagine and scarier than you've read
+
+
+How everything is progressing
+
+https://www.reddit.com/r/nosleep/s/tJnBNx1JkD
