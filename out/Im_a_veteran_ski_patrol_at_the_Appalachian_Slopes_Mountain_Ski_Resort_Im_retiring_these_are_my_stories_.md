@@ -26,5 +26,6 @@ A county sheriff came by the following morning, I didn’t recognize him, which 
 Well folks, that’s my first story I’ll be sharing here. Don’t know if it interests any of you, but if it does I’m more than happy to share more. It’s kind of therapeutic to get these memories out of my head and onto paper, so to speak. Stay safe out there y'all, and see you real soon. 
 
 Sincerely, 
+
 Carol
 
