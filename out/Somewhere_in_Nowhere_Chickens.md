@@ -200,4 +200,4 @@ That’s all the story I have to tell for now. Sure, I could probably think of s
 
 Maybe something will happen that’s worth typing about. Maybe it won’t. I’ll still type something, regardless.
 
-Until next time. 
+Until next [time.](https://www.reddit.com/r/nosleep/comments/1gwncue/somewhere_in_nowhere_aunt_jean/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
