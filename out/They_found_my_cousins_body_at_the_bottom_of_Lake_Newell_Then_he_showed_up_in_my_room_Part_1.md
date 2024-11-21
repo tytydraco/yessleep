@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1guzlzf/they_found_my_cousins_body_at_the_bottom_of_lake/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1gw7kwn/they_found_my_cousins_body_at_the_bottom_of_lake/)
+
 I remember everything about that day at Lake Newell. The way the sun gleamed off the water, the shouts of laughter echoing through the park, and the bright colors of picnic blankets sprawled across the grass. It was supposed to be a perfect day—the last family outing of the summer before school started again. I was looking forward to it, even though I’d never been big on family picnics. But that day… that day was different.
 
 Tom had been excited since we pulled into the parking lot, practically bouncing out of the car as soon as the doors unlocked. He was always like that—full of energy, always smiling. It was hard not to get swept up in his enthusiasm. As the youngest of our cousins, he had a way of making everything feel more alive, like seeing the world through a different lens. When he darted off toward the shore with his flip-flops slapping against his heels, I knew I’d be spending the day chasing after him, just like always.
