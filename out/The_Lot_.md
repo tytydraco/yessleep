@@ -1,287 +1,237 @@
-I came out of work to find this little leather book under my windshield wiper and my back window shattered. I’m both pissed and curious. Here's what it said.
+I had people ask me about the journal I found on my last journey. I had no intention of sharing its contents because it’s author was not worthy of The Lot. But seeing as no one has the courage to join me for my next voyage to the new world I shall share the writings. Maybe it will inspire someone else to seek the treasure waiting us. 
 
+Here below is the contents of the book I obtained. 
 
+I’ve never been much of a writer. Never been much of anything really, I lived my life one ordinary day at a time. 
 
+I would say I was nearly an NPC. Weeks would go by without a change in my routine, I was living the life I thought I needed to. And it was a total waste, those dreams and ambitions are gone now. 
 
-I’m not sure why I’m writing this down, perhaps it’s a way of coping? Maybe deep down I still have some hope and this will serve as a written record. No matter the reason, I find a bit of comfort in putting the events on paper and will continue to do so for as long as I am able. 
+I should probably start at the beginning. Damn that sounds cliché but I’m writing in pen and I’m not going to scribble it out. You would think I would plan out what I’m going to write, but that’s just not how I do things so instead you get my ramblings. 
 
-My memory is not perfect and I didn’t begin writing things down immediately. It took awhile for Helen and I to accept our situation. 
+My name is Chuck, I’m a six foot one white guy who graduated middle of my class. I’ve been working a fairly dead end job as an online retailer for three years. 
 
-We were just your average American couple in their late twenties, we had just attended a football game with our little Bud and were attempting to return to our car when we entered The Lot.
+That all changed when I found myself in this pocket dimension. At least that’s what I’m assuming it is, I have no idea as to what’s going on but alternate universe seems like as good an explanation as any. 
 
- 9/8/23
+Like any other Tuesday or Thursday I was at the gym. When you sit for a living you have to keep moving in your off time. It was late, I had taken my sweet time showering. 
 
-Bud had grown cranky, neither of us were big fans of the teams playing so we elected to leave the game a little early. It would give us a chance to beat traffic we reasoned.
+I would kill for a shower right now. 
 
-The sun was already low in the sky when we left the stadium behind. I don’t remember who noticed it first but the sheer desolation of the parking lot was eerie. Not empty of cars mind you, every spot was full. But rather empty of people.
+So I walked out of the building, my mind on other things and I couldn’t seem to find my car. 
 
-The next thing we noticed was the hills, “I don’t remember the lot being this steep” Helen had said, “did we go out the wrong door?”
+And it was dark, there wasn’t a single street light or building within sight. I reasoned that the power must be out, I kept clicking my key fob. 
 
-We had been to this place a dozen times over the years, never had the parking lot been made up of rolling hills like this. It made it feel as if we were on the ocean, surrounded by rising and falling waves of multicolored steel bugs. 
+My brain filled my ears with faint ringing in an attempt to comprehend the silence. Fear coursed through me, I knew something was horribly wrong. 
 
-When the sun finally dropped behind the horizon and darkness flooded the lot I found an irrational fear rising up. Bud whimpered and Helen comforted him. The air wasn’t overly cold, just chilly enough to be uncomfortable. 
+But when I turned to run back into the gym I found myself looking out over an endless expanse of metal humps. 
 
-Something was wrong. There were no lights. Not only were there no lights in the lot there were none on the distant hills. No buildings rose up, I looked in every direction. All I could see was the ever darkening lines of cars. 
+Every direction I turned showed more of the same. As animal instinct took over, I started to run. 
 
-It simply couldn’t be. 
+I ran and I ran, there was no end. It wasn’t long before I collapsed, it was both impossible and undeniable. I was no longer in Boulder. 
 
-9/9/23
+I screamed for help until my voice grew weak. I wandered back and forth looking for some glitch, some portal between worlds. 
 
-We had walked all night taking turns carrying Bud. The sun rose revealing the endless cars. Our phones didn’t work, there was no service. We fought, I blame the stress and sleep depravation.
+The sun rose on the first day, it’s light revealing just how absolutely screwed I was. I couldn’t see an end, cars stretched on for dozens of miles. Rolling hills covered in black top and vehicles. 
 
-I felt we had to keep moving, this couldn’t go on forever. Helen insisted that we stay put, that walking would just make us harder to find. 
+The pattern was unbroken in every direction, an open lane, a car, a car and another open lane. No light poles, no flowerbeds. I almost felt dizzy, like my brain couldn’t comprehend the sheer vastness of this place. 
 
-9/10/23
+Despite it’s familiar appearance it felt wrong, twisted and distorted. This place wasn’t good, I wasn’t meant to be here. 
 
-We didn’t want to but we broke into someone’s car. They had a pack of water in there back seat. We needed it. 
+I had to shake away those thoughts on order to survive, if I focused on them I could imagine my body changing into something else. Something wrong. 
 
-I left a note just in case. 
+I reasoned that my best shot at escaping was to remain as close to the beginning as possible. If I had accidently entered perhaps I could accidentally exit. It was a flawed yet comforting logic. 
 
-9/11/23
+It only took a couple hours before I started to loot vehicles. After all, they were either not real, or the damage would lead to someone discovering me. 
 
-The infighting was replaced by silence. Our feet hurt. We must have walked a dozen miles by now. 
+I even tried to hotwire a dozen or so vehicles, but without Google I was just blindly connecting wires. Only one started but then I could steer it. So I burnt it and pissed on its corpse. 
 
-9/12/23 
+I found myself growing accustom to the life of looting and vandalizing. There was this one time I had a chain reaction of burning cars get out of hand, but the fear made me feel alive again. 
 
-It was worrying how accustomed we had become to breaking into strangers vehicles. We slept in a conversion van that night. 
+After a week I had exhausted the resources in the area, I had to move on to fresh pastures. 
 
-9/20/24
+That’s when the first curve ball got me. After sleeping in a new area I remembered I had left a tool bag behind. I went to retrieve it but all the cars were in pristine condition. And they were different, my dozens of smashed and burnt cars were gone. Replaced by new vehicles
+ 
+At the time I thought this meant infinite resources. It took a few more weeks for me to realize time moved forward. The cars didn’t spawn, not like I had thought. 
 
-We left the van, the food had ran out and the batteries were dead. It had given us a chance to rest out legs. I worry Bud isn’t getting the nutrients he needs. 
+Rather than rendering as I moved forward they appeared to have already been here. But at the same time it was like things hadn’t started to age until I arrived. At first this didn’t bother me, but I soon realized this meant fresh food would soon be spoiled. 
 
-9/22/23 
+I had found so many center consoles filled with rotten fruit but it took finding a moldy granola bar, my most common staple for me to worry about surviving. 
 
-I had tried a few times before with no luck. This time I got it started. It was an older Ford pickup. But my joy was short lived once I realized I couldn’t steer it. We used the running engine to stay warm that night and to charge our phones. They didn’t have service but they felt like our last connection to the real world. 
+The fun had left once I thought about starving to death. I needed to get out. It had been over a month and nothing positive had happened. 
 
-9/23/23
+So I decided to push forward. I spent a long time figuring it out but I finally got an older GMC van to fire up. It took a ton of effort but I managed to break the steering lock. With all but the drivers seat removed I had plenty of room inside for supplies and sleeping. 
 
-I saw a deer today. It’s the first living thing I’ve seen since this started. 
+I barreled between the cars at a reckless speed. Quite often pushing 90mph, the little humps became ramps that would send me into the air for a brief second. 
 
-9/24/23
+I found myself thoroughly enjoying the drive. The near death moments just made me feel alive. That was until I clipped the back of a pickup that was poking out a little farther than expected.
 
-Bud was sleeping, Helen and I got intimate. We’re going to have to be more careful, a pregnancy would be disastrous. 
+The van spun with the impact and I felt myself leave the seat. Before I could react the van was flipping. At first sideways and then end over end. 
 
-9/25/23
+It happened so fast I didn’t have a chance to register what was happening. I found my self sitting on the asphalt bleeding from a dozen small cuts. My van lay on top of a 90’s Thunderbird it’s wheels still spinning. 
 
-Call it naïve living but we have settled into a comfortable routine. 
+When the pain hit I knew what to do. No matter the distance traveled there was always a truck somewhere nearby that would undoubtedly have alcohol in it. 
 
-Bud rides in a wagon we found along with our extra food and water. While I have grown tired of hotdogs, granola bars and candy we won’t be starving anytime soon. Water bottles are the most common thing we find. Occasionally we will come across a vehicle filled with groceries. 
+This time was no different. It took a full case of shitty beer to numb my injuries but at last I was able sleep. 
 
-10/8/23
+I spent a good bit of time in that area. I hadn’t broken any bones but my entire body hurt. I took the time to carefully recover and to get in some exercise. 
 
-It has been a month. Despite our less than ideal diet Helen and I are quite lean. I don’t know how many miles we have walked, I’m on my third pair of shoes at this point. 
+The food situation was getting worse but it was not lethal yet. 
 
-Luckily the weather is still mild. I don’t know what we’re going to do if it starts to freeze. 
+Two months into my journey I had visitors. I had strung my cobbled together hammock between two vehicles and was sleeping comfortably when something woke me. 
 
-Bud has grown, the little rascal is always getting into things. 
+I lay still listening, my instincts told me I wasn’t alone. Sure enough I soon heard the slap of hard flesh on asphalt. 
 
-10/15/23
+Someone nearby was running barefoot. I sat up and came face to face with a grinning man. My eyes were drawn to his blackened teeth. Without warning he lunged forward. 
 
-I haven’t told Helen. There’s been a shift. The food we’re finding is more stale than before. But it’s not just the food. The vehicles are older, I  don’t know when the shift started as it was so gradual. The newest vehicle I’ve seen all day was a 2010 Toyota. 
+The hammock spun under our combined weight sending him over me. I had barely gotten my feet under me when he turned. His face now bloodied from its impact with the ground. 
 
-10/30/23
+He moved to grapple me but met my fist instead. I gasped in pain, I had never punched someone without gloves and head gear before. I should have held back a little. 
 
-We’ve decided to turn back, not only have the vehicles grown older yet but food and water are more scarce. The tipping point was the discovery of a line of cars with the windows smashed. 
+The blow knocked the crazed man onto the ground again. He was spitting blood and growling in an uncivilized manner. Rather than let him gain his footing I kicked the back of his head. 
 
-It felt ominous. We will be returning to greener pastures. 
+And then I repeated that action until he lay still. 
 
-11/2/23
+Breathing heavily I leaned against the nearest car. I looked around me, my blood ran cold. 
 
-It didn’t work. I don’t think the lot will let us go back. 
+There had to have been half a dozen people watching me. They were dirty, scarred and mostly nude. But most of all, they were hungry. 
 
-11/3/23 
+I could see it in their eyes. I was nothing more than a Christmas ham to them. 
 
-I did an experiment last night. I marked a car as we passed it. This morning I tried to return and the car wasn’t there. What if Helen and I had decided to look in different directions? The very thought of it makes me sick. I don’t even want to leave Bud in a separate vehicle while we make love. I couldn’t imagine the horror of not being able to find him again. 
+With their intent clear I slowly reached down, I managed to get my hand into my tool bag before the first pair sprinted towards me. 
 
-11/12/23
+They were so quiet, the only sound they made was slapping of feet and the grinding of teeth. 
 
-We can’t go back, we don’t want to go forward. The leaves one option. We will be staying put. 
+My hand wrapped around the smooth handle of my 2.5 pound hammer. Taking a risk I grasped it firmly and pulled it from the bag. In a single movement I threw it at the nearest attacker. 
 
-I erected a flag pole from what I could find. Even though it is visible from quite a distance we still travel as a trio everywhere. 
+My throw was good, the hammer nearly disappeared into the man’s forehead and he dropped instantly. Before I could grab the next tool the second man was on me. 
 
-11/15/23
+I grabbed him and using his own momentum I tossed him over my hip into a nearby car. He struck it hard leaving a dent in the door. 
 
-It wasn’t easy but we managed to move multiple vehicles. We have a square of vans, in the center we carpeted the asphalt and set up bench seats as couches. I was never much of a hands on guy before this, necessity has forced me to learn. We even have a small solar panel feeding a battery bank. 
+But unlike his companion he was back on his feet in a flash. I managed to drop an elbow through his collar bone as he grappled me. With his left arm limp it was easy break free. I kick to the chest sent him tumbling over a car. 
 
-In turn we use the batteries to power a TV I pulled from an Escalade as well as a string of dome lights around our home. 
+That was enough for him, he turned and ran into the night. 
 
-It is nice to finally be able to let Bud wander around without fear of him disappearing or getting hurt. 
+I spun around in case the others had decided to attack but I was once again alone. Save for the two bodies that lay motionless. 
 
-12/25/23
+I grabbed my tool bag, retrieved my hammer and walked away. 
 
-If I kept track of things properly today should be Christmas. I gifted Helen a necklace I had found awhile back. 
+That attack changed things, I traveled by night more often. At least when I had flashlights to see with. Those people returned a few more times, each time I was able to fend them off with my homemade weapons. 
 
-We spent the day sitting around watching DVDs and getting tipsy. 
+My walking stick now had a blade secured to the top. I also fashioned a short club and carried a knife in my belt. The weapons didn’t add much weight and were very effective on human flesh. 
 
-12/30/23
+But my attackers grew more cunning. I noticed a change after a week, they went from barely human savages to more stealthy people with some clothing. 
 
-It snowed this morning. 
+They died just as easily when their skulls were crushed but they didn’t blindly attack. Rather they ambushed, fought in groups and played tricks.  
 
-1/5/24
+One such trick nearly snaring me.
 
-We aren’t alone. 
+I was traveling during the day as I had exhausted my last flashlight. As the sun drew low I found myself settling for the bed of a pickup. It had grown cold but I still preferred sleeping outside. 
 
-I woke up and went outside to pee. When I did I saw footprints in the snow. Bare feet, a couple different sizes. The tracks led all around our home, they congregated near the windows. They had been watching Helen and I sleep. 
+My eyes had just closed when something wet slapped against my face. Leaping to my feet with a club in one hand a knife in the other I looked around. I couldn’t see anyone in the dark. 
 
-I rushed inside and checked on Bud then Helen. They were both peacefully sleeping. 
+Something moist struck my back before falling into the bed of the truck with a plop. 
 
-1/6/23
+Seeing no one I reached down and retrieved the object. It was a bloody chunk of meat. No doubt I was covered in the thick pungent  juices. 
 
-I told Helen about the footprints, she was visibly disturbed and wanted to leave right away. 
+Then I saw it, a man stood to lob another chunk of flesh at me. I jumped from the truck, the man turned and fled. 
 
-“We should go, if we leave they won’t be able to follow us. This place doesn’t let you go back after all. They can have this, we’ll make another shelter”. 
+It did him no good, I had grown lean and hard during my time in this hell hole. No matter how desperately he weaved I gained on him. 
 
-I had thought of this place as more than a shelter, it was our home and I wouldn’t let anyone take it from us. 
+Once I had closed the gap I struck him between the shoulder blades. He fell to the ground and slid head first into a car. His body stopping with a crunch. 
 
-“No we should stay, I would rather have a barrier around us then be caught out in the open”. 
+They had ruined my clothes, I was irate. I screamed into the night. I felt hungry, yet I knew food wouldn’t satiate me. I hunted every flash of movement. I bashed, slashed and dismembered every one I came across. 
 
-Helen reluctantly agreed to stay. She had always been the level headed one. 
+The rising sun found me out of breath and sporting a dozen cuts and bite marks. 
 
-1/8/23 
+But never in all my life had I felt so alive. I was the ultimate predator, they had seen me as weak and vulnerable and it had cost them their lives. 
 
-We did our best to prepare for a possible siege. The snow was gone so we had no way of knowing if there was still other’s out there. 
+Unfortunately my success did not fix the problem of being absolutely filthy. If it wasn’t for cold temperatures I would have continued my journey nude.
 
-I think I found the jackpot. Under the seat of car I found a revolver, it has six shots in it. I’ve never fired a gun before but it should be pretty simple. 
+Had I known why they had attacked me in the manner that they did I would have stripped despite the weather. 
 
-1/9/23
+I made it to mid day before my aggressors plan came to fruition. 
 
-They came back last night. I woke up to Bud crying, I jumped from our bed and saw an arm reaching through a window. It was blindly grasping about. In a protective rage I charged forward and grabbed the offenders wrist. 
+My guard was down, never had anyone come for me in the daylight. As I passed a tall truck the hairy head of a Doberman lunged out and sank its teeth into my calf. 
 
-Bending the arm against the window frame I pushed until I felt the bone snap. The owner of the arm didn’t make a sound. I pulled on the arm again and again slamming the mans body into the outside wall. 
+I cried out in pain, the dog twisted back and forth keeping me from regaining my bearings. Two more mutts came from opposite directions. 
 
-He managed to wrench himself free of my grasp. Helen was right behind me, she crouched to sooth Bud. She didn’t need to say it but I knew she was pissed that I had decided to stay. 
+The first to arrive received a knife in its face. It left quickly howling in agony. I barely had time to lift my arm as the second lashed out. It bit into my arm, the pain was excruciating but preferred to a neck wound. 
 
-2/1/24 
+I was being pulled in two directions, each beast intent on getting its pound of flesh. 
 
-We’re on the move again. The weather is better but it’s still cold. The cars are from the 90’s now. Food is getting hard to find. 
+I drove my thumb into the eye of the dog holding my arm. It cried out just enough for me to pull myself free, all the while the one using my leg as a chew toy pulled me further under the truck. 
 
-2/2/24 
+My hand brushed the handle of my club, I gripped it tightly. Ignoring the ripping sensation in my leg I rolled over and brought the club down onto the skull of the dog that had attacked my arm. 
 
-They’re behind us. I could hear them last night breaking windows in the distance. I held Helen close, Bud was between us, he seemed to instinctively know to keep quiet. 
+It crumpled to the ground and lay there twitching. 
 
-2/29?/24
+Grabbing the step of the truck I pulled with such force the dog lost its grip on my leg. I managed to pull myself out from under the truck. 
 
-I haven’t written in a while, nor have I been keeping track of the days. 
+The dog was quick to pursue, I swung my club but it struck the truck first and delivered only a glancing blow to the dog. In turn the dog managed to bite into the elbow of my good arm. 
 
-Keeping Bud fed has been my biggest priority now that Helen is gone. 
+My club fell to the ground as my arm spasmed. But I was not ready to die, not yet. 
 
-They found us the next night. We had taken shelter in a contractor van. There were no windows in the rear and the floor had plenty of room for us to stretch out. We thought it would be perfect, the doors weren’t even locked when we found it. 
+I rolled onto the back of the dog, my arm pulling its head sideways as I did. The dumb beast wouldn’t let go and that gave me my opening. I sank my teeth into the dog’s throat. I pushed past the hair and bit through the tough skin. 
 
-We later discovered the locks on the back were broken. 
+With a jerk of my neck I pulled a large piece of flesh free, hot sticky blood sprayed across my body. 
 
-I woke to the slapping of bare feet outside. I nudged Helen, she woke instantly. The darkness really can’t be described, it was the complete absence of light. No moon, no stars, no distant cities. Just pure undefiled black. 
+The dog released me and tried to run, a few yards away it collapsed and convulsed violently before laying still. 
 
-I heard Helen shift as she pulled Bud in close. I held my breath, the feet continued past. A window near by shattered scaring Bud. He was still so young, he couldn’t have understood. 
+I was bleeding badly from my leg, my arms were badly torn as well but the river of red coming from my leg was my greater concern. 
 
-Screaming like banshees they assaulted the van. It rocked violently side to side as they crashed into it. The front windows were smashed in, a dim light shone around. They had flashlights and headlamps. There was a divider between the cab and the back of the van. It was made of sturdy steel. 
+I took off my belt and using my club I made a tourniquet. The tightening of the tourniquet was the single most painful thing I had ever experienced. 
 
-I used the light spilling in to grab the revolver. They yanked on the back doors but I paid them little mind. At least I did until the doors flew open. Helen screamed as bodies poured in. I fired into the writhing mass, the gun flew from my hand and hit my face before falling somewhere. 
+When the blood stopped flowing I fell to the ground. I feel no shame in saying I cried for a bit. 
 
-I didn’t have time to react, blood partially blinded one eye. I swung at what ever moved. I had never struck another human in my life before this, I had no choice now. I bit, clawed and gouged with all my might. 
+But I didn’t have the time to lay there. I could hear growls of more canines approaching. 
 
-Helen kicked at those grabbing her, she held Bud tightly to her chest. For just an instant we made eye contact, spinning over she shoved Bud across the metal floor. Then she was gone. 
+Somehow I managed to get to my feet. I then climbed onto a van. I lay on the roof feeling weaker than I thought possible. 
 
-The horde disappeared as fast as they had come. I scooped Bud into my arms and jumped from the van. I heard a distant scream, they were already so far away! 
+Claws scratched on metal, I sat just in time to see a massive half starved Rottweiler leap from the hood of the van onto the roof. 
 
-I ran and I ran until I puked. I couldn’t find them. I was alone in the dark, the damned silent darkness that enveloped everything. 
+I kicked it off the roof. When I looked over the edge I saw at least a dozen dogs of various breeds all meandering about. They looked up at me drooling and whining. 
 
-The van was gone, all of our supplies along with it. I struggled to get Bud to eat, he was so heavy to carry. The cars were mostly empty. Finally after a couple days I found a four door Maverick. The keys were in it, there was a stroller in the trunk as well. 
+To them I was nothing more than a T bone steak. My weapons were mostly depleted, my strength fading. Even the sunlight was leaving me. 
 
-The engine grew rougher with time, I kept it going by punching holes in the gas tanks of other cars. I noticed the gas was yellow now, it still worked but not well. 
+To my surprise the lower the sun got the less dogs I saw. They milled about nervously, a few tried to get me only to be booted back. 
 
-The car died next to a 1931 Chevy. My dad had one when I was a kid. Just like this one his wouldn’t start either. I would be walking again. At least the car had given me a chance to cover a lot of ground and build up a stock pile of supplies. 
+As the last rays of sunlight disappeared so did the dogs. But I was far from relieved. I doubted the dogs feared the wildmen. And they certainly didn’t fear me. 
 
-3/1/24
+What was coming with the darkness that would cause them to leave a meal?  
 
-I found a cowboy rifle in the back window of a truck. The glove box contained two boxes of bullets. 
+I didn’t stay long enough to find out. I slid off the van and hobbled as best I could. 
 
-I placed Bud in a car where his ears would be safe and did some practice shooting. The rifle was much easier to handle, I almost felt confident that I could defend myself with it if needed. 
+Perhaps an hour into my journey I heard the screeching of metal being ripped apart. I don’t know what had the strength to do such a thing but I do know I was in no condition to meet it. 
 
-3/2/24
+I made little progress that night, I count myself lucky nothing came out of the dark to attack me. I would have succumbed easily to anything. 
 
-I shot a deer. I cried over it and I don’t know why. I spent all day using the engine of a car to cook the meat. It wasn’t easy but food is getting scarce. 
+I can’t feel my leg, the vagueness is almost worse than the pain. My attempt at making crutches failed. I need something though, I won’t survive without mobility. 
 
-3/3/24 
+Salvation comes in the form of a bike rack with a blue bike likely made for a middle school student hanging from it. 
 
-I’m a fool. I woke up in the middle of the night to the most terrifying snarling and growling. I held Bud close and prayed what ever was out there wouldn’t find us. 
+Bikes are exceedingly rare, this is the second that I’ve seen in my trip through The Lot. 
 
-When the sun came up I found the deer carcass strewn about. Our stroller was destroyed as well. 
+Some time has passed, perhaps a week or more. Things got dire and a decision had to be made. 
 
-This was a new threat, in the blood I could make out paw marks. Be it rabid dogs or wolves I didn’t care. Either could be a death sentence. 
+My leg is gone. Cutting it off was easier than expected, sawing through the bone was time consuming but once achieved I was able to cauterize the stump. 
 
-I quickly saved what I could and left the area. 
+I fell into a state of depression after the loss of my limb. The very next night the wildmen came, they took my supplies but remained out of reach. 
 
-3/5/23
+I think they know I can’t pursue them any longer, but they still fear the consequences of getting within my reach. 
 
-I’ve lost track of my days a couple times, not that it really matters. 
+Progress is incredibly slow, I find that I am starving, I’m freezing, I might die here. 
 
-Food and water are so scarce I doubt we will survive much longer. I don’t even recognize the cars any more. Doodlebugs maybe? I don’t know. They don’t offer much shelter unless you find an enclosed one. 
+The reality of that never struck me quite so hard, I don’t think I have the strength to go for much longer. 
 
-3/8/24 
+I find that I’m ok with this, my life was that of someone going through the motions. I did what was expected and each day was like the last. But since coming here, since experiencing true freedom haltered only by my own limitations I finally felt alive. I felt like I was my own person. 
 
-I miss Helen. 
+I made it farther than I thought I would have, I have been reduced to pulling myself along. Despite laying on frozen ground I do not feel cold. 
 
-I didn’t walk today. Too hungry, I sat and I cried for a good long time. 
+I know I have a fever, I know I am living my last couple days. I have no one to say goodbye to, and that’s ok. I’m ok with this. 
 
-I buried my wedding ring in a pot hole and placed a cross above it. 
+I seem to have found the end of the cars, there are more empty spaces than full. It is because of this that I spotted the shambler.
 
-If Bud and I are to survive I need to let her go. 
+He has been ever so slowly following behind me, his pace only slightly faster than my own. 
 
-4/1/24
+I do not know if he is another lost soul like myself or a very persistent wildman. Perhaps he is something different all together, regardless of if he is my salvation, my doom or simply another human to sit beside as I die, he will reach me within the day. 
 
-Call me a fool.
-
-4/3/24
-
-There was a missing car today. This is the first time I’ve seen an empty space in the lot. 
-
-4/15/24
-
-It’s been days since I’ve found food or water. My supplies are running low. 
-
-4/20/24
-
-I gave Bud the last bar. We just have a couple bottles of water left. 
-
-4/25/24
-
-I knew it was coming, he was too little to survive on water alone. I could see his ribs plainly. He never cried, my tough little buddy never made a peep. He wrapped his precious little fingers around mine and snuggled in close. I tussled his crazy hair one last time. 
-
-I lay there listening to his breathing grow softer. My heart split in two, but I knew he wasn’t hurting anymore. His tiny frail little body looked so peaceful. 
-
-I could join him. I could end this all. 
-
-5/28/24
-
-There are no cars in the lot anymore. 
-
-6/1/24
-
-My salvation came in the form of peas. I find them often, they grow up through the cracks in the asphalt. I replenish my water with the puddles. 
-
-7/13/24 
-
-I discarded my shoes, they were little more than flaps of ruined cloth at this point. The asphalt patches are getting farther apart. Most of my walking is on grass. 
-
-7/20/24 
-
-The ankle deep grass had given way to small shrubs. I had walked in silence so long that the snapping of a branch nearby sounded deafening. 
-
-I turned to see a wild and ravenous dog charging towards me. I managed to squeeze off a shot before the hairy behemoth slammed me to the ground. 
-
-The shot had been true and the dog was dead. He tasted awful. 
-
-8/12/24
-
-I couldn’t sleep, I walked through the night. Exhausted I stumbled onto the largest piece of asphalt I had seen in weeks. 
-
-In the darkness I came across a vehicle, it was something modern. I bashed out the window and crawled inside. 
-
-Movement woke me, I couldn’t place it. It had been so long. The cry of a seagull rang out again. 
-
-I sat up suddenly alert, I could see. I could see without the sun! Street lamps lined a distant highway, buildings rose up along the horizon. 
-
-I fell from the vehicle, it made sense. 
-
-It all makes sense now. I’m sorry for your window. Take this journal, I have to go back. Helen could still be alive.
-
+Consider this my last entry, unless I am carried from this world I will not leave it. I have positioned myself under a vehicle in order to shelter from the snow. I now wait for the stranger to come, I wait to discover my fate. 
