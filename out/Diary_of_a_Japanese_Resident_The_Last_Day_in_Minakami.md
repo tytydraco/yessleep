@@ -1,0 +1,15 @@
+Hello my name is Hiroshi Nakamura, and I am not really the type of person who writes personal things online. But something happening here, and I feel like I need to tell before it is too late. Sorry for my bad English, but I hope you can understand what is happening. Everything started some weeks ago in Minakami, a small town in the north. People said there was some illness, something in the water, but at first no one really cared. An illness from the water? It was something we didn’t think was possible.
+
+A friend of mine, Taro, lives near Minakami. He told me they closed the town, police blocking entrances and exits, and people there started disappearing. Then, TV stopped talking about it. It was strange, like Minakami had just stopped existing suddenly.
+
+But yesterday, I saw it myself. Something is very wrong. Very, very wrong. I was walking near Sumida River when I saw a group of people walking toward the water. At first, I thought it was just some hikers, but there was something strange in the way they moved… something not right. They didn’t talk, they didn’t stop. They just walked straight to the water, like they had no will of their own.
+
+I tried to get closer to stop them, but before I could say anything, the first person was already in the water. Then another. And another. Their eyes were red, and in some of them, I saw... blood. They didn’t react, they didn’t scream. They just let themselves sink. I saw a woman, a mother with a small child, and I knew something terrible was happening. But no one around me moved. No one screamed. They were just watching, same scared as I was.
+
+That night, silence in my house was more terrifying. My wife and I decided no more tap water. We don’t know exactly what is happening, but rumors are everywhere. Some say it’s a parasite, others say a toxin, and some even say a curse. All I know is it is not safe anymore. Water, the source of life, now is killing us.
+
+Today, I saw something that froze my blood. My neighbor, Mr. Tanaka, was in his garden, standing next to his pond, staring at the water. I tried to talk to him, but he didn’t answer. He just stood there, eyes lost and glassy. When he finally moved, it was to go into the water, like it was calling him. I couldn’t stop him. I just saw him disappear under the pond, and now I don’t even know if I want to know what is down there.
+
+The noises outside won’t stop. People are desperate. They are looking for water, but can’t find any. No one is safe, and the TV is not talking about it, like the problem never existed. My wife and I decided to seal all the windows and stay inside. Maybe tomorrow we go out, look for help… or at least some clean water. But tonight, we stay.
+
+I don’t know if anyone will read this. I don’t know if someone out there can help us. But if you are reading, don’t go near the water. Don’t drink. Don’t trust what authorities say. Something is here, and it is in the water. I feel like Mr. Tanaka is still there, looking at me, calling me. But I will not open the door. Please, stay away from the water.
