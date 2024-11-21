@@ -52,7 +52,7 @@ When he was close, I saw most of the skin and meat on his skull has been torn of
 
 I called the police, hospitals, fire department... But I can't give them an address. My GPS is not working here. And for some reason they can't track me down. Most of them think I am joking...
 
-I don't have much longer to type here. I can hear something in the wind. It's telling me to come out and it will help me find my way home. It wants to take me somewhere where I will always be warm and happy. It feels a bit crazy saying it, let alone typing it...
+I don't have much longer to type here. I can hear something in the wind. It's telling me to come out and it will help me find my way home. It wants to take me to a place where I will always be warm and happy. It feels a bit crazy saying it, let alone typing it...
 
 But I'm not going to trust it. I see what it does to us. 
 
@@ -62,7 +62,7 @@ I watched as the wind tore him away from the door handle this time. He was dragg
 
 I saw him for one last moment, and fear finally twisted his face as realization and self awareness kicked in.
 
-Then, it was quiet. All but the skittering snow that is slowly consuming my entire truck. My entire life. And it has been quiet every since.
+Then, it was quiet. All but the skittering snow that is slowly consuming my entire truck. My entire life. And it has been quiet ever since.
 
 I can't make calls anymore, but I keep spamming "post" on this, hoping it will get some shred of bandwidth. 
 
