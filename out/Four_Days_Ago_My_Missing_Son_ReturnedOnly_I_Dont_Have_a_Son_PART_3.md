@@ -159,3 +159,5 @@ I climbed out of the car, glancing around for any sign of Gus. Our next-door nei
 “I let her out early this morning and she always comes home for lunch,” she said, scratching her head. “I don’t know where she could be!”
 
 “I’ll keep an eye out for her,” I said, cold cascading down my back. It was not unusual to see the gray tiger-striped cat wandering around our backyard. The guest bedroom looked out over the very same backyard. I looked down at the boy and he grinned.
+
+[Part 4](https://www.reddit.com/r/nosleep/s/Q4QJVwiEr2)
