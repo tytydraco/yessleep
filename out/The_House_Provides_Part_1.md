@@ -6,7 +6,7 @@ Six miles into the hike and she was still bounding with energy while I neared th
 
 
 
-\*bang bang bang bang\*
+*bang bang bang bang*
 
 
 
@@ -14,7 +14,7 @@ Taking no notice of the pounding that had just drifted through the trees, she pa
 
 
 
-\*Bang Bang Bang Bang Bang\*
+*Bang Bang Bang Bang Bang*
 
 
 
@@ -22,7 +22,7 @@ It was louder now—enveloping us. Desperately I tried to ignore it too—fighti
 
 
 
-\*BANG BANG BANG\*
+*BANG BANG BANG*
 
 
 
@@ -34,7 +34,7 @@ I opened my eyes, and she was gone.
 
 
 
-And I was back… \*there…\*
+And I was back… *there…*
 
 
 
@@ -54,7 +54,7 @@ Swallowing its entire contents in two large gulps, I gagged on the flavor of tep
 
 
 
-\*BANG BANG BANG BANG\*
+*BANG BANG BANG BANG*
 
 
 
@@ -82,7 +82,7 @@ I took another swig from the glass that, by then, had refilled itself, and liste
 
 
 
-‘Best not focus on that part, though.’ I shuddered, propping my back up against the metal bars of the headboard and reaching once again for my only comfort in \*there\*—topped off, as it was, for a third time.
+‘Best not focus on that part, though.’ I shuddered, propping my back up against the metal bars of the headboard and reaching once again for my only comfort in *there*—topped off, as it was, for a third time.
 
 
 
@@ -94,15 +94,15 @@ And, watching the haggard, dirty, broken man in the mirror that faced the bed ra
 
 
 
-\&#x200B;
+&#x200B;
 
 
 
-\\\*\\\*\\\*\\\*
+****
 
 
 
-\&#x200B;
+&#x200B;
 
 
 
@@ -194,15 +194,15 @@ What I did not know, at the time, was that I’d just made myself a target.
 
 
 
-\&#x200B;
+&#x200B;
 
 
 
-\\\*\\\*\\\*\\\*
+****
 
 
 
-\&#x200B;
+&#x200B;
 
 
 
@@ -370,15 +370,15 @@ Panic replaced ecstasy, but I was helpless to do anything about it. Overwhelming
 
 
 
-\&#x200B;
+&#x200B;
 
 
 
-\\\*\\\*\\\*\\\*
+****
 
 
 
-\&#x200B;
+&#x200B;
 
 
 
@@ -546,15 +546,15 @@ It had vanished.
 
 
 
-\&#x200B;
+&#x200B;
 
 
 
-\\\*\\\*\\\*\\\*
+****
 
 
 
-\&#x200B;
+&#x200B;
 
 
 
