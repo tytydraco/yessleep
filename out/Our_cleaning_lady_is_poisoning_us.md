@@ -6,7 +6,7 @@ David and I moved here two years ago, retreating from the chaos of city life to 
 
 David took to the lifestyle instantly. He spent mornings down at the dock fishing, his silhouette blending with the mist that hovered over the water.
 
-I preferred the cabin, where sunlight poured through the kitchen windows as I sipped coffee and read all the books on my once ever-growing list.
+I preferred cozying up inside the cabin, where sunlight poured through the kitchen windows as I sipped coffee and read all the books on my once ever-growing list.
 
 There was a permanence here, a sense of stillness I hadn’t felt in years. I loved the way the seasons transformed the lake... the fiery leaves of autumn reflected like a painting on the water, the brittle stillness of winter mornings when the lake turned to ice.
 
