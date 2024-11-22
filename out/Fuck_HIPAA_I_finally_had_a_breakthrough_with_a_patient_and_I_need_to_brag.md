@@ -48,13 +48,9 @@ Onscreen, dirt begins to shift and swirl. A pixelated head that is visibly decay
 
 BABYGIRL NEEDS YOUR HELP. WILL YOU HELP HER? 
 
-
-
 X  YES
 
 O  NO
-
-
 
 If the player selects YES, the decaying head smiles. Small fireworks erupt around her head. A moment later, the head vanishes. The screen goes dark, displaying a message:
 
@@ -102,8 +98,6 @@ Absent a way to destroy her, our only hope is to neutralize her by locating her 
 
 To date, all efforts have been met with failure.
 
-
-
 **Interview Subject: BABYGIRL**
 
 **Classification String:  Noncooperative / Indestructible / Khthonic / Protean / Critical / Hemitheos**
@@ -111,11 +105,6 @@ To date, all efforts have been met with failure.
 **Interviewer: Rachele B.**
 
 **Date: 11/20/2024**
-
-  
-
-
-
 
 My mommy loved videogames. 
 
@@ -249,11 +238,7 @@ They didn’t taste good, I guess because Mommy didn’t cook them. But I can sh
 
 But if you cook for me, I’ll pretend for you.
 
-
-
 \* \* \*
-
-
 
 Full disclosure: If you haven’t read the other patient files, this next part won’t make sense so skip.
 
@@ -373,10 +358,10 @@ But at this point I’ll take what I can get.
 
 \* \* \*
 
-
-
 First Patient: [https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
 
 Second Patient: [https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck\_hipaa\_i\_messed\_up\_hardcore\_and\_if\_we\_dont/](https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
 
 Third Patient: [https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck\_hipaa\_this\_inmate\_is\_the\_most\_dangerous/](https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck_hipaa_this_inmate_is_the_most_dangerous/)
+
+Employee Handbook (yes, really): [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
