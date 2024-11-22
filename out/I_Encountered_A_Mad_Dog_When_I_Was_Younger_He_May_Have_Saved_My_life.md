@@ -1,3 +1,5 @@
+( TW for child abuse )
+
 I needed to mature fast after my mother passed away. My father took me and my little brother in. I was the one who got us ready for school, walked him to the bus, and every morning I would get to class on time. Planning meals with a limited budget was tricky. I made sure my little brother always had at least two meals a day. I wish it were three but the money simply wasn’t there. Due to scarifies my body didn’t grow properly. I was thirteen but appeared to be nine.  
 
 My father was rarely home. That suited me. One night he packed us in the back of his truck. It smelled terrible. I knocked aside fast-food bags jealous he was eating something we rarely got. This drive was different. He didn’t tell us where we were going. My brother was only six but he was smart enough not to ask questions. We drove for a long time. I felt sleepy but refused to drift off. Was he finally tired of us and decided to dump two poor kids at our aunt's house? I dearly wished that was what happened that night.   

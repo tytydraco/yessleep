@@ -137,3 +137,5 @@ Dylan rushed into the kitchen. “What? What is it?”
 One side of the boy’s mouth quivered. “Mom said she’s trying to poison you. Don’t drink ANYTHING she gives you.”
 
 With that, he turned and went back to his room, slamming the door behind him.  
+
+[Part 5](https://www.reddit.com/r/nosleep/s/Jvqvs8yd0Y)
