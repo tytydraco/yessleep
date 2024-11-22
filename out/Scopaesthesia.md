@@ -144,11 +144,11 @@ The next morning while eating breakfast I told my parents about it. They looked 
 
 My dad raised an eyebrow.
 
-"I opened the door to call him in and I heard him rustling outside, hell I saw him”
+"I opened the door to call him in and I heard him rustling outside, I saw him”
 
 “Billie, you were just dreaming, Cooper was down in the basement tonight.” My dad said.
 
-My heart sank. "What no I heard him, hell I even saw him."
+My heart sank. "What no I heard him."
 
 I could see my mom believed me more and more with every word I said. I told her about how strange he sounded, and how he didn’t look right. She looked at my dad and they told me to go up to my room. I didn’t know why they were mad at me, I thought that was Cooper outside it sounded like him. I brushed that thought off and leaned by the doorway listening. All I could manage to hear clearly was
 
