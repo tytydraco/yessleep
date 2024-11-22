@@ -56,7 +56,9 @@ Before she had time to think anything else, and without it moving a muscle, it b
 
 It got to the side of her bed, mere inches away, towering over her. My Gran looked up at this disturbing concrete-looking figure, and she described how with one swift movement its torso seemed to pivot in order to look down at her directly. 
 
-Almost face to face, my Gran said that the long black holes where eyes would be suddenly lit with a pulsating red glow. Then, as if that wasn’t horrific enough, in a deep thunderous voice, which did not come from its unmoving stone lips clenched tightly together, but rather my Gran heard in her head almost telepathically, she heard the word “DANIEL”.
+Almost face to face, my Gran said that the long black holes where eyes would be suddenly lit with a pulsating red glow. 
+
+Then, as if that wasn’t horrific enough, in a deep thunderous voice (which did not come from its unmoving stone lips clenched tightly together) my Gran heard in her head almost telepathically the word “DANIEL”. 
 
 It was with the glowing red eyes and the voice in her head that she screamed, unable to take anymore and unfrozen from her petrified state.
 
