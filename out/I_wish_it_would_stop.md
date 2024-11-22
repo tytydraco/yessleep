@@ -1,0 +1,43 @@
+For years, my family and I have all experienced the same things. Not like normal Deja-vu, but I can tell my dad who he talked to at work yesterday 300 miles away. Everyone has a story. They’re always written off as dreams. 
+
+When I was a kid, my mom busted me for partying. She woke up in the middle of the night and called me. I’ll never forget the tone in her voice when she recalled exactly what I had done. “I told you not to hang out with those two. They’re always drinking that cheap beer and they brought that girl with them.” That girl was my current addiction and thankfully she didn’t mention the things I had tried to do, or wanted to do that is. I know she knew, because I would’ve known. Maybe that’s just her intuition wanting to preserve her babies innocence. After all, we were all high schoolers once. 
+
+The ones that really sit hard are the older generations. My grandpa used to tell the story of when he was deployed to France. Of course he wasn’t in the war, he’s far too young. His dad was a hero though. I’ve seen his medals and read about him in my history books. That’s never how I heard the stories though. 
+
+“Do you know what it’s like to hear a mother’s scream? That sound when her baby dies in her arms. They weren’t supposed to be there. It was only supposed to be Germans. It’s not my fault they got caught in the fire. It’s the Jerry’s. They shouldn’t have been there. We should’ve checked.”
+
+My grandpa would talk in ways that would make you think he was suffering just like the boys that made it back. But that’s nothing new. We all suffer from what they call lucid dreams and night terrors. But I would swear it’s real. I felt the joy of my mother when she held her child for the first time. I felt the grief of losing a pet long before I was born. That’s just our curse. 
+
+Now my daughter is involved. They say a parent should never have to bury their child, but I wish that’s all I had to do. 
+
+She was 4. Out playing in my dad’s back 40. Just being a kid. What she didn’t know was how to identify a copper head. I’ll never forget the scream of its fangs tearing into her little sausage arms. The doctor said she was lucky. We got her to them in time and it hadn’t deposited all of its venom. It was a defensive bite. She must’ve stepped on it by accident. The medicine would keep her asleep for a while so we should get some rest. Obviously we couldn’t leave her there, so I curled up in the dad chair and my wife had a cot brought in. No sooner did I drift off to a restless sleep did my arm start to burn. 
+
+I was jolted awake by the feeling of four knives entering my forearm and setting it alight from the inside. I caught my breath and made sure no one else was disturbed by my noise. Sarah was awake. “Daddy can you turn on the light. I scared.” She never did like the dark. In her time of need, I would’ve taken the roof of this hospital if I could to brighten up the room. I switch on the light and wrap my bear paw around her hand. “Don’t worry sweetie. There’s nothing that can get you while I’m here.” 
+
+I must’ve dozed off there with her. I was running through the woods. Everything felt so large. The trees must’ve been 40 feet tall. In the distance I could hear something but couldn’t quite make it out. The creek was so big. I tried to jump it but got my boots wet. I caught a rock and woke up from the sensation of falling. Her hand was cold. The doctors told me that was normal. Slowed heart rate to prevent the spread of the toxin. 
+
+The next day we went home. She was still exhausted, as we all were. I carried her into her room, laid her on her bed, and placed a kiss on her cheek. As I turned to leave, a weak little voice in the darkness pleaded “get the light daddy.” “Of course sweetie” as I plugged in her Sesame Street night light. 
+
+My wife and I went to bed, waking up every hour to check on her. Never did get much sleep. We agreed that I should take a couple hours and then we’d switch. When I finally drifted off, it was dark. I had a feeling like something was sitting on my chest. I couldn’t breathe. I tried everything but I couldn’t move either. My hands were pinned to my sides and there was something on top of me. I woke up screaming, nothing like my wife though. She came rushing in to tell me we had to go. Now.
+
+By the time we got to the hospital it was too late. Doctor said it was an allergic reaction. To what we don’t know. All I can remember are those little bear pajamas that she loved and her favorite blanket. Her grandmother made that. The last thing she did. She knew she wouldn’t get to meet my daughter but wanted her to always know that grandma was there with her to protect her. It’s times like this a man needs his mom. 
+
+It must’ve been two days without sleep. I couldn’t get that feeling out of my mind that I failed. My only job was to protect her. It couldn’t have been that hard but somehow I failed. My wife suggested something to help me sleep. Said something about making plans tomorrow so I needed my rest. 
+
+The warm blanket of ambien overwhelmed me and I fell asleep on her floor. 
+
+Darkness again. This time it was cold. I don’t know why I was cold, I must’ve been under a pretty thick blanket. The blanket moves and I’m blinded by the white lights. There are people walking around me, speaking in words I can’t understand. There is no noise. I can’t move. I feel trapped. All I want is to see my mother again. I feel like I need to cry but I can’t. I feel a familiar blanket laid on top of me and I’m tucked in. I can’t make out the face responsible but it’s warm. It’s safe. I get a kiss on the head and my bed slides into darkness. There’s a loud thud when a door closes and the voices are muffled. So many tears. I can’t still feel the blanket but I’m only getting colder. 
+
+My wife wakes me up the next morning to get dressed. She’s laid out a blazer and a tie. We go to the funeral home and start to make decisions. Isn’t my daughter supposed to be doing this for me. We get lead to a back room where everything seems to shrink. The largest casket couldn’t have been more than 4 feet. So many colors and designs. If not for the setting, it would’ve almost been joyful. My wife walks to one with the lovable cast of her favorite show. I’ll never see them the same. Puppets or not, they looked like they understood and they wanted to help. Nothing can help now. We sign some documents, exchange forced pleasantries and go about our way. 
+
+The rest of the day is a blur. I go through the motions. We have dinner, quiet again. I help with the dishes, all of the plates are the same size. We try to watch something to take our minds off everything, but the remote is buried in the toy box. I take another ambien and decide if I can’t do anything else right, at least I can sleep. 
+
+I’m laying on a bed with a weird man walking around me. He writes something down and stabs my side. I feel a rush of liquid but it doesn’t hurt. I see him pull my favorite clothes out of the box on the counter. I would love to help him get me dressed but I can’t move. He brings over a brush, and I want to tell him I’m not allowed to wear makeup. My mom wouldn’t like that. He closes my eyes and it’s dark again. My bed gets slid into another room. I feel a stuffed animal tucked under my arm. It feels safe. Maybe the dark isn’t all that bad. I hear the door close, but above me. What kind of door is above me. 
+
+We all meet at the cemetery. My dad hugs me, the first time in forever. I can feel him crying into me. I could tell we shared the same feeling of failure. That must be primal. I hold my wife’s hand as we all up and place the flowers. The preacher says something about the weight of small caskets and my baby girl is lowered out of sight.
+
+That night it rained. The thunder usually helps me sleep but I can’t get the image of that little red casket out of my mind. Another ambien. 
+
+There’s people crying. I don’t know them but they feel familiar. I feel like I’m flying but down. Floating I guess. Something hits the top of my room. A lot of something. It gets quieter the more it happens. Then it’s just quiet. And dark. It’s so dark. I try to squeeze the stuffed animal but can’t move my arms. 
+
+These days it’s all more of the same. Wake up, go to work, pretend to be okay, ambien, sleep. Every night is just cold darkness. It scares me. I can’t explain but I’m always filled with a terror when I return to my dream and it’s only darkness. I wish I could turn on a light. They always say the hardest thing a person can do is bury their child, at least thats where it ends for them.
