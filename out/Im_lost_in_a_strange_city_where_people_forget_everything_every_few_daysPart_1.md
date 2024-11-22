@@ -15,3 +15,5 @@ Even just getting this device wasn’t easy. It was easily one of the strangest 
 I have to go now. It's been too long already and I shouldn’t risk any more time. Please help me. I don't know what to do. This place is the only place I know I can go where people won't say l'm trolling and this is all a big joke. I'll return with an update and answers to all of you as soon as I can.
 
 [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1gwb0pz/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1gx2u7f/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
