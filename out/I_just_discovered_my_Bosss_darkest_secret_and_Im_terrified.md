@@ -2,11 +2,11 @@ It was the early hours of a Sunday morning and while the sunlight outside the wi
 
 I woke up at 8, as usual. The routine felt grounding, though a little dull. I brewed my coffee, the kind I always drank—strong and black, just how I liked it. There was something soothing about it, like it was the one thing I could still control. It didn’t take away the ache in my chest, but for a moment, it helped me forget.
 
- I looked in the mirror, mumbling the same thing I said each morning. "You can do this. Just get through today." It had become mor than just a habit; it was a lifeline. Without it, I wasn’t even sure if I would make it through the day.
+ I looked in the mirror, mumbling the same thing I said each morning. "You can do this. Just get through today." It had become more than just a habit; it was a lifeline. Without it, I wasn’t even sure if I would make it through the day.
 
 
 
-Work had been smooth. Too smooth, actually. My manager—who typically kept us locked in the office until midnight, piling on more and more work like we were some kind of machines—surprised me by telling me to leave early. I must’ve heard wrong. This had to be some kind of mistake. She was the type who expected perfection, and suddenly she's telling me to leave early?
+Work had been smooth. Too smooth, actually. My manager—who typically kept us locked in the office until midnight, piling on more and more work like we were some kind of machines—surprised me by telling me to leave early. I must’ve heard wrong. This had to be some kind of mistake. He was the type who expected perfection, and suddenly he's telling me to leave early?
 
 I should’ve felt relieved—who wouldn’t be, after endless hours at the grind? But I couldn’t shake this weird feeling in my gut. My boss never let anyone leave early. Ever. He was the kind of man who thrived on control, keeping us late, pushing us harder, never giving us an inch. And yet, today, he just waved me off, like it was nothing. No explanation, no reason.
 
