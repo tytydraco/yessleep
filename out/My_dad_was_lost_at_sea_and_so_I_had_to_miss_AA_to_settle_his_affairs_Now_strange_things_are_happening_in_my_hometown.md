@@ -1,12 +1,10 @@
 Let me start off by saying the ocean and my father make me feel the same way. 
 
-My mother drowned in a riptide when I was barely out of diapers, and her loss left my father a volatile, alcoholic shell of himself. Then, at the ripe old age of twenty-four, both he and the ocean made me a widower.
+My mother drowned in a riptide when I was barely out of diapers, and her loss left my father a volatile, alcoholic shell of himself. Then, when I was the ripe old age of twenty-four, both he and the ocean made me a widower.
 
 I tried to tell myself it wasn’t my father’s fault. Even in the absence of an apology, the guilt of being at the helm when the sea turned over like a slumbering monster must somehow be torture. After all, taking my new wife on that boat with him was supposed to be an act of trust and moving on.
 
-I forgave that man for so much. He only lashed out at me and my sister because he loved our long-dead mother so much. He either frequented bars to chat up women, or was out on the water, because if she wasn’t at the bottom of a bottle or in the body of some forty-something divorcee, she had to be out there.
-
-It wasn’t fair that I survived and Sally didn’t. Fuck, it wasn’t fair that *he* survived at all.
+I forgave that man for so much. It wasn’t fair that I survived and Sally didn’t. Fuck, it wasn’t fair that *he* survived at all.
 
 Existing without my wife in a town I hated felt like sitting still in a burning house. So I left, and for three years I never looked back. It was hard at first. I fell into the same alcoholic vices as my father, but I like to think I made it to a better place. 
 
