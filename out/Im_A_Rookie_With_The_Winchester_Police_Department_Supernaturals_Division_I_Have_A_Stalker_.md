@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/) | [Previous](https://www.reddit.com/r/nosleep/comments/1gpenh8/im_a_rookie_with_the_winchester_police_department/?share_id=sd3Cea3UtL-pRqkKpkwul&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1)
+[First](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/) | [Previous](https://www.reddit.com/r/nosleep/comments/1gpenh8/im_a_rookie_with_the_winchester_police_department/?share_id=sd3Cea3UtL-pRqkKpkwul&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1) | [Next](https://www.reddit.com/r/nosleep/s/4aw6TdzoGe)
 
 Of course, on top of a blood sucking serial killer, I now have this to deal with.
 
