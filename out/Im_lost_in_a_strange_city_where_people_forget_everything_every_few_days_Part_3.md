@@ -55,3 +55,5 @@ And that was my time at the archive. Not really the smoking gun I had hoped for,
 I didn’t see Clayton at the theatre today, which marks the first time since the day I started working this job that he’s missed a Thursday, or even either of his usual days. I feel guilty for upsetting him. I suppose the only solace I have is that he’ll have forgotten by the next time I see him.
 
 I should sleep soon. I have work tomorrow, and I’m exhausted from the late night I spent writing my last post. Since apparently I can’t post this for several hours, I’ll set an alarm to get up when I can actually post and then I’ll stay up an hour longer to read comments if you leave any, but otherwise, I’ll be seeing you all tomorrow. Take care.
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1gxwxkx/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

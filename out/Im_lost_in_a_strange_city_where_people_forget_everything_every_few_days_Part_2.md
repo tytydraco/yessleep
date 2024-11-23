@@ -69,3 +69,5 @@ I think if I hadn’t found the hatch leading down into the basement hidden unde
 And well, you mostly know the rest. I need to try to sleep now, so I’ll be signing off for now. I hope all of this made coherent sense, but I really can’t stay up to proofread it right now. As it is, I’ll only have a few hours before I need to get up and go to see the city archives. I’ll update you again as soon as I can. Wish me luck, everyone. I’m hoping I won’t need it.
 
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1gx2u7f/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1gxwxkx/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
