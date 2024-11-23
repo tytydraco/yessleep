@@ -75,7 +75,7 @@ I nodded at Harrison as I stood up to go to the vending machine. He didn’t usu
 
 “Huh. That reminds me of something I meant to tell you about earlier. There’s this group of, I dunno, professors or something that reserves one of the upstairs conference rooms every Friday from 10pm until the library closes. I tried to listen to their conversation last week and it sounds like they’re researching animal testing?”
 
-Hunter frowned. “That’s odd. Shouldn’t they have labs or offices for that? Maybe they don’t want to be too public by creating a dedicated space for that because of controversies or whatever. What did the room booking say?”
+Harrison frowned. “That’s odd. Shouldn’t they have labs or offices for that? Maybe they don’t want to be too public by creating a dedicated space for that because of controversies or whatever. What did the room booking say?”
 
 “Anonymous, which makes sense if they’re wanting to keep that type of thing under wraps. Pretty sure all you need to do to book a room is enter an email on the library website. Still, why so late at night?”
 
