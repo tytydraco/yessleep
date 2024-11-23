@@ -2,7 +2,7 @@ this is part 2 of the series
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/) |[ Part 2](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) |[ Part 3](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/) | [ ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/)[Part 5](https://www.reddit.com/r/nosleep/comments/1gu75vu/he_follows_and_hes_violent/) | [Part 6](https://www.reddit.com/r/nosleep/comments/1gouk5m/it_wasnt_human_it_couldnt_have_been/)
 
-I was around ten years old, it was mid-December and snowing like crazy. No one dared to go outside, I hadn’t even seen a single car out for hours. Though we had the heat on we couldn’t help but bundle in our warmest clothing and softest blankets.  I went over to Markus’s lace around 11:00 for WII sports or something, it was now 8:30 at night. We got snowed in so I wasn’t leaving anytime soon. He and I were watching a horrible Christmas movie, while his Mom was making dinner.
+I was around fourteen years old, it was mid-December and snowing like crazy. No one dared to go outside, I hadn’t even seen a single car out for hours. Though we had the heat on we couldn’t help but bundle in our warmest clothing and softest blankets.  I went over to Markus’s lace around 11:00 for WII sports or something, it was now 8:30 at night. We got snowed in so I wasn’t leaving anytime soon. He and I were watching a horrible Christmas movie, while his Mom was making dinner.
 
 “I think I messed up my shoulder last night,” Markus said, rolling his shoulder around.
 
@@ -86,7 +86,7 @@ Get my mom.” He stood up. I just looked at him, “Billie go.” He said clenc
 
 “What are you doing, there’s no one there?”
 
-He placed his hand on the switch and flipped it off. I looked back over at the window. a man was pressed against the window, his eyes wide, and his fingertips looked frozen to the frosted window. I screamed louder than I knew I could and ran to the stairs where his mom who was already in the hallway, only dressed in a towel.
+He placed his hand on the switch and flipped it off. I looked back over at the window. a man was pressed against the window, his eyes wide, and his fingertips looked frozen to the frosted window. I screamed louder than I knew I could and ran to the stairs where his mom who was already in the hallway, only dressed in a towel was already standing.
 
 “What, What happened?” She yelled running into the living room.
 
@@ -116,7 +116,7 @@ Markus sat back down on the couch
 
 “Who is it?” His Mom said. They stayed silent. She looked through the peephole before opening the door just a few inches keeping the chain on the door, cold air rushed into the house almost instantly. I could only see the stranger's arm, they were holding some mail. They looked at His Mom for a bit before holding it up to His Mom's face.
 
-“ Are these ours?” She asked.
+“Are these ours?” She asked.
 
 I peeked over from the couch, The stranger nodded slowly. She laughed politely, but one of those fake ones you do to avoid conflict.
 
@@ -134,7 +134,7 @@ His smile dropped and he looked back up at her. He slowly stood up, now straight
 
 He looked at her for a moment. I looked up at his mom, she made what seemed like the craziest face she could, smiling as much as she could, and widening her eyes as much as possible. He squinted his eyes, before smiling and turning around as she closed the door. Her face relaxed and she looked through the blinds and watched as the man left. His Mom looked a little worried. She placed the few envelopes on the kitchen table. Before washing her hands and sitting on the couch. Gun still in hand.
 
-“ I didn’t know we had a gun,” Markus said. “Honey, I’m a single mother, in a "nice" neighborhood obviously I have a gun.” She said, smiling a little. 
+“I didn’t know we had a gun,” Markus said. “Honey, I’m a single mother, in a "nice" neighborhood obviously I have a gun.” She said, smiling a little. 
 
 "Cool."
 
@@ -148,7 +148,7 @@ Markus nodded.
 
 “Yeah, It’s sad.”
 
-“There's some weirdo around here,” Markus said, looking for a different movie to watch.
+“There's some weirdos around here,” Markus said, looking for a different movie to watch.
 
 “I’m just embarrassed I had to do that in a towel.” She laughed.
 
@@ -162,11 +162,11 @@ Markus rolled his eyes at me. “Come on, UGH!” Markus threw himself back on t
 
 “Why does it always have to be a monster?” I said lying next to him.
 
-“Because it’s cooler that way. One day, one day it’ll be a monster and I look you right in the eyes and say "I told you so.”
+“Because it’s cooler that way. One day, one day it’ll be a monster and I look you right in the eyes and say "I told you so.”"
 
 He smirked. We soon went to bed, but I didn’t close my eyes. I was stuck remembering that man's face, and as the thought hit me, I sat up a little, and I got a sickening feeling in my stomach.
 
-I swore I brought the mail inside when I walked inside.
+I swore I brought the mail in when I walked inside.
 
 I swear I remember tossing it on the counter in the kitchen.
 
@@ -176,6 +176,6 @@ I think it was a Christmas card, I didn’t see it in the pile his mom got, but 
 
 A small yellow envelope.
 
-I dropped the letters on the floor and ran back to his room. Shoving the blankets over my face.  I tried to convince myself that I didn’t and that I was just remembering wrong, but I never fully could.  I shuffled to my side and closed my eyes, repeating in my head, that I was wrong. As I finally fell asleep I could've sworn I could hear the trees whispering outside my window.
+I dropped the letters on the floor and ran back to his room. Shoving the blankets over my face.  I tried to convince myself that I didn’t see it and that I was just remembering wrong, but I never fully could.  I shuffled to my side and closed my eyes, repeating in my head, that I was wrong. As I finally fell asleep I could've sworn I could hear the trees whispering outside the window.
 
 I didn’t tell Markus it was the same man from years before, and I never told him that that man had come inside at some point that night.
