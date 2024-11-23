@@ -1,8 +1,8 @@
 Let me start off by saying the ocean and my father make me feel the same way. 
 
-My mother drowned in a riptide when I was barely out of diapers, and her loss left my father a volatile, alcoholic shell of himself. Then, when I was the ripe old age of twenty-four, both he and the ocean made me a widower.
+My mother drowned when I was barely out of diapers, and her loss left my father a volatile, alcoholic shell of himself. Then, when I was the ripe old age of twenty-four and we were supposed to be healing and moving on, both he and the ocean made me a widower.
 
-I tried to tell myself it wasn’t my father’s fault. Even in the absence of an apology, the guilt of being at the helm when the sea turned over like a slumbering monster must somehow be torture. After all, taking my new wife on that boat with him was supposed to be an act of trust and moving on.
+I tried to tell myself it wasn’t my father’s fault. Even in the absence of an apology, the guilt of being at the helm when the sea turned over like a slumbering monster must somehow be torture.
 
 I forgave that man for so much. It wasn’t fair that I survived and Sally didn’t. Fuck, it wasn’t fair that *he* survived at all.
 

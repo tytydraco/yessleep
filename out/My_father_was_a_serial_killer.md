@@ -16,7 +16,7 @@ I don’t know.. exactly when I started to notice the smell in the basement, but
 
 One day the scent led me to the side room in our basement, where a rug laid at a random point against the wall. It was so strong in that room that I had to hold back wretches, feeling the tingle of vomit entering the back of my throat.
 
-I crept closer to the rug and the smell of purifying flesh invaded my nose that much more. I was almost touching the thing when the sound of my dad clearing his throat broke the silence. I hadn’t even heard him come down the stairs, but there he was, looming in the doorway, as the light of the only hanging bulb behind him cast stark shadows over his face. 
+I crept closer to the rug and the smell of putrefying flesh invaded my nose that much more. I was almost touching the thing when the sound of my dad clearing his throat broke the silence. I hadn’t even heard him come down the stairs, but there he was, looming in the doorway, as the light of the only hanging bulb behind him cast stark shadows over his face. 
 
 For the first time, in that very moment, I was afraid of my father.
 
