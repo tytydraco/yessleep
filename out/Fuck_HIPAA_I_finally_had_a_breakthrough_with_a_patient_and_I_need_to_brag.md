@@ -364,4 +364,10 @@ Second Patient: [https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck\_hipaa\_
 
 Third Patient: [https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck\_hipaa\_this\_inmate\_is\_the\_most\_dangerous/](https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck_hipaa_this_inmate_is_the_most_dangerous/)
 
+  
+Fifth Patient:  
+[https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck\_hipaa\_my\_new\_patient\_doesnt\_even\_need/](https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck_hipaa_my_new_patient_doesnt_even_need/)
+
+
+
 Employee Handbook (yes, really): [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
