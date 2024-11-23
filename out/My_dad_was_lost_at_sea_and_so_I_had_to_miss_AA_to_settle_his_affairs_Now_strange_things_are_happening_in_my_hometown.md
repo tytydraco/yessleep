@@ -6,9 +6,7 @@ I tried to tell myself it wasn’t my father’s fault. Even in the absence of a
 
 I forgave that man for so much. It wasn’t fair that I survived and Sally didn’t. Fuck, it wasn’t fair that *he* survived at all.
 
-Existing without my wife in a town I hated felt like sitting still in a burning house. So I left, and for three years I never looked back. It was hard at first. I fell into the same alcoholic vices as my father, but I like to think I made it to a better place. 
-
-I might have even eventually rebuilt my life if my sister hadn’t called.
+Existing without my wife in a town I hated felt like sitting still in a burning house. So I left, and for three years I never looked back. It was hard at first. I fell into the same alcoholic vices as my father, but I might have eventually rebuilt my life if my sister hadn’t called.
 
 It started when my work buddies invited me out for drinks, which I declined in favor of sprinting to my car. City traffic meant time was limited, and I hadn’t missed a meeting yet, just as the court ordered. My hard earned six-month chip was so close, I could almost touch the proof I wasn’t just a huge pile of shit and wasted potential.
 
