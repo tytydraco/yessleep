@@ -4,7 +4,7 @@ My mother drowned in a riptide when I was barely out of diapers, and her loss le
 
 I tried to tell myself it wasn’t my father’s fault. Even in the absence of an apology, the guilt of being at the helm when the sea turned over like a slumbering monster must somehow be torture. After all, taking my new wife on that boat with him was supposed to be an act of trust and moving on.
 
-I forgave that man for so much. He only lashed out at me and my sister because he loved our long-dead mother so much. He either frequented bars to chat up women, or was out on the water, because if she wasn’t at the bottom of a bottle or in the body of some forty-something divorcee, she had to be out there. He grew up in a time when men of the sea didn’t cry, they acted.
+I forgave that man for so much. He only lashed out at me and my sister because he loved our long-dead mother so much. He either frequented bars to chat up women, or was out on the water, because if she wasn’t at the bottom of a bottle or in the body of some forty-something divorcee, she had to be out there.
 
 It wasn’t fair that I survived and Sally didn’t. Fuck, it wasn’t fair that *he* survived at all.
 
