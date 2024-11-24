@@ -42,7 +42,7 @@ It was a photograph of a blood-spattered body, atop of which was placed a handwr
 
 “What makes you think that?”
 
-“He wrote us a letter. Apparently each death represents one of the 12 laws of physics. And after the 12th, he plans to disappear.”
+“He wrote us a letter. Apparently each death represents one of the 12 basic laws of physics. And after the 12th, he plans to disappear.”
 
 “Which laws are left?”
 
@@ -54,7 +54,7 @@ It was a photograph of a blood-spattered body, atop of which was placed a handwr
 
 I laughed. "Despite the stereotype, Detective O’ Brien, I'm afraid this British chap is far from a sleuth. And I really must be getting home. I wish you the best with your investigation-”
 
-"Listen, professor," He interrupted, "I'm just gonna be straight up with you. This wasn't my idea, getting you involved. But the chief's got it in his head that someone like yourself... an expert in your field… could help us find this guy. So do it or don't do it… either's fine by me. It's my job to find this sicko either way. Just let me know, so I can get back to work."
+"Listen, Professor," He interrupted, "I'm just gonna be straight up with you. This wasn't my idea, getting you involved. But the chief's got it in his head that someone like yourself... an expert in your field… could help us find this guy. So do it or don't do it… either's fine by me. It's my job to find this sicko either way. Just let me know, so I can get back to work."
 
 He had given me an out. An out, which I happily accepted.
 

@@ -1,4 +1,4 @@
-Lately I have been revisiting an old playground horror story that’s been passing around the area where in I grew up. When I was young the older children would tell me and my friends that there was a god living in the forest.
+Lately I have been revisiting an old playground horror story that’s been passing around the area where I grew up. Back then the older children would tell me and my friends that there was a god living in the forest.
 
 They told us all those usual things you would think fit that description; All powerful, omniscient and so on. But they emphasized one thing that always struck me as sinister. This deity did not seek worship. That specific fact always creeped me out. That something so alien that it didn’t desire or seek a single thing, not even dominion over its subjects, existed somewhere right behind our town’s flimsy treeline.
 
