@@ -48,11 +48,11 @@ It was a photograph of a blood-spattered body, atop of which was placed a handwr
 
 “Well, there were 3. The 3 laws of motion. But your buddy here,” He said, pointing to the photograph. “He was the first of the 3… Inertia. The last 2 are-”
 
-“Acceleration and Action-Reaction.” I interrupted, finishing his sentence.
+“'Acceleration' and 'Action-Reaction.'” I interrupted, finishing his sentence.
 
-“And that’s exactly why we need your help, professor.”
+“And that’s exactly why we need your help, Professor.”
 
-I laughed. "Despite the stereotype, Detective O’ Brien, I'm afraid this British chap is far from a sleuth. And I really must be getting home. I wish you the best with your investigation-”
+I laughed. "Despite the stereotype, Detective O’ Brien, I'm afraid this old British chap is far from a sleuth. And I really must be getting home. I wish you the best with your investigation-”
 
 "Listen, Professor," He interrupted, "I'm just gonna be straight up with you. This wasn't my idea, getting you involved. But the chief's got it in his head that someone like yourself... an expert in your field… could help us find this guy. So do it or don't do it… either's fine by me. It's my job to find this sicko either way. Just let me know, so I can get back to work."
 
