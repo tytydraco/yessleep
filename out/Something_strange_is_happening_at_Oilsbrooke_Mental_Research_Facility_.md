@@ -6,11 +6,11 @@ Plus I doubt anyone important at my job surfs online forums, so I should have aw
 
 
 
-My employer never took the hiring process too seriously. Hence why a paranoid schizophrenic is working as a surgeon in an over glorified asylum, owned privately by Mister Edgar Oilsbrooke. 
+My employer never took the hiring process too seriously. Hence why he diagnosed and hired a paranoid schizophrenic in one sentence, and ever since I have been working as a surgeon in an over glorified asylum, owned privately by Mister Edgar Oilsbrooke. 
 
 Oilsbrooke Mental Research Facility, to me, is paradise on Earth. 
 
-My condition often puts my patients on edge. Something about my eyes does not instill hope in them. Not much gets to me any more, though.
+My condition often puts my patients on edge. Something about my eyes does not instill hope in them. Not much gets to me any more, though. Doctor Branthot explained to me that I am a special case, and that the facility could "use someone with my talents." I trust the man with my life and trust his diagnosis fully.
 
 Three days ago, I finally met a patient that made me feel how all those I put under the scalpel must have felt.
 
