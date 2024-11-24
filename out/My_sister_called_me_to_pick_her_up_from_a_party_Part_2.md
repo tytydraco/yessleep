@@ -236,4 +236,4 @@ Demi’s grip on my arm loosened slightly, though the worry didn’t leave her e
 
 “I promise,” i said, giving her a reassuring smile. “We’ll be back before you know it.”
 
-With a final nod to the others, Wes, Tommy and me turned back toward the entrance, weapons at the ready. The others stayed back, forming a small circle and keeping a wary eye on the parking lot. I could feel my sister’s gaze following us as we slipped into the darkened school, hoping the keys—and our way out—would still be there.
+With a final nod to the others, Wes, Tommy and me turned back toward the entrance, weapons at the ready. The others stayed back, forming a small circle and keeping a wary eye on the parking lot. I could feel my sister’s gaze following us as we slipped into the darkened school, hoping the keys—and our way out—would still be [there.](https://www.reddit.com/r/nosleep/comments/1gyrryy/my_sister_called_me_to_pick_her_up_from_a_party/)
