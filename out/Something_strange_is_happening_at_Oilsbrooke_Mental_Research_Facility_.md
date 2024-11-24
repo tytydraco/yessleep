@@ -6,11 +6,21 @@ Plus I doubt anyone important at my job surfs online forums, so I should have aw
 
 
 
-My employer never took the hiring process too seriously. Hence why he diagnosed and hired a paranoid schizophrenic in one sentence, and ever since I have been working as a surgeon in an over glorified asylum, owned privately by Mister Edgar Oilsbrooke. 
+My employer never took the hiring process too seriously. Hence why he diagnosed and hired a paranoid schizophrenic in one sentence. Ever since, I have been working as a surgeon in an over glorified asylum, owned privately by Mister Edgar Oilsbrooke. 
 
-Oilsbrooke Mental Research Facility, to me, is paradise on Earth. 
+Several times we have discussed the nature of my mind's sickness, and despite my suggestions, Doctor Branthor has assured me that I, and most of the inpatients here at the facility, are suffering from schizophrenic hallucinations, personality disorders and other afflictions or diseases. 
 
-My condition often puts my patients on edge. Something about my eyes does not instill hope in them. Not much gets to me any more, though. Doctor Branthot explained to me that I am a special case, and that the facility could "use someone with my talents." I trust the man with my life and trust his diagnosis fully.
+At first I disagreed with the man, but who am I to question such a brilliant mind in his field of study? Only a madman would do such a thing.
+
+The longer I worked for him, the more I saw the truth. His truth.
+
+Oilsbrooke Mental Research Facility, to me, is paradise on Earth. It's where all the world's greatest breakthroughs in mental health and diseases were birthed, according to Doctor Branthor. 
+
+You outsiders still believe in your own scientists, when in reality, the only truth is what my mentor tells me.
+
+Everyone who arrives here in Lichwood is either sick, or going to become sick. It's best to just tell them how it is.
+
+I often put my patients on edge. Something about my eyes does not instill hope in them. Not much gets to me any more, though. Doctor Branthor explained to me that I am a special case, and that the facility could "use someone with my talents." I trust the man with my life and trust his diagnosis fully.
 
 Three days ago, I finally met a patient that made me feel how all those I put under the scalpel must have felt.
 
