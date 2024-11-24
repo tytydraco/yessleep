@@ -39,3 +39,5 @@ B - Try to really get Ns attention.
 Or
 
 C - Quit and try to find another job.
+
+Update- https://www.reddit.com/r/nosleep/s/PD4O4dt0xa
