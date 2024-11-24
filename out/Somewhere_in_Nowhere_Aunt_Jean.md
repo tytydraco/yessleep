@@ -156,4 +156,4 @@ Aunt Jean picked up the broken body of the tiny creature and swallowed it whole.
 
 “Scratch that. I don’t think they’d make very good omelettes for most people.”
 
-She smiled with old teeth stained black, and I started bracing myself for a trip to town. I wouldn’t go until tomorrow, but even that wasn’t enough time to mentally prepare.
+She smiled with old teeth stained black, and I started bracing myself for a trip to town. I wouldn’t go until tomorrow, but even that wasn’t enough time to mentally [prepare.](https://www.reddit.com/r/nosleep/comments/1gz028c/somewhere_in_nowhere_eggs_and_apples/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
