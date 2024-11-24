@@ -1,12 +1,12 @@
 Let me start off by saying the ocean and my father make me feel the same way. 
 
-My mother drowned when I was barely out of diapers, and her loss left my father a volatile, alcoholic shell of himself. Then, when I was the ripe old age of twenty-four and we were supposed to be healing and moving on, both he and the ocean made me a widower.
+My mother drowned when I was barely out of diapers, and her loss left him a volatile, alcoholic bastard. Then, when I was the ripe old age of twenty-four and we were supposed to be healing and moving on, both he and the ocean made me a widower.
 
 I tried to tell myself it wasn’t my father’s fault. Even in the absence of an apology, the guilt of being at the helm of that boat when the sea turned over like a slumbering monster must somehow torture him.
 
 I forgave that man for so much. It wasn’t fair that I survived and Sally didn’t. Fuck, it wasn’t fair that *he* survived at all.
 
-Existing without my wife in a town I hated felt like sitting still in a burning house. So I left, and for three years I never looked back. It was hard at first. I fell into the same alcoholic vices as my father, but I might have eventually rebuilt my life if my sister hadn’t called.
+Existing without my wife in a town I hated felt like sitting still in a burning house. So I left, and for three years I never looked back. It was hard at first. I fell into the same vices as my father, but I might have eventually rebuilt my life if my sister hadn’t called.
 
 It started when my work buddies invited me out for drinks, which I declined in favor of sprinting to my car. City traffic meant time was limited, and I hadn’t missed a meeting yet, just as the court ordered. My hard earned six-month chip was so close, I could almost touch the proof I wasn’t just a huge pile of shit and wasted potential.
 
@@ -224,7 +224,7 @@ Dave ignored me and said to Jenny, “You're naive if you think he's going to be
 
 “No, I didn't give a shit,” I said through clenched teeth. “That man is the reason my wife is gone.” 
 
-“The ocean is the reason Sally’s gone,” Dave said. “The boat tipped, Will. Shit happens.” 
+“The ocean is the reason Sally’s gone,” Dave said. “The boat capsized, Will. Shit happens.” 
 
 The accident flashed before my eyes, and I was there all over again: lost, terrified, surrounded by angry, black water, and Sally's name burned into the back of my throat. 
 
@@ -264,7 +264,7 @@ I risked a glance at her. She looked like she was two seconds away from opening 
 
 A strangled noise escaped me at the audacity. “Well, shit! A little support and encouragement would be nice!” 
 
-“Do you know how many times you’ve told me you were going to AA only for me to get a call that you’re in some sort of trouble?”
+“Do you know how many times you’ve told me you were in AA only for me to get a call that you’re in some sort of trouble?”
 
 “Yeah, but I was lying all those times before!”
 
