@@ -4,7 +4,7 @@ But before I could even answer, a middle-aged chap donning a baseball cap and a 
 
 "Professor Windsor?" He asked, in a fairly heavy Boston accent, as he closed the door behind him.
 
-"Last time I checked." I replied, in an even heavier British accent, my regal accent contrasting with his… well… less regal accent.
+"Last time I checked." I replied, in a slightly less heavy British accent, my regal accent contrasting with his… well… less regal accent.
 
 I smiled…
 
@@ -202,6 +202,8 @@ Detective O'Brien occasionally sipped away at a styrofoam coffee cup that he'd b
 
 "On your shoes. Got it." I replied with a deadpan look, playing along.
 
+—
+
 By the time we arrived at the scene of the crime, an abandoned alley in Southie, almost a foot of snow had accumulated on the ground.
 
 As I stepped out of the car, I looked at the cobblestone street that led to the accident, which was littered with icy footprints and roped off by yellow caution tape.
@@ -342,7 +344,7 @@ I took a few steps back and tumbled over into the snow drift, still processing w
 
 Sitting there in silence, flakes falling all around me, I suddenly realised that the chap who had tipped us off to the car, was likely the culprit himself.
 
-I looked down at the snowy ground, straining my eyes to spot the footprints he might have left when ran away.
+I looked down at the snowy ground, straining my eyes to spot the footprints he might have left when he ran away.
 
 But when I finally found them, to my horror, I discovered that they went off in a different direction than where Detective O’Brien had run, circling back towards the car.
 
@@ -420,7 +422,7 @@ Unsure of what to do, but feeling compelled to save the detective who had become
 
 But having never used one… let alone on a person… and shaking from fear… I hesitated.
 
-“Windsor. Do. It.” O’Brien muttered again, a look of frustration in his eyes, before the killer struck him hard, nearly knocking him out, and sending him flying into the snowy drift.
+“Windsor. Do. It.” O’Brien muttered again, a look of frustration in his eyes, before the killer struck him hard, nearly knocking him out, and sending him flying into the snow drift.
 
 Suddenly, the killer turned around, holding a gun of his own.
 
@@ -436,7 +438,7 @@ Suddenly, blood began to pour from the killer’s mouth, as he tried to will him
 
 I looked down at the detective with wide eyes, unable to comprehend what I had just done, and tried to bring myself to say something… anything… but in the end, the only words I could muster were, “Action-Reaction.”
 
-Detective O’Brien simply looked at me with wide eyes of his own, equally unable tocomprehend what I had just done, before looking down at the killer, and removing the gun from his icy grip.
+Detective O’Brien simply looked at me with wide eyes of his own, equally unable to comprehend what I had just done, before looking down at the killer, and removing the gun from his icy grip.
 
 Then O’Brien turned back to me.
 
