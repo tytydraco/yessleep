@@ -1,0 +1,15 @@
+I've got this pretty unusual habit where I take photos of empty places—abandoned buildings, quiet forests, lonely roads, etc. It started off as a hobby to find and capture the peace that these spaces withhold, but now it feels like the photographs find something... else. 
+
+Last week, I was out taking photos of this old factory near where I live. It was completely desolate as usual. When I looked through the pictures on my computer after I got home, that’s when I saw... something? Someone? Him. An old man, dressed in a grey suit, standing in the very back corner of one of the rooms. I swear that room was empty when I took the picture. 
+
+I know what you're thinking, and so did I—it must've been a reflection on the lens or something, so I didn't think too much about it. I even cleansed the lens. I kept taking more photos in completely different locations, in all kinds of lighting and angles—he was there too. In the background. Always the same distance, always the same posture. 
+
+It got worse. I don't even need to take pictures to see him anymore. I see him in the reflection of spoons, in the glass of windows, and in the backgrounds of photos and videos that never even happened, in every shadow too long to be my own. Most of the time, I just see his grey figure, but sometimes he’s so close that I can see every detail of his face. There’s something wrong with his face. His features look almost right, but they’re just... too symmetrical? Too perfectly balanced, like someone tried to make a human but failed to make it look alive. I don’t know how he got into my life, and I don’t know how to get him out.
+
+I've tried everything. I've tried to force myself to believe it's just my imagination. I've ignored him. I’ve burned the pictures, I’ve been avoiding mirrors and windows, but when I do, I feel him looking at me—cold and heavy, like he’s waiting for something. He’s always there, in my periphery. Just one step away. I can't sleep anymore. I can barely breathe without feeling his presence. 
+
+And the worst part? I saw someone comment on an old Reddit post, mentioning an “old grey-suited man.” Creepily similar to my situation. They said that the man is like a parasite. He feeds on being seen, being remembered. He gets into your life when you become aware of him. It's subtle at first. You might catch a glimpse of him in a reflection, just like I did. Then he becomes more obvious. He comes closer. The last sentence stood as a final, lone warning: 
+
+*“If you read about him, if you think about him too much, he can see you. And when he sees you, he'll never let you go. Not until another becomes aware.”* 
+
+I don't know why I'm writing this. Maybe to give you a warning. Probably as my last exit. If you've read this far, if you've started to think about him, it's probably too late for you too. And if you feel like you’re being watched, don’t look over your shoulder. That’s what he wants. I hope he leaves me now and chooses one of you instead. I know it’s selfish, and I am so, so sorry. I just don’t want to be alone anymore.
