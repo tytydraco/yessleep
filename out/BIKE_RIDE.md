@@ -188,7 +188,9 @@ I rolled my eyes and put on my helmet.
 
 “Just get your fat ass on the bike, Ted told me about this old house, I wanna see it.”.
 
-We rode our bikes for around twenty-five minutes before we saw the house. We slowed down a little looking at each other. Both of us knew this was a bad idea, but we persisted. We left our bikes at some tree and walked up the short driveway. The house was old and covered in vines. It was pink, but the paint had faded in color significantly. Some of the windows were broken, and there were some dead plants surrounding the house. It would be really cute if it wasn't so run down. We looked around. We found a window, it was broken. I offered we climb in through the window, but he strongly argued against it since it still had glass on it. We tried the door.
+We rode our bikes for around twenty-five minutes before we saw the house. We slowed down a little looking at each other. Both of us knew this was a bad idea, but we persisted. We left our bikes at some tree and walked up the short driveway.  Parked there was a grey van, it was warn out, but it was definitely drivable. I looked inside where I saw the keys were still sitting. They were silver with a pink keychain, I couldn't tell what it was though, as the keys were covered in something, Markus said it was blood, but it was most likely rust, though the leather seats looked like something was soaked into it, but again definitely not blood.
+
+The house was old and covered in vines. It was pink, but the paint had faded in color significantly. Some of the windows were broken, and there were some dead plants surrounding the house. It would be really cute if it wasn't so run down. We looked around. We found a window, it was broken. I offered we climb in through the window, but he strongly argued against it since it still had glass on it. We tried the door.
 
 It was already about half an inch open. We opened it slowly, It creaked loudly, echoing through the house. When we walked inside we were hit with a stench of rotting meat. I tried to see what the cause was, but it was dark so it took us a minute to get adjusted to it. Markus opened up the bag and pulled out his phone, flipping the flashlight on, and I did the same.
 
@@ -242,7 +244,7 @@ I looked at the stairs.
 
 I left the door wide open.
 
-There was nothing stopping them from getting to me. 
+There was nothing stopping them from getting to me.
 
 I couldn't speak, I didn't know what to say.
 
