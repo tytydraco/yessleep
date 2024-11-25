@@ -28,7 +28,7 @@ And then I started panicking, I'm trapped alone in some random forest in the mid
 
 I stand up and start looking and wandering around (keeping a close distace to my chair not to get lost) and trying to find a way to go back home, hoping that I can somehow get out, I start panicking that I might have to sleep in the forest and wait to be recused
 
-Luckily I find a road in the distance and start walking to it, When I got ti the road I realized I recognized it and that I was not too far from my hometown
+Luckily I find a road in the distance and start walking to it, When I got to the road I realized I recognized it and that I was not too far from my hometown
 
 I start walking along the road, hoping that I don't get kidnapped by human traffickers or whatever my mom says when I go outside
 
@@ -52,6 +52,8 @@ I go back to my room, and I start obsessively writing down every detail I can re
 
 I realized that my chair was still gone, I left it in the forest and since I'm grounded I can't go back to the forest to check if it's still there
 
+It's genuinely driving me crazy trying to figure out how the fuck I got in the forest, did I sleepwalk???
+
 I tried looking for the PSA, I tried looking through my search history but obviously they don't store what *ads were playing*
 
 I tried searching stuff online like "Philippine Wildlife PSA" or "Black Haired Woman Philippine Forest Ad" and obviously I got nothing
@@ -70,4 +72,4 @@ It was for a charity that was called something like: The Philippine Wildlife Fro
 
 That's genuinely all I can remember as I only was half-paying attention
 
-Please help me find this PSA, I genuinely don't know what happened
+Please help me find this PSA, It's fucking driving me crazy
