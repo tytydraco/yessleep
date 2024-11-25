@@ -24,7 +24,7 @@ I often put my patients on edge. Something about my eyes does not instill hope i
 
 Three days ago, I finally met a patient that made me feel how all those I put under the scalpel must have felt.
 
-I quite like the catatonic ones, the psychos are always exciting, and those with no condition whatsoever are my favorite. You'll often hear me humming down the concrete and metal hallways of the facility,the notes falling flat, dully vibrating in some of the patient's cells.
+I quite like the catatonic ones, the psychos are always exciting, and those with no condition whatsoever are my favorite. You'll often hear me humming down the concrete and metal hallways of the facility, the notes falling flat, dully vibrating in some of the patient's cells.
 
 That day, though... What I saw truly disturbed me.
 

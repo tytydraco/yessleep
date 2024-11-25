@@ -23,3 +23,6 @@ But having received a reason to catch up with the old mate who evidently told th
 I do remember that he was the one in our friend group that believed the story the most, so it isn’t all that strange if he helped spread that weird story.
 
 He was very keen to see me and talk over coffee. So I guess that’s what I’m waiting for now, I hope Josh still remembers how and to whom he told that story…
+
+  
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1gz4xch/a_god_in_the_woods_part_2_investigation/)
