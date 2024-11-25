@@ -110,7 +110,7 @@ As I said, the way people spoke about his parents was just the beginning: he has
 
 It was small things, at first; details such as finding a pen or another object in a place he didn’t remember leaving it in his house and couldn’t imagine ever doing on purpose, waking in his bed early in the morning with all of the lights still on in the house, or waking up and realizing he must’ve forgotten his coat at work or another place he usually frequented, and then having to go get it — the sort of things you might easily just attribute to being exhausted from a long day at work, or, at the very most, in the case of the former two, some sort of haunting.
 
-Over time, though, things started to happy that made him start to question his sanity: 
+Over time, though, things started to happen that made him start to question his sanity: 
 
 Visits to friends’ houses would occasionally result in him waking up with objects they’d let him borrow still in his possession, which he’d awkwardly have to return — though, he notes, they seemed strangely unbothered by it and accepted it happening, in the same way as he usually had just casually accepted things being moved from their usual places, and would even make up excuses for why he might have done it, until he began to feel crazy for thinking it was strange.
 
@@ -149,4 +149,3 @@ We’re unpacked in the room. I was about to sleep and set an alarm for 10:00 to
 That was it, just these four words. Nothing else. Why isn’t there more? Why doesn’t he sound more frantic, more excited, more….*anything*? Why doesn’t ask where I am? Why doesn’t he seem desperate to find me? How do I even respond to that?
 
 …I need to go to bed. I’ve been pacing the room for the past 10 minutes, just trying to understand. I was going to wait until the next post to even mention it because I know this post is long enough, but I need to know what all of you think about it. I’m so confused.
-
