@@ -144,7 +144,7 @@ I didn't know how to comprehend any of this, my thoughts were split into confusi
 
 "Yeah, sure," I thought but didn't say it out loud. I was already scared for my life at the sight of whatever this thing was. 
 
-"Heed this warning though," the thing hissed and I heard the horrid sound of bones popping as the black liquid extended its neck and in seconds it was inches away from my face. "If you do anything horrible to my son...hurt him in any way, shape, or form...I will be very...very...***angry***..." he dipped the last word in fury and I felt like I was almost about to piss myself.  
+"Heed this warning though," the thing hissed and I heard the horrid sound of bones popping as the black liquid extended its neck and in seconds it was inches away from my face. "If you do anything horrible to my son...hurt him in any way, shape, or form...I will be very...very...***angry***..." it dipped the last word in fury and I felt like I was almost about to piss myself.  
 
 "Do you understand?" it asked, a threat clear in its voice. I nodded profusely. Sweat was pouring down my face. "Wonderful," the thing said happily then retracted its neck back to its body. 
 
