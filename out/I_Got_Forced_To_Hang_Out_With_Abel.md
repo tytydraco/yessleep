@@ -130,11 +130,11 @@ The thing chuckled at my response.
 
 "Well you see, I was once a normal man, with a splendid job as a craniologist and a loving family," he gestured towards Abel and his mother. 
 
-"Everything was wonderful, my life was pure and fulfilling...until....some filthy hooligan... ran a red light...and then he hit me...", I could feel the hatred and venom dripping from its voice. It took a deep breath, picking up the composure he dropped. 
+"Everything was wonderful, my life was pure and fulfilling...until....some filthy hooligan... ran a red light...and then he hit me...", I could feel the hatred and venom dripping from its voice. It took a deep breath, picking up the composure it dropped. 
 
 "The despair and anger I held within me was agonizing, to say the least," it continued "I was trapped in darkness, thinking I would never return to my family ever again...but fortunately that wasn't the case."
 
-It turned towards Abel holding the cracked skull, "See, my wife and son had tracked down the driver who had taken my life, and let's just say they...avenged me". The smile in his voice was clear, and I saw Abel proudly grin at the thing.
+It turned towards Abel holding the cracked skull, "See, my wife and son had tracked down the driver who had taken my life, and let's just say they...avenged me". The smile in it’s voice was clear, and I saw Abel proudly grin at the thing.
 
 "It took a long time, but eventually I was reborn anew, all thanks to my beautiful, lovely Patricia." the smile never left its voice as it turned its gaze towards Abel's mom. Abel's mom only giggled as her cheeks blushed.
 
