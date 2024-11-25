@@ -330,3 +330,7 @@ And that’s where I am, a dying phone, a possibly dying friend, and my only hop
 
 As always, if anyone has any ideas, let me know. So far listening to those around me, hasn’t exactly got me in the best situation. 
 
+
+Looks like things went to hell, literally
+
+https://www.reddit.com/r/nosleep/s/67FOfH0Ll8
