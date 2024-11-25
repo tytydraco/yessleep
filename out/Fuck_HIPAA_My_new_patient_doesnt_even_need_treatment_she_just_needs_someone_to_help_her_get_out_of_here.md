@@ -562,9 +562,8 @@ Second Patient: [https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck\_hipaa\_
 
 Third Patient: [https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck\_hipaa\_this\_inmate\_is\_the\_most\_dangerous/](https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck_hipaa_this_inmate_is_the_most_dangerous/)
 
-Fourth Patient: [https://www.reddit.com/r/nosleep/comments/1gwszfl/fuck\_hipaa\_i\_finally\_had\_a\_breakthrough\_with\_a/](https://www.reddit.com/r/nosleep/comments/1gwszfl/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
+Fourth Patient: [https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck\_hipaa\_i\_finally\_had\_a\_breakthrough\_with\_a/](https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
 
-  
 Sixth Patient: [https://www.reddit.com/r/nosleep/comments/1gysd5a/fuck\_hipaa\_my\_new\_patient\_is\_a\_televangelist\_and/](https://www.reddit.com/r/nosleep/comments/1gysd5a/fuck_hipaa_my_new_patient_is_a_televangelist_and/)
 
 Hastily-Transcribed Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)

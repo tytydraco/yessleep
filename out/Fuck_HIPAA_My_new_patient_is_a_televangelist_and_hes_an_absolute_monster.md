@@ -54,8 +54,6 @@ The Agency possesses a full recording of one such ritual. Access is subject to c
 
 Notgod More came to the Agency’s attention when a teenage escapee from the cult reported him to local police. The report was dismissed. As a minor, the witness was remanded to state custody. Due to the horrors he had witnessed, the youth was not able to achieve mental stability and as a result was eventually incarcerated at a secure inpatient facility.
 
-
-
 From there, his story wound its way through the institution and eventually reached a Varangian agent whose prompt attention to the matter led the Agency to the compound of Notgod More. 
 
 The details of the scene remain classified to this day, and as of this writing there are no plans to declassify them. Suffice to say the condition of Notgod More’s cult was so dire and the threat posed by setting them free so uniquely critical that—for the first and only time in Agency history— Administration issued an order to terminate each and every human being onsite. 
@@ -108,8 +106,6 @@ Due to the critical threat posed by this entity, Dr. Charles Wingaryde was origi
 
 It should be noted that their attendance occurred over the interviewer’s strenuous objections. 
 
-
-
 **INTERVIEW SUBJECT: NOTGOD MORE**
 
 ***Classification String: Noncooperative / Indestructible / Agnosto / Constant\* / Moderate / Daemon\*\* \*Presumed but unconfirmed***  
@@ -118,8 +114,6 @@ It should be noted that their attendance occurred over the interviewer’s stren
 **INTERVIEWER: RACHELE B.**
 
 **DATE:  11/23/24**
-
-
 
 People say love makes the world go round.
 
@@ -235,22 +229,14 @@ You will finally be happy.
 
 First Patient: [https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
 
-
-
 Second Patient: [https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck\_hipaa\_i\_messed\_up\_hardcore\_and\_if\_we\_dont/](https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
-
-
 
 Third Patient: [https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck\_hipaa\_this\_inmate\_is\_the\_most\_dangerous/](https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck_hipaa_this_inmate_is_the_most_dangerous/)
 
-
-
 Fourth Patient: [https://www.reddit.com/r/nosleep/comments/1gwszfl/fuck\_hipaa\_i\_finally\_had\_a\_breakthrough\_with\_a/](https://www.reddit.com/r/nosleep/comments/1gwszfl/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
 
+Backup link for fourth patient: [https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck\_hipaa\_i\_finally\_had\_a\_breakthrough\_with\_a/](https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
 
-
-Fifth Patient: https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck\_hipaa\_my\_new\_patient\_doesnt\_even\_need/
-
-
+Fifth Patient: [https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck\_hipaa\_my\_new\_patient\_doesnt\_even\_need/](https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck_hipaa_my_new_patient_doesnt_even_need/)
 
 Hastily-Transcribed Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
