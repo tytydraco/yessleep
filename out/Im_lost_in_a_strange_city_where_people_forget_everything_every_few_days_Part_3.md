@@ -57,3 +57,5 @@ I didn’t see Clayton at the theatre today, which marks the first time since th
 I should sleep soon. I have work tomorrow, and I’m exhausted from the late night I spent writing my last post. Since apparently I can’t post this for several hours, I’ll set an alarm to get up when I can actually post and then I’ll stay up an hour longer to read comments if you leave any, but otherwise, I’ll be seeing you all tomorrow. Take care.
 
 [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1gxwxkx/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/1gzhcq3/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

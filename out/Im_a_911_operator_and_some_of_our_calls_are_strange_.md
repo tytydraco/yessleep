@@ -1,3 +1,5 @@
+[previously](https://www.reddit.com/r/nosleep/s/TWOz8vtIor)
+
 Hey everyone, sorry about the cliff hanger. There’s been a few… interesting developments. 
 
 I’m going to start off where I left things last time. Andy trench, like I said it stank and was vomit inducing. 

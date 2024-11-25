@@ -1,0 +1,39 @@
+In fall, when everyone's mood is dampened, was when it began. God, I'm so sorry dad. RIP.
+
+I've Been told I'm Prone to Hyperbole-But these events have found me soberingly honest. If I had to Pick an exact Point- It's when the neighbors House disappeared. At first I barely noticed it, But I was coming home after work and I realized where the Thompson's mailbox was, there was now a Patch of Sunflowers. When I walked over I found a bunch of old rusty nails lying in the grass next to them. I then realized that their house looked abandoned. It didn't make a lot of sense though because I just seen them not a week earlier. Maybe it was longer? I brushed it off but it gnawed at my mind so I figured I'd tell my parents.  First I just Casually mentioned it to my dad and he thought I was messing with him, but about 5 minutes later I had to pry the phone out of his hand. He saw something and he was convinced we need to call SOMEONE; cops, firefighters-anybody. A day later I found him hammering nails into the passenger side of his work truck.
+
+See, my mother knew longer than I did and swore up and down that she had told me at least twice not long ago. But it didn't make sense as she's been taking care of my grandmother for the past 6 months and we only talked on the phone maybe once since then. Maybe it was a year? Either way like I said fall is slow and lethargic for us but winter was just downright depressing. After the first snowfall I saw a plant still standing in our driveway, I thought nothing of it. Though I did decide to shovel the snow out and I swear I shoveled that spot where the plant was too, the second I got inside and warmed up-I looked out to see a perfect one foot circumference of snow surrounding this lone plant sprouting from our gravel.
+
+Now, half terrified and half pissed, I decided to march out there and pull the plant out by its roots. Grabbing a big grassy handful I rip and I almost pass out from the pain. It was awful. Like grabbing onto a tooth with pliers and not ripping it out but CRUSHING it, my head aches now writing this. I barely remember stumbling inside and I certainly don't remember nailing my shoes to the door, but there they were dead center, like a wreath on Christmas. What is that smell?
+
+I focus looking down and seeing the hammer still in my hand. Now I was fully terrified. What made the Thompson's home disappear, why is my father hammering his truck, why did I not remember taking my shoes off and doing this? I March back outside towards the shed, past my father who is covered in snow still hammering nails, now into the tailgate of the truck. I grab the biggest pair of hedge trimmers I can find and I stomp right up to that lone plant. 
+
+Then I wake up in my bed covered in sweat, still clothed. It's 3:06 in the morning, I've got 6 missed calls and I tiptoe downstairs more confused than I've been in my entire life; I see my shoes still hanging on to the front door. But now a sunflower hangs from the tongue. Was this a message of peace? Or was this a threat. Whatever it is all I know is I must go back to the Thompsons. It has to be the answer-it needs to be the answer. The only alternative is madness.
+
+I'm not Mad. I can't be. I've always praised myself for being a straight shooter. Someone who can wrap his head around some pretty disturbing and confusing problems. I can't falter in my own faith, but I can't understand this. God knows I'm trying.
+
+I checked those calls, and all that happened is now I wish I didn't. I was hoping it was my mother but I quickly realized I was wrong when all I heard was heavy, laboured breathing. Maybe it was a breeze? As soon as I shut my phone off I smelled rot, like a dozen dead mice under the floorboards melting together. I keep hearing crows. Wait, my father was still outside when I saw him last hours ago. Is my father ok?
+
+I go downstairs to the front door and turn on the porch light and it casts just enough to see the outline of the truck. Have you ever seen hellraiser? The once prized possession looks like Pinhead. My dad is nowhere in sight. God this means I'm going to have to go out there doesn't it? I've double checked the house, I need to make sure he's not in here before I risk everything to go out there. I grabbed my bolt action .22; I know it's not much but I'm not going out there with nothing.
+
+Slowly I open the door so carefully as to not make a creak and step down the stone slabs. Flashing a light around it's not much but a barren Frozen winter wasteland. And as a corner of the truck I see my father's black hoodie. No just a piece of his hoodie. Its SHREDDED. No, no, God please don't let this be it, don't let this be him.
+
+What kind of cruel and malicious God can allow these events to happen. Who could leave him up in our tree like this? Stung up like he meant nothing. Organs strewn so far up the tree the beam of my flashlight doesn't reach the top. The amount of blood makes me sick and I throw up into the bed of the already bloodstained truck. That's when I see a sunflower growing through the rust in the fender. 
+
+I've had enough, I don't care if I die I'm taking this plant, closer to a demon now, and I'm tearing it out. With a big handful wrapping around my fingers I tug and I tug and my brain feels like it's liquefying. I don't care I will keep going I'm not done until this thing is gone, out of my life. I will not allow what happened at the Thompson's to happen here. I REFUSE. 
+
+I do stop though. Now I can see two white full moon eyes staring at me from inside my house. I left the door open.
+
+Then it speaks to me. Not in words, certainly not in a way a sane man can comprehend. But I understood. It was like an Angel or a twisted beast of old. As it sang in my head and as its horror of Eternity floods my mind, I crumble and I fall to my knees. It steps closer and I can't even begin to crawl away. I want to scream, I need to, but my mind is occupied by visions of a frozen snowy forest drenched with blood.
+
+I know what it wants. MY BLOOD. And my mind.
+
+It's massive silhouette barely squeezed out of the doorway, leaving streaks of rot on the frame, when I finally got up and stumbled off into the woods. My death may be inevitable, but I will not go easy. As I limp off i can still smell the rot, worse than ever. I ring a shot off in its direction and hear a soft, wet "Thunk". Now I know it's physical, it's really there. 
+
+I run until my legs give out again, and find myself in a clearing. Shimmering in the moonlight are a patch of sunflowers. And they are rotting. The stench curls my nose hair and burns my throat but I can't look away as they bleed. Fountains of screams deafen me and soon there's nothing.
+
+When I opened my eyes I didn't see it but I knew it was there. It was breathing down my neck and all I could think of was my rifle. I could end it before that thing could rip my heart out. Go out on my terms. The thought was fleeting but, still I had it. I pulled the trigger and the beast moaned. Then it laughed. A horrible gut wrenching laugh that almost brings me to tears recalling it. It meant nothing but pure malice.
+
+It let me go. It knew me. Knew I'd live with nightmares. It knew that letting me go would be worse than gutting me. It knew the police would blame it on me. They did, because how could I properly explain what had happened? So In my cell I write the only thing I can: my experience of what happened no matter how mad it sounds. And still the thing watches me, just out of my vision but always there, always peering around that dark corner.
+
+Of course, I still find nails every once in a while. In my cell. On the way to the recreation area. Places they should never be, but I've got a draw full of them as proof. It wants me to remember how he looked the last time I saw him up in that tree. I still smell the rot. Always.

@@ -206,3 +206,5 @@ So I did, I looked at what I had thought was a pile of people. But it was a pile
 “You need to start trusting me Kylie, had that thing gotten a hold of you it would have killed you just like the first one nearly did to me”. 
 
 Grabbing my arm he pulled me to my feet, “now we need to get back to the call center”. 
+
+[Next](https://www.reddit.com/r/nosleep/s/iNF8N9tbLT)

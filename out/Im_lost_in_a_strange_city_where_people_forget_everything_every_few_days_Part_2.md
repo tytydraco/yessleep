@@ -71,3 +71,5 @@ And well, you mostly know the rest. I need to try to sleep now, so I’ll be sig
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1gx2u7f/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1gxwxkx/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/1gzhcq3/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

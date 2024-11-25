@@ -73,3 +73,5 @@ I have to go now. I’ll write out the more important details of our conversatio
 I know I said I was going to maybe take off tomorrow and arrange to travel today to the other city if the reset happened, but honestly, I think I’m just going back to sleep for now after I post this. I have a lot on my mind. I’ll get back to you either tomorrow morning at the same time, or…I don’t know, I’ll figure it out. I’m wondering right now what the right thing to do is. Do I leave Clayton in his newfound blissful ignorance? Or do I tell him, show him, what we talked about last night? Will he be safer if he doesn’t know, or just more vulnerable?
 
 I’ll have to think about it when I get up later. I’m tired.
+
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/1gzhcq3/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
