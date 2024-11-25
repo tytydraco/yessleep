@@ -579,3 +579,22 @@ It’s not the worst thing, I guess. I’m warm, I get fed, I don’t have to wo
 The problem is, though — and no offense — you guys make me eat a lot. Too much, if I’m being honest. And because of what you make me eat, I’m kind of right back to where I started:
 
 Not liking how it feels when I get full.
+
+
+
+\* \* \*
+
+  
+First Patient: [https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
+
+Second Patient: [https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck\_hipaa\_i\_messed\_up\_hardcore\_and\_if\_we\_dont/](https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
+
+Third Patient: [https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck\_hipaa\_this\_inmate\_is\_the\_most\_dangerous/](https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck_hipaa_this_inmate_is_the_most_dangerous/)
+
+Fourth Patient: [https://www.reddit.com/r/nosleep/comments/1gwszfl/fuck\_hipaa\_i\_finally\_had\_a\_breakthrough\_with\_a/](https://www.reddit.com/r/nosleep/comments/1gwszfl/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
+
+Backup link for fourth patient: [https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck\_hipaa\_i\_finally\_had\_a\_breakthrough\_with\_a/](https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
+
+Fifth Patient: [https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck\_hipaa\_my\_new\_patient\_doesnt\_even\_need/](https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck_hipaa_my_new_patient_doesnt_even_need/)
+
+Hastily-Transcribed Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)

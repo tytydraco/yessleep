@@ -239,4 +239,7 @@ Backup link for fourth patient: [https://www.reddit.com/user/Dopabeane/comments/
 
 Fifth Patient: [https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck\_hipaa\_my\_new\_patient\_doesnt\_even\_need/](https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck_hipaa_my_new_patient_doesnt_even_need/)
 
+  
+Seventh Patient: [https://www.reddit.com/r/nosleep/comments/1gzskr3/fuck\_hipaa\_my\_new\_patient\_just\_triggered\_the\_hell/](https://www.reddit.com/r/nosleep/comments/1gzskr3/fuck_hipaa_my_new_patient_just_triggered_the_hell/)
+
 Hastily-Transcribed Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
