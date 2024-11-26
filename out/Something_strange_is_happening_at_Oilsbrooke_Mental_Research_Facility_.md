@@ -10,7 +10,7 @@ My employer never took the hiring process too seriously. Hence why he diagnosed 
 
 Several times we have discussed the nature of my mind's sickness, and despite my suggestions, Doctor Branthor has assured me that I, and most of the inpatients here at the facility, are suffering from schizophrenic hallucinations, personality disorders and other afflictions or diseases. 
 
-At first I disagreed with the man, but who am I to question such a brilliant mind in his field of study? Only a madman would do such a thing.
+At first I disagreed with the man, but who am I to question such a brilliant mind in his field of study? Only a madman would subscribe to such a foolish belief.
 
 The longer I worked for him, the more I saw the truth. His truth.
 
@@ -30,7 +30,7 @@ That day, though... What I saw truly disturbed me.
 
 I entered the front lobby after my hour long walk up the forested mountainside road. It leads a few miles up and out of the small town that is tucked within a valley with several claw-like peaks that tear imposingly into the clouds and the very heavens themselves.
 
-I can't tell you the name of the town, but let's just call it Lichwood. 
+Our little town in this wonderful mountain forest is called Lichwood.
 
 Lichwood is tucked far out of civilization's prying eyes. It's a place where the devil often treads, shifting silently down the roads and through the trees. 
 
