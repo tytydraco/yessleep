@@ -254,4 +254,4 @@ As I pieced together these stories, one thing became clear: the Piper wasn’t a
 
 But what haunted me most were the patterns I couldn’t ignore. Again and again, his presence seemed tied to moments of darkness. It wasn’t just individuals he visited; it was communities, towns, entire civilizations. And one name kept surfacing, whispered like a curse across the centuries: Moloch.
 
-Continued in Part 2 [The Piper Part Two](https://www.reddit.com/r/nosleep/s/9wE51z2hKj)
+Continued in Part 2 [The Piper Part Two](https://www.reddit.com/r/nosleep/s/SBSGFgshi0)

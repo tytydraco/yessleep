@@ -1,3 +1,6 @@
+Part 1: https://www.reddit.com/r/nosleep/s/GS8MqR6lSa
+
+
 Hi everybody, 
 
 Carol here! To those of you who liked my story, and the few who wrote me personally to request another, thank you! While I appreciate your interest in my experiences, I have to ask you to keep it a little “hush-hush”. I’d really hate for it to get around that I’m sharing all this online, semi-anonymously or not. While there are a million Carol’s out there, I see now I may have identified myself a little too specifically. 
