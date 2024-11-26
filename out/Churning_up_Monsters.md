@@ -12,9 +12,7 @@ And Holy Shit
 
 If this wasn't the biggest one of them all.
 
-The Cecil hotel
-
- was one of those 'passion projects' by the beautiful seaside of the  Miami coastline founded by some young millionaire that inherited his wealth and built a resort to keep himself content for a while till its charm faded as soon as he realized the magnitude of work it would take to run the place.
+The Cecil hotel was one of those 'passion projects' by the beautiful seaside of the  Miami coastline founded by some young millionaire that inherited his wealth and built a resort to keep himself content for a while till its charm faded as soon as he realized the magnitude of work it would take to run the place.
 
 So, there it Sat. Rotting away, 'selfishly' taking up the space a more useful project could have used. Becoming home to the less fortunate souls that happened to be born as rats and roaches.
 
@@ -80,12 +78,12 @@ That man I had bumped into was actually a well known and well liked homeless man
 
 And among one of the many people concerned for his safety was a Local Police Sergeant. A charitable religious man that used to let him sleep in his Wendy house sometimes.
 
-It didn't take long for the police to track down his last whereabouts through neighborhood CCTV footage and it didn't take long for the police to link his disappearance to me.
+It didn't take long for the police to track down his last whereabouts through neighborhood CCTV footage . It didn't take long for the police to link his disappearance to me, either.
 
 That's when a  pattern of disappearances of the local homeless population was discovered and with barely any leads, I became the prime suspect. Of course, due to lack of substantial evidence and the fact that I had only explored that place for three days, I was let off the hook. But alas, people are still suspicious of me. Soiling the tiny amount of respect I still might have had.
 
 That old man was never found. Nor were the other individuals that had 'disappeared'. And after scrolling through my gallery that terrible, horrifying night  and watching that video I took of myself standing in front of the pool.
 
-I know they'll never be found again.
 
-  
+
+I know they'll never be found again.
