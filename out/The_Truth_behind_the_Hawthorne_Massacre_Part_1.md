@@ -350,3 +350,4 @@ Every footstep seemed too loud, echoing off the silent walls as we made our way 
 
 None of us spoke, but we all felt it: the point of no return.
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/1h0n1cl/the_truth_behind_the_hawthorne_massacre_part_2/)

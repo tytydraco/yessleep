@@ -1,6 +1,6 @@
 Content Warning:>!Gore & Selfharm/Suicide!<
 
-\[Part 1\](https://www.reddit.com/r/nosleep/comments/1gzhpgu/the\_truth\_behind\_the\_hawthorne\_massacre\_part\_1/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1gzhpgu/the\_truth\_behind\_the\_hawthorne\_massacre\_part\_1/)
 
 The temperature was rising as we pressed on through the Hawthorne building. The air thickening with a humid scent like a suffocating shroud around us. The silence seemed sentient, an oppressive force pressing in on all sides. No words were exchanged; the weight of what we’d witnessed sat heavy in the space between us. We advanced, muscles tense, anticipation thrumming in our veins. With level 2 access, we entered the workshops.
 
@@ -291,4 +291,3 @@ What I fear most is that I only stopped it temporarily, before it could grow str
 James Wright, for what it’s worth, you were a hero. You tried to stop it. I wish the American public knew the truth.
 
 The Hawthorne Massacre wasn’t a tragedy—it was a warning.
-
