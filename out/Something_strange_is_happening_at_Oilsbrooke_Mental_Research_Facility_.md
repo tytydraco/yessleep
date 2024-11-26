@@ -52,17 +52,19 @@ When I got close enough to touch his body, I recoiled. On the base of the back o
 
 Occasionally it twitched, and when it did it jiggled like a rancid pudding cup that threatened to burst in the summer heat with a single touch.
 
-It cast a strange illumination across the small hairs on the back of his neck. It pulsed just a bit, and a tingling sensation began to flood my mind. Like every neuron was being scrubbed by a horse brush. I wanted to knock it out of my head.
+It cast a strange illuminating light across the small hairs on the back of his neck. It pulsed just a bit, and a tingling sensation began to flood my mind. Like every neuron was being scrubbed by a horse brush. I wanted to knock it out of my head.
 
 I knew if I reported this to Doctor Branthor, he wouldn't let me do any slicing. So like the good natured surgeon that I am, I donned my scalpel and my protective gear and got ready to operate.
 
-I slowly inched my blade towards the slowly shaking, volatile pus sack that glowed dimly in the padded cell lit only by the abscess and the hallway light. Tim and his bed were the only things locked in this dark grey padded cell.
+I carefully inched my blade towards the slowly shaking, volatile looking pus sack that glowed dimly in the padded cell. The room was lit only by the abscess and the hallway light. Tim and his bed were the only things locked in this dark grey padded cell with me.
 
-Just as my blade cut flesh, the overwhelming smell of rotted and wet mold penetrated my senses. I started to fall backwards, but Tim's hand shot up and gripped my hand, closing quick like a bear trap.
+Just as my blade cut flesh, the overwhelming smell of rotted and wet mold or fungus penetrated my senses. I started to fall backwards, but Tim's hand shot up and gripped my hand, closing quick like a bear trap.
 
 It didn't hurt. It mostly startled me. But his grip was like iron, I couldn't pull free. 
 
-The light in the abscess glowed a bit stronger now. My mind felt shakey... well, shakier than usual. Tim laid motionless, and yet I saw a ghostly visage of him contort oddly out of him and look at me with an otherworldly and yet warming look of caring, like a demon that wanted desperately to protect me.
+The light in the abscess glowed a bit stronger now, casting long shadows across my patient's face like an amorphous mask of darkness. 
+
+My mind felt shakey... well, shakier than usual. Tim laid motionless, and yet I saw a ghostly visage of him contort oddly out of him and look at me with an otherworldly and yet warming look of caring, like a demon that wanted desperately to protect me.
 
 It twisted it's spine with a strange, almost old camera filtered energy crackling about it. It somewhat twitched as it's body pulled itself and spun to look me in the eye.
 
