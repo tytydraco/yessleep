@@ -54,7 +54,7 @@ I thought about Blair’s version of events as I walked up the darkening tarmac 
 
 The road beneath my feet wasn’t the only thing I ignored. Eventually, however, the smell of burning wood drew my eyes up my phone, and I jolted in panic. Over the trees, about a quarter-mile up the road, rose a billowing, fattening plume of smoke. It was coming from Farmer Ryan Gleason’s property, which sat only another quarter-mile from my parents’ house. I was surprised not to hear sirens, until I remembered that I didn’t live in the city anymore.
 
-Thinking of my elderly parents just up the road, I pelted forwards; dashing at a pace that hurt my legs and lungs; the smoke didn’t help, of course. But I kept pushing until the blaze came into view. Gasped when I saw that the house, barn, and all other structures on the property were ablaze.
+Thinking of my elderly parents just up the road, I pelted forwards, dashing at a pace that hurt my legs and lungs; the smoke didn’t help, of course. Still, I kept pushing until the blaze came into view. Gasped when I saw that the house, barn, and all other structures on the property were ablaze.
 
 It wasn’t the crumbling infrastructure that frightened me. Not even the smoke, full of particles that scorched my lungs’ lining. It was the driveway painted with streaks of blood that encircled Farmer Gleason’s pickup truck. A truck which, given its open doors, had clearly been abandoned.
 
@@ -90,7 +90,7 @@ Shuddering uncontrollably, I pressed onwards, and my tightly shut lips finally o
 
 Up close, I saw that its short legs, each a foot in length, weren’t legs at all. They were stringy pieces of immovable flesh that seemed only to serve an aesthetic purpose. As for the four long appendages, only two were legs — the other two were arms. And all had been extended to twice the typical length of human limbs. A rounded nub sat at the end of the limbs, other than one arm that still bore a human hand. Kept for practical purposes, perhaps.
 
-The torso had been tightened in the middle, reshaping the mid-section into two bumpy ovals, and the face bore two additional eyes; again, only serving an aesthetic purpose. But the mouth was the most horrid. It had been surgically altered to feature sideways lips, and all human teeth had been removed. Instead, there protruded two chiselled fangs made from a dull metal coated in blood.
+The torso had been tightened in the middle, reshaping the mid-section into two bumpy ovals, and the face bore two additional eyes; again, only serving an aesthetic purpose. But the mouth was the most horrid. It had been surgically altered to feature sideways lips, and all human teeth had been removed. Instead, there protruded two chiselled fangs made from a dull stone coated in blood.
 
 The creature was clearer now; *she* was clearer.
 
@@ -98,37 +98,39 @@ The creature was clearer now; *she* was clearer.
 
 She did not say a word. *Could* not say a word, as she had removed her tongue. But I recognised those eyes. Recognised something in that mutilated face. It was Helen Cavendish.
 
-After she’d observed me with a tilted head, whilst swaying on her long limbs, the creature grunted gutturally and backed away, skittering in reverse on those four monstrous limbs; the shorter ones bouncing uselessly from the sides of her bumpy, segmented torso. Helen slipped into the shadows, beyond the reach of my torch beam, and something told me that I shouldn’t follow — that I wouldn’t like what I’d find. But I did it anyway.
+After she’d observed me with a tilted head, whilst swaying on her long legs, the creature grunted gutturally and backed away, skittering in reverse on those four monstrous limbs; the shorter ones bouncing uselessly from the sides of her bumpy, segmented torso. Helen slipped into the shadows, beyond the reach of my torch beam, and something told me that I shouldn’t follow — that I wouldn’t like what I’d find.
 
-And there, amongst the mutilated corpses of townsfolk, were the still-twitching bodies of my mother and father. I whined animalistically as Helen opened her lopsided mouth and plunged her metal fangs into the crown of my mother’s head. My father, lying beside her on a bloody mound of corpses, dozily twisted his head to face her. Watched Helen feast on his wife, but managed only to mumble something incomprehensible. But I only truly registered one thing.
+I pushed forwards anyway.
+
+And there, amongst the mutilated corpses of townsfolk, were the still-twitching bodies of my mother and father. I whined animalistically as Helen opened her lopsided mouth and plunged her stone fangs into the crown of my mother’s head. My father, lying beside her on a bloody mound of corpses, dozily twisted his head to face the spectacle. Twisted to watch Helen feast on his wife, but managed only to mumble something incomprehensible. However, I only truly registered one thing.
 
 The back of Dad’s head was gone. Helen had taken a clump of his hair, skin, skull, and grey matter.
 
-He started to fade, and I instead watched my mother. Watched her stare directly at me with half-knowing eyes. She was still alive, in some way, though only in part.
+I whimpered as he started to fade, then I turned my attention to my mother. Her near-knowing eyes gazed upon me, fighting to recognise her only son. She was still alive, in some half-way.
 
 “Flesh in the grape tower…” Mum groaned loosely, eyes started to roll into the back of her head; what remained of it.
 
-“STOP!” I screamed at the monster digesting chunks of her mother’s brain.
+“STOP!” I screamed at the monster digesting chunks of my mother’s brain.
 
 The spider stopped mid-munch, then shot its head towards me with a lightning reflex — with eyes that had forgotten their humanity. This wasn’t the friend I’d lost at the age of ten, and it was clear that I wasn’t her friend either.
 
 I spun, bumping my head on the hard dirt of the tunnel’s ceiling, and hurried back up the tunnel’s curve as nubby limbs near-soundlessly followed me. The soft thumps of those rounded skin-paws reverberated off the tunnel walls as I scrambled up the vertical entrance.
 
-When I emerged from that nightmarish underworld, lungs filling with smoke from the forest above, I started to follow the muddy tracks back to the driveway. And as I scurried across the dirt, hunted by my feral once-friend, I set my sights on the Hyundai ahead. But as my shoe soles hit the tarmac, and freedom hit my tongue, there came the grip of something against my nape.
+I emerged from that nightmarish underworld, lungs filling with smoke from the forest, then followed the muddy tracks back to the driveway. And as I scurried across the dirt, hunted by my feral once-friend, I set my sights on the Hyundai ahead. But when my shoe soles hit the tarmac, and freedom hit my tongue, there came the grip of something against my nape.
 
 Not a rounded nub, but emaciated fingers.
 
 I screamed and tripped into the driver’s door of my waiting car, thumping my head against the metal and crumpling to the ground.
 
-There she stood, illuminated by the exterior motion lighting: Helen Cavendish, an eight-legged abomination. Far from a spider, though I wouldn’t have dreamt of telling her that. A vengeful spirit that had returned, after twenty-one years, to hunt those who had laughed at her. Even my own dear parents, who had merely chuckled playfully when Helen confessed her dream of becoming an arachnid.
+There she stood, illuminated by the exterior motion lighting: Helen Cavendish, an eight-legged abomination. Far from a spider, though I wouldn’t have dreamt of telling her that. A vengeful spirit that had returned, after twenty-one years, to hunt those who had ridiculed her. Even my own dear parents, who had merely chuckled playfully when Helen confessed her dream of becoming an arachnid.
 
-I was slouching, dazed and confused, against the side of my car — not even bothering to search for my keys, as all seemed to be lost. The spider creature’s remaining human hand reached its probing, dancing fingers towards me. Dirty, overgrown nails scraped painfully through my brunette hair, dragging their way through flesh to the back of my head. They drew blood, then eventually found purchase in the part of my crown that would, soon enough, be her meal.
+I was slouching, dazed and confused, against the side of my car — not even bothering to search for my keys, as all seemed to be lost. The spider creature’s remaining human hand reached its probing, dancing fingers towards me. Dirty, overgrown nails scraped painfully through my brunette hair, cutting through flesh towards the back of my head. They drew blood, then eventually found purchase in the part of my crown that would, soon enough, be Helen’s meal.
 
-By some miracle, however, the distant sirens started to sound not-so-distant at all. And I realised that the smoke filling my lungs had come from the approaching fire; it had spread from Gleason’s Farm to my parents’ property, much like the fire engine. The lights and sounds spooked the horrifying creature, I think, because its nails suddenly lifted from my skin. Moments before I met my end.
+By some miracle, however, the distant sirens grew not-so-distant at all. And I realised that the smoke filling my lungs had come from close flames. The inferno had spread from Gleason’s Farm to my parents’ property, much like the firefighters. Those vibrant lights and sounds clearly spooked the horrifying creature, as its nails suddenly lifted from my skin.
 
 By the time the responders found me, shivering on the driveway, the creature had fled.
 
-I know I should do the same, but I won’t leave. Won’t let my parents’ deaths mean nothing. The hovel’s empty now; I showed the detectives, and they’re following it up, but I know they won’t solve this. And somebody has to stop her; ten more townsfolk have gone missing.
+I know I should do the same, but I won’t. Won’t let my parents’ deaths mean nothing. The hovel’s empty now; I showed the detectives, and they’re ‘following it up’, but their incompetence knows no bounds. Ten more townsfolk have gone missing.
 
 It doesn’t matter who laughed and who didn’t. After all, I always supported her dream, but that thing didn’t care because it’s not Helen.
 
