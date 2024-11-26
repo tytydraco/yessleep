@@ -1,134 +1,210 @@
-I’m a 911 operator and our district is woefully underfunded for the amount of strange calls we receive. I don’t enjoyed my job but opportunities are scarce and the call center was within walking distance of where I live. 
+[Previously](https://www.reddit.com/r/nosleep/s/kK02w3yDOO) 
 
-Calls range from normal things, like domestic disputes and burglary to the not so normal, like shaved animals and structures not being where they should. Or being where they shouldn’t. 
+My town is in shambles, and I feel some of the fault is my own. 
 
-To show you what I mean this is a call I had that I thought was going to be in the “normal” category. 
+For the past 40 hours I have been at my desk fielding calls from all over the area. People are hurting, dying. And there’s so little I can do. 
 
-11:52 PM, the phone rang. I dropped my book and put the receiver to my ear, “911 what is your emergency?” 
+When they can someone from Greenbrier PD will drop off food, water and fuel for the generator. The call center must stay open, it’s something that has been ingrained into us as far back as middle school. 
 
-A small voice replied in a quiet time, “I need a policeman to come”. Hearing a child’s voice on the line was an unwelcome surprise, “sure thing dear. Can you tell me what is going on?” 
+It's why the pay is so high, it’s why the building is built like a bunker. But generations of ease have led to things being neglected. Equipment that should have been updated was ignored, maintenance left undone. 
 
-I could hear unsteady breathing. As much as I wanted to I knew better than to ask again. Finally the little girl replied, “a bad man is in my house”.
+I need a break, I get an hour of sleep here and there but the phones are always busy. There’s been a call for volunteers but no takers yet. 
 
-My heart dropped, I had police ready to roll within minutes. “Ok, can you tell me where you are and if you are safe?” 
+By now everyone has heard that I’m alone here, that everyone else that worked here is missing. 
 
-I waited for her reply. She spoke in a quieter voice, “I’m at my house. I am hiding in my closet under my clothes. I think he hurt my mommy”. 
+I heard the mayor made a call to our governor, but as in times before we were told to handle our own affairs. We really are on our own. 
 
-The matter of fact way she spoke was heart breaking. I got an address from her and was told police would arrive in five minutes. 
+I haven’t updated the board, I haven’t filled out reports. I don’t know how this will affect things in the future but I simply don’t have the time. 
 
-“The police are on there way, they will be there soon. Just stay quiet and stay on the phone ok?” 
+All missing persons calls are being forwarded to the church turned shelter on Hugh Everett Avenue. That way I can focus on the people who need immediate help. 
 
-We have a police radio set up in the call center. I turned it on and listened. OFFICER:1 “dispatch we have arrived, the building looks run down and vacant. Approaching the front, front door is unlocked”.
+In the last hour I talked a mother through putting a tourniquet on her child’s leg when a stray bullet came through their wall shattering the bone and severing an artery. A man who needed an ambulance after his dog, who had been laying there peacefully suddenly exploded taking the man’s arm with it. Then there was the case of someone claiming a raccoon had gotten into his gun cabinet and stolen a valuable M1 Garand. 
 
- OFFICER:2 “backdoor is also unlocked, moving in”. 
+That last one wasn’t worth the polices time, not with everything else going on. 
 
-I could hear the creak of a door opening through my headset. They were in the right place. My heart beat hard, I whispered into the mic. “They police are there, let them search the house”. 
+Jordan showed up, I couldn’t believe it. He walked in looking no different than normal. He went to his office, organized a few things then came back out. 
 
-The girl giggled, “I know”. I sat frozen, her reply was wrong. It made me feel queasy. 
+“Take a break Kylie, you’re tired and your work performance is reflecting it. I’ll man the phones for the next couple hours”. I just stared at him, the voice in my headset sounded muted. 
 
-I jumped as the police radio came to life OFFICER:1 “I’ve got a body here, it’s a real mess. Either an animal attack or a psycho with a bladed weapon. Continuing my search for the girl”. 
+With an annoyed sigh Jordan walked over and pulled my headset off of me and put it in himself. “This is Greenbrier 911, sorry for the inconvenience could you state the nature of your emergency?” 
 
-The girls voice humming a nursery rhyme floated through my headset, I couldn’t turn it off. I couldn’t hang up. One of the officers cussed loudly, “what the hell is that?!” There was a gun shot followed by screaming. So much screaming. 
+I wanted to hit him, I wanted to scream. I wanted answers, but I needed sleep. In my current state of mind I doubted I would even understand anything he had to say. 
 
-Ripping fabric, screams of pain and unidentifiable wet sounds flooded my ears. 
+I made my way to the lobby, to my surprise there was an air mattress with a blanket waiting for me. That’s not all, there was a table with food and drinks. Most disturbing was the stack of my own clothes folded on the floor. 
 
-As fast as it began it ended. All that remained was the humming, with tear filled eyes I looked over at my supervisor who had patched into my line. His face mirrored my own, shock and disgust. 
+It was almost enough to make me stomp back into the call room and demand an explanation. But that bed was too welcoming. 
 
-I nearly fell out of my chair when the girls voice spoke again, “thank you!” She giggled once more, heavy breathing was all I heard as I reached over and hit the disconnect button. 
+I don’t know what time it was when I went to sleep, and I don’t know how long I slept for. When I woke up I had to pee so bad I’m surprised I made it to the bathroom. After shedding five pounds of monster and coffee I felt a lot better. 
 
-My supervisor walked over to the map of our county, he took a red pin from the box and pressed it into the map. It joined a hundred other red pins, each marking an address that we wouldn’t send responders to. 
+Leaving the bathroom I saw Jordan was still manning the phone. I didn’t miss the stack of reports neatly organized next to him. 
 
-Regular calls were marked with green pins, yellow pins were for anomalous calls. And red as mentioned before was reserved for places that we would not return to. 
+He briefly glanced in my direction. “Don’t even start Kylie. We have a lot of catching up to do”. I slapped him hard enough to knock him out of his chair. He looked stunned for a moment. A little bit of fear cut through my anger as Jordan stood up, I was suddenly aware of just how isolated we were. He looked down at me, “I could fire you for that”. 
 
+I humphed in disbelief, “really? And who would take my place? It’s time to start talking Jordan, who’s blood is that? Where is everyone? And why were you in my house?”
 
-That last call I shared was a bit… heavy. Luckily we don’t get ones like that super often. Yes our map has a lot of red, but that’s decades of records. And yeah red calls have increased exponentially the last couple years. But things aren’t always so dark here at Greenbrier 911. 
+The phone rang, Jordan reached for it but I hit the cancel button. “Start talking or I’m out”. He was pissed, the slap had been a minor annoyance, but hanging up really set him off. 
 
-I was nearly at the end of my night shift when the phone lit up, I put on my headset and hit the button. “Greenbrier 911 how can I assist you?” 
+“Kylie you are so inconceivably stupid sometimes, the call center has to stay open. And that’s means answering calls!” Jordan pushed me back before hitting the redial button. 
 
-The voice on the other end belonged to a woman, likely middle aged, and very annoyed. “I need an officer here with a gun”. 
+I let him field the call, someone likely needed help after all. But as soon as he was done I was going to rip into him. 
 
-“Ma’am are you in danger? Can you give me a location?” The caller sighed obnoxiously, “would I be calling if I didn’t need you? Stop wasting time and send an officer!” 
+The second I saw the green light go out I dropped my ultimatum on him. “Tell me what is going on or I’m leaving, you’ll have to handle everything yourself. Sooner or later you’ll pass out and the phones will go unanswered”. 
 
-Her voice got shrill enough at the end to make me wince. My supervisor noticed and gave me the, “all good?” signal. I gave him two thumbs up. 
+Jordan watched me with cold eyes, “as for the people who will die, you are ok with that? Because that is what leaving would lead to”. 
 
-“Of course ma’am, could you give me an address or crossroad?” She growled into the phone, “you waste my taxes on stupid stuff but you can’t track my call? Fine, corner of Grover and Third”. 
+He had me and he knew it, I tried a different approach. “Jordan will you please just tell me what you know? My life has gone to hell the last month and I would appreciate some answers”. 
 
-I thanked her and asked for any details, she replied back loudly. “There is a moose in my bathtub! I go to take my morning shower and there is a freaking moose standing in my tub!” 
+We sat in silence for an uncomfortable amount of time. “I don’t have all the answers. Or even a lot of answers, the things you’ve dealt with aren’t hell on earth. That would be the thing you let out of that room. We have to take the calls, I don’t know why but I know things get a lot worse if we don’t answer the phones”. Jordan stood and walked to his desk, he opened a drawer and pulled out a paper. 
 
-I wasn’t sure what to say, I had expected a noise complaint or a report of a suspicious person not a wild animal. 
+It was a check list, no more like a list of rules. 
 
-I typed the info into the computer and sent it to the police dispatch, not a minute later my personal phone lit up with a text. “yo Kylie you mean to say moose?” Andrew was dispatching tonight. I confirmed that I did indeed mean a moose. “that’s whack, I’ll let the officers know”.
+1.	The station must be manned at all times, if for any reason the station is left absent immediately take shelter until the situation is remedied. 
+2.	All incomplete calls must be redialed as soon as possible. 
+3.	The power must remain on at the station, take any action necessary to achieve this. 
+4.	Do not enter ________ unless required. 
+5.	This station is the fourth and final barrier, as such it shall receive the utmost attention at all times. 
+I pointed to the fourth rule, “why is that blacked out? Where can’t we enter? And what does five mean? Seriously this just adds more questions”. 
 
-Twenty minutes later I was listening to the entire fiasco on the police radio. 
+Jordan took the page and walked back to his desk where he locked it away. “I don’t know Kylie, maybe it’s the basement? Maybe it’s somewhere entirely different. As to rule five, I have a hunch as to what two of the other barriers might be”. 
 
-Animal control managed to tranquilize the animal only to find out it didn’t fit through the door. So they ended up removing an exterior wall. 
+“Wait… this place has a basement??” Jordan nodded, “yeah, there’s an access outside. It’s locked up tight though, looks like it’s been that way for a long time”. 
 
-Using a reach forklift they lifted the poor animal out of the bathtub. But in the process it woke up and tore free from its bindings. The moose fell to the ground but appeared unharmed as it ran into the woods. 
+I was glad that was the case, I wasn’t ready to face anymore basements. Not yet at least. 
 
-As to how it got in there, your guess is as good as mine. 
+“Ok, what are the other two barriers? And what are they barriers against?” 
 
+“Really? Do I need to spoon feed you everything? What two places have the most red pins around them?” I glanced at the board but I really didn’t need to, I already knew. There were two obvious clusters, one in the woods at the top of a hill and the other just outside of town. 
 
-Night shift is a different game altogether. It’s like people shut off their brains once the sun goes down. 
+“And the third?” Jordan looked at the map, “I don’t know, but if those two clusters are two of them. And we’re the fourth I would assume the third would be where there is no cluster at all”. 
 
-It’s hard to find people willing to pull grave yard, partially because of craziness but mostly because of Jordan. 
+I followed his gaze, Darkwood Park. 
 
-Jordan isn’t a local most of us working the call center. He used to be a big shot editor for some East Coast newspaper before getting fired and moving to little ole Greenbrier. 
+“The government building?” The section of Darkwood that was fenced off didn’t have a single pin, causing it to stand out from the rest of the area. 
 
-Rumors flowed through the office as to why he got fired, none of them very flattering. But Jordan brought that upon himself. He was an ass, show up five minutes late? Expect to be written up. Missed a detail on a call? Write up. Someone calls back to complain about you? You guessed it, a write up. 
+Just then the phone rang, Jordan held out the headset. “Your turn”. 
 
-I’m a pretty quiet person that tends to stick to doing my job while on duty. I think that’s the main reason Jordan doesn’t bother me, I would still prefer day shift but since I get an extra dollar an hour working nights and can get along with the night shift supervisor I often find myself taking more night shifts than most. 
+I took it, “don’t think I’m done here, I’ll have more questions in a minute”. 
 
-I received a call on one of my night shifts that still bothers me today. 
+As I sat to handle the call Jordan walked into the lobby. 
 
-It had been a peaceful night. We had a single call earlier about a raccoon stealing garbage cans and hiding them in the woods. Animal patrol had their hands full dealing with the 37 pound animal but no one was harmed and the trash cans were returned to their owners. 
+“Greenbrier 911 what is your emergency?” 
 
-5:02 AM the phone rang, “Greenbrier 911 what’s your emergency?” A male voice answered, his tone already frustrated. “Hi, this is going to sound dumb but I’m stuck in my house”. 
+“There’s a crucifix in my thigh!” Yelled a male voice with a bit of an accent. “Ok sir, let’s get a few details and get some help on the way. Did someone do this to you or was it self-inflicted?” 
 
-“Alright sir, who am I speaking with and are you in immediate danger?” The man replied, “James, James Oswald. No I don’t think so, it's just that I can’t get out. Look I just need someone to come open the door ok?” 
+“Ah hell you think I’d do this myself? Naw lady, I just woke up with my leg a burning and BAM! By golly there it was, a cross under my skin”. 
 
-“James are you saying your door won’t open? Have you tried your backdoor? Or a window?” James voice took on a bit of annoyance, “do you think I haven’t already tried that? I’ve been stuck in here for awhile and have tried everything short of breaking down a wall ok? I need someone to come here and possibly break the door down”. 
+“That’s definitely a situation where we can help, what is your location and name?” 
 
-“Ok James, I’ll have the fire department out there as soon as they can. What is your address?” He seemed appeased, I got his address and forwarded it to the Greenbrier FD dispatch. 
+“Al Smith, my friends call me Big Al. I’m in my house down by Radio Lane, you know, the road that goes to the radio station”. 
 
-I talked with James while he waited for help to arrive. He explained that he had tried kicking the door down but couldn’t do it. He even tried the windows but they were security glass and he couldn’t break them either. I found that a little odd but didn’t comment on it. 
+I punched in his info and sent it to Greenbrier FD, “I have help on route, could you help me understand how this might have happened?” 
 
-Thirty minutes later I got a message from the FD that they were on site. 
+“Listen little lady, I live two miles from the radio station on subsidized land. Need I say more?” He really didn’t but I wanted to keep him on the line until help arrived or another call came in. 
 
-I heard their voices come on over the radio. “Greenbrier fire department is anybody home?” There was no reply. They called out a few more times “Greenbrier fire department can you hear us? Are you in need of assistance, hello?”
+“I understand how that could…” I was interrupted by the callers pained yelp, “oh sweet baby ray! It’s a growing!” His breathing grew stressed, “where them at lady? Where them at? Ahhh owie it’s hurting!”
 
-James was quiet, I called out to him through my headset. “James, the fire department is at the front door can you hear them?” I could hear James’ breathing but it was irregular at this point. Feeling uneasy I radioed the first responders. “Hey guys be aware something feels off about this”. 
+I bumped his call up an urgency level, “help is on the way, can you describe the situation so I can have them briefed when they arrive?” 
 
+The caller groaned in pain, “it… It’s… By golly!” 
 
-“Yeah I don't know what to tell you, there ain't a whole lot going on here. The house is abandoned. Nobody's home doesn't look like anybody has been for years. Front door was even unlocked”. I could hear their footsteps echoing as he talked to me through the radio. “We're going to do a quick check of the entire area but we've got busted open windows, unlock doors and enough dust to grow corn in”. 
+There was a thunk, like the phone had dropped to the ground followed by whimpering. 
 
-Feeling a little bit annoyed I turned off the radio and focused on the headset, “okay James is this some sort of prank?” I heard what sounded like a sniffle. And James's voice returned, “please, please don't hang up. Whatever you do just please don't hang up”.
+“Sir? Sir are you there?” A single gasp was my only reply. Still, I remained on the line until the paramedics arrived. 
 
-The desperation in his voice was real. “I don't know if I'll be able to get through again, it's been so long. So damn long, I've tried calling every day, I tried calling but no one ever answers, if they do answer they can't hear me and they hang up again. Please just just hear me out okay?”
+I heard them pounding on the door and announcing their presence. When there was no reply I confirmed they were in the right place, they kicked down the thin door. 
 
-“I didn't abandon my family, I didn't run away, God they must be thinking the worst of me by now. I was just doing my job okay? I was checking out the building. I'm a home inspector it's what I do I inspect places. I came in and no one was here so I did my job. But I couldn't get out. I miss them, I don't know why I can't get out”. His speech was fast and panicked.
+“What the fuck?” Exclaimed one of the two medics. The other one shushed him, “hey get a move on, he’s still alive”. I had to piece together what was happening by the sounds. It wasn’t until I heard a chainsaw fire up that I really began to grow concerned. 
 
-“Hold on James, are you claiming to be in the house?” “Yes!” He shouted. “I'm in the house okay? I've been here for who knows how long. There's a phone on the wall I try everyday to call out, to get somebody to answer, to get somebody to show up and get me out of this hell hole! So I am begging you, please do not hang up! I haven't heard a voice in so long! I need to know... No, I need my family to know, I need them to know I didn't abandon them. My little boy… My little boy needs his daddy!” James was becoming frantic. 
+I was able to grab a few details from the fire departments dispatch. The medics had arrived to find a 56 year old man unconscious in his dilapidated double wide. His left leg had been entirely replaced with the main beam of an ornate wooden cross. 
 
-“My name is James Oswald, I'm a home inspector”. I tried to cut in, “James I need you to…” 
+The cross beam had pressed its way into his right hip socket shattering the bone. The other half of the cross beam had burst from his left hip. The top of the cross was buried deep in his bowels. 
 
-“PLEASE! FOR THE LOVE OF ALL THAT IS HOLY! SAVE ME!” His voice roared through my headset, I winced at the sudden increase in volume. He broke into sobs punctuated by a few incoherent words. The voice of James Oswald began to fade into static. He made a few more pleas before the line went dead. 
+Call it a miracle or living hell but big Al was still alive. He would need both his legs amputated but he would pull through. 
 
-I sat there trying to comprehend what I had just heard. Was it an elaborate prank or something so much worse? 
+That call sucked. So I was almost glad when the next call was some Karen angry about the music next door. “Greenbrier 911 what is your…” 
 
-Jordan leaned back in his chair so as to look out of his office at me. “Kylie, don’t forget to pin the call”. He went back to what ever it was he was doing as if the call we had just received was some mundane stuck cat in a tree request. 
+“Listen, I’m only going to say this once. The kids next door have been playing the same song on full volume for an hour! Please have someone make them stop”. 
 
-Numbly I did as he said, I pressed a yellow pin into the address the call had claimed to come from. 
+Personally I hate it when people cut me off, if you’re dying I’ll be pretty lenient on your manners. But when it’s just something like an annoying neighbor you really ought to be more polite. 
 
-When I got home that night I couldn’t stop thinking about James, I had to know if there was any truth to his story. 
+“Ma’am this is 911 please refrain from using this number for petty grievances. The police station has a non emergency number for such things”. 
 
-I Googled his name and a plethora of results came up. Missing persons reports, news recordings of his distraught wife begging people to come forward with any information. 
+As expected she did not like hearing that. “Excuse me but I already called them! And they did nothing!” I couldn’t help but smile, “perhaps that’s because it’s not an issue?” Now normally I’m not like that, but the stress of everything made me not really care in the moment. 
 
-I couldn’t bring myself to watch the clip of James’ five year old son talking about his missing father. Just the thumbnail brought tears to my eyes. The sadness weighing that child down at such a young age. 
+The woman huffed in offense, “does an hour of hearing nothing but this not deserve at least a knock on the door?” I heard what sounded like a window opening and then a rhythmic beat. And the faint hint of lyrics, they were repeating over and over. “Kylie’s gonna die, Kylie’s gonna die…” 
 
-I considered contacting the family, I don’t know what I would have told them but I felt like they needed closure. They deserved something. But the most recent date was 1986, James’ son would be older than me by now. 
+Maybe a drive by was warranted after all. 
 
-No It wouldn’t be helpful, I closed my laptop. I wouldn’t open up old wounds. 
+There was a break between calls so I went to the lobby to find Jordan. Annoyingly he was no where to be found. I called out a couple times, checked the outdoor security cameras, nothing. He had left the building. 
 
-I’m tired I think I’m going to call it a night. 
+After a few choice words I had to rush back inside as the phone had started ringing. 
 
-[Next](https://www.reddit.com/r/nosleep/s/UIsdq0v3cU)
+I jumped into my chair and hit the button, “Greenbrier 911 what’s your emergency?” 
+
+‘You’ll have to excuse my ignorance but I didn’t know who else to call. You see I slipped and I believe I’m injured”. 
+
+“Ok ma’am, you called the right place. Could I get an address or location?” 
+
+The lady replied, “oh of course, silly me. It’s 666 Exorcist Circle”. 
+
+I sat there for a moment rubbing my temples, I really didn’t need this right now. “Ma’am there is no Exorcist Circle in Greenbrier”. 
+
+The lady’s tone took on a somber note, “I know dear, but that’s what the voice made me say”. The line went dead. 
+
+As much as I didn’t want to I called back only to reach a disconnected line. I noted it on my report. A shiver ran through my body, this place was feeling a lot less safe the longer I stayed. 
+
+Jordan returned about the time I was ready to pass out. He threw a duffel bag at me then sat in the chair next to mine and put on a headset. “Take your break Kylie”. 
+
+Out of curiosity I looked in the bag, it had more changes of clothes as well as toiletries from my house. I blushed first with embarrassment but then with anger. “Jordan did you go snooping around my house?” 
+
+He didn't even bother looking up from my report that he was needlessly going over. “nope”. 
+
+I shoved the bag into his face, “than how did you get this?” 
+
+Jordan brushed the bag aside, “Kylie you need a nap, you’re being emotional. Your house is a crime scene, an officer handed that to me outside ten minutes ago”. 
+
+I wasn’t sure if I believed him or not. Either way I wouldn’t be apologizing. 
+
+I’ll admit it did feel good to change into fresh clothes again. There was a home cooked meal waiting in the lobby as well. As much as I wanted to return home or to challenge Jordan I was just too tired. I crashed onto the cot and fell instantly asleep. 
+
+When I woke up I knew something was wrong, the lobby was quiet and dark. The generator wasn’t running. 
+
+I jumped from my makeshift bed and threw a hoodie on. I ran outside wincing at the feeling of rocks biting into my bare feet. 
+
+The generator was located at the back of the building under a little roof. It was an ancient but reliable relic dating back to the second world war. 
+
+We had never had a problem with it before. I came around the corner and saw someone standing in front of it. I couldn’t see who they were but judging by the height I assumed it was Jordan. 
+
+“Are we out of fuel?” The figure shook its head and turned the start switch, the old beast fired up and the lights started to warm revealing the man standing in front of me to be Andy. 
+
+“Andy! Where have you been? I was worried, things have been so crazy lately and Jordan is being weirder then normal and… Andy?” 
+
+His face was expressionless. He was just staring. I shivered involuntarily, “Andy are you ok?” I went to take a step closer but hesitated. Something was off, Andy raised an arm in my direction, he then slowly rotated it until his palm was facing up. 
+
+Curling his fingers Andy motioned for me to come closer. I really didn’t want to, Andy was someone I almost considered a friend. He was clearly in distress, but I didn’t budge. 
+
+It was then that he took a stiff step forward. I was frozen in place, “Andy please, what’s going on?” As he drew closer I felt my eyes start to water, there was no humanity in his eyes. Just an emptiness. 
+
+He was nearly within reach, I couldn’t bring myself to move. Someone walked up beside me, Jordan. He leveled a shotgun and without hesitation pulled the trigger. 
+
+I screamed as my face was coated in Andy. His headless corpse wobbled for a moment before collapsing. I nearly fell as well but Jordan pulled me backwards. 
+
+“Kylie you’re supposed to be manning the lines”. Something inside me snapped, I drove my knee into Jordan’s crotch as hard as I could. He grunted but didn’t let go of the back of my shirt. 
+
+I punched and kicked at him in a futile effort. With a single arm around my chest Jordan picked me up and started walking into the woods. 
+
+My anger turned to fear, I had done it. I had finally pissed him off and now he was going to kill me. 
+
+I screamed for help but Jordan took no notice. It wasn’t long before he threw me onto the ground. I lay there on the wet leaves looking into a trench. 
+
+At the bottom lay at least a dozen bodies. I struggled not to scream again. I tried to scramble back but Jordan pushed me back to the edge. 
+
+“Look at them Kylie”. I didn’t want to, the smell of blood and shit was enough. Jordan insisted, “look at them, tell me what you see”. His voice terrifyingly calm. 
+
+So I did, I looked at what I had thought was a pile of people. But it was a pile of persons. They were all Andy. Every single body was dressed the same and looked the same, down to the shotgun wounds in various places. 
+
+“You need to start trusting me Kylie, had that thing gotten a hold of you it would have killed you just like the first one nearly did to me”. 
+
+Grabbing my arm he pulled me to my feet, “now we need to get back to the call center”. 
+
+[Next](https://www.reddit.com/r/nosleep/s/iNF8N9tbLT)
