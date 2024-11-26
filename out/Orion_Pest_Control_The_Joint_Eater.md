@@ -491,3 +491,4 @@ I also can’t help but think of what Deirdre said in her entry: *Old things lik
 
 In summary, nothing is certain at the moment, and it’s driving me up the wall. Naturally, I plan to tell my coworkers about this tomorrow. All I know is that I can always trust Iolo to be [untrustworthy](https://www.reddit.com/r/atypicalpests/s/zAphx9pb3O). 
 
+Update: Our company truck took a [hit. ](https://www.reddit.com/r/nosleep/s/1hZRSbptsG)
