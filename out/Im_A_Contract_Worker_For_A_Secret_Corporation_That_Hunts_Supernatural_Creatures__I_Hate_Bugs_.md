@@ -2,6 +2,8 @@
 
 [Previous: ](https://www.reddit.com/r/nosleep/comments/1guap7m/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next ](https://www.reddit.com/r/nosleep/comments/1gwn7zt/im_a_contract_worker_for_a_secret_corporation/)
+
 I was tempted by an email about a job that looked like it wouldn’t kill me. I just needed to investigate a motel.  
 
 All sorts of supernatural motels showed up on empty roads of almost abandoned towns. There must be a few thousand different types of these buildings. Some were creatures disguised as somewhere to rest. I only knew details about the basic ones. A Pop-up Motel for the most part isn’t overly harmful meanwhile a Haunted Hotel can be very dangerous. A mixture of safe and life-threatening is a Bugged Motel. I just needed to gather details about an out-of-place building in the middle of nowhere. What could go wrong?  

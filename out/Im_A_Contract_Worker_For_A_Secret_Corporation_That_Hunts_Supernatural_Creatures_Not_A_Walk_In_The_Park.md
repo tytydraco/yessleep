@@ -2,6 +2,8 @@
 
 [Previous](https://www.reddit.com/r/nosleep/comments/1gps7bi/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1gvw4nm/im_a_contract_worker_for_a_secret_corporation/)
+
 Bit by bit my living situation had improved. I could afford heat, at least two meals a day, and warm socks. Those comforts came at a cost. A bullet wound in my shoulder was still healing up. The company I worked for offered magic-laced medicine that could heal wounds faster, but they cost more than I could afford. Better to let things heal on their own. A deep ache from my legs bothered me. It got to the point that I knew I needed to get a checkup before working again. I hated needing to see the doctor for old wounds simply because medical costs aren’t cheap. After this check-up, I might not be able to afford heat for the rest of the colder seasons this year.  
 
 I wasn’t certain what sort of creature Dr. Fillow was. He looked human enough. I called to see if he had any open times for an appointment, but he told me he could swing by in a few hours. He was very busy treating supernatural creatures and sometimes humans like myself. He was always on the move, so it was easier to see him outside his clinic.  
@@ -144,8 +146,7 @@ April gave a tooth-filled smile and I wanted to die. She should have just eaten 
 
 Yeah, I wanted to die. Evie stared at me as if I was on the same mental level as April. She carefully took hold of the other girl who now was wrapped in a blanket one of the cleanup crews brought.  
 
-“Just friends?” She asked very weary of my motives.  
-“Just friends. She’s like, a kid.” I defended myself.  
+“Just friends?” She asked very weary of my motives.   “Just friends. She’s like, a kid.” I defended myself.  
 
 “Oh, so we’re grooming supernatural girls now.” Evie replied hugged April tighter.  
 

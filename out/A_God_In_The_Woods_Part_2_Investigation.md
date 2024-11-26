@@ -67,3 +67,5 @@ Update:
  
 
 So laying the story to rest didn’t last long. The other kid that went looking in the woods got back to me this evening.
+
+[\[Finale\]](https://www.reddit.com/r/nosleep/comments/1gzy5up/a_god_in_the_woods_woodpecker_finale/) 
