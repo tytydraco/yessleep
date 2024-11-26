@@ -372,4 +372,4 @@ I opened the door for him, bringing Beez in with me. If I decided to get rid of 
 
 “Say one more sappy thing and I’ll put you on an express flight to the moon on Fist Airlines.”
 
-I couldn’t say fully how I felt about Dawson yet, but the unnamed evil lurking around had made me realize something. I much preferred him alive rather than dead. 
+I couldn’t say fully how I felt about Dawson yet, but the unnamed evil lurking around had made me realize something. I much preferred him alive rather than [dead.](https://www.reddit.com/r/nosleep/comments/1h0leke/somewhere_in_nowhere_the_rot/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
