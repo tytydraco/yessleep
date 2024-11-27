@@ -50,7 +50,7 @@ Going out the door flashlight in the pocket of my warmest coat, eying down the t
 
  
 
-Okay I’m at the treeline. Honestly I’m getting goosebumps. Tumbling with the flashlight I think about how childhood me would feel seeing me now. I think the version of me that heard this story from the older kids, would feel pride. Knowing they’d grown up to be brave enough to do this.
+Okay I’m at the treeline. Honestly I’m getting goosebumps. Struggling nervously with the flashlight I think about how childhood me would feel seeing me now. I think the version of me that heard this story from the older kids, would feel pride. Knowing they’d grown up to be brave enough to do this.
 
 I am going to try and get lost in there as fast as possible so the way out, after I turn on my gps, will be as short as possible. I’m doing this properly but not religiously. I don’t think a god cares how you get to a spot you haven’t been before. That must be true.
 
@@ -60,7 +60,7 @@ Okay I can’t see the road anymore. No god in sight yet. I’m going off the pa
 
  
 
-It turns out to be a lot harder than expected to go of the path this early on, especially in the dark winter months. The forest floor is covered in small bushes and snags, this near to the entrance. And I keep getting my feet stuck to them when I’m walking. I’m pointing the flashlight ahead of me so when I shift my weight and drag my back foot forward, the shrubbery acts like tripwire catching the toe box of my boots. I’ll have to go back to the trail and try to go further into the forest. So I can find an area where I can get lost a bit more easily.
+It turns out to be a lot harder than expected to go of the path this early on, especially in the dark winter months. This near to the entrance the forest floor is covered in small bushes and snags. And I keep getting my feet stuck to them when I’m walking. I’m pointing the flashlight ahead of me so when I shift my weight and drag my back foot forward, the shrubbery acts like tripwire catching the toe box of my boots. I’ll have to go back to the trail and try to go further into the forest. So I can find an area where I can get lost a bit more easily.
 
  
 
@@ -72,11 +72,11 @@ A couple minutes past in search, honestly I’ve just started to actually want t
 
  
 
-Time passes way faster when I’m actually searching. Checked the time, it’s been at least 15 minutes. Just rushing forward heedlessly into untreaded territory, trying to find where this thing hides in here. I have become convinced that something weird is up. Being lost for this long, walking at the pace I am, this close to the treeline. I should have found a path by now. Or have gotten out of the forest.
+Time passes way faster when I’m actually searching. Checked the time, it’s been at least 15 minutes. Rushing forward heedlessly into untreaded territory, just trying to find where this thing hides in here. I have become convinced that something weird is up. Being lost for this long, walking at the pace I am, this close to the treeline. I should have found a path by now. Or have gotten out of the forest.
 
  
 
-I’ve spotted something that’s noteworthy. There’s an odd tree. It’s old. Super old. Im no expert in trees but the way the limbs of it spiral around. It almost looks they haven’t been bent by following the path of the sun in the sky. But rather the passing of the seasons. Like this tree is reacting to the environment around it, on a different timescale than everything around it. That tree is it. I am here, I’m sure. Absolutely sure. If someone told me, this isn’t it; I would be able to tell them for a fact that they were wrong. Nothing else around me looks different, everything here is different. In the same way falling in love changes everything around you. In that exact same way, I know this is the one.
+I’ve spotted something that’s noteworthy. There’s an odd tree. It’s old. Super old. Im no expert in trees but the way the limbs of it spiral around. It almost looks they haven’t been bent by following the path of the sun in the sky. But rather the passing of the seasons. Like this tree is reacting to the environment around it, on a different timescale than everything else. That tree is it. I am here, I’m sure. Absolutely sure. If someone told me, this isn’t it; I would be able to tell them for a fact that they are wrong. Nothing else around me looks different, everything here is different. In the same way falling in love changes everything around you. In that exact same way, I know this is the one.
 
  
 
@@ -84,19 +84,19 @@ Walking up to the tree I feel like the world becomes slowly more distant. I feel
 
  
 
-And then, slowly it starts speaking to me. Or rather it communicates at me. Forcefully. God’s voice is something you can't ignore. I’m not sure what are my thoughts and what are it’s words. It’s Pictures, my pictures. It’s Ideas, my ideas. It’s concepts and ideals, my concepts and ideals. It’s Feelings, our feelings. Our Pictures. Our ideas. Concepts. Ideals. I don’t believe in spirits. I believe in souls. Souls are made by god. I believe in god. Do I believe this is god?  This could be a god. I believe this is a god. This is god. 
+And then, slowly it starts speaking to me. Or rather it communicates at me. Forcefully. God’s voice is something you can't ignore. I’m not sure what are my thoughts and what are it’s words. It’s Pictures, my pictures. It’s Ideas, my ideas. It’s concepts and ideals, my concepts and ideals. It’s Feelings, our feelings. Our Pictures. Our ideas. Concepts. Ideals. I don’t believe in spirits. I believe in souls. Souls are made by god. I believe in god. Do I believe this is god?  This could be a god. These are godly powers. I believe this is a God. There is only one god. This is God. 
 
  
 
-The presence of god is intrusively overpowering. The presence of god is unholy. I know why every religion speaks of gods love. Love is both utterly impure and pure at once, this is the same. Repulsive, yet captivating. No not repulsive. Exiting. Yes, it’s excitement, I mistake for repulsion. That’s god’s honest truth.
+The presence of god is intrusively overpowering. The presence of god is unholy. I know why every religion speaks of gods love. Love is both utterly impure and pure at once, this is the same. Repulsive, yet captivating. No not repulsive. Exiting. Yes, it’s excitement, I mistake for repulsion. That’s God’s honest truth.
 
  
 
-God’s showing me the future. God revealing his plan, beauty manifest. This vision must come true. But it is fragile. It requires me. I will serve this greater purpose. I will honor god’s command.
+God’s showing me the future. God revealing his plan, beauty manifest. This vision must come true. But it is fragile. It requires me. I will serve this greater purpose. I will honor God’s command.
 
  
 
-I can see so clearly what I must do to save gods vision, to save my son. I believe and I repent. God’s voice booms in my head. Beckoning me to do what’s right. I know it must be done, God has shown me so. I fill with purpose and love. I know how to fulfil my repentance. Eternal bliss, my son’s eternal happiness. It will follow. As surely as dawn after night. 
+I can see so clearly what I must do to save God's vision, to save my son. I believe and I repent. God’s voice booms in my head. Beckoning me to do what’s right. I know it must be done, God has shown me so. I fill with purpose and love. I know how to fulfil my repentance. Eternal bliss, my son’s eternal happiness. It will follow. As surely as dawn after night.
 
 I step right up next to the patch of peeled bark. I can see the sturdy hard wood transporting the nutrients of the earth, channeling them into the air for all of us to inhale. I feel fearless.
 
