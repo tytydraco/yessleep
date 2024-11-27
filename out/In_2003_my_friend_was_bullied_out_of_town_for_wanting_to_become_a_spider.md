@@ -80,9 +80,11 @@ Alin’s words ran through my head as I dropped into the near-vertical entrance.
 
 Propped against the side of the tunnel in a sitting position was a skeleton. It wore faded, denim jeans and a rucked, stripy top sinking into the gaps between rib bones. The skull’s jaw hung loosely, as if the woman had died screaming. I only really knew for sure that it was a woman because a wooden plank shot from the dirt beside her corpse; words had been etched into the grooves of the makeshift gravestone.
 
-*Dr Beatrice Long*
+*Dr Victoria Quincy*
 
 *1975-2020*
+
+*I was your muse, and you were mine.*
 
 *Thank you for making me, but nobody will unmake me.*
 
