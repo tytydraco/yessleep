@@ -28,7 +28,7 @@ I laughed, shaking my head.
 
 “It’s a scam, Father. They’re probably just trying to get some money out of you.”
 
-He held up a receipt, trembling.
+He held up a wire transfer receipt, trembling.
 
 “I’ve already sent it. All of it. The parish funds. Every last cent.”
 
@@ -36,7 +36,7 @@ He held up a receipt, trembling.
 
 He nodded.
 
-"It had to be done, my child," he continued. "Give me a week of your time. That's all I ask."
+"It had to be done, my child," he explained. "Give me a week of your time. That's all I ask."
 
 I stayed because I couldn’t abandon him.
 
@@ -72,7 +72,7 @@ I wanted to argue, to pull him back from the brink, but a shiver ran through me.
 
 It felt too precise, too calculated. Something deeper was happening, but I wasn’t sure if it was divine or something far darker.
 
-It was a week later, in the dead of night, that the real nightmare began.
+A few weeks later, in the dead of night, the real nightmare began.
 
 I walked into the basement and found Father Nicholas sitting in front of the server, bathed in a pale green glow. His face was gaunt, his eyes bloodshot. He didn’t even look up when I entered.
 

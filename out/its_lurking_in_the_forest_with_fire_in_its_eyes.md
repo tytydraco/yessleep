@@ -133,7 +133,7 @@ I shook my head slowly.
 I felt my stomach twist slightly.
 “I was…is there a problem.”
 
-Lusky slowly adjusted his cap.
+Lesky slowly adjusted his cap.
 “listen kid, people who go looking for old ghost stories usually find nothing but trouble. So do me and my guys here a favor and quit while you're ahead.” 
 
 A new twinge of morbid curiosity tingled up my spine.
