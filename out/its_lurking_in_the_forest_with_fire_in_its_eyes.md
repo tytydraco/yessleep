@@ -155,4 +155,4 @@ A thin trail of smoke left his mouth as he flicked his barely started Cigarette 
 “ Am I done here?” I asked one of the other officers, He nodded to me.
 “if you are feeling well enough to drive, you can head home now, we may call you in for another statement once the coronary report comes in.”
 
-I nodded, thanked him, and turned around to leave. as I slowly made my way back towards the edge of the clearing, I caught something just off the other end. Two gleaming lights, like burning coals. I blinked my eyes and shook my head. They were going just as soon as they appeared. I shuddered, thinking my mind was playing tricks on me as I made my way back to my car. I couldn't help but shake the feeling I was being watched.
+I nodded, thanked him, and turned around to leave. as I slowly made my way back towards the edge of the clearing, I caught something just off the other end. Two gleaming lights, like burning coals. I blinked my eyes and shook my head. They were gone just as soon as they appeared. I shuddered, thinking my mind was playing tricks on me as I made my way back to my car. I couldn't help but shake the feeling I was being watched.
