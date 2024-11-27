@@ -129,8 +129,6 @@ I froze.
 
 No one was using the vending machine. I was sure of it.
 
-No one was using the vending machine. I was sure of it.
-
 The hum stopped, replaced by the dull thud of something landing in the collection bay. My chest tightened. Every instinct screamed at me to walk away, to pretend I hadn’t heard a thing.
 
 But curiosity—or maybe something darker—drew me closer.
