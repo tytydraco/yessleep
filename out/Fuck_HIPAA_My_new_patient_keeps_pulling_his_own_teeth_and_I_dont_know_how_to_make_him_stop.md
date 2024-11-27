@@ -6,7 +6,7 @@ Christophe frequently complains that “I'm the only one who does any fucking wo
 
 
 
-Despite his long relationship with the organization, Christophe’s personal history prior to Agency involvement is unknown. Christophe has been markedly unhelpful in this regard. He deliberately lies about his past on a frequent basis, further complicating a full understanding of his psychological profile. 
+Despite his long relationship with the organization, Christophe’s personal history prior to Agency involvement is unknown. Christophe has been markedly unhelpful in this regard. He deliberately lies about his past on a frequent basis, further complicating a full understanding of his psychological profile. 
 
 
 
@@ -14,15 +14,15 @@ This is unfortunate, because from a clinical standpoint Christophe is a complica
 
 
 
-Christophe’s initial diagnosis was of sadistic psychopathy. Due to multiple factors —including active participation in treatment plans, extensive cooperation with agency directives, the unprompted undertaking of relationship-building with staff and other inmates, as well as an informed reevaluation and reexamination of the psychological impact of the first half of his incarceration at AHH-NASCU — Christophe’s diagnoses have been revised. These diagnoses now include behavior addiction disorder, substance abuse disorder, complex post-traumatic stress disorder, histrionic personality disorder, borderline personality disorder, rejection sensitive dysphoria, and schizotypal personality disorder. 
+Christophe’s initial diagnosis was of sadistic psychopathy. Due to multiple factors —including active participation in treatment plans, extensive cooperation with agency directives, the unprompted undertaking of relationship-building with staff and other inmates, as well as an informed reevaluation and reexamination of the psychological impact of the first half of his incarceration at AHH-NASCU — Christophe’s diagnoses have been revised. These diagnoses now include behavior addiction disorder, substance abuse disorder, complex post-traumatic stress disorder, histrionic personality disorder, borderline personality disorder, rejection sensitive dysphoria, and schizotypal personality disorder. 
 
 
 
-Although Christophe continues to display sadistic behaviors, he has developed the ability to control them and now expresses them under sanctioned circumstances only. Due to his significant personal development and exceptional professional value, the Agency facilitates periodic expression of these behaviors as a reward for Christophe’s substantial ongoing contributions Ito the Agency. 
+Although Christophe continues to display sadistic behaviors, he has developed the ability to control them and now expresses them under sanctioned circumstances only. Due to his significant personal development and exceptional professional value, the Agency facilitates periodic expression of these behaviors as a reward for Christophe’s substantial ongoing contributions Ito the Agency. 
 
 
 
-It should be noted that Christophe has repeatedly requested that the Agency retract permission for expression of his sadistic behaviors. The Agency has attempted to accommodate this request on prior occasions. However, suppression of the behaviors uniformly results in undesirable outcomes. Christophe’s most recent requests to disallow expression of the behaviors have therefore been denied.  
+It should be noted that Christophe has repeatedly requested that the Agency retract permission for expression of his sadistic behaviors. The Agency has attempted to accommodate this request on prior occasions. However, suppression of the behaviors uniformly results in undesirable outcomes. Christophe’s most recent requests to disallow expression of the behaviors have therefore been denied.  
 
 
 
@@ -42,7 +42,7 @@ Another challenge faced by Christophe is his propensity for self-harm. He has be
 
 
 
-The most disturbing self-harming behavior is his habit of extracting his own teeth, an action he takes after every sanctioned expression of sadistic behavior. 
+The most disturbing self-harming behavior is his habit of extracting his own teeth, an action he takes after every sanctioned expression of sadistic behavior. 
 
 
 
@@ -54,7 +54,7 @@ Christophe’s teeth are linked to his notable longevity. He ages physically onl
 
 
 
-Christophe also suffers mild intermittent temporal lobe dementia that manifests approximately eight hours following teeth extraction. The symptoms no longer manifest once his teeth begin to regrow. 
+Christophe also suffers mild intermittent temporal lobe dementia that manifests approximately eight hours following teeth extraction. The symptoms no longer manifest once his teeth begin to regrow. 
 
 
 
@@ -86,15 +86,15 @@ Christophe has consistently raised objections to the T-Class field uniform, requ
 
 
 
-Please note that Christophe is not subject to standard disciplinary protocol. All complaints, objections, and concerns pertaining to Christophe and his conduct automatically bypass the standard chain of command and go directly to Agency administration. 
+Please note that Christophe is not subject to standard disciplinary protocol. All complaints, objections, and concerns pertaining to Christophe and his conduct automatically bypass the standard chain of command and go directly to Agency administration. 
 
 
 
-Despite experiencing multiple significant challenges, Christophe continues to demonstrate substantial ongoing personal, emotional, and psychological growth, as well as consistent success in the accomplishment of directives assigned to him. The Agency is deeply grateful to Christophe for his work. Without him, operations at the Agency of Helping Hands would collapse. 
+Despite experiencing multiple significant challenges, Christophe continues to demonstrate substantial ongoing personal, emotional, and psychological growth, as well as consistent success in the accomplishment of directives assigned to him. The Agency is deeply grateful to Christophe for his work. Without him, operations at the Agency of Helping Hands would collapse. 
 
 
 
-Christophe is objectively the best asset in the organization’s possession. It is therefore vital that AHH actively cultivates Christophe’s health, wellbeing, and above all his cooperation by any and all means necessary. 
+Christophe is objectively the best asset in the organization’s possession. It is therefore vital that AHH actively cultivates Christophe’s health, wellbeing, and above all his cooperation by any and all means necessary. 
 
 
 
@@ -104,7 +104,9 @@ Christophe is objectively the best asset in the organization’s possession. It 
 
 **Interview Subject: The Big Bad Wolf**
 
-**Classification String:  Cooperative / Destructible / Khthonic / Protean / Critical / Titan**
+**Classification String:  Cooperative / Destructible / Khthonic - Titan / Protean / Critical / Deinos** *
+
+*Classification String Currently Pending Correction and Clarification*
 
 **Interviewer: Rachele B.**
 
@@ -154,7 +156,7 @@ I have heard people say that the times were different back then. That everyone w
 
 
 
-And I was very much a child. 
+And I was very much a child. 
 
 
 
@@ -162,7 +164,7 @@ I remember I couldn’t feed myself. I remember how my fingers swelled and turne
 
 
 
-I remember going to an abbey for help. I remember it was not good to be in the abbey with the priest, but it was better than frostbite and crippled rabbits even skinnier than I. 
+I remember going to an abbey for help. I remember it was not good to be in the abbey with the priest, but it was better than frostbite and crippled rabbits even skinnier than I. 
 
 
 
@@ -178,11 +180,11 @@ Most of all, I remember that I liked to use my teeth.
 
 
 
-I don’t remember how it began. I’m glad. I don’t want to remember. I do remember finding girls and women no one cared about in places no one ever looked. 
+I don’t remember how it began. I’m glad. I don’t want to remember. I do remember finding girls and women no one cared about in places no one ever looked. 
 
 
 
-I was small because I’d had so little to eat for too long, but I was pretty. I got that from my mother. I was also strong. I did not get that from her, though.  
+I was small because I’d had so little to eat for too long, but I was pretty. I got that from my mother. I was also strong. I did not get that from her, though.  
 
 
 
@@ -198,13 +200,13 @@ Soon, people began to tell of a monstrous wolf with a taste for virgin’s blood
 
 
 
-The nuns knew and they hated me. They would not touch me except to beat me whenever one caught me with the priest. But the priest protected me as long as he could, not because he cared for me but because of guilt. He liked that I was pretty. He blamed himself for what I became. 
+The nuns knew and they hated me. They would not touch me except to beat me whenever one caught me with the priest. But the priest protected me as long as he could, not because he cared for me but because of guilt. He liked that I was pretty. He blamed himself for what I became. 
 
 
 
 I remember knowing he deserved to blame himself.
 
- 
+ 
 
 Priests had power then that priests today do not. He used that power to shield me, to make the nuns and the brothers  lie about my activities and whereabouts. It was easier than it should have been because I chose women who were lesser. Whores, servants, madwomen, orphans, even witches. The priest especially approved of my witch-hunting. Witches were a very grave matter in those days. He did not like my methods, but he was a man of God, and men of God do not suffer witches to live.
 
@@ -254,11 +256,11 @@ I ran.
 
 
 
-I ran for days, but no matter how far or long I ran they kept coming. 
+I ran for days, but no matter how far or long I ran they kept coming. 
 
 
 
-I was nearly caught on the fourth day. The man was small and weak, so he was easy to kill. But I could not kill him before he screamed, which drew the search party to me. I was exhausted, starving, terrified, less than any animal. 
+I was nearly caught on the fourth day. The man was small and weak, so he was easy to kill. But I could not kill him before he screamed, which drew the search party to me. I was exhausted, starving, terrified, less than any animal. 
 
 
 
@@ -270,7 +272,7 @@ I ran into the forest.
 
 
 
-Only I wasn’t an animal. Animals feed themselves, something I still could not do. I still could not find roots or kill rabbits. I did find water, but it made me sick. My fever ran so hot I burned my own hands when I touched my face, which was strange because I was so terribly cold. The colors in the world were too bright, and nothing held its shape. The trees stretched, rocks melted, and a deer spoke to me in the voice of my stepfather. It told me to hang myself. I thought people were behind me - the lord’s men, the nuns who beat me, the priest. 
+Only I wasn’t an animal. Animals feed themselves, something I still could not do. I still could not find roots or kill rabbits. I did find water, but it made me sick. My fever ran so hot I burned my own hands when I touched my face, which was strange because I was so terribly cold. The colors in the world were too bright, and nothing held its shape. The trees stretched, rocks melted, and a deer spoke to me in the voice of my stepfather. It told me to hang myself. I thought people were behind me - the lord’s men, the nuns who beat me, the priest. 
 
 
 
@@ -310,7 +312,7 @@ I tried to squirm away, but the speaker pinned me down. I hate being held down. 
 
 
 
-I think those were the only words that could have broken through my panic. 
+I think those were the only words that could have broken through my panic. 
 
 
 
@@ -330,7 +332,7 @@ The sight of the thing in the corner made me recoil.
 
 
 
-She was bony and ugly, with wide glassy eyes. She rocked back and forth and grabbed at the air, making that awful moan. I’d seen people like her in the church. The nuns took them in and cared for them, but the priest said they were abominations. Punishment from God himself for great sin. 
+She was bony and ugly, with wide glassy eyes. She rocked back and forth and grabbed at the air, making that awful moan. I’d seen people like her in the church. The nuns took them in and cared for them, but the priest said they were abominations. Punishment from God himself for great sin. 
 
 
 
@@ -342,7 +344,7 @@ The bony girl turned to me. She didn’t seem to see me, but I felt she could se
 
 
 
-“Nothing,” the woman said. 
+“Nothing,” the woman said. 
 
 
 
@@ -358,7 +360,7 @@ I had never seen anything less beautiful. “She’s weak. I would kill myself b
 
 
 
-“That makes you the weak one, boy.” The woman got onto her haunches so that we were at eye level. “You are a child. I don’t want to turn any child out of my home, but you must treat my daughter kindly. I am going to teach you politeness and respect, and Anna is going to teach you about different kinds of strength.” 
+“That makes you the weak one, boy.” The woman got onto her haunches so that we were at eye level. “You are a child. I don’t want to turn any child out of my home, but you must treat my daughter kindly. I am going to teach you politeness and respect, and Anna is going to teach you about different kinds of strength.” 
 
 
 
@@ -406,11 +408,11 @@ That was why she was so skinny, skinnier even than I had been when I couldn’t 
 
 
 
-Anna did not care about starving. She only cared about moaning and spitting her food out and flinging her hands. 
+Anna did not care about starving. She only cared about moaning and spitting her food out and flinging her hands. 
 
 
 
-One night, she hit her mother so hard that the plate clattered across the floor. The woman burst into tears. It was the first time I had ever seen her cry. 
+One night, she hit her mother so hard that the plate clattered across the floor. The woman burst into tears. It was the first time I had ever seen her cry. 
 
 
 
@@ -454,7 +456,7 @@ The woman cried again, but happily this time. “Thank you, Christophe. I’m gl
 
 
 
-Feeding Anna became my chore, just like sniffing the crops for blight and cutting firewood and cleaning the cottage before the patients came. 
+Feeding Anna became my chore, just like sniffing the crops for blight and cutting firewood and cleaning the cottage before the patients came. 
 
 
 
@@ -462,7 +464,7 @@ The woman had many patients. She practiced medicine and midwifery. When patients
 
 
 
-It became my chore to take Anna down to her nest and sit with her during births. Sometimes I fed her. Sometimes I put her hands on her blankets and carved toys and told her their names while women overhead wailed. 
+It became my chore to take Anna down to her nest and sit with her during births. Sometimes I fed her. Sometimes I put her hands on her blankets and carved toys and told her their names while women overhead wailed. 
 
 
 
@@ -562,7 +564,7 @@ Those thoughts made me glad to be a wolf and not a man.
 
 
 
-Even so, I knew what I had done made me a bad wolf. 
+Even so, I knew what I had done made me a bad wolf. 
 
 
 
@@ -578,7 +580,7 @@ I did not tell her, but somehow she found out anyway.
 
 
 
-I was feeding Anna on the day she found out. 
+I was feeding Anna on the day she found out. 
 
 
 
@@ -694,7 +696,7 @@ I was very good at it.
 
 
 
-So good that for the second time in my life, I heard rumors of a monstrous wolf. This wolf did not hunt virgins. 
+So good that for the second time in my life, I heard rumors of a monstrous wolf. This wolf did not hunt virgins. 
 
 
 
@@ -702,7 +704,7 @@ This wolf hunted men.
 
 
 
-I was an excellent hunter. I did not content myself with chasing my prey away. I killed them, especially when they ran. But that is something I have always done. Back when I lived in the abbey, I still used my teeth on the  girls who did not run, but I always let them go after. Just as long as they didn’t run.
+I was an excellent hunter. I did not content myself with chasing my prey away. I killed them, especially when they ran. But that is something I have always done. Back when I lived in the abbey, I still used my teeth on the  girls who did not run, but I always let them go after. Just as long as they didn’t run.
 
 
 
@@ -714,7 +716,7 @@ When I was not hunting hunters, I was helping patients. The witch thought it pru
 
 
 
-I liked helping almost as much as I liked hunting. My favorite way to help was to feed those too weak to feed themselves, and to lay beside the feverish when chills made them tremble. They always trembled less when I held them. Even the witch said I helped the fevers go down. 
+I liked helping almost as much as I liked hunting. My favorite way to help was to feed those too weak to feed themselves, and to lay beside the feverish when chills made them tremble. They always trembled less when I held them. Even the witch said I helped the fevers go down. 
 
 
 
@@ -758,7 +760,7 @@ I got rid of him, but carelessly. I thought he was alone, but I was wrong and I 
 
 
 
-I hid myself, but barely, and I watched them. They had weapons. The sight frightened me badly. 
+I hid myself, but barely, and I watched them. They had weapons. The sight frightened me badly. 
 
 
 
@@ -938,7 +940,7 @@ And then I fell asleep.
 
 
 
-I woke alone in the darkness, blood and rot sharp in my nose. 
+I woke alone in the darkness, blood and rot sharp in my nose. 
 
 
 
@@ -970,7 +972,7 @@ The big bad wolf had no teeth.
 
 
 
-I laughed until I wept. Then I screamed because for the second time, my mother had left me behind. 
+I laughed until I wept. Then I screamed because for the second time, my mother had left me behind. 
 
 
 
@@ -1010,7 +1012,7 @@ I thought I would die with her. That I would go to Heaven with her and our mothe
 
 
 
-Instead, my teeth grew back. 
+Instead, my teeth grew back. 
 
 
 
@@ -1119,7 +1121,7 @@ That’s easy for him to say, though.
 
 
 
-I have a meeting with Commander Rafael Wingaryde in a couple of hours. He’s Charlie’s brother. Perhaps more relevantly, he’s Christophe’s field supervisor. Probably the only person in this facility with enough authority to make Christophe calm down. 
+I have a meeting with Commander Rafael Wingaryde in a couple of hours. He’s Charlie’s brother. Perhaps more relevantly, he’s Christophe’s field supervisor. Probably the only person in this facility with enough authority to make Christophe calm down. 
 
 
 
@@ -1135,4 +1137,4 @@ All I really know that for the first time since I got here, I just want to get t
 
 Previous Patient: [https://www.reddit.com/r/nosleep/comments/1gzskr3/fuck\_hipaa\_my\_new\_patient\_just\_triggered\_the\_hell/](https://www.reddit.com/r/nosleep/comments/1gzskr3/fuck_hipaa_my_new_patient_just_triggered_the_hell/)
 
-Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
+Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
