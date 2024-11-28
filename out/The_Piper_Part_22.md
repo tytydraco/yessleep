@@ -334,3 +334,5 @@ The weight in my chest loosened, and the shadows didn’t feel as heavy. For the
 And then I went home, and I slept.
 
 Today begins the rest of my life.
+
+You can read another one of investigations here: [Wires and Chains](https://www.reddit.com/r/nosleep/s/xHYvlAtr5j)
