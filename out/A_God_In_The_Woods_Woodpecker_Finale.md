@@ -12,13 +12,13 @@ But they didn’t say more than that. So, I pressed them. Told them that I talke
 
 I didn’t tell them that. I told them that I just met up with Josh and was captivated by the praises he song to the being in the woods, which wasn’t a lie. And that we were all in this together as devoted believers, which was. After a little more pressure and reassurance that everything would be perfectly fine, and they told me how their wish was fulfilled…
 
-And how do you get a younger sibling? 
+And how do you get a younger sibling?
 
 To make their wish come true, they would have to sneak into the bathroom at night, take the little pills in moms medicine cabinet with the numbers and arrows on the foil. Then go to the kitchen and put the whole package unopened into a boiling pot on the stove, for at least 2 minutes. Then take out the package and put them back.
 
 I mean what the actual fuck?!
 
-Obviously knowing what those pills would be and that they wouldn’t work after being heated. A child for sure doesn’t know that. I wouldn’t think of that for christ sake. 
+Obviously knowing what those pills would be and that they wouldn’t work after being heated. A child for sure doesn’t know that. I wouldn’t think of that for christ sake.
 
 Maybe I’m gullible, but I am starting to question more than just my judgment here. Maybe not quite questioning if something spoke to these kids, but if getting lost in those woods really was enough to make at least two different people think so? And if so, how would that explain how they were able to figure these devious schemes out by their age?
 
@@ -32,7 +32,7 @@ And as I see it, that work starts and ends with confirming to myself that nothin
 
  
 
-I can let my son be alone the rest of the evening, right? He is eight, he will be thrilled that he gets a night to himself.
+I can let my son be alone the rest of the evening, right? I know he isn't old enough, but there is nothing here that could hurt him. He is eight, he will be thrilled that he gets a night to himself.
 
 Of cause he’s thrilled. I’ve laid down the law, he knows that if I get home and he isn’t in bed. He is barred from sweets for the next week. I’ve neatly organized the leftovers in the fridge, and told him he can make some sandwiches with the stuff on the second shelf if he gets through all the leftovers and is somehow still hungry.
 
@@ -100,7 +100,7 @@ I can see so clearly what I must do to save God's vision, to save my son. I beli
 
 I step right up next to the patch of peeled bark on the tree. I can see the sturdy hard wood transporting the nutrients of the earth, channeling them into the air for all of us to inhale. I feel fearless.
 
-I lean back my head, and spring my cranium forward into the solid vessel. My skin acting as an elastic dampener on the collision between the two solid objects, giving of a muted thump. I stumble. I feel a soothing warmth spread through my body. Regaining my balance, I see visions of the future God has promised. Reinvigorated I ready myself for a second blow, a second chance at redemption. I lean back, and with a power I have never before mustered, my mass lunges forward. A soft thump, and a squelching. I pull back slowly; the adhesive soft tissue being pulled from the oak, where it and I collided. I feel warmer still, the vision becomes clearer, happiness flows through me. I stretch out my arms, and grab gods vessel. Once more I lean back my head, my arms help my soul seek completion, my entire body moving with one conviction. A harder thump, my forehead becomes divided, the sounds of the forest seize. Only my heart is audible. Leaning back parts of me now lingers in the timber. Heavenly bliss assaults my wavering mind. I will bring God's plan to fruition. And as a last fleeting thought I say onto God.
+I lean back my head, and spring my cranium forward into the solid vessel. My skin acting as an elastic dampener on the collision between the two solid objects, giving of a muted thump. I stumble, then a soothing warmth spread through my body. Regaining my balance, I see visions of the future God has promised. Reinvigorated I ready myself for a second blow, a second chance at redemption. I lean back, and with a power I have never before mustered, my mass lunges forward. A soft thump, and a squelching. I pull back slowly; the adhesive soft tissue being pulled from the oak, where it and I collided. I feel warmer still, the vision becomes clearer, happiness flows through me. I stretch out my arms, and grab gods vessel. Once more I lean back my head, my arms help my soul seek completion, my entire body moving with one conviction. A harder thump, my forehead becomes divided, the sounds of the forest seize. Only my heart is audible. Leaning back parts of me now lingers in the timber. Heavenly bliss assaults my wavering mind. I will bring God's plan to fruition. And as a last fleeting thought I say onto God.
 
 “Take control”
 
@@ -112,4 +112,4 @@ And give in.
 
  
 
-“If your soul is heavy with longing, go into the forest. And when you have gone further than you’ve ever been, a being will have known your deepest wish eons in advance and if only your soul knows you went seeking, it will grant it.” – Short tales for children
+“If your soul is heavy with longing, go into the forest. And when you have gone further than you’ve ever been, a being will have known your deepest wish eons in advance and if only your soul knows you went seeking, it will grant it.” 

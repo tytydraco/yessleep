@@ -62,7 +62,7 @@ Just as my blade cut flesh, the overwhelming smell of rotted and wet mold or fun
 
 It didn't hurt. It mostly startled me. But his grip was like iron, I couldn't pull free. 
 
-The light in the abscess glowed a bit stronger now, casting long shadows across my patient's face like an amorphous mask of darkness. 
+The light in the abscess glowed stronger now, casting long shadows across my patient's face like an amorphous mask of darkness. 
 
 My mind felt shakey... well, shakier than usual. Tim laid motionless, and yet I saw a ghostly visage of him contort oddly out of him and look at me with an otherworldly and yet warming look of caring, like a demon that wanted desperately to protect me.
 
@@ -74,7 +74,7 @@ It was like I could feel bursts of pressurized energy that pulsed through my sku
 
 He said, plainly and bluntly, "Please don't take my Light away, Doctor Luxbury. I don't want to go back to the dark."
 
-His ethereal body twisted unnaturally and tried to pry itself from the physical Time lying on his bed. I was staring into the lava-like yellow eyes of this strange spirit. I almost felt bad for it.
+His ethereal body twisted unnaturally and tried to pry itself from the physical Tim lying on his bed. I was staring into the lava-like yellow eyes of this strange spirit. I almost felt bad for it.
 
 It looked warmly into my soul tried to plea to me.
 
