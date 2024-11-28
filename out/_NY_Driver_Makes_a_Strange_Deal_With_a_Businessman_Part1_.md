@@ -386,28 +386,3 @@ There, dead center, lay my burner phone, the same one I had purchased the previo
 
  As soon as I picked it up, it vibrated in my hand, revealing a new set of coordinates — coordinates pointing…. to my own home address.
 
-I shut the trunk and immediately started my drive back to New York. I drove as fast as I could and rushed to my apartment the moment I reached the city. When I opened the door to Luke’s room, I heaved a huge sigh of relief to see him with Jennifer who was helping him with his lessons.
-
-I sank into a couch in the hall, teetering almost on the verge of a breakdown.
-
-I think Jennifer somehow realized my state of mind and excused herself before leaving for her apartment. She also goaded Luke into coming and sitting next to his dad. The kid came and sat beside me, wrapping his arms around me and resting his head on my chest.
-
-An overwhelming avalanche of guilt engulfed me, as I sat there thinking about my friend Eric, while also experiencing a feeling of intense relief, upon seeing that my son was safe.
-
-Luke recalled me waking him up in the middle of the night, but he dismissed it as a dream, as he eventually woke up in his own bed. He then pointed his hand at a sealed envelope placed on the center table, just a couple of feet away from us.
-
-When I picked the envelope, I noticed the wax seal had a trident symbol embossed on it. I ripped it open and took out the letter. It read -
-
-WE HAD A DEAL
-
-GET BACK TO YOUR REGULAR LIFE
-
-DON’T WORRY ABOUT THE COPS
-
- 
-
-A simmering rage gradually took hold within me. I wanted to get up and break every item in my apartment. Luke’s embrace was the only comforting antidote that prevented me from releasing all that pent-up frustration.
-
-So I simply closed the letter and proceeded to get along with my daily chores. I showered, brought groceries, cooked, cleaned and then took Luke out for soccer practice. We were back home by 6 and I got about getting ready for my next appointment.
-
-Once I was dressed, I simply sat in the living room, looking at the phone placed on the table, waiting for it to go off. And at 7:00 PM sharp I got the coordinates for my next pick up.
