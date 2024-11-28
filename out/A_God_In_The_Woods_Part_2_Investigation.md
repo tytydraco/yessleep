@@ -50,9 +50,21 @@ But an uncomfortable nervousness simultaneously grew within me. Nervousness that
 
 In the end I told myself to drop playing detective, no need to dig any further. I was happy here looking at both of our kids playing together in the other room, whilst he and I were laughing at his dinner table. Happy with how well mine and Erics small families got along.
 
-But I could tell Eric felt my nervousness. And I think subconsciously while trying to let go of the story, the nervousness spilled over into another kind of nervousness, one I felt ever since I cut of my ex and started single parenting my son.
+But I could tell Eric felt my nervousness. And That only strengthened the feeling's hold over me. Subconsciously while trying to let go of the story, the nervousness spilled over, and brought back so many kinds of nervousness impulses in me. Sitting there, listning to my son's laughter, looking into the eyes of a friend i trusted. And just then he said
 
-I wanted Eric to reassure me that if anything happened to me, he and his wife would take care of my son. He very calmly told me that we were both already part of the family. I gave him a hug that must have come across like a viper strike; and for the rest of that day home didn't feel like a place.
+"What's wrong?"
+
+I couldn't let Eric know i at some level ended up believiving Josh's deranged story. And in that moment I chose to take care of Eric's question, my privacy and one of my fears with the same answer. 
+
+"I want you to reassure me that if anything happens to me. You and Elise will take care of my son."
+
+That was a fear I felt ever since I cut of my ex and started single parenting my son. I felt so guilty for not making sure there would always be someone looking after him. I had been to focused on getting away.
+
+He held eye contact, his face relaxed and his look turened from curiosity to reassurance. Very calmly he told me 
+
+"Both of you are already family."
+
+I gave him a hug that must have come across like a viper strike. We held that embrace until we both understood that our emotions where synchronised. For the rest of that day home didn't feel like a place. 
 
 But I still suspect that Eric noticed I was holding something from him. After all he had always been good at picking up on those kinds of signals.
 
