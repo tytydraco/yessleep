@@ -10,15 +10,15 @@ But they didn’t say more than that. So, I pressed them. Told them that I talke
 
  
 
-I didn’t tell them that. I told them that I just met up with Josh and was captivated by the praises he song to the being in the woods, which wasn’t a lie. And that we were all devoted believers in this together, which was. After a little more pressure and reassurance that everything would be perfectly fine, and they told me how their wish was fulfilled…
+I didn’t tell them that. I told them that I just met up with Josh and was captivated by the praises he song to the being in the woods, which wasn’t a lie. And that we were all in this together as devoted believers, which was. After a little more pressure and reassurance that everything would be perfectly fine, and they told me how their wish was fulfilled…
 
-And how do you get a younger sibling? To make their wish come true, they would have to sneak into the bathroom at night, take the little pills in moms medicine cabinet with the numbers and arrows on the foil. Then go to the kitchen and put the whole package unopened into a boiling pot on the stove, for at least 2 minutes. Then take out the package and put them back.
+And how do you get a younger sibling? 
+
+To make their wish come true, they would have to sneak into the bathroom at night, take the little pills in moms medicine cabinet with the numbers and arrows on the foil. Then go to the kitchen and put the whole package unopened into a boiling pot on the stove, for at least 2 minutes. Then take out the package and put them back.
 
 I mean what the actual fuck?!
 
-Obviously knowing what those pills would be and that they wouldn’t work after being heated. A child for sure doesn’t know that. I wouldn’t think of that for christ sake. So is this god thing what’s happening?
-
- 
+Obviously knowing what those pills would be and that they wouldn’t work after being heated. A child for sure doesn’t know that. I wouldn’t think of that for christ sake. 
 
 Maybe I’m gullible, but I am starting to question more than just my judgment here. Maybe not quite questioning if something spoke to these kids, but if getting lost in those woods really was enough to make at least two different people think so? And if so, how would that explain how they were able to figure these devious schemes out by their age?
 
@@ -38,11 +38,11 @@ Of cause he’s thrilled. I’ve laid down the law, he knows that if I get home 
 
 If anything, this will at least be one good thing to come from this obsession of mine. Finally letting my son take that extra step in growing up.
 
-I didn’t tell him I’m going to the woods though. Didn't want to spark his curiosity in the story and go out alone himself. No, I told him that I was going out into the city, letting him know I wasn’t going to take the car so not to be alarmed that it’s still there. I’m thinking that he might get it in subconsciously that it’s not okay to go out party and drive home. Maybe that works I guess I’ll know in a couple years, when he starts going out.
+I didn’t tell him I’m going to the woods though. Didn't want to spark his curiosity in the story and go out there himself. No, I told him that I was going out into the city, letting him know I wasn’t going to take the car so not to be alarmed that it’s still there. I’m thinking that he might get it in subconsciously that it’s not okay to go out party and drive home. Maybe that works I guess I’ll know in a couple years, when he starts going out.
 
-I must admit letting him stay home for the first time I got a little sentimental thinking about him growing up as fast as he is. And how in just a couple of years he would be falling in love for the first time, going through puberty, high school. You know growing up. I must admit it made me a little teary-eyed thinking of how fast he turned eight. And how soon all those monumental things would happen to him.
+I must admit letting him stay home for the first time I got a little sentimental, thinking about him growing up as fast as he is. And how in just a couple of years he would be falling in love for the first time, going through puberty, high school. You know growing up. I must admit it made me a little teary-eyed thinking of how fast he turned eight. And how soon all those monumental things would happen to him.
 
-Tearing up I demanded a hug before I left. Hoping he wouldn’t grow out of giving me those long loving hugs, although I know that wouldn’t be the case. Very soon he’ll be wincing and wriggling out of my grasp, just like we all started doing to our parents.
+So, tearing up I demanded a hug before I left. Hoping he wouldn’t grow out of giving me those long loving hugs, although I know that wouldn’t be the case. Very soon he’ll be wincing and wriggling out of my grasp, just like we all started doing to our parents.
 
  
 
@@ -50,7 +50,7 @@ Going out the door flashlight in the pocket of my warmest coat, eying down the t
 
  
 
-Okay I’m at the treeline. Honestly I’m getting goosebumps. Struggling nervously with the flashlight I think about how childhood me would feel seeing me now. I think the version of me that heard this story from the older kids, would feel pride. Knowing they’d grown up to be brave enough to do this.
+Okay I’m at the treeline. Honestly I’m getting goosebumps. Struggling nervously with the flashlight, I think about how childhood me would feel seeing me now. I think the version of me that heard this story from those older kids, would feel pride. Knowing I’d grow up to be brave enough to do this.
 
 I am going to try and get lost in there as fast as possible so the way out, after I turn on my gps, will be as short as possible. I’m doing this properly but not religiously. I don’t think a god cares how you get to a spot you haven’t been before. That must be true.
 
@@ -64,7 +64,7 @@ It turns out to be a lot harder than expected to go of the path this early on, e
 
  
 
-I can’t find the path. I’m honestly panicking. But as I keep saying aloud to myself “this was the whole point”. So I’m telling myself to spend at least 30 minutes lost but seeking the supreme being. To follow the story, and to be sure with myself that, In case I don’t find anything, I’m in the same state of mind as the others were. For if it is all child psychosis, I want to be sure I know what it feels like to be stuck in here.
+I can’t find the path. I’m honestly panicking. But as I keep saying aloud to myself “this was the whole point”. So I’m telling myself to spend at least 30 minutes lost but seeking the supreme being. To follow along with the story, and to be sure with myself that, In case I don’t find anything, I’ll be in the same state of mind as the others were. For if it is all child psychosis, I want to be sure I know what it feels like to be stuck in here.
 
  
 
@@ -76,7 +76,7 @@ Time passes way faster when I’m actually searching. Checked the time, it’s b
 
  
 
-I’ve spotted something that’s noteworthy. There’s an odd tree. It’s old. Super old. Im no expert in trees but the way the limbs of it spiral around. It almost looks they haven’t been bent by following the path of the sun in the sky. But rather the passing of the seasons. Like this tree is reacting to the environment around it, on a different timescale than everything else. That tree is it. I am here, I’m sure. Absolutely sure. If someone told me, this isn’t it; I would be able to tell them for a fact that they are wrong. Nothing else around me looks different, everything here is different. In the same way falling in love changes everything around you. In that exact same way, I know this is the one.
+I’ve spotted something that’s noteworthy. There’s an odd tree. It’s old. Super old. Im no expert in trees but the way the limbs of it spiral around. It almost looks they haven’t been bent by following the path of the sun in the sky. But rather the passing of the seasons. Like this tree is reacting to the environment on a different timescale than everything else here. That tree is it. I am here, I’m sure. Absolutely sure. If someone told me, this isn’t it; I would be able to tell them for a fact that they are wrong. Nothing else around me looks different, everything here is different. In the same way falling in love changes everything around you. In that exact same way, I know this is the one.
 
  
 
@@ -88,7 +88,7 @@ And then, slowly it starts speaking to me. Or rather it communicates at me. Forc
 
  
 
-The presence of god is intrusively overpowering. The presence of god is unholy. I know why every religion speaks of gods love. Love is both utterly impure and pure at once, this is the same. Repulsive, yet captivating. No not repulsive. Exiting. Yes, it’s excitement, I mistake for repulsion. That’s God’s honest truth.
+The presence of God is intrusively overpowering. The presence of God is unholy. I know why every religion speaks of Gods love. Love is both utterly impure and pure at once, this is the same. Repulsive, yet captivating. No not repulsive. Exiting. Yes, it’s excitement, I mistake for repulsion. That’s God’s honest truth.
 
  
 
@@ -98,11 +98,9 @@ God’s showing me the future. God revealing his plan, beauty manifest. This vis
 
 I can see so clearly what I must do to save God's vision, to save my son. I believe and I repent. God’s voice booms in my head. Beckoning me to do what’s right. I know it must be done, God has shown me so. I fill with purpose and love. I know how to fulfil my repentance. Eternal bliss, my son’s eternal happiness. It will follow. As surely as dawn after night.
 
-I step right up next to the patch of peeled bark. I can see the sturdy hard wood transporting the nutrients of the earth, channeling them into the air for all of us to inhale. I feel fearless.
+I step right up next to the patch of peeled bark on the tree. I can see the sturdy hard wood transporting the nutrients of the earth, channeling them into the air for all of us to inhale. I feel fearless.
 
- 
-
-I lean back my head, and spring my cranium forward into the solid vessel. My skin acting as an elastic dampener on the collision between the two solid objects, giving of a muted thump. The collision sends my head back in a direction I didn't expect. I stumble, I feel a warmness radiating through my body. Regaining my balance, I see God's promised future. I ready myself for a second blow, a second chance at redemption. I lean back, and with a power I have never before mustered, my mass lunges forward. A soft thump, and a squelching. I pull back slowly; the adhesive soft tissue being pulled from the oak, where it and I collided. I feel warmer still, the vision becomes clearer, happiness flows through me. I stretch out my arms, and grab gods vessel. Once more I lean back my head, my arms help my soul seek completion, my entire body moving with one conviction. A harder thump, my forehead becomes divided, the sounds of the forest seize. Only my heart is audible. Leaning back parts of me now lingers in the timber. Heavenly bliss assaults my wavering mind. I will bring the plan to fruition. And as a last fleeting thought I say onto God.
+I lean back my head, and spring my cranium forward into the solid vessel. My skin acting as an elastic dampener on the collision between the two solid objects, giving of a muted thump. I stumble. I feel a soothing warmth spread through my body. Regaining my balance, I see visions of the future God has promised. Reinvigorated I ready myself for a second blow, a second chance at redemption. I lean back, and with a power I have never before mustered, my mass lunges forward. A soft thump, and a squelching. I pull back slowly; the adhesive soft tissue being pulled from the oak, where it and I collided. I feel warmer still, the vision becomes clearer, happiness flows through me. I stretch out my arms, and grab gods vessel. Once more I lean back my head, my arms help my soul seek completion, my entire body moving with one conviction. A harder thump, my forehead becomes divided, the sounds of the forest seize. Only my heart is audible. Leaning back parts of me now lingers in the timber. Heavenly bliss assaults my wavering mind. I will bring God's plan to fruition. And as a last fleeting thought I say onto God.
 
 “Take control”
 

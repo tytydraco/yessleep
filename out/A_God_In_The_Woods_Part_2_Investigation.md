@@ -52,7 +52,7 @@ In the end I told myself to drop playing detective, no need to dig any further. 
 
 But I could tell Eric felt my nervousness. And I think subconsciously while trying to let go of the story, the nervousness spilled over into another kind of nervousness, one I felt ever since I cut of my ex and started single parenting my son.
 
-I wanted Eric to reassure me that if anything happened to me, he and his wife would take care of my son as if he was their own. He very calmly told me that we were both already part of the family. I gave him a hug that must have come across like a viper strike; for the rest of that day home wasn’t a place.
+I wanted Eric to reassure me that if anything happened to me, he and his wife would take care of my son. He very calmly told me that we were both already part of the family. I gave him a hug that must have come across like a viper strike; and for the rest of that day home didn't feel like a place.
 
 But I still suspect that Eric noticed I was holding something from him. After all he had always been good at picking up on those kinds of signals.
 
@@ -68,4 +68,4 @@ Update:
 
 So laying the story to rest didn’t last long. The other kid that went looking in the woods got back to me this evening.
 
-[\[Finale\]](https://www.reddit.com/r/nosleep/comments/1gzy5up/a_god_in_the_woods_woodpecker_finale/) 
+[\[Finale\]](https://www.reddit.com/r/nosleep/comments/1gzy5up/a_god_in_the_woods_woodpecker_finale/)
