@@ -10,11 +10,11 @@ Well, I say ‘friend’. We weren’t super close around this time, or at least
 
 Truth be told, I was a little nervous about seeing her. I didn’t really know if it would go well, or if she even still considered me a friend. I mean, She’d agreed to meet up with me, but I guess part of me was worried she only agreed out of obligation or pity or something. 
 
-Anyway, it was about 5 in the evening when I got on the train. Right away, things felt… off. You’d expect the tube to be absolutely packed in the evening so close to the holidays, but it was completely empty. Nobody else was at the station with me, either. The whole thing felt sort of uncanny. 
+Anyway, it was about 5 in the evening when I got on the train. Right away, things felt… off. You’d expect the tube to be absolutely packed in the evening so close to the holidays, but it was completely empty. Nobody else was at the station with me, either. The whole thing felt sort of uncanny.
 
 I get on and shoot Jess a text that I’m on my way. The doors close and the little announcement voice comes on to announce the next stop. The lights flicker for a moment. I know that sounds like nothing. Lights flicker on the tube all the time. But with the weird, empty atmosphere, it put me a little on edge. 
 
-The first bit of the journey was nothing particularly noteworthy. But the first stop puts me even more on edge. Nobody gets off, and nobody gets on. The platform is completely empty. Not even a pigeon picking at litter. It feels like the whole world is empty. I don’t know if I’ve ever felt as alone as I did on that train. The doors stay open for what feels like forever.
+The first bit of the journey was nothing particularly noteworthy. But the first stop puts me even more on edge. Nobody gets  on. The platform is completely empty. Not even a pigeon picking at litter. It feels like the whole world is empty. I don’t know if I’ve ever felt as alone as I did on that train. The doors stay open for what feels like forever.
 
  I should have gotten off. I should have gotten off and switched to a different line, or gotten a bus or a cab or even just walked.
 
