@@ -1,6 +1,6 @@
 “Alright folks, time to sit tight and listen We’re due to arrive in half an hour and there’s a lot to brief.” Jepsen was shouting from the front of the cabin, bringing all of our attention forward. “There’s food and water over by the wall, if you’re hungry, eat now.”
 
-I still felt like I was going to puke after waking up from hypersleep, unsure of where I was and groggy as all hell. There was no way I was going to eat right now, with everything in me needed just to keep my attention on the Jepsen. 
+I still felt like I was going to puke after waking up from hypersleep, unsure of where I was and groggy as all hell. There was no way I was going to eat right now, with everything in me needed just to keep my attention on Jepsen. 
 
 “You’re all here because your skills earned you a spot. I know the big shots told you that taking this mission is like getting the goddamn Golden Ticket to tickle Wonka’s balls. I’m going to tell you that they offered that for a reason- most of you ain’t gonna see it. We don’t know what the hell we’re walking into up here, and for every single one of you to survive, I need you to be on your shit like never before.” Jepsen was already laying in, spit flying from his lips as he shouted for all of us to hear. I scanned the cabin, counting ten of us total, all suited up with armaments standing by. 
 
@@ -90,4 +90,4 @@ She reaches through the thick glass of the window like there’s nothing there, 
 
 “And who the hell are you?” Stentz started shouting at the ceiling, hefting his gun like he was going to start firing on nothing.
 
-”Someone who’s survived here longer than you.” The voice answered back. “Come meet me in Admin and I’ll tell you what happened here. Don’t pay them any mind on your way.”
+”Someone who’s survived here longer than you.” The voice answered back. “Come meet me in Admin and I’ll tell you what happened here. Don’t pay them any mind on your [way](https://www.reddit.com/u/googlyeyes93/s/vLtCAqXa14).”
