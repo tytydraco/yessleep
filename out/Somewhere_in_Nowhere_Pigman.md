@@ -200,4 +200,4 @@ I stormed outside and shook my fist at the sky like I was making sure God hersel
 
 “YOU COME OUT HERE AND FACE ME, YOU FUCKING COWARD! I’M NOT GOING TO LET YOU HURT MY FRIEND OR KILL MY CROPS! DO YOU HEAR ME? OVER MY DEAD BODY!”
 
-Apparently, the Rot was ready to accept that challenge. I watched the trail of black wind its way out of the cornfield and up to where I stood. As it rose out of the ground, our eyes locked, and it had me right where it wanted me.
+Apparently, the Rot was ready to accept that challenge. I watched the trail of black wind its way out of the cornfield and up to where I stood. As it rose out of the ground, our eyes locked, and it had me right where it wanted [me.](https://www.reddit.com/r/nosleep/comments/1h2uehu/somewhere_in_nowhere_irrational/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

@@ -1,0 +1,13 @@
+My (58M) mates and I have been arguing about this TV advert that we can all swear was on when we were kids, but haven't been able to find anywhere on YouTube, or elsewhere online. I figured, where better to ask than Reddit? At least one other person here is bound to remember this, even if it was just more of a local advert. It's pretty memorable, has to be if five grown men are all are remembering it from forty odd years ago, and given what it is, I’m more surprised that I’ve not seen others online talking about it. It was strange too because it would come on during the BBC news segment, something which has rarely, if ever, had adverts. Thinking back, it’s weird too that the BBC wouldn’t remove it, given how graphic it was. It was about the time you’d be sitting watching telly with your family too, so it wasn’t like it was an ‘after the kids have gone to sleep’ thing. 
+
+ 
+
+It starts fairly tame, with a father and two boys sitting in front of the telly. There's no sound but the sound from that, and some clattering plates from the kitchen, until you hear a baby crying in the background. The camera switches over to the kitchen, where you see a woman's back as she leans over and puts something into the oven. She stands upright again, taking off a pair of oven gloves before sighing and walking away, as the camera stays focused on the oven. The glass is too blackened to see much, and its only for a second or so too long. Long enough that we all knew something was about to happen when we saw it at first. 
+
+ 
+
+One of my mates is insistent that in the next scene, she goes to the living room first, but none of us remember that. What we all remember is the nursery scene. The advert cuts to a shot of this very decorated nursery, crib perched against one wall, where you think the crying is coming from. The camera is positioned as if you are the mother, walking into the room and towards the crib, but as soon as she gets there, the angle shifts to show her face as she gasps. Then, the camera switches again, to show the crib which has a chicken in it. You hear the oven timer go off, and the mother's face just *drops.*
+
+
+
+Then there was this weird pause at the end, when a load of text would come up. Something about seeing through trickery and checking in on your wife. All you can hear in the background are these *awful* chewing sounds, the sounds of plates clattering and a woman quietly sobbing. Not sure what the hell it was a PSA for, but it was always on the telly on Sundays around teatime. We're all around the Derby area, if anyone else knows what it was or knows anything else about it. Cheers
