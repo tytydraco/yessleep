@@ -386,3 +386,4 @@ There, dead center, lay my burner phone, the same one I had purchased the previo
 
  As soon as I picked it up, it vibrated in my hand, revealing a new set of coordinates — coordinates pointing…. to my own home address.
 
+[Part2](https://www.reddit.com/r/nosleep/comments/1h2nkfb/ny_driver_makes_a_strange_deal_with_a_businessman/)
