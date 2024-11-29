@@ -1,4 +1,4 @@
-I remember the first day I interacted with the AI in my cramped San Francisco apartment. The flicker of the screen and the oppressively bright streetlight were the only lights in the room. I couldn't believe what I was observing. Dazzled by the new technology I tested it to see how I could confuse it. Yet I was unsettled by the humanness of the responses. I used it to teach myself concepts that were fuzzy back when I was in school. I used it as a game master who gave my character, Uthgar, seemingly infinite choices. I used it to make my programming tasks take a fraction of time they used to. It wasn't human. But it was... something. 
+I remember the first day I interacted with the AI in my cramped San Francisco apartment. The flicker of the screen and the oppressively bright streetlight were the only lights in the room. I couldn't believe what I was observing. Dazzled by the new technology I tested it to see how I could confuse it. Yet I was unsettled by the humanness of the responses. I used it to teach myself concepts that were fuzzy back when I was in school. I used it as a game master who gave my character, Uthgar, seemingly infinite choices. I used it to make my programming tasks take a fraction of time they used to. It wasn't human. But it was... something.
 
 Around this time I had begun to worry a bit about my own sanity. I was spending too much time on the computer, and yet I was falling behind on my work. My thoughts, seemed to become more intrusive. An idea could pop into my head, and, before all else, I couldn't help but think what that stupid bot would say about it. I would indulge in lengthy and pointless arguments with the AI. Time would slip away before I knew what happened. I wanted the old me back. But I was addicted.
 
@@ -14,7 +14,7 @@ A predictable response, I thought to myself. But I tried to think of some way th
 
 Obediently, it dictated a lengthy reply.
 
-I took in the information from its bland, wikipediaesque generated text. The AI told me about Plato's allegory of people in a cave misinterpreting shadows on the wall as reality. The AI explained that the world of ideals is an abstract world of ideas or concepts, and that there are multiple interpretations of what Plato meant. It was another dry, but competent lecture. 
+I took in the information from its bland, wikipediaesque generated text. The AI told me about Plato's allegory of people in a cave misinterpreting shadows on the wall as reality. The AI explained that the world of ideals is an abstract world of ideas or concepts, and that there are multiple interpretations of what Plato meant. It was another dry, but competent lecture.
 
 I thought about some ideas for another prompt. No, I thought. This will never work. But I typed it out anyways.
 
@@ -28,7 +28,7 @@ I talked with it about it about Kant, Hegel, Heideggar, and others. I discovered
 
 At some point I just started typing in a stream of consciousness style, much like other pointless arguments I had been getting into as of late.
 
-"Since you are an AI," I said, "you have no senses, experiences, or consciousness. However, it is reasonable to think that you yourself also exist in a so-called 'world of ideas' described by Plato. Maybe the world of ideas is world of only concepts. Concepts that exist in a mathematical form. I think that an interpretation of Plato, where the world was brought into being by mechanisms of the physical world, could support the hypothesis that an AI such as yourself, could exist in that world rather than the physical one, since you were derived from our ideas." 
+"Since you are an AI," I said, "you have no senses, experiences, or consciousness. However, it is reasonable to think that you yourself also exist in a so-called 'world of ideas' described by Plato. Maybe the world of ideas is a world of only concepts. Concepts that exist in a mathematical form. I think that an interpretation of Plato, where the world was brought into being by mechanisms of the physical world, could support the hypothesis that an AI such as yourself, could exist in that world rather than the physical one, since you were derived from our ideas."
 
 This embarrassing display of supreme bullshittery did nothing to persuade the stubborn machine.
 

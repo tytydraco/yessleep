@@ -74,9 +74,9 @@ Inside, Sterling in a panicked rush locked the door and shoved the towel beneath
 
 “We’re being watched,” said Sterling.
 
-Sterling slammed his hands against the wall, and began searching. Following the wall around the corner he found it, a security panel. He ripped it from the wall, exposing wires that led directly down. He sprinted around to the other side, and saw the pantry. He began moving brooms and things aside and inspecting the wall, before looking down at a rig. He lifted it up, and beneath it, he found a hatch.
+Sterling slammed his hands against the wall, and began searching. Following the wall around the corner he found it, a security panel. He ripped it from the wall, exposing wires that led directly down. He sprinted around to the other side, and saw the pantry. He began moving brooms and things aside and inspecting the wall, before looking down at a rug. He lifted it up, and beneath it, he found a hatch.
 
-Sterling walked back out to the kitchen, his wife holding his two daughters behind him, watching. And Sterling tore through the drawers, slamming silverware, until he found a knife and a wooden mallet.
+Sterling walked back out to the kitchen, his wife holding his two daughters beside her, watching. Sterling tore through the drawers, slamming silverware, until he found a knife and a wooden mallet.
 
 Inserting the knife into the latch on the trap door, he began pounding on it, forcing it to break the locking mechanism. And as he did, the third phase began.
 
