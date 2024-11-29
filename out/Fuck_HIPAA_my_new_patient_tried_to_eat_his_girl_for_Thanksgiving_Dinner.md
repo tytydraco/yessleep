@@ -1,4 +1,4 @@
-In October 1978, Philadelphia police responded to a dead body call at abandoned theater.
+In October 1978, Philadelphia police responded to a dead body call at an abandoned theater.
 
 They arrived on scene to discover most of a corpse of young woman on the stage. Her hands and feet were bound.
 
