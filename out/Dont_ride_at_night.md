@@ -1,4 +1,4 @@
-I have zero idea what happened that night, and I haven’t ever seen anything like it. Maybe you guys might know.
+I have zero idea what happened, and I haven’t ever seen anything like it. Maybe you guys might know.
 
 I was about 15 at the time. I snuck out of my house at about 1 in the morning, and called my buddies and told them to bring some booze and cigarettes. Our plan was to ride around my 400 acres and have a campsite in the woods. 
 
