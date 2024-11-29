@@ -954,3 +954,10 @@ That means something, right? 
 
 
 I mean, that’s got to count for *something*.
+
+
+* * *
+
+Previous Interview: https://www.reddit.com/r/nosleep/comments/1h1hynr/fuck_hipaa_my_new_patient_is_a_cold_case_file/
+
+Employee Handbook: https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/
