@@ -34,7 +34,7 @@ Unable to sleep, I did what I usually do - I went downstairs to watch TV. But wh
 
 I turned off the TV, trying to shake off what I'd seen, and walked to the fridge. I found a pizza box - my usual comfort food when I'm down. I put it in the microwave and watched it heat up, the humming filling the silence. When it dinged, I almost jumped.
 
-The first bite made me recoil. The pizza was... wrong. It had flavor, but it was like the food was trying to remember what it should taste like. I can't explain it better than that. Desperate, I started grabbing other food from the fridge, not caring if it was cold. But everything tasted the same way - like it was imitating real food but couldn't quite get it right. It was the strangest thing I'd ever experienced
+The first bite made me recoil. The pizza was... wrong. It had flavor, but it was like the food was trying to remember what it should taste like. I can't explain it better than that. Desperate, I started grabbing other food from the fridge, not caring if it was cold. But everything tasted the same way - like it was imitating real food but couldn't quite get it right. It was the strangest thing.
 
 My mind went numb. I left the mess of food behind and curled up on the living room sofa. Finally, the tears came. I never thought I'd miss something as simple as hearing another person's voice.
 
