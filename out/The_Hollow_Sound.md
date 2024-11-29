@@ -122,8 +122,6 @@ My breathing hitched, tears spilling down my face. My eyes darted to Dr. Bennett
 
 “It’s me,” I whispered again, my voice breaking. “
 
-Here’s an enhanced and extended version of your story with more horror detail, dialogue, and the protagonist’s haunting realization during a lucid moment:
-
 They found me curled up on the bathroom floor. I remember flashes: the cool sting of a stretcher against my skin, the red-black smear of blood on my fingertips, the blur of faces looming over me. I remember the sound too—wet and pulsing, louder than ever, drowning out the panicked voices around me.
 
 When I woke up, I wasn’t in my apartment anymore.
@@ -257,3 +255,12 @@ It wanted me.
 And the worst part was, I knew that it had always been here, just waiting for the right moment, the right crack in my mind to slip through.
 
 And now, I couldn’t escape.
+
+
+
+
+
+
+
+
+[shout out to creep cast & I need to strongly note I did not write this all on my own. the idea and most of the text is mine—but i used multiple filtering apps to create my work of art & i will not take full credit!!!!]
