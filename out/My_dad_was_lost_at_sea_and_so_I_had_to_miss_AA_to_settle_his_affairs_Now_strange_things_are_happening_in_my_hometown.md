@@ -186,7 +186,7 @@ I noticed Jenny winced as Dave continued,
  
 “Oh.” I was so taken aback there wasn’t anything else I could think to say as a million questions ran through my mind. I looked at Jesse’s image and wondered if he was one of the faces plastered on the police station. In hindsight it was safe to say he was my best friend at one point, although we never officially said so. It just kind of was. “Do they have any leads? On anything?”
 
-“No, but in my opinion I don’t think the sheriff is doing enough,” Jenny said. “The only thing we know about Jesse at least, is what his husband said. Apparently, he was having some sort of mental health struggle. Claimed he was hearing voices. He didn’t take any money when he left, and his cards haven’t been used. As far as the police are sayingletting us know, it’s like he’s vanished into thin air.” 
+“No, but in my opinion I don’t think the sheriff is doing enough,” Jenny said. “The only thing we know about Jesse at least, is what his husband said. Apparently, he was having some sort of mental health struggle. Claimed he was hearing voices. He didn’t take any money when he left, and his cards haven’t been used. As far as the police are letting us know, it’s like he’s vanished into thin air.” 
 
 “Wouldn't be surprised if someone threw him in the harbor,” Dave said.
 
@@ -200,7 +200,7 @@ I stared at the photo for a little while longer. It was my own fault for not kno
 
 “You don't know that, and accusing our neighbors of murder isn't helpful,” Jenny said. “For all we know, he could have taken off.”
 
-“Maybe, but this place has been stuck in time for decades. The town is dying. Boats have been coming back with less and less fish and lobster when their crew doesn’t disappear. That's why we're selling the house.” 
+“Maybe, but this place has been stuck in time for decades. The town is dying. Boats have been coming back with less and less fish and lobster, and that's when their crew doesn’t disappear. That's why we're selling the house.” 
 
 “Hold up.” I looked at Jenny, bewildered. “You're selling?” 
 
