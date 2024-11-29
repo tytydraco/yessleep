@@ -42,29 +42,29 @@ Eric did remember the change after Josh’s dog died. But he tells me that he re
 
  
 
-That I missed one of our friends being utterly psychotic, kind of turned my interest around for a bit. I ended up talking mostly about if Eric had noticed anyone else in my life being crazy without me noticing, and he jokingly said he did warn me about me ex. The conversation derailed somewhat after that. I guess a combination of nervousness and relief.
+That I missed one of our friends being utterly psychotic, kind of turned my interest around for a bit. I ended up talking mostly about if Eric had noticed anyone else in my life being crazy without me noticing, and he jokingly said he did warn me about my ex. The conversation derailed somewhat after that. I guess a combination of nervousness and relief.
 
 Relief that Eric always had been an amazing friend to me, living proof that I didn’t have all piss poor judgment of character.
 
 But an uncomfortable nervousness simultaneously grew within me. Nervousness that I couldn’t bring myself to reveal that I had started obsessing about this childhood spoke story. Why did I hide this obsession from Eric?
 
-In the end I told myself to drop playing detective, no need to dig any further. I was happy here looking at both of our kids playing together in the other room, whilst he and I were laughing at his dinner table. Happy with how well mine and Erics small families got along.
+In the end I told myself to drop playing detective, no need to dig any further. I was happy here looking at both of our kids playing together in the other room. Happy with how well mine and Erics small families got along.
 
-But I could tell Eric felt my nervousness. And That only strengthened the feeling's hold over me. Subconsciously while trying to let go of the story, the nervousness spilled over, and brought back so many kinds of nervousness impulses in me. Sitting there, listning to my son's laughter, looking into the eyes of a friend i trusted. And just then he said
+But I could tell Eric felt my nervousness. And that only strengthened the feeling's hold over me. While trying to let go of the story, the nervousness spilled over, and brought back so many kinds of nervous impulses in me. Sitting there, listning to my son's laughter, looking into the eyes of a trusted friend. And as if he knew I was on shacky ground, he asked
 
 "What's wrong?"
 
-I couldn't let Eric know i at some level ended up believiving Josh's deranged story. And in that moment I chose to take care of Eric's question, my privacy and one of my fears with the same answer. 
+I couldn't let Eric know I at some level ended up believiving Josh's deranged story. And in that moment I chose to take care of Eric's question, my privacy and one of my nervous fears with the same answer.
 
-"I want you to reassure me that if anything happens to me. You and Elise will take care of my son."
+"I want you to reassure me that if anything happens to me. You and Elise will...."
 
-That was a fear I felt ever since I cut of my ex and started single parenting my son. I felt so guilty for not making sure there would always be someone looking after him. I had been to focused on getting away.
+I don’t think I completed the answer, just slowly looked into the other room. That my son had no other adult caretaker, had sown a fear in me. One I had felt ever since I started single parenting him. 
 
-He held eye contact, his face relaxed and his look turened from curiosity to reassurance. Very calmly he told me 
+Eric waited for me to turn my head back to him. His face had relaxed and his look turned from curiosity to reassurance. Very calmly he told me
 
 "Both of you are already family."
 
-I gave him a hug that must have come across like a viper strike. We held that embrace until we both understood that our emotions where synchronised. For the rest of that day home didn't feel like a place. 
+I gave him a hug that was more closely likened to a viper strike, and held that embrace until we both understood that our emotions where synchronised. For the rest of that day, home didn't feel like a place.
 
 But I still suspect that Eric noticed I was holding something from him. After all he had always been good at picking up on those kinds of signals.
 

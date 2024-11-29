@@ -1,8 +1,10 @@
 Lately I have been revisiting an old playground horror story that’s been passing around the area where I grew up. Back then the older children would tell me and my friends that there was a god living in the forest.
 
-They told us all those usual things you would think fit that description; All powerful, omniscient and so on. But they emphasized one thing that always struck me as sinister. This deity did not seek worship. That specific fact always creeped me out. That something so alien that it didn’t desire or seek a single thing, not even dominion over its subjects, existed somewhere right behind our town’s flimsy treeline.
+They told us all those things you would think went with such an outlandish description; All powerful, all knowing and so on.
 
-It just rubbed me as truly foreboding. Like seeing a billboard proclaiming the military suddenly needs more troops or having a guy with no friends in sight hand you a drink at a bar. It was as if, there was some unspoken motive too horrible to flaunt out in the open lurking behind a false facade.
+But they emphasized one thing that always struck me as sinister. This deity did not seek worship. That specific fact always creeped me out. That something so alien that it didn’t desire or seek a single thing, not even dominion over its subjects, existed somewhere right behind our town’s flimsy treeline.
+
+It just struck me as truly foreboding. Like seeing a billboard proclaiming the military suddenly needs more troops or having a guy with no friends in sight hand you a drink at a bar. It was as if, there was some unspoken motive too horrible to flaunt out in the open lurking behind a false facade.
 
 And what god could possibly have a secret motive darker than requiring eternal servitude?
 
@@ -24,5 +26,4 @@ I do remember that he was the one in our friend group that believed the story th
 
 He was very keen to see me and talk over coffee. So I guess that’s what I’m waiting for now, I hope Josh still remembers how and to whom he told that story…
 
-  
 [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1gz4xch/a_god_in_the_woods_part_2_investigation/)

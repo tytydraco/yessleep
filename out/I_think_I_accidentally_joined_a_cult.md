@@ -1,3 +1,6 @@
+**The Vagabond’s Log**
+
+
 I am not a righteous man, I have always had a taste for wickedness I fear. A gambler, a thief, a petty dealer, a con artist; I’m not exactly proud of it but I go by many titles with many different professions. Hell, I’d tell you my name but I’d have to list all of them. I blow from place to place, household to household,  and bed to bed as I please. Well, until I HAVE to leave. I take what I want and I survive. 
 
 No one truly gets hurt, they might be down a few grand or so but in all fairness they fell for cheap tricks. It’s only fair and they learn a valuable lesson. If it wasn’t by me, it would have been by someone far worse. Human traffickers, gang members, loan sharks; the horrible list goes on and on at nauseam. I’ve been around some truly horrible people. Being the scum of the earth, I know true evil when I see it… 

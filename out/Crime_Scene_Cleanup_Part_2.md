@@ -3,6 +3,8 @@
 [Part 1] https://www.reddit.com/r/nosleep/s/G82jBcrM2z
 
 
+
+
 Porcelain Smiles
 
 I’ve seen blood. I’ve seen bodies in every state imaginable. But the worst thing about crime scene cleanup isn’t what you see, it’s what stays with you. 
