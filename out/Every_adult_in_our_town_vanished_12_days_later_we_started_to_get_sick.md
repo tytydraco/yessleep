@@ -542,7 +542,7 @@ His words felt like knives pricking into my back.
 
 “Yep! *Everyone*!”
 
-His expression darkened, and I started to see the splinters in his mask, his lips curling. “I found my parents reduced to red sludge, and my baby sister was her own flavour of strawberry shake in her crib.” 
+His expression darkened, and I started to see the splinters in his mask, his lips curling. “I found my parents reduced to red sludge, and my baby sister was her own flavor of strawberry shake in her crib.” 
 
 Wes’s eyes widened, and he startled me with a choked laugh. 
 
@@ -628,7 +628,7 @@ The two of them were shivering, and when I peeked past them, the snow had let up
 
 “Freddie Fawner and his group of freshman freaks took over our house.” 
 
-Henry held up a bag of apples. I think he was offering them as a gift. “Do you mind if we stay here for a while?” his hopeful expression and frostbite did me in. 
+Henry held up a bag of apples. I think he was offering them as a gift. “Do you mind if we stay here for a while?” his hopeful expression and frostbite lowered my barriers. 
 
 I nodded and let them in, offering them blankets and letting them have the living room. 
 
