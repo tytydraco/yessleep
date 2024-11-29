@@ -107,3 +107,5 @@ I don’t have any answers tonight. Only questions.
 I’m going to try to convince Clay to rest, and then I’m going to bed too. I got us a few drinks. Might not wake up on time to post this when I normally would, but that’s fine. All that matters is I get it out there.
 
 Tomorrow, I hope I’ll have a clearer head. I’ll figure out what to do then. Or maybe I’ll take the day off from everything, try to make sure neither of us slips a groove from all the insanity we’ve been facing. I don’t know. I’ll figure it out.
+
+[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/1h2ia3l/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

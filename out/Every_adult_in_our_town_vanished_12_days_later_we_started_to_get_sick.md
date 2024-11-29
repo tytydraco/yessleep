@@ -662,11 +662,9 @@ I could hear the boys moving around.
 
 I hallucinated my brother standing over me with abnormally pointy ears, a grin splitting his mouth wide. 
 
-I felt his ice cold fingers tip-toe across my clammy forehead, and when I looked at him, blinking rapidly, I could have sworn his eyes were bigger. 
+I felt his ice cold fingers tip-toe across my clammy forehead, and when I looked at him, blinking rapidly, I could have sworn his eyes were... different. 
 
-Bulgier, almost cartoon-like. 
-
-But he was beautiful. Grotesquely beautiful. 
+But he was beautiful. Grotesquely beautiful, like a fairy. 
 
 Wes climbed through my window, followed by the girl from the crash.
 
@@ -731,6 +729,8 @@ I waited to die, or at least become an elf.
 But I didn't. 
 
 I still felt light and wrong, and when I looked in the mirror, my face was twisted out of shape, my ears too pointy, too *sharp*. 
+
+I resemble fae, almost. 
 
 When I was well enough, I left my house, finding a wasteland of snow and bodies, kids who rejected the transformation. 
 

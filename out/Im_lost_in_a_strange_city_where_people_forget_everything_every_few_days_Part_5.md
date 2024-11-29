@@ -151,3 +151,5 @@ That was it, just these four words. Nothing else. Why isn’t there more? Why do
 …I need to go to bed. I’ve been pacing the room for the past 10 minutes, just trying to understand. I was going to wait until the next post to even mention it because I know this post is long enough, but I need to know what all of you think about it. I’m so confused.
 
 [\[Part 6\]](https://www.reddit.com/r/nosleep/comments/1h0cpp1/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/1h2ia3l/im_lost_in_a_strange_city_where_people_forget/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
