@@ -1,5 +1,4 @@
-
- I’ve tried to forget that night. God knows I’ve tried. But it claws its way back into my mind every time I close my eyes. I don’t want to write this. I don’t want to relive it. But some stories don’t die just because you want them to.
+I’ve tried to forget that night. God knows I’ve tried. But it claws its way back into my mind every time I close my eyes. I don’t want to write this. I don’t want to relive it. But some stories don’t die just because you want them to.
 
 That night wasn’t just a horror show—it was the moment I became someone else. A man who stared into the jaws of death, felt the weight of terror crush his lungs, and came out of it alive. Stronger, maybe. Or maybe just hollowed out and filled with something darker.
 
@@ -13,8 +12,7 @@ I didn’t ask questions. D-Class don’t ask questions if they want to stay bre
 
 As we walked, I caught glimpses of preparation. Equipment being loaded. Men in tactical gear checking weapons. And then there was him.
 
-The first time I saw Able, I didn’t think he was human. He was too big—eight feet tall and built like a statue of a war god, every muscle carved to perfection. His skin was olive-toned, and his body was covered in tattoos—grotesque scarlet faces that seemed to sneer and scream as he moved. His face was cold, devoid of anything remotely human.
-He didn’t look at me as I passed. Didn’t look at anyone. He just stood there, motionless, like a weapon waiting to be unleashed. I wanted to believe he was on our side, but something about him screamed predator. The kind that doesn’t differentiate between friend and foe—just prey.
+The first time I saw Able, I didn’t think he was human. He was too big—eight feet tall and built like a statue of a war god, every muscle carved to perfection. His skin was olive-toned, and his body was covered in tattoos—grotesque scarlet faces that seemed to sneer and scream as he moved. His face was cold, devoid of anything remotely human. He didn’t look at me as I passed. Didn’t look at anyone. He just stood there, motionless, like a weapon waiting to be unleashed. I wanted to believe he was on our side, but something about him screamed predator. The kind that doesn’t differentiate between friend and foe—just prey.
 
 As we walked past, I felt his eyes flick to me for the briefest second. A chill rolled down my spine. It wasn’t the kind of look you get from another human being; it was like a wolf watching a rabbit. Something primal, dangerous, and indifferent.
 
@@ -40,8 +38,7 @@ He didn’t explain. He just slid a set of keys across the table.
 
 I didn’t press. You don’t ask questions when you’re a D-Class. You do what you’re told, or you disappear.
 
-As the guards led me out of the room, I caught snatches of conversation from the people huddled over maps and screens. “Route 973,” someone said, their voice low. “If we fail again—”
-Another voice cut in. “We won’t. Able’s here this time.”
+As the guards led me out of the room, I caught snatches of conversation from the people huddled over maps and screens. “Route 973,” someone said, their voice low. “If we fail again—” Another voice cut in. “We won’t. Able’s here this time.”
 
 Able. The predator. The eight-foot nightmare. My “passenger.”
 
@@ -50,7 +47,6 @@ I didn’t know what they were trying to do. I didn’t know what Route 973 was.
 Neither did I.
 
 As the guard shoved me forward, I caught sight of a monitor displaying the route. Numbers scrawled in red danced across the screen—coordinates? Warnings? And in the corner, faint text read: Route 973 Incident Log: 28 Fatalities Confirmed.
-
 
 They led me to a black car parked in an underground garage. The lights were dim, casting long shadows across the rows of vehicles. My car looked ordinary—clean, polished, nondescript. But there was something about it that made my chest tighten, like the air around it was heavier.
 
@@ -66,7 +62,7 @@ His voice was deep, commanding, and completely devoid of emotion.
 
 I turned the key in the ignition, the engine roared to life, but the dashboard flickered for a second, like something unseen was meddling with the car’s electrical system. A faint static hissed through the radio, though it was off, forming patterns of whispers too soft to understand.”
 
-  That’s when I realized I’d just become part of something I couldn’t escape. Something worse than death.
+That’s when I realized I’d just become part of something I couldn’t escape. Something worse than death.
 
 I forced my foot onto the gas pedal, the car lurching forward with a low growl. The hum of the engine was the only sound in the silence between me and Able. The road twisted and turned ahead, lined with trees that seemed to reach out like skeletal hands, their branches clawing at the sky.
 
@@ -152,4 +148,4 @@ As I was driving, we heard it before we saw it—the crackling of a broken radio
 
 I glanced in the rearview mirror, and there it was—red and blue lights flashing behind us.
 
-
+part 1 ends here wait for part 2
