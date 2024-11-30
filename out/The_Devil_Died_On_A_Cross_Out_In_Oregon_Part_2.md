@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1h2u57q/the_devil_died_on_a_cross_out_in_oregon_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 1](https://www.reddit.com/r/creepypasta/comments/1h3lx03/the_devil_died_on_a_cross_out_in_oregon_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 2](https://www.reddit.com/r/creepypasta/comments/1h3lzsm/the_devil_died_on_a_cross_out_in_oregon_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I saw my first miracle on the pebbly shores of that placid lake painted orange by the watching sun. But it wasn’t just us and the sun; the birds had gathered too, on the trees and the cabins and the shores.
 
@@ -41,4 +41,3 @@ It must’ve been 1am by the time they started telling us the rules. First, they
 I had the privilege of riding with the program director: a silver haired man full of life and passion. He asked me all about my home, my family, and my hobbies. I’d never seen a man his age fake interest in video games so well. I was reading Matthew 14 in that van to impress him. When he saw, he mentioned that was the chapter Jesus walked on water. He told me God had so many good plans for this year, that God was so happy I’d come. He told me I was in the right place. Coming from someone like him, who seemed to know exactly what God wanted, who seemed to love me so much, those words were power. I was in the right place.
 
 But I wasn’t, because that next morning it wasn’t God out on that lake.
-
