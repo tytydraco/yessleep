@@ -1,0 +1,16 @@
+
+
+
+
+When I moved into this quaint little cottage, I thought it’d be the perfect spot for retirement. It's in a lovely village with a shop, a lush village green and a calm trickling of a nearby brook. The residents are lovely and generally mind their own business. The cottage however came to be a bit of nuisance. It came with a built in alarm clock in the form of a kettle.
+
+Every morning the cottage became filled with an ungodly whistling, as though a steam train was tearing through. Each morning I checked, but no kettle could be found. I even threw mine out but the whistling continued each morning. Downstairs there was also an unmistakable smell of burning toast. So convincing that I would believe I was about to experience a stroke. I had turned the whole cottage upside down but my efforts proved fruitless. Along with those oddities there was also my cat. While the kettle and toaster were having their moment, Scruffy would stand frozen in the living room. His fur bristled like static, growling and hissing at the chair, as if an unseen creature had taken his spot. There was no creature. There was no kettle. There was no toaster. I was on the edge of losing my mind.
+
+The locals informed me, the previous owner was a man called George Collins. The estate agents failed to mention that, the barstards. Mr Collins was murdered in one of the fields up the lane. His murderer was never found. Allegedly a man of routine, he would start each day with a walk. He would then pop into Mrs Dawson's shop for milk and a newspaper, then home for tea and toast. If I believed in ghosts I would have instantly believed I was being haunted by his ghostly routine. Surely not I thought.
+
+One morning though, I was out early. I had gone to Mrs Dawson's shop for some cereal. As I entered, a frosty presence passed straight through me, like an icy wind slicing through my bones, stealing my breath. I dismissed it until I had the same experience again, in my kitchen, right before the whistling. Then, the strong smell of burning toast.
+
+I was becoming convinced I had the most mundane ghost in all the afterlife. He seemed to be out walking in the fields, popping into the shop, coming to my home, making breakfast and scaring Scruffy. That morning, after the kettle had stopped its racket, I settled down and switched on the news. Breaking News. Mr Collin's murderer had been found. A drifter. As the report ends, Scruffy relaxed and jumped onto the chair as natural as anything, not a care in the world.
+
+Since that morning, I haven't heard a whistling kettle, or smelt any burning toast. I even bought myself a new kettle and toaster to celebrate. Although I reamain sceptical, I also can't deny the coincidence. Perhaps Mr Collins really is at rest now, taking his damned kettle with him.
+

@@ -212,4 +212,4 @@ Thunder growled above me as the wind whipped through the loblollies. It was a ch
 
 I said nothing. I’d made my point.
 
-As I watched Dawson finally turn off my driveway, that’s when I saw it. Underneath my feet, the porch steps were covered with mold. Things got a little foggy after that. My mind was filled with a singular purpose: to get rid of it.
+As I watched Dawson finally turn off my driveway, that’s when I saw it. Underneath my feet, the porch steps were covered with mold. Things got a little foggy after that. My mind was filled with a singular purpose: to get rid of [it.](https://www.reddit.com/r/nosleep/comments/1h3kyje/somewhere_in_nowhere_the_offering/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

@@ -180,9 +180,13 @@ Lysander’s gaze focused back onto me, regaining that hideous scarred smile. �
 Lysander cackled and began to sing an excerpt from Gyspies, Tramps, and Thieves by Cher:
 
 “Gypsies, tramps, and thieves
+
 We'd hear it from the people of the town
+
 They'd call us gypsies, tramps, and thieves
+
 But every night all the men would come around
+
 And lay their money down”
 
 I was completely and utterly speechless, there was absolutely no way anyone could comprehend what was happening. It was like whiplash. The naked cultists continued to stare, almost entranced, deathly still surrounding the pastor. 
