@@ -32,7 +32,7 @@ One crazy kid’s devoted schizophrenic episode, and a story became a tall tale 
 
  
 
-But I was now, way more concerned about something else. *Me.* Specifically my judgment of character. So, I asked a friend from that mutual friend group whom I’m still friends with, his name is Eric, if he remembers anything weird about Josh. Mostly because I refuse to be the only one that missed it.
+But I was now, way more concerned about something else. **Me***.* Specifically my judgment of character. So, I asked a friend from that mutual friend group whom I’m still friends with, his name is Eric, if he remembers anything weird about Josh. Mostly because I refuse to be the only one that missed it.
 
 And, if he tricked others, maybe even made Eric believe in that story. Well then, I wouldn’t need to be so hard on myself.
 
@@ -50,7 +50,7 @@ But an uncomfortable nervousness simultaneously grew within me. Nervousness that
 
 In the end I told myself to drop playing detective, no need to dig any further. I was happy here looking at both of our kids playing together in the other room. Happy with how well mine and Erics small families got along.
 
-But I could tell Eric felt my nervousness. And that only strengthened the feeling's hold over me. While trying to let go of the story, the nervousness spilled over, and brought back so many kinds of nervous impulses in me. Sitting there, listning to my son's laughter, looking into the eyes of a trusted friend. And as if he knew I was on shacky ground, he asked
+But I could tell Eric felt my nervousness. And that only strengthened the feeling's hold over me. While trying to let go of the story, that nervousness spilled over, and brought back so many nervous impulses in me. Sitting there, listning to my son's laughter, looking into the eyes of a trusted friend. I felt vournable, and of cause Eric could tell I was on shacky ground.
 
 "What's wrong?"
 
@@ -58,13 +58,13 @@ I couldn't let Eric know I at some level ended up believiving Josh's deranged st
 
 "I want you to reassure me that if anything happens to me. You and Elise will...."
 
-I don’t think I completed the answer, just slowly looked into the other room. That my son had no other adult caretaker, had sown a fear in me. One I had felt ever since I started single parenting him. 
+I don’t think I completed the answer, just slowly looked into the other room. That my son had no other adult caretaker, had sown a fear in me. And having a chance to quench that fear for good, I took it.
 
 Eric waited for me to turn my head back to him. His face had relaxed and his look turned from curiosity to reassurance. Very calmly he told me
 
 "Both of you are already family."
 
-I gave him a hug that was more closely likened to a viper strike, and held that embrace until we both understood that our emotions where synchronised. For the rest of that day, home didn't feel like a place.
+I gave him a hug that was more closely likened a viper strike, and held that embrace until we both understood that our emotions where synchronised. For the rest of that day, home didn't feel like a place.
 
 But I still suspect that Eric noticed I was holding something from him. After all he had always been good at picking up on those kinds of signals.
 

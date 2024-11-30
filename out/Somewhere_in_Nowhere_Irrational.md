@@ -208,7 +208,7 @@ I walked back to the porch and lingered there, watching him wind up the road and
 
 “If you hurt him, I’ll make sure that there isn’t even scorched earth left of you.”
 
-Thunder growled above me as the wind whipped through the ponderosas. It was a challenge. It was a real gag that it could goad me all I wanted, but the minute I got an attitude back, I was taken on a safari through the nine circles of Hell. 
+Thunder growled above me as the wind whipped through the loblollies. It was a challenge. It was a real gag that it could goad me all I wanted, but the minute I got an attitude back, I was taken on a safari through the nine circles of Hell. 
 
 I said nothing. I’d made my point.
 
