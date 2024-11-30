@@ -1,8 +1,6 @@
-Hi, this is my first time posting here, so apologies in advance for my (possibly) poor storytelling.
-
 This isn’t my story; it’s the experience of my international classmate which he told me years ago. For the sake of simplicity, let's just call him Daniel.
 
-Back when he was a student in his home country, he participated in a community service programme in a remote mountain village somewhere in Southeast Asia. You know the type—isolated, beautiful, and quiet, but with that eerie stillness that makes your skin crawl if you think too hard about it.
+Back when Daniel was a student in his home country, he participated in a community service programme in a remote mountain village somewhere in Southeast Asia. You know the type—isolated, beautiful, and quiet, but with that eerie stillness that makes your skin crawl if you think too hard about it.
 
 Daniel stayed there with 20 other students. They all shared a large boarding house near the edge of the forest. The house was owned by the village leader. It was simple but functional, with creaky floors and windows that rattled whenever the mountain winds blew. Their daily routine was packed—teaching, fixing roads, running workshops. They were busy enough to mostly forget the weird vibes of the place.
 
@@ -12,7 +10,7 @@ One day, it was Daniel’s turn to head to the market. He was paired with one of
 
 Alex wasn’t shy about it either. He’d often tell the others to avoid certain parts of the house or warn them about strange noises at night. Some believed him; others teased him for being overly dramatic. Daniel fell somewhere in the middle. He didn’t entirely believe Alex, but he wasn’t about to test his luck either.
 
-The trip to the market was uneventful. They navigated the steep, bumpy road without incident, bought everything they needed, and even joked about how the village shopkeepers seemed to overcharge outsiders like them. But as they loaded the motorcycle for the return trip, Alex started acting... off. He grew unusually quiet, his face pale and his hands trembling as he tied the bags onto the bike. Daniel asked if he was feeling sick, but Alex just shook his head and muttered, “Let’s go.”
+The trip to the market was uneventful. They navigated the steep, bumpy road without incident, bought everything they needed, and even joked about how the village shopkeepers seemed to overcharge outsiders like them. But as they loaded the motorcycle for the return trip, Alex started acting...off. He grew unusually quiet, his face pale and his hands trembling as he tied the bags onto the bike. Daniel asked if he was feeling sick, but Alex just shook his head and muttered, “Let’s go.”
 
 The ride back was when things took a turn.
 
@@ -38,8 +36,14 @@ Everyone turned to him, wide-eyed. The old man explained that the water pipes ha
 
 No one slept well that night. Alex refused to step outside after dark, and the others couldn’t shake the mental image of headless figures waving at them from the shadows. Even Daniel, who had always been skeptical about ghost stories, felt uneasy.
 
-The rest of their stay in the village was uneventful, but no one volunteered to go to the market anymore. The students resorted to rationing their food and supplies to avoid taking that cursed road. And when the programme finally ended, they left the mountain without looking back.
+The rest of their stay in the village was filled with uneasiness. No one volunteered to go to the market anymore. The students resorted to rationing their food and supplies to avoid taking that cursed road. And when the programme finally ended, they left the mountain without looking back.
 
-Daniel told me this story with a nervous laugh, as if trying to downplay how much it rattled him. He doesn’t really believe in the supernatural, not like Alex does, but every time he remembers that night, he can’t help but feel unsettled. 
+Daniel told me this story with a nervous laugh, as if trying to downplay how much it rattled him. He doesn’t really believe in the supernatural, not like Alex does, but every time he remembers that night, he can’t help but feel unsettled.
 
-I don't really believe in the supernatural either, but somehow this story really sticks with me even years after he told me about it. Well, I guess sometimes you don’t have to believe in ghosts for their stories to haunt you.
+Since hearing Daniel's story, I can’t look at beautiful mountain villages the same way. What used to feel serene and untouched now feels like it hides something—memories, secrets, or perhaps even restless spirits.
+
+Whenever I see long, winding roads, or huge water pipes cutting through the landscape, I find myself wondering what kind of secrets might have been kept to build them. The crisp mountain air no longer feels refreshing; it feels heavy, as though the land itself is holding onto stories it doesn’t want to tell.
+
+Daniel’s story has stayed with me in ways I never expected. I consider myself a skeptic, but his account has made me question how much of a place’s beauty is built on buried pain. It’s unsettling, the idea that progress often leaves behind scars, not just on people but on the land itself.
+
+And sometimes, when I visit places like that, I catch myself looking at the shadows—half-wondering if something is looking back.

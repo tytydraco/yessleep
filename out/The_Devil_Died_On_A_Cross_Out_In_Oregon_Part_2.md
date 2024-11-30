@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/creepypasta/comments/1h3lx03/the_devil_died_on_a_cross_out_in_oregon_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 2](https://www.reddit.com/r/creepypasta/comments/1h3lzsm/the_devil_died_on_a_cross_out_in_oregon_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1h2u57q/the_devil_died_on_a_cross_out_in_oregon_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 2](https://www.reddit.com/r/nosleep/comments/1h3lepu/the_devil_died_on_a_cross_out_in_oregon_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I saw my first miracle on the pebbly shores of that placid lake painted orange by the watching sun. But it wasn’t just us and the sun; the birds had gathered too, on the trees and the cabins and the shores.
 
