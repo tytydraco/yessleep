@@ -160,7 +160,7 @@ I heard my name…
 
 My wife has called me eighty-seven times since last night, and I haven’t answered yet. I’m not sure what I’ll say to her when I finally have the courage to pick up the phone.
 
-Now I’m cursing my cheap-ass for never paying for the service that saves recordings from our camera—I have no record of their conversation..
+Now I’m cursing my cheap-ass for never paying for the service that saves recordings from our camera—I have no record of their conversation.
 
 Other than the memory of it seared into my brain.
 

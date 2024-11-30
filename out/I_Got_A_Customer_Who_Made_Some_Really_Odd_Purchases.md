@@ -11,7 +11,7 @@ I check the clock for the tenth time during my shift. It’s only 4 PM. I don’
 
 New customer. I greet them with a standard “How you doing?”
 
-A hoodie covers their face, they nod in response. 
+A hood covers their face, they nod in response. 
 
 A shovel. *beep.*
 
