@@ -34,11 +34,11 @@ One that’s made me question whether I can ever go home again…
 
 “You know *the voice*, Mama.”
 
-“I’m not sure, sweetheart—did you maybe hear me and daddy while you were in there? We talked to you all the time!”
+“I’m not sure, sweetheart—did you maybe hear me while you were in there? I talked to you all the time!”
 
-“No, your voices were nice. This one was mean.”
+“No, your voice is nice. This one was mean.”
 
-“Oh, I’m sorry, darling—maybe it was a movie or TV show we were watching…”
+“Oh, I’m sorry, darling—maybe it was a movie or TV show I was watching…”
 
 “I don’t think so, Mama. It talked to me a lot.”
 
