@@ -34,7 +34,7 @@ Alicia thought for a moment, and then made an expression I never want to see on 
 
 After asking Alicia a few more questions, I realized that my neighbor might not have done anything technically (or at least legally) wrong. It wasn't against the law to make inappropriate gestures in your own home, but it seemed like he was targeting my kids specifically. Legal or not, I planned to have a little chat with him the following morning.
 
-My last question to Alicia was if our neighbor had made any other gestures, and she nodded. Then, she started making beckoning, "come-here" motions with both of his hands.
+My last question to Alicia was if our neighbor had made any other gestures, and she nodded. Then, she started making beckoning, "come-here" motions with both of her hands.
 
 I had Alicia sleep in my room for the night as well. I also checked out the window in my kids' room, but like before, I saw nothing. The house was completely dark.
 

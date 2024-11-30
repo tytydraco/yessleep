@@ -91,3 +91,5 @@ She reaches through the thick glass of the window like there’s nothing there, 
 “And who the hell are you?” Stentz started shouting at the ceiling, hefting his gun like he was going to start firing on nothing.
 
 ”Someone who’s survived here longer than you.” The voice answered back. “Come meet me in Admin and I’ll tell you what happened here. Don’t pay them any mind on your [way](https://www.reddit.com/u/googlyeyes93/s/vLtCAqXa14).”
+
+[Next](https://www.reddit.com/r/nosleep/s/KBOm5DwEoq)
