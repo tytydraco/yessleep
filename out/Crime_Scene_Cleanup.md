@@ -1,5 +1,4 @@
-
-Part 2 https://www.reddit.com/r/nosleep/s/sXSPYFZcXE
+[Part 2](https://www.reddit.com/r/nosleep/s/sXSPYFZcXE)
 
 Location One: The Apartment on Cherry Lane
 

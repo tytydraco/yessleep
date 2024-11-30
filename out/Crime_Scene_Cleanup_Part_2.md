@@ -1,9 +1,4 @@
-
-
-[Part 1] https://www.reddit.com/r/nosleep/s/G82jBcrM2z
-
-
-
+[Part 1](https://www.reddit.com/r/nosleep/s/G82jBcrM2z)
 
 Porcelain Smiles
 
@@ -85,19 +80,19 @@ I ran.
 
 Out the front door, across the lawn, not stopping until I reached my van. My chest heaved, my hands shaking. I didn’t care about my kit. I didn’t care about protocol.
 
-I started to drive away, but I NEED this job. So I taped up my pants legs with several layers of duct tape, hoping that would offer some protection. Just how how could those damned dolls reach anyway? And how deep could they cut?
+I started to drive away, but I NEED this job. So I taped up my pants legs with several layers of duct tape, hoping that would offer some protection. Just how how high could those damned dolls reach anyway? And how deep could they cut?
 
 And then I got inspired. If regular kids like cartoons about frogs and princesses, maybe these creepy assholes could be distracted by something more their speed.
 
 I spent the next half hour eating lunch and downloading a couple of movies with creepy dolls as the theme.
 
-I metaphorically pulled on my big boy pants and marched back in there.
+I metaphorically pulled on my big girl panties and marched back in there.
 
 One of those creepy things had my bottle of cleaner. The good stuff.
 
 Absolutely not. I'm not having MY pay docked because some baby doll with ink on its forehead wants to play exorcist. 
 
-I sat up my laptop and turned on the movies. In the strongest, strongest mom voice I could muster under the circumstances, I told them "I have to clean up the mess you made. Watch your movies while I do that and no funny business."
+I sat up my laptop and turned on the movies. In the sternest, strongest mom voice I could muster under the circumstances, I told them "I have to clean up the mess you made. Watch your movies while I do that and no funny business."
 
 No idea if my tone or my movies worked. Or hell, maybe I was cracking under the pressure and nothing had happened at all (yeah right, standard cleanup my ass). But I got that whole place cleaned up before those movies were done, grabbed my kit and got the hell out of there.
 
