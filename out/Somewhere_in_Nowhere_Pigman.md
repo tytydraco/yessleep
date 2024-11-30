@@ -4,7 +4,7 @@ I’m not talking about wild boars, either. Farm pigs aren’t aggressive or car
 
 Now, don’t get me wrong, if you fall into a pigpen, you’re more than likely going to be alright, as long as the fall doesn’t knock you out. But let’s say the back of your head hits the ground particularly hard. You’re unconscious. A group of even slightly hungry pigs will probably start with your clothes, boots, hair, and maybe even your ears. But if you give them long enough, once they’ve got going, they’ll do much more permanent damage.
 
-My maternal great-grandfather was a pig farmer. One day in a record-temperature July, he got a bad case of heat stroke and did just that. He was passed out in that pigpen for an hour and a half before my great-grandmother found him and rushed him to the hospital. He lived, but he lost three fingers, had been given plenty of scars that would never fully heal, and had to walk with a cane for the rest of his life. 
+My maternal great-grandfather was a pig farmer. One day in a record-temperature July, he got a bad case of heat stroke and did just that. He was passed out in that pigpen for an hour and a half before my great-grandmother found him and, nurse instincts kicking in, rushed him to the hospital. He lived, but he lost three fingers, had been given plenty of scars that would never fully heal, and had to walk with a cane for the rest of his life. 
 
 Why am I telling you all this? Well, suffice it to say, I would rather cover myself in ketchup and honey and take a long nap in a commercial pig sty than have to look out of my kitchen window at night and see that Pigman standing in the fields one more damn time. 
 
@@ -42,7 +42,7 @@ As I blew a cloud of smoke out of my nose, the Pigman began to move. I looked on
 
 As my life flashed before my eyes for the… let’s face it, I’m not counting anymore, all I could think of was Dawson and how much it was going to suck for him to find my mangled corpse when he came over for dinner. I would’ve gone through the reverse a thousand times if he didn’t have to even once. I couldn’t deny that he was sweet; he didn’t deserve to see shit like that.
 
-The near silence was suddenly broken when the Pigman let out a squeal-scream so loud that he leaned forward into it. Birds took flight in terror from the pines in the distance, and I jumped so hard that I fell forward and hit the ground three feet below. I clutched at my knee and groaned in pain like some fat guy who tripped over a mailbox. The Pigman just watched me, making odd snuffling noises that might’ve been the pig equivalent of giggles. 
+The near silence was suddenly broken when the Pigman let out a squeal-scream so loud that he leaned forward into it. Birds took flight in terror from the pines in the distance, and I jumped so hard that I fell forward and hit the ground three feet below. I clutched at my knee and groaned in pain. The Pigman just watched me, making odd snuffling noises that might’ve been the pig equivalent of giggles. 
 
 I pushed myself to my feet and started limping toward the cornfield with my skinned knee. That tore it; I was about to give this swine behind a piece of my mind. 
 
@@ -58,7 +58,7 @@ Without considering the consequences for longer than a second, I broke the barri
 
 “Leave, Newport. You have no place on this land,” called out a male voice. Unlike everything else, it came from inside my head. It was harsh but… familiar. It conjured a face and a name in my head, but I couldn’t make either out. All I saw was blurry shapes and colors. The puzzle pieces that filled the gaps in my memories were lost in a woodchipper. 
 
-I didn't know who was talking to me, but boy did I give them a piece of my mind. 
+I didn't know who was talking to me, but boy did I give them a piece of my mind.
 
 “Fuck you. This land, this house, these animals all need me. This is my home. I belong here.”
 
@@ -70,7 +70,7 @@ I staggered up to my feet, pretty sure my ankle was sprained to hell, and immedi
 
 I took the stairs two at a time, racing down the hallway. I nearly had a head-on collision at high speed with the shower as I rocketed into the bathroom. I felt dirty and sick, and the countless bruises stung like wildfire. I stood in the cold stream of water, not even bothering to take off my clothes. Rivulets the color of rotten fruit swirled down the drain as I wept into my hands. My shirt stuck to me like pine tar as I struggled to pull it off. 
 
-An indeterminate amount of time passed. It was only Dawson’s voice that pulled me out of disassociation. I realized with some shock that I was *so* glad he was here. At some point, I’d ended up on the bathroom floor. My injured ankle was still hanging over the tub’s edge, and the water was ice cold.
+An indeterminate amount of time passed. It was only Dawson’s voice that pulled me out of disassociation. I realized with some shock that I was so glad he was here. At some point, I’d ended up on the bathroom floor. My injured ankle was still hanging over the tub’s edge, and the water was ice cold.
 
 “Hey, do you need some help there? I brought pie, and I feel like the floor isn’t the best place to enjoy it. I won’t stop you if that’s what you want, though. Where’d you get all those nasty bruises?”
 
@@ -86,7 +86,7 @@ Dawson raised an eyebrow at me but didn’t question it. He’d only been in my 
 
 “This wardrobe looks like it leads to Narnia,” he said, swinging the door open and looking through my collection of overalls and thrift store t-shirts. 
 
-“Yeah, my great-grandfather made it. If you climb in there and stay long enough, it’ll probably take you *somewhere*.”
+“Yeah, my great-grandfather made it. If you climb in there and stay long enough, it’ll probably take you *somewhere.*”
 
 Dawson snooped through my outfits, pausing to look at each one.
 
@@ -100,7 +100,7 @@ Dawson scoffed.
 
 “Well fuck me for having a sense of childlike whimsy every now and again.”
 
-As I slipped on my boxers, Dawson tossed me my favorite overalls (don’t ask me how he knew), and the *Cheese is My Passion* shirt. The yellow fabric felt cool against my bruises. I looked around, and it was like everything reset. I felt the tension drain out of me as I laid back on the soft quilt Aunt Jean had made for me not long after moving in.
+As I slipped on my boxers, Dawson tossed me my favorite overalls (don’t ask me how he knew), and the *Cheese is My Passion* shirt. The yellow fabric felt cool against my bruises. I looked around, and it was like everything reset. I felt the tension drain out of me as I laid back on the soft quilt Aunt Jean had made for me not long after moving in.
 
 “Yeah, yeah, you and your whimsy,” I said with a long, cathartic sigh.
 
@@ -178,7 +178,7 @@ Instead of Whack-a-Mole-ing him halfway into the ground, he opened his fingers. 
 
 We both turned at the same time and met with the same horrible sight. A trail of dead grass and swollen flies led up to the porch, where the door was swung open. In the distance, I heard the sounds of hooves on wood and the clack of old teeth. 
 
-I didn’t really care about any of my belongings, but Aunt Jean was in there, and I didn’t know what this thing was capable of. It was time for *me* to make the dumb decision to protect the ones I loved. I sprinted toward the porch, Dawson hot on my heels. 
+I didn’t really care about any of my belongings, but Aunt Jean was in there, and I didn’t know what this thing was capable of. It was time for *me* to make the dumb decision to protect the ones I loved. I sprinted toward the porch, Dawson hot on my heels. 
 
 “GET OUT OF MY HOUSE, YOU POOR EXCUSE FOR A COMPOST HEAP!”
 

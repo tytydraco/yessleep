@@ -2,6 +2,8 @@
 
 [Previous ](https://www.reddit.com/r/nosleep/comments/1gwn7zt/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next:](https://www.reddit.com/r/nosleep/comments/1h1h8bv/im_a_contract_worker_for_a_secret_corporation/)
+
 Sometimes if two people accept a contract job, the pay gets split. I was a little weary going through with a request after I heard another person was going to be with me. When I heard who I would be working with I pushed aside any concerns about money.   
 
 There had been disappearances and odd sightings inside a large forest. Our job was to simply discover the cause. I arrived at the start of a hiking trail ready to have an easy day for once. I found my partner for the day and I couldn’t hold back a smile from seeing him again.   

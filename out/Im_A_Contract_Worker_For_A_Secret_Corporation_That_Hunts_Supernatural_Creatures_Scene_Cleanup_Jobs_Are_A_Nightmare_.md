@@ -2,6 +2,8 @@
 
 [Previous ](https://www.reddit.com/r/nosleep/comments/1gvw4nm/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next:](https://www.reddit.com/r/nosleep/comments/1h0p1ut/im_a_contract_worker_for_a_secret_corporation/)
+
 While going through my emails I saw a request that appeared simple enough. The Corporation needed someone to assist a cleanup worker. After a supernatural issue was resolved, someone needed to take care of the mess. Most of the time weaker Agents pulled double duties and cleaned the scenes using magic. However, the office managers felt like using magic was a waste of resources. They started to hire half-breeds, or humans to take care of the mess instead of manual labor. The issue with that is sometimes a scene wasn’t fully cleared or a monster who caused trouble came back to get a free meal. Scene cleaners were being targeted so now Contract Workers were getting paid to be with them as they worked.  
 
 I accepted the job and arrived at an old run-down factory in the middle of a field. The building was huge and must have provided most of the jobs in the local small town at one point. I greeted a few Agents on their way out. They just finished killing a monster but had made a bit of a mess. The factory had been a cooking oil packaging plant. We were requested to save any usable bottles and then clean up the spilled oil so it didn’t seep into the ground and affect the local wildlife.  
@@ -209,4 +211,3 @@ It helped that August was doing all the right things as a parent. But it was tak
 It felt like August was putting all this effort into being the perfect father because there was something he couldn’t change. He wasn’t human. And that would affect Lucas someday. I had always known my mother was different. She was human and yet could control magic and knew of supernatural creatures. I didn’t know how I would be able to deal with it all if I lived a normal life, then one day everything I knew changed.  
 
 I didn’t know what the future held for them. Deep down I had a feeling they would be alright. If I wanted to live to see that I really needed to start picking better less dangerous jobs.   
-

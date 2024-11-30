@@ -2,6 +2,8 @@
 
 [Previous: ](https://www.reddit.com/r/nosleep/comments/1h0p1ut/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next:](https://www.reddit.com/r/nosleep/comments/1h3loc4/im_a_contract_worker_for_a_secret_corporation/)
+
 I was recovering between jobs when I got an odd request. Someone named Jacob wanted me to teach him more about magic. The name didn’t ring a bell, but I soon realized he was the hunter we saved from the bug-infested hotel. I agreed to the request but also asked August if he could spare some time.  
 
 I have been involved with supernatural creatures since I was a child. My first romantic relationship was with a cute creature who had mimic powers when I was about seventeen. Even with all my experience, I would never fully understand how magic worked better than someone who relied on it as a life force.  

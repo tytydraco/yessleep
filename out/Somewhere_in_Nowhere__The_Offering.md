@@ -50,9 +50,9 @@ When I opened my eyes, it all stopped. I hadn’t realized they’d closed. My h
 
 “Just get it over with,” I mumbled. “There are other people in this McDonald’s drive-thru, you know.”
 
-The voice that responded sounded like the whisper of the wind as it passed through northern trees and also like the howl of a wolf as it echoed down a southern canyon.
+The voice that responded sounded like the whisper of the wind as it passed through northern trees and also like the howl of a coyote as it echoed down a southern canyon.
 
-*Easy, child.* 
+*Easy, child.*
 
 Goosebumps immediately rose up on my arms as it finally dawned on me in my sorry state. It was her. She’d never spoken to me before. It was only right to speak back, but I didn’t have time for small talk.
 
@@ -78,7 +78,7 @@ I’d pulled myself halfway into the kitchen when I heard that firm, familiar vo
 
 “Newport.” 
 
-I kept crawling forward, pushing the door closed with my foot. *It’s just another trick. Ignore it, and it’ll go away.* 
+I kept crawling forward, pushing the door closed with my foot. *It’s just another trick. Ignore it, and it’ll go away.* 
 
 “Neeeewpoorrrrt.”
 
@@ -88,7 +88,7 @@ I tried to focus on the task at hand. I needed to get the food inside. Maybe Aun
 
 My hand came down again as I tried to pull myself forward, but instead, it landed in a puddle of red and slipped out from underneath me. The stench of meat and iron overwhelmed me as my head hit the floor. 
 
-Blood. It was all over the floor and all over my hands and all over him. He was calling out to me, but he wasn’t. He wasn’t breathing, and I could see his brain inside his skull. All I could think of was I thought people’s brains were supposed to be pink, not gray. His eye stared at me from his cheek, and it looked like one of the animals had a good chew on it. The basket fell from my hand and hit the ground. Might as well have been a bomb going off.
+Blood. It was all over the floor and all over my hands and all over him. He was calling out to me, but he wasn’t. He wasn’t breathing, and I could see his brain inside his skull. All I could think of was I thought people’s brains were supposed to be pink, not gray. His eye stared at me from his cheek, and it looked like one of the animals had a good chew on it. The berry basket fell from my hand and hit the ground. Might as well have been a bomb going off.
 
 I screamed. I screamed and screamed and screamed. Over the ringing in my ears, I heard footsteps running into the barn. My mom grabbed me by the shoulders, shaking me and wailing at me to tell her what happened. What happened? WHAT HAPPENED?! I don’t know what happened. 
 
@@ -108,7 +108,7 @@ It wasn’t surprising that all that mold has just been another one of the Rot�
 
 His hand ruffled through my hair, and my chest ached more than it already was.
 
-“Shaw, kid. I’m messing with you. A little, at least. You’re my whole world, but you have to *listen* to what I’m telling you. You can’t do this alone. You’re as strong as an ox and twice as mean when you wanna be, but this is growing beyond that. This is something you can’t handle on your lonesome, and I know you’re thinking right now ‘fuck you, I can take care of myself,’ but deep down, you know I’m right.”
+“Shaw, kid. I’m messing with you. A little, at least. You’re my whole world, but you have to listen to what I’m telling you. You can’t do this alone. You’re as strong as an ox and twice as mean when you wanna be, but this is growing beyond that. This is something you can’t handle on your lonesome, and I know you’re thinking right now ‘fuck you, I can take care of myself,’ but deep down, you know I’m right.”
 
 He always knew me so well, and I guess that was by design. 
 
@@ -142,13 +142,13 @@ The phone didn’t get a chance to ring more than once before the front door bur
 
 “Newport?! Are you okay?! Wait, that’s a dumb question.”
 
-I shifted enough to catch his gaze and fuck, my chest was **really** hurting. His face was red, and his hair was… filled with straw?
+I shifted enough to catch his gaze and fuck, my chest was **really** hurting. His face was red, and his hair was… filled with straw?
 
 “Not really. How did you get here that fast? Did you carjack a scarecrow?”
 
 “Um… not exactly, no.” 
 
-It was then that I noticed the look on his face. He looked incredibly guilty and smelled like horse— no, he smelled like *barn*.
+It was then that I noticed the look on his face. He looked incredibly guilty and smelled like horse— no, he smelled like *barn.*
 
 “Have you… have you been staying in my fucking barn?!”
 
@@ -186,7 +186,7 @@ As I gingerly took the binder off, I could already see and feel the damage: a ra
 
 I sighed and started cleaning out the cuts. At the rate things were going, I was going to have to go rob an urgent care. 
 
-“It’s not great, but I’ll live. I’ve been through just *so* much worse in the past week. This is nothing.”
+“It’s not great, but I’ll live. I’ve been through just *so* much worse in the past week. This is nothing.”
 
 Dawson drummed his fingers against the floor. Not being able to keep his hands still was a telltale sign that he was nervous. As I glanced in the mirror, I swore I saw something… moving? It looked like a vein was bulging out on the side of my sunburnt neck, but that didn’t seem right. I knew high blood pressure and I were on a first-name basis, but this was ridiculous.
 
@@ -200,7 +200,7 @@ As soon as I realized it was that same water moccasin from before, I froze on in
 
 When it sank those fangs into the soft flesh of my right eye, I felt it burst like a water balloon. I  stumbled back and yelped. For a moment, I felt the sensation of blood running through my fingers as I grabbed at the socket. 
 
-“Fuck! *Literally* get out of my head, you dick!”
+“Fuck! *Literally* get out of my head, you dick!”
 
 Dawson peeked into the bathroom, looking alarmed, and I just clutched at my eye. It had only hurt for a second, but the memory of the pain was fresh and natural. My nose was also back to its original bruised-but-unbroken state. The Rot hadn’t caused any lasting damage for a while. Maybe with the talisman I found hung back up outside, it couldn’t do more than get into our minds.
 
@@ -282,7 +282,7 @@ Dawson laughed softly. I’d never heard him laugh like that before.
 
 I crossed my arms and looked away, embarrassed despite myself. 
 
-“Look, I *had* to do it, okay? It was for the plot.” 
+“Look, I *had* to do it, okay? It was for the plot.” 
 
 “Sure you did. You’re lucky you didn’t get botulism poisoning.”
 
