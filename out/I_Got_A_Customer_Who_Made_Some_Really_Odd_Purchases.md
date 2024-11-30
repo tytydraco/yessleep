@@ -27,7 +27,7 @@ A pack of Ziplocks. *beep.*
 
 A flashlight. *beep.*
 
-I glance around to check if anyone else is seeing what I’m seeing. The other customers in line are paying more attention to the magazine selection than Ted Buddy over here.
+I glance around to check if anyone else is seeing what I’m seeing. The other customers in line are paying more attention to the magazine selection than Ted Bundy over here.
 
 Welp. Gotta do my job.
 
