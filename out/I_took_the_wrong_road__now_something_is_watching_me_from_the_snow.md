@@ -6,7 +6,7 @@ I stopped for food and gas while I was on the main road leaving the city, but af
 
 Despite the radars looking clear for the day, I found myself in a slowly growing snowstorm, my truck chugging loudly between the unfamiliar rocky cliffsides reaching high above me towards a slowly whitening sky, the sun a slowly waning beacon of hope as the snow began to pick up, kicking violent gusts of icey tree limbs and snow.
 
-I pulled over on an old road stop that sat near a few trees and boulders, a small parking lot next to a long-since abandoned service station that sat pretty close to the main road.
+I pulled over on an old road stop that sat near a few fallen trees and some huge, imposing boulders. It had a small parking lot next to a long-since abandoned service station that sat pretty close to the main road.
 
 When I got out to fix the wipers, I lingered for a moment half way out the door, watching as the snow seemed to form small tornadoes all around me, encircling  the mostly empty parking lot, dancing with the ravaging winds that began kicking up clouds of snow that glittered in the truck's headlights.
 
@@ -22,7 +22,7 @@ Nothing...
 
 I slowly approached, at the time I thought maybe someone needed my help, maybe they didn't hear me.
 
-When I got to the man, he was standing facing his car. He was on the passenger side and the door hung slightly ajar. The snow has already started building up inside the car and around the man's feet. 
+When I got to the man, he was standing facing his car. He was on the passenger side and the door hung slightly ajar. The snow had already started building up inside the car and around the man's feet. 
 
 "Sir, are you ok?" I managed to squeak out as I grabbed the man's shoulder, fully expecting him to be frozen solid.
 
