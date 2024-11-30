@@ -32,7 +32,7 @@ One crazy kid’s devoted schizophrenic episode, and a story became a tall tale 
 
  
 
-But I was now, way more concerned about something else. **Me***.* Specifically my judgment of character. So, I asked a friend from that mutual friend group whom I’m still friends with, his name is Eric, if he remembers anything weird about Josh. Mostly because I refuse to be the only one that missed it.
+But I was now, way more concerned about something else. **Me**\*.\* Specifically my judgment of character. So, I asked a friend from that mutual friend group whom I’m still friends with, his name is Eric, if he remembers anything weird about Josh. Mostly because I refuse to be the only one that missed it.
 
 And, if he tricked others, maybe even made Eric believe in that story. Well then, I wouldn’t need to be so hard on myself.
 
@@ -56,9 +56,9 @@ But I could tell Eric felt my nervousness. And that only strengthened the feelin
 
 I couldn't let Eric know I at some level ended up believiving Josh's deranged story. And in that moment I chose to take care of Eric's question, my privacy and one of my nervous fears with the same answer.
 
-"I want you to reassure me that if anything happens to me. You and Elise will...."
+"I want you to reassure me that if anything happens to me. You and Elise will take...."
 
-I don’t think I completed the answer, just slowly looked into the other room. That my son had no other adult caretaker, had sown a fear in me. And having a chance to quench that fear for good, I took it.
+I don’t think I completed the answer, just slowly looked towards my son in the other room. That my he had no other adult caretaker, had sown a fear in me. And having a chance to quench that fear for good, I took it.
 
 Eric waited for me to turn my head back to him. His face had relaxed and his look turned from curiosity to reassurance. Very calmly he told me
 

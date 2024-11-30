@@ -56,4 +56,4 @@ I thought I could control my life, but the truth is, I was never in control. Not
 
 [Priyam's Story](https://www.reddit.com/r/nosleep/comments/1grwiyw/just_desserts_marked_for_life/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-[Mary's Story](https://www.reddit.com/r/nosleep/comments/1gv47nv/just_desserts_deathly_despair/)
+[Christian's Story](https://www.reddit.com/r/nosleep/comments/1h3e7rq/just_desserts_the_sineater/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

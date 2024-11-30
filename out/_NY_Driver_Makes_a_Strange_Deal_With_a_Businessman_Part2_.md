@@ -257,3 +257,5 @@ The devil's piercing gaze met mine, while a chilling silence gripped the room.
 “Why don’t you sit down first?” he continued, pointing his gaze at a chair that appeared magically in front of me.
 
 I hesitated, feeling a knot tighten in my stomach, unsure of what awaited me in the presence of this threatening presence, but I did as I was told.
+
+[Part3](https://www.reddit.com/r/nosleep/comments/1h3ehh0/ny_driver_makes_a_strange_deal_with_a_businessman/)
