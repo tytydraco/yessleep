@@ -1,32 +1,22 @@
-My mom always said, “Never stay in a dangerous situation!”
+I’m drunk and angry. My ride ditched me for some random prick with a beard. “You can find your own way home, right?”
 
-She used to practically smother me with all her fussing and worrying, something I guess I took for granted.
+I had stared at her, aghast. Before I could respond HELL NO she had practically run off into the night. Now I’m stuck in an almost dead bar in the middle of the friggin’ woods.
 
-After dad disappeared (or let’s face it, left) mom wasn’t the same. She spiraled, unable to cope with the loss of her other half. She disappeared into a bottle.
-
-I became unimportant, somehow. Just a prop in the background. I moved out when I turned eighteen. 
-
-Tonight I’m drunk, I feel a little dizzy but mostly giddy. I quit my shitty fast food job today, after exchanging a few choice words with management. 
-
-I don’t know where my next rent check is coming from but I sure as hell feel good about my choice. I’ve worked there since I was sixteen, I’m twenty two now. I physically cannot flip another burger.
-
-My ride ditched me an hour ago. I should never have come with her, I’ve worked with Chelsea for two years and she doesn’t exactly have the reputation of being responsible. Last I saw her she was slinking away with some bearded dude.
-
-Whatever. I’m too drunk to care. I step outside to breathe the fresh air.
+Whatever. I’m too drunk to give Chelsea and her *irresponsibility* any more thought. I step outside and breathe in the cold night air.
 
 It’s beautiful tonight. The bar is surrounded by snowy woods, illuminated by moonlight. Large snow flakes float gently to the ground. I can see my breath coming out like plumes of smoke.
 
-Some guy who was already on the wooden deck offers me a smoke. I smile and take it. I reach in my pocket for a lighter and don’t find one, he offers his.
+Some guy already out on the wooden deck offers me a smoke. I smile and accept. I reach in my pocket for a lighter and don’t find one so he offers his.
 
- I don’t initiate conversation and he doesn’t either. We smoke in silence for a while. 
+I don’t initiate conversation and he doesn’t either. We smoke for a moment in comfortable silence.
 
-“David, get over here!” David, who has just finished his cigarette, smiles at me before heading over to his friends.
+“David, get your ass over here!” He flicks his cigarette butt into the tray and sighs heavily before going to join his group.
 
 I go back inside, buy one more drink. 
 
-Even though I’m drunk I realize I should probably get a new ride. When I take out my phone I see it’s dead. *Great.* The bar doesn’t close for hours, I go see if the bar tender has a charger.
+Even though I’m drunk I realize I should probably get a new ride. When I take out my phone I see it’s dead. *Great.* I ask the bar tender if he has a charger.
 
-“Young lady, I don’t even have a mobile phone.” He points to a corner next to a jukebox. “There’s a landline over there I let customers use.”
+He chuckes. “Young lady, I don’t even have a mobile phone.” He points to a corner next to a jukebox. “There’s a landline over there I let customers use.”
 
 It’s not till my finger is hovering over the number keys that I realize the only number I have memorized is my mom’s. 
 
@@ -36,13 +26,15 @@ After five rings she picks up, with a slurred “Hello?”
 
 I hang up without speaking. She won’t be able to pick me up tonight.
 
-I know it’s roughly ten miles back to town. I look around the bar, the only people left are David’s group and a few old men in a corner. It would be humiliating to ask for a ride. 
+I know it’s roughly ten miles back to town. I look around the bar, the only people left are that guy David’s group and a few old men in a corner. The thought of asking for a ride is humiliating.
 
-I guess I’ll start walking. Thirty minutes in my nose and ears feel like they’re gonna fall off. I swear to myself I’ll never again leave home without a hat. 
+I guess I’ll start walking.
+
+Thirty minutes in and my nose and ears feel like they’re gonna fall off. I swear to myself I’ll never again leave home without a hat, as I try to block the sharp wind from hitting my ears with my hands.
 
 *I’m gonna murder Chelsea. Why didn’t I ask for a ride? Stupid.*
 
-I’m looking back in the direction of the bar, considering returning when I see headlights coming down the road. I’ve still got a bit of liquid courage and the idea of a car heater is too attractive to pass up. I stick out my thumb.
+I stop and look back in the direction of the bar. I’m genuinely considering turning back when I see headlights coming down the road. I’ve still got a bit of liquid courage and the idea of a car heater is too attractive to pass up. I stick out my thumb.
 
 The car stops, the window rolls down. “Where you headed?” The voice is deep and gruff.
 
@@ -90,7 +82,7 @@ He smiles.
 
 I start to hyperventilate, I take off my seatbelt. I’ll fucking jump. When I try to open the door it doesn’t work, when I try to unlock it it’s jammed. I slam my body against the door in a panic. 
 
-“You can’t leave.” His voice was cold, amused. 
+“You can’t leave.” His voice is cold, amused. 
 
 “Why the **fuck** not?!” 
 
@@ -120,7 +112,7 @@ Movement interrupts my crying, its headlights coming down the road. A truck.
 
 I wave my arms and run in the direction of the truck, yelling for help. They stop.
 
-The door opens and a guy rushes out. It’s David. “Are you okay? Call the police!” He yells at the guys still in the truck.
+The door opens and a guy rushes out. It’s David from the bar. “Are you okay? Call the police!” He yells at the guys still in the truck.
 
 I wipe the tears off my face and try to explain through chattering teeth. “He p-picked me up and was gonna take me to town. . . He wouldn’t let me out of the car so I - I grabbed the wheel and um, yeah he’s dead. I killed him.” I point at the tree where he landed. “His body is over there.”
 
@@ -136,7 +128,7 @@ I search the trees frantically, I don’t see anything. I hear an awful noise th
 
 I watch, petrified as they wriggle and shriek, and start to shrink. They shrink and change until they are gray dolphins, shrieking and flopping around in the snow.
 
-I must be dreaming. It’s the only thing that makes sense.
+I must be dreaming. It’s the only thing that makes sense. 
 
 “Come along now.” 
 
@@ -146,11 +138,10 @@ I shake my head no, my head feels foggy.
 
 “**Now**.”
 
-My feet move by themselves, I walk to the man. I take his hand. 
+My feet move by them selves, I walk to the man. I take his hand. 
 
 *I don’t want to go with him.* As we stroll away from the scene I begin to giggle. 
 
-*Three people will never go home and it’s my fault.* I belly laugh so hard my stomach hurts, tears freeze on my cheeks. 
+*Three people are gone and it’s my fault.* I belly laugh so hard my stomach hurts, tears freeze on my cheeks. 
 
 *I don’t know if I’ll ever see my mom again.* I  cackle deliriously, my laughter echoing through the trees.
-

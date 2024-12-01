@@ -39,3 +39,5 @@ But even I didn’t believe them anymore.
 [Roger's Story](https://www.reddit.com/r/nosleep/comments/1gt8ycn/just_desserts_weight_of_my_desire/)
 
 [Christian's Story](https://www.reddit.com/r/nosleep/comments/1h3e7rq/just_desserts_the_sineater/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Mary's Story](https://www.reddit.com/r/nosleep/comments/1h3ywqb/just_desserts_the_faded_melody/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
