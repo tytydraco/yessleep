@@ -514,4 +514,4 @@ She left the room, closing the door behind her with a soft click.
 
 I stood there, staring at the steaming water, the weight of my loneliness pressing down on me. I didn’t know what scared me more—how close I’d come to falling for it, or how much I still wanted to.
 
-To be Continued
+Part Two: [Wires and Chains Part Two](https://www.reddit.com/r/nosleep/s/jiy2fi5xb8)

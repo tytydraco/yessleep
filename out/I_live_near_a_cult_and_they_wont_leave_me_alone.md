@@ -58,3 +58,10 @@ The forest began to shift and change, I was back in the jungles in that instance
 “BEAR WITNESS…..”  it hissed.  Its voice was high and haunting but beautiful like a choir of angels and a nest of serpents intermingling in a blasphemous harmony. 
 
 I don’t know if I was sobbing or laughing, but I held out my hand to pet my old friend. Briar, beginning to growl, clamped his sharp teeth onto my hand as the sounds of gunshots rang out into the distance. Just like that, I was back in the forest. Briar and his new owner were gone without a trace, I was alone in the darkness. Was it real? It had to be. New Briar’s corpse was still there, savagely ripped apart. Pain throbbed through my hand, revealing a bite mark and a golden coin in my palm. 
+
+
+_________________________________________
+
+[The Vagabond’s Log](https://www.reddit.com/r/nosleep/s/TMA1BDu98l)
+
+
