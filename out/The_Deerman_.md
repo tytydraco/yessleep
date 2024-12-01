@@ -94,7 +94,7 @@ The door was left unlocked like it usually was during the day, and the familiar 
 
 It had been quiet that night, and yet she couldn't sleep; the images of the accident kept seeping back into her thoughts. She remembered the name "Lora" and wondered what it all meant. She flipped over to her other side, facing the bookshelf, and spotted the pack of smokes she had left stashed on the second shelf a month ago. It rested on her copy of 'Bear Walker,' she slid one out.
 
-Even though it had been a month since she quit, she couldn't resist the urge to have just one, especially now after the deer and car accident. And then the haunting nightmare, to boot. The whole thing was just too eerie for words. The first drag was the best; it made her feel grounded and connected to the present moment, as did the cold night. She thought about what Josh had said at the hospital. Maybe he was right; perhaps the car lights spooked the deer into panic, and it lost all direction. It really was the only reasonable explanation, the only one that made any sense, anyway. Her phone bleeped in her pocket. It suddenly occurred that she hadn't checked her messages since yesterday. Josh's name appeared on the screen: Hey, hope you all settled in. How about I drop by with coffee around 1ish tomorrow?
+Even though it had been a month since she quit, she couldn't resist the urge to have just one, especially now after the deer and car accident. And then the haunting nightmare, to boot. The whole thing was just too eerie for words. The first drag was the best; it made her feel grounded and connected to the present moment, as did the cold night. She thought about what Josh had said at the hospital. Maybe he was right; perhaps the car lights spooked the deer into panic, and it lost all direction. It really was the only reasonable explanation, the only one that made any sense, anyway. Her phone bleeped in her pocket. It suddenly occurred that she hadn't checked her messages since yesterday. Josh's name appeared on the screen: Hey, hope your all settled in. How about I drop by with coffee around 1ish tomorrow?
 
 **Julie**: Sure! I take mine, black. :)
 
@@ -120,11 +120,11 @@ She continued, "I haven't slept too well the past couple of days, though."
 
 "Really? Why's that?" He glanced at her briefly, then took a sip of coffee; steam rose, mingling with his breath.
 
-"It's nothing major, really." She shrugged, then took a swig from her own cup; three-quarters of the way done, she could feel the effects of the caffeine already kicking in, giving her a slight energy boost..
+"It's nothing major, really." She shrugged, then took a swig from her own cup; three-quarters of the way done, she could feel the effects of the caffeine already kicking in, giving her a much needed energy boost..
 
 "Come on, just lay it out." He nudged her encouragingly.
 
-They stopped at a large fallen tree and sat down in the middle. That's when Julie opened up about her dreams and the mysterious deerman. When she finished, she downed the rest of her coffee and gazed thoughtfully out at the trees. Waiting for his response.
+They stopped at a large fallen tree and sat down in the middle. That's when Julie opened up about her dreams and the mysterious deerman. When she finished, she downed the rest of her coffee and gazed thoughtfully out at the trees. Half expecting and half hoping he'd provide some logical explanation.
 
 Finally, after a moment or two, he spoke. "This man you're dreaming about reminds me of a story my grandpa Joe told me a few years back when we were out at his camp."
 
@@ -158,7 +158,7 @@ As the door swung open, she gasped in surprise. Before her stood, undoubtedly, t
 
 Lora swooned slightly and wondered if this was all a dream. A handsome man shows up at her door late at night, asking for directions. A feeling of doubt niggled at the pit of her stomach.
 
-She suddenly remembered stories her grandmother told of mysterious, handsome young men in black who would seduce women and take them, never to be seen again.   
+She suddenly remembered stories her grandmother told of mysterious, handsome young men in black who were not really men at all, who would seduce women and take them, never to be seen again.   
 
 "Uh, look, I'm not up for going anywhere tonight. ,"Sorry, I can't help you," Lora replied hesitantly and started closing the door. His gaze locked onto hers with a magnetic pull. He stepped closer, and a mysterious air of energy hung around him. "You should come to the dance with me. It'll be fun. Just forget everything else." In that instant, the energy shifted, enveloping her in a heady aura of intoxicating and alluring magnetism. He was… irresistible. Lora felt her resolve melting away. "Okay… I'll go," she said, despite the smallest protest in the back of her mind. I'll get ready.
 
@@ -266,7 +266,7 @@ It had been a long time since she'd sat with an elder. Amidst the growing peculi
 
 **She texted back:** Okay, I'll be there soon.
 
-With a trade blanket and some tobacco, Julie snuck out quietly and set off down the highway in her mother's car to Josh's grandfather's place on Mukwa Road. Just past Miigwan's Variety Store, the darkness suddenly thickened with unexpected fog. It seemed surreal to see fog in mid-November, but climate change was worsening. Julie slowed her speed, moving cautiously through the formless shapes in the mist. Until one shape became more solid and took the familiar form of a man. He stood off to the side of the road and waved his hand to get her attention. Despite her initial wariness, he seemed non-threatening and claimed to be headed in the same direction. Acting against her better judgment, perhaps because of sympathy, she gave him a ride.  
+With a trade blanket and some tobacco, Julie snuck out quietly and set off down the highway in her mother's car to Josh's grandfather's place on Mukwa Road. Just past Miigwan's craft shop, the darkness suddenly thickened with unexpected fog. It seemed surreal to see fog in mid-November, but climate change was worsening. Julie slowed her speed, moving cautiously through the formless shapes in the mist. Until one shape appeared to become more solid and took the familiar form of a man. He stood off to the side of the road and waved his hand to get her attention. Despite her initial wariness, she pulled over and rolled down the passenger window. He seemed non-threatening and claimed to be headed in the same direction. Acting against her better judgment, perhaps because of sympathy, she offered him a lift.  
 
 Julie dared a quick glance at him, her eyes refocused back on the road. There was something vaguely familiar about the guy, though she was sure she'd never seen him before. He looked young, about her age. Even with his mussed hair partially swept over his eyes, she could tell he was a handsome Nish, mysterious, and kind of sexy; her mind wandered, entertaining thoughts she hadn't had since school began. "So, uh, what's your name?" she asked, trying to keep her mind from lingering in places it probably shouldn't be.
 
