@@ -33,7 +33,7 @@ Most of what Artie would say was babble, him mistaking a plane for a UFO or clai
 
 “You think this little town could have a Waco-situation?” I chuckled, just to split hairs and rile him up.
 
-“No, buddy, Waco was big government picking on the little guy. I know, pretty much for certain, that this Sinclair fella is probably backed by the government. They’ll prey on our core values from the shadows. His name might as well be Rothschild, Clinton, or Bush. And another thing, sure, he looks like a recovering junkie but way younger than he ought to be… Adrenochrome… Look up Adrenochrome…” If I had to listen to another Adrenochrome rant, I’d do Lysander’s work for him and strangle Artie. 
+“No, buddy, Waco was big government picking on the little guy. I know, pretty much for certain, that this Sinclair fella is probably backed by the government. They’ll prey on our core values from the shadows. His name might as well be Rothschild, Clinton, or Bush. And another thing, sure, he looks like a recovering addict but way younger than he ought to be… Adrenochrome… Look up Adrenochrome…” If I had to listen to another Adrenochrome rant, I’d do Lysander’s work for him and strangle Artie. 
 
 Though I despised everyone in this nowhere town, I have grown to like Artie. He’s good people, just the hero of his own little story that he made up in his mind. He might be onto something though. A big church that’s unreasonably secluded, led by a “former” drug addict, has memberships to attend certain services, and goes off a religion that splintered off from Christianity; the whole thing is just a blinking sign that screams “CULT” in the biggest capital letters you’ve ever seen. 
 
@@ -167,7 +167,7 @@ Like the flick of a switch, Lane snapped out of his murderous daze. Throwing him
 
 I was tired of running, tired of lying, tired of trying to survive… The only thing left was hate in my heart, true unbrindled hate for this scrawny old man talking down to me. I spit at him with the most disrespectful and disgusting glob I could cough up, coating his pristine robe in slime.
 
-“Go fuck yourself old man. Do your worst, junkies” I spat defiantly again. Either way, I was probably going to be killed. If I die, I die knowing I wounded his pride.
+“Go fuck yourself old man. Do your worst, freaks” I spat defiantly again. Either way, I was probably going to be killed. If I die, I die knowing I wounded his pride.
 
 “We were wrong about him, Pastor. He is beyond saving. Give him to me and he will suffer greatly for that,” Lane blustered. Spinning around wildly, Lysander gave Lane a nasty backhanded blow. With his calm demeanor melting, Lysander seemed almost animal in that instant.
 
@@ -177,17 +177,19 @@ Lysander’s gaze focused back onto me, regaining that hideous scarred smile. �
 
 “You know nothing about me, no one does, not even your god.”
 
-Lysander cackled and began to sing an excerpt from Gyspies, Tramps, and Thieves by Cher:
+Lysander cackled and began to sing an excerpt from “I Fought the Law” by The Clash:
 
-“Gypsies, tramps, and thieves
+*Breakin' rocks in the hot sun*
 
-We'd hear it from the people of the town
+*I fought the law and the law won*
 
-They'd call us gypsies, tramps, and thieves
+*I fought the law and the law won*
 
-But every night all the men would come around
+*I needed money 'cause I had none*
 
-And lay their money down”
+*I fought the law and the law won*
+
+
 
 I was completely and utterly speechless, there was absolutely no way anyone could comprehend what was happening. It was like whiplash. The naked cultists continued to stare, almost entranced, deathly still surrounding the pastor. 
 
