@@ -1,8 +1,8 @@
-I think I am suffering from some mental health disorder. I must be. Or else nobody could explain the strange events occurring to me. I have no living relatives expect my newly married husband. I loved him. Sorry,I love him. But some very simple things have been upon my nerves. 
+I think I am suffering from some mental health disorder. I must be. Or else nobody could explain the strange events occurring to me. I have no living relatives expect for my newly married husband. I loved him. Sorry,I love him. But some very simple things have been upon my nerves. 
 
 Our marriage was very simple as very few people attended. We moved in a new house. The first weird thing I noticed is our family was very much not that bonded. I don't know whether you can understand. Our family consists of me, my husband,his sister. We are residing in his house.
 
-The woman he calls as sister looks like very much unrelated. I can easily say someone is adopted. They look not a bit related. But this is not the problem. My husband and his sister knows nothing abt each other. Once she was cooking a meal and added something which is not good with my husband's stomach. She says she forget it. I didn't let my nose in that matter anymore. I let it go.
+The woman he calls as sister looks like very much unrelated. I can easily say someone is adopted. They look not a bit related. But this is not the problem. My husband and his sister knows nothing abt each other. Once she was cooking a meal and added something which is not good with my husband's stomach. She says she forget it. I didn't meddle with that matter anymore. I let it go.
 
 Jay(husband) said they were orphans as their parents died in a tragic accident. I was speaking with Lily(sister) when she said that she can't stop worrying of her parents' whenever she see a pneumonia patient. I asked why. She looked at me like ,I am a stranger sitting in her house, saying that pneumonia killed her parents.
 
