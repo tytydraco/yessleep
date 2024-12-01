@@ -324,3 +324,6 @@ Like always, I need your help. Kaz can’t fight, i can’t reach JP, and Mike h
 Please, hurry, and everyone give their ideas. Because of all the things I expected, literally going through hell isn’t one of them. 
 
 
+How things are progressing:
+
+https://www.reddit.com/r/nosleep/s/psd8rfplBN
