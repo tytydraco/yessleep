@@ -10,7 +10,7 @@ Tonight I’m drunk, I feel a little dizzy but mostly giddy. I quit my shitty fa
 
 I don’t know where my next rent check is coming from but I sure as hell feel good about my choice. I’ve worked there since I was sixteen, I’m twenty two now. I physically cannot flip another burger.
 
-My ride ditched me an hour ago. I should never have come with her, I’ve worked with Chelsea for two years and she doesn’t exactly have the reputation of being responsible. Last I saw her I she was slinking away with some bearded dude.
+My ride ditched me an hour ago. I should never have come with her, I’ve worked with Chelsea for two years and she doesn’t exactly have the reputation of being responsible. Last I saw her she was slinking away with some bearded dude.
 
 Whatever. I’m too drunk to care. I step outside to breathe the fresh air.
 

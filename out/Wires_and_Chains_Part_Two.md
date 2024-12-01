@@ -332,6 +332,76 @@ I felt lighter, freer, almost euphoric, but it was a strange, hollow kind of bli
 
 As I lay there, the storm rumbling faintly in the distance, I couldn’t help but wonder: what even was real anymore?
 
+I awoke to the sound of shouting.
+
+It ripped me from a deep, dreamless sleep, and for a moment, I was disoriented. The world around me was too vivid, too sharp. The warmth of the blankets, the soft glow of morning light filtering through the curtains—it all felt surreal.
+
+Then the crash came. Steel against wood, splintering loudly, followed by heavy, deliberate footsteps.
+
+The door to my room exploded inward, the frame shattering as two hulking figures stormed inside. Orcs. Massive, brutish creatures clad in jagged red armor, their tusked faces twisted in snarls.
+
+“Up!” one of them barked, his voice guttural and commanding.
+
+I barely had time to move before one of them grabbed me, yanking me from the bed with a force that made my head spin. My arms were wrenched behind me, and I felt the rough bite of rope as they bound my wrists tightly.
+
+“What’s going on?” I stammered, struggling against their grip.
+
+The orc didn’t answer. Instead, he shoved me forward, out into the hallway, where chaos unfolded.
+
+The shouts echoed throughout the manor, blending with the clang of metal and the heavy thud of boots on the wooden floors. Tianna and Gregory were ahead of me, similarly bound, their faces tense but determined. Henry was there too, his expression grim, his shoulders slumped in a way that made him look smaller than he was.
+
+But something was wrong. As we were dragged through the halls, I couldn’t help but notice the eerie stillness in the air. The fox butlers were nowhere to be seen. Neither were Henry’s children.
+
+Instead, there was blood.
+
+It streaked the walls and pooled on the floors, the once-pristine manor now smeared with crimson. The sight of it made my stomach twist, and I couldn’t bring myself to ask the question burning in my mind: Where was Henry’s family?
+
+We were hauled outside into the cold morning air, the storm from the night before leaving the ground damp and muddy. The orcs moved with brutal efficiency, shoving us into a circle at the center of the courtyard.
+
+I stumbled, falling to my knees as one of them barked an order. Gregory and Tianna were beside me, their faces hard with defiance. Maple knelt on Henry’s other side, her once-graceful demeanor shattered, her eyes wide with fear.
+
+And Henry… Henry looked broken.
+
+He didn’t fight, didn’t resist as they forced him to his knees. His head hung low, his expression hollow, his hands trembling slightly against the ropes binding his wrists.
+
+The orcs stood around us in a ring, their weapons glinting in the morning light, their armor splattered with blood.
+
+And then they parted.
+
+A figure emerged from their ranks, small and familiar, striding forward with an air of confidence that turned my confusion into cold dread.
+
+Skibidi.
+
+But this wasn’t the Skibidi I’d met last night. Gone was the scrappy gnome in the patchwork cloak. He was clad in jagged red armor that matched the orcs, the plates clinking softly as he moved. A sword hung at his hip, and his once-cheerful face was now a mask of smug triumph.
+
+“Sorry, Henry,” he said, his voice loud and cutting. “But you’ve got a lot of loot. And this house? It’s too nice not to be mine.”
+
+Henry didn’t respond. His shoulders sagged further, his defeat palpable.
+
+I stared at Skibidi, my mind reeling. “What the hell is this?” I demanded, my voice shaking.
+
+Skibidi smirked, tilting his head as he looked at me. “What does it look like, assface? A takeover. Gotta climb the ladder somehow, and Henry here’s sitting on prime real estate.”
+
+“Skibidi, you little—” Gregory began, but an orc cut him off with a sharp shove, sending him sprawling into the mud.
+
+“Careful,” Skibidi said, wagging a finger at Gregory. “Don’t make me regret keeping you alive.”
+
+I couldn’t wrap my head around it. Skibidi, the loudmouthed, arrogant gnome who’d been joking and eating with us just hours ago, was now orchestrating this?
+
+“This isn’t a game,” I said, glaring at him.
+
+“Sure it is,” Skibidi replied, his grin widening. “And I’m winning.”
+
+He turned to Henry, his expression softening in a way that was almost mocking. “Don’t take it personally, Henry. You’ve had your time. But you know how it is—big fish, little fish. Circle of life, all that crap.”
+
+Henry finally lifted his head, his eyes meeting Skibidi’s. “You don’t understand what you’ve done,” he said quietly, his voice heavy with something deeper than anger.
+
+“Oh, I understand perfectly,” Skibidi shot back. “I’ve done what nobody else had the balls to do. You got soft, Henry. And I’m here to fix that.”
+
+I glanced at Maple, her face pale, her eyes filled with terror. For the first time since arriving in this world, I realized just how fragile this supposed paradise really was.
+
+And just how dangerous Skibidi could be.
+
 Skibidi circled us like a predator savoring his triumph, his small frame carrying an air of exaggerated authority as he addressed his captive audience.
 
 “See, here’s the deal,” he began, his tone smug. “You lot? You’re the perfect tribute. Naamah’s gonna love this. Three of her enemies!” He paused, his gaze falling on me, his grin widening. “Whatever the hell you are.”
@@ -460,35 +530,5 @@ Hair—no, fur-erupted from my skin in patches, the sensation like needles stabb
 The pain was relentless, a consuming fire that devoured every part of me. My screams turned guttural, animalistic, as my voice gave way to a deep, rumbling growl.
 
 And then it stopped.
-
-I stood there, panting, the remnants of my shredded clothing clinging to my massive frame. The orcs had released me, stepping back with wide eyes and uncertain grips on their weapons. I could see their fear, smell it
-—a sharp, acrid scent that made something primal stir in my chest.
-
-Ilooked down at my hands—or what had once been my hands. They were monstrous now, clawed and powerful, dripping with mud and blood.
-
-My reflection flickered in a puddle at my feet, distorted but unmistakable. A werewolf.
-I wasn't human anymore.
-
-The realization hit me like a thunderclap, but there was no time to process it. One of the orcs roared, raising his axe, but I moved before he could even swing.
-
-I lunged, my claws tearing through his armor like paper, the force of the blow sending him sprawling. Another or charged, but I turned on him, my teeth bared in a snarl.
-
-The world around me dissolved into chaos, my senses overwhelmed by the sharp tang of blood, the deafening clash of steel, and the animalistic fury coursing through my veins.
-
-I wasn't in control. Not fully. But I didn't care.
-All that mattered was the fight-the need to protect, to destroy, to end this madness.
-
-The world around me dissolved into chaos, my senses overwhelmed by the sharp tang of blood, the deafening clash of steel, and the animalistic fury coursing through my veins.
-
-I wasn't in control. Not fully. But I didn't care.
-All that mattered was the fight-the need to protect, to destroy, to end this madness.
-
-Through the haze, I saw Gregory and Tianna, their faces stunned but alive. I saw Skibidi, his smug grin replaced by wide-eyed panic as he stumbled backward, his tiny form dwarfed by the chaos around him.
-
-And for the first time, I felt hope. Twisted, horrifying hope.
-
-I wasn't sure what l'd become, but I was sure of one thing: this world wasn't going to win.
-
-Everything went black.
 
 To be Continued.

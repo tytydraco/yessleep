@@ -8,9 +8,9 @@ Julie's thumbs moved deftly over the keypad: "No worries. See you soon. Xo."
 
 Driving alone at night made her acutely aware of her solitude. The occasional flicker of wildlife eyes was the only break in the emptiness. Then, about a half mile ahead, she spotted something enormous standing in the middle of the road; a buck, the biggest she'd ever seen. The car slowed to a complete stop a safe distance away, and she peered over the dash, surveying him carefully. He was tall and magnificent. Antlers stretched majestically upward from his head, looking regal and poised like a picture frozen in time.
 
-Julie nodded. "Boozhoo, Waawashkesh," she said with a tone of respect. His gaze fixed somewhere beyond the glare at the windshield, a sight that sent an inexplicable shiver down Julie's spine. Then, suddenly, the buck sprang toward her; the sickening thud of his body collapsing against the hood was followed by the shattering of her windshield. Glass pieces peppered her skin as his antlers thrust through the broken glass, mere inches from her face. Lydia screamed in terror as she pushed back in the seat as far as she could go. Her hand fumbled with the door; there was an awful grinding sound as she shimmied it open. The buck's convulsions caused the hood to groan under its weight. It stared blankly, eyes bloodied and bulging in a way that would haunt her forever.
+Julie nodded. "Boozhoo, Waawashkesh," she said with a tone of respect. His gaze fixed somewhere beyond the glare at the windshield, a sight that sent an inexplicable shiver down Julie's spine. Then, suddenly, the buck sprang toward her; the sickening thud of his body collapsing against the hood was followed by the shattering of her windshield. Glass pieces peppered her skin as his antlers thrust through the broken glass, mere inches from her face. Lydia screamed in terror as she pushed back in the seat as far as she could. Her hand fumbled with the door; there was an awful grinding sound as it shimmied it open. The buck's convulsions caused the hood to groan under its weight. It stared blankly, eyes bloodied and bulging in a way that would haunt her forever.
 
-Julie stumbled out of the car and onto the roadway into a pair of oncoming headlights. A horn blared loudly, causing her heart to jump. She lunged out of the way as the other vehicle flew past and came to a screeching halt. She collapsed onto the cold pavement.
+Julie stumbled out onto the roadway and into a pair of oncoming headlights. A horn blared loudly, causing her heart to jump. She lunged out of the way as the other vehicle flew past and came to a screeching halt. She collapsed onto the cold pavement.
 
 The last thing she saw was a blurry shape approaching, and a man's warbled voice spoke as she faded into unconsciousness, "Miss? Miss? Are you alright? Help is on the way."
 
@@ -32,7 +32,7 @@ The deer. Julie remembered it all now. The deer had charged at her. "Yeah, he ca
 
 Nurse Lumley offered a sympathetic smile. "Well, you're safe now, dear, and don't you worry about those nasty cuts; they'll be gone in no time."  
 
-Julie's mother, Mary walked into the room, carrying two large coffees in a tray. "Good, you're awake." She set the tray on the bedside table and sat in a seat next to her.
+Julie's mother, Mary walked into the room, carrying two large coffees in a tray. "Good, you're awake." She set the tray on the bedside table and sat next to her.
 
 Nurse Lumley finished fluffing and straightening the pillows. "There, all nice and comfy now." She straightened. "The doctor's going to be in soon to see you. Click the button if you need anything in the meantime." She pointed to the call button at Julie's side. Julie nodded, and the nurse departed.
 
@@ -62,9 +62,9 @@ Officer Josh Miigizi came in after Dr. Swanson left. Julie's face lit up. "Josh!
 
 "Hey Julie, long time no see." He smiled warmly, then turned and nodded at her mom, "Mrs. Waabigwan."  
 
-"Aanii Josh, come on in." She nodded back and smiled; it made her heart glad to see Julie's face light up. Then she got up and conveniently excused herself to find a washroom so they could talk. Julie patted a clear spot on her bed next to her. "come, sit," she commanded.
+"Aanii Josh, come on in." She nodded back and smiled; it made her heart glad to see Julie smiling again. Then she got up and conveniently excused herself to find a washroom so they could talk. Julie patted a clear spot on her bed next to her. "come, sit," she commanded.
 
-They spent the next ten minutes discussing the details of the accident at length for the report. They then graciously moved on to lighter subjects, like what's been transpiring in their lives up to the present. Julie gave him a quick three-minute summary about her pursuing a Creative Writing degree in Burry, a three-hour commute away. Josh shared he had joined the police force right after high school and returned to the island after his father's passing. He'd inherited his dad's house and lived there ever since.
+They spent the next while discussing the details of the accident at length for the report. They then graciously moved on to lighter subjects, like what's been transpiring in their lives up to the present. Julie gave him a quick three-minute summary about her pursuing a Creative Writing degree in Burry, a three-hour commute away. Josh shared he had joined the police force right after high school and returned to the island after his father's passing. He'd inherited his dad's house and lived there ever since.
 
 "Hey, how about I swing by with coffee tomorrow? We can catch up some more."
 
@@ -76,7 +76,7 @@ Moments later, Mary reappeared, looking more refreshed. "Well? Are you ready to 
 
 \---
 
-It was good to be back on the rez again; on the way home, they stopped at Mogey's Variety just past two o'clock corner for some groceries and snacks. The sky was a slate grey; its smooth surface stretched for miles without a break in the cloud surface. It gave the land and the leafless trees a shadowy, colourless feel. Julie wished she had brought her sketchbook and pencils along to do some drawing while she was out here.
+It was good to be back on the rez again; on the way home, they stopped at Mogey's Variety just past two o'clock corner for some groceries and snacks. The sky was a slate grey; its smooth surface stretched for miles without a break in the cloud surface. It gave the land and the leafless trees a shadowy, colourless feel. Julie wished she had brought her sketchbook and pencils along for the trip.
 
 "You need anything else before we go home?" Her mom interrupted her reverie as she fiddled with the music playlist, trying to get it to play again.
 
@@ -86,15 +86,15 @@ Oh, yeah, that's right, you'd think I'd remember that by now," her mom said, rel
 
 The house seemed quiet, as if it were asleep. Her uncle's dog, Benji, from next door, waited near the front steps, his tail wagging cheerfully.
 
-"Awe, Benji," her mom was soft-spoken.
+"Awe, Benji," her mom's tone was soft-spoken.
 
 Benji waited for the car to park before circling around to greet Julie. She patted him gently. He was old in years, but still a happy boy, nonetheless.
 
 The door was left unlocked like it usually was during the day, and the familiar scent of cinnamon air freshener told her she was home. Her mom headed to her room to put her purse away, calling back over her shoulder, "Oh, before I forget, Josh dropped off your bag last night; it's by the couch." Julie sighed with immense relief; her laptop and favourite books were in that bag, including a couple of first editions.
 
-It had been quiet that night, and yet she couldn't sleep; the images of the accident kept creeping back into her thoughts. She remembered the name "Lora" and wondered what it all meant. She flipped over to her other side, facing the bookshelf, and spotted the pack of smokes she had left stashed on the second shelf a month ago. It rested on her copy of 'Bear Walker,' she slid one out.
+It had been quiet that night, and yet she couldn't sleep; the images of the accident kept seeping back into her thoughts. She remembered the name "Lora" and wondered what it all meant. She flipped over to her other side, facing the bookshelf, and spotted the pack of smokes she had left stashed on the second shelf a month ago. It rested on her copy of 'Bear Walker,' she slid one out.
 
-Even though it had been a month since she quit, she couldn't resist the urge to have just one, especially now after the deer and car accident. And then the haunting nightmare, to boot. The whole thing was just too eerie for words. Her first drag was the best; it made her feel grounded and connected to the present moment, as did the cold night air. She thought about what Josh had said at the hospital. Maybe he was right; perhaps the car lights spooked the deer into panic, and it lost all direction. It really was the only reasonable explanation, the only one that made any sense, anyway. Her phone bleeped in her pocket. It suddenly occurred that she had yet to check her messages since yesterday. Josh's name appeared on the screen: Hey, hope you all settled in. How about I drop by with coffee around 1ish tomorrow?
+Even though it had been a month since she quit, she couldn't resist the urge to have just one, especially now after the deer and car accident. And then the haunting nightmare, to boot. The whole thing was just too eerie for words. The first drag was the best; it made her feel grounded and connected to the present moment, as did the cold night. She thought about what Josh had said at the hospital. Maybe he was right; perhaps the car lights spooked the deer into panic, and it lost all direction. It really was the only reasonable explanation, the only one that made any sense, anyway. Her phone bleeped in her pocket. It suddenly occurred that she hadn't checked her messages since yesterday. Josh's name appeared on the screen: Hey, hope you all settled in. How about I drop by with coffee around 1ish tomorrow?
 
 **Julie**: Sure! I take mine, black. :)
 
@@ -106,9 +106,9 @@ A tall figure stood out from the shadows, unaffected by the cold. Watching the h
 
 \---
 
-The savoury scent of bacon sizzling and freshly brewed coffee pulled Julie from sleep. Again, she'd been dreaming of 'him' - the attractive man with dark hair and deep-set eyes, only this time he motioned for her to follow him into dense woods. In the peaceful scene behind him, colourful birds took flight, and a young fawn, its large brown eyes sparkling with innocence, darted amongst the sun-dappled trees. The dream felt so real; she reached out with a pang of yearning to follow him into the enchanting woods. Yet, like water between her fingers, the dream slipped away, leaving only the ache of wanting.
+The savoury scent of bacon sizzling and freshly brewed coffee pulled Julie from sleep. Again, she'd been dreaming of 'him' - the attractive man with dark hair and deep-set eyes, only this time he motioned for her to follow him into dense woods. In the peaceful scene behind him, colourful birds took flight, and a young fawn, its large brown eyes sparkling with innocence, darted amongst the sun-dappled trees. The dream felt so real; she reached out with a pang of yearning to follow him into those woods. Yet, like water between her fingers, the dream slipped away, leaving only the ache of wanting.
 
-During breakfast, her mom spoke enthusiastically about a gathering she was heading to this morning with the aunties, and she invited Julie to tag along with them. She declined her mom's offer, explaining that she had already made plans to spend the day with Josh. Mary playfully nudged her daughter, insinuating that they might wind up becoming a thing. Julie laughed. Though Josh was good-looking, the idea of dating anyone right now seemed ludicrous. Since the beginning of her studies, there was little time to think about dating. Period.
+During breakfast, her mom spoke enthusiastically about a gathering she was heading to this morning with the aunties, and she invited Julie to tag along with them. She declined her mom's offer, explaining that she had already made plans to spend the day with Josh. Mary playfully nudged her daughter, insinuating that they might wind up becoming a thing. Julie laughed. Though Josh was good-looking, the idea of dating right now seemed ludicrous. Since the beginning of her studies, there was little time for much else. Period.
 
 That afternoon, Josh and Julie took a leisurely stroll through the woods behind the house with coffees in hand. The sun glared in the clear November sky, casting a cool haze over everything. "So, how are ya today? Still hurtin?"
 
@@ -120,7 +120,7 @@ She continued, "I haven't slept too well the past couple of days, though."
 
 "Really? Why's that?" He glanced at her briefly, then took a sip of coffee; steam rose, mingling with his breath.
 
-"It's nothing major, really." She shrugged, then took a swig from her own cup; three-quarters of the way done, she could feel the effects of the caffeine already kicking in and was glad for it.
+"It's nothing major, really." She shrugged, then took a swig from her own cup; three-quarters of the way done, she could feel the effects of the caffeine already kicking in, giving her a slight energy boost..
 
 "Come on, just lay it out." He nudged her encouragingly.
 
@@ -304,4 +304,4 @@ Julie collapsed in Josh's arms, and he held her close, rubbing her back with rea
 
 "Not this time, Waawasshkesh Nini, not this time," Grandpa Joe spoke, seeing that Julie and Josh were together and safe; he lowered his rattle, his face shining from perspiration. He nodded. It is done.
 
-The End.  
+The End.
