@@ -6,7 +6,7 @@ The other homeowner was hysterical, screaming, “It’s still down there! Kill 
 
 With some difficulty, EMS loaded both victims into an ambulance.
 
-Shortly after the vehicle departed, remaining responders observed an individual climbing out of the canyon. 
+Shortly after the vehicle departed, remaining responders observed an individual climbing out of the canyon. 
 
 An individual who was identical to the homeowner with burned hands.
 
@@ -18,13 +18,13 @@ This might have been the end if the entity at the center of this incident did no
 
 The events that followed this relocation attempt were highly unfortunate. In fact, the only benefit was that it drew the attention of the Agency of Helping Hands.
 
-V-Class agent Charles W. successfully apprehended the entity, a feat he credits to his extensive experience with domesticated birds. Charles W. would like to note that his experience with this entity inspired him to pursue a psychiatry degree, which eventually led to the establishment of the agency’s Inmate Therapy Program. 
+V-Class agent Charles W. successfully apprehended the entity, a feat he credits to his extensive experience with domesticated birds. Charles W. would like to note that his experience with this entity inspired him to pursue a psychiatry degree, which eventually led to the establishment of the agency’s Inmate Therapy Program. 
 
-After taking the entity into custody, the agency learned very quickly that the burned home had been the site of extensive violent phenomena for decades. 
+After taking the entity into custody, the agency learned very quickly that the burned home had been the site of extensive violent phenomena for decades. 
 
-They located the first homeowner, Mrs. Woodard, who brought her widowed daughter and grandson to live with her many years ago. The arrangement ended in tragedy when the child passed after falling into the canyon. Following his death, the mother became markedly unstable and vanished some six months later. The homeowner herself vacated the home following an assault perpetuated by an attacker “pretending to be my daughter.” 
+They located the first homeowner, Mrs. Woodard, who brought her widowed daughter and grandson to live with her many years ago. The arrangement ended in tragedy when the child passed after falling into the canyon. Following his death, the mother became markedly unstable and vanished some six months later. The homeowner herself vacated the home following an assault perpetuated by an attacker “pretending to be my daughter.” 
 
-Years later, a couple called Moore purchased the home. Unfortunately, Mr. Moore suffered an aggressive terminal cancer diagnosis during escrow, and passed away three months later. 
+Years later, a couple called Moore purchased the home. Unfortunately, Mr. Moore suffered an aggressive terminal cancer diagnosis during escrow, and passed away three months later. 
 
 The following summer, Mrs. Moore hosted a birthday party for her son. Unfortunately, the party itself was marred by tragedy when a guest vanished. Extensive search efforts were futile.
 
@@ -42,17 +42,17 @@ The reputation was not undeserved, as a documented string of disasters befell an
 
 The best-documented of these incidents involves a young man named Adam, whose brother Jason (known to suffer from severe substance abuse disorder) vanished shortly before Adam moved into the home with his mother. According to multiple witnesses, Jason moved in some two weeks later. The situation ended abruptly when Jason attacked their mother for “leaving for a work trip,” causing Adam to retaliate. The injuries inflicted upon Adam necessitated a hospital stay, after which Adam and his mother vacated the house. According to available records, Jason never resurfaced.
 
-After investigating these and many other events,  the agency came full circle to the young homeowners who had been grievously injured during the house fire. 
+After investigating these and many other events,  the agency came full circle to the young homeowners who had been grievously injured during the house fire. 
 
 In 2009, the couple, Kara and Julian, took advantage of the housing crisis to purchase their dream home.
 
 At risk of falling into cliche, the dream became a nightmare.
 
-The situation brought out the worst. Their volatile relationship cratered to new lows. Each accused the other of chaotic, manipulative, coercive, and abusive behavior while denying that they themselves were engaging in such behavior. 
+The situation brought out the worst. Their volatile relationship cratered to new lows. Each accused the other of chaotic, manipulative, coercive, and abusive behavior while denying that they themselves were engaging in such behavior. 
 
 The stress combined with the treatment they inflicted upon each other resulted in the breakdown of their relationship. Kara remained in the home. Julian moved out.
 
-Rather than settle, however, the situation escalated. 
+Rather than settle, however, the situation escalated. 
 
 Within two weeks, Julian was accusing Kara of violently stalking him and harassing him with “verbal vomit.”
 
@@ -60,7 +60,7 @@ Kara, in turn, was accusing Julian of violently stalking *her* while engaging in
 
 The situation came to a head one night when Kara — facing down an erratic Julian during yet another violent stalking incident — shot him in self-defense…
 
-Right as a second Julian walked through the front door, ostensibly to confront her for stalking him earlier that day. 
+Right as a second Julian walked through the front door, ostensibly to confront her for stalking him earlier that day. 
 
 As Kara struggled to process this development, the body she’d just shot shuddered back to life and ran into the basement.
 
@@ -80,7 +80,7 @@ Sometimes the meanings assigned by the inmate were correct. Sometimes, they were
 
 As a result of this language barrier, the inmate’s extensive dealings with the human beings are best described as a terrifying comedy of errors.
 
-Objectively, the inmate’s actions most closely resembled that of a possessive, obsessive stalker. As with many stalkers, the inmate’s motivation was not fundamentally malicious. 
+Objectively, the inmate’s actions most closely resembled that of a possessive, obsessive stalker. As with many stalkers, the inmate’s motivation was not fundamentally malicious. 
 
 As with any stalker, however, the motivation did not mitigate the disastrous impact of its actions.
 
@@ -88,7 +88,7 @@ Once the language barrier was addressed, the inmate proved eager to “learn how
 
 While still in a highly prolonged training program, the inmate is currently assigned as a field partner to V-Class agent Gabriella W. and is, by all accounts, thriving.
 
- The inmate’s preferred name is Love. 
+ The inmate’s preferred name is Love. 
 
 When not in active transformation, Love takes the form of a human being with a very pale, smooth complexion not dissimilar to the texture and general appearance of classical theater masks.
 
@@ -96,7 +96,7 @@ Love’s mouth is lipless. Proportionally, it is excessively long for their face
 
 Love has only two expressions: A smile that stretches up to their ears, or a frown that descends to the corners of their chin. These expressions often induce discomfort in viewers.
 
-Love also wears a blindfold at all times. This blindfold does not appear to impede their vision. When asked why they wear the blindfold, they simply respond, 
+Love also wears a blindfold at all times. This blindfold does not appear to impede their vision. When asked why they wear the blindfold, they simply respond, 
 
 “Because love is blind.”
 
@@ -114,7 +114,7 @@ The interviewer notes that she strongly feels Love does not possess the requisit
 
 **Interview Subject: The Lover**
 
-**Classification String: Cooperative / Destructible / Agnosto / Protean / Moderate / Deinos** 
+**Classification String: Cooperative / Destructible / Agnosto / Protean / Moderate / Deinos** 
 
 **Interviewer: Rachele B.**
 
@@ -124,7 +124,7 @@ My house has always been haunted. I have always been the ghost.
 
 I lived in my house before it was my house, back when it was just my canyon. I lived in my canyon before it was a canyon, back when it was still a river greater and mightier than anything any living creature on the earth has ever seen. Isn’t that wonderful? The river runs dry, but the canyon remains.
 
-I’m sorry. I shouldn’t say those words. Those aren’t my words. Those are the words of my first love. I say her words a lot. I say everyone’s words a lot because people know what they mean what *they* say things. They don’t always know what you mean when *you* say things. It’s easier to say what they already said. 
+I’m sorry. I shouldn’t say those words. Those aren’t my words. Those are the words of my first love. I say her words a lot. I say everyone’s words a lot because people know what they mean what *they* say things. They don’t always know what you mean when *you* say things. It’s easier to say what they already said. 
 
 Where I come from, that’s just how things are.
 
@@ -132,13 +132,13 @@ I don’t know how to tell you about where I come from. It’s nice, but none of
 
 One of my loves called me a *piece of cosmic corruption that lives in a rotten patch in the fabric of reality*. He also called me a monster, but I’m not a monster. I don’t want to hurt anyone. I just want to be what someone wants. I just want to be loved.
 
-My first love called me an abomination. I miss her. I wanted to be what she wanted. She wanted something I was not, so I made myself into what she wanted.  If I could go back, I would do things differently. I would not try so hard to be what I’m not.
+My first love called me an abomination. I miss her. I wanted to be what she wanted. She wanted something I was not, so I made myself into what she wanted.  If I could go back, I would do things differently. I would not try so hard to be what I’m not.
 
 My last love said something once. I’m going to use her words, because she is good at explaining things. It’s one of the things I love about her.
 
 She said:
 
-*No matter what anybody tells you, relationships are performative.* 
+*No matter what anybody tells you, relationships are performative.* 
 
 *Debate the ethics if you want. Whine about the unfairness if you must. It doesn’t change the fact that performing well, you get you what you want. You get the relationship itself. You get somebody you want. Most importantly, you get to be someone that somebody else wants.*
 
@@ -156,7 +156,7 @@ She said:
 
 *Hell, it would be funny if it wasn’t me.*
 
-*Being something someone else wants is always more fun than being you, right up until your facade fails. Because that’s eventually what happens you pretend to be someone you’re not:* 
+*Being something someone else wants is always more fun than being you, right up until your facade fails. Because that’s eventually what happens you pretend to be someone you’re not:* 
 
 *You fall apart.*
 
@@ -174,7 +174,7 @@ I was so happy when they moved in. I was excited to have two new loves instead o
 
 But I didn’t get two loves.
 
-Can I tell you a secret? A mean secret? 
+Can I tell you a secret? A mean secret? 
 
 I don’t think my new loves loved each other at all.
 
@@ -190,7 +190,7 @@ One night they were so unloving they scared their visitors. They scared themselv
 
 That’s why I helped them leave each other.
 
-I can become whoever I want. It’s very easy, but also very easy to do it wrong. To do it right, I have to know all the specifics of who I turn into. That’s gotten me in a lot of trouble before — making myself look like someone without knowing all the details. 
+I can become whoever I want. It’s very easy, but also very easy to do it wrong. To do it right, I have to know all the specifics of who I turn into. That’s gotten me in a lot of trouble before — making myself look like someone without knowing all the details. 
 
 Of course I knew all the details of my new loves, so it was very easy to become them. That’s how I helped them leave each other:
 
@@ -202,7 +202,7 @@ I hate it when my loves leave me.
 
 *I hate it.*
 
-But they didn’t talk to each other. They just believed me, even with all the crazy things I did. It was sad. But it made me glad too, because it proved I was right to help them leave each other. 
+But they didn’t talk to each other. They just believed me, even with all the crazy things I did. It was sad. But it made me glad too, because it proved I was right to help them leave each other. 
 
 I just wanted them to be happy. That’s the big reason why I made them leave each other: To make them happy.
 
@@ -238,7 +238,7 @@ Here is what my last love said:
 
 That’s what my love sayid. Isn’t she eloquent? Isn’t she wonderful?
 
-When the fight was over, Julian left my love. 
+When the fight was over, Julian left my love. 
 
 I thought my love would be happy, but it destroyed her.
 
@@ -288,7 +288,7 @@ But I didn’t know how to tell them that, and because I couldn’t tell them, t
 
 And I got very scary.
 
-But I only got so scary because I loved them so much. Because they were leaving me and I *hate it when they leave me.* 
+But I only got so scary because I loved them so much. Because they were leaving me and I *hate it when they leave me.* 
 
 When they couldn’t kill me, they tried to make me leave. They didn’t understand that I loved them too much to ever leave them. I wanted them forever. I wanted them to live in my house, the house that I lived in before it was my house, back when it was just my canyon. I lived in my canyon before it was a canyon, back when it was still a river greater and mightier than anything any living creature on the earth has ever seen. Isn’t that wonderful? The river runs dry, but the canyon remains.
 
@@ -354,11 +354,11 @@ It wasn’t him.
 
 *A big fake cartoon meow.*
 
-*The thing is, Snowy never meowed. She was born  feral. Cats don’t really meow unless they live with people when they’re kittens, which she didn’t. So even though I wanted to believe, that meow made it so I couldn’t.* 
+*The thing is, Snowy never meowed. She was born  feral. Cats don’t really meow unless they live with people when they’re kittens, which she didn’t. So even though I wanted to believe, that meow made it so I couldn’t.* 
 
 *After that meow, I ran upstairs and I never saw that thing again.*
 
-Can you believe he called me a thing? 
+Can you believe he called me a thing? 
 
 I know I was mean. I know I lost my temper and hurt him so badly when I thought they were leaving me. It was wrong.
 
@@ -366,9 +366,9 @@ But being wrong doesn’t make me a *thing*.
 
 My third love wasn’t any kinder. He is the only love I ever took to see where I came from. Here’s what he said:
 
-*I was at the party. My skin fell off at the party. It tried to grow back, but it can’t. See? It can’t grow back right. It can only grow.* 
+*I was at the party. My skin fell off at the party. It tried to grow back, but it can’t. See? It can’t grow back right. It can only grow.* 
 
-*I was at the party. I never left the party. They said I left, but I never did. We were playing a couch co-op. There were nine kids but only four controllers, and I wasn’t good at playing, so I was stuck watching while everybody else played. I got bored and went down to the basement. I liked the basement. It’s where the sister lived. Samantha. She was beautiful.* 
+*I was at the party. I never left the party. They said I left, but I never did. We were playing a couch co-op. There were nine kids but only four controllers, and I wasn’t good at playing, so I was stuck watching while everybody else played. I got bored and went down to the basement. I liked the basement. It’s where the sister lived. Samantha. She was beautiful.* 
 
 *But she wasn’t home, so I picked a book off her shelf and sat by that creepy little closet with all the drawings that keep coming back. They will always come back.*
 
@@ -422,7 +422,7 @@ This is what my first love said:
 
 *So I left.*
 
- *That abomination tried to stop me. It was enraged. It followed me for years, wearing my daughter’s face. My priest said it was a demon, but he was wrong. You can exorcise a demon. You can’t exorcise grief. Or longing. Or madness. Or loneliness.*
+ *That abomination tried to stop me. It was enraged. It followed me for years, wearing my daughter’s face. My priest said it was a demon, but he was wrong. You can exorcise a demon. You can’t exorcise grief. Or longing. Or madness. Or loneliness.*
 
 *And it is lonely. Terribly, terribly lonely.*
 
@@ -434,9 +434,9 @@ My second-to-last love said the meanest things of all. She said,
 
 *I was a grad student when my parents bought the house. They shouldn’t have bought it. It was expensive, and my dad was dying. If they’d tried to buy that house today, they’d get laughed out of the bank. But it was different then.*
 
-*I lived at home to save money and take care of Dad, so I was there for the final walkthrough. I was so disappointed. The house was so cramped. There wasn’t even any space for me. I made some smartass remark about how my dearest wish was for a walkout basement or something lame like that.* 
+*I lived at home to save money and take care of Dad, so I was there for the final walkthrough. I was so disappointed. The house was so cramped. There wasn’t even any space for me. I made some smartass remark about how my dearest wish was for a walkout basement or something lame like that.* 
 
-*Well, here’s the thing:* 
+*Well, here’s the thing:* 
 
 *On the day we moved in, the house had a basement suite.*
 
@@ -456,7 +456,7 @@ My second-to-last love said the meanest things of all. She said,
 
 *I told you my dad died a few months before. Well, a little while after that party, he came back.*
 
-*Crawled out of that closet right before my eyes, and said, “The river runs dry, but the canyon remains. Come see.”* 
+*Crawled out of that closet right before my eyes, and said, “The river runs dry, but the canyon remains. Come see.”* 
 
 *My mom thought it was a miracle. My brother ran away. And I…I moved out.*
 
@@ -484,9 +484,9 @@ My second-to-last love said the meanest things of all. She said,
 
 *I wasn’t alone anymore.*
 
-*Something was in the house with me now.* 
+*Something was in the house with me now.* 
 
-*But it didn’t come out, so I left. To give it time, I guess.* 
+*But it didn’t come out, so I left. To give it time, I guess.* 
 
 *When I came back a few days later, I saw this dark shape watching me from that closet.*
 
@@ -522,11 +522,11 @@ My second-to-last love said the meanest things of all. She said,
 
 *I think whatever it is doesn’t belong here. I think it came from somewhere else. Burrowed here and settled in, or under, or around that house. Wearing it like a mask. Wearing the* people *inside the house like masks. Pretending to be what it thinks we want so we won’t leave. Maybe it wasn’t always a monster. Maybe something made it that way. Or maybe not. I don’t care. I don’t care at all. Don’t ever contact me again.*
 
-That’s what I was talking about when I said I can make myself look like anybody, but it’s easy to get the details wrong. 
+That’s what I was talking about when I said I can make myself look like anybody, but it’s easy to get the details wrong. 
 
 I got details really wrong that time. That’s what happens when you can’t communicate. You make mistakes.
 
-And those mistakes cost me my love. 
+And those mistakes cost me my love. 
 
 Hearing those things made me so angry.
 
@@ -550,9 +550,11 @@ That’s why I got so mad.
 
 Why I hurt my loves so badly.
 
-Why the river runs dry, and no canyon remains. 
+Why the river runs dry, and no canyon remains. 
 
 \* \* \*
+
+Next Interview: https://old.reddit.com/r/nosleep/comments/1h49ypg/fuck_hipaa_my_new_patient_looks_like_he_came/
 
 First Interview: [https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
 

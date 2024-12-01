@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/) | [Previous](https://www.reddit.com/r/nosleep/comments/1gtyh6y/im_a_rookie_with_the_winchester_police_department/?share_id=q2GrDXf7Q3XkWRZwu4ZIf&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1)
+[First](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/) | [Previous](https://www.reddit.com/r/nosleep/comments/1gtyh6y/im_a_rookie_with_the_winchester_police_department/?share_id=q2GrDXf7Q3XkWRZwu4ZIf&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1) | [Next](https://www.reddit.com/r/nosleep/s/mUqbxkpEZZ)
 
 I know Beth hates to see me coming.
 
