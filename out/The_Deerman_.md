@@ -128,13 +128,15 @@ They stopped at a large fallen tree and sat down in the middle. That's when Juli
 
 Finally, after a moment or two, he spoke. "This man you're dreaming about reminds me of a story my grandpa Joe told me a few years back when we were out at his camp."
 
-Julie's interest suddenly piqued. "Oh yeah? I don't think I've heard it. How does it go?"
+Julie's interest was suddenly piqued. "Oh yeah? I don't think I've heard it. How does it go?"
 
 He shivered in his jacket. "Well, how about we head back, and I'll tell you on the way?"
 
 She nodded, "Deal."
 
-Waashkesh Nini
+\---
+
+The Story of Waawaashkesh Nini (Deerman):
 
 On a fall day back in the 70s, a chilling presence settled over the reserve. Word started spreading throughout the community: reports of an unusually large deer, unlike anything seen before. The first sighting happened in the woods just behind the apartment complex at the southern end of the community.
 
@@ -160,9 +162,9 @@ Lora swooned slightly and wondered if this was all a dream. A handsome man shows
 
 She suddenly remembered stories her grandmother told of mysterious, handsome young men in black who were not really men at all, who would seduce women and take them, never to be seen again.   
 
-"Uh, look, I'm not up for going anywhere tonight. ,"Sorry, I can't help you," Lora replied hesitantly and started closing the door. His gaze locked onto hers with a magnetic pull. He stepped closer, and a mysterious air of energy hung around him. "You should come to the dance with me. It'll be fun. Just forget everything else." In that instant, the energy shifted, enveloping her in a heady aura of intoxicating and alluring magnetism. He was… irresistible. Lora felt her resolve melting away. "Okay… I'll go," she said, despite the smallest protest in the back of her mind. I'll get ready.
+"Uh, look, I'm not up for going anywhere tonight. ,"Sorry, I can't help you," Lora replied hesitantly and started closing the door. His gaze locked onto hers with a magnetic pull. He stepped closer, and a mysterious air of energy hung around him. "You should come to the dance with me, Lora. It'll be fun. Forget everything else." In that instant, the energy shifted, enveloping her in a heady aura of intoxicating and alluring magnetism. He was… irresistible. Lora felt her resolve melting away. "Okay… I'll go," she said, despite the smallest protest in the back of her mind. I'll get ready.
 
-As they climbed into his shiny, black pickup truck and drove off, her mind was floating lost somewhere in a white fog on the outer fringes of her consciousness, but she could still sense and feel things: the truck jolting along the dirt road, the smell of the vehicle's interior, and the warmth of a man's rough worn hand intermingled in hers. A single memory fragment floated past, and her mind latched on, holding fast. And then she remembered something. Devin. It's Devin, and then it all faded to black.
+As they climbed into his shiny, black pickup truck and drove off, her mind was floating lost somewhere on the outer fringes of her consciousness, but she could still sense and feel things: the truck jolting along the dirt road, the smell of the vehicle's interior, and the warmth of a man's rough worn hand intermingled in hers. A single memory fragment floated past, and her mind latched on, holding fast. And then she remembered something. Devin. It's Devin, and then it all faded to black.
 
 \---
 
@@ -172,7 +174,7 @@ The thrum of music pulsed from the speakers; under the warm lantern glow, the da
 
 Yet unease flickered to life within her as the night went on. She noticed Devin's eyes had changed–more comprehensively, with a new glint of darkness lurking in their depths. The atmosphere in the room shifted, but Lora tried to brush it all off as a side effect of the music. Still, an inexplicable tension now hung in the air; it was tangible enough that even the other dancers sensed something was off kilter.
 
-As the music died, their dancing slowed to a stop. Devin leaned in close and whispered in her ear, "Midnight's almost here. Time for us to go." She broke free from his embrace and stepped back, confused. "What do you mean? She turned and glanced at the clock, both hands now pointed to Midnight.
+As the music died, their dancing slowed to a stop. Devin leaned in close and whispered in her ear, "Midnight's almost here. Time for us to go." She broke free from his embrace and stepped back, confused. "What do you mean? She turned and glanced at the clock over her shoulder, both hands now pointed to Midnight.
 
 "Oh, oh. Too late!" His tone dripped with amusement as he took a few steps back.
 
@@ -182,7 +184,7 @@ The crowd erupted in utter panic. The frantic rush to get away turned the space 
 
 Devin looked around pleasantly, pleased, his arms raised to address an empty room. "Ah, good. Now that we're alone. We can talk."
 
-"Wha… what?" she asked, her voice croaking shakily. Then she cleared it and tried again to sound steadier this time." What is it you want?"
+"Wha… what?" she asked, her voice croaked. Then she cleared it and tried again, sounding steadier this time." What is it you want?"
 
 "You've experienced the night's enchantment, but now I want something in return."
 
@@ -228,11 +230,9 @@ She looked down at the hand holding the book and raised her eyes to meet his. Sh
 
 "Lora," she smiled.  
 
- 
+ \---
 
- 
-
-"The End."
+"The End." Josh paused to take a bow.
 
 "Wow," Julie exclaimed. Clapping. "That is an amazing story!"
 
@@ -284,7 +284,7 @@ Thin branches whipped at her face, stinging the newly healed cuts on her cheeks 
 
 "Lora, there's no use hiding." He called out.
 
-With each step into the woods, the man's body shifts and contorts. His limbs lengthen, his torso narrowing as he takes on the tall, muscled form of a deerman. His transformation into a half-man, half-deer creature is a blend of flesh and wilderness magic. Branches cracked beneath the weight of his hooves as he came to stand in an open space 15 meters away from where Julie hid. Steam snorted through his nostrils as he turned his head, sniffed the air, and continued disappearing into the foliage.
+With each step into the woods, the man's body shifts and contorts. His limbs lengthen, his torso narrowing as he takes on the tall, muscled form of a deerman. His transformation into a half-man, half-deer creature is a blend of flesh and wilderness magic. Branches cracked beneath the weight of his hooves as he came to stand in an open space 15 meters away from where Julie hid. Steam snorted through his nostrils as he turned his head, sniffed the air, and  disappeared into the foliage.
 
 She clung to the tree, desperate to keep from sight. Her heart pounded furiously, threatening to burst from her chest.
 
