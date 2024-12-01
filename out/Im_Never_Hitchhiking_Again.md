@@ -4,9 +4,9 @@ I had stared at her, aghast. Before I could respond HELL NO she had practically 
 
 Whatever. I’m too drunk to give Chelsea and her *irresponsibility* any more thought. I step outside and breathe in the cold night air.
 
-It’s beautiful tonight. The bar is surrounded by snowy woods, illuminated by moonlight. Large snow flakes float gently to the ground. I can see my breath coming out like plumes of smoke.
+It’s beautiful tonight. The bar is surrounded by snowy woods, illuminated by moonlight. Large white flakes float gently to the ground. I can see my breath.
 
-Some guy already out on the wooden deck offers me a smoke. I smile and accept. I reach in my pocket for a lighter and don’t find one so he offers his.
+Some guy already out on the wooden deck offers me a smoke. I smile and accept. After lighting up we both quietly gaze out at the forest blanketed in snow
 
 I don’t initiate conversation and he doesn’t either. We smoke for a moment in comfortable silence.
 
@@ -48,7 +48,7 @@ Once inside I warm my icy fingers by pressing them against the heater.
 
 “Thanks for picking me up.”
 
-“I don’t usually pick up hitchhikers.” He wore a baseball cap, I guessed he was around fifty. 
+“I don’t usually pick up hitchhikers.” He’s wearing a baseball cap and looks to be around fifty.
 
 “Yeah, same.” I check the speedometer, he’s going exactly the speed limit. We ought to reach town in around 12 minutes or so. 
 
@@ -112,7 +112,7 @@ Movement interrupts my crying, its headlights coming down the road. A truck.
 
 I wave my arms and run in the direction of the truck, yelling for help. They stop.
 
-The door opens and a guy rushes out. It’s David from the bar. “Are you okay? Call the police!” He yells at the guys still in the truck.
+The truck door opens and a man rushes out. It’s that guy David from the bar. “Are you okay? Call the police!” He yells at the guys still in the truck.
 
 I wipe the tears off my face and try to explain through chattering teeth. “He p-picked me up and was gonna take me to town. . . He wouldn’t let me out of the car so I - I grabbed the wheel and um, yeah he’s dead. I killed him.” I point at the tree where he landed. “His body is over there.”
 
@@ -138,7 +138,7 @@ I shake my head no, my head feels foggy.
 
 “**Now**.”
 
-My feet move by them selves, I walk to the man. I take his hand. 
+My feet move by themselves, I walk to the man. I take his hand. 
 
 *I don’t want to go with him.* As we stroll away from the scene I begin to giggle. 
 
