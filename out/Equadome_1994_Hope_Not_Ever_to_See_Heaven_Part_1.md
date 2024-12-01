@@ -1,3 +1,7 @@
+[Reddit about the Equadome](https://www.reddit.com/r/urbanexploration/comments/1dahm5/the_equadome_outside_of_st_louis_missouri/)
+
+Trigger Warnings: Mentions sex. Animal Abuse (just a few sentences. Not the focus of the story). Mention of suicide.
+
 Nobody knew quite how it happened, but it had been nearly six months since my sister was found dead, shredded and crushed, on the stone altars of the Equadome and now we sped down the dark road through an abyss of trees directly into its embrace. My friend Crow was in the front flicking the ashes from her cigarette out the window and talking loudly over another pounding Korn song. Jason drove, nodding slowly to the music or whatever Crow was saying. I sat in the backseat flicking a Zippo staring at the back of her black pixie cut. I could smell her, sweet and earthy, through the cool midwestern air blowing into the backseat. I couldn’t help but think of her, even though my sister was dead and it was my fault.
 
 I  hadn’t slept well since it happened. It wasn’t just my sister I lost. We were all best friends–Crow, Jason, my sister, and I. We grew up trampling through the woods of eastern Missouri raising hell as suburbia grew up around us. Now that she was gone, it was as if the earth had shifted by several degrees–just enough to send us spiraling towards and away from each other all at once. But it was more than a conventional sadness I felt .  It was the secret that I kept. It was our last conversation. It was my sister’s words *I can’t live with this.* No amount of alcohol stolen from parents’ liquor cabinets or shake weed would make these words go away for long.
@@ -54,4 +58,6 @@ And then there was *Heaven,* the Equadome’s most prominent feature. A tower of
 
 The world was silent, not a breeze nor the cry of an owl nor the sound of cars from the road. As we neared the entrance, heat radiated from within and the gravel devolved into mud grabbing and pulling at our feet.  The main building was a long rectangular cement structure lined with tall windows most of which had been broken over the years. The red moon illuminated a large mural painted on the outer wall half obscured by dry vines – a mural of a man’s head in terror just before being pulled beneath the soil, his hands crooked in desperation to keep himself up. That looks about right, Jason half joked. I avoided looking through the black, empty windows as if something might jump out or some red eyes might show themselves. Why was she here?, I thought. 
 
-We stepped through a small doorway on the farside of the structure and into a vast cement room where darkness filled wherever our light did not shine. 
+We stepped through a small doorway on the farside of the structure and into a vast cement room where darkness filled wherever our light did not shine.
+
+[Find Part 2 Here](https://www.reddit.com/r/nosleep/comments/1h45jlx/equadome_1994_hope_not_ever_to_see_heaven_part_2/)
