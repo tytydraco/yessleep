@@ -167,17 +167,17 @@ Like a puppet on a strange marionette, she lifted her hand out. The way her she 
 
 I heard a weird crackle as she then stuck out one crooked finger and started pressing door codes. 
 
-000000, Buzz. Rejected.
+00000, buzz. Rejected.
 
-000001, Buzz. Rejected. 
+00001, buzz. Rejected. 
 
 “Babe?” 
 
-000003. Buzz. Rejected. 
+00003, buzz. Rejected. 
 
 “Babe? Do you need me to let you in?” 
 
-000004. Buzz. Rejected. 
+00004, buzz. Rejected. 
 
 She continued one code after the other. 
 
