@@ -531,4 +531,4 @@ The pain was relentless, a consuming fire that devoured every part of me. My scr
 
 And then it stopped.
 
-To be Continued.
+The continuation: [Wires and Chains Part Three](https://www.reddit.com/r/nosleep/s/OCS0AbbwCm)
