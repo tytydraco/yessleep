@@ -1,6 +1,6 @@
 This is part 7 of the series
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/) |[ Part 2](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) |[ Part 3](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/) | [ ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/)[Part 5](https://www.reddit.com/r/nosleep/comments/1gu75vu/he_follows_and_hes_violent/) | [Part 6](https://www.reddit.com/r/nosleep/comments/1gouk5m/it_wasnt_human_it_couldnt_have_been/) | [Part 7](https://www.reddit.com/r/nosleep/comments/1h0dtg7/something_tore_the_deer_apart/) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/1g5icy8/scopaesthesia/) |[ Part 2](https://www.reddit.com/r/nosleep/comments/1gabx4u/bike_ride/) |[ Part 3](https://www.reddit.com/r/nosleep/comments/1g7e90i/mixed_mail/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/) | [ ](https://www.reddit.com/r/nosleep/comments/1ge51be/i_was_around_16_when_i_first_started_getting_the/)[Part 5](https://www.reddit.com/r/nosleep/comments/1gu75vu/he_follows_and_hes_violent/) | [Part 6](https://www.reddit.com/r/nosleep/comments/1gouk5m/it_wasnt_human_it_couldnt_have_been/) | [Part 7](https://www.reddit.com/r/nosleep/comments/1h0dtg7/something_tore_the_deer_apart/)
 
 I wanted to mention my last few days at the convenience store. I’ll admit working at the store was always weird. Old men weird, not scary story weird, but whatever happened those last couple of days was nothing like anything I had ever seen. Not many people in town talk about it, so if you’re one of the younger people living there, you probably have never heard about it. The morning before my shift I was eating breakfast with my family when every dog on the street started to go crazy, like barking nonstop.
 
@@ -148,7 +148,7 @@ He looked up at me confused. “Oh oh yeah sorry.” He said taking his wallet. 
 
 “Oh yeah, I know where that is.”
 
-“Yeah, it’s not the nicest, but I make the most of it.” 
+“Yeah, it’s not the nicest, but it's the only place with a no-pets rule...I make the most of it.” he shrugged.
 
 A few minutes later we said goodnight and I was left alone again. Nothing but the buzzing of the lights to keep me company. I tried to entertain myself, but ultimately just ended up cleaning more stuff. I was in the back mindlessly sweeping with my headphones blasting whatever song I was into at the time, at full volume. I organized some boxes before I got a bad feeling in my stomach. I turned to the entrance of the room. It was a big room filled with boxes and shelves so the door was blocked from my view, I walked to the front, and as I did I could smell something…burning. I rushed to the door.
 
