@@ -10,7 +10,7 @@ The cabin itself was only about 900sqft. There was a kitchen that doubled as a d
 
 The sink had an old-fashioned hand pump to get water from the river. The only bathroom was an outhouse and mother nature. There was a gas stove for cooking, a refrigerator that looked like it was bought in the 80’s, and a single gas powered light by the front door. 
 
-Although the cabin was wired for electricity, the only way to power them was by generator, so I knew on my tight budget I wouldn't be running that very often. 
+Although the cabin was wired for electricity, the only way to get power was by generator, so I knew on my tight budget I wouldn't be running that very often. 
 
 After the nearly 10hr drive with my 13 year old Labrador Ella to get there, and missing the driveway ten times, I managed to get my 98 Cavalier down the driveway. I looked down at my radio and saw that the time was 10:23PM. 
 
