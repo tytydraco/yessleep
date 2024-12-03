@@ -24,7 +24,7 @@ But as the sun began to set around 7.30 PM, the atmosphere of the house started 
 
 Night fell fast in the countryside. The sky outside darkened to a muted grey-blue, and soon the cottage was shrouded in twilight. The only light came from the dying embers of the fireplace, casting flickering shadows that danced across the room. Marie found herself in the sitting room again, sitting by the fireplace, her mind wandering back to the note in the book.
 
-*"Never light the candle after midnight."*
+*"Never light the candle after nightfall."*
 
 It was a stupid warning, childish almost. It had to be, it was probably a rambling crazy lady. She wasn’t a child anymore, and she wasn’t going to let some vague and ominous note dictate her actions. But a strange tension gripped her chest, something like a voice whispering deep in her mind. She stood up, pacing the room, trying to shake off the growing sense of dread. The candle, that brass candelabra sitting untouched on the table, seemed to taunt her, its pristine wax mocking her hesitation, she touched it again, tempted by the smooth white wax.
 
@@ -56,7 +56,7 @@ The shadows twisted again, this time not from the flickering flame but from with
 
 Marie took a shaky step back, her mind racing, but the room around her had already begun to change. The air was thick now, dense with something ancient and malevolent. She tried to move, but her legs felt heavy, like they were bound to the floor.
 
-The candle flickered one last time before the light extinguished completely. The shadows that had once been mere shapes now seemed to close in around her, and the temperature in the room dropped so rapidly that her breath became visible in the air.
+The shadows that had once been mere shapes now seemed to close in around her, and the temperature in the room dropped so rapidly that her breath became visible in the air.
 
 Something—*someone*—was in the room with her. And they were far from pleased.
 
