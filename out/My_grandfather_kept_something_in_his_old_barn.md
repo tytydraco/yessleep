@@ -10,7 +10,7 @@ I remember, when I was around six or seven, I started gaining courage, and after
 
  
 
-It was around two or three years later, when my grandpa got a new bull. It was vey young, and had to be handfed, because its mother refused it. I think my grandfather’s original plan was to raise it up, breed it with his cows, and then send it to a slaughterhouse, but because of being raised by humans, this bull became such a sweet and playful animal, that no one would have had the heart to kill him. It was a surreal sight when I ran out from the house, and this gigantic, black bull with huge horns was speeding towards me, bouncing like a playful puppy. Despite his size, Otis was very gentle, and never harmed me when we played, despite the fact that one flick of his horns could’ve costed me my eye, or much more. (And yes, I got to name him. I was ten years old, so you don’t need to judge me).
+It was around two or three years later, when my grandpa got a new bull. It was very young, and had to be handfed, because its mother refused it. I think my grandfather’s original plan was to raise it up, breed it with his cows, and then send it to a slaughterhouse, but because of being raised by humans, this bull became such a sweet and playful animal, that no one would have had the heart to kill him. It was a surreal sight when I ran out from the house, and this gigantic, black bull with huge horns was speeding towards me, bouncing like a playful puppy. Despite his size, Otis was very gentle, and never harmed me when we played, despite the fact that one flick of his horns could’ve costed me my eye, or much more. (And yes, I got to name him. I was ten years old, so you don’t need to judge me).
 
  
 
@@ -24,7 +24,7 @@ I was around sixteen when my grandmother died. She has been fighting cancer for 
 
  
 
-He was now alone In the large house, only the plastic eyes of the stuffed animals following him. After my grandmother’s death, my grandfather started selling her stuff, and eventually more and more things. He got rid of many of his trophies, and eventually, he even let go of his cows, as he started feeling his age, becoming weaker by the day. At last, only Otis, and the old bull remained. Everyone understood why he didn’t sell Otis, since all the family loved him, his refusal to get rid of Frederick was unexplainable. That bull was a visibly a burden to him, and yet he didn’t even let anyone else take care of it.
+He was now alone In the large house, only the plastic eyes of the stuffed animals following him. After my grandmother’s death, my grandfather started selling her stuff, and eventually more and more things. He got rid of many of his trophies, and eventually, he even let go of his cows, as he started feeling his age, becoming weaker by the day. At last, only Otis, and the old bull remained. Everyone understood why he didn’t sell Otis, since all the family loved him, but his refusal to get rid of Frederick was unexplainable. That bull was a visibly a burden to him, and yet he didn’t even let anyone else take care of it.
 
 \-He tolerates me, but I don’t want any of you to end up on his horns! -this was his response to all the offers to take care of Frederick.
 
@@ -90,7 +90,7 @@ Although he clearly wasn’t in a good shape, at first, grandpa still refused an
 
  
 
-After the first visit, I set a routine of visiting every third day. These visits usually went pretty similar to the first. Until, about two months later, something was off. As I rolled up to the driveway, Otis didn’t come to greet me. I hopped off the motor, and ran to the house. Otis was waiting in front of the door, shaking his head, and huffing. He turned towards me in a weirdly aggressive way, which I never seen before, but luckily, after recognising me, he went back to his usual friendly self. As soon as I got past the bull, I teared the door open and ran upstairs.
+After the first visit, I set a routine of visiting every third day. These visits usually went pretty similar to the first. Until, about two months later, something was off. As I rolled up to the driveway, Otis didn’t come to greet me. I hopped off the motor, and ran to the house. Otis was waiting in front of the door, shaking his head, and huffing. He turned towards me in a weirdly aggressive way, which I never seen before, but luckily, after recognising me, he went back to his usual friendly self. As soon as I got past the bull, I tore the door open and ran upstairs.
 
  
 

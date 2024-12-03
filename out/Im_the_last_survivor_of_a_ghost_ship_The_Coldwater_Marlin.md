@@ -4,7 +4,7 @@ I worked aboard the *Coldwater Marlin* for five seasons. Five miserable winters 
 
 We were a rough lot—guys with bad habits, bad luck, or both. Drunks, debtors, and drifters. Hal Foster, the captain, once said that *The Marlin* didn’t run on diesel—it ran on desperation. He wasn’t wrong. 
 
-We even earned the reputation as the ‘Foster kids.’ Ask around and they’d tell you why. They’d say, *‘ain’t no other Daddy wants them.*’ They weren’t wrong. But none of us cared about that all that much. We had a job, and the Captain treated us alright. 
+We even earned the reputation as the ‘Foster kids.’ Ask around and they’d tell you why. They’d say, *‘ain’t no other Daddy wants 'em.*’ They weren’t wrong. But none of us cared about that all that much. We had a job, and the Captain treated us alright. 
 
 That being said, the ship itself was an old beast. Rusted at the seams, groaning like an arthritic old man with every swell. Inside, it was worse. The walls were streaked with salt and grease, and the air smelled like rotting fish and diesel fumes. Everything felt damp, like the ocean had already started claiming her. Looking back, maybe it had.
 
