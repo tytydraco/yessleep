@@ -1,3 +1,5 @@
+Find part one [here](https://www.reddit.com/r/nosleep/comments/1gw9ryd/the_leaves_brought_me_here_part_1/)
+
 I was walking up the hill to my house after school, when all of a sudden the wind stopped cold and the weather went from freezing to warm. It was the end of autumn in New Hampshire and it shouldn’t have felt as cozy outside as it did. That’s when I saw them for the first time in person… the dancing spiral of orange and yellow leaves. Even with no wind nor breeze, these leaves danced anyway. Almost as if they were alive, they then proceeded to chase me all the way to my house. Even at full sprint up my hill, I couldn’t feel the faintest bit of gust hit my face the whole way. Along with the leaves there was a voice. A booming voice that sounded like steam coming out of a teapot. And this voice was hissing my name…
 
 “Shaun!”
@@ -171,5 +173,3 @@ I looked down at it one last time and just read the words “Love, mom” one la
 As of me writing this, the police and my dad are in the woods looking for my mom with a small search party. I probably won’t be getting much sleep tonight. All I can think about is her hugging me and telling me she loves me. This is how she must have felt when I went missing, but even I wasn’t out this late. She has to make it back, she has to. I don’t know what I’d do if anything happened to her.
 
 I love you too mom. Please come home.
-
-[The Leaves Brought Me Here [Part 1]](https://www.reddit.com/r/nosleep/comments/1gw9ryd/the_leaves_brought_me_here_part_1/)
