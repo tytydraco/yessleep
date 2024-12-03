@@ -102,7 +102,7 @@ Have you ever saw a leaf at fall, just before detaching from the branch, and des
 
  
 
-I can’t really recall what happened after this exactly, but somehow, I managed to call the hospital, my parents, and write to my friends at the university that I’ll probably won’t go at all next week. The following morning, I was sitting in the kitchen, eating a sandwich, while I didn’t really know what to do. The ambulance car took the body sometime at noon, but it was clear to everyone, that my grandfather isn’t going anywhere but the cemetery. My parents said they are coming as soon as possible. I was left to organize the remaining belongings. I spent the nearly the whole day tossing the trophies into a pile in the living room before I got to the bedroom. As I was trying to take the gator skin off of the wall, I noticed something on the nightstand. It was an old little leather-bound book. I don’t remember when grandpa got his diary, but he had it with him most of the time. When I asked about it, he often said that he has his hunting stories written in it, and he’s trying to make a book out of them. When I got older, he said he was collecting memories. I sat on the bed, and opened the diary.
+I can’t really recall what happened after this exactly, but somehow, I managed to call the hospital, my parents, and write to my friends at the university that I’ll probably won’t go at all next week. The following morning, I was sitting in the kitchen, eating a sandwich, while I didn’t really know what to do. The ambulance car took the body sometime at noon, but it was clear to everyone, that my grandfather isn’t going anywhere but the cemetery. My parents said they are coming as soon as possible. I was left to organize the remaining belongings. I spent nearly the whole day tossing the trophies into a pile in the living room before I got to the bedroom. As I was trying to take the gator skin off of the wall, I noticed something on the nightstand. It was an old little leather-bound book. I don’t remember when grandpa got his diary, but he had it with him most of the time. When I asked about it, he often said that he has his hunting stories written in it, and he’s trying to make a book out of them. When I got older, he said he was collecting memories. I sat on the bed, and opened the diary.
 
  
 
@@ -118,15 +118,15 @@ As I got closer to the barn, I realised I didn’t have the key for the door, an
 
  
 
-The gate was extremely heavy, but I figured it needed to keep in an animal weighting around a to, so it was kinda logical. As I pushed it open, the first thing that hit me was the smell of rotting flesh.
+The gate was extremely heavy, but I figured it needed to keep in an animal weighting around a ton, so it was kinda logical. As I pushed it open, the first thing that hit me was the smell of rotting flesh.
 
-\-Great. So, nobody took care of that poor animal. -I thought.
+-Great. So, nobody took care of that poor animal. -I thought.
 
 And then my light eliminated something in the corner. A large, scaly body started moving, while two yellow eyes stared at me. The creature stood up, and I realised its size. It was big. Nearly twice as tall as me. It started sniffing the air, and let out a loud hiss. That was the moment I turned, and started running towards the house.
 
  
 
-After moments, I heard heavy footsteps behind me, approaching quickly. Way too quickly. I started zigzagging. And then, I slipped on the wet grass, nearly reaching the house. I got up, and started running at the same time. The beast bit the air behind me. I started gaining speed, but I knew it won’t be enough. I felt its warm breath on my head, and I heard the sound of the jaws opening again, and then, a loud slam, and surprised hissing. i probably did the stupidest thing by turning, but apparently, it was my lucky day. Well, kind of.
+After moments, I heard heavy footsteps behind me, approaching quickly. Way too quickly. I started zigzagging. And then, I slipped on the wet grass, nearly reaching the house. I got up, and started running at the same time. The beast bit the air behind me. I started gaining speed, but I knew it won’t be enough. I felt its warm breath on my head, and I heard the sound of the jaws opening again, and then, a loud slam, and surprised hissing. I probably did the stupidest thing by turning, but apparently, it was my lucky day. Well, kind of.
 
  
 
@@ -134,7 +134,7 @@ Otis and the beast were circling each other in the yard. The moon spread light o
 
  
 
-As I watched them, I noticed, that the beast seemed familiar somehow. Suddenly, it came to my mind. The newspaper article in grandpa’s diary about the fossil. Carnotaurus. But what the hell was it doing here, looking way too alive? I couldn’t really think more as the Carnotaurus found an opening. It struck forward, but fortunately, Otis was prepared. He was in full fight mode, I never seen him like that before. As the dinosaur charged in, he turned, and headbutted it. Blood started raining from the Carnotaurus’ nose. It groaned in pain, and took a step back. Otis saw the opportunity, and as the predator retreated, he rammed into it, his horns tearing into the chest of the beast. The Carnotaurus screeched as the bull turned to face it again. Then after a short pause, it took a step back. Then, another. And then, with its next step, it lost its balance for a moment. It didn’t take more than that for Otis to come charging at the Carnotaurus. And then, as I startec cheering, and Otis victoriously lifted his head for the killing bow, the dinosaur stepped sideways. As the bull ran beside it, trying to turn, the Carnotaurus slammed its head into Otis. Then, as the momentum and the push made Otis fell to the ground, the beast stepped over him, and ripped his neck with a massive bite. With Otis’s last screams in my ear, I finally snapped out of my frozen state, and ran into the house as the Carnotaurus took the first bite from its kill.
+As I watched them, I noticed that the beast seemed familiar somehow. Suddenly, it came to my mind. The newspaper article in grandpa’s diary about the fossil. Carnotaurus. But what the hell was it doing here, looking way too alive? I couldn’t really think more as the Carnotaurus found an opening. It struck forward, but fortunately, Otis was prepared. He was in full fight mode, I never seen him like that before. As the dinosaur charged in, he turned, and headbutted it. Blood started raining from the Carnotaurus’ nose. It groaned in pain, and took a step back. Otis saw the opportunity, and as the predator retreated, he rammed into it, his horns tearing into the chest of the beast. The Carnotaurus screeched as the bull turned to face it again. Then after a short pause, it took a step back. Then, another. And then, with its next step, it lost its balance for a moment. It didn’t take more than that for Otis to come charging at the Carnotaurus. And then, as I started cheering, and Otis victoriously lifted his head for the killing bow, the dinosaur stepped sideways. As the bull ran beside it, trying to turn, the Carnotaurus slammed its head into Otis. Then, as the momentum and the push made Otis fell to the ground, the beast stepped over him, and ripped his neck with a massive bite. With Otis’s last screams in my ear, I finally snapped out of my frozen state, and ran into the house as the Carnotaurus took the first bite from its kill.
 
  
 
@@ -142,7 +142,7 @@ After I got into the house, I raced to the living room, and frenetically started
 
  
 
-You know, when you’ve never fired a gun in your life most of the time, you’ll miss. Well, I also missed, but since my target was so large, I still hit it. The only problem was that instead of killing, or even really harming it, the bullet only made the Carnotaurus way more annoyed. It growled as the bullet bounced off one of the large scales on its back, then turned towards where the gunfire came from.
+You know, when you’ve never fired a gun in your life, most of the time, you’ll miss. Well, I also missed, but since my target was so large, I still hit it. The only problem was that instead of killing, or even really harming it, the bullet only made the Carnotaurus way more annoyed. It growled as the bullet bounced off one of the large scales on its back, then turned towards where the gunfire came from.
 
  
 
@@ -158,11 +158,11 @@ For some time, I thought that I escaped. The sound of the footsteps faded in the
 
  
 
-The Carnotaurus was only a few meters behind me. Its jaws were slightly open, as its massive hind legs carried the agile body at such a speed that shouldn’t have been possible. The beast was now silent, only focusing on its prey. I tried to gain speed, but the mud and grass slowed me down too much. I soon heard the footsteps and the panting of the dinosaur clearly behind me, getting closer and closer. And then, the bike shook under me, and I flew into the woods. The last thing I hear was a victorious growl.
+The Carnotaurus was only a few meters behind me. Its jaws were slightly open, as its massive hind legs carried the agile body at such a speed that shouldn’t have been possible. The beast was now silent, only focusing on its prey. I tried to gain speed, but the mud and grass slowed me down too much. I soon heard the footsteps and the panting of the dinosaur clearly behind me, getting closer and closer. And then, the bike shook under me, and I flew into the woods. The last thing I heard was a victorious growl.
 
  
 
-I don’t know what happened after this. I hit my head on a branch, and only woke up an hour later, deep in the night. My bike was thorn into shreds. This is probably what saved me. The only explanation I got is that I flew so quick into the woods that somehow the Carnotaurus didn’t notice it in the dark, and assumed it got everything. Now I’m back in the house. The body of Otis is mostly gone. It was like this when I got back. I didn’t see any sign of the dinosaur since, but sometimes, deep rumbling calls are echoing from the depths of the forest. Calls, which I now realised were part of my childhood. Only back then, they were coming from the barn at late night, while I was shivering under my blankets.
+I don’t know what happened after this. I hit my head on a branch, and only woke up an hour later, deep into the night. My bike was thorn into shreds. This is probably what saved me. The only explanation I got is that I flew so quickly into the woods, that somehow the Carnotaurus didn’t notice it in the dark, and assumed it got everything. Now I’m back in the house. The body of Otis is mostly gone. It was like this when I got back. I didn’t see any sign of the dinosaur since, but sometimes, deep rumbling calls are echoing from the depths of the forest. Calls, which I now realised were part of my childhood. Only back then, they were coming from the barn at late night, while I was shivering under my blankets.
 
  
 

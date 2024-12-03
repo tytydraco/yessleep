@@ -26,7 +26,7 @@ It was a brisk October Thursday night, seven months after my daughter's passing.
 
 I was especially drunk that night, having polished off my last of a bottle of rye whiskey. The stuff was disgusting, but the little liquor store up town still hadn't restocked from the last time I hit their shelves, so I made it work.
 
-The light breeze that puppeteered the leafless tree branches just outside would have carried the smell of whiskey from my breath and into the crisp autumn mountain air, if it weren't for the window that seperated the outside world from my own self imposed prison cell.
+The light breeze that puppeteered the leafless tree branches just outside would have carried the smell of whiskey from my breath and into the crisp autumn mountain air, if it weren't for the window that separated the outside world from my own self imposed prison cell.
 
 I sat on my bed, leaning forward haphazardly and fumbling for a bottle on the floor as my vision sloshed and melted against the shadows of tree branches that danced along the walls.
 
@@ -48,7 +48,7 @@ Like an outstretched hand longing for the window, it's pointed appendage resembl
 
 Just before I could look away, it tapped the window again with a distinct clinking chime that sent a deep chill down my whole nervous system.
 
-Even that close to blacking out, I could feel the wretched shift in the night air from cool and crisp to chilling and hostile as the form of a long-haired figure became apparent in the midst of the now twisting shadows of tree branches.
+Despite being close to blacking out, I could feel the wretched shift in the night air from cool and crisp to chilling and hostile as the form of a long-haired figure became apparent in the midst of the now twisting shadows of tree branches.
 
 Only the curtain and glass pane window lay between me and whoever this intruder was.
 
@@ -56,7 +56,7 @@ Her shadow was petite, her head  limply hanging to the side, almost like she was
 
 When I noticed her, her head gave a strong twitch that looked so unnatural that I gasped and puked up a little bit in the back of my throat.
 
-I watched as her fingers slowly splayed themselves slowly against the glass, her palms lying flat against the window.
+I watched as her fingers splayed themselves against the glass slowly her palms lying flat against the window.
 
 Her shadow seemed to flicker, like a candle of pure darkness was illuminating it's ghastly essence against our reality, trying to press it's way through the light and darkness of our fragile existence.
 
@@ -80,11 +80,11 @@ I slipped and flew forward mere feet from the long curtain with my daughter's im
 
 Time skipped for me as my head hit the corner, and in a flash I was stirring slowly on the ground, my vision blinking in and out like a dying light bulb.
 
-"Mother? Father? Please... Let me in. It's so cold out here..." Her weak and pleaful voice wrought hot coals of sadness over my chest. I didn't even know what to think anymore.
+"Mother? Father? Please... Let me in. It's so cold out here..." Her weak and plea fillee voice wrought hot coals of sadness over my chest. I didn't even know what to think anymore.
 
 My vision slowly faded as Lily's hands grasped the window, the dark shadows of her neck, bent and twisted, keeping her head up limply to the side.
 
-As I fell into a dreamless and deep slumber, her voice rang out into my conciousness, this time with a twinge of barely contained rage bubbling from her once sweet tones.
+As I fell into a dreamless and deep slumber, her voice rang out into my consciousness, this time with a twinge of barely contained rage bubbling from her once sweet tones.
 
 "I'll be back tomorrow, mother. If you don't let me in, then we can't be together again. Isn't that what you want? To be a family again?"
 
@@ -160,7 +160,9 @@ I sat in the bedroom, my husband's .357 revolver lying on my lap, my hands overl
 
 I really didn't believe I would see anything that night. I had to force myself to think that maybe what I saw was born of the liquor, and was not real.
 
-I kept sweeping my eyes back and forth between the window and my alarm clock. The time had just jumped from 4:07 to 4:08 a.m. My eyes slowly went back to my window, and I was struck by the sight of my daughter's mangled shadow.
+I kept sweeping my eyes back and forth between the window and my alarm clock. The time had just jumped from 4:07 to 4:08 a.m. 
+
+My eyes slowly went back to the window, and I was struck by the sight of my daughter's mangled shadow.
 
 She had appeared inches away from the window. Her blackened energy lingering just behind the curtain once again. I had left it slightly cracked, and where the shadow ended at the opening, I finally saw her again. My Lily.
 
@@ -210,7 +212,7 @@ His eyes were bloodshot, full of demonic hatred that was focused directly on me.
 
 A dark shadow encroached on his body, as if the soul of an evil entity was hovering just behind him. It tore from his back and filled the corners of the closet with tendrils of black nothingness.
 
-My raw terror filled scream quickly flooded the air of my bedroom as Devin started pushing his way through the closet door, his form taking a menacing pose as he did, hunching over and tightening his muscles like he was straining against an unseeable force as he moved.
+Raw terror filled my lungs as my scream quickly flooded the air of my bedroom as Devin started pushing his way through the closet door, his form taking a menacing pose as he did, hunching over and tightening his muscles like he was straining against an unseeable force as he moved.
 
 He started going over to the window, where I could see Lily waiting. I could hear the sound of flesh and bone rending and sliding apart. I watched in horror as eight impossibly long, black spider-like legs raised menacingly out of her back and pressed up against the outside wall. Her body lifted itself up and away from the window a few feet.
 
@@ -250,7 +252,7 @@ Just as he made it into the kitchen, now just ten feet away, I grabbed the bigge
 
 His shuddering body flung off the hall way wall and he crawled at me on the floor with a blinding speed, his head barely hanging on with the gunshot wound slowly tearing more as he moved about. His hands made a wet and fleshy slapping noise as he closed the distance, his bloody hand prints leaving a trail behind him.
 
-He leapt from the cloor and slammed me down with a booming thud, his eyes  prying open wider than his flesh would allow. The skin and eyelids around them stretched until his eyes were practically bulging out of his half revealed skull.
+He leapt from the floor and slammed me down with a booming thud, his eyes  prying open wider than his flesh would allow. The skin and eyelids around them stretched until his eyes were practically bulging out of his half revealed skull.
 
 He screeched with pain as I plunged the blade into his chest, the blade crunching against his ribs and tearing open his skin and muscles. Some blood poured out, and instead of being warm and thick, it was the disgusting greenish-red sludge that slowly trickled down my arms as I kept stabbing him.
 
