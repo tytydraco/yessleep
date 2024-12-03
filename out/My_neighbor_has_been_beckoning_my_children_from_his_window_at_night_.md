@@ -8,7 +8,7 @@ I'd heard my fair share of Jay's stories about monsters terrorizing him from the
 
 I got out of bed and walked with Jay in tow to my kids' room. Alicia was awake in the top bunk. From the soft glow of their nightlight, I could see her crossing her arms and scowling down at her little brother. I didn't turn on any lights to give myself a better view of the outdoors and peered out the bedroom window. Their window had curtains on it, but for once they hadn't been drawn all the way, and there was a small opening between them through which Jay must have looked out.
 
-One side of the neighbor's house (the one to our left if you looked at the front of our house from the street) was visible from Alicia and Jay’s room. There were two windows on the neighbor's side of the house, but it was too dark inside to see anything. I recalled from what I’d seen in the daylight that the window on the left, the one closest to the front of the house, was the kitchen. I wasn't sure what the window on the right was as it always had its curtains drawn.
+One side of the neighbor's house (the one to our left from the street) was visible from Alicia and Jay’s room. There were two windows on the neighbor's side of the house, but it was too dark inside to see anything. I recalled from what I’d seen in the daylight that the window on the left, the one closest to the front of the house, was the kitchen. I wasn't sure what the window on the right was as it always had its curtains drawn.
 
 I asked Alicia if she'd seen anything, and she shook her head. 
 
