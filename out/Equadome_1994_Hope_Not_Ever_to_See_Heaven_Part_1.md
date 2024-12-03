@@ -1,4 +1,4 @@
-[Reddit about the Equadome](https://www.reddit.com/r/urbanexploration/comments/1dahm5/the_equadome_outside_of_st_louis_missouri/)
+[Part 2 ](https://www.reddit.com/r/nosleep/comments/1h45jlx/equadome_1994_hope_not_ever_to_see_heaven_part_2/)| [Part 3](https://www.reddit.com/r/nosleep/comments/1h5p5ft/equadome_1994_hope_not_ever_to_see_heaven_final/) | [Reddit about the Equadome](https://www.reddit.com/r/urbanexploration/comments/1dahm5/the_equadome_outside_of_st_louis_missouri/)
 
 Trigger Warnings: Mentions sex. Animal Abuse (just a few sentences. Not the focus of the story). Mention of suicide.
 

@@ -1,4 +1,4 @@
-[Find Part 1 Here](https://www.reddit.com/r/nosleep/comments/1h3emm6/equadome_1994_hope_not_ever_to_see_heaven_part_1/) | [Reddit about the Equadome](https://www.reddit.com/r/urbanexploration/comments/1dahm5/the_equadome_outside_of_st_louis_missouri/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1h3emm6/equadome_1994_hope_not_ever_to_see_heaven_part_1/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1h5p5ft/equadome_1994_hope_not_ever_to_see_heaven_final/)| [Reddit on the Equadome](https://www.reddit.com/r/urbanexploration/comments/1dahm5/the_equadome_outside_of_st_louis_missouri/)
 
 Trigger Warnings: Reference to sex. Reference to collecting the bones of dead animals. There's blood of course.
 
