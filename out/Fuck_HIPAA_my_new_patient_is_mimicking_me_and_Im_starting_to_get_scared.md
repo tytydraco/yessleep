@@ -554,10 +554,9 @@ Why the river runs dry, and no canyon remains.
 
 \* \* \*
 
-Next Interview: https://old.reddit.com/r/nosleep/comments/1h49ypg/fuck_hipaa_my_new_patient_looks_like_he_came/
+[Next Interview](https://old.reddit.com/r/nosleep/comments/1h49ypg/fuck_hipaa_my_new_patient_looks_like_he_came/)
 
-First Interview: [https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
 
-Previous Interview: [https://www.reddit.com/r/nosleep/comments/1h28i88/fuck\_hipaa\_my\_new\_patient\_tried\_to\_eat\_his\_girl/](https://www.reddit.com/r/nosleep/comments/1h28i88/fuck_hipaa_my_new_patient_tried_to_eat_his_girl/)
+[Previous Interview](https://www.reddit.com/r/nosleep/comments/1h28i88/fuck_hipaa_my_new_patient_tried_to_eat_his_girl/)
 
-Employe Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
+[Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)

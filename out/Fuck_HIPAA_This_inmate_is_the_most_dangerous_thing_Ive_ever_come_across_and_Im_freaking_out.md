@@ -12,11 +12,11 @@ Our senses lie to us. They muffle, omit, and deceive to prop up the absurd house
 
 Problems arise when things that are not like us – things that do not belong here with us – slide into our trap alongside us.
 
-No entity demonstrates the nature of this particular complication so thoroughly or so dramatically as the Harlequin. 
+No entity demonstrates the nature of this particular complication so thoroughly or so dramatically as the Harlequin. 
 
 The existence of the Harlequin has been known to the Agency of Helping Hands since its inception, but due to a preponderance of fables, legends, and false information abounding, the Harlequin evaded detection for nearly one hundred years.
 
-The Harlequin is an utter enigma. To date, the Agency does not know where it comes from, what its motives or goals are, or even what it is. 
+The Harlequin is an utter enigma. To date, the Agency does not know where it comes from, what its motives or goals are, or even what it is. 
 
 The only information the Agency has on the Harlequin is the information it volunteers.
 
@@ -30,7 +30,7 @@ When asked about the purpose of these abductions, the Harlequin’s only answer 
 
 The only silver lining to the Harlequin’s appalling actions is that he usually “disappears” his victims from the memory of those who knew them, resulting in startlingly few complications for the Agency.
 
-The major issue with his talent for “unexisting” is, of course, the question of the people, places, things, and history he has potentially “unexisted” outside the scope of the Agency’s ability to retrieve such information. For this reason among others, the Harlequin is considered the Agency’s most dangerous inmate. 
+The major issue with his talent for “unexisting” is, of course, the question of the people, places, things, and history he has potentially “unexisted” outside the scope of the Agency’s ability to retrieve such information. For this reason among others, the Harlequin is considered the Agency’s most dangerous inmate. 
 
 As previously stated, the Harlequin was accidentally discovered in 1909 in Caerleon, Newport, South Wales. He was living in a tunnel below the ruins of the Isca Augusta. Although the entity was not discovered on U.S. soil, the United States did not want a foreign government to capture it due to concerns over the potential power such a being might bestow upon its captors. For this reason, the Agency made capture and containment of this being its primary goal. Due to the Agency’s complete lack of experience with entities like the Harlequin, capture was not achieved until 1926.
 
@@ -50,7 +50,7 @@ Agency personnel immediately proceeded to research the names provided by the Har
 
 Agency administration believe that the entity’s use of these names is significant and holds clues as to the Harlequin’s purpose and motives, a view bolstered by the fact that the Harlequin was located in the ruins of an ancient theater. Nevertheless, no substantial ties have been discovered at this time.
 
-Due to the Commedia Dell’Arte references and the motley cloak in which it was discovered, the Agency named the entity *Harlequin*.   
+Due to the Commedia Dell’Arte references and the motley cloak in which it was discovered, the Agency named the entity *Harlequin*.   
 
 The Harlequin’s extracurricular activities do not stop at the terrorizing and abduction of children. During its frequent containment breaches, the Harlequin creates holes and ports in what can only be termed “the fabric of existence,” and changes reality in ways almost no one can detect. In one instance, he once “unexisted” an entire town. In another, he vanished a popular film franchise from existence simply because – in his own words – it was so objectively terrible that simply knowing it existed was intolerable. During yet another escape, he “unzipped” reality, allowing an as-yet unidentified entity to slip through. The whereabouts of this entity are currently unknown.
 
@@ -58,11 +58,11 @@ Although its cloak hides most of its body from view, Agency personnel have deter
 
 The only part of the Harlequin’s body not concealed by its cloak are its jaws, which protrude in a manner best described as “lupine.” They are approximately eleven inches in and covered in puffy, suppurating flesh that appears blistered and scarred. The cause of these injuries is unknown.
 
-The Harlequin possesses three rows of teeth. The largest and most prominent somewhat resembles crocodile teeth. The inner rows of teeth are much smaller and sharper, and bear a strong resemblance to oversized coyote teeth. 
+The Harlequin possesses three rows of teeth. The largest and most prominent somewhat resembles crocodile teeth. The inner rows of teeth are much smaller and sharper, and bear a strong resemblance to oversized coyote teeth. 
 
 As previously mentioned, the Harlequin breaches containment on a regular basis. During these escapes, it leaves behind its cloak, which continues to expand in its absence.
 
-The Harlequin is capable of assuming various appearances. Whenever Agency personnel locate the Harlequin after a containment breach, it takes the appearance of a human male with auburn hair and blue eyes. Although superficially normal, this body induces a severe and clinically significant form of what is popularly referred to as “the uncanny valley effect.” The Harlequin is aware of this, and appears to take great pleasure in subtly changing the proportions of its face and body until it inflicts maximum psychological distress on its captors. 
+The Harlequin is capable of assuming various appearances. Whenever Agency personnel locate the Harlequin after a containment breach, it takes the appearance of a human male with auburn hair and blue eyes. Although superficially normal, this body induces a severe and clinically significant form of what is popularly referred to as “the uncanny valley effect.” The Harlequin is aware of this, and appears to take great pleasure in subtly changing the proportions of its face and body until it inflicts maximum psychological distress on its captors. 
 
 The Harlequin maintains this body until it reenters its cell, at which point it crawls under its cloak to assume what personnel believe to be its true form.
 
@@ -102,7 +102,7 @@ Unfortunately, this case currently file lacks an interview. It will continue lac
 
 This is because the inmate in question breached containment four months ago.
 
-He hasn't been caught yet. 
+He hasn't been caught yet. 
 
 Kind of a bad deal, given that this entity is considered the most dangerous inmate in the Pantheon.
 
@@ -126,10 +126,10 @@ Not to be too dramatic, but my life probably depends on it.
 
 \*\*\*\*
 
-First Patient: [https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
+[First Patient](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
 
-Second Patient: [https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck\_hipaa\_i\_messed\_up\_hardcore\_and\_if\_we\_dont/](https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
+[Second Patient] (https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
 
-Fourth Patient: [https://www.reddit.com/r/nosleep/comments/1gwszfl/fuck\_hipaa\_i\_finally\_had\_a\_breakthrough\_with\_a/](https://www.reddit.com/r/nosleep/comments/1gwszfl/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
+[Fourth Patient] (https://www.reddit.com/r/nosleep/comments/1gwszfl/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
 
-Employee Handbook (yes, really): [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
+[Employee Handbook (yes really](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)

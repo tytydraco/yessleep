@@ -10,7 +10,7 @@ And right now I don’t care.
 
 **Interview Subject: The Cleanup Crew**
 
-**Classification String:  Cooperative / Destructible / Khthonic / Constant / Moderate / Apeili**
+**Classification String:  Cooperative / Destructible / Khthonic / Constant / Moderate / Apeili**
 
 **Interviewer: Rachele B.**
 
@@ -28,15 +28,15 @@ This time, the number was even worse: 80.2.
 
 A panic attack roared in. I was a failure. A weak, idiotic, disgusting failure with no self control. I stared at myself in the mirror, loathing every line and contour of my body and despising everything inside it until I burst into tears. I cried so hard it made me dizzy. Too dizzy to stand. Too dizzy to even sit. I lay down as sobs wracked my body, curling up on the bath mat as darkness shredded the edges of my vision. My chest felt so heavy, like someone had stacked a hundred bricks and plopped down on top of it. Nausea roiled in, slick and all-consuming.
 
-I blacked out, then juddered back into consciousness on the living room floor, screaming as a paramedic slammed my sternum down again and again, crushing my heart, my lungs, my spine. The pain was so overwhelming I couldn’t move, couldn’t see, couldn’t even think. I could only feel pain exquisite in its profoundness, and a mindless, primal panic because I just knew that each compression was cracking my bones and rupturing my organs. 
+I blacked out, then juddered back into consciousness on the living room floor, screaming as a paramedic slammed my sternum down again and again, crushing my heart, my lungs, my spine. The pain was so overwhelming I couldn’t move, couldn’t see, couldn’t even think. I could only feel pain exquisite in its profoundness, and a mindless, primal panic because I just knew that each compression was cracking my bones and rupturing my organs. 
 
 I tried to shove him off, but I was too weak to even twitch. Pressure in my chest surged, flattening my lungs, and pain swallowed me again.
 
-I woke up in a hospital.   
+I woke up in a hospital.   
 
-I remember the words my doctor used. *Anemia. Critically low blood pressure. Bone loss. Kidney damage. Heart failure.* 
+I remember the words my doctor used. *Anemia. Critically low blood pressure. Bone loss. Kidney damage. Heart failure.* 
 
-The heart failure was why I’d gained weight— all the fluid built up because my own heart was too weak, too damaged, to cycle its own blood. 
+The heart failure was why I’d gained weight— all the fluid built up because my own heart was too weak, too damaged, to cycle its own blood. 
 
 “Can you cure it?” I asked.
 
@@ -52,15 +52,15 @@ Then again, there are a lot of things you don’t expect about eating disorders.
 
 For one thing, you don’t expect the exhaustion. How your mind slows down, how even a full year into recovery you still trail off mid-conversation because your brain can’t pounce on the right words.
 
- 
+ 
 
-No one tells you how every waking moment (and most of your sleeping moments too) are consumed. How the only thing that makes you feel pride, the only thing that makes you feel hopeful, the only thing that makes you feel good, is meeting your restriction goals. 
+No one tells you how every waking moment (and most of your sleeping moments too) are consumed. How the only thing that makes you feel pride, the only thing that makes you feel hopeful, the only thing that makes you feel good, is meeting your restriction goals. 
 
-No one tells you how good it feels when people lavish you with compliments, or how confusing and devastating it is when those compliments dry up. No one tells you that most people eventually stop talking to you. You definitely don’t believe the desperate friends who tell you that you’re not fat, you’re dying, and you only think you’re fat because your brain is so fucked it can’t see reality anymore.   
+No one tells you how good it feels when people lavish you with compliments, or how confusing and devastating it is when those compliments dry up. No one tells you that most people eventually stop talking to you. You definitely don’t believe the desperate friends who tell you that you’re not fat, you’re dying, and you only think you’re fat because your brain is so fucked it can’t see reality anymore.   
 
 You don’t expect the stench, either. The ketone miasma smells like a cocktail of nail polish remover and blood, with a tantalizing note of cat piss.
 
-You don’t expect what happens your teeth, how you’re lucky if it’s only your back molars that crumble. 
+You don’t expect what happens your teeth, how you’re lucky if it’s only your back molars that crumble. 
 
 You don’t expect the scarring that impedes your ability to swallow solid food. No one tells you that your stomach might never stop hurting, even after you get better. No one tells you that you'll sometimes get panic attacks when you take your acid reducer because the berry-flavored coating is sweet.
 
@@ -70,17 +70,17 @@ No one tells you about heart failure. What it’s like to feel crushing pressure
 
 And no one tells you about the time you lose.
 
-I was sick for four years. Years that somehow feel like a fever dream and realer than real at the same time.  Years that mired me in place while everyone and everything I cared about left me behind.
+I was sick for four years. Years that somehow feel like a fever dream and realer than real at the same time.  Years that mired me in place while everyone and everything I cared about left me behind.
 
 But all of these things I didn’t expect happened in the middle of this story. The middle is the least important part. Now I’m going to tell you the beginning.
 
 My big sister Carissa was the best person in the world.
 
-She adopted two ancient mutts and sang lullabies to them every night. She made friends with the crows who lived in the courtyard behind our apartment and taught them to say my name. She donated money to food banks and animal shelters, and cried at TV commercials, and volunteered at Big Brothers Big Sisters until they found out what she did for a living. Even after they banned her, the girls she worked with came to her on their own. When our mom kicked me out, she drove over before I’d even made it down the street and took me to live with her. Didn’t charge me a dime. Didn’t even ask me to buy groceries or pay the water bill. 
+She adopted two ancient mutts and sang lullabies to them every night. She made friends with the crows who lived in the courtyard behind our apartment and taught them to say my name. She donated money to food banks and animal shelters, and cried at TV commercials, and volunteered at Big Brothers Big Sisters until they found out what she did for a living. Even after they banned her, the girls she worked with came to her on their own. When our mom kicked me out, she drove over before I’d even made it down the street and took me to live with her. Didn’t charge me a dime. Didn’t even ask me to buy groceries or pay the water bill. 
 
-I was jealous of her. Desperately jealous. I hated myself for it. I still do. I was a short, fat little wallflower who couldn’t get a second glance from anyone. No one talks about that, either. They talk about unrequited crushes, and the beauty industrial complex, and how pretty women get better jobs and make more money. But they don’t ever talk about how it feels. They don’t talk about that wild, sinking pit that comes with the realization that no one sees you. The despair when you understand you might as well not exist. 
+I was jealous of her. Desperately jealous. I hated myself for it. I still do. I was a short, fat little wallflower who couldn’t get a second glance from anyone. No one talks about that, either. They talk about unrequited crushes, and the beauty industrial complex, and how pretty women get better jobs and make more money. But they don’t ever talk about how it feels. They don’t talk about that wild, sinking pit that comes with the realization that no one sees you. The despair when you understand you might as well not exist. 
 
-Carissa had none of those problems. And I was glad. I didn’t want anyone to feel like me, least of all her. 
+Carissa had none of those problems. And I was glad. I didn’t want anyone to feel like me, least of all her. 
 
 But I was still jealous.
 
@@ -88,11 +88,11 @@ One night after dinner, I realized I was way too full. And I didn’t like the w
 
 That was the night it started. From there, I launched headlong into my diet.
 
-Carissa was my biggest supporter. She supported me in everything I did. Why would a diet be any different? She was my foundation. My accountability partner. My guiding light. That was what Carissa was at her core: Light. She didn’t brighten every room she walked into. She was too wild for that. So bright and so wild that whenever she walked into a room she burned it down. 
+Carissa was my biggest supporter. She supported me in everything I did. Why would a diet be any different? She was my foundation. My accountability partner. My guiding light. That was what Carissa was at her core: Light. She didn’t brighten every room she walked into. She was too wild for that. So bright and so wild that whenever she walked into a room she burned it down. 
 
-Men loved that about her, at least at first. Nick did for sure. 
+Men loved that about her, at least at first. Nick did for sure. 
 
-Nick owned her club. He wasn’t her boss — too high up for that — but he had the final say in everything, especially the girls. 
+Nick owned her club. He wasn’t her boss — too high up for that — but he had the final say in everything, especially the girls. 
 
 That brings me to the last, least important thing about my sister:
 
@@ -100,7 +100,7 @@ She was a stripper.
 
 I know that’s a shitty word. I know there are better descriptors. Exotic dancer, or just dancer. But Carissa chose and claimed the title of Stripper (specifically, the Best Damn Stripper in the Armpit of California) for herself, so that is what I’ll call her.
 
-To me, Nick started off as some distant, vaguely threatening background character in Carissa’s rants about work. But it didn’t take long for that to change. For Nick to notice how bright she shone. How everything burned in her wake. 
+To me, Nick started off as some distant, vaguely threatening background character in Carissa’s rants about work. But it didn’t take long for that to change. For Nick to notice how bright she shone. How everything burned in her wake. 
 
 I knew they were dating before she told me. What I didn’t know was that dating Nick came with expectations. Bad expectations. Expectations that terrified her.  So she broke it off.
 
@@ -114,11 +114,11 @@ I didn’t listen. I went home immediately.
 
 By the time I turned onto our street, firetrucks were there and the parking lot was barricaded. Our apartment window faced the road. It was wide open, and full of fire. An upside down waterfall of flame rippling up into the night.
 
-She managed, somehow, to get her dogs out of the apartment. Our neighbor found them on the landing, howling and wailing at the door. I kept those dogs until they died. I sang them lullabies every night, just like she did. 
+She managed, somehow, to get her dogs out of the apartment. Our neighbor found them on the landing, howling and wailing at the door. I kept those dogs until they died. I sang them lullabies every night, just like she did. 
 
 The sheriff ruled it a suicide. Everyone knew it was bullshit, but they argued that she had obviously planned it because she did it while I was at work and also got her dogs out of the way.
 
-Naturally, the fact that the sheriff was Nick’s uncle never even came up. 
+Naturally, the fact that the sheriff was Nick’s uncle never even came up. 
 
 In the aftermath of my sister’s death, I hatched a million revenge plots against that slimy motherfucker, each less viable than the last. The fact that Nick was still here ate me alive. I literally dreamed of killing him. Stabbing, running him over with the car, drowning him, immolating him, shooting him, crushing him. Sometimes I even dreamed of eating him. Roasting him over the very same fire that killed her and tearing into his body as the hot grease dripped down my chin.
 
@@ -126,9 +126,9 @@ But I wasn’t eating him. If anything, he was eating *me*.
 
 And there was nothing I could do about it.
 
- After that, my life spun out of control.
+ After that, my life spun out of control.
 
-Nowhere to live, nowhere to go, and my best friend — my provider, my advocate, my champion, my protector, my sister — had been stolen from me. No light was left. Only darkness. Living, starving, ravenous darkness. 
+Nowhere to live, nowhere to go, and my best friend — my provider, my advocate, my champion, my protector, my sister — had been stolen from me. No light was left. Only darkness. Living, starving, ravenous darkness. 
 
 I think that’s when my crash diet transformed into an eating disorder:
 
@@ -140,7 +140,7 @@ And then my heart stopped, and I did die, and it actually *was* that bad.
 
 When I woke up and the first thing that doctor said, *I told you if you didn’t eat, you would die,* I said:
 
-“I wish I’d stayed dead.” 
+“I wish I’d stayed dead.” 
 
 They put me in inpatient treatment. They forced me to eat but no matter how much they fed me, I barely gained weight. Eleven pounds in three months. It was insanity. I was hungry all the time but repulsed by food. My body rejected every bite I took, like food itself was poison.
 
@@ -154,7 +154,7 @@ I kept trying to eat, of course. I was so hungry  I tried until I cried every si
 
 That became my life: Crying every day because I was so hungry, and dreaming of killing my sister’s dx-boyfriend every night.
 
-I finally gave up and decided to kill myself. I put on Carissa’s favorite jacket, loaded her favorite album on my phone, put a bottle of painkillers in my pocket, and set off for her favorite bench overlooking the bluffs. I even ordered her favorite sandwich — those chicken bacon ranch things from Quizno's. We used to eat fifteen of them between us. I hadn’t eaten one since she died. The smell made my mouth water. 
+I finally gave up and decided to kill myself. I put on Carissa’s favorite jacket, loaded her favorite album on my phone, put a bottle of painkillers in my pocket, and set off for her favorite bench overlooking the bluffs. I even ordered her favorite sandwich — those chicken bacon ranch things from Quizno's. We used to eat fifteen of them between us. I hadn’t eaten one since she died. The smell made my mouth water. 
 
 I sat down, unwrapped the sandwich, and took a bite.
 
@@ -164,7 +164,7 @@ That was the last straw. I threw the sandwich down the bluffs, sending up a pray
 
 “Don’t do that.”
 
-I jumped, spilling the pills all over the concrete. 
+I jumped, spilling the pills all over the concrete. 
 
 A man stood a few yards up the trail, watching me with glittering eyes.
 
@@ -172,7 +172,7 @@ I had no idea how long he’d been there. I had no idea how I'd missed him. He w
 
 And there was something else.
 
-A long time ago, a dog jumped a fence and chased me. It caught me by the leg and dragged me backward, destroying my ankle in the process. I couldn’t walk for a month. I still have the scars, even now. 
+A long time ago, a dog jumped a fence and chased me. It caught me by the leg and dragged me backward, destroying my ankle in the process. I couldn’t walk for a month. I still have the scars, even now. 
 
 This man made me feel like I was back on that sidewalk, screaming and running for my life as a big angry dog ran me down.
 
@@ -226,7 +226,7 @@ It was as fair a proposition as I could expect under the circumstances, so I too
 
 “Something is eating you. I smell it. It’s devouring you from the inside out.”
 
-Unbidden, Nick’s face floated to the front of my mind, loathsome and loathed. “Not some*thing.*” 
+Unbidden, Nick’s face floated to the front of my mind, loathsome and loathed. “Not some*thing.*” 
 
 Mr. Wolf smiled, wide as the Cheshire Cat. I saw then why his voice was so thick, words flowing together in ways that had nothing to do with his accent:
 
@@ -286,7 +286,7 @@ Back before I was in recovery, my medical team staged periodic interventions. Th
 
 Somehow I never made the connection that I was starting to become them, or that I already was.
 
-Anyway, it makes me sound paranoid to say it now, but I started wondering if this whole insane encounter was just another intervention. If Mr. Wolf was on some medical team or maybe a therapist hired by my aunt. Whether he was going to drive me to a clinic or support group and make me gawk at some  other poor girl so ghastly skinny that her body didn’t look real anymore.
+Anyway, it makes me sound paranoid to say it now, but I started wondering if this whole insane encounter was just another intervention. If Mr. Wolf was on some medical team or maybe a therapist hired by my aunt. Whether he was going to drive me to a clinic or support group and make me gawk at some  other poor girl so ghastly skinny that her body didn’t look real anymore.
 
 “I’m not going anywhere with you,” I said. “Especially not in a goddamn van. I mean, are you serious?”
 
@@ -312,7 +312,7 @@ I reeled back, gagging. Bile burned my throat. The rubbery wet slurry of half-di
 
 There was a crate in the trunk, the kind of reinforced steel box they use for vicious dogs. Mr. Wolf shoved me forward, pressing down on my neck until I was eye-level with the thing inside.
 
-I burst into tears. 
+I burst into tears. 
 
 He leaned down, so close I could smell his breath. “That is what will happen to you if you do not eat.”
 
@@ -340,13 +340,13 @@ After all, I’d been rotting before my own eyes for months. Bruises that sank a
 
 Just like that, the floodgates broke, the dam cracked, and the valley flooded. My first and only true confession.
 
-I told him *everything*. 
+I told him *everything*. 
 
 Things I’d told other people, and things I hadn’t told anyone, including things I hadn’t even told myself. All of it, right down to the way my sister’s ex grinned when the police dropped the charges.
 
 After I finished, Mr. Wolf said, “I’m sorry. My sister is dead, too.” He heaved a great sigh. “I can make sure this man dies. I can make sure you are the one to do it, and I can make sure he knows why you are killing him.”
 
-This was the capstone for the entire insane night. Insanity upon insanity. 
+This was the capstone for the entire insane night. Insanity upon insanity. 
 
 Even so, I believed him.
 
@@ -368,7 +368,7 @@ He rolled his eyes. “I'm too old to be your brother, and have not yet ruined y
 
 I chewed on this a moment. I remembered my sister and all the ways I fantasized about killing her boyfriend. Whatever else he might have been, Mr. Wolf was an answer to a thousand desperate prayers. “I don’t know. Guardian angel?”
 
-Something flickered across his face. “I've met two angels and I'm nothing like either. But I have another idea.” His eyes brightened and he leaned forward suddenly, like an animal about to strike. 
+Something flickered across his face. “I've met two angels and I'm nothing like either. But I have another idea.” His eyes brightened and he leaned forward suddenly, like an animal about to strike. 
 
 My stomach clenched. *Here it comes,* I thought. What always comes with these guys, no matter how nice they seem at first.
 
@@ -392,9 +392,9 @@ For the next three days, I held that knife and prayed to my patron saint.
 
 Those prayers manifested as conversations. I think I talked more in those three days than in all the rest of my life put together. I prayed for strength, opportunity, intelligence, and vengeance. Most of all, I prayed for death.
 
-Saint Wolfman transformed those prayers into a plan.  
+Saint Wolfman transformed those prayers into a plan.  
 
-He wasn’t nice about it. Saint Wolfman wasn’t nice at all. He was belligerent, rude, and unmistakably bloodthirsty. He thought up ways to hurt my sister’s ex that were so gruesome even I couldn’t stomach them. A couple times, I even wondered if he was a worse man than Nick. 
+He wasn’t nice about it. Saint Wolfman wasn’t nice at all. He was belligerent, rude, and unmistakably bloodthirsty. He thought up ways to hurt my sister’s ex that were so gruesome even I couldn’t stomach them. A couple times, I even wondered if he was a worse man than Nick. 
 
 He kept the corpse close at all times, too. “You need the reminder,” he said when I complained. “If you don’t see and smell it, you will forget to eat.”
 
@@ -402,7 +402,7 @@ I hated that thing. I didn’t care if he refused to call it a zombie. That thin
 
 At least I didn’t forget to eat.
 
-On the evening of the third day, we finalized our plan. It was simple: We would corner Nick outside his club, load him into van, and drive him out of the city. We would keep him next to the zombie, because that would scare him. When we got to our destination, we would kill him in all the agonizing ways Saint Wolfman dreamed up for me. 
+On the evening of the third day, we finalized our plan. It was simple: We would corner Nick outside his club, load him into van, and drive him out of the city. We would keep him next to the zombie, because that would scare him. When we got to our destination, we would kill him in all the agonizing ways Saint Wolfman dreamed up for me. 
 
 “Before we begin,” he said, “do you have any questions?”
 
@@ -476,7 +476,7 @@ My heart fell. “But I thought you—”
 
 Equal parts angry, confused, and doubtful, I stumbled after Nick..
 
-But I didn’t stumble for long. 
+But I didn’t stumble for long. 
 
 Every step was easier than the last, every moment more beautiful. The silvered pines, the fragrant mulch deadening my footfalls, the happy moonlight. Even Nick’s acrid onion stench was beautiful. I even liked the way his wet, blubbery whimpers pierced my eardrums.
 
@@ -490,7 +490,7 @@ He shook his head.
 
 “Because you killed my sister." To my horror, a sob worked its way up my throat. "Carissa.”
 
-His face froze. 
+His face froze. 
 
 And then he laughed.
 
@@ -510,7 +510,7 @@ I did.
 
 And I took my time.
 
-I didn’t want to kill Nick. Once he died, he would be free. Once he died, he would be wherever Carissa was. 
+I didn’t want to kill Nick. Once he died, he would be free. Once he died, he would be wherever Carissa was. 
 
 He didn’t deserve that.
 
@@ -538,7 +538,7 @@ I didn’t answer. I couldn’t.
 
 I took Nick’s heart. It was hot to the touch, and firm enough to make me squirm.
 
-Saint Wolfman watched me with his cloudy bright eyes, smile spreading upward even as I watched. 
+Saint Wolfman watched me with his cloudy bright eyes, smile spreading upward even as I watched. 
 
 I took a bite and almost fainted.
 
@@ -548,13 +548,13 @@ It was heaven.
 
 I finished it all, and then I ate the rest of Nick.
 
-I don’t remember falling asleep, but I remember waking up with a full stomach for the first time in years. 
+I don’t remember falling asleep, but I remember waking up with a full stomach for the first time in years. 
 
 And for the first time in almost as long, I didn’t loathe myself for feeling full.
 
 Saint Wolfman was there. He still had Nick’s jaw in his mouth, like dentures designed by Ed Gein.
 
-“Thank you,” I said. “I was wrong. You’re definitely my friend.” 
+“Thank you,” I said. “I was wrong. You’re definitely my friend.” 
 
 “I'm not your friend.”
 
@@ -564,7 +564,7 @@ He gave me a bleak smile. “I am glad to help you. But I do not want the best f
 
 “It was like two days ago, so…yeah?”
 
-“Then you remember that you ran.” 
+“Then you remember that you ran.” 
 
 I didn’t know what he meant. Something in his face made me sure I didn’t want to.
 
@@ -582,18 +582,7 @@ Not liking how it feels when I get full.
 
 \* \* \*
 
-Next Patient:
+[Next Patient](https://www.reddit.com/r/nosleep/comments/1h0p2dz/fuck_hipaa_my_new_patient_keeps_pulling_his_own/)
 
-[https://www.reddit.com/r/nosleep/comments/1h0p2dz/fuck\_hipaa\_my\_new\_patient\_keeps\_pulling\_his\_own/](https://www.reddit.com/r/nosleep/comments/1h0p2dz/fuck_hipaa_my_new_patient_keeps_pulling_his_own/)
 
-First Patient: [https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
-
-Second Patient: [https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck\_hipaa\_i\_messed\_up\_hardcore\_and\_if\_we\_dont/](https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
-
-Third Patient: [https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck\_hipaa\_this\_inmate\_is\_the\_most\_dangerous/](https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck_hipaa_this_inmate_is_the_most_dangerous/)
-
-Fourth Patient: [https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck\_hipaa\_i\_finally\_had\_a\_breakthrough\_with\_a/](https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
-
-Fifth Patient: [https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck\_hipaa\_my\_new\_patient\_doesnt\_even\_need/](https://www.reddit.com/r/nosleep/comments/1gxpkjj/fuck_hipaa_my_new_patient_doesnt_even_need/)
-
-Hastily-Transcribed Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
+[Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)

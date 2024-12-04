@@ -2,11 +2,11 @@ In October 1978, Philadelphia police responded to a dead body call at an abandon
 
 They arrived on scene to discover most of a corpse of young woman on the stage. Her hands and feet were bound.
 
-At some point post-mortem, the perpetrator had decapitated the victim and stitched the head of a bald man onto her neck. Heavy stage makeup had been applied to the man’s face. His mouth was sewed shut. 
+At some point post-mortem, the perpetrator had decapitated the victim and stitched the head of a bald man onto her neck. Heavy stage makeup had been applied to the man’s face. His mouth was sewed shut. 
 
-When one of the responding officers knelt down to inspect these sutures, the corpse’s eyes opened. 
+When one of the responding officers knelt down to inspect these sutures, the corpse’s eyes opened. 
 
-The body shuddered to life, stretching until the bindings broke. The amalgam rose unsteadily to its feet, dipped into a formal bow, and began to move. 
+The body shuddered to life, stretching until the bindings broke. The amalgam rose unsteadily to its feet, dipped into a formal bow, and began to move. 
 
 The braver of the two officers grabbed the corpse, believing it to be a hoax of some kind. He grabbed it by the throat with such force that he tore the sutures attaching the man’s head to the woman’s neck.
 
@@ -16,9 +16,9 @@ At this point, someone yelled, “Stop it! You’re interrupting him!”
 
 The speaker was a young girl of approximately ten years old, sitting at the highest point in the auditorium: A crumbling balcony with no visible point of egress.
 
-The corpse paid her no attention, and began whirling feverishly around the stage. The head was still only partially detached, but the corpse seemed unaware. 
+The corpse paid her no attention, and began whirling feverishly around the stage. The head was still only partially detached, but the corpse seemed unaware. 
 
- Per their later testimony, the police officers slowly realized they were watching a one-man reenactment of a murder. As the gruesome performance carried on, the little girl in the corner began to cry with steadily increasing emotion. Her weeping finally culminated in a wail when the corpse mimed sawing his own head off. He pulled his head off, sutures snapping loudly as they parted through the flesh, then tucked it under his arm and ran backstage and out of sight. 
+ Per their later testimony, the police officers slowly realized they were watching a one-man reenactment of a murder. As the gruesome performance carried on, the little girl in the corner began to cry with steadily increasing emotion. Her weeping finally culminated in a wail when the corpse mimed sawing his own head off. He pulled his head off, sutures snapping loudly as they parted through the flesh, then tucked it under his arm and ran backstage and out of sight. 
 
 Despite the distance between the theater and AHH-NASCU, the Harlequin — by all accounts secure in his cell inside the facility —expressed knowledge of this incident. He provided staff with the address of the theater and told them, “My son is performing there tonight. Not one of his best, unfortunately, but I’ll tell him you’re coming if you like.”
 
@@ -36,45 +36,45 @@ Personnel quickly realized they had arrived toward the end of the performance. T
 
 Shortly after their arrival, the corpse completed its performance and retreated backstage.
 
-Approximately two minutes later, a man with a face identical to that of the head sewn onto the woman’s corpse returned onstage, visibly weeping. In his arms was the woman’s corpse, now headless. Chest heaving silently, he gave a deep bow. 
+Approximately two minutes later, a man with a face identical to that of the head sewn onto the woman’s corpse returned onstage, visibly weeping. In his arms was the woman’s corpse, now headless. Chest heaving silently, he gave a deep bow. 
 
-As agents watched, the crying child bolted onstage and hugged the man, at which point the agents made themselves known. 
+As agents watched, the crying child bolted onstage and hugged the man, at which point the agents made themselves known. 
 
-The man vanished backstage. When agents attempted to follow, the child interfered. By the time she was restrained, the man was nowhere to be found. 
+The man vanished backstage. When agents attempted to follow, the child interfered. By the time she was restrained, the man was nowhere to be found. 
 
-Resigned, they returned to interrogate the girl, who was still standing onstage. 
+Resigned, they returned to interrogate the girl, who was still standing onstage. 
 
-She refused to provide her name, but was willing to answer other questions. When asked what the corpse had been doing, the girl answered, “He’s showing me what Randall did.” When asked if the entity was Randall, she shook her head. When asked who the man was, she said, “Pantomime. He taught me how to act.” Finally, when asked why Pantomime would show her such a terrible thing, she said, “Because he’s sorry.” 
+She refused to provide her name, but was willing to answer other questions. When asked what the corpse had been doing, the girl answered, “He’s showing me what Randall did.” When asked if the entity was Randall, she shook her head. When asked who the man was, she said, “Pantomime. He taught me how to act.” Finally, when asked why Pantomime would show her such a terrible thing, she said, “Because he’s sorry.” 
 
 She refused to provide any additional information. When the agents attempted to take her into custody, Pantomime reappeared and attacked them with catastrophic results, allowing her to escape.
 
-Once she was no longer onsite, Pantomime transformed. He became docile and even expressed regret in a nonverbal manner for the injuries he inflicted on the agents. He then waited obediently for additional personnel to arrive, and came into Agency custody without further incident. 
+Once she was no longer onsite, Pantomime transformed. He became docile and even expressed regret in a nonverbal manner for the injuries he inflicted on the agents. He then waited obediently for additional personnel to arrive, and came into Agency custody without further incident. 
 
-When asked why, he wrote a simple answer: 
+When asked why, he wrote a simple answer: 
 
 *Because my father can’t get me if I go with you*
 
-Investigation post-arrest showed that Pantomime’s stomach contained partially-digested bone matter and meat from a human victim. When Agency personnel removed his mouth sutures, they discovered that his tongue was missing. 
+Investigation post-arrest showed that Pantomime’s stomach contained partially-digested bone matter and meat from a human victim. When Agency personnel removed his mouth sutures, they discovered that his tongue was missing. 
 
-Experimentation shows that Pantomime is able to remove and reattach his head and limbs at will. He is able to attach his head and limbs onto dead bodies. Pantomime maintains control over any limb attached to another individual. For example, if his head is attached to someone else, he has complete control over that body until decomposition compromises the structures. 
+Experimentation shows that Pantomime is able to remove and reattach his head and limbs at will. He is able to attach his head and limbs onto dead bodies. Pantomime maintains control over any limb attached to another individual. For example, if his head is attached to someone else, he has complete control over that body until decomposition compromises the structures. 
 
 Additionally, Pantomime has the ability to project mental images and fantasies into reality for limited amounts of time. He can only do this after consuming human brain tissue. Pantomime’s most-frequently projected “scenes” consist of himself and a young woman. Nothing of note ever happens in these scenes.
 
 Pantomime’s tongue has been observed to reappear and disappear in apparently random fashion. It should be noted that on 11/26/2024, Pantomime’s tongue reappeared and he asked to speak to Commander R. Wingaryde. Pantomime disclosed largely nonspecific knowledge of a plot between the Harlequin and unknown Agency personnel. This disclosure, combined with the return of Pantomime’s ability to speak, prompted administration to schedule an interview with the Agency’s specialized interviewer with the goal of obtaining additional details about this plot.
 
-It should be noted that Pantomime rarely speaks. Nevertheless, he can write and does so extensively with little prompting. The caveats with Pantomime’s writing are as follows: 
+It should be noted that Pantomime rarely speaks. Nevertheless, he can write and does so extensively with little prompting. The caveats with Pantomime’s writing are as follows: 
 
-1) His writings take the form of stage plays, complete with character dialogue and stage directions 
+1) His writings take the form of stage plays, complete with character dialogue and stage directions 
 
-2) Every one of Pantomime’s works is titled “All the World’s a Stage” 
+2) Every one of Pantomime’s works is titled “All the World’s a Stage” 
 
-3) The Harlequin is a recurring figure in Pantomime’s plays 
+3) The Harlequin is a recurring figure in Pantomime’s plays 
 
-The relationship between Pantomime and the Harlequin is not understood. Pantomime consistently refuses to elaborate. The Harlequin describes their relationship thus: “My son sang most beautifully in my city bright.” 
+The relationship between Pantomime and the Harlequin is not understood. Pantomime consistently refuses to elaborate. The Harlequin describes their relationship thus: “My son sang most beautifully in my city bright.” 
 
 Pantomime’s many plays are primarily a variation on a theme. They follow the life of Pantomime as he forms a friendship with a young woman named Sarita.
 
-The plays are always told through Sarita’s perspective. Sarita is a poverty-stricken woman who is bullied mercilessly both at home and at work. Sarita’s childhood dream is to be an actress, although she knows it will never happen due to her unattractiveness and her lack of talent. But the dream doesn’t die. As stated in one of the most notable lines of the play, this dream “burns on in defiance of reality.” 
+The plays are always told through Sarita’s perspective. Sarita is a poverty-stricken woman who is bullied mercilessly both at home and at work. Sarita’s childhood dream is to be an actress, although she knows it will never happen due to her unattractiveness and her lack of talent. But the dream doesn’t die. As stated in one of the most notable lines of the play, this dream “burns on in defiance of reality.” 
 
 One day, Sarita finds an abandoned theater. She begins to spend her free time there, twirling around onstage and acting out scenes in private, far from critical eyes.
 
@@ -84,16 +84,16 @@ But unbeknownst to her, Pantomime lives in the theater and he loves to watch her
 
 One day, she catches him spying on her. Rather than running away, she chases him through the theater until she corners him backstage.
 
-They form a friendship. Sarita and Pantomime spend their afternoons acting together. Something strange happens when they’re onstage – Sarita changes, becoming more beautiful, and the scenes they act out start to become real. She describes it as an enchantment, a real-life fantasy world that evaporates at the curtain call. 
+They form a friendship. Sarita and Pantomime spend their afternoons acting together. Something strange happens when they’re onstage – Sarita changes, becoming more beautiful, and the scenes they act out start to become real. She describes it as an enchantment, a real-life fantasy world that evaporates at the curtain call. 
 
-What Sarita doesn’t know is that that Pantomime lives in the theater because it is used as a dumping ground by a killer. The stream of bodies provides Pantomime with a steady supply of human bones and human brains through which he derives the energy required to briefly project his and Sarita’s scenes into reality. 
+What Sarita doesn’t know is that that Pantomime lives in the theater because it is used as a dumping ground by a killer. The stream of bodies provides Pantomime with a steady supply of human bones and human brains through which he derives the energy required to briefly project his and Sarita’s scenes into reality. 
 
-One day, Sarita’s friend Debbie disappears. Sarita goes to Pantomime’s theater, bursting inside just in time to see Pantomime biting into Debbie’s head. 
+One day, Sarita’s friend Debbie disappears. Sarita goes to Pantomime’s theater, bursting inside just in time to see Pantomime biting into Debbie’s head. 
 
 Sarita believes Pantomime is the killer and runs away, never to return.  
 
 
-After her departure, Pantomime cries silently until the Harlequin appears. (Note: Alone of the characters in Pantomime’s plays, the Harlequin speaks in iambic pentameter. In his writings, Pantomime’s iambic pentameter is flawless. The Harlequin also speaks in iambic pentameter in the interview transcribed below. However, the interviewer noted multiple flaws in either meter or stressed syllables in the Harlequin’s iambic pentameter as verbally related by Pantomime. Whether this is relevant is not  known.)
+After her departure, Pantomime cries silently until the Harlequin appears. (Note: Alone of the characters in Pantomime’s plays, the Harlequin speaks in iambic pentameter. In his writings, Pantomime’s iambic pentameter is flawless. The Harlequin also speaks in iambic pentameter in the interview transcribed below. However, the interviewer noted multiple flaws in either meter or stressed syllables in the Harlequin’s iambic pentameter as verbally related by Pantomime. Whether this is relevant is not  known.)
 
   
 The Harlequin asks, “Remember how you sang so beautifully for gods and monsters in my bright city?”
@@ -102,9 +102,9 @@ The Harlequin asks, “Remember how you sang so beautifully for gods and monster
 
 Pantomime only weeps.
 
- 
+ 
 
-The Harlequin tells Pantomime that he’ll take him back to the City Bright if he doesn’t find Sarita and consume her head. He retreats backstage, leaving Pantomime to weep until curtain. 
+The Harlequin tells Pantomime that he’ll take him back to the City Bright if he doesn’t find Sarita and consume her head. He retreats backstage, leaving Pantomime to weep until curtain. 
 
 The Agency notes that Pantomime exhibited significant psychological distress when he learned that the Harlequin is also incarcerated at the Pantheon.
 
@@ -114,9 +114,9 @@ The Agency notes that Pantomime exhibited significant psychological distress whe
 
 
 
-**Interview Subject: Pantomime** 
+**Interview Subject: Pantomime** 
 
-***Classification String: Noncooperative / Indestructible / Agnosto / Constant / Substantial / Hemitheos*** 
+***Classification String: Noncooperative / Indestructible / Agnosto / Constant / Substantial / Hemitheos*** 
 
 **Interviewer: Rachele B.**
 
@@ -144,7 +144,7 @@ It was a scary feeling. *Real* scary, especially because strictly speaking, she 
 
 
 
-But she didn’t hold it against me. She was such a good girl. 
+But she didn’t hold it against me. She was such a good girl. 
 
 
 
@@ -156,7 +156,7 @@ Sometimes we’d pick through the lost and found bins on our breaks, especially 
 
 
 
-During hockey season, we’d turn on the spotlights and go slipping and sliding all over the ice. She called it “primitive ice-skating,” but mostly it was just falling. I didn’t care. 
+During hockey season, we’d turn on the spotlights and go slipping and sliding all over the ice. She called it “primitive ice-skating,” but mostly it was just falling. I didn’t care. 
 
 
 
@@ -184,7 +184,7 @@ Me, though? I wasn’t a good guy.
 
 
 
-She didn’t know that. I used to have nightmares about her finding out. Isn’t that crazy? Literal nightmares. I don’t know what I would have done if she’d known how good I wasn’t. She wouldn’t have showed me her Special Christmas Tree or taken me slipping and sliding all over the ice with me if she’d known. 
+She didn’t know that. I used to have nightmares about her finding out. Isn’t that crazy? Literal nightmares. I don’t know what I would have done if she’d known how good I wasn’t. She wouldn’t have showed me her Special Christmas Tree or taken me slipping and sliding all over the ice with me if she’d known. 
 
 
 
@@ -192,11 +192,11 @@ She definitely wouldn’t have been my best friend if she’d have known.
 
 
 
-So I’m real glad she didn’t know. 
+So I’m real glad she didn’t know. 
 
 
 
-Like I told you, I knew even before I said a word to her that I wanted to give her the world. You know how fucked up that is, feeling that way when there’s nothing you can do about it? Knowing you’d burn the world down for someone but never even getting a chance to buy the match you need to do it? 
+Like I told you, I knew even before I said a word to her that I wanted to give her the world. You know how fucked up that is, feeling that way when there’s nothing you can do about it? Knowing you’d burn the world down for someone but never even getting a chance to buy the match you need to do it? 
 
 
 
@@ -204,7 +204,7 @@ She was an ugly girl, yeah, but it didn’t matter to me. That’s not the probl
 
 
 
-And one of them didn’t need to buy a match because he owned the goddamn match factory. 
+And one of them didn’t need to buy a match because he owned the goddamn match factory. 
 
 
 
@@ -212,7 +212,7 @@ I was nice about it. I really was. Not all the time, of course. Not even most of
 
 
 
-But when I was with my girl in the arena breaking down the sets and preparing for tomorrow’s show and cleaning beer and soda pop and God knows what else off the stands, when we were sitting down around our special Christmas Tree and when we were slip-sliding all over the under under spotlights so hot they made the ice melt a little under our feet — I was nice about it. 
+But when I was with my girl in the arena breaking down the sets and preparing for tomorrow’s show and cleaning beer and soda pop and God knows what else off the stands, when we were sitting down around our special Christmas Tree and when we were slip-sliding all over the under under spotlights so hot they made the ice melt a little under our feet — I was nice about it. 
 
 
 
@@ -288,7 +288,7 @@ I’d have done anything to pull the world off her. Anything at all. That’s al
 
 
 
-She went home after she told me dreams aren’t real, leaving me to clean up the rest of the mess by myself. She called in sick the night after, too. It was hard being in there without her. I started pretending that she was there with me, helping me break down the sets and prep for tomorrow’s show and cleaning up the beer and the soda pop and God knows what else. I pretended it was like the old days, before the rich fucker broke her heart. I pretended to pick presents out from our special tree. I got on the ice and pretended I was slipping and sliding with her. I pretended we were getting closer. I pretended she looked at me under the lights and realized I was her dream come true. 
+She went home after she told me dreams aren’t real, leaving me to clean up the rest of the mess by myself. She called in sick the night after, too. It was hard being in there without her. I started pretending that she was there with me, helping me break down the sets and prep for tomorrow’s show and cleaning up the beer and the soda pop and God knows what else. I pretended it was like the old days, before the rich fucker broke her heart. I pretended to pick presents out from our special tree. I got on the ice and pretended I was slipping and sliding with her. I pretended we were getting closer. I pretended she looked at me under the lights and realized I was her dream come true. 
 
 
 
@@ -348,7 +348,7 @@ And when he said that—about life being a strain — I knew he was *really* say
 
 
 
-That’s what I told him, too: Fuck you. 
+That’s what I told him, too: Fuck you. 
 
 
 
@@ -364,7 +364,7 @@ Crazy, right?
 
 
 
-Crazy enough that I’d already had enough. Crazy big Shakespeare bastard or not, I was done. I got up, taking care so I didn’t fall and crack my head again, and started to march out. I was looking forward to calling the cops on this bastard for trespassing. 
+Crazy enough that I’d already had enough. Crazy big Shakespeare bastard or not, I was done. I got up, taking care so I didn’t fall and crack my head again, and started to march out. I was looking forward to calling the cops on this bastard for trespassing. 
 
 
 
@@ -398,7 +398,7 @@ I should have either gotten mad — like really pissy at this bastard for making
 
 Run the hell away and never think about this again.
 
- 
+ 
 
 That’s not what I did.
 
@@ -476,7 +476,7 @@ Before I could, the monster pulled me away — cooked cheek skin sticking to tha
 
 
 
-I knew what he saying — that he could either burn me again or make my dreams come true, it was up to me and he didn’t care which choice I made because it would be entertaining either way — but I couldn’t answer. That’s because I was still seeing what was under his hood. 
+I knew what he saying — that he could either burn me again or make my dreams come true, it was up to me and he didn’t care which choice I made because it would be entertaining either way — but I couldn’t answer. That’s because I was still seeing what was under his hood. 
 
 
 
@@ -508,7 +508,7 @@ How I’d burn the world down for her if she asked.
 
 
 
-How maybe — maybe maybe maybe — I’d just been given something. Not a match. 
+How maybe — maybe maybe maybe — I’d just been given something. Not a match. 
 
 
 
@@ -578,7 +578,7 @@ After it burned down — after the firemen came, after I watched them try and fa
 
 
 
-I didn’t know what to expect, exactly. But after all that, I definitely expected something. 
+I didn’t know what to expect, exactly. But after all that, I definitely expected something. 
 
 
 
@@ -614,7 +614,7 @@ It was hard to figure out what he was saying, but we kept talking til I did. Bas
 
 
 
-I wasn’t happy about that, but couldn’t really argue. Honestly it made sense. I mean, as much as anything that happened that night made sense. 
+I wasn’t happy about that, but couldn’t really argue. Honestly it made sense. I mean, as much as anything that happened that night made sense. 
 
 
 
@@ -626,7 +626,7 @@ It was Hell.
 
 
 
-Worse than Hell, ‘cause at least Hell has a point. 
+Worse than Hell, ‘cause at least Hell has a point. 
 
 
 
@@ -646,7 +646,7 @@ I learned how to take myself apart and put myself back together.
 
 
 
-I learned how to be entertaining. 
+I learned how to be entertaining. 
 
 
 
@@ -666,7 +666,7 @@ Here’s what happened:
 
 
 
-After all that — after going to a Hell with no point and too many points— you know what my girl’s dream was? 
+After all that — after going to a Hell with no point and too many points— you know what my girl’s dream was? 
 
 
 
@@ -698,11 +698,11 @@ While I sat there, feeling ugly thoughts and thinking ugly things, that crazy ba
 
 
 
-What he was saying was I needed to kill the rich fucker. Kill the rich fucker, and take him apart.  But don’t put him back together.
+What he was saying was I needed to kill the rich fucker. Kill the rich fucker, and take him apart.  But don’t put him back together.
 
 
 
-He was saying kill the rich fucker, take him apart, and use the pieces to make dreams come true. Just like I learned in the City Bright. 
+He was saying kill the rich fucker, take him apart, and use the pieces to make dreams come true. Just like I learned in the City Bright. 
 
 
 
@@ -750,7 +750,7 @@ And they *were* strong. Super strong. So strong that they were true.
 
 
 
-The problem is, something can be true without being real. 
+The problem is, something can be true without being real. 
 
 
 
@@ -786,7 +786,7 @@ That’s when what was real broke through what was true.
 
 
 
-What was real was that my girl wasn’t smiling and happy. She was pale and crying. She was scared of me. I figured she didn’t recognize me. To be fair, I look real different since my father got ahold of me. I was stupid to forget that. No wonder my girl didn’t know me. I didn’t look right. 
+What was real was that my girl wasn’t smiling and happy. She was pale and crying. She was scared of me. I figured she didn’t recognize me. To be fair, I look real different since my father got ahold of me. I was stupid to forget that. No wonder my girl didn’t know me. I didn’t look right. 
 
 
 
@@ -814,7 +814,7 @@ But that didn’t happen, because I only made it halfway.
 
 
 
-After I killed the rich fucker, I was in too much of a hurry. When I put myself back together, I didn’t pull my stitches tight. 
+After I killed the rich fucker, I was in too much of a hurry. When I put myself back together, I didn’t pull my stitches tight. 
 
 
 
@@ -830,7 +830,7 @@ I grabbed her to break my fall. She tried to get out of my grip, but she was hol
 
 
 
-Then she was the one flopping on the stained linoleum like a puppet with its strings cut. 
+Then she was the one flopping on the stained linoleum like a puppet with its strings cut. 
 
 
 
@@ -866,7 +866,7 @@ But I still had my regular dreams. Regular sleeping dreams where I was together 
 
 
 
-But I haven’t been able to dream in months. I mean it. I haven’t seen my dreams or my good girl in *months.* 
+But I haven’t been able to dream in months. I mean it. I haven’t seen my dreams or my good girl in *months.* 
 
   
 
@@ -875,7 +875,7 @@ And it’s his fault.
 
 
 
-The bastard that did this to me in the first place took away my dreams. He told me so by cutting messages in my skin. See? There’s a bunch. I’ll show you. Look. This one, right here, it says, 
+The bastard that did this to me in the first place took away my dreams. He told me so by cutting messages in my skin. See? There’s a bunch. I’ll show you. Look. This one, right here, it says, 
 
 
 
@@ -915,13 +915,13 @@ And he wrote me this one just last night. He even signed it:
   
 
 
-*Arlecchino* 
+*Arlecchino* 
 
 
 
 
 
-You know what he means, right? He’s using all these fancy words just to say I’m a bad son with no entertainment value, and bad sons with no entertainment value don’t deserve to have dreams. 
+You know what he means, right? He’s using all these fancy words just to say I’m a bad son with no entertainment value, and bad sons with no entertainment value don’t deserve to have dreams. 
 
 
 
@@ -941,15 +941,15 @@ It’s not real. I know that. Dreams aren’t real.
 
 
 
-But they come straight from my heart. 
+But they come straight from my heart. 
 
 
 
-And that at least means they’re true.  
+And that at least means they’re true.  
 
 
 
-That means something, right? 
+That means something, right? 
 
 
 
@@ -958,8 +958,8 @@ I mean, that’s got to count for *something*.
 
 * * *
 
-Next Interview: https://www.reddit.com/r/nosleep/comments/1h3d1zz/fuck_hipaa_my_new_patient_is_mimicking_me_and_im/
+[Next Interview](https://www.reddit.com/r/nosleep/comments/1h3d1zz/fuck_hipaa_my_new_patient_is_mimicking_me_and_im/)
 
-Previous Interview: https://www.reddit.com/r/nosleep/comments/1h1hynr/fuck_hipaa_my_new_patient_is_a_cold_case_file/
+[Previous Interview](https://www.reddit.com/r/nosleep/comments/1h1hynr/fuck_hipaa_my_new_patient_is_a_cold_case_file/)
 
-Employee Handbook: https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/
+[Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)

@@ -1135,6 +1135,6 @@ All I really know that for the first time since I got here, I just want to get t
 
 \* \* \*
 
-Previous Patient: [https://www.reddit.com/r/nosleep/comments/1gzskr3/fuck\_hipaa\_my\_new\_patient\_just\_triggered\_the\_hell/](https://www.reddit.com/r/nosleep/comments/1gzskr3/fuck_hipaa_my_new_patient_just_triggered_the_hell/)
+[Previous Patient](https://www.reddit.com/r/nosleep/comments/1gzskr3/fuck_hipaa_my_new_patient_just_triggered_the_hell/)
 
-Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
+[Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)

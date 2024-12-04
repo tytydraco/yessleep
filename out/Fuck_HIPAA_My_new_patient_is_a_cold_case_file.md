@@ -1,16 +1,16 @@
-Dolly Doe is the moniker given to an unidentified juvenile homicide victim whose remains were discovered under a highway overpass in an undisclosed U.S. city in 1979. 
+Dolly Doe is the moniker given to an unidentified juvenile homicide victim whose remains were discovered under a highway overpass in an undisclosed U.S. city in 1979. 
 
-The crime provides the the inspiration of a particularly gruesome urban legend that originally arose in the area in the 1980s. The details of the story are as follows: 
+The crime provides the the inspiration of a particularly gruesome urban legend that originally arose in the area in the 1980s. The details of the story are as follows: 
 
 The decapitated revenant of a dead girl holding a baby doll appears under the overpass every full moon at midnight. She is headless and covered in blood. All of her limbs are broken, giving her movements a weird, floppy appearance.
 
-If you are unlucky enough to find yourself under that specific overpass on midnight at a full moon, the dead girl will kill you. 
+If you are unlucky enough to find yourself under that specific overpass on midnight at a full moon, the dead girl will kill you. 
 
 It doesn’t matter who you are. Partiers, drunk teenagers, urban explorers, vagrants, and the occasional unlucky midnight wanderer are all fair game. Once the dead girl spots you, she hobbles, runs, or crawls (exact details depend on who tells the story) at you on these broken limbs. When she catches you, she tears your head off.
 
 In some versions of the tale, the doll is an animate hunter who helps the dead girl kill victims. In others, it issues shrill warnings to prospective victims right before the revenant strikes.
 
-Although entirely implausible, the details about the doll certainly make for a terrifying mental image and likely contribute to the legend’s endurance. 
+Although entirely implausible, the details about the doll certainly make for a terrifying mental image and likely contribute to the legend’s endurance. 
 
 In 1987, the legend enjoyed a resurgence following the death of a local child named Victor.
 
@@ -18,7 +18,7 @@ Victor lived near the overpass and was known to express great interest in the le
 
 Paradoxically (if not surprisingly), Victor’s tragic fate led a steady trickle of eager visitors, most of whom were children and teenagers, to the underpass in the hopes of glimpsing Dolly Doe for themselves.
 
-Over the next five years, over a dozen children were struck by the same wasting disease that took Victor’s life. 
+Over the next five years, over a dozen children were struck by the same wasting disease that took Victor’s life. 
 
 Had the Agency not apprehended the entity, the death toll would undoubtedly be much higher.
 
@@ -28,15 +28,15 @@ Despite the entity’s overall lack of cooperation, the organization was able to
 
 In brief:
 
-Through an as-yet unknown mechanism that the Agency cannot replicate or study for ethical reasons, Dolly Doe attempted to possess Victor and to an extent, she succeeded. 
+Through an as-yet unknown mechanism that the Agency cannot replicate or study for ethical reasons, Dolly Doe attempted to possess Victor and to an extent, she succeeded. 
 
-However, the boy’s neural pathways proved fundamentally incompatible with her consciousness. So, to all outward appearances, Victor lost his mind. Dolly refused to vacate his body, although it must be noted that the extent of the damage was most likely so significant so quickly that leaving most likely would not have saved Victor’s life. 
+However, the boy’s neural pathways proved fundamentally incompatible with her consciousness. So, to all outward appearances, Victor lost his mind. Dolly refused to vacate his body, although it must be noted that the extent of the damage was most likely so significant so quickly that leaving most likely would not have saved Victor’s life. 
 
 Within six days, scans showed that physical degeneration on a level usually seen in advanced dementia patients was present in Victor’s brain, followed by lesions that rapidly metastasized into tumors. Despite this, Dolly persisted in her possession and attempted control of Victor’s body.
 
-Her efforts ended abruptly when Victor died twenty-two days after she first possessed him. 
+Her efforts ended abruptly when Victor died twenty-two days after she first possessed him. 
 
-Most unfortunately, Victor was not Dolly’s last victim. 
+Most unfortunately, Victor was not Dolly’s last victim. 
 
 As previously mentioned, Victor’s death gave the urban legend of Dolly Doe new prominence, leading thrill seekers and daredevils to hunt for her under the overpass.
 
@@ -48,11 +48,11 @@ All in all, Dolly had fourteen victims. Some Agency personnel wish to classify h
 
 Following her evaluation (recorded below) with the Agency’s specialized interviewer, however, personnel now believe this is a highly inaccurate conclusion. Dolly is not malicious. She is not a killer. She feels no compulsion to end lives. Her intention was never to harm.
 
-Malicious or not, however, she is critically dangerous and it fair to characterize her as a slow-burn mass casualty event. 
+Malicious or not, however, she is critically dangerous and it fair to characterize her as a slow-burn mass casualty event. 
 
-Despite extensive effort on the part of the Agency, details of Dolly Doe’s identity, life, and death remain unknown. 
+Despite extensive effort on the part of the Agency, details of Dolly Doe’s identity, life, and death remain unknown. 
 
-Even she is unaware of these details. In fact, Dolly does not even recall her own name. In the opinion of medical staff, the combination of Dolly’s obviously abusive childhood and the severe trauma surrounding her death resulted in selective amnesia that persists, even in her Khthonic state. 
+Even she is unaware of these details. In fact, Dolly does not even recall her own name. In the opinion of medical staff, the combination of Dolly’s obviously abusive childhood and the severe trauma surrounding her death resulted in selective amnesia that persists, even in her Khthonic state. 
 
 **Please note that following the highly destructive behavior she exhibited during the last attempt to help her recall a seemingly innocuous detail about her childhood, there are no to be no attempts at memory recall for this inmate at this time.**
 
@@ -68,19 +68,13 @@ In a somewhat interesting footnote, Dolly remained under the radar for as long a
 
 It should be noted that the interviewer has suggested that staff facilitate introduction of Dolly Doe to the Bye-Bye Mommy. This request has been submitted to administration by Dr. Wingaryde.
 
+**Interview Subject: Dolly Doe** 
 
-
-
-
-**Interview Subject: Dolly Doe** 
-
-**Classification String: Noncooperative / Indestructible / Khthonic / Constant / Moderate / Daemon** 
+**Classification String: Noncooperative / Indestructible / Khthonic / Constant / Moderate / Daemon** 
 
 **Interviewer: Rachele B.**
 
 **Interview Date: 11/26/24**
-
-
 
 I’ve dreamed about my mom for as along as I can remember.
 
@@ -122,11 +116,11 @@ Even though it was bad, the lie made Victor stay. That was good, I think. At lea
 
 Victor stayed under the overpass with me all day. We got to be friends really fast. We talked about so many things. He was sometimes kind of rude — like, he told me I was way too old for my doll — but mostly he was just really nice. I was so glad he was there. It was the first time anyone saw me and didn’t run.
 
-When it was time for him to go home, he asked where I lived so he could come over and we could play together. 
+When it was time for him to go home, he asked where I lived so he could come over and we could play together. 
 
 “I live here,” I said. “Right over there, by the old clothes.”
 
-“Are you homeless?” He sounded so…so *worried*. I don’t remember anyone ever worrying about me. It made me smile. 
+“Are you homeless?” He sounded so…so *worried*. I don’t remember anyone ever worrying about me. It made me smile. 
 
 “I don’t know. I guess so.”
 
@@ -148,7 +142,7 @@ Even after he got over it, I think he still didn’t like being too close to me.
 
 But that’s okay, because I kind of remember from a really long time ago — back when I still knew how to eat and had to sleep sometimes — that there had been something that was too scary for me to look at, too.
 
-So it didn’t make me mad. 
+So it didn’t make me mad. 
 
 Besides, how could I even be mad at Victor? He still wanted to be my friend, almost as much as I wanted to be his.
 
@@ -158,7 +152,7 @@ That’s one of the nicest things anyone ever said to me. I think of all the nic
 
 But sometimes Victor made me mad too, even when he was being nice. One of the things that always made me really mad was when he tried to make me remember.
 
-I don’t want to remember anything about when I still had to sleep and remembered how to eat. I really don’t, okay? And I told him that, but he didn’t ever listen. He only ever said that the only way I was going to “move into the light” was if I remembered what happened to me. 
+I don’t want to remember anything about when I still had to sleep and remembered how to eat. I really don’t, okay? And I told him that, but he didn’t ever listen. He only ever said that the only way I was going to “move into the light” was if I remembered what happened to me. 
 
 But there was no light. That’s what Victor didn’t get. *There’s no light*. There’s only the dark where I used to sit and cry, and the deeper, scarier dark behind it.
 
@@ -182,7 +176,7 @@ He said his life sucked because he was poor, and there was never enough food for
 
 There were other reasons Victor’s life sucked, too. He said he was bad in school because he had dyslexia, and his teachers always told he would have no future unless he got better at reading. Isn’t that mean? I think that’s so mean.
 
-He also said the bullies sometimes made him wish he could die. He said it got so bad sometimes that he  even thought about doing it himself. That made me really sad and angry, but also kind of excited. If Victor did it to himself, then he could come be under the overpass with me. 
+He also said the bullies sometimes made him wish he could die. He said it got so bad sometimes that he  even thought about doing it himself. That made me really sad and angry, but also kind of excited. If Victor did it to himself, then he could come be under the overpass with me. 
 
 But I didn’t like thinking those things. It felt so mean. I’m not mean. Really, I’m not.
 
@@ -228,29 +222,29 @@ And in my new dreams, I wasn’t me anymore.
 
 I was Victor.
 
-I was Victor in his little apartment eating dinner with his mom. But even though I was Victor, I was *better*. I know that sounds so mean. But it was just dreams, so it doesn’t count. In the dreams, I was a better kid than Victor. I was nicer and more grateful and funnier, and most of all I loved my mom — his mom — more than he ever did. 
+I was Victor in his little apartment eating dinner with his mom. But even though I was Victor, I was *better*. I know that sounds so mean. But it was just dreams, so it doesn’t count. In the dreams, I was a better kid than Victor. I was nicer and more grateful and funnier, and most of all I loved my mom — his mom — more than he ever did. 
 
 It was just dreams, though. I promise.
 
 The more I dreamed, the meaner Victor got about his mom. At least it seemed that way. And eventually he just wouldn’t stop. All he did, every time he came to visit, was complain about her. *That* was mean. No matter what, even when I told him to shut up again. And finally, I just got *really* mad. Madder than I think I’ve ever been.
 
-When I get really mad, I get mean. 
+When I get really mad, I get mean. 
 
 I don’t want to talk about how mean I got. I don’t want to remember it but I do. I guess I’m stuck remembering.
 
-Pretty much what I did was just stand there, staring at Victor while he complained about his mom. While I was standing there,  I started thinking about my dreams. The ones where I was Victor, but better. A Victor who was good and nice and didn’t complain about dinner or work and loved his mom the way she loved him.
+Pretty much what I did was just stand there, staring at Victor while he complained about his mom. While I was standing there,  I started thinking about my dreams. The ones where I was Victor, but better. A Victor who was good and nice and didn’t complain about dinner or work and loved his mom the way she loved him.
 
 And then the dream turned real.
 
 I was Victor.
 
-Victor was still Victor too, though. It was so weird. I didn’t like how it felt. I tried to turn the dream into a dream again, but it didn’t work. 
+Victor was still Victor too, though. It was so weird. I didn’t like how it felt. I tried to turn the dream into a dream again, but it didn’t work. 
 
 When it didn’t work, I thought maybe it was for the best. That’s exactly what I thought: Maybe it’s for the best. Maybe Victor and I can be a kid together. Wouldn’t that be cool? It’s like being brother and sister, only better.
 
-So I told Victor that’s what we were going to do. It made him scream. He screamed out of my mouth. It was so creepy. I screamed back, though. I screamed back way louder than him. 
+So I told Victor that’s what we were going to do. It made him scream. He screamed out of my mouth. It was so creepy. I screamed back, though. I screamed back way louder than him. 
 
-That scared him so much that he took us home when I told him to. 
+That scared him so much that he took us home when I told him to. 
 
 Victor acted so weird when we got home. He wouldn’t stop screaming, and he kept trying to keep me from walking around. It was really hard to fight him. I don’t really know how to fight, you know? He punched our face, and pinched our arms, and even tried to stab us. It was so crazy. I couldn’t keep him from doing all of it, but I did keep him from stabbing us at least. That was a relief. Knives scare me so bad.
 
@@ -270,9 +264,9 @@ Instead he just kept trying to make me get out. He started off really strong. It
 
 But he didn’t want me to be his sister.
 
-His mom took us to the hospital finally. It was really weird. The doctors said crazy stuff. Like our brain was shrinking. We had the brain of a dementia patient, I think is what they said. We had a brain like someone with advanced dementia. 
+His mom took us to the hospital finally. It was really weird. The doctors said crazy stuff. Like our brain was shrinking. We had the brain of a dementia patient, I think is what they said. We had a brain like someone with advanced dementia. 
 
-The day after that, the doctor said we had advanced dementia and lesions. 
+The day after that, the doctor said we had advanced dementia and lesions. 
 
 I think like a week after that, they said we had advanced dementia *and* lesions *and* tumors.
 
@@ -288,7 +282,7 @@ Only I couldn’t move my body. I guess because of the brain tumors. They can do
 
 It’s okay that I don’t remember how to eat. It’s even okay that I don’t remember how to sleep. But it was *not* okay to not remember how to move.
 
-That’s when I left. 
+That’s when I left. 
 
 I got out of Victor and went back to the underpass.
 
@@ -306,267 +300,134 @@ Not even the ones who tried to be my friend. That made me fell really sad becaus
 
 That’s all I wanted. To be like family. All I want is a family. I want a mom. I don’t even need my own. I’ll share. All I ever did was try to share.
 
-But no one wants to share with me. 
+But no one wants to share with me. 
 
 No one at all.
 
 I think it’s because I look so scary. Can you help me look less scary?
 
-
-
-
-
 \* \* \*
-
-
-
-
-
-
 
 If you aren’t up to speed on the non-interview events, the below info might not make sense to you. Apologies if so.
 
-
-
 For reasons that have not been explained to me, I was asked to conduct Dolly’s interview roughly two hours after the disaster with Christophe.
-
-
 
 Shortly after I finished with Dolly — so shortly I was still sobbing — Charlie escorted me to the commander’s office.
 
-
-
 The second I walked in, I froze.
-
-
 
 “You came. Maybe you’re man enough after all,” Christophe taunted.
 
-
-
 I took a seat across from him. “When’s the last time you killed someone?”
-
-
 
 “Define ‘someone.’”
 
-
-
 “Someone who isn’t an inmate or a field target.”
-
-
 
 “Why? Do you think you’re someone I want to kill?”
 
-
-
 “The possibility has crossed my mind.”
-
-
 
 “They let me do whatever I want here and they don’t punish me for anything. If I wanted to kill you, you would be dead and no one would do anything about it.”
 
-
-
 “I feel like you tried pretty hard to kill me earlier.”
-
-
 
 “I didn’t try to kill you, I tried to beat up a narc. I had no choice. Snitches get stitches. It’s the rules. I don’t make the rules, I only follow them. I’m sorry I have to follow the rules.”
 
-
-
 “How long?” I repeated.
-
-
 
 He sighed. “A long time ago. Before I caught the performer.”
 
-
-
 “The Harlequin…?”
-
-
 
 “No, the other one. The freak. Mr. Helping Hands.”
 
-
-
 Curiosity overpowered revulsion, and I leaned forward.
-
-
 
 Christophe leaned back, smirking. “We can talk later, but only if you’re brave enough to come to me all alone.”
 
-
-
 “Guys,” Dr. Wingaryde scolded, “this is supposed to be a productive mediation session. I understand emotions are running high, but right now we need to really focus on our team goals.”
-
-
 
 I actually spluttered. “What the hell kind of corporate bullsh—”
 
-
-
 “Stop,” the Commander cut in. “The two of you need to get along starting immediately and lasting for the foreseeable future.”
-
-
 
 Unlike Charlie, the commander is not the kind of person you talk over, so I didn’t argue.
 
-
-
 “We’ve recalled all field agents and their Thiessi partners to the Pantheon because we have reason to believe one of them is colluding with the Harlequin, most likely to orchestrate a breakout. The two of you and Charlie are the only three that I know aren’t involved. Your goal is to discover who *is*.”
 
-
-
-I had difficulty processing this, but not too much difficulty to ask, “Okay, but how do you know I’m not involved?” 
-
-
+I had difficulty processing this, but not too much difficulty to ask, “Okay, but how do you know I’m not involved?” 
 
 “Because you asked that question.” Christophe turned his attention to the commander. “I know what she will be doing, but how will I help? Am I to stop the others from giving her stitches?”
 
-
-
 “It’s more involved than that.”
-
-
 
 “I like that. The more involved we are, the more fun we will have.”
 
-
-
 I couldn’t ignore the creepy-crawly sensation he elicited, but I managed to glare at him as if I had. “Well, the only person I know of who’s freed an inmate is sitting right there across from me, so—”
-
-
 
 “I only did that because you asked,” he simpered.
 
-
-
 “That was a routine security and accountability exercise,” the commander said, giving Charlie an annoyed look. “One that the primary subject failed. The inmate has been tracked, her whereabouts are known.” He turned that annoyed look onto Christophe. “And she is currently pending recovery.”
-
-
 
 “What? I’ve been busy. About to get even busier, it sounds like. At least we’ll be getting busy togeth—”
 
-
-
 “So just to clarify,” I said loudly, “you’ve recalled all your field staff because you think one is a double-agent for the most dangerous entity known to your organization, and you plan to catch this person and beat this entity by forcing your most inexperienced employee to play a game of real-life Clue with a pack of highly-trained operatives and their superpowered monster partners who are mandated to protect them under threat of death. How did you even find out about this?”
-
-
 
 “Pantomime,” Christophe said, referencing an inmate I know of but haven’t met. “As I told our commander, Pantomime has never done anything without the Harlequin’s direction. This is a trap.”
 
-
-
 “I have reason to believe it’s not,” the commander said. “In any case, you —” he looked at me — “will be evaluating that inmate tomorrow, so we’ll have a better idea either way.”
-
-
 
 Charlie said, “I know it sounds overwhelming, but we really do have full confidence in you.”
 
-
-
 “What he means is, they don’t have a choice,” Christophe said.
-
-
 
 “Can’t Christophe like…sniff them out? I mean, he can apparently tell when I’m about to puke or cry or lie or whatever, so why—”
 
-
-
 “Because that is not how it works. If you want to know how it *does* work, I’ll show you whenever you like. All you have to do is—”
 
-
-
-“Christophe, we have discussed this at length,” Charlie cut in. “*Stop*.” 
-
-
+“Christophe, we have discussed this at length,” Charlie cut in. “*Stop*.” 
 
 “When are the others coming?” I asked. “The other agents?”
 
-
-
 “Some are already here,” said the commander.
-
-
 
 A headache was pulsing in my temples. “When do I start interviewing them?”
 
-
-
 “After the completion of our upcoming recovery effort, which brings me to the next topic of discussion: The pretext for the recall. Christophe has located the Harlequin. Recall of all field staff to facilitate a joint recovery effort is standard protocol for an Egregore-class target. You will be participating onsite in the recovery effort because we want to see how you operate in uncontrolled conditions. Consider it field training.”
-
-
 
 The headache was making me feel nauseous. “So you’re my FTO?”
 
-
-
 “No. I have no time for, and even less interest in, training T-Class inmates. For all intents and purposes, Christophe is your FTO.”
-
-
 
 “And after that, I’ll be interviewing all these people?”
 
-
-
 “The ones who survive,” Christophe said.
-
-
 
 “Christophe,” Charlie exploded, “that *really* isn’t productive—”
 
-
-
 “I’ll do everything I can to make sure you’re one of them,” Christophe told me. “You have my word. That’s as productive as I can be without lying. Do you want me to lie?”
-
-
 
 “Of course not.”
 
-
-
 “Then we have been productive. Good night.”
-
-
 
 He left.
 
-
-
 Charlie looked at me sympathetically. “I know that experiencing harassment is stressful. But this won’t last forever. Once you’re in the field and he has authority over you in an official capacity, he’ll be good. He’s a great trainer. It’s a very comfortable mental space for him, and he excels when he’s comfortable. The problem is he’s *not* comfortable with you, and he’s kind of just subconsciously punishing you for it.”
-
-
 
 “Oh, is that all?”
 
-
-
 Somehow Charlie did not catch my sarcasm. “Yep. Wait, before you go, take these.”
-
-
 
 With that, he dumped a stack of records pertaining to all the incoming agents and walked me back to my room.
 
-
-
 I’ve been looking through these files all day. I don’t have the energy to go into it, other than to say I have my work cut out for me in a big way.
-
-
 
 And if the commander is wrong — if the person he’s trying to flush out figures out I’m the flusher — I am most definitely super duper dead.
 
-
-
 \* \* \*
 
+[Previous Interview](https://www.reddit.com/r/nosleep/comments/1h0p2dz/fuck\_hipaa\_my\_new\_patient\_keeps\_pulling\_his\_own/)
 
-
-Previous Interview: https://www.reddit.com/r/nosleep/comments/1h0p2dz/fuck\_hipaa\_my\_new\_patient\_keeps\_pulling\_his\_own/
-
-
-
-Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
-
+[Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/)

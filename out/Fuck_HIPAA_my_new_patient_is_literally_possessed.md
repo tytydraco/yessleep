@@ -2,7 +2,7 @@ On December 21, 2017, sheriff deputies responded to a wellness check in the gene
 
 The call came from the mother of a minor child who stated that the child’s uncle had “lured them out there” to attack without provocation. The man attacked and gave chase, going so far as to pursue their car on foot as she drove away.
 
-Officers located the man and quickly noted that his behavior was vacillated wildly. Initially he launched himself at the officers, only to pull back, fall to his knees, and beg for help. He introduced himself as Catalin and asked for help again, only to cut off and begin screaming the following phrase: 
+Officers located the man and quickly noted that his behavior was vacillated wildly. Initially he launched himself at the officers, only to pull back, fall to his knees, and beg for help. He introduced himself as Catalin and asked for help again, only to cut off and begin screaming the following phrase: 
 
 “Fuck you, Robert. *Fuck* you, Robert! *Fuck you*!”
 
@@ -12,7 +12,7 @@ Shortly after booking, Catalin asked for a chaplain. This request was denied. Sh
 
 A chaplain was called.
 
-Catalin said he didn’t know how to pray but needed someone to pray for him. The chaplain asked why, to which Catalin responded that he was possessed. The chaplain asked, somewhat doubtfully, if Catalin was hoping for an exorcism. 
+Catalin said he didn’t know how to pray but needed someone to pray for him. The chaplain asked why, to which Catalin responded that he was possessed. The chaplain asked, somewhat doubtfully, if Catalin was hoping for an exorcism. 
 
 This question incited a hysterical outburst from Catalin, who repeatedly screamed, “No exorcism! No exorcism! *It has to stay inside*!”
 
@@ -28,21 +28,15 @@ Catalin is pleasant and cooperative, although he suffers from major depressive d
 
 Given that Catalin is a essentially biological maximum security prison and that containment of his prisoner aligns with Agency directives, he has been granted T-Class designation.
 
-
-
 **Interview Subject: The Jar of Clay**
 
 **Classification String: Cooperative / Destructible / Gaian / Constant / Moderate / Unknown\***
 
-**\*Periodic Reevaluation Required** 
+**\*Periodic Reevaluation Required** 
 
 **Interviewer: Rachele B.**
 
 **Interview Date: 12/3/24**
-
-
-
-
 
 Lying isn’t always a sin, but I still don’t forgive Robert for the lies he told.
 
@@ -64,19 +58,19 @@ He used to say I was the only person who made him comfortable. Paradoxically, co
 
 He ruined it for the last time by launching into a gloriously unhinged rant that ended with him telling me, “You’re the only thing that feels like home and I love you so much, but I hate you even more and that will never stop.”
 
-I don’t think he was lying when he said that, which I why I left. 
+I don’t think he was lying when he said that, which I why I left. 
 
 His mom found him nine days later. Broke into his apartment, saw him slumped against his bathroom wall, and immediately took seven pictures of his body that she texted to me along with the message,
 
 *ARE YOU HAPPY NOW, YOU FUCKING FREAK???*
 
-The pictures were bad because he’d been dead for a while. But the decomposition wasn’t the worst. The worst was the *smallness* of him. How flat, how hollow, how *empty* he looked. Not like there was nothing left, but like there had never been anything at all. 
+The pictures were bad because he’d been dead for a while. But the decomposition wasn’t the worst. The worst was the *smallness* of him. How flat, how hollow, how *empty* he looked. Not like there was nothing left, but like there had never been anything at all. 
 
 His mom barred me from his funeral. I didn’t hold it against her. She needed someone to blame, and strictly speaking, I am to blame for a lot of Robert’s misery. But at the same time, holy shit. We never dated. We never even tried. We were too enmeshed, too damaged. And we knew each other too well. When you truly know someone and that someone truly knows you, it’s not romantic. It’s not beautiful. It’s just terrifying.
 
 And even if that’s not true, so what? The last thing Robert ever said to me was, “You’re the only thing that’s ever felt like home and I love you so much, but I hate you even more and that will never stop.”
 
-And the last thing I ever said to him was, “Fuck you, Robert.” 
+And the last thing I ever said to him was, “Fuck you, Robert.” 
 
 Six days later, he was dead. Three days after that, his mother found his body and sent me pictures.
 
@@ -106,11 +100,11 @@ Until his bedroom. Utilitarian and bare. Colorless and impersonal.
 
 It made me ache.
 
-The only pop of color was a lilac moto jacket draped over a cardboard box. I recognized the jacket because I’d given it to him years ago, on the day I told him I was transitioning. That was also the day he fucked up beyond repair with Cassie and their daughter. 
+The only pop of color was a lilac moto jacket draped over a cardboard box. I recognized the jacket because I’d given it to him years ago, on the day I told him I was transitioning. That was also the day he fucked up beyond repair with Cassie and their daughter. 
 
 I picked the jacket up. For half a second I was convinced he was inside it, growing back into existence in my arms. Mostly because I could smell him— warm, with a faint undertone of bitter growth. Like a dying garden in the dog days of summer.
 
-As his scent enveloped me, the room around me faded into a whirlwind of images, enfolding me into yet another liminal space, this time the one between memory and reality. 
+As his scent enveloped me, the room around me faded into a whirlwind of images, enfolding me into yet another liminal space, this time the one between memory and reality. 
 
 That brings me to the real reason I didn’t want to go to Robert’s apartment.
 
@@ -120,21 +114,21 @@ When I picked up Robert’s jacket, I fell into one of the memories attached to 
 
 Grey skies, bitter air swirling with snowflakes. I was sitting on the sidewalk with Robert. He was heartbroken and humiliated. He’d so badly wanted a family and had managed to make one. But he’d fucked it up, just like he fucked up everything else. Cassie had the patience of a saint combined with the naivety singular to very young women intent on healing their damaged boyfriends, but Robert was too much even for her. She’d been right to leave him and he knew it, so there was nothing to say.
 
-Seeing him curled over himself and sobbing so hard his entire body shook was one of the worst moments of my life, and that’s saying a lot. 
+Seeing him curled over himself and sobbing so hard his entire body shook was one of the worst moments of my life, and that’s saying a lot. 
 
-I shrugged out of my jacket and threw it over his shoulders, then drew him in for a hug as some stranger gawked at us. It was awkward. All my hugs are awkward. But Robert leaned in anyway and kept crying, tears hitting the jacket alongside snowflakes. 
+I shrugged out of my jacket and threw it over his shoulders, then drew him in for a hug as some stranger gawked at us. It was awkward. All my hugs are awkward. But Robert leaned in anyway and kept crying, tears hitting the jacket alongside snowflakes. 
 
-Then the memory changed. Snowflakes faded to darkness, cold deepened to warmth. Robert was sleeping, curled underneath that stupid coat. A thousand images of a thousand nights superimposed over each other, each almost but not quite identical. He slept with it. Used it like a teddy bear. 
+Then the memory changed. Snowflakes faded to darkness, cold deepened to warmth. Robert was sleeping, curled underneath that stupid coat. A thousand images of a thousand nights superimposed over each other, each almost but not quite identical. He slept with it. Used it like a teddy bear. 
 
 The scene evaporated when I threw the coat back onto his bed. Tears streamed down my face as a fresh wave of rage crashed inside my chest.
 
 I looked at the box again. It had my name written on it – *Catalin.* On top was a note:
 
-*Please don’t remember the bad things* 
+*Please don’t remember the bad things* 
 
 “Oh, fuck you,” I whispered.
 
-I recognized everything inside. The ragged stuffed Pikachu with a sunken face. The dusty blue ribbon from a spelling bee twenty years past. A hand-knitted orange scarf. A green collar with a silver tag that said *Little Foot* on one side and *If found, contact Catarina or Robert* with my childhood phone number listed underneath. 
+I recognized everything inside. The ragged stuffed Pikachu with a sunken face. The dusty blue ribbon from a spelling bee twenty years past. A hand-knitted orange scarf. A green collar with a silver tag that said *Little Foot* on one side and *If found, contact Catarina or Robert* with my childhood phone number listed underneath. 
 
 The thought of him holding onto all of these things for so long was too much. Beyond too much. Crushing. Fuck, it was *crippling*. If I were strong, I’d have left that box and everything in it on the bed for his mother to burn.
 
@@ -144,13 +138,13 @@ Then I drove out to the carnival.
 
 Neither Robert or I ever left the town where we were born. It sucks, but living and dying in the same place does have perks like knowing all the awesome secret hangout spots.
 
-One of our spots was an abandoned carnival out in the canyon. Seventy years ago, a carnival stopped in town the night before the most devastating earthquake in the county’s history. All the performers died. A few of the animals survived, but they had neither ability nor inclination to pack away the game booths and rides. The big top is long gone, the prizes pilfered or rotted into the sand. But the structures remain, and the great rusted loop of the sketchiest-looking rollercoaster ever made still rises over the desert. 
+One of our spots was an abandoned carnival out in the canyon. Seventy years ago, a carnival stopped in town the night before the most devastating earthquake in the county’s history. All the performers died. A few of the animals survived, but they had neither ability nor inclination to pack away the game booths and rides. The big top is long gone, the prizes pilfered or rotted into the sand. But the structures remain, and the great rusted loop of the sketchiest-looking rollercoaster ever made still rises over the desert. 
 
 Robert and I weren’t in love. At least I don’t think so. Shit, I hope not. We were enmeshed, though. Beyond enmeshed. The carnival isn’t where it started, but it’s relevant because it is the place where I first saw Robert’s demon.
 
 Yes. His demon.
 
-A demon followed him around. A literal demon. I already told you I see memories when I touch things. I also see memories when I touch people. I always saw Robert’s, too. But after my mom died, I started seeing something else when I touched Robert: 
+A demon followed him around. A literal demon. I already told you I see memories when I touch things. I also see memories when I touch people. I always saw Robert’s, too. But after my mom died, I started seeing something else when I touched Robert: 
 
 His demon.
 
@@ -172,9 +166,9 @@ See, when my dad walked out, Robert’s father stepped up. He started dating my 
 
 Until his dad killed my mom, and then himself.
 
-Afterward, I visited Robert at his foster home whenever I could. All he did was sleep when I came over. He was afraid to sleep alone. Well, no — technically, he was afraid to lay down. He was afraid he’d die if he laid down too long. This is because he watched his dad die flat on his back, drowning in his own blood from his self-inflicted gunshot wound. 
+Afterward, I visited Robert at his foster home whenever I could. All he did was sleep when I came over. He was afraid to sleep alone. Well, no — technically, he was afraid to lay down. He was afraid he’d die if he laid down too long. This is because he watched his dad die flat on his back, drowning in his own blood from his self-inflicted gunshot wound. 
 
-So whenever I came over, we sat back to back, leaning against each other. Then we looped our arms together. For weeks, that was the only way he could sleep— leaning against me, because he knew I wouldn’t let him fall. 
+So whenever I came over, we sat back to back, leaning against each other. Then we looped our arms together. For weeks, that was the only way he could sleep— leaning against me, because he knew I wouldn’t let him fall. 
 
 Anyway — that doesn’t matter.
 
@@ -186,11 +180,11 @@ The day I picked up the box from Robert’s apartment, I sat under the rollercoa
 
 It didn’t.
 
-I went on with my life. 
+I went on with my life. 
 
 Only not really.
 
-In the weeks following Robert’s death, I had to hold stuffed animals to help me sleep. I collect used stuffed animals because there are almost always happy memories attached to them. And because they’re not my memories, they comfort me without any baggage. 
+In the weeks following Robert’s death, I had to hold stuffed animals to help me sleep. I collect used stuffed animals because there are almost always happy memories attached to them. And because they’re not my memories, they comfort me without any baggage. 
 
 But grief is weird, and one night I needed the baggage. I grabbed that sunken little Pikachu from Robert’s box. The memory washed over me:
 
@@ -198,7 +192,7 @@ A frozen winter’s night, so cold it takes your breath away. We were at a buffe
 
 My father promised to let us play the claw machine if we’d shut up and behave. We loved claw machines, so of course we agreed. He gave us each $10 to play. Robert didn’t win, but I got a small stuffed Pikachu. I gave it to him because he loved Pokemon.
 
-Reliving that memory was like holding Robert on one of his good days. 
+Reliving that memory was like holding Robert on one of his good days. 
 
 The good days were the only days Robert and I ever held each other, and we didn’t have many good days.
 
@@ -220,9 +214,9 @@ The shock, the guilt, the sadness…and the rage.
 
 I’ll never forget his voice, either, when he said, *No matter what I do or how long it’s been, that’s always going to be the first thing you think when you look at me. That’s why you won’t—why we’ll never—*
 
-*“*That’s not why, Robert.” 
+\*“\*That’s not why, Robert.” 
 
-I don’t really know how we got from *That’s not why* to *You’re the only thing that ever felt like home and I love you, but I hate you even* more. 
+I don’t really know how we got from *That’s not why* to *You’re the only thing that ever felt like home and I love you, but I hate you even* more. 
 
 But we did.
 
@@ -230,19 +224,19 @@ That’s another reason I know lying isn’t always a sin: Because if Robert had
 
 The night after I held the Pikachu, I watched The Land Before Time again. It made me remember Little Foot, our cat. That made me go back to Robert’s box and pull out Little Foot’s collar.
 
-It’s my favorite memory of all time, which is why I can barely stand to remember it. 
+It’s my favorite memory of all time, which is why I can barely stand to remember it. 
 
-We were six years old, playing in the yard on a golden, impossibly hot day. We heard a pitiful, tiny meow and followed it to the alley behind my house. It was suffocatingly hot, even in the shade where we saw the meower — a little grey cat.  Robert named him immediately, and we went to bug my mom for a collar. She took us to buy a collar and even a name tag. It was a little green heart. Robert tenderly clasped it around kitten’s neck as it clambered into his lap, purring.
+We were six years old, playing in the yard on a golden, impossibly hot day. We heard a pitiful, tiny meow and followed it to the alley behind my house. It was suffocatingly hot, even in the shade where we saw the meower — a little grey cat.  Robert named him immediately, and we went to bug my mom for a collar. She took us to buy a collar and even a name tag. It was a little green heart. Robert tenderly clasped it around kitten’s neck as it clambered into his lap, purring.
 
 I looked up.
 
-There, in the memory I knew so well, was something I had never seen before: 
+There, in the memory I knew so well, was something I had never seen before: 
 
 Robert’s demon, grinning at us across the yard.
 
 But instead of looking like a wrong version of Robert’s dad, it looked like a wrong version of Robert.
 
-I dropped the collar back into the box, gasping like I’d just been plunged into ice water. 
+I dropped the collar back into the box, gasping like I’d just been plunged into ice water. 
 
 I thought…I don’t know what I thought. I’d only ever seen the demon when I touched Robert. Not in other memories, not in real life. Just when I touched Robert.
 
@@ -268,7 +262,7 @@ I smiled as I marched offstage because it was the only way to keep from screamin
 
 I found Robert in the crowd, locking on him like a drowning person on a life raft. He looked hollow and ancient.
 
-But when he saw me, he smiled back. 
+But when he saw me, he smiled back. 
 
 When I sat by him, he started to cry. He was still smiling, though. Just like me.
 
@@ -282,9 +276,9 @@ When I sat by him, he started to cry. He was still smiling, though. Just like me
 
 I hugged him with particular fierceness, then pinned my ribbon onto his shirt. “You’re my best friend, Robert. That will never stop.”
 
-“No lie?” 
+“No lie?” 
 
-“No lie.” 
+“No lie.” 
 
 As the words left my mouth, I saw the demon over his shoulder. Half monster, half screaming Robert.
 
@@ -292,15 +286,15 @@ I dropped the ribbon and picked up the scarf. I’d knitted it for him when we w
 
 “Cat.” His voice reverberated through his back and into mine. “I’m so scared. I see my dad every night. He keeps telling me to kill you.”
 
-I looked over and saw Demon Robert in the closet. One half of his face was grinning, the other was screaming. 
+I looked over and saw Demon Robert in the closet. One half of his face was grinning, the other was screaming. 
 
 Gasping, I tossed the scarf away and picked up the last thing in the box:
 
-A picture of his daughter, Sadie. 
+A picture of his daughter, Sadie. 
 
 I recognized that picture. It had held pride of place on every bathroom mirror Robert had since the breakup. Why was it in my box? Surely he meant for Cassie to have it, or even his mom. Why me?
 
-I looked at that photo for what felt like a long time. 
+I looked at that photo for what felt like a long time. 
 
 Then I picked it up.
 
@@ -310,7 +304,7 @@ He’d been holding it when he killed himself — I’m sorry, when he *lost his
 
 Before I could move, that thing took my hands. The touch calmed me down because I knew that touch. Whatever else this thing was, it was at least partly Robert.
 
-That was enough to make me hug it. 
+That was enough to make me hug it. 
 
 “Help Sadie,” he whispered. His voice was wrong but familiar, just like the rest of him. “I can’t keep it away from her, but you can. You’re a jar of clay. You hold everything in and never let anything out.”
 
@@ -364,7 +358,7 @@ I don’t know how to explain these memories.
 
 I told you that touching someone is a surefire way to mainline trauma.
 
-When I touched that toy dog, I mainlined pure horror. 
+When I touched that toy dog, I mainlined pure horror. 
 
 Robert and his father and his father and even *his* father, all carried and crushed by an overwhelming wave of horror.
 
@@ -378,7 +372,7 @@ But the memories showed me something even worse: This thing, this demon, this *d
 
 And all it wanted was to destroy.
 
-It wanted to destroy his mom and Cassie. It wanted to destroy me. Most of all it wanted to destroy Sadie. 
+It wanted to destroy his mom and Cassie. It wanted to destroy me. Most of all it wanted to destroy Sadie. 
 
 And it wanted to use Robert’s hands.
 
@@ -398,7 +392,7 @@ I jumped, thinking of demons crawling inside and commandeering my hands like a p
 
 My dad was looking at me. The first time he’d looked into my eyes in half a lifetime. “Hey, Catar…Catalin. I…I wanted to tell you something.”
 
-I patted the floor even though it was the last thing I wanted to do. He sat down like it was the last thing *he* wanted to do. When he saw the Steiff dog in my hands, his mouth quivered. 
+I patted the floor even though it was the last thing I wanted to do. He sat down like it was the last thing *he* wanted to do. When he saw the Steiff dog in my hands, his mouth quivered. 
 
 “I wanted to tell you that a good man lives his life for other people. You’ve done that.”
 
@@ -424,7 +418,7 @@ After that, I went to Cassie’s house. I lied about grabbing Robert’s things 
 
 That’s probably why she let me in. But Cassie’s always been good that why. It’s why I’ve never been able to hate her, even when I desperately wanted to.
 
-Once again, I didn’t really know what I was looking for until I saw it: A Build-a-Bear I’d bought Sadie for her sixth birthday. 
+Once again, I didn’t really know what I was looking for until I saw it: A Build-a-Bear I’d bought Sadie for her sixth birthday. 
 
 I looked around to make sure Cassie wasn’t watching, then picked it up.
 
@@ -444,7 +438,7 @@ A gentle memory. Robert playing with Sadie in a pool of sunlight on a threadbare
 
 I knew, then, what I had to do. What I wanted to do. Because Dad’s right. A good man lives his life for other people. I don’t know if I’m a good man. But Robert didn’t know if he was a good man either, and he still lived his life for other people the very best he could.
 
-At that moment Sadie walked in, hollow-eyed and lifeless as Robert had been at spelling bee day all those years ago. 
+At that moment Sadie walked in, hollow-eyed and lifeless as Robert had been at spelling bee day all those years ago. 
 
 I wiped my eyes and almost tried to smile, then thought better of it.
 
@@ -454,11 +448,11 @@ I wiped my eyes and almost tried to smile, then thought better of it.
 
 Her face crumpled. She shook her head, then started to get up. I reached into my pocket and pulled out the baby photo. “Look.”
 
-She looked at me, those eyes that were just like her father’s filling with tears. 
+She looked at me, those eyes that were just like her father’s filling with tears. 
 
 Behind her, shimmering like a mirage, was an awful, familiar silhouette. The demon, a grinning monstrosity with no sign of Robert in its face. Her father’s demon. Her birthright, coming into being to shred her like it had shredded her father.
 
-I had no time. I had to share the treasures — spill out all the treasure for other people to remember — so there’d be room to trap what could not be allowed to roam free. 
+I had no time. I had to share the treasures — spill out all the treasure for other people to remember — so there’d be room to trap what could not be allowed to roam free. 
 
 “You see this picture? It’s you. On your first birthday. He kept it everywhere he went. Even though he wasn’t here, he kept you with him.”
 
@@ -498,11 +492,11 @@ Then I went home and tried to make a plan. I knew what I had to do, but I wasn�
 
 So I sat there for a while, thinking.
 
-I didn’t know what the monstrosity was. A demon, probably. Isn’t that what it always is? A demon from the depths of Hell, come to torment the innocent. How do you defeat a demon? 
+I didn’t know what the monstrosity was. A demon, probably. Isn’t that what it always is? A demon from the depths of Hell, come to torment the innocent. How do you defeat a demon? 
 
 Having not stepped foot in a church since my mother died, I wasn’t sure. But I’d absorbed enough religion and pop culture to know that Bibles and crosses were the first, main line of defense.
 
-So I dug out my mom’s Bible and crucifix and held them, expecting…something. Power, maybe. Hope, at least. 
+So I dug out my mom’s Bible and crucifix and held them, expecting…something. Power, maybe. Hope, at least. 
 
 But I felt nothing.
 
@@ -554,7 +548,7 @@ This was a curse. This was a monster. This was darkness, this was the monster un
 
 Love was nothing against it.
 
-*I* was nothing against it. 
+*I* was nothing against it. 
 
 It was was going to win, and its prize was worse than death: To take me over and use my hands to destroy.
 
@@ -570,7 +564,7 @@ Without thinking, I cupped Little Foot’s nametag in both my hands. Warmth swal
 
 The abomination slammed into me with the force of a tsunami right as Robert looped his arms through and pressed his back to mine.
 
-And then we really were ten years old again, a lifetime rewound. A lifetime to relive and do everything right so he and I and everyone would finally be okay. My mom would live, and we would save his dad. We had time. All I had to do was wait until the darkness passed through me and moved on. 
+And then we really were ten years old again, a lifetime rewound. A lifetime to relive and do everything right so he and I and everyone would finally be okay. My mom would live, and we would save his dad. We had time. All I had to do was wait until the darkness passed through me and moved on. 
 
 Only it wasn’t passing through me. It was hitting something hard, something solid, and piling up. Clinging to me, filling me, suffocating me, drowning me, and it was because of Robert. Because Robert was holding on and blocking it, keeping it inside me, keeping it from going away—
 
@@ -592,7 +586,7 @@ Sadie’s voice was shaking. “It’s just…it’s my dad. He…he told me you
 
 Memories crashed over me. Robert’s voice, broken and ragged and terrified. *My dad told me to kill you.*
 
-*“*My dad told me to help you.”
+\*“\*My dad told me to help you.”
 
 For a wonderful second, I was light and whole and happy and above all, *triumphant*.
 
@@ -634,8 +628,6 @@ No lie.
 
 \* \* \*
 
-Previous Interview: [https://www.reddit.com/r/nosleep/comments/1h55py8/fuck\_hipaa\_my\_new\_patient\_is\_my\_imaginary\_friend/](https://www.reddit.com/r/nosleep/comments/1h55py8/fuck_hipaa_my_new_patient_is_my_imaginary_friend/)
+[Previous Interview](https://old.reddit.com/user/Dopabeane/comments/1h6mpr9/fuck\_hipaa\_my\_new\_patient\_is\_my\_imaginary\_friend/)
 
-
-
-Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
+[Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/)

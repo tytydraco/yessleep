@@ -1,0 +1,29 @@
+I'm typing this out now because I don't know what to do, I'm tired and I can't go home, not that it matters now. I'm sure it's too late to find help, I'm only writing this out so whoever finds this knows what happened to me.
+
+It was the middle of December when I was coming home from work, I had finished my last afternoon shift for the week and was more then ready to get out of the damm place. Around 10PM I had made my way towards the carpark, seeing mine and a few other cars covered in frost from the cold touch of Winter. 
+
+I unlocked my car and grabbed the window scraper, breaking off the bits of ice that had stuck to the windows; just one of the many fun activities of driving during the Winter. As I finished clearing off the ice, I noticed the car parked behind mine- a small black car that I didn't recognize. I couldn't see anything inside with all the frost, except the silhouette of a person, sitting completely still in the driver's seat. I walked over to the driver's side of the car, thinking it might have been someone having troubles with their car.
+
+"Do you need some help?" I tried asking them, knocking on their window to get their attention. I could barely see the driver itself through the ice-covered windows.
+
+There was no response, not even a hint of movement; either there was a mannequin in the driver's seat or they just didn't wanna talk to me. I didn't think much of it, I was exhausted and I just wanted to go home to get some rest. Going back to my car, I drove off and headed towards my house, the driver in the black car still not moving an inch.
+
+The route back to my house was pretty simple- a quick 10 minute drive along a carriageway and a little trip around the town I live, nothing more to it. I loved driving at night anyway; no loud noises; no other cars in the way; just me and the radio, playing some music to pass the time. But my quiet drive home had stopped being so quiet when I saw a car following behind in my rear view mirror- the exact same car I had checked on before had somehow caught up to me.
+
+At the time I thought it was just a coincidence, its not like I was the only person driving at night, so I just passed it off as someone who was also heading home. But something wasn't right, the car had followed me everywhere; when I got off the carriageway; when I took a turn or went off a junction. It was still there. As ridiculous as it sounds, I was worried that the they were following me home. I've never seen this car until today and now it's conveniently taking the same route as me.
+
+I've heard that if you think you're being followed, take 4 right turns and check if they followed you all the way around. I did just that; I took 4 turns in the same direction. It was still there. Now I was just getting annoyed, who even was this guy? Is he following me just cause I bothered him in his car? I'd had enough. I came up to another junction and indicated right, hoping to pull a fast one on them, I'd instead pull off to the left at the last second.
+
+For a moment I thought I'd gotten away with it, and yet the car behind was still on my tail. It didn't help that I needed to stop at a station to refuel my car- a 10 minute drive had now just become half an hour because of this weirdo.
+
+I decided to stop at a nearby station, to no surprise the car had followed me there too. I'd planned refuel my car and confront the driver right after about what they were doing. I'd finish topping up the car and had gone to pay the cashier. As I was making my way back towards my car I heard shouting- another driver had confronted my pursuer before I could, shouting about how he was blocking the way and to "get a f\*cking move on", going as far as to bang on the car's window with his fist. 
+
+I was about to go over and hopefully calm him down... but then the shouting stopped. In the blink of an eye, the man's anger had disappeared and was replaced with something else; absolute fear. I watched him slowly back away from the car in dread, the whole time he had never kept his eyes of the car. His face, he looked like he was on the verge of tears, it was like watching a kid about to cry for his parents. Soon after the guy ran to his car and drove off as fast as he could.
+
+"What the f\*ck was that?" I asked myself as I went over to see what exactly they saw. I wish I wasn't so stupid. What I saw in that driver's seat was not a "person". The ice on the car had thawed off, leaving that *thing's* face in clear view- it was man, an old pale looking man. His face looked thin and contorted; the skin was stretched tight and you could see his cheek bones. His eyes were impossibly wide, looking back at it I'm not even sure he had eyelids to blink with. The worst part was his smile, it was forced and unhinged, it was so wide I thought he was gonna break his own jaw.
+
+I ran. I didn't know what to do, so I ran back to my car and drove away as fast as I could. My hands were shaking against the steering wheel and I couldn't stop shouting at the sight of that face burned into my mind. I looked in the mirror and he was there, no matter how fast I went he tailgating me from behind. There was nowhere I could go.
+
+It's been almost an hour since I left that station, I've parked up on the side of the road to write this. I can't go home because that thing is parked right behind me, I'm too scared to even get out of my car. 
+
+It's getting out of it's car now, I can see it- it looks malnourished, it's whole body is twitching, it can't even stand upright. It's right beside my car, looking at me through the window and still smiling. It spoke in its ungodly voice, mocking what I first said to it way back; "Do you need some help?"

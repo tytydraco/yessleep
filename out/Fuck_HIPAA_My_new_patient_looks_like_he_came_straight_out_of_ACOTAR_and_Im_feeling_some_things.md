@@ -42,7 +42,7 @@ In 2018, an environmental scientist accidentally encountered the region’s asto
 
 
 
-To say she encountered immediate roadblocks is an understatement. 
+To say she encountered immediate roadblocks is an understatement. 
 
 
 
@@ -58,7 +58,7 @@ The children she interviewed spoke of a local folk hero called the Swan King who
 
 
 
-If a child was particularly good and worthy, the Swan King would introduce himself in dramatic fashion. If the child did not flee from him, he would whisk the child away to his homeland, a beautiful kingdom called Aeristyra. 
+If a child was particularly good and worthy, the Swan King would introduce himself in dramatic fashion. If the child did not flee from him, he would whisk the child away to his homeland, a beautiful kingdom called Aeristyra. 
 
 
 
@@ -70,7 +70,7 @@ Her studies soon revealed that the Swan King was much more than a folktale.
 
 
 
-In simplest terms, she learned that the local population not only worshipped this entity, but engaged in human sacrifice to appease it. The ringleader of this cult was an older woman named Darcus.  
+In simplest terms, she learned that the local population not only worshipped this entity, but engaged in human sacrifice to appease it. The ringleader of this cult was an older woman named Darcus.  
 
 
 
@@ -94,7 +94,7 @@ However, the officer tasked with its destruction suffered a fit of conscience an
 
 
 
-This caused a sequence of events that ended with T-Class Agent Love successfully recovering the phone and bringing it to the Agency of Helping Hands. 
+This caused a sequence of events that ended with T-Class Agent Love successfully recovering the phone and bringing it to the Agency of Helping Hands. 
 
 
 
@@ -114,7 +114,7 @@ Upon his eventual incarceration, the inmate introduced himself as both Prince Th
 
 
 
-From what personnel can determine, Aeristyra is analogous to what is popularly termed “Fairyland,” “Faerie,” “Elfland,” and so forth. 
+From what personnel can determine, Aeristyra is analogous to what is popularly termed “Fairyland,” “Faerie,” “Elfland,” and so forth. 
 
 
 
@@ -142,7 +142,7 @@ He is objectively attractive to the point of distraction, an effect he seems to 
 
 
 
-In the recent past, Lore has used his exceptional appeal and charm to manipulate staff to disastrous effect. Personnel are therefore advised to be on their guard at all times when working with Lore, and to never be alone with him. 
+In the recent past, Lore has used his exceptional appeal and charm to manipulate staff to disastrous effect. Personnel are therefore advised to be on their guard at all times when working with Lore, and to never be alone with him. 
 
 
 
@@ -180,7 +180,7 @@ You do not choose your hiding place. Your brothers choose it for you. The choice
 
 
 
-They hid me under a rotting rollercoaster in a theme park that had already been dead far longer than it ever been alive. But the park was not the point. The *place* was the point. That place is a gateway. You might say it’s magic. You have no hope of passing through the gate without one of us leading the way, but you still understand what the place is in your core. That is why you built the park there, why you brought your own magic to it—to correct this discrepancy between what your eyes saw and and your heart knew. 
+They hid me under a rotting rollercoaster in a theme park that had already been dead far longer than it ever been alive. But the park was not the point. The *place* was the point. That place is a gateway. You might say it’s magic. You have no hope of passing through the gate without one of us leading the way, but you still understand what the place is in your core. That is why you built the park there, why you brought your own magic to it—to correct this discrepancy between what your eyes saw and and your heart knew. 
 
 
 
@@ -200,7 +200,7 @@ But chaos is anathema to order, and chaos intervened on my behalf.
 
 
 
-That chaos came in the form of a girl named Darcus. 
+That chaos came in the form of a girl named Darcus. 
 
 
 
@@ -224,7 +224,7 @@ Even the circumstances seem chaotic now. A young girl running from beasts, only 
 
 
 
-She was afraid of me at first. They all are. Most of them flee. This is desirable. You want the cowards to flee as soon as possible, because it proves that they are not suitable game pieces. 
+She was afraid of me at first. They all are. Most of them flee. This is desirable. You want the cowards to flee as soon as possible, because it proves that they are not suitable game pieces. 
 
 
 
@@ -300,7 +300,7 @@ Lies are crucial to the game. Lies to charm, to trick, to draw in. I lied about 
 
 
 
-I did not enjoy the concern in her eyes. In truth, I did not enjoy this game at all. But enjoyment is not the aim. 
+I did not enjoy the concern in her eyes. In truth, I did not enjoy this game at all. But enjoyment is not the aim. 
 
 
 
@@ -320,7 +320,7 @@ I paid for all of the game pieces — mine and my brothers’ — with harvests,
 
 
 
-These prizes were meaningless to me, true. They were nothing. Less than nothing. But these things meant something to you, so I gave them. Prosperity in exchange for blood. This way, everyone wins our games. 
+These prizes were meaningless to me, true. They were nothing. Less than nothing. But these things meant something to you, so I gave them. Prosperity in exchange for blood. This way, everyone wins our games. 
 
 
 
@@ -328,7 +328,7 @@ Well, everyone except the players.
 
 
 
-But that is the way of it. An exchange. Gain for sacrifice. Death for life. 
+But that is the way of it. An exchange. Gain for sacrifice. Death for life. 
 
 
 
@@ -340,7 +340,7 @@ Even so, she sensed my lies.
 
 
 
-This made my work very difficult. Overcoming your game piece’s natural reactions is part of the game. Breaking down their fear, peeling away their own survival instincts until they ignore everything their senses scream at them for love of you. Bonding with them. Building trust. They must trust you. Trust is the only way they will follow you into Aeristyra. 
+This made my work very difficult. Overcoming your game piece’s natural reactions is part of the game. Breaking down their fear, peeling away their own survival instincts until they ignore everything their senses scream at them for love of you. Bonding with them. Building trust. They must trust you. Trust is the only way they will follow you into Aeristyra. 
 
 
 
@@ -348,19 +348,19 @@ No matter what I did, Darcus would not trust me.
 
 
 
-But even though she did not trust me, she could not stay away from me. This was no significant feat, however. None of you can stay away from magic. To be fair, neither can I. We simply have different definitions of what constitutes magic. 
+But even though she did not trust me, she could not stay away from me. This was no significant feat, however. None of you can stay away from magic. To be fair, neither can I. We simply have different definitions of what constitutes magic. 
 
 
 
-Although she did not trust me, she took care of me. I admit her ministrations were welcome. As I told you, the rust overhead and the iron all around had made me very ill indeed. 
+Although she did not trust me, she took care of me. I admit her ministrations were welcome. As I told you, the rust overhead and the iron all around had made me very ill indeed. 
 
 
 
-I did not trust that she would help me for them. Even now, I am not entirely sure that she wanted to. Every time she left me, I saw the hesitation in her face and I believed that she would not come back. 
+I did not trust that she would help me for them. Even now, I am not entirely sure that she wanted to. Every time she left me, I saw the hesitation in her face and I believed that she would not come back. 
 
 
 
-Instead of moving on — instead of giving her up for lost and waiting for a new game piece to come along — I always felt a lance of fear, bright and hateful. I hated her for being afraid. I hated her for knowing she didn’t want to come back to me. 
+Instead of moving on — instead of giving her up for lost and waiting for a new game piece to come along — I always felt a lance of fear, bright and hateful. I hated her for being afraid. I hated her for knowing she didn’t want to come back to me. 
 
 
 
@@ -372,7 +372,7 @@ She always returned with with fresh clothing, bedding, and blackberries. Blackbe
 
 
 
-Over the following days, I continued to build her trust. I told her things — both true and untrue — about myself. I told her entirely true things about Aeristyra. That is important. They must know that Aeristyra is beautiful beyond compare, or they will never follow you. 
+Over the following days, I continued to build her trust. I told her things — both true and untrue — about myself. I told her entirely true things about Aeristyra. That is important. They must know that Aeristyra is beautiful beyond compare, or they will never follow you. 
 
 
 
@@ -396,7 +396,7 @@ She told me of the poisoned water, how it flowed dark and foul from every faucet
 
 
 
-She told me of the contaminated aquifer, that ancient pristine lake defiled from the mines and the runoff of tortured livestock. 
+She told me of the contaminated aquifer, that ancient pristine lake defiled from the mines and the runoff of tortured livestock. 
 
 
 
@@ -408,7 +408,7 @@ She told me of the children who died in infancy because their mothers’ wombs w
 
 
 
-Over the course of those days, the balance of power shifted. I was no longer earning her trust. 
+Over the course of those days, the balance of power shifted. I was no longer earning her trust. 
 
 
 
@@ -424,7 +424,7 @@ Only there was no help for her. There is no help for game pieces, only victory o
 
 
 
-While I couldn’t help her, I decided I would least help her family, her town, her land.  This time, the price paid for the game pieces would be purification. No harvests — why, when any crop would be contaminated? No livestock — why, when they were cruelly bred to such vast numbers that they destroyed the very land that sustained them? No money, no gemstones either.
+While I couldn’t help her, I decided I would least help her family, her town, her land.  This time, the price paid for the game pieces would be purification. No harvests — why, when any crop would be contaminated? No livestock — why, when they were cruelly bred to such vast numbers that they destroyed the very land that sustained them? No money, no gemstones either.
 
 
 
@@ -432,7 +432,7 @@ Only purification.
 
 
 
-Purification of the land would be the price the loser paid for the game pieces. 
+Purification of the land would be the price the loser paid for the game pieces. 
 
 
 
@@ -440,11 +440,11 @@ And I was always the loser.
 
 
 
-But even this resolve failed me, for as the nights passed and the game drew near, I realized that I was falling in love with her. 
+But even this resolve failed me, for as the nights passed and the game drew near, I realized that I was falling in love with her. 
 
 
 
-The essence of the covenant is sacrifice. Death of few into the bounty of many. This transformation is the foundation of rebirth, but before rebirth comes destruction. The covenant demanded the destruction of the game pieces. But you cannot destroy what you love. 
+The essence of the covenant is sacrifice. Death of few into the bounty of many. This transformation is the foundation of rebirth, but before rebirth comes destruction. The covenant demanded the destruction of the game pieces. But you cannot destroy what you love. 
 
 
 
@@ -472,7 +472,7 @@ First, I told her how everything I said of Aeristyra was true. That it is a plac
 
 
 
-I have seen wonder in ten thousand faces. Her wonder—her face — is the only one that ever made my heart quicken. 
+I have seen wonder in ten thousand faces. Her wonder—her face — is the only one that ever made my heart quicken. 
 
 
 
@@ -580,7 +580,7 @@ Before I could say it, she said, “That seems like a waste.”
 
 
 
-I waited. 
+I waited. 
 
 
 
@@ -644,7 +644,7 @@ Even if I had not had more game pieces than all the rest, I believe I would have
 
 
 
-My pieces fought for us all. 
+My pieces fought for us all. 
 
 
 
@@ -664,7 +664,7 @@ I then killed my cruelest brother and used his body to seal our new covenant.
 
 
 
-Once sealed, I purified the river.  
+Once sealed, I purified the river.  
 
 
 
@@ -673,7 +673,7 @@ I still remember the joy around me when the water ran clear for the first time i
   
 
 
-And I still remember the smile on Reina’s face. Her smile was chaos incarnate.
+And I still remember the smile on Darcus’s face. Her smile was chaos incarnate.
 
 
 
@@ -705,7 +705,7 @@ When your poisons and your particles and your chemicals infiltrated the ground, 
 
 
 
-I helped you. 
+I helped you. 
 
 
 
@@ -713,11 +713,11 @@ I *help* you.
 
 
 
-It costs you, I know, but exchange is the nature of a covenant. Exchange is the nature of power itself. 
+It costs you, I know, but exchange is the nature of a covenant. Exchange is the nature of power itself. 
 
 
 
-I see your distaste. I *feel* it. 
+I see your distaste. I *feel* it. 
 
 
 
@@ -725,7 +725,7 @@ Yet this is your own doing. Your world is dying. You have inflicted mortal injur
 
 
 
-But I can — and I do — take death and turn it into life. 
+But I can — and I do — take death and turn it into life. 
 
 
 
@@ -741,7 +741,7 @@ Why pristine air remain such.
 
 
 
-Because together, my victors and I make it so. 
+Because together, my victors and I make it so. 
 
 
 
@@ -809,7 +809,7 @@ I unsuccessfully bit back a particularly stupid-feeling smile.
 
 
 
-He grabbed Charlie’s ice water and slid it across the table to me. 
+He grabbed Charlie’s ice water and slid it across the table to me. 
 
 
 
@@ -821,7 +821,7 @@ He grabbed Charlie’s ice water and slid it across the table to me. 
 
 
 
-I tamped down my disquiet, and settled in. 
+I tamped down my disquiet, and settled in. 
 
 
 
@@ -841,7 +841,7 @@ He went around the table, setting a packet down in front of each of us like we w
 
 
 
-I scanned my packet, which consisted of several photocopied police reports. The first one dated back to 1944. According to the report, a tall redheaded man in stage makeup and a fur coat was arrested for public indecency. He was immensely uncooperative during booking. 
+I scanned my packet, which consisted of several photocopied police reports. The first one dated back to 1944. According to the report, a tall redheaded man in stage makeup and a fur coat was arrested for public indecency. He was immensely uncooperative during booking. 
 
 
 
@@ -949,7 +949,7 @@ I processed this for a moment, then said, “Well…that’s still kind of funny
 
 
 
-The T-Class agent on my left looked as revolted as I felt, which gave me a surge of courage. 
+The T-Class agent on my left looked as revolted as I felt, which gave me a surge of courage. 
 
 “Okay, so once the Harlequin starts screaming song lyrics at you, is it a *guarantee* that you’re getting balloon-animalled, or—”
 
@@ -987,7 +987,7 @@ The T-Class agent on my left looked as revolted as I felt, which gave me a surge
 
 
 
-“Yes, it may happen. I cannot promise it won’t. I can promise I will be with you, and I will get between you and him. I do not think he will not tie me in knots. I don’t know what *else* he will do to me or to you, but it will not be that.” 
+“Yes, it may happen. I cannot promise it won’t. I can promise I will be with you, and I will get between you and him. I do not think he will not tie me in knots. I don’t know what *else* he will do to me or to you, but it will not be that.” 
 
 
 
@@ -1081,7 +1081,7 @@ And then you’ve got poor Charlie. Just Charlie.
 
 
 
-I guess it’s true that nobody cares about him. 
+I guess it’s true that nobody cares about him. 
 
 
 
@@ -1089,8 +1089,8 @@ I guess it’s true that nobody cares about him. 
 
 
 
-Previous Interview: [https://www.reddit.com/r/nosleep/comments/1h3d1zz/fuck\_hipaa\_my\_new\_patient\_is\_mimicking\_me\_and\_im/](https://www.reddit.com/r/nosleep/comments/1h3d1zz/fuck_hipaa_my_new_patient_is_mimicking_me_and_im/)
+[Previous Interview](https://www.reddit.com/r/nosleep/comments/1h3d1zz/fuck\_hipaa\_my\_new\_patient\_is\_mimicking\_me\_and\_im/)
 
 
 
-Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
+[Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)

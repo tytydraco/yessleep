@@ -1,6 +1,6 @@
 Between 1984 and 1988, a particular metro area in the southeastern United States suffered a spat of violent murders.
 
-The victims had no commonalities. Age, gender, color, appearance, occupation, socioeconomic status — nothing matched. Victims included middle school students and notorious cartel members, street cops and lawyers, charity directors and investment bankers, pharmaceutical executives and gas station clerks. 
+The victims had no commonalities. Age, gender, color, appearance, occupation, socioeconomic status — nothing matched. Victims included middle school students and notorious cartel members, street cops and lawyers, charity directors and investment bankers, pharmaceutical executives and gas station clerks. 
 
 The only reason authorities had any idea that the murders were related was because of the killer’s unique calling card:
 
@@ -16,15 +16,15 @@ The woman was covered in grey feathers.
 
 A second sighting was reported one year later, and was again dismissed. Similar sightings continued to crop up over the years, every one of them ignored.
 
-In 1988 and entirely by chance, a bloody feather came into possession of AHH during the commission of a separate task. The feathers were then brought to NASCU. Peculiarities surrounding the appearance and physiology of the feathers were noted by specialized personnel, most notably T-Class Agent Wolf. 
+In 1988 and entirely by chance, a bloody feather came into possession of AHH during the commission of a separate task. The feathers were then brought to NASCU. Peculiarities surrounding the appearance and physiology of the feathers were noted by specialized personnel, most notably T-Class Agent Wolf. 
 
-At this time, the agency launched an investigation of its own. 
+At this time, the agency launched an investigation of its own. 
 
-The investigation culminated in July 1988. During surveillance of the target — a very thin woman who was always trailed by a flock of pigeons, and who always wore a long, heavy trenchcoat, even in the humid summer heat — she managed to infiltrate a house that functioned as a front for human trafficking. 
+The investigation culminated in July 1988. During surveillance of the target — a very thin woman who was always trailed by a flock of pigeons, and who always wore a long, heavy trenchcoat, even in the humid summer heat — she managed to infiltrate a house that functioned as a front for human trafficking. 
 
 What resulted was a bloodbath.
 
- 
+ 
 
 The target was badly wounded and therefore sufficiently weakened due to the energy expended during the attack. Agency personnel were able to take her into custody. Her capture was not without incident, as the flock of pigeons surrounding her began to attack. One pigeon, a particularly large male with one eye, refused to leave her side. As a result, the animal was brought into custody with her. He was later observed to pluck his feathers and place them on top of the woman’s astounding number of serious wounds.
 
@@ -34,17 +34,17 @@ It must be noted that the woman came into Agency custody during a time when cons
 
 The Bag Lady is a middle-aged woman of almost extraordinary thinness. Her hair is short and grey. Her eyes are large and a vivid, bright orange identical in hue to the eyes of the pigeon who came into custody with her.
 
-Like her pigeon, she is covered in feathers. 
+Like her pigeon, she is covered in feathers. 
 
-Unlike many inmates, the Bag Lady is articulate, intelligent, and possesses full speech and language capabilities. Nevertheless,  for the entire length of her incarceration, the Bag Lady has refused to speak with staff for any meaningful length of time. When asked why, her answer is always the same:
+Unlike many inmates, the Bag Lady is articulate, intelligent, and possesses full speech and language capabilities. Nevertheless,  for the entire length of her incarceration, the Bag Lady has refused to speak with staff for any meaningful length of time. When asked why, her answer is always the same:
 
 “Because I don’t talk to cops.”
 
-This is admittedly understandable, given that the Bag Lady acted in an exclusively extrajudicial capacity, to extremely violent effect. 
+This is admittedly understandable, given that the Bag Lady acted in an exclusively extrajudicial capacity, to extremely violent effect. 
 
 Despite decades of consistent questioning and other, less savory methods to break her down, the Bag Lady has continued to refuse meaningful engagement with Agency personnel. In fact, the only meaningful contact the Bag Lady has had with personnel consists of attacks both attempted and achieved.
 
-On four different occasions, however, she has been observed attempting to engage fellow inmates in conversation. 
+On four different occasions, however, she has been observed attempting to engage fellow inmates in conversation. 
 
 Notably, the Bag Lady speaks extensively and frequently to her pigeon. The pigeon does not answer, but Agency personnel believe the bird is extraordinarily intelligent and that it communicates with her nonverbally. Due to potential similarities with the inmate called the Heart Bird, the pigeon is as closely monitored as the Bag Lady herself. Concerns over such similarities with the Heart Bird are the primary reason that the Bag Lady has never been evaluated for termination.
 
@@ -56,7 +56,7 @@ One might even dare to say it provides a few answers as well.
 
 **Interview Subject: The Bag Lady**
 
-**Classification String:  Uncooperative / Undetermined / Khthonic / Fixed / Critical / Teras**
+**Classification String:  Uncooperative / Undetermined / Khthonic / Fixed / Critical / Teras**
 
 **Interviewer: Rachele B.**
 
@@ -70,7 +70,7 @@ Michael loved pigeons. He started talking to them before he ever said a word to 
 
 He loved them.
 
-As he got older, that love grew stronger. By the time he was kindergarten, those birds would follow him everywhere, bobbing their little heads. They ate out of his hands, flew down to his arms, sometimes even landed on his head which made him laugh like nothing else. 
+As he got older, that love grew stronger. By the time he was kindergarten, those birds would follow him everywhere, bobbing their little heads. They ate out of his hands, flew down to his arms, sometimes even landed on his head which made him laugh like nothing else. 
 
 I’d been afraid of birds my whole life, so I didn’t understand. I asked him one time why he loved them so much. How he could make friends with them.
 
@@ -80,7 +80,7 @@ I still didn’t understand. Didn’t really want to, I guess. I grew up learnin
 
 But I did understand this:
 
-Like pigeons, my son thought everyone was his friend. 
+Like pigeons, my son thought everyone was his friend. 
 
 When describing Michael, you might use the word “gullible.” But that isn’t right. He wasn’t gullible. He was smart, he was intuitive, he understood everyone. He could look at the worst person alive and find the smallest, weakest spark of goodness flickering forlornly in the vast dark.
 
@@ -94,7 +94,7 @@ And how that spark of sympathy got my guard just enough to make sure I lost my s
 
 I saw him for the last time when he was seventeen.
 
-We were fighting about his friends. Not the pigeons, I’d gotten used to them a long time ago. How they clustered around the fire escape every morning waiting for him to open the window, how they flocked down to the building entrance when it was time for him to leave for work, how his favorite bird, Mr. One-Eye, dive-bombed onto his shoulder every time they saw each other. 
+We were fighting about his friends. Not the pigeons, I’d gotten used to them a long time ago. How they clustered around the fire escape every morning waiting for him to open the window, how they flocked down to the building entrance when it was time for him to leave for work, how his favorite bird, Mr. One-Eye, dive-bombed onto his shoulder every time they saw each other. 
 
 No, we weren’t fighting about pigeons. We were fighting about his other friends.
 
@@ -118,7 +118,7 @@ But the fact that no one helped, that no one cared, that no one gave the tiniest
 
 I went to the police seventeen times. Seventeen. One for each year he’d been alive. Each time they told me Michael was practically an adult, we’d had a fight, and he was fully in his rights not to come home. One cop even had the gall to me it was about time he stopped coming home. Another one said I was lucky he was gone, because otherwise he’d probably come home one day and cut my throat for drug money.
 
-The last cop took pity on me. She was a lady officer. Lady is the wrong word. She was a battle ax. Built like a brick shithouse, with hair like rusty steel wool and the scariest eyes I have ever seen. 
+The last cop took pity on me. She was a lady officer. Lady is the wrong word. She was a battle ax. Built like a brick shithouse, with hair like rusty steel wool and the scariest eyes I have ever seen. 
 
 But when she looked at me after I taking my seventeenth report, there was nothing scary about her eyes. They were only tired. Sad. And lightless.
 
@@ -132,7 +132,7 @@ I didn’t give up. I’ll never give up on my boy. I went to other places for h
 
 But they didn’t *do* anything.
 
-Finally, I’d had enough of people who didn’t do anything. 
+Finally, I’d had enough of people who didn’t do anything. 
 
 When I said so to one of the group leaders — the one who was the best listener, the one who held my hands whenever I cried — said, “We’re your people. We’re here for you. We care about you.”
 
@@ -160,7 +160,7 @@ Only I couldn’t get anywhere else.
 
 The pigeons couldn’t, either. They didn’t seem to understand that Michael was gone. As the days after his disappearance bled into weeks and the weeks hemorrhaged into months, the pigeons kept coming. Flocking to the fire escape outside our little window waiting for him to pop out with smiles and birdseed. His favorite pigeon, Mr. One-Eye, even took to following me whenever I left the building. He watched me as if to say, *Where is he? Where did he go? Tell him we’re waiting. Tell him we love him. Tell him we need him to come back*.
 
-I couldn’t help but wonder how they were feeling. If they were just confused and maybe a little hurt in their little birdbrains, or if they understood. If they hurt as much as me, if they had holes in their hearts like me. Rotting, bottomless voids eating them from the inside out every second of every day. 
+I couldn’t help but wonder how they were feeling. If they were just confused and maybe a little hurt in their little birdbrains, or if they understood. If they hurt as much as me, if they had holes in their hearts like me. Rotting, bottomless voids eating them from the inside out every second of every day. 
 
 But I didn’t know how to ask, and they wouldn’t have been able to answer anyway.
 
@@ -170,7 +170,7 @@ He stayed gone for one day, then two, then three and four and five and that’s 
 
 So if even that bird had given up on him, he was truly gone.
 
-The sixth day after Mr. One-Eye’s absence was grey and wet somehow dead. Rain sheeted from the sky, but without any ferocity, without any power. It felt tired, hopeless, helpless to stop itself from falling. 
+The sixth day after Mr. One-Eye’s absence was grey and wet somehow dead. Rain sheeted from the sky, but without any ferocity, without any power. It felt tired, hopeless, helpless to stop itself from falling. 
 
 I was kicking my way home from work, tired and hopeless and helpless as the rain. I didn’t want to go to work. I didn’t want to come home from work, either. I didn’t want to walk. But I was still walking. Eyes down, one foot in front of the other. Left, right. Left, right. All rain could do was fall, grey rain on grey streets. All I could do was walk, grey girl on grey streets.
 
@@ -180,9 +180,9 @@ Brightness against the rain-slick concrete, a small explosion of and white grey 
 
 I almost ignored it. One foot in front of the other because that’s all you can do. Left, right. Left, right. Shoes slapping the sidewalk, dull and pointless, grey and empty.
 
-But that explosion of white and red didn’t stay an explosion. It began to resolve. To take form. 
+But that explosion of white and red didn’t stay an explosion. It began to resolve. To take form. 
 
-And the form it took was blood-caked feathers. 
+And the form it took was blood-caked feathers. 
 
 The form it took was a crumpled grey chest shimmering all pink and green and white as it panted. A pigeon. A pigeon some asshole had kicked out of the way, or maybe even stepped on, and left to die. A pigeon who hadn’t run away from danger because it thought everyone was its friend, and what friend would ever be a danger?
 
@@ -192,33 +192,33 @@ But then I thought of Michael, and couldn’t bear to leave it there.
 
 As I approached it, something bloomed in my chest. A feeling. I couldn’t figure out what that feeling was, only that it was suffocating.
 
-I stopped and looked at the pigeon. It looked back with a single orange eye, fever-bright and fading even as I watched. 
+I stopped and looked at the pigeon. It looked back with a single orange eye, fever-bright and fading even as I watched. 
 
 It turned its head weakly.
 
 And that’s when I saw it was missing an eye.
 
-The sheer weight of grief forced me to my knees. But that weight couldn’t keep me from crawling across the grey, flooded sidewalk. It couldn’t keep me from scooping up that bright bloody explosion with desperate tenderness. It couldn’t keep me from cradling that Mr. One-Eye to my chest like I’d cradled my son a lifetime ago. 
+The sheer weight of grief forced me to my knees. But that weight couldn’t keep me from crawling across the grey, flooded sidewalk. It couldn’t keep me from scooping up that bright bloody explosion with desperate tenderness. It couldn’t keep me from cradling that Mr. One-Eye to my chest like I’d cradled my son a lifetime ago. 
 
 I sat there in the rain until long after night fell, sobbing and holding the bird to my heart long after he stopped moving. People passing by took me for homeless. A few dropped coins into my lap. One lady even knelt down and tried to coax me to a shelter down the road, til I screamed in her face and spat.
 
-No one stopped to help me after that. 
+No one stopped to help me after that. 
 
 At some point, I stood up and staggered home. I brought Mr. One-Eye with me, holding him to my heart all the while.
 
-I got drunk that night. Blind, stinking, hideously drunk. Not because I like drinking. I hate it. But I hated having to feel the hole in my heart more. This rotting void, a bottomless chasm eating me from the inside out every second of every day. It felt like I should be dead. Only I wasn’t. I felt like I was always dying but never got to be dead. 
+I got drunk that night. Blind, stinking, hideously drunk. Not because I like drinking. I hate it. But I hated having to feel the hole in my heart more. This rotting void, a bottomless chasm eating me from the inside out every second of every day. It felt like I should be dead. Only I wasn’t. I felt like I was always dying but never got to be dead. 
 
 Dead would have been better, but I couldn’t die. If I died then no one on earth would care what happened to my baby.
 
 So I got drunk instead of dead. I didn’t really think it would work. I hoped that it would. I always hope. Hope is the only thing some of us ever get.
 
-But being drunk didn’t work. 
+But being drunk didn’t work. 
 
-Being drunk just made me angrier and crazier. Being drunk made the rotting pit inside me grow up and out until it was swallowing me whole. Until it was the only thing in the world. Until it was the only thing I knew, the only thing I had ever known, the only thing I would ever know. 
+Being drunk just made me angrier and crazier. Being drunk made the rotting pit inside me grow up and out until it was swallowing me whole. Until it was the only thing in the world. Until it was the only thing I knew, the only thing I had ever known, the only thing I would ever know. 
 
-I thought I was by myself in that void, until I looked out the window and saw the pigeons on the fire escape. They alone were there in the pit with me. They alone understood. They alone cared what had happened to my son. 
+I thought I was by myself in that void, until I looked out the window and saw the pigeons on the fire escape. They alone were there in the pit with me. They alone understood. They alone cared what had happened to my son. 
 
-So I opened the window by the fire escape and told them to come inside, sobbing every word. They swirled back in a panic, wings thundering. 
+So I opened the window by the fire escape and told them to come inside, sobbing every word. They swirled back in a panic, wings thundering. 
 
 “No,” I wept. “No, don’t leave. Don’t leave. Come in. Come in here you goddamned morons, come in.”
 
@@ -246,13 +246,13 @@ I looked back at the man. His eyes shone too, and so did the skin of his face. H
 
 It sounds ridiculous, but I could literally *hear* the big letters in that title. They came out of his mouth capitalized.
 
-“Who listens to what?” 
+“Who listens to what?” 
 
 “I listen to prayers. I listen to pain. I listen to rage. I listened to yours, you know.” He smiled again, teeth shimmering.
 
 “Then why…” I blinked and shifted, groaning as electric pain bolted up my hip. “If you listened to me, why didn’t you ever answer?”
 
-“Because We Who Listen can never answer loudly. Sometimes we cannot answer at all. Each answer, however soft and quiet, takes from us. Often it takes something we aren’t supposed to give. Always, it gives something we can never get back. See.” It held out its bare arms for my inspection. My stomach churned violently as the streetlight illuminated a relief map of pitted scars and wormlike welts and suppurating rotted pits like radiation burns. 
+“Because We Who Listen can never answer loudly. Sometimes we cannot answer at all. Each answer, however soft and quiet, takes from us. Often it takes something we aren’t supposed to give. Always, it gives something we can never get back. See.” It held out its bare arms for my inspection. My stomach churned violently as the streetlight illuminated a relief map of pitted scars and wormlike welts and suppurating rotted pits like radiation burns. 
 
 “What happened?” I gasped.
 
@@ -260,7 +260,7 @@ It sounds ridiculous, but I could literally *hear* the big letters in that title
 
 Frustration bubbled up, hot and poisonous. “If you can’t do anything, then…I mean, what’s the point?”
 
-“There is no point, I think,” he said gently. “It simply is.” 
+“There is no point, I think,” he said gently. “It simply is.” 
 
 “Are you a guardian angel?” I repeated.
 
@@ -308,19 +308,19 @@ Mr. One-Eye shifted his wings, then stretched upward. I raised him so he could l
 
 Then he stretched out, beak catching the fabric of my coat, and stepped onto my shoulder.
 
-For the first time since my son was born, I felt whole. 
+For the first time since my son was born, I felt whole. 
 
 He Who Listens wasn’t quite so thrilled.
 
 “What have you done?” he wailed. Tears welled in his great yellow eyes as he stared at the ghastly wound in my arm. I stared, too. I couldn’t help it. It looked as rotten as it felt, a huge, ruptured wound tunneling through my arm. “It will never go away. It will never fade. It will only grow. You will have that wound and feel that pain growing until it finally consumes you.”
 
-Before I could say a word, Mr. One-Eye flapped his wings. The feathers whacked my face, shockingly strong. 
+Before I could say a word, Mr. One-Eye flapped his wings. The feathers whacked my face, shockingly strong. 
 
 Immediately, the pigeons around us responded.
 
 They came in a bobbing grey wave, pooling around my feet where the began to preen. As I watched, the dropped their preened feathers — glistening, shimmering grey overlaid with every color of the rainbow — at my feet.
 
-When the last pigeon had dropped the last feather, Mr. One-Eye tucked his head under his wing and pulled out a feather of his own. Then he crept his way down my arm —one foot in front of the other, left, right, left right —and placed his feather inside my wound. 
+When the last pigeon had dropped the last feather, Mr. One-Eye tucked his head under his wing and pulled out a feather of his own. Then he crept his way down my arm —one foot in front of the other, left, right, left right —and placed his feather inside my wound. 
 
 The feather lay atop it for a moment, shining. Then it melted into that rotting crater, leaving a delicate thread of whole, unblemished flesh stretched across the hole.
 
@@ -330,11 +330,11 @@ By the end, even the pain was gone.
 
 I laughed.
 
-It felt alien to laugh, rusty, even wrong. But it came out anyway, erupting out of me like a geyser. 
+It felt alien to laugh, rusty, even wrong. But it came out anyway, erupting out of me like a geyser. 
 
 As I laughed, He Who Listens wept.
 
-“No,” he moaned. “No, no, no. What are you doing? This is *wrong*.”  Tears fell from his great yellow eyes, shining like diamonds under the street lights. Suddenly, I felt guilty. 
+“No,” he moaned. “No, no, no. What are you doing? This is *wrong*.”  Tears fell from his great yellow eyes, shining like diamonds under the street lights. Suddenly, I felt guilty. 
 
 “I’m sorry,” I lied. “I didn’t know. I won’t do it again.”
 
@@ -376,7 +376,7 @@ We walked in silence after that. I avoided his yellow eyes glistening like coins
 
 He Who Listens spent all night showing me what to do. Not once, not twice or three times, but twelve.
 
-The first time was a homeless man huddled under a bench in the park. He was sobbing in his sleep, and his face —weathered but unmistakably young — made my heart ache. 
+The first time was a homeless man huddled under a bench in the park. He was sobbing in his sleep, and his face —weathered but unmistakably young — made my heart ache. 
 
 “Sit,” said He Who Listens.
 
@@ -398,11 +398,11 @@ Next we went to a lady sitting in a roach-infested studio apartment, hollow-eyed
 
 “Not tonight. Kneel, and hold her hand.”
 
-I did as I was told. 
+I did as I was told. 
 
 Once again, I heard and saw and felt the most terrible things. Rotting things, things that get inside you and bore tunnels until they kill you. I don’t know how long I sat with her, but I know that by the end her eyes had closed and she was finally sleeping.
 
-We saw a child next, alone and wide awake in a foster home, crying for her father. Then a young mother weeping in her kitchen. An old man in a nursing home, a teenage boy stomping his way down an empty street while tears coursed down his face, a young woman sobbing by herself in a dark office long after everyone around her had gone home. 
+We saw a child next, alone and wide awake in a foster home, crying for her father. Then a young mother weeping in her kitchen. An old man in a nursing home, a teenage boy stomping his way down an empty street while tears coursed down his face, a young woman sobbing by herself in a dark office long after everyone around her had gone home. 
 
 It might have been a single night. It might have been a week, or a month, or forever, or ten minutes.
 
@@ -414,7 +414,7 @@ His pain hit me with the force of a tsunami, repulsive and powerful.
 
 *Help help help help help I can’t lose her she deserves more she’s all I have help her help her help*
 
-The sheer force punched through my heart, wide as a freight train, hot as a bullet, painful as death by acid bath. 
+The sheer force punched through my heart, wide as a freight train, hot as a bullet, painful as death by acid bath. 
 
 The man cried out. I thought I’d hurt him. I recoiled as he lurched forward, reaching for the child on the bed.
 
@@ -426,7 +426,7 @@ I staggered back, gasping as the wound in my chest pulsed and blood dripped down
 
 I barely listened. Single-minded purpose filled me and I knew, in the depths of my missing punched-out heart, that I had to get outside, right now.
 
-Somehow, I did. 
+Somehow, I did. 
 
 The pigeons were waiting for me. An entire flock on the sidewalk, eyes glittering knowingly.
 
@@ -436,11 +436,11 @@ It took longer this time, but that wound healed too.
 
 “No,” wept He Who Listens. “No. You cannot do this. You cannot. You are an abomination.”
 
-I had a vivid mental image of Who He Listens kneeling at my side, stroking my hair, my hands, holding my face as I wept and raged with no knowledge of his presence. 
+I had a vivid mental image of Who He Listens kneeling at my side, stroking my hair, my hands, holding my face as I wept and raged with no knowledge of his presence. 
 
 Again I wondered:
 
-What was the *point* of it?  
+What was the *point* of it?  
 
 “No,” I told him. “The abomination is being able to help people, being able to *do* something, but choosing to do nothing.”
 
@@ -450,7 +450,7 @@ What was the *point* of it?  
 
 He left me and didn’t come back. That was all right. I didn’t need him.
 
-I only needed the pigeons. 
+I only needed the pigeons. 
 
 I listened everywhere, to everything and everyone and all their heartbroken, rage-filled, desperate questions. I didn’t answer all of them. I learned that some people don’t need answers. Many don’t even deserve. There are more of those than I ever thought possible.
 
@@ -462,7 +462,7 @@ But whether I was a god or not, I could still only be in one place at one time.
 
 That’s why I needed the pigeons.
 
-Pigeons can only be in one place, too. But there are so many of them that they’re already everywhere. 
+Pigeons can only be in one place, too. But there are so many of them that they’re already everywhere. 
 
 I asked them to listen. They answered me.
 
@@ -474,7 +474,7 @@ Still, they beat him.
 
 So I struck them down.
 
-One cracked open on the sidewalk. I took his gun and shot the other while he stirred feebly. 
+One cracked open on the sidewalk. I took his gun and shot the other while he stirred feebly. 
 
 The boy looked at me, exhausted and horrified in equal measure, began to pray. I knew he was praying to God, probably to stop me from closer. But I pretended he was praying to me anyway.
 
@@ -496,7 +496,7 @@ The birds kept listening, and I kept answering.
 
 They found a woman, dead-eyed and frozen in fear, huddling as a man with dead eyes bore down on her. I tore his head off. She ran before I could put my hands on her to take away her fear.
 
-They found a flea-bitten baby boy in a sodden, sagging diaper screaming for help in a filthy crib while his parents nodded off in an equally filthy corner. I answered the baby, but I punished them. 
+They found a flea-bitten baby boy in a sodden, sagging diaper screaming for help in a filthy crib while his parents nodded off in an equally filthy corner. I answered the baby, but I punished them. 
 
 They found a girl in a group home as she slid a blade up and down her arms and asked for someone who should have done everything to protect her but destroyed her instead to die. I answered.
 
@@ -512,7 +512,7 @@ Dozens, then hundreds, then more. And more.
 
 And more.
 
-Every answer took from me. I think every answer continued to take. Maybe it’s because I’ve given so many answers and now they all help each other grow. My answers took and took what I can never get back. Even the birds couldn’t give back what I gave. 
+Every answer took from me. I think every answer continued to take. Maybe it’s because I’ve given so many answers and now they all help each other grow. My answers took and took what I can never get back. Even the birds couldn’t give back what I gave. 
 
 But they gave me enough.
 
@@ -522,7 +522,7 @@ That was my fault. God works best in mysterious ways, especially when those ways
 
 My birds still bring me questions, you know. They’re outside right now. On your walls, your roof, your ground, whispering to each other. Whispering to Mr. One-Eye. Whispering to me.
 
-I hear them, even down here. 
+I hear them, even down here. 
 
 They aren’t perfect. Nobody is. Some questions don’t have answers, and some answers can’t be found.
 
@@ -542,7 +542,7 @@ And they love to listen.
 
 Together, my birds and I are always listening to those who ask for answers. We hear them. Right now, they’re whispering, right this very minute. We hear them, even down here. I hear their pain, and I hear their rage. That’s why you cannot keep me forever, no matter how hard you try:
 
-Because hearing their suffering gives me power, and I still hear every minute of the suffering. 
+Because hearing their suffering gives me power, and I still hear every minute of the suffering. 
 
 I hear the children who beg for help.
 
@@ -556,14 +556,14 @@ And I help, because I am The One Who Answers.
 
 \* \* \*
 
-First Patient: [https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck\_hipaa\_if\_i\_dont\_talk\_about\_this\_patient\_im/](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
+[First Patient](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
 
-Second Patient: [https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck\_hipaa\_i\_messed\_up\_hardcore\_and\_if\_we\_dont/](https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
+[Second Patient](https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
 
-Third Patient: [https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck\_hipaa\_this\_inmate\_is\_the\_most\_dangerous/](https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck_hipaa_this_inmate_is_the_most_dangerous/)
+[Third Patient](https://www.reddit.com/r/nosleep/comments/1gve4dc/fuck_hipaa_this_inmate_is_the_most_dangerous/)
 
-Fourth Patient: [https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck\_hipaa\_i\_finally\_had\_a\_breakthrough\_with\_a/](https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
+[Fourth Patient](https://www.reddit.com/user/Dopabeane/comments/1gznn55/fuck_hipaa_i_finally_had_a_breakthrough_with_a/)
 
-Sixth Patient: [https://www.reddit.com/r/nosleep/comments/1gysd5a/fuck\_hipaa\_my\_new\_patient\_is\_a\_televangelist\_and/](https://www.reddit.com/r/nosleep/comments/1gysd5a/fuck_hipaa_my_new_patient_is_a_televangelist_and/)
+[Sixth Patient](https://www.reddit.com/r/nosleep/comments/1gysd5a/fuck_hipaa_my_new_patient_is_a_televangelist_and/)
 
-Hastily-Transcribed Employee Handbook: [https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
+[Hastily-Transcribed Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
