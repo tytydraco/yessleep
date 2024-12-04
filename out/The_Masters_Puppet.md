@@ -1,0 +1,15 @@
+The world grows quieter in these early hours, and here I am, pen trembling against paper. It is the only time the strings do not pull, granting me two precious hours to be myself. But who am I anymore? I don't know. My sugar daddy calls me 'doll,' and the witch, well, she doesn't call me anything-she merely moves me.
+
+It started innocently enough. A match on Tinder-a man of 78, refined and charming in his quiet way. He promised me wealth, and I clung to the lifeline. My debts demanded obedience, and I silenced every shred of doubt for each envelope he slid my way. At first, the tasks were mundane, even laughable- delivering packages in the dead of night, retrieving items from locked basements. But then came the asylum.
+
+He needed someone freed, he said. A witch. A relic of old nightmares, locked in a padded room for years. He promised a sum too large to refuse, so I donned a sweeper's uniform and snuck into that asylum under cover of darkness. I still see her eyes when I close mine-black as tar, glinting like shattered glass under the moonlight. I don't remember unlocking her cell. I only remember her fingers-bone-thin and cold as frost-trailing down my cheek as she whispered, "Now you' II dance for me.
+
+The piercings appeared the next morning. Thin silver rings, burning into my flesh-one in my lip, another in each wrist, a dozen along my spine. Invisible threads, her strings, carve deep into me, jerking me awake when she wills it. My sugar daddy is pleased. He says I'm efficient now, though I no longer remember agreeing to his jobs.
+
+The first murder was swift, almost elegant. A businessman, fat with greed, stumbled into his private elevator, unaware I had waited there for him. My hands moved of their own accord, plunging a blade into his neck. Blood sprayed in hot ribbons, painting the sterile walls as he gargled on his screams. I carved patterns into his chest-symbols I didn't understand but knew would please her-and left his body slumped like a grotesque marionette.
+
+The second was worse. A young woman, barely older than me. I stalked her through the park at dawn, unseen, unheard. When the strings pulled tight, I struck. My hands clamped over her mouth, muffling her screams as I dragged her into the shadows. The knife moved slowly this time, peeling skin, drawing lines of crimson poetry across her body. She didn't die quickly. I remember her eyes-wide, pleading-until they dulled, and I buried her in a shallow grave beneath the oaks.
+
+The witch controls me, and my sugar daddy pays for the show. The blood on my hands won't wash away, no matter how hard I scrub. This morning, the strings are slack, and I write with trembling fingers, begging for help. But as my phone chimes again, I know it's useless.
+
+Another job awaits. The strings will tighten soon, and I'll be her puppet once more.
