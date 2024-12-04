@@ -84,7 +84,7 @@ Walking up to the tree I feel like the world becomes slowly more distant. I feel
 
  
 
-And then, slowly it starts speaking to me. Or rather it communicates at me. Forcefully. God’s voice is something you can't ignore. I’m not sure what are my thoughts and what are it’s words. It’s Pictures, my pictures. It’s Ideas, my ideas. It’s concepts and ideals, my concepts and ideals. It’s Feelings, our feelings. Our Pictures. Our ideas. Concepts. Ideals. I don’t believe in spirits. I believe in souls. Souls are made by god. I believe in god. Do I believe this is god?  This could be a god. These are godly powers. I believe this is a God. There is only one god. This is God. 
+And then, slowly it starts speaking to me. Or rather it communicates at me. Forcefully. God’s voice is something you can't ignore. I’m not sure what are my thoughts and what are it’s words. It’s Pictures, my pictures. It’s Ideas, my ideas. It’s ideals, my ideals. It’s Feelings, our feelings. Our Pictures. Our ideas. Concepts. Ideals. I believe in souls. Souls are made by god. I believe in god. This could be a god. These are godly powers. I believe this is a God. There is only one god. This is God. 
 
  
 
@@ -112,4 +112,4 @@ And give in.
 
  
 
-“If your soul is heavy with longing, go into the forest. And when you have gone further than you’ve ever been, a being will have known your deepest wish eons in advance and if only your soul knows you went seeking, it will grant it.” 
+“If your soul is heavy with longing, go into the forest. And when you have gone further than you’ve ever been, a being will have known your deepest wish eons in advance and if only your soul knows you went seeking, it will grant it.”
