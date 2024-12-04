@@ -18,7 +18,7 @@ We had her buried in the old Oilsbrooke Valley Cemetery, just down the road lead
 
 We wanted to have her cremated, but there wasn't much money flowing for us at the time, and with the city council offering free burials in the county sanctioned cemetery, we were in no position to argue.
 
-The funeral and other services came, went, and like a blinding suckerpunch, it put me right on my ass in hazy mindstate envenomed by the black abyss left in my heart by my daughter's absence in our lives.
+The funeral and other services came, went, and like a blinding suckerpunch, it put me right on my ass in a hazy mindstate envenomed by the black abyss left in my heart by my daughter's absence in our lives.
 
 I was dazed and confused for a long time, living at the bottom of the bottle for months, looking for the signs I may have missed in my own selfish lifestyle.
 

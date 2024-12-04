@@ -1,4 +1,4 @@
-[](https://www.reddit.com/r/HFY/?f=flair_name%3A%22OC%22)
+
 
 Buster growled softly, baring his teeth at me as he stood in defiance. His stance rigid and unyielding, his tail stiff, and ears pinned back - he watched my every move with alert eyes.
 
@@ -269,3 +269,6 @@ I think they figured this out as well. Because one of them abruptly stopped spea
 In a matter of moments, the other alien turned around and took a step forward in my direction. It looked like he was peering down at me, fully aware of my existence. A wry smile appeared on his lips, and I felt a shiver go down my spine.
 
 I immediately switched off the telescope, put it back in the briefcase and ran towards my jeep. Buster followed after me. I decided to get to the nearest town and drove as fast as I could.
+
+  
+[Part2](https://www.reddit.com/r/nosleep/comments/1h6is9c/i_work_at_a_secret_government_facility_and/)
