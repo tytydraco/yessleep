@@ -56,7 +56,7 @@ Her shadow was petite, her head  limply hanging to the side, almost like she was
 
 When I noticed her, her head gave a strong twitch that looked so unnatural that I gasped and puked up a little bit in the back of my throat.
 
-I watched as her fingers splayed themselves against the glass slowly her palms lying flat against the window.
+I watched as her fingers splayed themselves against the glass slowly, her palms lying flat against the window.
 
 Her shadow seemed to flicker, like a candle of pure darkness was illuminating it's ghastly essence against our reality, trying to press it's way through the light and darkness of our fragile existence.
 
@@ -76,11 +76,11 @@ The liquor in me had a different plan, and perhaps, is the reason I am alive rig
 
 As I tried to half jog through the room, I staggered and fumbled with my footing, even before I lost balance by stepping on top of an empty bottle of tequila.
 
-I slipped and flew forward mere feet from the long curtain with my daughter's image cast upon it from the outside. My head made a violent thudding sound as the side of it smacked into the edge of my wall dresser.
+I slipped and flew forward mere feet from the long curtain with my daughter's image cast upon it from the outside. My head made a violent thudding sound as the side of it smacked into the edge of a dresser that was lined against the wall.
 
 Time skipped for me as my head hit the corner, and in a flash I was stirring slowly on the ground, my vision blinking in and out like a dying light bulb.
 
-"Mother? Father? Please... Let me in. It's so cold out here..." Her weak and plea fillee voice wrought hot coals of sadness over my chest. I didn't even know what to think anymore.
+"Mother? Father? Please... Let me in. It's so cold out here..." Her weak and plea filled voice wrought hot coals of sadness over my chest. I didn't even know what to think anymore.
 
 My vision slowly faded as Lily's hands grasped the window, the dark shadows of her neck, bent and twisted, keeping her head up limply to the side.
 
@@ -156,7 +156,7 @@ That night, though... I knew I had to keep a foothold on reality the best I coul
 
 The sun had set. The halls of our two story home sat quiet and still. Shadows slowly crawled throughout the house as the full moon rose into view.
 
-I sat in the bedroom, my husband's .357 revolver lying on my lap, my hands overlapping over it, holding it close as I scanned the window tirelessly.
+I sat on my bed facing the window, my husband's .357 revolver lying on my lap, my hands overlapping over it, holding it close as I scanned the window tirelessly.
 
 I really didn't believe I would see anything that night. I had to force myself to think that maybe what I saw was born of the liquor, and was not real.
 
@@ -170,7 +170,7 @@ Only now she was a decaying and somewhat bloated, an evil caricature of the girl
 
 Her dark brown hair was matted to her head with blood and mud. As her eyes scanned me from behind the glass, all I could detect was pure hatred.
 
-Even as her eyes looked upon me with hellish scorn, her lips tightly pursed into a forced grin, like the muscles that pulled her mouth weren't exactly cooperating with her.
+Even as her eyes looked upon me with hellish scorn, her lips were tightly pursed into a forced grin, like the muscles that pulled her mouth weren't exactly cooperating with her.
 
 Her form slowly shambled up to the second story window with otherworldly ease, her form seemingly slipping in and out of strange twitching motions.
 
@@ -180,7 +180,7 @@ Her twitching form stood there for a few minutes. I watched breathlessly as she 
 
 "Mother? Open the window, please. It's so cold out in the woods."
 
-Tears started to flood my eyes. The air around me thickened and choked my lungs the longer I stared at her. Her neck was dripping some thick looking liquid and I felt like I could smell just a small bit of rot creeping through the dimly lot room.
+Tears started to flood my eyes. The air around me thickened and choked my lungs the longer I stared at her. Her neck was dripping some thick looking liquid and I felt like I could smell just a small bit of rot creeping through the dimly lit room.
 
 I fumbled with my phone for a bit while she started tapping the window with her boney fingers, the sound of bone and decayed flesh drumming along glass. I took a picture of her macabre outline and started dialing 911.
 
