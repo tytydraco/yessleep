@@ -166,7 +166,7 @@ What had changed to make her look at me like that?
 
 I glanced back toward Donald. "Or is it him? He can't do any----"
 
-I stoppe because Donald was now stalking back toward the front doors with a metal baseball bat in his hand.
+I stopped because Donald was now stalking back toward the front doors with a metal baseball bat in his hand.
 
 "Are you fucking insane?" I shrieked, forgetting my fear at Alice's reaction.
 
@@ -224,7 +224,7 @@ Waited for him to stop twitching.
 
 When he finally slumped and stopped moving, I closed my eyes and breathed a shaky sigh of relief. I kept them closed, waiting. Hoping.
 
-I felt them. Two hands. One that touched my neck, gently rested against my throat. The other one gently stroked my hair.
+I felt them. Two hands. One that touched my neck, gently rested against my throat. The other one softly stroked my hair.
 
 Inhumanly hard hands. Covered in something warm and wet that dripped down my neck, soaked into my shirt, mixed into my hair at their touch.
 
@@ -254,7 +254,7 @@ Alice stands around, as always, but a nice change is that I'm now in charge of c
 
 Dressing Alice in lovely red and pink was a really nice time. I hope nobody thinks we were back there too long; I kept my eyes averted while changing her, she doesn't know me _that_ well yet, but I think we bonded even more in the comfortable silence back there while I went through the racks of clothes I'd wheeled back, smiling at her every once in a while.
 
-Just before I got ready to carry her out, I gave her my usual "thanks again for saving my life" that I usually did nowadays since actually saying the words breathlessly had gotten old pretty fast (probably to her, too) and kissed her on the lips.
+Just before I got ready to carry her out, I gave her my usual translation of "thanks again for saving my life" that I usually did nowadays since actually saying the words breathlessly had gotten old pretty fast (probably to her, too) and kissed her on the lips.
 
 Tee hee. It's not like anyone out front is gonna know. They never see me do it even out there, either.
 
