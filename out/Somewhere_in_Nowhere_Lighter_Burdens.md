@@ -358,4 +358,4 @@ Instead, I looked up at him from where I’d laid on the ground. The deep green 
 
 “It’ll be a great one,” I whispered, and he smiled even though the worry didn’t leave his face. 
 
-Then I closed my eyes and let the world turn orange.
+Then I closed my eyes and let the world turn [orange.](https://www.reddit.com/r/nosleep/s/Dbp8J3fth4)

@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1h65zb0/im_a_nurse_at_a_rehab_center_its_hell_on_earth/)
+
 I’ve loved helping people my whole life. I’m sure after a few minutes of meeting me, you could have my personality nailed down almost instantly. When the time came to pick my career path, I was lucky enough to know exactly what I wanted to do. That was to work at Sombra Rehab Center. Anyone who lives in New England should know about Sombra and its owner, Constantine Sinclair. They’re known as one of the most successful rehabs in the entire nation. With the opioid crisis in full swing, I felt like my calling was to be to help people who wanted to get clean,
 
 
@@ -238,5 +240,5 @@ I apologized profusely to him as I unstrapped him from the table and helped him 
 
 
 
-What I wouldn’t give to go back and stop my past self from signing those papers. Or at least getting to that point in the papers. I wish I could have never started working here, because from here a long horrible trail of events would begin. That would ultimately ruin my life. Stay tuned and I might tell you all about it. 
+What I wouldn’t give to go back and stop my past self from signing those papers. Or at least getting to that point in the papers. I wish I could have never started working here, because from here a long horrible trail of events would begin. That would ultimately ruin my life. Stay tuned and I might tell you all about it. 
 
