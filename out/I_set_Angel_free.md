@@ -122,6 +122,5 @@ It happened in seconds. One second, we were watching Angel make frantic grabbing
 
 When Mr Bevends came to see what was the matter, all any of us could do was to point up. But by then, she was just a pinprick against the deep, endless blue sky. 
 
-Then there was nothing.
+Then there was [nothing](https://www.reddit.com/user/CreepyClothDoll/comments/1gtsj7n/follow_me_on_tumblr/).
 
-[X](https://www.reddit.com/user/CreepyClothDoll/comments/1gtsj7n/follow_me_on_tumblr/)

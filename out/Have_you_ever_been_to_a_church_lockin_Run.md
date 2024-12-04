@@ -117,6 +117,19 @@ Five pale men or women, I couldn’t exactly tell, appeared around the bull. Mig
 A shiny coin of gold, engraved with a group of naked people surrounding a bull. A bloody hand was gently placed on my shoulder, it was Lane.
 
 “Well looks like someone had their first encounter with the Muses… Maybe you have potential after all, sister. Pastor Lysander will be ecstatic…” Lane uttered, as his grip tightened on my shoulder.
+
+“W-what are they?”
+
+Tugging his shirt lower, Lane revealed a large necklace fashioned from many golden coins, each inscription more scandalous than the last. Lighting a cigarette, Lane looked speechless for a second before his eyes softened.
+
+“They’re like the Bull’s angels, I suppose… They’ve come to me a few times, not so much recently. Pastor Lysander sees them daily, though. They come bearing blessings, sister.”
+
+“This isn’t a blessing Lane… This is a curse…” I shuttered.
+
+“What’s the difference,” Lane chuckled.
+
+
+
 _________________________________________
 
 
