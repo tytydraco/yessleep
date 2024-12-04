@@ -391,4 +391,4 @@ Tianna looked at me one last time, her expression haunted.
 
 Then they ran.
  
-To be Continued
+Continued: [Wires and Chains Part Four](https://www.reddit.com/r/nosleep/s/DPVCqMADOr)
