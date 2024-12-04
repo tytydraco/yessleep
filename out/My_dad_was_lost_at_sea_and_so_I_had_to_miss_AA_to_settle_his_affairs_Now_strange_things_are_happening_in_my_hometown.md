@@ -146,7 +146,7 @@ I opened Betty’s carrier and to my surprise, she didn't come out. Instead, she
 
 It was as if I were looking at a different cat than the one I came here with. Betty was the most trusting living thing I’d ever met.
 
- The night Jenny bailed me out, she padded up to me like we were old friends, and in a world full of weirdos who did nasty things to cats, I couldn’t justify shuffling off the mortal coil and leaving her on that bridge. There wasn't an ounce of that confidence. 
+ The night Jenny bailed me out, she padded up to me like we were old friends, and in a world full of weirdos who did nasty things to cats, I couldn’t justify killing myself and leaving her on that bridge. There wasn't an ounce of that confidence now. 
 
 “It’s only for a week,” I assured her. “Then we never have to see this place again.” 
 
