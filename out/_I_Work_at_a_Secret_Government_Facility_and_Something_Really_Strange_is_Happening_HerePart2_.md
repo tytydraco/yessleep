@@ -275,3 +275,6 @@ I felt the anger rise in me even as I just sat there, with my mouth open unable 
 “Yes.” he replied in a matter of fact manner.
 
 My shoulders began to droop even as every fibre in my body was vibrating with anger. Then I finally asked him ”What am I doing here Captain? Why am I not dead already?”
+
+  
+[Part3](https://www.reddit.com/r/nosleep/comments/1h7bxrt/i_work_at_a_secret_government_facility_and/)
