@@ -205,3 +205,5 @@ I closed my eyes and leaned back against the headrest, taking a moment to steady
 When I opened my eyes, my heart started racing again—the raven was perched on a mailbox barely 20 feet ahead, its unblinking stare sending a chill down my spine. With a sharp, grating caw, it spread its wings and took flight, disappearing into the turbulent sky.
 
 Without hesitation, I jammed the key into the ignition and started the car. There was no other choice left now but to follow it— especially after everything that had happened, after everything I’d seen, I had to see this thing through.
+
+[Part2](https://www.reddit.com/r/nosleep/comments/1h79rtv/the_mystery_of_the_auric_seals_of_teotihuacan/)
