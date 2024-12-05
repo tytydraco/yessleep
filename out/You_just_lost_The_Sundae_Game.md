@@ -28,7 +28,7 @@ He peered past me, as if willing the approaching train to hurry up. “Well, you
 
 The man quickly shook his head, and his neck made the oddest sound; like a muffled squeak in water-clogged ears. “There is no winning.”
 
-He was tugging irritably at the sleeves of his leather jacket, seemingly discontent with the cuffs stopping at his knuckles — he was trying to conceal the very tips of his fingers. Most curiously of all, the barmy gentleman was clearly in a hurry to escape. Baffling, given that he had started the conversation — *I* was supposed to be the one eager to get away. For that reason alone, I didn’t immediately dismiss The Sundae Gamer as a run-of-the-mill, best-avoided, lager-fuelled Londoner.
+He was tugging irritably at the sleeves of his leather jacket, seemingly discontent with the cuffs stopping at his knuckles; he was trying to conceal the very tips of his fingers. Most curiously of all, the barmy gentleman was clearly in a hurry to escape. Baffling, given that he had started the conversation — *I* was supposed to be the one eager to get away. For that reason alone, I didn’t immediately dismiss The Sundae Gamer as a run-of-the-mill, best-avoided, lager-fuelled Londoner.
 
 Actually, I was beginning to view him as something worse; beginning to lose that grin on my face. And, like him, I was simply facing the train in the distance, hoping that the conversation would end.
 
@@ -114,7 +114,7 @@ The clone snorted erratically, letting tears, snot, and dribble pour from her fa
 
 Then came a sharper sting of pain, and I rolled my squeaking, near-frozen eyeballs towards the floor. Rolled them towards the horrifying sight of that woman digging her fingers, once again, into the back of my hand — *scooping* through to the other side, leaving a hole through my palm.
 
-As I attempted to wail, producing only a near-silent gasp, the passenger shovelled the entire fleshy mound into her mouth and started to moan orgasmically; moaned with lips hanging open to reveal my mutilated quarter-pound of flesh melting on her tongue. I stared directly through the pristine tunnel bored through my hand; sealed with not an ounce of blood, but discoloured flesh. Flesh of soft consistency.
+As I attempted to wail, producing only a near-silent gasp, the passenger shovelled the entire fleshy mound into her mouth and started to moan in ecstasy; moan with lips hanging open to reveal my mutilated quarter-pound of flesh melting on her tongue. I stared directly through the pristine tunnel bored through my hand; sealed with not an ounce of blood, but discoloured flesh. Flesh of soft consistency.
 
 “Oh, you’re scrumptious, Flynn,” she mumbled whilst swirling my flesh around in her stuffed cheeks. “He’s going to want to put you on the top shelf. You just need a little more time to soften.”
 
@@ -160,7 +160,7 @@ And this may just work.
 
 You just lost The Sundae Game.
 
-Well, you probably lost it the moment you read the title of this post. And, as I said, I’m sorry. So, so sorry. I’m just kicking the can down the road. I don’t know how to bring an end to this game; only how to end it for me.
+Well, you lost it the moment you read the title of this post. And, as I said, I’m sorry. So, so sorry. I’m just kicking the can down the road. I don’t know how to bring an end to this game; only how to end it for me.
 
 Look, you might be okay. Maybe you’ll make it through the white door and be the first to win. Maybe, like the stranger and me, you’ll simply make it someone else’s problem.
 
