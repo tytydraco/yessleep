@@ -1,0 +1,13 @@
+I live in a close knit town, and just yesterday a blizzard swept through, blanketing my area in that perfect white, you know, that fresh blanket of snow, undisturbed. Anyways, I love to go on walks, and tonight I glanced out the window and saw the fresh snow, how could I resist? 
+
+I bundled up and took my typical route down around the neighborhood when I saw her! I’ve noticed this woman also shares my hobby of lonely walks, seeing her around every once in awhile. She’s beautiful. Tall, dark hair, but always a look of concern masks her face. Tonight was the night I thought, and I might finally talk to a girl again, it’s been years since I’ve been truly fascinated by one. As I got closer to her, the look of concern grew deep, noticeably. I’m a strange man at night, who am I to judge? I called out to her “Hi! This snows beautiful, isn’t it?” But rather than reply she turned. What a fucking bitch. 
+
+I get it, not everyone’s social but still, is a greeting too much to ask for? She started to walk, briskly, and why not follow, no harm in trying to gain a friend. She constantly glanced over her shoulder, I even managed to capture her gaze for a moment, her eyes are just beautiful! Yet again, I tried to call out but she quickened her pace, now almost at a jog. “Come on, I don’t bite!” I’ve always prided myself on being a comedian. 
+
+She started to run. Why would you run. The thought of hurting another would never cross my mind, especially someone like you. I decided to give up, and crossed the street, maybe the distance will give her some comfort. How dare she run. I watched her turn a corner, the one leading to her house. She couldn’t have been out for that long so why would she return already, am I really that off putting. I passed, knowing this was a lost cause. 
+
+On my way back home, I turned the corner and there it was, her house. I always loved the little bird bath near the back, though it was frozen over tonight, too bad for you birdies. I slid up the steps and just as I thought, she never locks the sliding door in the back, I mean why would she, the fence would be enough to keep anyone out. God, her house is so warm. 
+
+She must’ve been asleep, typical to her nightly routine as she usually readies herself for bed around 11:30-11:45. These late night hours really do give me the chills. The hall to my right contained her room, but I could hear the soft drumming of the washer downstairs. She really is pretty, you guys have to take my word for it. Without that concerned look as she sleeps, her beauty really shines, even in the dark. 
+
+I should really be heading home, but I do have to ask her, why did you run? 
