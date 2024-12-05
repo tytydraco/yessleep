@@ -96,6 +96,7 @@ She cleared her throat and diverted her gaze to the carrier.
 Her lips thinned as if she were contemplating something to say, but, after a second of deliberation, drew me into a quick hug that felt like a bear trap. She was always physically strong, but working on commercial lobster boats had given her muscles her teenage self could only dream of.
 
 “Thanks for showing up,” she said as she pulled back. “I couldn’t do this without you.”
+
 I eyed the house, my chest tight. “Yeah, sure. It’s just weird to be back here.” 
 
 “Don’t worry,” she said. “It’ll only take a week tops.” The reminder eased the anxiety, but only slightly.
