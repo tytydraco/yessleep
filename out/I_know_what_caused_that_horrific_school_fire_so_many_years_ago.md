@@ -52,9 +52,9 @@ The teacher said "Eyes ahead everyone".
 
 Those were the last normal words I heard.
 
-The fire alarms went off almost as the same tie I saw the flames and heard heard the crackles.
+The fire alarms went off almost as the same time I saw the flames and heard heard the crackles.
 
-And then the screaming began and and the heat slammed into me. 
+And then the screaming began and the heat slammed into me. 
 
 I had had no idea how thoroughly such a Creature, even a small one the size of pigeon, could burn things. 
 
