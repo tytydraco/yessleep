@@ -1,3 +1,5 @@
+# 
+
 The scars have faded with the passage of years and clever plastic surgery. With proper make-up and lighting, you can barely tell they’re there.  
 
 But in the full direct light of my bedroom, I can see them clearly in the mirror, spread across my face and body, bumpy and crimson and just plain weird.  
@@ -38,11 +40,21 @@ It nodded solemnly. 
 
 I ran home, and carefully laid the Creature on my bed, where I knew it would be undisturbed for the rest of the day. 
 
-I still blame myself for not specifying the time it should burn the school down. But then, how could I have predicted the exact moment that it would be ready to breathe flames and fly? I had left it that next morning looking still quite miserable and ill, with no apparent desire to leave. How could I have known that around 10am, it would take wing and soar out of my room? 
+I still blame myself for not specifying the time it should burn the school down. But then, how could I have predicted the exact moment that it would be ready to breathe flames and fly? I had left it that next morning looking still quite miserable and ill, with no apparent desire to leave my room. How could I have known that around 10am, it would take wing and soar out of my room? 
 
-The first I heard of it was the fire alarms going off during second period. 
+The first I heard of it was during the second period. Kaylee pointed out of the window and exclaimed "Fire bird! Dragon!"
 
-The I saw the flames, hearing the crackles before I even heard the screaming and the heat slammed into me. 
+I turned to look, and glimpsed the Creature swooping around the building, followed by a plume of silvery-grey smoke. I still had no idea what it was planning to do then.
+
+Poor Kaylee. She was a "special needs" kid. I still see her curious round blue eyes, wondering at the universe, chewing her hair, in my dreams- my nightmares.
+
+The teacher said "Eyes ahead everyone".
+
+Those were the last normal words I heard.
+
+The fire alarms went off almost as the same tie I saw the flames and heard heard the crackles.
+
+And then the screaming began and and the heat slammed into me. 
 
 I had had no idea how thoroughly such a Creature, even a small one the size of pigeon, could burn things. 
 
