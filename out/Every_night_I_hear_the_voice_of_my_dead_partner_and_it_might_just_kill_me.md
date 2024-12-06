@@ -158,8 +158,3 @@ I know it's not my Lily, but I don't think it matters anymore. The horrible thin
 
 If dying is the only path to her, then so be it, I will take it without a second thought.
 
-\_\_\_
-
-*Want to read more of my spooky stuff?*
-
-*You can find my M.A.D series* [here](https://www.reddit.com/r/nosleep/comments/1h5ubym/my_mad_subject_wanted_a_fresh_started_not_to_be/)*,* [here](https://www.reddit.com/r/nosleep/comments/1h3nkfr/my_mad_subject_took_her_sister_to_a_carnival_now/) *and more on my page!*

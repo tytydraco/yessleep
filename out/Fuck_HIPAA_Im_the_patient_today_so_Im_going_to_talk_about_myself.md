@@ -11,7 +11,7 @@
 
 When I was sixteen, I got so high that I thought I was growing scales.
 
-I was living on Gut Street. Actually it was Gunn Street, but one afternoon this drunk driver blasted through the intersection and hit a pedestrian. It basically broke the guy in half. His legs stayed behind, but his top half got stuck under the car and his guts just kind of ribboned out across the road. 
+I was living on Gut Street. Actually it was Gunn Street, but one afternoon this drunk driver blasted through the intersection and hit a pedestrian. It basically broke the guy in half. His legs stayed behind, but his top half got stuck under the car and his guts just kind of ribboned out across the road. 
 
 That’s why I called it Gut Street.
 
@@ -21,7 +21,7 @@ I was living with my parents for the first time since grade school. I moved down
 
 
 
-I was so homesick. I’d dream of home — the forests, the fog, the way everything was absolutely redolent of pine — and wake up crying. 
+I was so homesick. I’d dream of home — the forests, the fog, the way everything was absolutely redolent of pine — and wake up crying. 
 
 
 
@@ -65,7 +65,7 @@ They smoked, they drank, they played around with harder drugs. Amanda was a drop
 
 
 
-They all had matching tattoos that I coveted. These red, rune-looking circles on their palms. When I asked, Amanda said they were for fun. Asher said they were friendship bracelets for grownups. Jason just said they were a mistake. 
+They all had matching tattoos that I coveted. These red, rune-looking circles on their palms. When I asked, Amanda said they were for fun. Asher said they were friendship bracelets for grownups. Jason just said they were a mistake. 
 
 
 
@@ -133,7 +133,7 @@ We were in the courtyard the night before school let out. The three of were tryi
 
 
 
-“What is ‘it’?” I asked. 
+“What is ‘it’?” I asked. 
 
 
 
@@ -149,7 +149,7 @@ We were in the courtyard the night before school let out. The three of were tryi
 
 
 
-I hesitated. 
+I hesitated. 
 
 
 
@@ -173,7 +173,7 @@ Jason just shook his head and stomped off without a word.
 
 
 
-He was always doing shit like that. It was the kind of thing my parents did. It always made me feel like I was in trouble. I hate feeling like I’m in trouble more than I hate anything, then and now. 
+He was always doing shit like that. It was the kind of thing my parents did. It always made me feel like I was in trouble. I hate feeling like I’m in trouble more than I hate anything, then and now. 
 
 
 
@@ -237,7 +237,7 @@ One of the stupid, dangerous thoughts I had that night was this:
 
 
 
-*I can go down to culvert and check for myself.* 
+*I can go down to culvert and check for myself.* 
 
   
 
@@ -358,7 +358,7 @@ Asher immediately dragged me away. “Nope. Do *not* go in there. Don’t go in 
 
 
 
-We reached the end of the street, which was dominated by a massive ticket stand that partly shielded a breathtaking midway beyond. 
+We reached the end of the street, which was dominated by a massive ticket stand that partly shielded a breathtaking midway beyond. 
 
 
 
@@ -406,7 +406,7 @@ The ticket man looked me over, brows knitting suspiciously over those big, glitt
 
 
 
-“You’ve convinced me,” said the blue-eyed man, turning to me. “Give me your hand, darling.” 
+“You’ve convinced me,” said the blue-eyed man, turning to me. “Give me your hand, darling.” 
 
 
 
@@ -490,7 +490,7 @@ That, too, put me at ease.
 
 
 
-I stood awkwardly while Asher negotiated with the tattooist, an impossibly slender lady with the darkest eyes I’ve ever seen. 
+I stood awkwardly while Asher negotiated with the tattooist, an impossibly slender lady with the darkest eyes I’ve ever seen. 
 
 
 
@@ -558,7 +558,7 @@ We reached the culvert and crawled back home.
 
 
 
-It took a lot less time to get home, but that made sense. Whatever Jason had dosed me with was wearing off, so of course reality wasn’t so stretchy anymore. 
+It took a lot less time to get home, but that made sense. Whatever Jason had dosed me with was wearing off, so of course reality wasn’t so stretchy anymore. 
 
 
 
@@ -590,7 +590,7 @@ Questions bubbled up — *where is it, what is it, when did it start, why Amanda
 
 
 
-When I talk that like, people answer. Even when they don’t want to. I guess you know that, too. 
+When I talk that like, people answer. Even when they don’t want to. I guess you know that, too. 
 
 
 
@@ -746,7 +746,7 @@ Since I was sweaty and stressed and streaked with mud from crawling through the 
 
 
 
-I looked down. In the center of my chest — right where the ticket man touched me — was a tiny, hard patch of copper. 
+I looked down. In the center of my chest — right where the ticket man touched me — was a tiny, hard patch of copper. 
 
 
 
@@ -806,7 +806,7 @@ He did as I said, distinctly unimpressed. “I don’t see anything. Are you com
 
 
 
-I didn’t go. 
+I didn’t go. 
 
 
 
@@ -902,7 +902,7 @@ I did care about the scales, though. I hid them from everyone else, myself inclu
 
 
 
-The hardest part was Jason. I couldn’t hide the scales from him, so I just sort of hid from him. 
+The hardest part was Jason. I couldn’t hide the scales from him, so I just sort of hid from him. 
 
 But that didn’t last forever. How could it?
 
@@ -932,7 +932,7 @@ The confusing thing was, I knew that staying away was the right thing to do. But
 
 
 
-And that just meant I was doing the wrong thing anyway. 
+And that just meant I was doing the wrong thing anyway. 
 
 
 
@@ -952,7 +952,7 @@ He struck so fast I couldn’t react and tugged my shirt down past my shoulder, 
 
 
 
-“Where are they?” 
+“Where are they?” 
 
 
 
@@ -980,7 +980,7 @@ I yanked it back up. “They fell off. Actually, they were never there because p
 
 
 
-He was quiet for a while. 
+He was quiet for a while. 
 
 
 
@@ -988,7 +988,7 @@ Then —
 
 
 
-“I can barely see anymore. It started the first time I went to the carnival. I’m almost blind now. But I can do and feel everything else a thousand times better. By comparison, seeing crippled me. Without your scales, you’re crippled.” 
+“I can barely see anymore. It started the first time I went to the carnival. I’m almost blind now. But I can do and feel everything else a thousand times better. By comparison, seeing crippled me. Without your scales, you’re crippled.” 
 
 
 
@@ -1000,7 +1000,7 @@ Then —
 
 
 
-I felt humiliated. Scared, too. Scared that we were losing our minds. Scared that this was a bad trip that would never end. Scared that Asher would see in my face that I had pulled my own scales off. 
+I felt humiliated. Scared, too. Scared that we were losing our minds. Scared that this was a bad trip that would never end. Scared that Asher would see in my face that I had pulled my own scales off. 
 
 
 
@@ -1016,7 +1016,7 @@ Late that night, I went back to the courtyard. I just wanted to be alone. No Jas
 
 
 
-Except Asher was. 
+Except Asher was. 
 
 
 
@@ -1216,7 +1216,7 @@ When I stopped pulling them, Jason went off the deep end.
 
 
 
-There was one night where I couldn’t take it anymore. He was high as a kite, shivering and shuddering after taking God knew what. I wanted to call an ambulance. 
+There was one night where I couldn’t take it anymore. He was high as a kite, shivering and shuddering after taking God knew what. I wanted to call an ambulance. 
 
 
 
@@ -1268,7 +1268,7 @@ I took off my shirt and watched all my scales slide off.
 
 
 
-They never grew back. 
+They never grew back. 
 
 
 
@@ -1282,7 +1282,7 @@ I guess that means Nothing killed the dragon after all.
 
 
 
-“So, can you believe I ever passed a psych eval, let alone three?” 
+“So, can you believe I ever passed a psych eval, let alone three?” 
 
 
 
@@ -1322,7 +1322,7 @@ I admit, I screamed.
 
 
 
-“You act like you see me for the first time every time,” Christophe complained. 
+“You act like you see me for the first time every time,” Christophe complained. 
 
 
 
@@ -1378,7 +1378,7 @@ I thought I was going to cry from frustration. “Are you taking me back for ano
 
 
 
-“Many times. It is why I am so cooperative.” 
+“Many times. It is why I am so cooperative.” 
 
 
 
@@ -1438,11 +1438,11 @@ I pulled the voice recorder out of my pocket and held it out. “Here. It’ll b
 
 
 
-He did. 
+He did. 
 
 
 
-I started talking. 
+I started talking. 
 
 
 
@@ -1536,7 +1536,7 @@ He and Christophe exchanged another look I didn’t like. We got ready, and now 
 
 
 
-I wish I hadn't spent my last night on earth telling the big bad wolf about the carnival under Gut Street. 
+I wish I hadn't spent my last night on earth telling the big bad wolf about the carnival under Gut Street. 
 
 
 
@@ -1544,4 +1544,4 @@ I wish I hadn't spent my last night on earth telling the big bad wolf about the 
 
 
 
-\[Previous Interview\]([https://old.reddit.com/r/nosleep/comments/1h60x45/fuck\_hipaa\_my\_new\_patient\_is\_literally\_possessed/](https://old.reddit.com/r/nosleep/comments/1h60x45/fuck_hipaa_my_new_patient_is_literally_possessed/))
+[Previous Interview](https://old.reddit.com/r/nosleep/comments/1h60x45/fuck_hipaa_my_new_patient_is_literally_possessed/)

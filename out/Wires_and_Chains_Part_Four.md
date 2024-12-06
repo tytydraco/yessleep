@@ -464,4 +464,4 @@ Was it better to be nothing in the real world… than everything in a lie?
 
 I stood there for a moment, the cold stone beneath me grounding me in a reality I wasn’t sure was mine anymore. Naamah’s words lingered in my mind, her taunts echoing like a cruel refrain: This is the only life where you matter.
 
-To be Continued.
+Continued: [Wires and Chains Part Five](https://www.reddit.com/r/nosleep/s/rVGbJojyMS)

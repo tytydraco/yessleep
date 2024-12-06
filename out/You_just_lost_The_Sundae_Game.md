@@ -2,13 +2,13 @@ And for that, I am sorry.
 
 “I beg your pardon?” I asked after being told the same thing. “Is that some new version of *The Game*? Just, you know, on a Sunday?”
 
-There came no immediate answer from the gaunt, grey-haired stranger in Fenchurch Street railway station. He was hopping from one foot to the other, as if the platform were burning through his soles, and his eyes tore through me. Sand-coloured pupils that seemed to melt; slip down the whites. An impossibility explained, as far as I was concerned, by the late day’s golden hour bathing his face in gilded rays.
+There came no immediate answer from the gaunt, grey-haired stranger in Fenchurch Street railway station. He was hopping from one foot to the other, as if the platform were burning through his soles, and his eyes burrowed into me. Sand-coloured pupils that seemed to melt; slip down the whites. An impossibility explained, as far as I was concerned, by the late day’s golden hour bathing his face in gilded rays.
 
 The man certainly didn’t alarm me at first. In fact, I found him and his game quite amusing.
 
 “It’s Thursday,” he eventually corrected, light-brown eyes looking over my shoulder at the approaching train.
 
-*Well, fancy that; you just don’t strike me as the sort of man who knows the day of the week*, I inwardly replied, restraining a chortle.
+*In my defence, you don’t strike me as the sort of man who knows the day of the week*, I inwardly replied, restraining a chortle.
 
 “I’m also not talking about that kind of Sunday,” continued the stranger. “I’m talking about, you know, the ice cream.”
 
