@@ -182,3 +182,5 @@ Buster looked menacingly at his captors, baring his fangs at them, as they deter
 
 And then he did something beautiful, which dogs normally to do to rid themselves of anxiety. Harmless as it was at that moment, it brought a smile to my face for the first time over the wretched last couple of days.
 
+  
+[Part4](https://www.reddit.com/r/nosleep/comments/1h84e7a/i_work_at_a_secret_government_facility_and/)
