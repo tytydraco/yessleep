@@ -1,4 +1,4 @@
-In for a pound. That was Reg’s motto. You had to finish what you started. Otherwise, what was the point? He always tried to see things through and regretted it when he didn’t. He had gone to school to study law and halfway through the first year had realised it wasn’t for him. The sticking point was having to represent someone you knew was guilty. All the best lawyers could do it but he knew deep down he wouldn’t be able to. 
+In for a penny in for pound. That was Reg’s motto. You had to finish what you started. Otherwise, what was the point? He always tried to see things through and regretted it when he didn’t. He had gone to school to study law and halfway through the first year had realised it wasn’t for him. The sticking point was having to represent someone you knew was guilty. All the best lawyers could do it but he knew deep down he wouldn’t be able to. 
 
 Still he had stuck it out for the four years and got his degree. He had made friends he still had today and he had enough legal knowledge that when he was unfairly dismissed from the insurance firm he worked for, he was able to represent himself. He won the case and saved a bundle in legal fees.
 
