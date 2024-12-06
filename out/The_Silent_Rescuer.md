@@ -1,0 +1,137 @@
+Anais was brushing my hair while her parents kept arguing in the other room. In moments like those, for the poor five year old girl I was the only source for comfort, as I was her favorite doll. A sweet, blonde little girl. I felt bad for her seeing her suffering. She did not seem to realize that I was alive and conscious. Who knows, she might have felt comfort, probably not fear, if she knew I was alive. 
+
+
+
+She called me Luna. My name was Alice, at least this the name I was given when I was Human, a little girl with curly strawberry blonde hair, like hers. It has been almost a century since I became an immortal Doll, almost a century since I was motionless and most people thought I was just a very beautiful realistic doll, with beautiful hair and a beautiful dress. Of course, I was unnaturally beautiful, like dolls made back in the day were, beautiful like mortal Humans can not be, an idealized image of them, but lifeless. I have had the chance several times to look upon myself in the mirror and I could say, I was a true piece of art, something any educated upper class little girl of my time would have appreciated. At least I would have loved to have such a doll when I was Human.
+
+
+
+I was conscious then, although most of the time I existed in this world I was both unable to move and have been unconscious. I was asleep most of the time because I wanted to, in order to save my straight, because I knew too well that, in order to be conscious and to be able to move, I needed a lot of effort and to drink Human blood. And, since draining me too much and losing any emergency force I might need would, as it seems, force me to be  something pretty close to an inanimate doll, I had to avoid doing this at all cost. I never move during the day either, as it seems sunlight makes it impossible.
+
+
+
+Since I ended up in this home, in their apartment, I dared to move several times when they were sleeping. Anais' father fell asleep watching TV and I thought it would be a good occasion to feed, thinking that the house cat should be blamed. He had some extra drinks, at his birthday with pals, as I understood from the domestic fight earlier, that would make him less sensitive to being bitten. I bit his leg, he felt my sharp fangs in his flesh, as he moved, but I could not stop now, the warmth of his blood and lifeforce found inside it took over me. He mumbled some swear words, and I heard the name of the cat among those.
+
+
+
+You see, I was in a Romanian apartment block, in Bucharest, the capital city of Romania, but I was born in Edinburgh, almost a century ago. I came to Romania at age seven, with my father, who was a diplomat. Since arriving I lived with him only a few months before I was taken, I had little chance to master Romanian. I have a limited understanding of the language, though. 
+
+
+
+A sudden twitch towards me gave me enough strength to let go and hide before the lounge. He rose, touching his wound and went towards the bedroom. I crawled into the floor, hoping I would not be noticed and got into Anais's room. Anais moved in her sleep as she heard my footsteps. She actually seemed to wake up, so I let myself fall to the floor, like I accidentally fell from the shelf I stood on most of the time. The girl stood up, aroused by my movements and the swear words of her father from the other room. I played ”dead” on the floor.
+
+
+
+She slowly went towards me and, with a sad and playful tone said to me: ”What are you doing there, Luna?” She took me up and tried to put me back on the shelf. I licked my lips fast for blood, she did not seem to have noticed. Anais was unable to place me there, so she decided to put me to bed with her. Being an expensive artifact, she was discouraged in doing this.
+
+
+
+At this moment I was still aroused by the blood and felt a strong need for more. As Anais kept me in her arms, I had to fight really hard not to bite her neck. Poor little soul, she had no idea she held a predator who felt the urge to take her life. I clenched my fists, in order to stop me from doing it. I knew I would have been a disaster, as I would have been discovered and taken care of swiftly, and also Anais did not deserve this.
+
+
+
+I contemplated the idea of turning her into the same thing I was. Then I thought I would not have been able to teach her many of the ways. If we were together, we would have needed to hunt pretty much. I was not very good at this even if I learned some things from the one whose blood was used to turn me into what I was. 
+
+
+
+She was not the one who turned me, but a man who knew my father, who abducted me and used her blood for this. He wanted for me to just be a doll, most of the time, or at least not moving. But she had a different attitude. From time to time she talked to me, made me move, took me for walks in the city, at night. At first, it was only her who hunted, but she gave me blood from the victim, she did not keep it all for herself. She tried to teach me how to hunt, not just force but being cunning as well. But, as I was kept to be a doll most of the time, I was not able to get too skilled. Me and Anais would have had a very bad time surviving on our own.
+
+
+
+But at least my mom, as I called this woman I was talking about, talked to me in the house, when I was awake, she taught me how to read and write. She woke me up when she read books and read aloud so that I could hear myself as well what was reading. After a while, she even gave me books to read myself. She took a risk, as she was not allowed to do this.
+
+
+
+I had a terrible night, before being able to settle down. I kept thinking of the immense straight I would have gained by draining Anais completely or of turning her into the same thing I was. I did not know if I would be able to do it but, since she was so small, I had a shot. No, it would have been worse than killing her. I was a monster, for sure. Perhaps it would have been better to have been killed altogether. I even planned ending my own existence, somehow, as Anais slept peacefully.
+
+
+
+She felt uneasy in my presence, at first, when her mother brought me in. I used to be part of a private collection before this and, before that, an exhibit in a museum. I have not much chance to rejoice of this ”glory”, since I slept most of the time. Before that, I was a Christmas present for another little girl. I do not remember much, how long it took. It seems Christmas is close in here as well, I had no idea what year it was, what floor of the building this is. The TV was pretty big, the adults had shiny devices, I had no idea what they were or how they worked. Anais enjoyed them from time to time and I peeked into them a bit as well. If I knew a bit more, I would have dared and used them myself, but I had no idea how.
+
+
+
+They felt uneasy in my presence, at least at first. Their Human nature had an instinctual reaction for creatures like me. The cat hissed at me, even charged several times. Fortunately, while I was alone in the house with him, I showed him what I was capable of and he kept a distance ever since. They all got used to me, and I was conscious even more than before, I do not know why. Perhaps being closer to actual Human habitation and being in touch with them caused this?
+
+
+
+They seemed at ease with me now, but not at ease in general. As a matter of fact, even myself  started not to be at ease, like something was insinuating itself in there, as Anais brought me down from the shelf, lying to her parents in order to have me in bed with her. They scolded her several times, fearing that I shall break, being made of porcelain. I was not made of porcelain, but of flesh and blood, but they did not know that. At least they settled down when they noticed I seemed unharmed by those falls. 
+
+
+
+Anais held in her arms and, as she was asleep, I tried to hold her in mine as well. She was warm, the warmth of a living Human I lacked and missed so much having. On the other hand, I felt powerless to just stop *being a doll* in front of them and speak to them. The magic that was upon me was strong.
+
+
+
+Yet, when I felt that presence the night before, staring from behind the door glass at us, I grabbed the hand of Anais and held her tight so *easily*. It was a strange fear, something I have not felt ever since I was Human. I remember it felt like a presence, a presence I never saw, in Scotland, before I came to Romania. Anais seemed to have felt it too.
+
+
+
+That morning, I heard a conversation between Anais and her father. She seemed to have been scolded for having me in bed with her. She said something like she felt *BauBau* was close to and that she was very afraid. Her father said they had many problems already, financial or otherwise, that needed to be fixed, such as repairing the pipes of the radiator from the other room and  stop acting like that. Anais was disturbed to say the least and I wish I could do something to help her, but I could not, it was during the day and it was already pretty unusual to be awake at this time. In the end, her father said it will be hard, rough for her, but she needs to accept the hardship ahead, because it is for her own good and that it would be better after the hardship came. Anais clearly felt that that hardship is something to be very afraid of.
+
+
+
+In Romanian, *BauBau* is the name for the *Bogeyman*. Indeed, what I sensed the night before, felt very much like the fear I had back in Scotland, in dark nights, when I was alone in my bed and I trembled and sobbed that the Bogeyman shall come for me. After all I have been through for this whole century, I never forgot that feeling. And I have felt it again the night before and during that day, something was clearly coming when night shall come. Anais felt the same, I could tell, I wished I could just move and speak now. You see, I am a creature of the night, of the dark, I do not feel well in the daytime but this time, I was afraid of the night to come.
+
+
+
+I was not able to sleep at all that day. The adults kept on arguing that day, as the autumn cold creeped in, due to the broken radiator. They scolded Anais for petty things, she came to me, trying to comfort herself. She played with me, brushed my hair (I usually did not like this too much, since my hair is very curly and she often pulled it too much, tangling it and made my scalp hurt.), took care of my dress and shoes. Fortunately, she never fully undressed me, as that would have revealed something surprising.
+
+
+
+Anais's grandparents come to visit, at sunset. Something really weird was happening. As night fell, I became able to move. Anais was brought before the parents and grandparents in the other room. They kept telling her to obey and accept what shall come, that is for her own good, they raised their voice on her in a way I never heard before. They start to behave *unnaturally*, hard to describe how. But their attitude seemed clearly off. 
+
+
+
+At some point, the doorbell rang and Anais's mother said: ”Well, he is here now, to take care of the radiator then to take care of us. Behave yourself and get ready!” The apartment door opened, Anais ran to me and closed the door behind her. She looked visibly scared and turned towards me. I looked into her eyes, I do not know if she realized this, as I could sense  *something* was present in the other room, something I was not sure what was it, but anyway I surely did want to face it. The parents and the grandparents were, mostly, silent, as it was clear that someone was working at the radiator, to fix it. Was this just the plumber? No way.
+
+
+
+It was a matter of minutes since the maintenance shall be over and the door will open. Anais started to sob, as she felt it too. I started thinking about a way to escape. The only way out was through the window. I did not know what floor I was at, but a pretty large tree was in front of the window, the only chance was to jump and grab a branch and then, somehow, find a way down. I need to act fast now.
+
+
+
+I went down from the shelf. Anais turned at me, looking scared, she stared at me, as she was probably shocked to see me alive. I looked at her, she wanted to scream, She looked horrified in my *living* eyes, that were not the eyes of an inmate doll. Then, I managed to do something I have not done for a long, long time, something I did not know if I was still able to: I *spoke*. ”Anais…” I took a long breath and continued: ”Anais, we need to get out of here.” 
+
+
+
+I said it firmly, yet it all felt close to impossible to achieve it. Anais looked at me, looked at the door and back and forth. Her lower lip trembled, I started to walk toward her, as she was only a few steps ahead. As I look behind, I think her mind just blocked. Perhaps if I had revealed myself earlier… I do not know what could have been, but my mind keeps remembering those moments…
+
+
+
+The door opened. I did expect for it to happen so fast. An intoxicating light came forth. I looked in the room, it was the room I knew too well, but like from another world, a different world, with different dimensions, deeper dimensions. It was illuminated with a weird light, perhaps a lemony, perhaps a milky, or a combination of both, a light that neither natural, nor man made, in a way, it was more distant from natural light than made made light. 
+
+
+
+The parents and the grandparents of Anais came forward. They seemed taller, holding their heads a bit up, with eyes pretty wide open, but not very wide, that became grayish. They looked at us, but looked beyond us. Their mouths were a little open. Anais's mother had her hair pulled in the air, like being electrocuted or something. She spoke in a way that sounded, physically, like her voice I knew but also, I do not know how, like something from another world, a world that has just revealed to us by the door opening, speaking calmly, monotone and much colder than any tombstone:
+
+
+
+”My dear Anais, I am sorry for bringing this unwanted nuisance into our home. Although, most of the time, it just sat on the shelf in your room, you were in real danger from this presence and it is my fault. I am sorry. As I told you, our rescuer is here. He shall solve this problem and all our problems. You need to submit to him and let him take care of you. We know you told you to be scared of him, but now I tell you that, no matter how hard it will be for you, it is for your own good and for our own good. So, go ahead and get to our rescuer, *BauBau*.”
+
+
+
+Upon hearing this name, the hair on my head stood up, stiffly, for the first time in my whole existence. both the Human and un-Human parts I felt that, if I was still Human, my heart would have started to beat faster and cold sweat would have overcome me. Of course, those could not happen, and that made things so much worse. The room felt like a tunnel standing to get deeper. Then, we saw him, the source of all the new reality I was experiencing. 
+
+
+
+At first glimpse, it was an old man, a little bald, with mostly black hair yet, laid back, kind of greasy. He wore thick framed, large, glasses. His beard was clearly shaved, yet the stubs of the beard hairs made the face covered with lots of microholes, where the hair follicles were. He wore work rompers, typical to a plumber, with blue braces. It was pretty clear that this working man just finished fixing the radiator. Yet, he had *no mouth*. He looked at us silently, like coming, in an empty way to *rescue us*, our silent rescuer, our silent saviour. I looked into his eyes, like abyssal gauges that absorbed my mind into them.
+
+
+
+Something in me tried to fight this, but the pulling got stronger, as not only the eyes pulled me, but also the hair follicles holes in his face also did that as well, as we were pulled in the deepness of something, getting further and closer at the same time. I opened my mouth, Anais opened her mouth to scream and appeared she could not, but then a wall shaking scream came out of her mouth, allowing me to be able to scream, for the first time in my un-Human life, without realizing too clearly at the moment what was happening. I remembered trying to pull the dress of Anais towards me, in a desperate move, but I was not able to achieve anything, as BauBau came to us, to have us.
+
+
+
+I do not know, but I gave up on Anais and, especially, the gaze of BauBau of his eyes and of his beard hair follicles. I think I felt powerless in saving Anais, as he laid his hands on her, so I decided to just save myself, running towards the table next to the window. I managed to get myself to the table, as the parents of Anais took her and threw her towards the BauBau. Her screams got stronger, as I managed to jump upon the table to the window and open it. Anais gave one last scream that reached the marrow of my bones, as I got ready to jump into the rainy night, and she let her head back and something breached the whole thing, something that gave the strength to jump into the tree branch.
+
+
+
+I missed the nearest branch and I felt a little, only getting next to the lower floor of the building, until I unconsciously grabbed a lower branch with my hands, making me swindle in the wind. The unnatural light was behind and upwards and the polluted city air made me move away from what it was in that apartment. I realized I needed to get down as fast as I could, if I wanted to live, as I was several floors high from the ground.  I managed to use my hand to move close to the tree trunk and settle there for a few seconds. I breathed heavily (me, who breathed so little and softly, that it is almost invisible), as I looked at the apartment and saw that unnatural light expanding from the window frame, like looking for me. I tried to climb down, but I tripped, as the wood was wet. I managed to grab another branch, a lower one.
+
+
+
+As the light seemed to move slowly to the ground or, perhaps, even stopped altogether, I had a decision to make. It was clear that I could not get down the tree easily, fast enough,  since it was wet. So, I decided to use what I just learned and *let myself go in a controlled fashion*. So, I let myself go, hoping to be able to catch another branch before touching down. And my plan worked, although not as easily as I planned, as the fall went down swiftly and managed to grab a lower branch, as my heart went up to my neck.
+
+
+
+The light was more distant now and repeated this move, this time with greater success, until I got a branch not very far from the ground. I decided just to let go and hope for the best at touchdown. It hurt much more than I thought it would but, after a few seconds, I managed to move sideways, on the ground, towards the tree trunk. The branches scratched my velvet dress and dead, wet leaves stuck upon it, even felt scratched by the brushwood on the ground and the dirty raindrops reached my pale, porcelain-like skin, but little did I care. The unnatural light was far up by now and, as I settled with my back on the tree trunk, I remembered Anais, started sobbing and then, perhaps even crying. I do not know if I cried and just all went black soon, as I became my ”doll self” on the wet ground.
