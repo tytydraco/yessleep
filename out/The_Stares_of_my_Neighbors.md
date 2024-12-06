@@ -74,7 +74,7 @@ I quickly and quietly made my way down the rickety wooden stairs to my basement.
 
 I must have left the lights on when I went down there earlier. Eerily enough, I couldn't remember when or why I came back up without the spare kitchen chair. It was the whole reason I went down there in the first place. I knew I had company coming over later tonight and I wanted to be prepared. 
 
-I got about ten steps from the bottom when I stopped, holding my breath as nerve tingling sounds reached my ears.. 
+I got about ten steps from the bottom when I stopped, holding my breath as nerve tingling sounds reached my ears.
 
 It sounded like someone was down there. A man was whispering to himself, occasionally releasing a low and menacing laugh. He was talking to himself, and I could hear what sounded like a blade slicing into fresh meat. He would slice then laugh, slice then cry out...
 

@@ -126,6 +126,8 @@ Not to be too dramatic, but my life probably depends on it.
 
 \*\*\*\*
 
+[Followup Interview](https://www.reddit.com/r/nosleep/comments/1h807aw/fuck_hipaa_my_new_patient_is_my_adoptive_father/)
+
 [First Patient](https://www.reddit.com/r/nosleep/comments/1gtjhlb/fuck_hipaa_if_i_dont_talk_about_this_patient_im/)
 
 [Second Patient] (https://www.reddit.com/r/nosleep/comments/1gujy5s/fuck_hipaa_i_messed_up_hardcore_and_if_we_dont/)
