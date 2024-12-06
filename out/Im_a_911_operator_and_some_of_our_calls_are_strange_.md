@@ -1,4 +1,4 @@
-[previously](https://www.reddit.com/r/nosleep/s/TWOz8vtIor)
+[previously](https://www.reddit.com/r/nosleep/s/TWOz8vtIor) [part one](https://www.reddit.com/r/nosleep/s/KM4OoJexKV)
 
 Hey everyone, sorry about the cliff hanger. There’s been a few… interesting developments. 
 
