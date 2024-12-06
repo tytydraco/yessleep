@@ -95,3 +95,5 @@ Dr. Miranda spoke, interrupting my thoughts. “After we pulled you out of the M
 "No. I live alone."
 
 "Well, your boss, Barry, got in touch with us after he tried calling you frantically just before your MRI incident. He and your colleagues were quite worried about you. They said they haven't seen or heard from you for three days."
+
+[Part 2 - Metal Sphere](https://www.reddit.com/r/nosleep/comments/1h8dedw/metal_sphere/)

@@ -1,0 +1,14 @@
+There is a place on the coast where the sky and the sea become one. Where, in the ephemeral embrace of night, the dark takes form. This place has no name, only dwellers who have lived and lingered there for centuries, drifting through seasons without record. Long ago, on the outskirts of a quiet village in this place, a child once stepped nervously through the creaking front door of a centuries-old house. It was late afternoon, and the low sun stretched long shadows across the yellowing and peeling wallpaper. The child’s parents were busy unpacking boxes downstairs, so she explored all on her own, careful not to make a sound as she tiptoed deeper into the dusty halls.
+
+Near the back of the old home, the child discovered a narrow staircase spiraling up to an attic room. Each step seemed to whisper of distant lives, fragments of feeling that had seeped into the wood. At the top, she found a door with a tarnished brass knob. She turned it gently and stepped inside, heart fluttering with emotions unspoken.
+
+There, in a corner illuminated by a single ray of golden sunlight, drifted a ghost. He was a faded figure, dressed in old-fashioned clothes with a wistful expression. The attic’s silence was broken by his soft voice—surprisingly kind. He told the child his name had long been forgotten, that he had once been a caretaker who cherished this house and its family. Time, however, had passed him by, leaving him bound to the quiet rooms. Now he lingered, unsure how to leave.
+
+The child sensed no harm. She offered something rare and simple and golden like the sun. She offered friendship. Together, they spoke quietly, trading stories and questions, as if old acquaintances reunited after many years. The ghost showed her faint footprints pressed into dust where children had danced long ago, and told her of mornings filled with laughter and music that had ended too soon. She listened, enraptured, wondering at the layers of life the old house contained.
+
+By the time the child’s parents called for her, dusk had settled. She bid the ghost goodnight, promising to return. In the hall, as she descended the staircase, she realized the old house was no mere structure of creaking beams and faded paint. It was alive with memory, its ghost not a frightful specter but a vigilant sentinel who had waited an age for a kindly companion.
+
+Outside, a late-summer breeze stirred. Through the attic window, a gentle light flickered before fading into the night. The world beyond the house was hushed, the village settling under a sky strewn with stars. The child, now in her new bedroom below, prepared for sleep. She lay quietly, her mind full of questions: Would the ghost find peace? Could the old house ever be truly at rest?
+
+In the deep silence, darkness gathered, and the child drifted into uneasy dreams. The shadows stretched and converged, and the dark consumed her, drawing her into a silence peaceful, deep, and eternal. She was never to be again.
+
