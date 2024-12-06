@@ -396,5 +396,6 @@ When it comes to Iolo saying he'd ‘try,’ I don't think that has any merit wh
 
 If I find anything more about anything I’ve brought up in this post, I’ll let yinz know. I’ll also be sure to tell you all about how Deirdre’s final keening session [goes](https://www.reddit.com/r/atypicalpests/s/IhB33kiCdf). 
 
+Update: [Nothing went as planned, and I got kidnapped again. ](https://www.reddit.com/r/nosleep/s/1OXu2uuxm5)
 
 
