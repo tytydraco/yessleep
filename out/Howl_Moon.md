@@ -16,9 +16,13 @@ It rebounded from the side of her mouth and plummeted to the pavement, landing i
 
 He stepped out of the shadows, moving toward her with purpose. Bright lights glared down from the street lamps, revealing a pale boy who was also seventeen like her. His dark brown eyes held a glint of mystery, and a crop of dark hair hung down seductively, partially covering the right eye. The photos only captured half of his allure. He flashed a brilliant smile that would easily make the top ten list of the most gorgeous smiles on record. She felt sure that she was in danger of falling head over heels.  Her pulse quickened, but she steadied herself with deep, measured breaths.
 
-"Hey, I'm glad you could make it." Klause nodded and walked toward the picnic table. "Let's sit."
+"Hey, I'm glad you could make it." Klause nodded and walked toward the picnic table.
 
-There was something disarming about his easy manner and honest voice, but underneath it all—like a shadow glimpsed from the corner of your eye—there was something different about the way he moved. It was as if his body was operating on a frequency slightly different from the rest of the world. Sonya felt the warning prickle at the base of her skull. Still, she pushed the feeling away, telling herself she was just being paranoid. He was, after all, gorgeous enough to make anyone nervous.
+"Hi, yeah, me too," she added nervously and sat down facing him.
+
+There was something disarming about his easy manner and charm. Still, underneath it all—like a shadow glimpsed from the corner of your eye— there was something different in his movements—as if he existed on a wavelength just slightly out of sync with reality.
+
+ Sonya felt the warning prickle at the base of her skull. Still, she pushed the feeling away, telling herself she was just being paranoid. He was, after all, gorgeous enough to make anyone nervous.
 
 "So, listen. I have to tell you something." He slid onto the seat beside her, his right arm casually draping across the table behind her back – close, but not quite touching. His cologne wrapped around her like an invisible mist, dark and dangerous and absolutely perfect. She could feel her heart stuttering in her chest as she breathed in the intoxicating scent, letting it fill her lungs until she felt dizzy. Without warning, her leg started its telltale bounce – that frustrating nervous tic that always betrayed her emotions at the worst possible moments. Heat rushed to her cheeks as she pressed her palm against her thigh, willing the trembling to stop. Now, trapped in this electrically charged moment, she waited breathlessly for whatever he would say next.
 
@@ -36,11 +40,9 @@ She slid to the ground, trembling with fear and awe. The wooziness took hold, st
 
 "This was too easy, you know." He laughed. His image came in and out of focus, and she let her eyes fall to the two black boots spaced shoulder-width apart, a foot from her head.
 
-"I must say, I'm a little disappointed." He crouched down beside her and clasped his hands. Her lack of response to his drastic change in countenance dampened his earlier enthusiasm.
+"I must say, I'm a little disappointed." He crouched down next to her and clasped his hands. "I mean, you're not even trying to run." Her lack of response to his drastic change in demeanor diminished his enthusiasm for the game of cat and mouse.
 
-"Is something wrong?" Klause scolded. He looked down at the slender body, huddled into the fetal position. He realized this wasn't going
-
-to be much fun at all when the prey wasn't able to remain conscious long enough to enjoy the slow, painful death he had planned for her.
+"Is something wrong?" Clause eyed her like a predator coldly surveying it's prey. She was unmoving, yet seemed to be trembling beneath her black hoodie. It wasn't that cold tonight. He looked down at the attractive girl, huddled into the fetal position and realized this wasn't going to be much fun at all when the prey wasn't able to remain conscious long enough to enjoy the fun, painful death he had planned for her.
 
 "Alright, have it your way."
 
