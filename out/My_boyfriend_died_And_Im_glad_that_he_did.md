@@ -38,4 +38,4 @@ I am sitting here, writing to you after moving to another city, at least an hour
 
 
 
-{support a 15yo writer any feedback appreciated :)}
+
