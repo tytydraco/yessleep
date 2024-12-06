@@ -31,3 +31,11 @@ After chilling silence, this thing, grinning as wide as it can, whispers “welc
 Something snaps in me as I lunge towards the knife in lighting speed, swiftly grabbing it and something takes over me as I start stabbing blindly into the man which I used to love. The whole time, Peter is giggling manically as the knife enters his body. Finally, he stops and the chilling silence takes over. I realise what I have just done. 
 
 I am sitting here, writing to you after moving to another city, at least an hour drive from where these events took place. I am glad my boyfriend died, but I am not so sure that his sister did, otherwise who would be pounding on my door screaming my name?
+
+
+
+
+
+
+
+{support a 15yo writer any feedback appreciated :)}
