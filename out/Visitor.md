@@ -1,12 +1,12 @@
 It's 2:38 A.M.
 
-Of all Night’s children, she cradles this hour closest to her.
+Of all Night’s children, she cradles this hour closest to her breast.
 
 It’s an hour of phantoms.
 
 This is the third night in a row I’ve woken up around this time with an audible “Hello?” escaping my lips.
 
-I’m on the top floor of an old machine shop my family owns, in a dingy apartment, sleeping on a futon with one of those shitty 2” thick cushions you make your friends sleep on when they’re too drunk to go anywhere else.
+I’m on the top floor of an old machine shop my family owns, in a dingy apartment, sleeping on a futon with one of those shitty 2” thick cushions you send your friends to when they’re too drunk to go anywhere else.
 
 Not that I have any friends these days.
 
@@ -24,7 +24,7 @@ I thought it was just a hypnagogic hallucination at first, but tonight the wood 
 
 I swear it.
 
-Who could be down there just waiting for me in the dark? Are they laughing at me inside of that sick head of theirs?
+Who could be down there just waiting for me in the dark? Are they laughing at me inside of that sick head of theirs?
 
 Maybe I’m the one who is sick. They’ve had enough of me withdrawing from everyone and everything, and they’ve decided to mock me down there where the light won’t reach.
 
@@ -48,14 +48,14 @@ God, why?! Just let me die in peace. Not in terror. I’m so afraid of everythin
 
 Everyone in my life. Please, just let me die in peace.
 
-… just now there were three soft taps on the handrail. I called out “Hello?” again — and nothing.
+… just now there were three soft taps on the handrail. I called out “Hello?” again — and nothing.
 
-I’m going to turn the light on on my phone and cast its beam down to the landing, and if I make it back alright, I’ll get back to you.
+I don’t have a choice. I’ll click on the lamp on my phone and cast its beam down to the landing. If I make it back all right, I’ll get back to you.
 
 It was me down there. Staring up into my eyes.
 
 Naked.
 
-I screamed, and the other me said nothing. He - I just smiled and then walked down the stairs and closed the door for good. 
+I screamed, and the other me said nothing. He — I just smiled and then walked back down the stairs and closed the door. I hope for good.
 
 Goodbye, me. Stay out of my dreams if you can help it.
