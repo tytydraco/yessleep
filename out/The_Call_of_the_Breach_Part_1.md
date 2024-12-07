@@ -1,3 +1,5 @@
+[\[Part 2\]](https://www.reddit.com/user/RandomAppalachian468/comments/1h8n1ve/the_call_of_the_breach_part_2/)
+
 *“Contact right!”*
 
 I jolted awake at the blaring of my headset’s speakers, and the hoarse cry of a gunner echoed through them like bells of doom. Dust gritted between my teeth, and the vertebra in my neck let out a stubborn *pop* as I swiveled my head to stare out the passenger’s side window of the semi-truck.
