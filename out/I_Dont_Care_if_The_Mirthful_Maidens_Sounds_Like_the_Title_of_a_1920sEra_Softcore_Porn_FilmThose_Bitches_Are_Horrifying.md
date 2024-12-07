@@ -338,7 +338,7 @@ Eventually, I started photographing them with my iPhone, pretending to be textin
 
  
 
-Naturally, I spoke no more of the Mirthful Maidens to Gina…until I arrived home from grocery shopping one Saturday and found eight of them in our living room.
+Naturally, I spoke no more of the Mirthful Maidens to Gina…until I arrived home from grocery shopping one Saturday and found six of them in our living room.
 
  
 
@@ -422,5 +422,4 @@ My daughters are shedding their baby fat now and acquiring the curves people cov
 
  
 
-Sometimes, when I’m dining with my three ladies, in my peripheral vision, one of their mouths seems to widen more than it ought to. Sometimes, when I crack a dumb dad joke, the three of them start laughing and laughing and it seems that they’ll never stop. And don’t get me started on all the black clothes they’ve been buying.   
-  
+Sometimes, when I’m dining with my three ladies, in my peripheral vision, one of their mouths seems to widen more than it ought to. Sometimes, when I crack a dumb dad joke, the three of them start laughing and laughing and it seems that they’ll never stop. And don’t get me started on all the black clothes they’ve been buying. 
