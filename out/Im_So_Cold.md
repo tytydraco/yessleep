@@ -1,6 +1,6 @@
 I'm a USFS officer. The following story is transcribed from a notebook I found whilst out on a hike. What you're about to read may cause discomfort. My boss told me to dispose of this note so we don't have any copycat offenders trying to find what the victim found. So please, don't be dumb. Stay out of the forest if you're not prepared. Mother nature is a loving mother, but even mothers can't protect their children 100% of the time…..
 
-If you're reading this, it's found me. My fire is dying and I'm out of matches. Please tell my wife (redacted) I love her. 
+If you're reading this, it's found me. My fire is dying and I'm out of matches.
 
 This all started innocently enough. I just wanted to go on a hunting trip in honor of my father. He died when I was a young man. Growing up, he would take me hunting and fishing all the time. In his memory, I'd decided to go on a hunting/camping trip. Little did I know that I was the one being hunted. 
 

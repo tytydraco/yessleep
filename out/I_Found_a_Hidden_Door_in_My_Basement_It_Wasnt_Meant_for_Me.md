@@ -22,5 +22,3 @@ It wasn’t a stranger’s voice. It was mine.
 That was a week ago. The door won’t close anymore. Every time I go into the basement, it’s slightly ajar, and the tunnel seems darker, deeper. Last night, I heard footsteps—heavy, deliberate. Something is coming out of the tunnel, and it knows my name.
 
 If you’re reading this, don’t try to help me. Don’t come looking for this house. I think the door was never meant for me—I think it was meant for you.
-
-Let me know if you’d like any adjustments or enhancements before posting!
