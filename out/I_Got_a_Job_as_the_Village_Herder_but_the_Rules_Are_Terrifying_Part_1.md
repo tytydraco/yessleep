@@ -362,3 +362,4 @@ And before I knew it, my legs carried me toward it. I was there, standing at the
 
  I stepped inside.
 
+[Part 2](https://www.reddit.com/r/nosleep/s/1NkJzVcVlo)
