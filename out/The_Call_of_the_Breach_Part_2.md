@@ -1,5 +1,7 @@
 [\[Part 1\]](https://www.reddit.com/user/RandomAppalachian468/comments/1h7vlj0/the_call_of_the_breach_part_1/)
 
+[\[Part 3\]](https://www.reddit.com/user/RandomAppalachian468/comments/1h9dint/the_call_of_the_breach_part_3/)
+
 The Auto Stalker rolled over its side with a shrill rending of metal, and I shut my eyes, both arms around the unconscious Lucille.
 
 *Splat.*
