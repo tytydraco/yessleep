@@ -118,7 +118,7 @@ All in that place was a dream — from my unthinking head to my light toes; for 
 
 *Terror.*
 
-Warmth filled my mouth; a black warmth violating my senses, having circumvented my defences. And when I opened my eyes, I screamed — a scream muffled by her mouth. I looked into eyes no longer brown, but *black*. A ravenous black that swallowed the irises, then the entirety of the eyes.
+Warmth filled my mouth; a black warmth violating my senses, having circumvented my defences. And when I opened my eyes, I screamed — a scream muffled by her mouth. I looked into eyes no longer blue, but *black*. A ravenous black that swallowed the irises, then the entirety of the eyes.
 
 Her muscular fingers dug deeply into my upper arms, preventing my escape, and then she began to step backwards; began to reverse into the hole, taking me with her.
 
