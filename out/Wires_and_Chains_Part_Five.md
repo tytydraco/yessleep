@@ -212,4 +212,4 @@ She appeared.
 
 Mama Webster descended from the cliffs like a nightmare made flesh, her massive body blotting out the sky. Her legs, long and segmented, moved with horrifying speed, their tips tapping against the stone with a rhythmic precision. Her fur glistened like wet tar, and her countless eyes gleamed with a predatory hunger that sent a chill down my spine.
 
-To be Continued.
+Continued: [Wires and Chains Part Six](https://www.reddit.com/r/nosleep/s/mcCexmyXTz)
