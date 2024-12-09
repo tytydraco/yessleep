@@ -10,7 +10,7 @@ I almost laughed when I read that. I had such an active imagination as a kid. Bu
 
 I remember this now. I remember how proud I felt that "Santa" had chosen our house. How special I thought I was. The memory sat like a sour lump in my throat as I read on.
 
-I\*\*\*'ve been bringing him cookies and milk like you're supposed to do. He eats them super fast and sometimes he asks for other stuff too. I gave him my sandwich yesterday and he ate it in two bites! But now mom is mad because food keeps disappearing from the kitchen. I told her it was for Santa but she just sent me to my room.\*\*\*
+***I've been bringing him cookies and milk like you're supposed to do. He eats them super fast and sometimes he asks for other stuff too. I gave him my sandwich yesterday and he ate it in two bites! But now mom is mad because food keeps disappearing from the kitchen. I told her it was for Santa but she just sent me to my room.***
 
 ***Dad got really angry today because someone took mom's wallet. I wanted to tell them it was probably Santa getting money to buy presents but I promised I wouldn't tell. Santa said if I tell anyone about him being here, something really bad will happen. He doesn't say ho ho ho like in the movies. His voice is all quiet and scratchy instead, like the sound of leaves crunching under your feet.***
 
