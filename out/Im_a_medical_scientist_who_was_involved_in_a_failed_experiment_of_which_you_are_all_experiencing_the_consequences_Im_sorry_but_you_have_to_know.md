@@ -10,7 +10,7 @@ Consequently, the lead scientist of the Japanese group, Dr. Ochimori, partnered 
 
 My mentor, Dr. Khan, was chosen to co-lead the testing, and Dr. Khan chose me to help him.
 
-In total, there were six people involved in the human trial: Dr. Ochimori, Dr. Khan, me, two Japanese scientists chosen by Dr. Ohimori, and the test subject, whom I knew only as Kenji.
+In total, there were six people involved in the human trial: Dr. Ochimori, Dr. Khan, me, two Japanese scientists chosen by Dr. Ochimori, and the test subject, whom I knew only as Kenji.
 
 Of these six people, I am the only survivor, although, as you will come to understand, the term “survivor” is itself problematic, and in a sense there no longer exist *any* survivors of the trial—not even you.
 
@@ -18,7 +18,7 @@ I do want to make clear here that there was no issue with consent. Kenji agreed 
 
 My first impressions of Kenji were that he was a polite and humble middle-aged man whose dental problems had caused significant problems in his life, including the breakdown of his marriage and his inability to progress professionally. He was, therefore, a relatively sad individual. However, he exhibited high intelligence and was easy to work with because he understood biology, anatomy and the foundations of what we were attempting. Hence, he was, in some sense, both the subject of the experiment and an unofficial part of the team conducting it, effectively testing upon himself. While I admit that this is unusual, and in most cases improper, no once voiced any concerns until such concerns were no longer relevant.
 
-The trial began with a small, single dose of the protein-suppressing drug injected once per day. The effects were disappointing. While the drug did somewhat inhibit the creation of the requisite protein, this did not lead to any tooth growth, and it did not replicate the results Dr. Ochomori had achieved with mice, in which even minor protein suppression had led to minor tooth growth.
+The trial began with a small, single dose of the protein-suppressing drug injected once per day. The effects were disappointing. While the drug did somewhat inhibit the creation of the requisite protein, this did not lead to any tooth growth, and it did not replicate the results Dr. Ochimori had achieved with mice, in which even minor protein suppression had led to minor tooth growth.
 
 Dr. Ochimori and Dr. Khan therefore decided to increase the dosage, and—when that did not create the desired result—also the frequency. It was when Kenji started receiving four relatively high-dose drug injections per day that something finally happened.
 
@@ -36,11 +36,11 @@ When we held a vote, all three Japanese members of the team voted to continue th
 
 Within three days of the implementation of the more intensive drug injection schedule, all of Kenji’s missing teeth had grown in. This was, from a purely medical standpoint, utterly remarkable, but it rendered the trial a success only if you discounted Kenji’s pain.
 
-It was not feasible, Dr. Khan argued, to report such results because one could not market a drug that caused unexplainable suffering. Dr. Ochomiro disagreed, arguing that the cause of the suffering, which he deemed a side effect, need not be understood for the results to be worthwhile. He pointed out that many drugs have side effects we know about without understanding the exact biochemical mechanisms behind them. As long as the existence of the pain is not hidden, he argued, the results are beneficial and anyone who agrees to further testing, or potentially to the resulting treatment itself, does so fully informed and of his own free will. Dr. Khan cited ethics concerns. Dr. Ochomori accused him of medical paternalism.
+It was not feasible, Dr. Khan argued, to report such results because one could not market a drug that caused unexplainable suffering. Dr. Ochimori disagreed, arguing that the cause of the suffering, which he deemed a side effect, need not be understood for the results to be worthwhile. He pointed out that many drugs have side effects we know about without understanding the exact biochemical mechanisms behind them. As long as the existence of the pain is not hidden, he argued, the results are beneficial and anyone who agrees to further testing, or potentially to the resulting treatment itself, does so fully informed and of his own free will. Dr. Khan cited ethics concerns. Dr. Ochimori accused him of medical paternalism.
 
 It was in the hours during which these oft-heated discussions took place that we missed a troubling development.
 
-While it was true that in three days Kenji’s missing teeth had all been regenerated and were functionally indistinguishable from his old teeth, this indistinguishability was temporary. For, while regular adult teeth grow to a certain size and stop, *the regenerated teeth had not stopped growing!*
+While it was true that in three days Kenji’s missing teeth had all been regenerated and were functionally indistinguishable from his old teeth, this indistinguishability was temporary. For, while regular adult teeth grow to a certain size and stop, *the regenerated teeth had not stopped growing.*
 
 They were the same size as Kenji’s old teeth only for a brief period.
 
@@ -68,7 +68,7 @@ We stepped out.
 
 I am not ashamed to admit that in the wordless silence, I reached for Dr. Khan’s hand and he took it, and hand-in-hand we proceeded down the hall. My own instinct was to flee, but I knew that Dr. Khan’s was the same as it had always been, to help his patient, and he led me away from the facility doors, towards the room in which Kenji had been tested on.
 
-We came, first, upon the body of one of the two Japanese researchers.
+We came, first, upon the body of one of the two Japanese scientists.
 
 Dead—pierced, and torn apart—his hand still held, now grotesquely, a handgun. His eyes had been pushed into their sockets and a bloodied document folder placed upon his chest. Dr. Khan picked it up, thumbed through it and passed it to me. Inside was the identity’s true identity. He was not a Japanese scientist but a member of the Naichō, the Japanese intelligence agency. I put the folder back on his chest, and we continued forward.
 
@@ -96,7 +96,9 @@ A few minutes later, I found myself having entered a dark conference room, in th
 
 He died with a cold, rational grimace on his face that left his small, yellowed teeth exposed, dripping with pinkish blood. *And here,* I think now, *was the last true human.*
 
-Determined to follow the path of death to its very end, I stepped through a broken down wall into some kind of office in which Kenji-the-sphere had come to rest. A few parts of Dr. Khan were still stuck to the exterior of his dental shell, but the shell itself was now completed: solid. I could no longer see between the individual teeth to the darkness that was Kenji inside. Speaking seemed foolish, so I said nothing. I simply watched, listening to the groaning and grinding sounds that filled the room, as Kenji’s teeth, having melded together into one surface, continued to grow, to push one against each other in the absence of empty space—and then to crack: audibly first, then visibly: the first fracture appearing at the top of the sphere, before following a jagged line downwards, until the rift was completed and the shell fragments fell away, revealing a single *already expanding* unity that I could not—even in the brief moment when its entirety was before me—before it expanded forever beyond the pathetic, human scope of my visual comprehension—fail to comprehend. From a thousand textbooks! Through a thousand microscopes! I knew it. *It was life.* A cell. *A solitary cell.*
+Determined to follow the path of death to its very end, I stepped through a broken down wall into some kind of office in which Kenji-the-sphere had come to rest. A few parts of Dr. Khan were still stuck to the exterior of his dental shell, but the shell itself was now completed: solid. I could no longer see between the individual teeth to the darkness that was Kenji inside.
+
+Speaking seemed foolish, so I said nothing. I simply watched, listening to the groaning and grinding sounds that filled the room, as Kenji’s teeth, having melded together into one surface, continued to grow, to push one against each other in the absence of empty space—and then to crack: audibly first, then visibly: the first fracture appearing at the top of the sphere, before following a jagged line downwards, until the rift was completed and the shell fragments fell away, revealing a single *already expanding* unity that I could not—even in the brief moment when its entirety was before me—before it expanded forever beyond the pathetic, human scope of my visual comprehension—fail to comprehend. From a thousand textbooks! Through a thousand microscopes! I knew it. *It was life.* A cell. *A solitary cell.*
 
 Growing fantastically.
 
@@ -106,4 +108,4 @@ In the blink of an eye it had absorbed the room and me and the facility and you 
 
 We used to ask: what is the universe? We must now ask: of what is the cell which contains the universe? In a way, nothing has changed. Your life goes on as usual. You probably didn’t even feel it. Or, if you did, your mind imagined some prosaic explanation. Perhaps it doesn’t even matter: living vs. living within a cell. But I believe that a part of us knows we are irretrievably separated from the past. Those who died before and those who die after share different fates.
 
-Looking at the fragments of Kenji’s emptied shell, I felt awe and sadness and nostalgia. We used to look at the stars and feel terror, wondering if there was any meaning to our existence. How comforting such a non-meaningful existence now seems. Once, I was afraid that I did not have a purpose in life. I tried to find it in my relationships, my self, my work. Now, I feel revulsion at the thought that I am trapped in a biological machine whose workings I do not understand and whose purpose we cannot [escape.](https://www.reddit.com/r/normancrane)
+Looking at the fragments of Kenji’s emptied shell, I felt awe and sadness and nostalgia. We used to look at the stars and feel terror, wondering if there was any meaning to our existence. How comforting such non-meaningful existence now seems. Once, I was afraid that I did not have a purpose in life. I tried to find it in my relationships, my self, my work. Now, I feel revulsion at the thought that I am trapped in a biological machine whose workings I do not understand and whose purpose we cannot [escape.](https://www.reddit.com/r/normancrane)
