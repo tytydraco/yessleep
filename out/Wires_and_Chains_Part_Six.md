@@ -254,4 +254,4 @@ With a groan, they gave way, swinging open just enough for me to slip through.
 
 I stumbled inside, the heavy doors slamming shut behind me with a deafening thud.
 
-To be continued.
+Continued: [Wires and Chains Part Seven—Final](https://www.reddit.com/r/nosleep/s/qRWc6NqLqR)

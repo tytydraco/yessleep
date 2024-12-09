@@ -2,6 +2,8 @@
 
 [Previous:](https://www.reddit.com/r/nosleep/comments/1h3loc4/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next:](https://www.reddit.com/r/nosleep/comments/1h91346/im_a_contract_worker_for_a_secret_corporation/)
+
 Even though I should still stay off my feet, I went with August to a convention. Lucas had recently gotten into trading cards, and we couldn’t pass up taking him to an event where he could look at expensive ones. I didn’t know anything about this sort of thing, so Lucas was our guide for the day. We went on a Sunday to avoid the larger crowds and to take advantage of any sales.  
 
 We did a round of the convention hall looking at all the tables. Lucas held my hand on one side and held onto August on the other. Good thing Lucas had short legs so I could keep up with him. After the first tour August asked if I could babysit for a while so he could start buying gifts.   

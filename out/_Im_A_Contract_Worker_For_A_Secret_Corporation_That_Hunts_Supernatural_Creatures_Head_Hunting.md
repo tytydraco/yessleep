@@ -2,6 +2,8 @@
 
 [Previous ](https://www.reddit.com/r/nosleep/comments/1h58wfw/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next:](https://www.reddit.com/r/nosleep/comments/1h9ru3w/im_a_contract_worker_for_a_secret_corporation/)
+
 I should have been resting for a little while longer, but I’d gotten so bored I couldn't deal with being stuck at home for one more day. I hadn’t gotten any emails for jobs which I assumed was because of Klaus. What he didn’t know was that I had enough connections to land a job. Since I started working again, I had added a few new contacts to my phone. Seeing the new names gave me an odd feeling.  
 
 Cameron heard I started working with Agents more often a while ago. She requested I put a good word in for her. Soon, we started exchanging cat memes. I think she enjoyed being able to talk with someone who didn’t care that she was a succubus.   

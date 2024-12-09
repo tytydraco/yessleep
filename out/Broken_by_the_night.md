@@ -186,8 +186,6 @@ No, in that I was treated by countless compassionate doctors who did the best th
 
 Most importantly, No, in that there’s not a neurobiologist on earth who understands the human brain. We haven’t reached anything beyond presumption. So how can any doctor be faulted for not finding my silver bullet?
 
-On the other hand…
-
 Did the system fail? Yes.
 
 Yes, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck Pharmaceuticals, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
@@ -206,17 +204,17 @@ I was remembering the people and places I love.
 
 The story’s told. How to move on…
  
-Growing up, my older brother was the daredevil. He led me down our hilly driveway on my first skateboard. He took me climbing 20-story cranes at night. How could I survive so many adventures, but not his 50th? We haven’t spoken since. It’s not his fault. No one knew.
+Growing up, my older brother was the daredevil. He led me down our hilly driveway on my first skateboard. In high school he took me climbing 20-story cranes at night. How could I survive so many adventures, but not his 50th. We haven’t spoken since. It’s not his fault. No one knew.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
 The last thing left to face is my heart.
 
-My whole life I found solace in water and rock. The two pieces of land I love most, my cottage and future home, are wrapped by waves and stone walls. I learned this world from a hermit I used to watch from a distance, Crazy Ned.
+I’ve always found solace in water and rock. The two pieces of land I love most, my cottage and future home, are both wrapped by waves and stone walls. I learned this world from a hermit I used to watch, Crazy Ned.
 
 As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of rocks by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 
-Legend had it Crazy Ned was stuck in an endless loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood, now seems almost a Biblical omen… this Sisyphus cursed by a pill to push stones against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
+Legend had it Crazy Ned was stuck in his endless loop from a bad drug trip that broke him, like the [frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood, now seems almost a Biblical omen… this Sisyphus cursed by a pill to push stones against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
 
 But I never saw the sign.
 
@@ -228,26 +226,28 @@ I was [the luckiest](https://youtu.be/ISMnfcnX6Ng?feature=shared). Those who saw
 
 I spent third grade in India. Each day at school my eyes caught in shy glances a little blond girl. She was two years above me, but I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
 
-But just as our story was starting, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called her from a pay phone to tell her what happened. No one was home. I never got to say goodbye. 
+But just as our story was starting, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called her from a pay phone to tell her what happened. No one was home.
 
-Her face in the 1990 Embassy School yearbook followed me for years. Her piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew it everywhere. Her smile haunted me long into my teens and beyond. I never gave up the ghost.
+One face in the 1990 American Embassy School yearbook followed me for years. Her piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew it everywhere. Her smile haunted me long into my teens and beyond. I never got to say goodbye. And I never gave up the ghost.
 
-Then, out of nowhere, last year, on a flight from London, she came back. All grown up, majestic, demure, golden. Bright like a diamond. A star made for me. Her last words, before the sleepless nights took her away again, this time for good… “I love you unconditionally.”
+Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, golden. Bright like a diamond. A star made for me. Her last words, before the sleepless nights took her away again, this time for good… “I love you unconditionally.”
 
-On another earth, one where I didn’t take the orange pill, we’re still together in drømland. Our [liebesträum](https://youtu.be/FZ651tNXp0Y).
+On another earth, one where I didn’t take the orange pill, we’re still in drømland, the two of us. Our [liebesträum](https://youtu.be/FZ651tNXp0Y).
 
 But here, in this parallel universe, the upside-down — all is gone. Even the ghost.
 
-Coming up on the anniversary of the first night that started the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sleeping, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening strike — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” Now I know.
+Coming up on the anniversary of the first night that started so many sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening strike — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” Now I know.
 
 Sleep is like true love. It finds you when you’re not looking. It fills you with dreams. Its melody is a nocturne. And when you lose it, you lose everything.
 
-There is one difference. Everyone knows sleep. Few ever know true love. I couldn’t know it then, but I lost both, the same night. 
+There is one difference. All know sleep. Few ever know true love. I couldn’t know it then, but I lost both, the same night. 
 
-One tiny cap I barely remember taking, broke my sleep, my world, and my heart — in that order. Lovestruck, became lovesick, but never lovelorn. Because I did it to myself. That is the hardest pill to swallow.
+One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesick, but never lovelorn. Because I did it to myself. That’s the hardest pill to swallow.
 
-This December, every carol echoes a bittersweet reminder of the final weeks of shining eyes one year ago, before my story began. I miss those days like you can’t imagine. Last year’s songs are the shooting stars of a light-filled universe set ablaze, then vanquished and gone. I’ll never get those starbursts back, the shining eyes — or why they slipped away.
+This December, every carol echoes a bittersweet memento of the final weeks of shining eyes one year ago, before my story began. I miss those days like you can’t imagine. Last year’s songs are the shooting stars of a light-filled universe, set ablaze, then vanquished and gone. I’ll never get those starbursts back, the shining eyes, or why they slipped away.
 
-Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Spotless Mind](https://youtu.be/yE-f1alkq9I). Meet me in Montauk.
+Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Spotless Mind](https://youtu.be/yE-f1alkq9I). 
 
-For now, red wine and sleeping pills help me get back to your arms. [Maybe. I will see you in the next life.](https://youtu.be/EcSvMFm2ABE?feature=shared)
+Meet me in Montauk, little elsklingen min.
+
+Until then, red wine and sleeping pills help me get back to your arms. [Maybe. I will see you in the next life.](https://youtu.be/EcSvMFm2ABE?feature=shared)

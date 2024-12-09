@@ -1,8 +1,8 @@
-
-
 [First:](https://www.reddit.com/r/nosleep/comments/1fz6zph/im_never_doing_door_to_door_sales_again/?utm_source=reddit&utm_medium=usertext&utm_name=nosleep&utm_content=t3_1gwn7zt)
 
 [Previous: ](https://www.reddit.com/r/nosleep/comments/1h1h8bv/im_a_contract_worker_for_a_secret_corporation/)
+
+[Next](https://www.reddit.com/r/nosleep/comments/1h58wfw/im_a_contract_worker_for_a_secret_corporation/)
 
 I’d recently made a large payment on my medical debt. For the first time, it seemed as if I could pay it off within the next few years. But now my bank account was hurting. When August asked us to work together, I didn’t ask too many questions. I needed all the jobs I could get.  
 
