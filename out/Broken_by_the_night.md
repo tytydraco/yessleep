@@ -204,13 +204,13 @@ I was remembering the people and places I love.
 
 The story’s told. How to move on…
  
-Growing up, my older brother was the daredevil. He led me down our hilly driveway on my first skateboard. In high school he took me climbing 20-story cranes at night. How could I survive so many adventures, but not his 50th. We haven’t spoken since. It’s not his fault. No one knew.
+Growing up, my older brother was the daredevil. On my first skateboard he led me down our hilly driveway. In high school he took me climbing 20-story cranes at night. How could I survive so many adventures, but not his 50th. We haven’t spoken since. It’s not his fault. No one knew.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
 The last thing left to face is my heart.
 
-I’ve always found solace in water and rock. The two pieces of land I love most, my cottage and future home, are both wrapped by waves and stone walls. I learned this world from a hermit I used to watch, Crazy Ned.
+I’ve always found solace in water and rock. The two pieces of land I love most — my cottage and future home — are both wrapped by waves and stone walls. I learned this world from a hermit I used to watch, Crazy Ned.
 
 As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of rocks by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 
@@ -228,7 +228,7 @@ I spent third grade in India. Each day at school my eyes caught in shy glances a
 
 But just as our story was starting, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called her from a pay phone to tell her what happened. No one was home.
 
-One face in the 1990 American Embassy School yearbook followed me for years. Her piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew it everywhere. Her smile haunted me long into my teens and beyond. I never got to say goodbye. And I never gave up the ghost.
+One face in the silver 1990 embassy school yearbook followed me for years. Her piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew it everywhere. Her smile haunted me long into my teens and beyond. I never got to say goodbye. And I never gave up the ghost.
 
 Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, golden. Bright like a diamond. A star made for me. Her last words, before the sleepless nights took her away again, this time for good… “I love you unconditionally.”
 
@@ -248,6 +248,6 @@ This December, every carol echoes a bittersweet memento of the final weeks of sh
 
 Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Spotless Mind](https://youtu.be/yE-f1alkq9I). 
 
-Meet me in Montauk, little elsklingen min.
+Meet me in Montauk... elsklingen.
 
 Until then, red wine and sleeping pills help me get back to your arms. [Maybe. I will see you in the next life.](https://youtu.be/EcSvMFm2ABE?feature=shared)
