@@ -1,17 +1,26 @@
-The day began like any other. I had taken the day off to relax in nature. The forest near my small hometown always had something soothing about it. But on this day, things were about to change.  
-  
-I wandered through the dense trees, following an old path I had known since my childhood. However, suddenly, I spotted something that caught my attention. At the edge of the forest stood a tower, reaching so high into the sky that it seemed to pierce the treetops. I couldn't believe I had never seen this tower before. My curiosity was piqued, and without much thought, I made my way toward the tower. The closer I got, the stranger it appeared. It seemed to be made of an unknown material, with eerie decorations adorning the masonry. There was no discernible entrance, and the tower looked as though it had stood there for centuries.  
-  
-My heart raced with excitement and fear as I circled the tower, searching for a possible entrance. Eventually, I found a narrow door barely a meter high, set into the wall. I hesitated for a moment before opening the door and squeezing inside the tower. Darkness enveloped me, and I turned on the flashlight on my smartphone to find my way. The walls of the tower seemed to breathe, and there was a pungent, rotting smell lingering in the air. The air was stifling, and I felt a suffocating tightness around me.  
-  
-I ascended a narrow spiral staircase inside the tower. With each step, the air grew thicker, and the darkness more intense. I felt as though I was entering a foreign and dangerous world from which there was no turning back. When I finally reached the top of the tower, I was greeted by a scene that overwhelmed my senses. The room was infused with a mysterious energy. In the center of the room was an altar with an ancient book resting upon it. The pages of the book seemed to glow, and I could make out strange characters on them.  
-  
-Something inside me compelled me to pick up the book and flip through its pages. The words were written in a language I didn't understand, but they resonated in my mind as if they were trying to convey a message. The drawings on the pages seemed to come to life, as if they were awakening. Unwillingly, these strange words began to escape from my mouth, the meaning of which I did not comprehend.  
-  
-In that moment, overwhelming fear filled me. I sensed that I should never have entered here, that something dark and ancient lay dormant in this tower and was slowly stirring. But before I could flee, I heard a deep, rumbling growl, followed by a blinding flash.  
-  
-The lightning struck the tower, and the world around me exploded. The ground shook, and the tower crumbled into pieces. I fell to the ground, surrounded by rubble and dust. As I picked myself up, I saw that I was not alone. Another man lay beside me, his face covered in dirt and dust. He too got to his feet and stared at me with wild eyes. Without a word, he jumped to his feet and ran away as if the devil himself were chasing him.  
-  
-I wanted to chase after him, but my legs failed me. The ground still trembled, and the tower that had just reached into the sky was now a pile of ruins. The earth trembled one final time, and I was thrown to the ground. When I came to, I was in my bed, and my alarm clock was ringing at its usual time of 8 o'clock.  
-  
-I don't know who that man was, where he went, or where that tower came from, but I hope never to have anything to do with them again. The ruins of the tower have also vanished by now, and I really want to believe that it was all just a dream, but the scratches and broken bones from the fall are unfortunately still there.
+Like many people nowadays, I’ve been having trouble sleeping. I’m not sure why, I can’t remember when it started, I just can’t sleep. I lay there staring at my ceiling and let my mind go blank again, and again, and again, but nothing happens. I just can’t do it.
+
+
+
+I talked to some friends about it and they suggested those melatonin gummies so I tried those for the first time and there were some….side effects. Instructions read “*Take 2 Gummies 30 minutes before bed.*” So that's what I did, I took 2 gummies 30 minutes before I went to bed, I read a bit of a book, scrolled on my phone and then began my ritual. I laid there staring at my ceiling and that's when things started to change. 
+
+
+
+My room went a reddish tint and everything sounded like I was under water, the pressure in my head was skull crushing, I tried to scream or call out for help my voice carried no weight, it literally made no sound. I looked around and started to watch the objects of my room fade away from recognition, everything changing around me becoming fluid, not like water but black and a dark deep red. I heard these deep husky whispers, there were like monks chanting or clearing their throats. I sat up in my bed and swung my legs over the side to stand up but there was no carpet to meet my feet, I fell. 
+
+
+
+As I fell, it got darker and darker, everything was still illuminated by this deep red tint but still things became hard to see, I couldn't even distinguish my hand in front of my face from the deep pit swallowing me. As I fell there was a sound, these loud successive bangs. “*Gonk, Gonk, Gonk,”* They were wet in a way, like a thick syrup struggling to stretch its way through an iv. Were they bangs? Thuds? Drums? A heartbeat? I knew all of these sounds but one felt more comfortable than the rest to associate this too, they were footsteps.
+
+
+
+When I landed the group was coarse and rough, it felt like glass or maybe little stingers piercing my skin as i laid there on my back. It was cold, so cold I could see my breath escape my mouth and rise. That's when I saw the shadow, this dark looming shadow that glowed a blood red in the distance. I felt like it was watching me, like it was aware of my presence and somehow made me aware that I was not welcome here. It was so tall, hundreds of feet high. It had the design style of a watch tower, black and red bricks exalted the structure into the sky. I sat there staring up at it, there thuds grew louder and deeper. I felt a wave of panic crash into me and I started to cry, I wasn’t sure why or what about but I just cried and cried all the while staring at the tower. And then I woke up.
+
+
+
+While the rest of this “dream” sounds insane and any person in their right mind would be freaked out by that ordeal that wasn’t the worst part, no the worst part was waking up and realizing that I was no longer in my bed. No longer in my room. No not even in my fucking house. I was in a park somewhere, houses lined the far left side and the right was occupied by a school. The worst part of this whole thing was that when I woke up I was on my knees which had been scraped and bloodied and I was facing towards two giant towers. It was hard to tell exactly what they looked like because it was dark out still, roughly 4:30 in the morning but they were unmistakable, they loomed in the shadows staring down at me like in the dream. 
+
+
+
+I’m scared to try and sleep again, I don’t want to go back to that place or see that tower ever again. If anyone knows what this was or where or literally anything please help me. Needless to say, I won’t be taking melatonin gummies ever again.
+
