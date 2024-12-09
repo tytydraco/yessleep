@@ -246,4 +246,4 @@ This December, every carol echoes a bittersweet reminder of the final weeks of s
 
 Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Spotless Mind](https://youtu.be/yE-f1alkq9I). Meet me in Montauk.
 
-For now, red wine and sleeping pills help me get back to your arms. [Maybe — I will see you in the next life.](https://youtu.be/EcSvMFm2ABE?feature=shared)
+For now, red wine and sleeping pills help me get back to your arms. [Maybe. I will see you. In the next life.](https://youtu.be/EcSvMFm2ABE?feature=shared)
