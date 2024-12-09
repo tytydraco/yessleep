@@ -1,6 +1,6 @@
 I (33M) live in Texas with my daughter, Alicia (8F) and my son Jay (4M). Their mom has been out of the picture for the past two years (not dead, just a piece of shit) and I've managed pretty well as a single father. The three of us lived in a two bedroom in a nice neighborhood, I've got a solid job, and the kids are thankfully healthy. 
 
-Everything was smooth sailing until one night, two months ago, in which I was awoken by Jay poking me in the face. He was sobbing violently, though I recognized it as the "I'm afraid" kind of crying as opposed to the "I'm hurt" kind of crying, which made me a little less worried. Jay's always been nightmare-prone, so I assumed that's what was causing him distress. When I asked him what was wrong though, he said:
+Everything was smooth sailing until one night, two months ago, during which I was awoken by Jay poking me in the face. He was sobbing violently, though I recognized it as the "I'm afraid" kind of crying as opposed to the "I'm hurt" kind of crying, which made me a little less worried. Jay's always been nightmare-prone, so I assumed that's what was causing him distress. When I asked him what was wrong though, he said:
 
 "The man in the next house is making scary faces at me."
 

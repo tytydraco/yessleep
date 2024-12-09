@@ -54,7 +54,7 @@ The newest “designer” meds, like the DORAs, had to be specially ordered by t
 
 Against these sleepless nights, I tried to wear down my brain by spending every day in the gym and running miles outside. My goal became to tire myself to sleep, and I was like a warrior fighting this battle. I inadvertently got into the best shape of my life. People’s passing compliments couldn’t imagine the dark source of my transformation. Still, nothing changed at night.
 
-Piece by piece, I removed as many potential stressors around me as I could think of in the hope that putting one on the back burner might help. So, fighting a tug of war with my heart that exhaustion eventually won, I pushed all intensity and passion from my personal life into the background — shutting out love in a way that’s haunted me since.
+Piece by piece, I removed as many potential stressors around me as I could think of in the hope that putting one on the back burner might help. So, fighting a tug of war with my heart that exhaustion eventually won, I pushed all intensity and passion from my personal life into the background — shutting out true love in a way that’s haunted me since.
 
 At work, I’d been doing what I could to keep on top of running a company, masking my increasingly drained appearance and depleted mental state — reminiscent of [Edward Norton’s workplace struggle with insomnia](https://youtu.be/8pDY_9u5Sn0?feature=shared) in Fight Club. Anyone who saw me in those days will know that the giveaway of this scene being fiction is Norton’s eyes aren’t nearly sunken enough, as mine had become.
 
@@ -82,9 +82,9 @@ June gave way to July and the 6-month anniversary of my insomnia was fast approa
 
 Doctors had also run out of medications to try, the last being the narcoleptic anesthetic Xyrem (aka GHB, the infamous date-rape drug from [Diddy’s parties](https://www.nbcphiladelphia.com/entertainment/entertainment-news/sean-diddy-combs-baby-oil-was-allegedly-laced-with-date-rape-drug/4002710/?amp=1)) — a Schedule I narcotic prescribed off-label by Dr. Earley as an extreme final resort. As the most controlled substance in America (only one central pharmacy is authorized to dispense it), Xyrem was taking forever to get approved, required passing through safety hoops, and cost $25,000 per month. Receiving it was weeks or more away with no indication it would work where others failed.
 
-Sleep deprivation is a form of torture considered among the worst. Losing just one hour of sleep makes Division I basketball players miss twice as many shots the next day. One of the most sublime pieces of music ever written, Bach’s Goldberg Variations, was composed to help the insomnia of Ludwig II. He was Bavaria’s “Mad King” for a reason — sleeplessness makes you crazy.
+Sleep deprivation is a form of torture considered among the worst. Losing a single hour of sleep makes Division I basketball players miss twice as many shots the next day. Perhaps the most sublime music ever written, Bach’s Goldberg Variations, was commissioned to treat the insomnia of Ludwig II. He was Bavaria’s “Mad King” for a reason — sleeplessness drives you crazy.
 
-We’ve all experienced at some point the relentless feeling after a single sleepless night. In as little as three days, sleep deprivation breaks prisoners of war into giving up classified secrets. So by the time my insomnia hit the 6-month mark in July, the once unfathomable thought of cutting my life short slowly started to creep into my mind as a last resort for rest. Insomnia had literally become my death bed. 
+We’ve all experienced at some point the relentless feeling after one sleepless night. In as little as three days, sleep deprivation breaks prisoners of war into giving up classified secrets. So by the time my insomnia hit the 6-month mark in July, the once unfathomable thought of cutting my life short slowly started to creep into my mind as a last resort for rest. Insomnia had literally become my death bed. 
 
 Compounding this was a chemical Catch-22. It’s paradoxical, but the most effective drugs doctors use for life-saving sleep come with “black box” warnings in their fine print about triggering severe depression and suicidality. So my hopelessness about not sleeping was being pharmacologically amped up by the same meds I’d been prescribed in the hope of sleep. I was trapped in a “damned if you do,” “damned if you don’t” loop with no way out between crippling depression from not sleeping, or crippling depression from sleeping pills.
 
@@ -108,17 +108,17 @@ Against every probable outcome, I partially failed, or partially succeeded — d
 
 On the other hand, what I did forever changed the life I had and wanted, the people around me, and all that follows. I’m here, but not in a way that feels like me — no matter how far I search for a cure this time around. I wouldn’t wish it on anyone.
 
-How did I survive? It’s a morose second act.
+My tale of survival is a morose second act.
 
-Since my original intent was to share an advisory, not explore psychological torture, I hadn’t planned to delve into the next chapter of my saga since July. But because it’s part of the ripple effect from that January night, and although it includes shameful details, I’ve found comfort in honesty as I’ve navigated so much uncharted territory. 
+Since the original intent was to share an advisory, not explore psychological torture, I hadn’t planned to delve into the next chapter of my saga since July. But because it’s part of the ripple effect from that January night, and although it includes shameful details, I’ve found comfort in honesty as I’ve navigated so much uncharted territory. 
 
-So here’s the rest of my tale….
+So here’s the rest of the story….
 
-At the end of my third week in The Retreat outside of Baltimore, in early July, with the best doctors in the world no closer to helping me than any had been at the start of my journey six months before, I gave up.
+At the end of my third week in The Retreat outside of Baltimore, in early July, with the best medics in the world no closer to helping me than any had been at the start of my journey six months before, I gave up.
 
-Despite sharing with doctors a growing belief that my end was drawing near, and petrified family members calling to warn of the despair in my voice and what they feared was coming — naively, the nurses had loaned me a 14-foot charger cable.
+Despite sharing a growing belief with doctors that my end was drawing near, and petrified family members calling to warn of the despair in my voice and what they feared was coming — naively, the nurses had loaned me a 14-foot charger cable.
 
-Outside, in some woods nearby, out of view, I fastened the cable to a sturdy branch on an overturned log above a stream, doubled it twice around my neck, and slid my body off the edge. I’ve always been drawn to water, and dying in suspension above a trickling creek felt like the most peaceful place on campus I could think of to silently say goodbye. I passed out almost instantly as the noose caught and cinched tight. 
+Outside, in some woods nearby, out of view, I fastened the cable to a sturdy branch on an overturned log above a stream, doubled it twice around my neck, and slid my body off the edge. I’ve always been drawn to water, and dying in suspension above a trickling creek felt like the most peaceful place on campus to silently say goodbye. I passed out almost instantly as the noose caught and cinched tight. 
 
 Sometime later — no one knows how long — one of the cords snapped, then the other, and I fell. Two sudden bursts of orange flooded my head in flashes of the most intense pain I’ve ever known as consciousness returned. My eyes popped open and I jolted back to life, like a scene from a movie. But the right side of my body was numb, I had twitching fingers, double vision, pulsating pupils, uncontrollable shivering, and other weird thermodynamic effects from starving my brain of oxygen long enough to shut it down. This was all later diagnosed as an anoxic brain injury to my left hemisphere.
 
@@ -128,7 +128,7 @@ Then, in a twist of dark humor from the universe (that even made Dr. Earley laug
 
 In spite of my self-induced asphyxiation, I was being kept in the hospital’s stroke unit — rather than on its protected psych floor. It may have been my well-groomed appearance or polished manner that deceived doctors into not seeing the risk, ignoring the fact of what had just brought me in. And so that’s how, shortly before I was scheduled to be transferred to a trauma unit next door, on the afternoon of July 9, still in an anoxic delirium, I broke free from the sitter assigned to watch me when distracted, and bolted to the 6th-floor exit down the hall. Without pause, I dove head-first down the stairwell center — figuring a six-story drop would end the suffering once and for all.
 
-But security chased and reached as I went over the ledge — catching one foot for a split second, just long enough before I slipped through their hands — that I flipped as I free-fell down the stairwell center. In mid-air somersaults I bounced off railings, which zig-zagged my trajectory, so that I ended up hitting headfirst on a landing 3 floors below, instead of free-falling 6 stories. 
+But security chased and reached as I went over the ledge — catching one foot for a split second, just long enough before my sock slipped through their hands — that I flipped as I free-fell down the stairwell center. In mid-air somersaults I bounced off railings, which zig-zagged my trajectory, so that I ended up hitting headfirst on a landing 3 floors below, instead of free-falling 6 stories. 
 
 Shrieks from above sounded the alarm as doctors from every floor rushed to the stairwell. Peering down in disbelief, through my motionless, glazed eyes — against all odds — I had a pulse, still. 
 
@@ -198,25 +198,25 @@ Yes, in that nurses at high-end facility loaned me a 14-foot cable, knowing I wa
 
 Yes, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
 
-This story’s worth telling if for no other reason than the questions that intersect across medicine, policy, pharma, drugs, health, and brain science.
+My story’s worth telling if for no other reason than the questions that intersect in it across medicine, policy, pharma, drugs, health, and brain science.
 
-But none of these questions matter to me now. I wasn’t thinking about any of them as I sat on the log, rolling back the reel of time.
+But none of those questions matter to me now. I wasn’t thinking about any of them as I sat on the log, rolling back the reel of time.
 
 I was remembering the people and places I love.
 
-My story’s told. How to move on…
+The story’s told. How to move on…
  
-Growing up, my older brother was the daredevil. He’d lead me down our hilly driveway on a skateboard. He’d take me climbing 20-story cranes at night. How could I survive so many adventures, but not his 50th… We haven’t spoken since. It’s not his fault. No one knew.
+Growing up, my older brother was the daredevil. He led me down our hilly driveway on my first skateboard. He took me climbing 20-story cranes at night. How could I survive so many adventures, but not his 50th? We haven’t spoken since. It’s not his fault. No one knew.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
 The last thing left to face is my heart.
 
-My whole life I’ve found solace in water and rock. The two places I love most on earth, my cottage and future home, are wrapped by waves and stone walls. I learned this world from a hermit I used to watch at a distance.
+My whole life I found solace in water and rock. The two pieces of land I love most, my cottage and future home, are wrapped by waves and stone walls. I learned this world from a hermit I used to watch from a distance, Crazy Ned.
 
 As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of rocks by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 
-Legend had it Crazy Ned, as he was known, was stuck in an endless loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood, now seems almost a Biblical omen… this Sisyphus cursed by a pill to push stones against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
+Legend had it Crazy Ned was stuck in an endless loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood, now seems almost a Biblical omen… this Sisyphus cursed by a pill to push stones against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
 
 But I never saw the sign.
 
