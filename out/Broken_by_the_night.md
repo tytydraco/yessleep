@@ -176,7 +176,7 @@ But for the next one-in-a-million, just maybe, my tale gives pause before pluggi
 
 I wish I never had this story to tell. I’d give up anything to go back in time to when the cap was in my hand. It’s a what-if reel I’ve replayed ten thousand times, sometimes every hour, every minute. I can’t change the past, but my journey can help someone else’s future.
 
-People asked me…
+People may ask…
 
 Did the system fail? No.
 
@@ -206,7 +206,7 @@ I was remembering the people and places I love.
 
 The story’s told. How to move on…
  
-Growing up, my older brother was the daredevil. He’d push me down our hilly driveway on a skateboard. He’d take me climbing cranes at night. How I could survive so many adventures, but not his 50th. We haven’t spoken since. It’s not his fault. No one knew.
+Growing up, my older brother was the daredevil. He’d push me down our hilly driveway on a skateboard. He’d take me climbing 20-story cranes at night. How could I survive so many adventures, but not his 50th. We haven’t spoken since. It’s not his fault. No one knew.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
@@ -230,7 +230,7 @@ But just as our story was starting, my family had to leave the country, no warni
 
 Her face in the 1990 Embassy School yearbook followed me for years. Her piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew it everywhere. Her smile haunted me long into my teens and beyond. I never gave up the ghost.
 
-Then, out of nowhere, last year, on a flight from London, she came back, all grown up, majestic, demure, golden. Bright like a diamond. Made for me. Her last words, before the sleepless nights took her away again, this time for good: I love you unconditionally.
+Then, out of nowhere, last year, on a flight from London, she came back. All grown up, majestic, demure, golden. Bright like a diamond. Made for me. Her last words, before the sleepless nights took her away again, this time for good: I love you unconditionally.
 
 On another earth, one where I didn’t take the orange pill, we’re still together in drømland. [Liebesträum](https://youtu.be/FZ651tNXp0Y). But here, in this parallel universe, the upside-down — all is gone.
 
