@@ -2,21 +2,21 @@ On January 12th, 2024, my happy, healthy, successful 43-year-old life was foreve
 
 This is a tale of party drugs. It’s also a life-and-death journey I could’ve never imagined in my wildest dreams. 
 
-Some will see my story as a case study at the intersection of brain science, medicine, pharma, and policy. Others, a harrowing dive into extremes of the human mind. 
+Some will see my story as a case study at the intersection of science, medicine, pharma, and policy. Others, a harrowing dive into extremes of the human mind. 
 
 As the one who lived it, telling this here, now, for the first time, ten months later, is therapy — assembling the shards of a shattered life and heart into one broken mosaic. 
 
 Here goes…
 
-At my brother’s 50th birthday in Cabo, Mexico, along with other party guests, I was offered cocaine. By no means a user, I’m also not a novice. I’m a normal millennial in that I’ve never looked for drugs, but am not afraid to try something passed by friends.
+At my brother’s 50th birthday in Cabo, Mexico, along with other party guests, I was offered cocaine. By no means a user, I’m also not a novice. I’m a normal millennial who never looked for drugs, but is not afraid to try something passed by friends.
 
 For context, I’m a responsible, well-educated guy with a bunch of advanced degrees. I manage a small, thriving international company. This background is not a brag, only to establish that until January I lived a drama-free life, successful by any metric. I’m also by nature an understated middle child, so making noise or having weird stuff happen is not my thing. Until that night, I’d coasted through life without anything big ever going wrong.
 
 Being in my early 40s, my partying days have been over for a while, and January was my first time in a decade+ — since business school — touching party drugs.
 
-Over several hours at a place called Bagatelle, where the first dinner of the three-day bash took place, I had a dozen+ lines/bumps of coke while sipping rum. It was a festive if over-the-top scene as our group of 40 danced atop the long birthday table, stepping over dinner plates — while magnums of champagne carried between waiters were poured directly into mouths like parishioners taking communion. Not your typical Friday night, but all were having fun celebrating my bro. So chemically speaking, cocaine and alcohol were the first ingredients in my blood.
+Over several hours at a place called Bagatelle, where the opening dinner of the three-day bash took place, I had a dozen+ lines/bumps of coke, sipping rum. It was a festive if over-the-top scene as our group of 40 danced atop the long birthday table, stepping over plates — while magnums of champagne carried between waiters were poured directly into mouths like parishioners taking communion. Not your typical Friday night, but all were having fun celebrating my bro. So chemically speaking, cocaine and alcohol were the first ingredients in my blood.
 
-As midnight approached, I was handed by a banker friend what I was told was MDMA brought from San Francisco. I’d taken molly twice before in my life — once at a wedding in Prague, before that at a club in Aruba — and had good experiences both times. I didn’t particularly want to take it that night in Mexico, being late and tired from flying out of DC at the crack of dawn… so I nearly said, “no thanks.”
+As midnight approached, I was handed by a banker friend what I was told was MDMA brought from San Francisco. I’d taken molly twice in my life — once at a wedding in Prague, before that at a club in Aruba — and had good experiences. I didn’t particularly want to take it that night in Mexico, being late and tired from flying out of DC at the crack of dawn… so I nearly said, “no thanks.”
 
 But your brother only turns a half-century once, and I didn’t overthink it. I split the cap in half with my fingers, swallowed what I figured would be a light dose, and kept on with the party.
 
@@ -124,9 +124,9 @@ Sometime later — no one knows how long — one of the cords snapped, then the 
 
 When alert enough to rise, I stumbled back to The Retreat and turned myself in. I was escorted to the emergency room in delirium — coping with the effects of the brain injury I’d just suffered, compounded by the insomnia that broke me down in the first place. Nothing, not even hanging, would let me escape. I was trapped in an episode of Black Mirror or The Twilight Zone.
 
-Then, in a twist of dark humor from the universe (that even made Dr. Earley laugh when he later heard), I became sleepy in the ER for the first time in six months. Somehow, shutting my brain down reset it in a way that brought intense fatigue — which none of 40+ medications could ever do. So I dozed in and out of consciousness for three days, as MRIs, echocardiograms, and other tests were done to look for necrosis or a heart attack.
+Then, in a twist of dark humor from the universe (that even made Dr. Earley laugh when he heard), I became sleepy in the ER for the first time in six months. Somehow, shutting my brain down reset it in a way that brought intense fatigue — which none of 40+ medications could ever do. So I dozed in and out of consciousness for three days, as MRIs, echocardiograms, and other tests were done to look for necrosis or a heart attack.
 
-In spite of my self-induced asphyxiation, I was being kept in the hospital’s stroke unit — rather than on its protected psych floor. It may have been my well-groomed appearance or polished manner that deceived doctors into not seeing the risk, ignoring the fact of what had just brought me in. And so that’s how, shortly before I was scheduled to be transferred to a trauma unit next door, on the afternoon of July 9, still in an anoxic delirium, I broke free from the sitter assigned to watch me when distracted, and bolted to the 6th-floor exit down the hall. Without pause, I dove head-first down the stairwell center — figuring a six-story drop would end the suffering once and for all.
+In spite of my self-induced asphyxiation, I was being kept in the hospital’s stroke unit — rather than on its protected psych floor. It may have been my well-groomed appearance or polished manner that deceived doctors into not seeing the risk, ignoring the fact of what had just brought me in. And so that’s how, shortly before I was scheduled to be transferred to a trauma unit, on the afternoon of July 9, still in an anoxic delirium, I broke free from the sitter assigned to watch me when distracted, and bolted to the 6th-floor exit down the hall. Without pause, I dove head-first down the stairwell center — figuring a six-story drop would end the suffering once and for all.
 
 But security chased and reached as I went over the ledge — catching one foot for a split second, just long enough before my sock slipped through their hands — that I flipped as I free-fell down the stairwell center. In mid-air somersaults I bounced off railings, which zig-zagged my trajectory, so that I ended up hitting headfirst on a landing 3 floors below, instead of free-falling 6 stories. 
 
@@ -164,23 +164,23 @@ The world is full of terrified people experiencing lasting insomnia from MDMA. [
 
 If you look up NIH case reports, you’ll find things like permanent [anxiety disorders](https://pmc.ncbi.nlm.nih.gov/articles/PMC5968564/) and intractable [psychosis](https://pmc.ncbi.nlm.nih.gov/articles/PMC3304680/) brought on by even one-time MDMA use in otherwise healthy people, as I was.
 
-If you search blogs for “long-term comedown” (LTC), there are troves of devastating accounts of MDMA creating neuroses lasting months, years, forever. People around the world have contacted me with heartwrenching life-turns. 
+If you search user blogs for “long-term comedown” (LTC), there are troves of devastating accounts of MDMA creating neuroses lasting months, years, forever. People have contacted me from around the world to share heart-wrenching MDMA life-turns. 
 
-Without a doubt my case is exceptional. As Dr. Earley said, a “one-in-a-million” neurotoxic event.
+My case is exceptional — like Dr. Earley said, a “one-in-a-million” neurotoxic event.
 
 But if I had any idea I was playing the lottery, even at one in a billion odds, even a trillion, I would’ve never taken the cap handed to me. I loved life too much to risk it. What hit my brain eventually took away the best parts of me. I can’t make sense of it, nor will I ever.
 
 I’ll also always wonder what good was waiting just around the corner if I’d been only made the other choice that night. It’s too much to think about. I can’t explain fate, but didn’t deserve this. No one does.
 
-For 999,999 people out there, since the chances are slim, you’ll soon forget my story. I would’ve too. Before that night, I never worried. Didn’t know the first thing about meds, the brain, or drugs. Never stressed. I was living a charmed life and got lucky at each turn. Everything worked and was good. That was my world for 42 unforgettable years.
+For 999,999 people out there, since chances are slim, you’ll soon forget my story. I would’ve too. Before that night, I never worried. Didn’t know the first thing about meds, the brain, or drugs. Never stressed. I was living a charmed life and got lucky at each turn. Everything worked and was good. That was my world for 42 unforgettable years.
 
-But for the next one-in-a-million, just maybe, my tale gives pause before plugging in chemicals with the power to reshape a mind. We each make our own choices, but from where I stand in its abyss, the mind is too powerful a supercomputer to toy with. It’s our universe, and because it surrounds us, it feels permanent — like the sun always rises. But, truth is, we don’t understand our mind’s universe, let alone what can throw off its axis and rotation for good. I learned too late.
+But for the next one-in-a-million, just maybe, my tale gives pause before plugging in chemicals with the power to reshape a mind. We each make our own choices, but from where I stand in its abyss, the mind is a supercomputer not to toy with. It’s our universe, and because it surrounds us, it feels permanent, like the sun. But, truth is, we don’t understand our mind’s universe, let alone what can throw off its axis and rotation for good. I learned too late.
 
-I wish I never had this story to tell. I’d give up anything to go back in time with what I know now. It’s a “what-if”reel I’ve played on repeat ever since, sometimes every hour, each minute. I can’t change the past, but my journey can help someone else’s future.
+I wish I never had this story to tell. I’d give up anything to turn back the hands of time. I’ve played that “what-if” reel on repeat ever since, sometimes every hour, every minute. I can’t change the past, but my story can help someone else’s future.
 
 Did the system fail? No.
 
-No, in that MDMA put the writing on the wall. That was my choice, and while it may soon be legal in a bunch of countries like the US, Mexico is not one. Ironically, that same morning, Jan 12, Mexican authorities seized on arrival a CBD lip balm from my toiletry bag — received on my birthday, three days before, bought over-the-counter in DC. So there’s no consensus on what’s safe and what isn’t.
+No, in that MDMA put the writing on the wall. That was my choice, and while it may soon be legal in a bunch of countries like the US, Mexico is not one. Ironically, that same morning, Jan 12, Mexican authorities seized on arrival a CBD lip balm from my toiletry bag — received on my birthday, three days before, bought over-the-counter in DC. So there’s no consensus on what’s safe.
 
 No, in that I was treated by countless compassionate doctors who did the best they could. Too many to name.
 
@@ -188,7 +188,7 @@ Most importantly, No, in that there’s not a neurobiologist on earth who unders
 
 Did the system fail? Yes.
 
-Yes, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck Pharmaceuticals, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
+Yes, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
 
 Yes, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
 
@@ -204,50 +204,56 @@ I was remembering the people and places I love.
 
 The story’s told. How to move on…
  
-Growing up, my older brother was the daredevil. On my first skateboard he led me down our hilly driveway. In high school he took me climbing 20-story cranes at night. How could I survive so many adventures, but not his 50th. We haven’t spoken since. It’s not his fault. No one knew.
+Growing up, my older brother was the daredevil, the risk-taker. He led me down our hilly driveway on a skateboard, took me climbing 20-story cranes, showed me how to drive fast, shotgun beer, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. How did I survive so many crazy nights, but not his 50th.
+
+We haven’t spoken since. It’s not his fault. No one knew.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
 The last thing left to face is my heart.
 
-They say we all have our elements. I’ve always been drawn to water and rock. The two pieces of land I love most in the world — my cottage and future home — are both wrapped by rippling waves and stone walls. I learned this world from a hermit I used to watch at a distance, Crazy Ned.
+They say each of us has our elements. I’ve always been drawn to water and rock. The two pieces of land I love most — my cottage, and future home — are both wrapped by stone walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
 
 As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of rocks by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 
-Legend had it Crazy Ned was stuck in his endless loop from a bad drug trip that broke him, like the [frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood, now seems almost a Biblical omen… this Sisyphus cursed by a pill to push stones against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
+Legend had it Crazy Ned was stuck in his endless loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood now seems almost a Biblical omen… this Sisyphus cursed by a pill to push stones against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
 
 But I never saw the sign.
 
 And now the stars — even Karlvagn — have all gone out.  
 
-In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed since May, burying memories deep that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, always and for alltid, our dreamland, island, foreland, play-land, homeland, heartland, elskland, our everything, elsklingdom.
+In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, for alltid, forever, our dreamland, island, homeland, foreland, play-land, heartland, elskland, our everything, elsklingdom.
 
 I was [the luckiest](https://youtu.be/ISMnfcnX6Ng?feature=shared). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, carried off, a thief in the night, night after night, endlessly, until it vanished… the ruins of insomnia.
 
-I spent third grade in India. Each day at school my eyes caught in shy glances a little blond girl. She was two years above me, but I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
+I spent 2nd and 3rd grade in India. Each day at school my eyes caught a little blond girl in shy glances. She was two years above me, but I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
 
-But just as our story was starting, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called her from a pay phone to tell her what happened. No one was home.
+But just as our story was starting, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called from a pay phone to tell her. No one was home. I never got to say goodbye. 
 
-One face in the silver 1990 embassy school yearbook followed me for years. Her piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew it everywhere. Her smile haunted me long into my teens and beyond. I never got to say goodbye. And I never gave up the ghost.
+Her face in the 1990 embassy school yearbook followed me for years. Those piercing eyes and flaxen hair became my colors — her flag, Sweden. I drew blue and yellow crosses everywhere. Her smile haunted me long into my teens, never giving up the ghost.
 
-Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, golden. Bright like a diamond. A star made for me. Her last words, before the sleepless nights took her away again, this time for good… “I love you unconditionally.”
+Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, golden, mesmerizing. Bright like a diamond. A star made for me. I came to life. Every note was a melody. Her last words, before the sleepless nights took her away again, this time for good… “I love you unconditionally.”
 
-On another earth, one where I didn’t take the orange pill, we’re still in drømland, the two of us. Our [liebesträum](https://youtu.be/FZ651tNXp0Y).
+On another earth, one where I didn’t take the orange pill, we’re still in drømland, two of us, [liebesträum](https://youtu.be/FZ651tNXp0Y).
 
 But here, in this parallel universe, the upside-down — all is gone. Even the ghost.
 
-Coming up on the anniversary of the first night that started so many sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening strike — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” Now I know.
+Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening streik — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
+
+Now I know.
 
 Sleep is like true love. It finds you when you’re not looking. It fills you with dreams. Its melody is a nocturne. And when you lose it, you lose everything.
 
 There is one difference. All know sleep. Few ever know true love. I couldn’t know it then, but I lost both, the same night. 
 
-One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesick, but never lovelorn. Because I did it to myself. That’s the hardest pill to swallow.
+One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesick, but never lovelorn. ‘Cause I did it to myself. That… is the hardest pill to swallow.
 
-This December, every carol echoes a bittersweet memento of the final weeks of shining eyes one year ago, before my story began. I miss those days like you can’t imagine. Last year’s songs are the shooting stars of a light-filled universe, set ablaze, then vanquished and gone. I’ll never get those starbursts back, the shining eyes, or why they slipped away.
+This December, every carol echoes a bittersweet memento of the final weeks of shining eyes one year ago, before my story began. I miss those days like you can’t imagine. Last year’s songs, now the shooting stars of a light-filled universe, set ablaze, then vanquished and gone. I’ll never get those starbursts back, the shining eyes, or why they slipped away.
 
 Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Spotless Mind](https://youtu.be/yE-f1alkq9I). 
 
-Meet me in Montauk… elsklingen min.
+Meet me in Montauk…
 
-Until then, red wine and sleeping pills help me get back to your arms. [Maybe. I will see you in the next life.](https://youtu.be/EcSvMFm2ABE?feature=shared)
+Elsklingen min.
+
+For now, red wine and sleeping pills help me get back to your arms. [Maybe — I will see you in the next life.](https://youtu.be/EcSvMFm2ABE?feature=shared)
