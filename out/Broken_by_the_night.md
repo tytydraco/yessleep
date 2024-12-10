@@ -174,9 +174,9 @@ I’ll also always wonder what good was waiting just around the corner if I’d 
 
 For 999,999 people out there, since chances are slim, you’ll soon forget my story. I would’ve too. Before that night, I never worried. Didn’t know the first thing about meds, the brain, or drugs. Never stressed. I was living a charmed life and got lucky at each turn. Everything worked and was good. That was my world for 42 unforgettable years.
 
-But for the next one-in-a-million, just maybe, my tale gives pause before plugging in chemicals with the power to reshape a mind. We each make our own choices, but from where I stand in its abyss, the mind is too fragile a supercomputer to toy with. It’s our universe, and because it surrounds us, it feels permanent, like the sun. But, truth is, we don’t understand our mind’s universe, let alone what can throw off its axis and rotation for good. I learned too late.
+But for the next one-in-a-million, maybe, my tale gives pause before plugging in chemicals with the power to reshape a mind. We each make our own choices, but from where I now stand through this journey, the mind is too fragile a supercomputer to toy with. It’s our universe, and because it surrounds us, it feels permanent, like the sun. But, truth is, we don’t understand our mind’s universe, let alone what can throw off its axis and rotation for good. I learned too late.
 
-I wish I never had this story to tell. I’d give up anything to turn back the hands of time. It’s a “what-if” reel I’ve replayed so often the film has burned. I can’t change the past, but my story can help someone else’s future.
+I wish I never had this story to tell. I’d give up anything to turn back the hands of time. It’s a “what-if” reel I’ve replayed so much the film has burned. I can’t change the past, but my story can change someone else’s future.
 
 Did the system fail? No.
 
@@ -186,65 +186,67 @@ No, in that I was treated by countless compassionate doctors who did the best th
 
 Most importantly, No, in that there’s not a neurobiologist on earth who understands the human brain. We haven’t reached anything beyond presumption. So how can any doctor be faulted for not finding my silver bullet?
 
-Did the system fail? It did.
+Did the system fail? Yes.
 
-Yes, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
+Believe it or not, 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
 
 Yes, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
 
-Yes, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had I arrived with that in my bags, it would have been confiscated for the glaring risk. 
+Yes, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had that arrived in my bags, it would have been confiscated for the glaring risk. 
 
 Yes, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
 
-My story’s worth telling if for no other reason than the questions that intersect in it across medicine, policy, pharma, drugs, health, and brain science.
+My story’s worth telling if for no other reason than the questions that intersect here across medicine, policy, pharma, drugs, health, and brain science.
 
-But none of those questions matter to me now. I wasn’t thinking about any of them as I sat on the log, rolling back the reel of time.
+But none of these questions matter to me now. I wasn’t thinking about any of them as I sat on the log, rolling back the reel of time.
 
 I was remembering the people and places I love.
 
-The story’s told. How to move on…
- 
-Growing up, my older brother was the daredevil between us, the risk-taker. He led me down our hilly driveway on a skateboard, we got marooned overnight on a jungle island in the Arabian Sea, showed me how to shoot BB-guns, bottle-rockets, shotgun beer, drive fast, climb 20-story cranes, draft down steep roads on a bike, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. 
+The story’s told. 
 
-I survived so many wild nights unscathed, but not his 50th. We haven’t spoken since. It’s not his fault. Even Dostoyevsky couldn’t have foreseen what lay ahead.
+How to move on…
+ 
+Growing up, my older brother was the daredevil between us, the risk-taker. He led me down our hilly driveway on a skateboard, we got marooned overnight on a jungle island in the Arabian Sea, showed me how to shoot BB-guns and bottle-rockets, shotgun beer, drive fast, climb 20-story cranes, draft down steep roads on a bike, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. 
+
+I survived so many wild nights unscathed, but not his 50th. We haven’t spoken since. None of it is his fault. Even Dostoyevsky couldn’t have foreseen what lay ahead.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
-The last thing left to face is my heart...
+The last thing left to face is my heart.
 
-They say each of us has our elements. For me they are water and stone. The two views I love most on earth — my cottage, and future home — are both wrapped by rock walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
+They say each of us has our elements. For me these are water and stone. The two views I love most on earth — at my cottage, and future home — are both wrapped by rock walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
 
-As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile-long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of stones by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
+As a kid, I spent summers hanging out at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile-long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of stones by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 
-Legend had it Crazy Ned was stuck in his endless rock loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood now seems almost a Biblical omen… this Sisyphus cursed by a pill to push stones against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
+Legend had it Crazy Ned was stuck in his endless loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood now seems almost a Biblical omen… this Sisyphus cursed by a pill to push rocks against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
 
 But I never saw the sign.
 
 And now the stars — even Karlvagn — have all gone out.  
 
-In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, alltid and forevig, our dreamland, island, homeland, foreland, playland, hjerteland, elskland, our everything, elsklingdom.
+In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, alltid and for evig, our dreamland, island, homeland, foreland, playland, heartland, elskland, our everything, elsklingdom.
 
-I was [the luckiest](https://youtu.be/ISMnfcnX6Ng). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, carried off, a thief in the night, night after night, endlessly, until it vanished… the ruins of insomnia.
+I was [the luckiest](https://youtu.be/ISMnfcnX6Ng). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, taken by a thief in the night, night after night, endlessly, until it vanished… the ruins of insomnia.
 
-I spent 3rd grade in India. Each day at school my eyes caught a blond girl in shy glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
+I spent 3rd grade in India. At school each day my eyes met a blond girl in shy passing glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
 
 But just as our story was beginning, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called from a pay phone to tell her. No one was home. I never got to say goodbye. 
 
-Her face in the 1990 embassy school yearbook followed me for years. Those piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew blue and gold crosses everywhere. Her smile haunted me into my teens, never giving up the ghost.
+Her face in the 1990 embassy school yearbook followed me for years. Her piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew blue and gold crosses everywhere. Her smile haunted me well into my teens, never giving up the ghost.
 
 Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, mesmerizing, deep, true. Bright like a diamond. A star made for me. 
 
-I came back to life too. Every note was a melody. Every word a poem. Every kiss an attack. But as that story was starting, like before, only magnified x a billion, the best thing to ever happen to me was followed by the worst. 
+I came back to life too. Every note was a melody. Every word a poem. Every kiss an attack. But as that story was starting, just like before, only magnified times a billion, the best thing to ever happen was followed by the worst. 
 
-Before the sleepless nights took my sirenesang away again, this time for good, her final words… “I love you unconditionally.”
+Before the sleepless nights took my sirensong away again, this time for good, her final words… “I love you unconditionally.”
 
-I’ll never forget. My first-light. My last-light.
+I’ll never forget. My first light. Last light.
 
 On another earth, one where I didn’t take the orange pill, we’re still in drømland, sammen, [liebesträum](https://youtu.be/FZ651tNXp0Y).
 
-But here, in this parallel universe, the upside-down — all is gone. Even the ghost and me.
+But here in this parallel universe, the upside-down — all is gone. Even the ghost and me.
 
-There is an uncanny trait of sleep drugs called kindling, which makes it harder to withdraw the second time. Love is one of those.
+There is an uncanny trait of sleeping pills called kindling, which makes it harder to withdraw the second time. Love is one of those drugs too.
 
 Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening strike — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
 
@@ -262,18 +264,6 @@ Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Sp
 
 Until then, red wine and sleeping pills help me get back to your arms. [Maybe I will see you in the next life.](https://youtu.be/EcSvMFm2ABE)
 
-elsklingen min
-
-paa maanen
-
-fœrste blikk
-
-i stjernene
-
-unendilige 
-
-ceaseless
-
-siste lys
+elsklingen min. paa maanen. fœrste blikk. i stjernene. unendilige. ceaseless. siste lys
 
 natta
