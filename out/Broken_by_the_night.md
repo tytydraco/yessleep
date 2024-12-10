@@ -14,17 +14,17 @@ For context, I’m a responsible, well-educated guy with a bunch of advanced deg
 
 Being in my early 40s, my partying days have been over for a while, and January was my first time in a decade+ — since business school — touching party drugs.
 
-Over several hours at a place called Bagatelle, where the opening dinner of the three-day bash took place, I had a dozen+ lines/bumps of coke, sipping rum. It was a festive if over-the-top scene as our group of 40 danced atop the long birthday table, stepping over plates — while magnums of champagne carried between waiters were poured directly into mouths like parishioners taking communion. Not your typical Friday night, but all were having fun celebrating my bro. So chemically speaking, cocaine and alcohol were the first ingredients in my blood.
+Over several hours at a place called Bagatelle, where the opening dinner of the three-day bash took place, I had a dozen+ lines/bumps of coke, sipping rum. It was a festive if over-the-top scene as our group of 40 danced atop the long birthday table, stepping over plates, while magnums of champagne carried between waiters were poured into mouths like parishioners taking communion. Not your typical Friday night, but all were having fun celebrating my bro. So chemically speaking, cocaine and alcohol were the first ingredients in my blood.
 
-As midnight approached, I was handed by a banker friend what I was told was MDMA brought from San Francisco. I’d taken molly twice in my life — once at a wedding in Prague, before that at a club in Aruba — and had good experiences. I didn’t particularly want to take it that night in Mexico, being late and tired from flying out of DC at the crack of dawn… so I nearly said, “no thanks.”
+As midnight approached, I was handed by a banker what I was told was MDMA brought from San Francisco. I’d taken molly twice in my life — once at a wedding in Prague, before that at a club in Aruba — and had good experiences. I didn’t particularly want to take it that night in Mexico, being late and tired from flying out of DC at the crack of dawn… so I nearly said, “no thanks.”
 
-But your brother only turns a half-century once, and I didn’t overthink it. I split the cap in half with my fingers, swallowed what I figured would be a light dose, and kept on with the party.
+But your brother only turns a half-century once, and I didn’t overthink it. I split the cap in half with my fingers, swallowed what I figured was a light dose, and kept on with the party.
 
 Biggest mistake of my life. Across all years. The one that changed everything… Even Dostoyevsky couldn’t have foreseen what lay ahead.
 
 When added to the cocaine, MDMA instantly had a negative effect. In my two previous rolls, I hadn’t mixed it. This time with was different. I felt an overwhelming anxiety never known in my life.
 
-An hour into that state, I had to leave the afterparty. I was consumed by unease and couldn’t continue to talk with people. When I got back to my room at Esperanza, I wasn’t able to sleep. This was no surprise since cocaine makes the process of settling down belabored, so I lay awake, passing out after sunrise.
+An hour into that state, I had to leave the afterparty. I was consumed by unease and couldn’t continue to talk. When I got back to my room at Esperanza, I wasn’t able to sleep. This was no surprise since cocaine makes the process of settling down belabored, so I lay awake, passing out after sunrise.
 
 When I awoke that afternoon, the angst hadn’t abated. I stayed in my room, skipping day two of the birthday bash, waiting for the malaise to pass. I’d never had a mood disorder or taken a psych med. Long-lasting unease was entirely new.
 
@@ -52,9 +52,9 @@ By the three-month mark, I’d trialed 40+ on-label and off-label prescriptions.
 
 The newest “designer” meds, like the DORAs, had to be specially ordered by the pharmacy. I was becoming so desperate as weeks past that for one called Quviviq (which had helped Matthew Perry sleep), and insurance wouldn’t cover, I shelled out $1k not knowing if it would work… it didn’t.
 
-Against these sleepless nights, I tried to wear down my brain by spending every day in the gym and running miles outside. My goal became to tire myself to sleep, and I was like a warrior fighting this battle. I inadvertently got into the best shape of my life. People’s passing compliments couldn’t imagine the dark source of my transformation. Still, nothing changed at night.
+Against these sleepless nights, I tried to wear myself down spending every day in the gym and running miles outside. My goal became to tire myself to sleep. I was like a warrior fighting this battle and inadvertently got into the best shape of my life. People’s passing compliments couldn’t imagine the dark source of my transformation. Still, nothing changed at night.
 
-Piece by piece, I removed as many potential stressors around me as I could think of in the hope that putting one on the back burner might help. So, fighting a tug of war with my heart that exhaustion eventually won, I pushed all intensity and passion from my personal life into the background — shutting out true love in a way that’s haunted me since.
+Piece by piece, I removed as many stressors around me as I could think of in the hope that putting one on the back burner might help. So, fighting a tug of war with my heart that exhaustion eventually won, I pushed all intensity and passion from my personal life into the background — shutting out true love in a way that’s haunted me since.
 
 At work, I’d been doing what I could to keep on top of running a company, masking my increasingly drained appearance and depleted mental state — reminiscent of [Edward Norton’s workplace struggle with insomnia](https://youtu.be/8pDY_9u5Sn0?feature=shared) in Fight Club. Anyone who saw me in those days will know that the giveaway of this scene being fiction is Norton’s eyes aren’t nearly sunken enough, as mine had become.
 
@@ -74,17 +74,17 @@ I felt like I’d beaten the scariest thing I’d ever faced, and for two weeks,
 
 A few weeks later, in June, I was finally able to see the chief sleep neurologist at Johns Hopkins Medicine, Dr. Christopher Earley, who I’d been trying to get in with for months but is booked a year in advance as the national authority on sleep science and the brain. A family friend on the Hopkins board helped get me up the list.
 
-On hearing my story, after examining the details of my chart, and consulting with his colleague at Hopkins, neurologist [George Ricaurte](https://karger.com/nps/article-abstract/42/1/5/232593/3-4-Methylenedioxymethamphetamine-Ecstasy-Induced?redirectedFrom=fulltext) — a well-known researcher on methamphetamine and MDMA neurotoxicity since the 90s — Dr. Earley told me what I’d taken that night in Mexico caused a “one in a million” reaction in my brain. When combined with the volatile punch of dopamine from cocaine, MDMA caused a “Serotonin Syndrome” that fried and down-regulated my 5-HT system through a rare but devastating neurotoxic reaction. Serotonin controls sleep in a way that requires a delicate balance to get right. This is why a few days of insomnia after molly is common — just not long-lasting, much less, permanent. For most people, damaged 5-HT proteins restore quickly; but in rare cases, lasting, irreversible neural damage can occur. Dr. Earley told me I wasn’t the first he’d seen and referred to cases in the medical literature about a range of neurological disorders from even one-time MDMA use.
+On hearing my story, after examining the details of my chart, and consulting with his colleague at Hopkins, neurologist [George Ricaurte](https://karger.com/nps/article-abstract/42/1/5/232593/3-4-Methylenedioxymethamphetamine-Ecstasy-Induced?redirectedFrom=fulltext) — a well-known researcher on methamphetamine and MDMA neurotoxicity since the 90s — Dr. Earley told me what I’d taken that night in Mexico caused a “one in a million” reaction in my brain. When combined with the volatile punch of dopamine from cocaine, MDMA caused a “Serotonin Syndrome” that fried and down-regulated my 5-HT system through a rare but devastating neurotoxic reaction. Serotonin controls sleep in a way that requires a delicate balance to get right. This is why a few days of insomnia after molly is common — just not long-lasting, much less, permanent. For most people, damaged 5-HT proteins restore quickly; but in rare cases, irreversible neural damage can occur. Dr. Earley told me I wasn’t the first he’d seen and referred to cases in the medical literature about a range of neurological disorders from even one-time MDMA use.
 
 With candor I appreciated, Dr. Earley couldn’t say if my brain would ever recover, why Lexapro helped and then stopped, or if anything would let me sleep again. Seeing the exhaustion in my eyes, he agreed to treat my case on “an experimental basis,” and ordered a weeklong sleep-study for more data. Becoming the test patient to one of America’s most seasoned neurologists was both affirming, given the extremes I’d been through in my search for a cure, and terrifying, for what it signaled about the road ahead.
 
-June gave way to July and the 6-month anniversary of my insomnia was fast approaching. As this dreary milestone neared, I became isolated and was losing hope. I hadn’t worked in months, had retreated from my inner-circle, and lost precious parts of my life that meant the world to me. More than $200,000 had been spent going to the country’s top clinics — ending up at The Retreat, a full-service medical facility outside of Baltimore that runs $50k each 20 days and takes zero insurance. No price was too high, investing whatever it took to get better, knowing not just sleep but increasingly life was on the line. Still, after seeking the best of the best, no one could stop the insomnia, tell me how long this hell would last, or if it would ever leave.
+June gave way to July and the 6-month anniversary of my insomnia was fast approaching. As this dreary milestone neared, I became isolated and was losing hope. I’d hid from work for months, had retreated from my inner-circle, and lost precious parts of my life that meant the world to me. More than $200,000 had been spent going to the country’s top clinics — ending up at The Retreat, a full-service medical facility outside of Baltimore that runs $50k each 20 days and takes zero insurance. No price was too high, investing whatever it took to get better, knowing not just sleep but increasingly life was on the line. Still, after seeking the best of the best, no one could stop the agony, tell me how long this hell would last, or if it would ever leave.
 
-Doctors had also run out of medications to try, the last being the narcoleptic anesthetic Xyrem (aka GHB, the infamous date-rape drug from [Diddy’s parties](https://www.nbcphiladelphia.com/entertainment/entertainment-news/sean-diddy-combs-baby-oil-was-allegedly-laced-with-date-rape-drug/4002710/?amp=1)) — a Schedule I narcotic prescribed off-label by Dr. Earley as an extreme final resort. As the most controlled substance in America (only one central pharmacy is authorized to dispense it), Xyrem was taking forever to get approved, required passing through safety hoops, and cost $25,000 per month. Receiving it was weeks or more away with no indication it would work where others failed.
+Doctors had also run out of medications to try, the last being the narcoleptic anesthetic Xyrem (aka GHB, the infamous date-rape drug from [Diddy’s parties](https://www.nbcphiladelphia.com/entertainment/entertainment-news/sean-diddy-combs-baby-oil-was-allegedly-laced-with-date-rape-drug/4002710/?amp=1)) — a Schedule I narcotic prescribed off-label by Dr. Earley as an extreme final measure. The most controlled substance in America (only one central pharmacy is authorized to dispense it), Xyrem was taking forever to get approved, required passing through safety hoops, and cost $25,000 per month. Receiving it was weeks or more away with no indication it would work where others failed.
 
-Sleep deprivation is a form of torture considered among the worst. Losing a single hour of sleep makes Division I basketball players miss twice as many shots the next day. Perhaps the most sublime music ever written, Bach’s Goldberg Variations, was commissioned to treat the insomnia of Ludwig II. He was Bavaria’s “Mad King” for a reason — sleeplessness drives you crazy.
+Sleep deprivation is a form of torture considered among the worst. Losing a single hour of sleep makes Division I basketball players miss twice as many shots the next day. The most sublime music ever written, Bach’s Goldberg Variations, was commissioned by Lugwig II to treat his insomnia. He was Bavaria’s “Mad King” for a reason — sleeplessness drives you crazy.
 
-We’ve all experienced at some point the relentless feeling after one sleepless night. In as little as three days, sleep deprivation breaks prisoners of war into giving up classified secrets. So by the time my insomnia hit the 6-month mark in July, the once unfathomable thought of cutting my life short slowly started to creep into my mind as a last resort for rest. Insomnia had literally become my death bed. 
+We’ve all experienced at some point the relentless feeling after one sleepless night. In as little as three nights, sleep deprivation breaks prisoners of war into giving up classified secrets. So by the time my insomnia hit the 6-month mark in July, the once unfathomable thought of cutting my life short slowly started to creep into my mind as a last resort for rest. Insomnia had literally become my death bed. 
 
 Compounding this was a chemical Catch-22. It’s paradoxical, but the most effective drugs doctors use for life-saving sleep come with “black box” warnings in their fine print about triggering severe depression and suicidality. So my hopelessness about not sleeping was being pharmacologically amped up by the same meds I’d been prescribed in the hope of sleep. I was trapped in a “damned if you do,” “damned if you don’t” loop with no way out between crippling depression from not sleeping, or crippling depression from sleeping pills.
 
@@ -102,21 +102,21 @@ After spending the sleepless night of July 4th watching fireworks on the Baltimo
 
 Pushing back tears, I scribbled a short goodbye note, remembered one final time the people and life I’d been so in love with before this all started, cursed God for cursing me… and hung myself.
 
-I’ve always flown under the radar, never seeking attention. So doing the unthinkable wasn’t a masked plea, as can be the case with those who choose pills or cuts, and rarely succeed by design. That wasn’t me for a minute. I’d already tried every path for help. I’m a quick study and my method instead represented a decision. I made a strong noose and secured it at such a height that nothing could allow me to turn back once the process began, knowing there would be intense pain before blacking out. I told myself it couldn’t feel worse than what I’d already endured. So I bit my lip, prepared for that moment, and the eternal unknown to follow.
+I’ve always flown under the radar, never seeking attention. So doing the unthinkable wasn’t a masked plea, as it can be with those who choose pills or cuts, and rarely succeed by design. That wasn’t me for a minute. I’d already tried every path. I’m a quick study and my method instead represented a decision. I made a strong noose and secured it at such a height that nothing could allow me to turn back once the process began, knowing there would be intense pain before blacking out. I told myself it couldn’t feel worse than what I’d already endured. So I bit my lip, prepared for that moment, and the eternal unknown to follow.
 
 Against every probable outcome, I partially failed, or partially succeeded — depending on the measuring stick. You could call it my first piece of good luck in six months, coming at a crucial time.
 
 On the other hand, what I did forever changed the life I had and wanted, the people around me, and all that follows. I’m here, but not in a way that feels like me — no matter how far I search for a cure this time around. I wouldn’t wish it on anyone.
 
-My tale of survival is a morose second act.
+My survival tale is a morose second act.
 
-Since the original intent was to share an advisory, not explore psychological torture, I hadn’t planned to delve into the next chapter of my saga since July. But because it’s part of the ripple effect from that January night, and although it includes shameful details, I’ve found comfort in honesty as I’ve navigated so much uncharted territory. 
+Since the original intent was to share an advisory, not explore psychological torture, I hadn’t planned to delve into the next chapter of my saga since July. But because it’s part of the ripple effect from January, and although it includes shameful details, I’ve found comfort in honesty navigating so much uncharted territory. 
 
 So here’s the rest of the story….
 
-At the end of my third week in The Retreat outside of Baltimore, in early July, with the best medics in the world no closer to helping me than any had been at the start of my journey six months before, I gave up.
+At the end of my third week in The Retreat outside of Baltimore, in early July, with the best doctors in the world no closer to helping me than any had been at the start of my journey six months before, I gave up.
 
-Despite sharing a growing belief with doctors that my end was drawing near, and petrified family members calling to warn of the despair in my voice and what they feared was coming — naively, the nurses had loaned me a 14-foot charger cable.
+Despite sharing a growing belief with therapists that my end was drawing near, and petrified family members calling medics to warn of the despair in my voice and what they feared was coming — naively, the nurses had loaned me a 14-foot charger cable.
 
 Outside, in some woods nearby, out of view, I fastened the cable to a sturdy branch on an overturned log above a stream, doubled it twice around my neck, and rolled my body off the edge. I’ve always connected to water, so suspending above a trickling creek felt like the most familiar place on campus to quietly say goodbye. I passed out as the noose caught and cinched tight. 
 
@@ -126,13 +126,13 @@ When alert enough to rise, I stumbled back to The Retreat and turned myself in. 
 
 Then, in a twist of dark humor from the universe (that even made Dr. Earley laugh when he heard), I became sleepy in the ER for the first time in six months. Somehow, shutting my brain down reset it in a way that brought intense fatigue — which none of 40+ medications could ever do. So I dozed in and out of consciousness for three days, as MRIs, echocardiograms, and other tests were done to look for necrosis or a heart attack.
 
-In spite of my self-induced asphyxiation, I was being kept in the hospital’s stroke unit — rather than on its protected psych floor. It may have been my well-groomed appearance or polished manner that deceived doctors into not seeing the risk, ignoring the fact of what had just brought me in. And so that’s how, shortly before I was scheduled to be transferred to a trauma unit, on the afternoon of July 9, still in an anoxic delirium, I broke free from the sitter assigned to watch me when distracted, and bolted to the 6th-floor exit down the hall. Without pause, I dove head-first down the stairwell center — figuring a six-story drop would end the suffering once and for all.
+In spite of my self-induced asphyxiation, I was being kept in the hospital’s stroke unit — rather than on its protected psych floor. It may have been my well-groomed appearance or polished manner that deceived doctors into not seeing the risk, ignoring what had just brought me in. And so that’s how, shortly before I was scheduled to be transferred to a trauma unit, on the afternoon of July 9, still in an anoxic delirium, I broke free from the sitter assigned to watch me when distracted, and bolted to the 6th-floor exit down the hall. Without pause, I dove head-first down the stairwell center — figuring a six-story drop would end the suffering once and for all.
 
-But security chased and reached as I went over the ledge — catching one foot for a split second, just long enough before my sock slipped through their hands — that I flipped as I free-fell down the stairwell center. In mid-air somersaults I bounced off railings, which zig-zagged my trajectory, so that I ended up hitting headfirst on a landing 3 floors below, instead of free-falling 6 stories. 
+But security chased and reached for my feet as I went over the ledge — catching one for a split second, just long enough before my sock slipped through their hands — that I flipped as I free-fell down the stairwell center. In mid-air somersaults I bounced off railings, zig-zagging my trajectory, so that I ended up landing headfirst 3 floors down, instead of free-falling 6 stories. 
 
 Shrieks from above sounded the alarm as doctors from every floor rushed to the stairwell. Peering down in disbelief, through my motionless, glazed eyes — against all odds — I had a pulse, still. 
 
-Somehow, going three floors didn’t kill me, as it did fellow musical soul Liam Payne recently in Argentina. But when the back of my head hit concrete, it deviated my eyes in a way that makes 3D vision hard (called strabismus), and gave me “Acquired Aphantasia,” which means losing your mind’s eye. So, when I close my eyes now, I’m blind. The image of every memory I ever made was erased on impact. I can’t picture what anyone looks like, can’t envision the future, can’t lock onto my eyes in the mirror, am not able to absorb written words without saying them, can’t navigate without GPS, and a myriad of ways that shutting off your imagination reshapes you. Since I’ve been told my whole life I’m a “visual person,” losing this part of my brain feels like losing me.
+Somehow, going three floors didn’t kill me, as it did fellow musical soul Liam Payne recently. But when the back of my head hit concrete, it deviated my eyes im a way that makes 3D vision hard (called strabismus), and gave me “Acquired Aphantasia,” which means losing your mind’s eye. So, when I close my eyes now, I’m blind. The image of every memory I ever made was erased on impact. I can’t picture what anyone looks like, can’t envision the future, can’t lock onto my eyes in the mirror, am not able to absorb written words without saying them, can’t navigate without GPS, and a myriad of ways that shutting off your imagination reshapes you. Since I’ve been told my whole life I’m a “visual person,” losing this part of my brain feels like losing me.
 
 In more dark humor from fate, this new condition is exceedingly rare, just like the MDMA insomnia before it. Acquired Aphantasia is uncommon in brain injuries because rear-occipital lobe damage happens far less frequently than frontal, as with head-on car crashes. So I’m navigating this new chapter, once again, in the dark, flying blind, likely forever. 
 
@@ -146,11 +146,11 @@ Given my apparent penchant for transforming medical campuses into deathtraps, wa
 
 I did my time, and eventually, six weeks later, was released in mid-August. Since then, I’ve survived by planting and cutting trees on acreage I own, and long adventures with my dog [Peanut](https://www.instagram.com/theotterholt/) — trying to keep at bay depression’s downward pull of gravity on a level I never knew existed in this world. Worn out by what’s become a year without rest, now navigating unsettling deficits of a new brain trauma — I keep thinking back to my life before this all started, and the dreams I had to leave behind along the way. I can’t understand why any of it happened, and I’m not able to sleep much, still...
 
-Most recently, I’ve spent September, October, and November fighting poison with poison — doing every last-ditch brain-reset known to man, including six weeks of TMS, five weeks of Ketamine, four Stellate Ganglion Block neck injections (used by military), and soon, triweekly [ElectroConvulsive shock](https://youtu.be/fQBTEemrF1Y?feature=shared) under general anesthesia. All that’s missing for Christmas are two turtle-doves and a partridge in a pear tree. 
+Most recently, I’ve spent September, October, and November fighting poison with poison — doing every last-ditch brain-reset known to man, including six weeks of TMS, five weeks of Ketamine, four Stellate Ganglion Block neck injections (used by military for PTSD), and soon, triweekly [ElectroConvulsive shock](https://www.youtube.com/watch?v=DCUmINGae44) under general anesthesia. All that’s missing for Christmas are two turtle-doves and a partridge in a pear tree. 
 
 But no brain-reset touches me. My mind’s blank. My heartlight’s out. There are no more stars in the sky.
 
-When you add it up, what I’ve lived since January is so unbelievable it couldn’t be fiction — only fact. And now the sleepless nights that started it all are the prelude to an even stranger chapter I’m still awakening to.
+When you add it up, what I’ve lived since January is so unbelievable it couldn’t be fiction — only fact. And now the sleepless nights that started it all are the prelude to an even stranger chapter I’m still awakening in (no pun).
 
 I’ve never been a fan of melodrama, but I can’t help feeling like I missed life’s chance — derailing onto the wrong track from one night out, my train now headed in another direction. After being the conductor my whole life, I’ve become its passenger, seeing where each day goes. I don’t know where this new ride leads. Fortunately, I can still write, but I’ve lost the ability to be succinct from Aphantasia, as I now have to say everything in my head. It’s all part of the sea change.
 
@@ -186,15 +186,15 @@ No, in that I was treated by countless compassionate doctors who did the best th
 
 Most importantly, No, in that there’s not a neurobiologist on earth who understands the human brain. We haven’t reached anything beyond presumption. So how can any doctor be faulted for not finding my silver bullet?
 
-Did the system fail? Yes.
+Did the system fail? Yeah.
 
-Yes, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
+Yeah, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
 
-Yes, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
+Yeah, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
 
-Yes, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had I arrived with that in my bags, it would have been confiscated for the glaring risk. 
+Yeah, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had I arrived with that in my bags, it would have been confiscated for the glaring risk. 
 
-Yes, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
+Yeah, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
 
 My story’s worth telling if for no other reason than the questions that intersect in it across medicine, policy, pharma, drugs, health, and brain science.
 
@@ -204,13 +204,13 @@ I was remembering the people and places I love.
 
 The story’s told. How to move on…
  
-Growing up, my older brother was the daredevil, the risk-taker. He led me down our hilly driveway on a skateboard, took me climbing 20-story cranes, showed me how to drive fast, shotgun beer, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. How did I survive so many crazy nights, but not his 50th.
+Growing up, my older brother was the daredevil, the risk-taker. He led me down our hilly driveway on a skateboard, showed me how to shotgun beer, drive fast, chop Ritalin into lines, took me climbing 20-story cranes, and, with rolled $100 bills from summer life-guarding, how to blow coke. 
 
-We haven’t spoken since. It’s not his fault. No one knew.
+I survived so many crazy nights, but not his 50th. We haven’t spoken since. It’s not his fault. No one knew.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
-The last thing left to face is my heart.
+But the last thing left to face is my heart.
 
 They say each of us has our elements. I’ve always been drawn to water and rock. The two pieces of land I love most — my cottage, and future home — are both wrapped by stone walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
 
@@ -224,21 +224,23 @@ And now the stars — even Karlvagn — have all gone out.
 
 In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, for alltid, forever, our dreamland, island, homeland, foreland, play-land, heartland, elskland, our everything, elsklingdom.
 
-I was [the luckiest](https://youtu.be/ISMnfcnX6Ng?feature=shared). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, carried off, a thief in the night, night after night, endlessly, until it vanished… the ruins of insomnia.
+I was [the luckiest](https://youtu.be/ISMnfcnX6Ng?feature=shared). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, carried off, a thief in the night, night after night, endlessly, until she vanished… the ruins of insomnia.
 
-I spent 2nd and 3rd grade in India. Each day at school my eyes caught a little blond girl in shy glances. She was two years above me, but I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
+I spent 2nd and 3rd grade in India. Each day at school my eyes caught a little blond girl in shy glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
 
-But just as our story was starting, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called from a pay phone to tell her. No one was home. I never got to say goodbye. 
+But just as our story was beginning, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called from a pay phone to tell her. No one was home. I never got to say goodbye. 
 
-Her face in the 1990 embassy school yearbook followed me for years. Those piercing eyes and flaxen hair became my colors — her flag, Sweden. I drew blue and yellow crosses everywhere. Her smile haunted me long into my teens, never giving up the ghost.
+Her face in the 1990 embassy school yearbook followed me for years. Those piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew blue and gold crosses everywhere. Her smile haunted me long into my teens, never giving up the ghost.
 
-Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, golden, mesmerizing. Bright like a diamond. A star made for me. I came to life. Every note was a melody. Her last words, before the sleepless nights took her away again, this time for good… “I love you unconditionally.”
+Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, deep, true, mesmerizing. Bright like a diamond. A star made for me. I came to life. Every note was a melody. Before the sleepless nights took my syrenesang away again, this time for good, the last thing she said was… “I love you unconditionally.”
+
+I will never forget those words. My last light.
 
 On another earth, one where I didn’t take the orange pill, we’re still in drømland, two of us, [liebesträum](https://youtu.be/FZ651tNXp0Y).
 
 But here, in this parallel universe, the upside-down — all is gone. Even the ghost.
 
-Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening streik — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
+Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sjø-waves, embarking on what I thought was becoming — like a lightening streik — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
 
 Now I know.
 
@@ -246,14 +248,14 @@ Sleep is like true love. It finds you when you’re not looking. It fills you wi
 
 There is one difference. All know sleep. Few ever know true love. I couldn’t know it then, but I lost both, the same night. 
 
-One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesick, but never lovelorn. ‘Cause I did it to myself. That… is the hardest pill to swallow.
+One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesyk, but never lovelorn. ‘Cause I did it to myself. That… is the hardest pill to swallow.
 
-This December, every carol echoes a bittersweet memento of the final weeks of shining eyes one year ago, before my story began. I miss those days like you can’t imagine. Last year’s songs, now the shooting stars of a light-filled universe, set ablaze, then vanquished and gone. I’ll never get those starbursts back, the shining eyes, or why they slipped away.
+This December, every carol echoes a bittersweet memento to the final weeks of shining eyes one year ago, before my story began. I miss those nights like you can’t imagine. Last year’s nocturnes were the shooting stars of a light-filled universe — set ablaze, then vanquished and gone. I’ll never get those starbursts back, the shining eyes, or why they slipped away.
 
 Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Spotless Mind](https://youtu.be/yE-f1alkq9I). 
 
-Meet me in Montauk…
+Meet me in Montauk.
 
-Elsklingen min.
+Red wine and sleeping pills help me get back to your arms. It’s not like the movies. [Maybe — I will see you in the next life.](https://youtu.be/EcSvMFm2ABE?feature=shared)
 
-For now, red wine and sleeping pills help me get back to your arms. [Maybe — I will see you in the next life.](https://youtu.be/EcSvMFm2ABE?feature=shared)
+Elsklingen min
