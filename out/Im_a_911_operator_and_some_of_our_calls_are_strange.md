@@ -1,4 +1,4 @@
-[Previously](https://www.reddit.com/r/nosleep/s/kK02w3yDOO) 
+[Previously](https://www.reddit.com/r/nosleep/s/kK02w3yDOO) [part one](https://www.reddit.com/r/nosleep/s/KM4OoJexKV)
 
 My town is in shambles, and I feel some of the fault is my own. 
 
