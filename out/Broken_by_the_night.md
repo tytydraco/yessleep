@@ -244,7 +244,7 @@ On another earth, one where I didn’t take the orange pill, we’re still in dr
 
 But here, in this parallel universe, the upside-down — all is gone. Even the ghost and me.
 
-There is a mysterious trait of sleep drugs called kindling, that makes it’s harder to withdraw a second time. Love is one of those drugs.
+There is an uncanny trait of sleep drugs called kindling, which makes it harder to withdraw the second time. Love is one of those.
 
 Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening strike — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
 
@@ -262,13 +262,13 @@ Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Sp
 
 Until then, red wine and sleeping pills help me get back to your arms. [Maybe I will see you in the next life.](https://youtu.be/EcSvMFm2ABE)
 
-kjærlighet ved fœrste blikk
-
-skrevet i stjernene
-
-sitter paa maanen
-
 elsklingen min
+
+paa maanen
+
+fœrste blikk
+
+i stjernene
 
 unendilige 
 
