@@ -70,7 +70,7 @@ I am not ashamed to admit that in the wordless silence, I reached for Dr. Khan�
 
 We came, first, upon the body of one of the two Japanese scientists.
 
-Dead—pierced, and torn apart—his hand still held, now grotesquely, a handgun. His eyes had been pushed into their sockets and a bloodied document folder placed upon his chest. Dr. Khan picked it up, thumbed through it and passed it to me. Inside was the identity’s true identity. He was not a Japanese scientist but a member of the Naichō, the Japanese intelligence agency. I put the folder back on his chest, and we continued forward.
+Dead—pierced, and torn apart—his hand still held, now grotesquely, a handgun. His eyes had been pushed into their sockets and a bloodied document folder placed upon his chest. Dr. Khan picked it up, thumbed through it and passed it to me. Inside was the scientist’s true identity. He was not a Japanese scientist but a member of the Naichō, the Japanese intelligence agency. I put the folder back on his chest, and we continued forward.
 
 The facility had been visibly damaged.
 

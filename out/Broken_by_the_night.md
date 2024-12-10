@@ -186,15 +186,15 @@ No, in that I was treated by countless compassionate doctors who did the best th
 
 Most importantly, No, in that there’s not a neurobiologist on earth who understands the human brain. We haven’t reached anything beyond presumption. So how can any doctor be faulted for not finding my silver bullet?
 
-Did the system fail? Yeah.
+Did the system fail? It did.
 
-Yeah, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
+Yes, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
 
-Yeah, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
+Yes, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
 
-Yeah, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had I arrived with that in my bags, it would have been confiscated for the glaring risk. 
+Yes, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had I arrived with that in my bags, it would have been confiscated for the glaring risk. 
 
-Yeah, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
+Yes, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
 
 My story’s worth telling if for no other reason than the questions that intersect in it across medicine, policy, pharma, drugs, health, and brain science.
 
