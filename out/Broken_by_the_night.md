@@ -134,7 +134,7 @@ Shrieks from above sounded the alarm as doctors from every floor rushed to the s
 
 Somehow, going three floors didn’t kill me, as it did fellow musical soul Liam Payne recently. But when the back of my head hit concrete, it deviated my eyes in a way that makes 3D vision hard (called strabismus), and gave me “Acquired Aphantasia,” which means losing your mind’s eye. So, when I close my eyes now, I’m blind — the image of every memory I ever made was erased on impact. I can’t picture what anyone looks like, can’t envision the future, can’t lock onto my eyes in the mirror, am not able to absorb written words without saying them, can’t navigate without GPS, and a myriad of ways that shutting off your imagination reshapes you. Since I’ve been told my whole life I’m a visual person, losing this part of my brain feels like losing me.
 
-In more dark humor from fate, Acquired Aphantasia is exceedingly rare, like the MDMA insomnia before it, because rear-occipital brain damage happens far less frequently than frontal-lobe, as with head-on car crashes. So I’m navigating this new condition, once again, in the dark, literally, flying blind. 
+In more dark humor from fate, like the MDMA insomnia before it, Acquired Aphantasia is exceedingly rare because rear-occipital brain damage happens far less frequently than frontal-lobe, as with sports collisions and head-on car crashes. So I’m navigating this new condition, once again, in the dark, literally, flying blind. 
 
 After my fall, the scent of liability attracted hospital lawyers like sharks to blood, who, to cover-up errors, threw the book at me. I was strapped to a gurney, sent to a ward, and locked away for 40 days. Much of that time on “1:1,” which is like solitary confinement, but with a guard standing at arm's length, 24/7, even in the shower, even in bed. 
 
@@ -212,11 +212,11 @@ I was always loyal to my company and the people I share it with. They’ve been 
 
 But the last thing left to face is my heart.
 
-They say each of us has our elements. I’ve always been drawn to water and rock. The two pieces of land I love most — my cottage, and future home — are both wrapped by stone walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
+They say each of us has our elements. I’ve always been drawn to water and rock. The two views I love most on earth — my cottage, and future home — are both wrapped by stone walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
 
-As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of rocks by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
+As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of stones by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 
-Legend had it Crazy Ned was stuck in his endless loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood now seems almost a Biblical omen… this Sisyphus cursed by a pill to push stones against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
+Legend had it Crazy Ned was stuck in his endless rock loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood now seems almost a Biblical omen… this Sisyphus cursed by a pill to push stones against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
 
 But I never saw the sign.
 
@@ -234,7 +234,7 @@ Her face in the 1990 embassy school yearbook followed me for years. Those pierci
 
 Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, mesmerizing, deep, true. Bright like a diamond. A star made for me. 
 
-I came back to life too. Every note was a melody. Every word a poem. But the best thing that ever happened to me was followed by the worst. 
+I came back to life too. Every note was a melody. Every word a poem. Every kiss an attack. But the best thing that ever happened to me was followed by the worst. 
 
 Before the sleepless nights took my sirenesang away again, this time for good, the final words she said were… “I love you unconditionally.”
 

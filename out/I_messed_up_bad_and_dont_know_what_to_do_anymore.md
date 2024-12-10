@@ -1,0 +1,13 @@
+Two nights ago, I lost $25,000 gambling. I can’t explain how it happened or why I let myself get here, but now that it’s over, the weight of everything is crashing down on me. It wasn’t just money, it was my future, my security, and the trust of everyone around me.
+
+That $25,000 represented more than just a sum. It was the rent I had set aside for the next few months, a cushion I was slowly building to help my mom with her medical bills, and the savings I was trying to put together to get my life back on track. And just like that, all of it is gone. In one night, I lost it all.
+
+It started so harmlessly. A year ago, I began making small bets with friends just for fun. I never thought it would spiral into something more. Slowly, I started using it as an escape, an easy way to forget about the stress of daily life. The thrill of the win became something I looked forward to more than anything else. I kept telling myself, “Just one more win, and everything will be fine.” It’s crazy how a thought like that can take over your mind. Each loss felt like an invitation to chase after what I had lost, and every time I thought I was close, I dug myself deeper into a hole.
+
+I convinced myself that this time would be different. I thought I could finally turn things around. I placed a bet, thinking it was my moment. I bet big, believing that winning would fix all my problems. But instead, I just lost more. And then I made another bet, thinking that this next one would be the lucky break. By the time I realized what was happening, it was too late. The money I had worked so hard for was gone.
+
+The hardest part of all of this isn’t even the money. It’s the shame. The guilt of knowing that I’ve hurt the people who care about me. My mom, who’s been struggling with her health, was counting on me to help her with medical costs. Now, I’ve jeopardized that. I’ve let down friends who’ve helped me out in the past, people who believed in me and trusted me. I can’t shake the feeling that I’ve betrayed them all.
+
+I’m not sharing this to ask for pity or sympathy. I don’t deserve that. I just don’t know where else to turn. I’ve hit rock bottom, and I don’t know how to rebuild. All I can do is be honest about what happened, because if I don’t start being real with myself and others, I might never find my way out of this hole.
+
+I don’t know what comes next, but I know I can’t do this alone. I’m just hoping someone out there understands, even if it’s just to share some advice or words of support. I’m trying to figure out how to pick myself up and move forward, but right now, I’m just taking it one day at a time.

@@ -450,5 +450,6 @@ The demon moved jauntily to the well, where its strong arms began to roll the cr
 
 Baphomet lifted the girl from her bondage then sliced the rope with a razor-sharp fingernail. I hesitantly moved closer to the scene and removed my jacket.
 
+[Next](https://www.reddit.com/r/nosleep/comments/1hawej8/hiraeth_or_where_the_children_play_2/)
 
 [XXX](https://www.reddit.com/user/Edwardthecrazyman/comments/17qis3x/archive/)
