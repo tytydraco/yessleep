@@ -673,3 +673,5 @@ We’re back at the cabin now… I don’t know what’s going to happen next.
 &#x200B;
 
 Adam says we should try to get some sleep but I can’t… every time I close my eyes, I see Cody hanging in those branches… and I think about what happened the other night.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/GiCYg7Xwf1)
