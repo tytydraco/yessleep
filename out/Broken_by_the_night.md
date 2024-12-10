@@ -2,13 +2,13 @@ On January 12th, 2024, my happy, healthy, successful 43-year-old life was foreve
 
 This is a tale of party drugs. It’s also a life-and-death journey I could’ve never imagined in my wildest dreams. 
 
-Some will see my story as a case study at the intersection of science, medicine, pharma, and policy. Others, a harrowing dive into extremes of the human mind. 
+Some will see my story as a case study at the intersection of medicine, pharma, policy, and science. Others, a harrowing dive into extremes of the human mind. 
 
 As the one who lived it, telling this here, now, for the first time, ten months later, is my confession — assembling the shards of a shattered life and broken heart into one surreal mosaic. 
 
 Here goes…
 
-At my brother’s 50th birthday in Cabo, Mexico, along with other party guests, I was offered cocaine. By no means a user, I’m also not a novice. I’m a normal millennial who never looked for drugs, but not afraid to try something passed by friends.
+At my brother’s 50th birthday in Cabo, Mexico, along with other party guests, I was offered cocaine. By no means a user, I’m also not a novice. I’m a normal millennial who never looked for drugs, but also not afraid to try something passed by friends.
 
 For context, I’m a responsible, well-educated guy with a bunch of advanced degrees. I manage a small, thriving international company. This is not a brag, only to establish that until January I lived a drama-free life, successful by any metric. I’m also by nature an understated middle child, so making noise or having weird stuff happen is not my thing. Until that night, I’d coasted through life without anything big ever going wrong.
 
@@ -16,7 +16,7 @@ Being in my early 40s, my partying days have been over for a while, and January 
 
 During several hours at a place called Bagatelle, where the opening dinner of the three-day bash took place, I had a dozen+ lines/bumps of coke, sipping rum. It was a festive if over-the-top scene as our group of 40 danced atop the long birthday table, stepping over plates, while magnums of champagne carried between waiters were poured into mouths like parishioners taking communion. Not your typical Friday night, but all were having fun celebrating my bro. So chemically speaking, cocaine and alcohol were the first ingredients in my blood.
 
-As midnight approached, I was handed by a banker friend what I was told was MDMA brought from San Francisco. I’d taken molly twice in my life — once at a wedding in Prague, before that at a club in Aruba — and had good experiences. I didn’t particularly want to take it that night in Mexico, being late and tired from flying out of DC at the crack of dawn, having just gotten back from a trip to Cartagena… so I nearly said, “no thanks.”
+As midnight approached, I was handed by a banker friend what I was told was MDMA brought from San Francisco. I’d taken molly twice in my life — once at a wedding in Prague, before that at a club in Aruba — and had good experiences. I didn’t particularly want to take it that night in Mexico, being late and tired from flying out of DC at the crack of dawn, having just gotten back from Cartagena a few days before… so I nearly said, “no thanks.”
 
 But your brother only turns a half-century once, and I didn’t overthink it. I split the cap in half with my fingers, swallowed what I figured was a light dose, and kept on with the party.
 
@@ -58,9 +58,9 @@ Piece by piece, I removed as many stressors as I could think of in the hope that
 
 At work, I’d been doing what I could to keep on top of running a company, masking my increasingly drained appearance and depleted mental state — reminiscent of [Edward Norton’s workplace struggle with insomnia](https://youtu.be/8pDY_9u5Sn0) in Fight Club. Anyone who saw me in those days will know that the giveaway of this scene being fiction is Norton’s eyes aren’t nearly sunken enough, as mine had become.
 
-On days when I simply couldn’t function, I couched my absence as “migraines” among colleagues and friends — too embarrassed to say I wasn’t sleeping, something that comes naturally to everyone, including me for the 42 prior years. On top of this, I was ashamed by the source of my plight — a frivilous party drug, an admission I couldn’t broadcast beyond doctors. So I gutted it out in silence.
+On days when I simply couldn’t function, I couched my absence as “migraines” among colleagues and friends — too embarrassed to say I wasn’t sleeping, something that comes naturally to everyone, as it did me for the 42 prior years. On top of this, I was ashamed by the source  — a frivilous party drug, an admission I couldn’t broadcast beyond doctors. So I gutted it out in silence.
 
-Eventually, the mental and physical toll became unsustainable, and I had to start an indefinite leave of absence from the job I loved. I cut out all travel and commitments — canceling trips, reassigning roles, and appointing surrogates. Still, nothing I did to streamline my life changed the sleeplessness. I never yawned, nor got tired. And all I could ever manage was an hour or two of medicated sleep — holding out hope with each passing week that a new drug cocktail might finally bring restorative rest.
+Eventually, the mental and physical toll became unsustainable, and I had to start an indefinite leave of absence from the job I loved. I cut out all travel and commitments — canceling trips, reassigning roles, and appointing surrogates. Still, nothing I did to streamline my life changed the sleeplessness. I never yawned, nor got tired. All I could ever manage was an hour or two of medicated sleep — holding out hope with each passing week that a new drug cocktail might finally bring restorative rest.
 
 Across three months, I’d invested tens of thousands of dollars seeing all experts in a 4-hour radius of DC, most of whom don’t take insurance. Yet I was no closer to a solution, let alone a basic understanding of what medically I was facing. I went to hospital ERs, begging to be put into a coma for one night — as Jordan Peterson [had done in in Russia](https://nationalpost.com/health/jordan-peterson-benzodiazepines). But not being suicidal, despite insomnia as its biggest risk factor, I could never get past triage. I reduced my daily routine to the calmest activities, sushi diet, textbook sleep hygiene… no matter what I did to LuLuLemonify my life, I couldn’t sleep. It was a hell you can’t imagine, without relief — not one night.
 
@@ -128,13 +128,13 @@ Then, in a twist of dark humor from the universe (that even made Dr. Earley laug
 
 In spite of my self-induced asphyxiation, I was being kept on the hospital’s stroke unit — rather than its protected psych floor. It may have been my well-groomed appearance or polished manner that deceived doctors into not seeing the risk, ignoring what had just brought me in. And so that’s how, shortly before I was scheduled to be transferred to a trauma unit, on the afternoon of July 9, still in anoxic delirium, I broke free from the sitter assigned to watch me when distracted, and bolted to the 6th-floor exit down the hall. Without pause, I dove head-first down the stairwell center — figuring a six-story drop would end the suffering once and for all.
 
-But security chased and reached as I went over the ledge — catching my foot for a split second, just long enough before my sock slipped through their hands — that I flipped as I free-fell down the stairwell center. In mid-air somersaults I bounced off railings, zig-zagging my trajectory, so that I ended up landing headfirst 3 floors down, instead of free-falling 6 stories. 
+But security chased as I went over the ledge — catching my foot for a split second, just long enough before my sock slipped through their hands — that I flipped as I free-fell down the stairwell center. In mid-air somersaults I bounced off a railing, zig-zagging my trajectory enough that I ended up hitting headfirst 3 floors down, instead of free-falling 6 stories. 
 
 Shrieks from above sounded the alarm as doctors from every floor rushed to the stairwell. Peering down in disbelief, through my motionless, glazed eyes — against all odds — I had a pulse, still. 
 
-Somehow, going three floors didn’t kill me, as it did fellow musical soul Liam Payne recently. But when the back of my head hit concrete, it deviated my eyes in a way that makes 3D vision hard (called strabismus), and gave me “Acquired Aphantasia,” which means losing your mind’s eye. So, when I close my eyes now, I’m blind. The image of every memory I ever made was erased on impact. I can’t picture what anyone looks like, can’t envision the future, can’t lock onto my eyes in the mirror, am not able to absorb written words without saying them, can’t navigate without GPS, and a myriad of ways that shutting off your imagination reshapes you. Since I’ve been told my whole life I’m a “visual person,” losing this part of my brain feels like losing me.
+Somehow, going three floors didn’t kill me, as it did fellow musical soul Liam Payne recently. But when the back of my head hit concrete, it deviated my eyes in a way that makes 3D vision hard (called strabismus), and gave me “Acquired Aphantasia,” which means losing your mind’s eye. So, when I close my eyes now, I’m blind — the image of every memory I ever made was erased on impact. I can’t picture what anyone looks like, can’t envision the future, can’t lock onto my eyes in the mirror, am not able to absorb written words without saying them, can’t navigate without GPS, and a myriad of ways that shutting off your imagination reshapes you. Since I’ve been told my whole life I’m a visual person, losing this part of my brain feels like losing me.
 
-In more dark humor from fate, this new condition is exceedingly rare, like the MDMA insomnia before it. Acquired Aphantasia is uncommon in brain injuries because rear-occipital lobe damage happens far less frequently than frontal, as with head-on car crashes. So I’m navigating this new chapter, once again, in the dark, flying blind. 
+In more dark humor from fate, Acquired Aphantasia is exceedingly rare, like the MDMA insomnia before it, because rear-occipital brain damage happens far less frequently than frontal-lobe, as with head-on car crashes. So I’m navigating this new condition, once again, in the dark, literally, flying blind. 
 
 After my fall, the scent of liability attracted hospital lawyers like sharks to blood, who, to cover-up errors, threw the book at me. I was strapped to a gurney, sent to a ward, and locked away for 40 days. Much of that time on “1:1,” which is like solitary confinement, but with a guard standing at arm's length, 24/7, even in the shower, even in bed. 
 
@@ -176,7 +176,7 @@ For 999,999 people out there, since chances are slim, you’ll soon forget my st
 
 But for the next one-in-a-million, just maybe, my tale gives pause before plugging in chemicals with the power to reshape a mind. We each make our own choices, but from where I stand in its abyss, the mind is too fragile a supercomputer to toy with. It’s our universe, and because it surrounds us, it feels permanent, like the sun. But, truth is, we don’t understand our mind’s universe, let alone what can throw off its axis and rotation for good. I learned too late.
 
-I wish I never had this story to tell. I’d give up anything to turn back the hands of time. I’ve played that “what-if” reel on repeat ever since, sometimes every hour, every minute. I can’t change the past, but my story can help someone else’s future.
+I wish I never had this story to tell. I’d give up anything to turn back the hands of time. It’s a “what-if” reel I’ve replayed so often the film has burned thin. I can’t change the past, but my story can help someone else’s future.
 
 Did the system fail? No.
 
@@ -222,11 +222,11 @@ But I never saw the sign.
 
 And now the stars — even Karlvagn — have all gone out.  
 
-In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, for alltid, forever, our dreamland, island, homeland, foreland, play-land, heartland, elskland, our everything, elsklingdom.
+In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, alt vaart, all the time in the world, alltid and for evig, our dreamland, island, homeland, foreland, play-land, heartland, elskland, our everything, elsklingdom.
 
-I was [the luckiest](https://youtu.be/ISMnfcnX6Ng). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, carried off, a thief in the night, night after night, endlessly, until she vanished… the ruins of insomnia.
+I was [the luckiest](https://youtu.be/ISMnfcnX6Ng). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, carried off, a thief in the night, night after night, endlessly, until it vanished… the ruins of insomnia.
 
-I spent 2nd and 3rd grade in India. Each day at school my eyes caught a little blond girl in shy glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and we became each other’s first kiss. Those were the best days of childhood. 
+I spent 2nd and 3rd grade in India. Each day at school my eyes caught a little blond girl in shy glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
 
 But just as our story was beginning, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called from a pay phone to tell her. No one was home. I never got to say goodbye. 
 
@@ -234,7 +234,9 @@ Her face in the 1990 embassy school yearbook followed me for years. Those pierci
 
 Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, mesmerizing, deep, true. Bright like a diamond. A star made for me. 
 
-I came back to life too. Every note was a melody. But the best thing that ever happened to me was followed by the worst. Before the sleepless nights took my sirenesang away again, this time for good, the final words she said were… “I love you unconditionally.”
+I came back to life too. Every note was a melody. Every word a poem. But the best thing that ever happened to me was followed by the worst. 
+
+Before the sleepless nights took my sirenesang away again, this time for good, the final words she said were… “I love you unconditionally.”
 
 I will never forget. My first light. My last light.
 
@@ -252,7 +254,7 @@ There is one difference. All know sleep. Few ever know true love. I couldn’t k
 
 One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesyk, but never lovelorn. ‘Cause I did it to myself. That… is the hardest pill to swallow.
 
-This December, every carol echoes a bittersweet memento to the final weeks of shining eyes one year ago, before my story began. I miss those nights like you can’t imagine. Last year’s nocturnes were the shooting stars of a light-filled universe — set ablaze, then vanquished and gone. I’ll never get those starbursts back, my heartlight, the shining eyes, or why they slipped away.
+This December, every carol echoes a bittersweet memento to the final weeks of shining eyes one year ago, before my story began. I miss those nights like you can’t imagine. Last year’s nocturnes were the shooting stars of a light-filled universe, set ablaze, then vanquished and gone. I’ll never get those starbursts back — my heartlight, the shining eyes — or why they slipped away.
 
 Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Spotless Mind](https://youtu.be/yE-f1alkq9I). Meet me in Montauk.
 
@@ -266,6 +268,10 @@ sitter paa maanen
 
 elsklingen min
 
+ceaseless
+
 aldri slutt
+
+siste lys
 
 natta
