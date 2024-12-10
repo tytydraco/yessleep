@@ -1,5 +1,7 @@
 [\[Part 3\]](https://www.reddit.com/user/RandomAppalachian468/comments/1h9dint/the_call_of_the_breach_part_3/)
 
+[\[Part 5\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hb7adf/the_call_of_the_breach_part_5/)
+
 “Creepy.”
 
 Dark bags lined her green eyes, and Jamie paged through the first couple entries of the black diary with a furrowed brow in the small room that made up her ‘cell’. The parsonage was warm, thanks to the multiple small woodstoves that had been installed throughout the building, and yet I couldn’t shake an icy prickle that cut me to the heart every time I looked at my best friend’s pale face. She hadn’t slept much either, even with the cozy bedstead that came with her room, and a tray of food lay untouched on the nightstand close by. The window behind her had been boarded up, more for Jamie’s protection than to prevent an escape, but thin rays of fading light from the sunset trickled through in floating, bloody lines.

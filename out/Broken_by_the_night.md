@@ -20,7 +20,7 @@ As midnight approached, I was handed by a banker friend what I was told was MDMA
 
 But your brother only turns a half-century once, and I didn’t overthink it. I split the cap in half with my fingers, swallowed what I figured was a light dose, and kept on with the party.
 
-Biggest mistake of my life. Across all years. The one that changed everything… Even Dostoyevsky couldn’t have foreseen what lay ahead.
+Biggest mistake of my life. Across all years. The one that changed everything.
 
 When added to the cocaine, MDMA instantly had a negative effect. In my two previous rolls, I hadn’t mixed it. This time I felt an overwhelming anxiety never known in my life.
 
@@ -74,7 +74,7 @@ I felt like I’d beaten the scariest thing I’d ever faced, and for two weeks,
 
 A few weeks later, in June, I was finally able to see the chief sleep neurologist at Johns Hopkins Medicine, Dr. Christopher Earley, who I’d been trying to get in with for months but is booked a year in advance as the national authority on sleep science and the brain. A family friend on the Hopkins board helped get me up the list.
 
-On hearing my story, after examining the details of my chart, and consulting with his colleague at Hopkins, neurologist [George Ricaurte](https://karger.com/nps/article-abstract/42/1/5/232593/3-4-Methylenedioxymethamphetamine-Ecstasy-Induced?redirectedFrom=fulltext) — a well-known researcher on methamphetamine and MDMA neurotoxicity since the 90s — Dr. Earley told me what I’d taken that night in Mexico caused a “one-in-a-million” reaction in my brain. When combined with the volatile punch of dopamine from cocaine, MDMA created a Serotonin Syndrome that fried 5-HT system through devastating neurotoxicity. Serotonin controls sleep in a way that requires a delicate balance to get right. This is why a few days of insomnia after molly is common — just not permanent. For most people, down-regulated 5-HT proteins restore quickly; but in rare cases, irreversible neurosis can occur. Dr. Earley told me I wasn’t the first he’d seen and referred to cases in the medical literature about a range of neurological disorders from even one-time MDMA use.
+On hearing my story, after examining the details of my chart, and consulting with his colleague at Hopkins, neurologist [George Ricaurte](https://karger.com/nps/article-abstract/42/1/5/232593/3-4-Methylenedioxymethamphetamine-Ecstasy-Induced) — a well-known researcher on methamphetamine and MDMA neurotoxicity since the 90s — Dr. Earley told me what I’d taken that night in Mexico caused a “one-in-a-million” reaction in my brain. When combined with the volatile punch of dopamine from cocaine, MDMA created a Serotonin Syndrome that fried 5-HT system through devastating neurotoxicity. Serotonin controls sleep in a way that requires a delicate balance to get right. This is why a few days of insomnia after molly is common — just not permanent. For most people, down-regulated 5-HT proteins restore quickly; but in rare cases, irreversible neurosis can occur. Dr. Earley told me I wasn’t the first he’d seen and referred to cases in the medical literature about a range of neurological disorders from even one-time MDMA use.
 
 With candor I appreciated, Dr. Earley couldn’t say if my brain would ever recover, why Lexapro helped, then stopped, or if anything would let me sleep again. Seeing the exhaustion in my eyes, he agreed to treat me on “an experimental basis,” and ordered a weeklong sleep-study for more data. Becoming the test patient to one of America’s most seasoned neurologists was both affirming, given the extremes I’d been through in my search for a cure, and terrifying, for what it signaled about the road ahead.
 
@@ -118,7 +118,7 @@ At the end of my third week in The Retreat outside of Baltimore, in early July, 
 
 Despite sharing a growing belief that my end was drawing near, and petrified family members calling doctors to warn of the despair they heard in my voice and feared was coming next — naively, nurses had loaned me a 14-foot charger cable.
 
-Outside, in some woods nearby, out of view, I fastened the cable to a sturdy branch on an overturned log above a stream, doubled it twice around my neck, and rolled my body off the edge. I’ve always connected to water, so suspending above a trickling creek felt like the most peaceful place on campus to quietly say goodbye. I passed out as the noose caught and cinched tight. 
+Outside, in some woods nearby, out of view, I fastened the cable to a sturdy branch on an overturned log above a stream, doubled it twice around my neck, and rolled my body off the edge. I’ve always been drawn to water, so suspending above a trickling creek felt like the most peaceful place on campus to say goodbye. I passed out as the noose caught and cinched tight. 
 
 Sometime later — no one knows how long — one of the cords snapped, then the other, and I fell. Two bursts of orange flooded my head in flashes of the most intense pain I’ve ever known as consciousness returned. My eyes popped open and I jolted back to life, like a scene from a movie. But the right side of my body was numb, I had twitching fingers, double vision, pulsating pupils, uncontrollable shivering, and other weird thermodynamic effects from starving my brain of oxygen long enough to shut it down. This was all later diagnosed as an anoxic brain injury to my left hemisphere.
 
@@ -146,7 +146,7 @@ Given my apparent penchant for transforming medical campuses into deathtraps, wa
 
 I did my time, and eventually, six weeks later, was released in mid-August. Since then, I’ve survived by planting and cutting trees on acreage I own, and long adventures with my dog [Peanut](https://www.instagram.com/theotterholt/) — trying to keep at bay depression’s downward pull of gravity on a level I never knew existed in this world. Worn out by what’s become a year without rest, now navigating unsettling deficits of a new brain trauma — I keep thinking back to my life before this all started, and the dreams I had to leave behind along the way. I can’t understand why any of it happened, and I’m not able to sleep much, still...
 
-Most recently, I’ve spent September, October, and November fighting poison with poison — doing every last-ditch brain-reset known to man, including six weeks of TMS, five weeks of Ketamine, four Stellate Ganglion Block neck injections (used by military for PTSD), and soon, triweekly [ElectroConvulsive shock](https://www.youtube.com/watch?v=DCUmINGae44) under general anesthesia. All that’s missing for Christmas are two turtle-doves and a partridge in a pear tree. 
+Most recently, I’ve spent September, October, and November fighting poison with poison — doing every last-ditch brain-reset known to man, including six weeks of TMS, five weeks of Ketamine, four Stellate Ganglion Block neck injections (used by military for PTSD), and soon, triweekly [ElectroConvulsive shock](https://youtu.be/DCUmINGae44) under general anesthesia. All that’s missing for Christmas are two turtle-doves and a partridge in a pear tree. 
 
 But no brain-reset touches me. My mind’s blank. My heartlight’s out. There are no more stars in the sky.
 
@@ -188,13 +188,13 @@ Most importantly, No, in that there’s not a neurobiologist on earth who unders
 
 Did the system fail? It did.
 
-It did, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
+Yes, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
 
-It did, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
+Yes, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
 
-It did, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had I arrived with that in my bags, it would have been confiscated for the glaring risk. 
+Yes, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had I arrived with that in my bags, it would have been confiscated for the glaring risk. 
 
-It did, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
+Yes, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
 
 My story’s worth telling if for no other reason than the questions that intersect in it across medicine, policy, pharma, drugs, health, and brain science.
 
@@ -204,15 +204,15 @@ I was remembering the people and places I love.
 
 The story’s told. How to move on…
  
-Growing up, my older brother was the daredevil, the risk-taker. He led me down our hilly driveway on a skateboard, showed me how to shoot a BB-gun, shotgun beer, drive fast, climb 20-story cranes, draft down steep roads on a bike, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. 
+Growing up, my older brother was the daredevil, the risk-taker. He led me down our hilly driveway in McLean on a skateboard, we got marooned overnight on a jungle island in the Arabian Sea, he showed me how to shoot BB-guns, drive fast, shotgun beer, climb 20-story cranes, draft down steep roads on a bike, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. 
 
-I survived so many crazy nights, but not his 50th. We haven’t spoken since. It’s not his fault. No one knew.
+I survived so many wild nights unscathed, but not his 50th. We haven’t spoken since. It’s not his fault. Even Dostoyevsky couldn’t have foreseen what lay ahead.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
 The last thing left to face is my heart...
 
-They say each of us has our elements. I’ve always been drawn to water and rock. The two views I love most on earth — my cottage, and future home — are both wrapped by stone walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
+They say each of us has our elements. For me they are water and rock. The two views I love most on earth — my cottage, and future home — are both wrapped by stone walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
 
 As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of stones by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 
@@ -222,11 +222,11 @@ But I never saw the sign.
 
 And now the stars — even Karlvagn — have all gone out.  
 
-In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, alt, alltid and for evig, our dreamland, island, homeland, foreland, play-land, heartland, elskland, our everything, elsklingdom.
+In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, alltid and forevig, our dreamland, island, homeland, foreland, playland, heartland, elskland, our everything, elsklingdom.
 
 I was [the luckiest](https://youtu.be/ISMnfcnX6Ng). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, carried off, a thief in the night, night after night, endlessly, until it vanished… the ruins of insomnia.
 
-I spent 3rd grade in India. Each day at school my eyes caught a little blond girl in shy glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
+I spent 3rd grade in India. Each day at school my eyes caught a blond girl in shy glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
 
 But just as our story was beginning, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called from a pay phone to tell her. No one was home. I never got to say goodbye. 
 
@@ -234,13 +234,13 @@ Her face in the 1990 embassy school yearbook followed me for years. Those pierci
 
 Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, mesmerizing, deep, true. Bright like a diamond. A star made for me. 
 
-I came back to life too. Every note was a melody. Every word a poem. Every kiss an attack. But as that new old story was starting, just like before, only magnified, the best thing to ever happen to me was followed by the worst. 
+I came back to life too. Every note was a melody. Every word a poem. Every kiss an attack. But as that story was starting, just like before, only magnified, the best thing that ever happened to me was followed by the worst. 
 
 Before the sleepless nights took my sirenesang away again, this time for good, her final words were… “I love you unconditionally.”
 
-I’ll never forget. My first light. My last light.
+I’ll never forget. My first-light. My last-light.
 
-On another earth, one where I didn’t take the orange pill, we’re still in drømland, together, [liebesträum](https://youtu.be/FZ651tNXp0Y).
+On another earth, one where I didn’t take the orange pill, we’re still in drømland, sammen, [liebesträum](https://youtu.be/FZ651tNXp0Y).
 
 But here, in this parallel universe, the upside-down — all is gone. Even the ghost and me.
 
@@ -260,7 +260,7 @@ Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Sp
 
 Until then, red wine and sleeping pills help me get back to your arms. [Maybe I will see you in the next life.](https://youtu.be/EcSvMFm2ABE)
 
-kjærlighet ved første blikk
+kjærlighet ved fœrste blikk
 
 skrevet i stjernene
 
@@ -268,9 +268,9 @@ sitter paa maanen
 
 elsklingen min
 
-ceaseless
+unendilige 
 
-aldri slutt
+ceaseless
 
 siste lys
 
