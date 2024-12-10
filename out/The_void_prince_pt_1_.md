@@ -1,0 +1,31 @@
+  The events of the past few years of my life have changed my understanding of how thing work forever...
+
+2020/age:19
+
+The sun beamed into my eyes as I awoke. Disappointing honestly that I'm not dead. I sit up for a moment, catching my breath. Waking up always feels like such a violent experience, like my body physically hates being awake and feels better in slumber. Probably has a lot to do with my depression but who's worried about that? I had to get ready for work, again. I begrudgingly stand up and put pants and a shirt on, then make my way to the bathroom for the usual morning piss. I looked out the window at the sky to check the weather because I cant be bothered checking the forecast anymore these days. 'Looks fine, a couple of clouds are in the sky but nothing looks dark or stormy, so that's good at least.'  
+
+I finished getting ready and gathering my things together to head to work, an hour drive there if I'm lucky, if there's any traffic though I'm for sure going to be late.  With that in mind, I went to work, dissociating on the road to make the time go by faster, and so I don't have to get into my own head too much.  I do that a lot, get in my own head. too much for my own good sometimes. I can't control myself, and all of the intrusive thoughts come flooding in like the blood out of the elevator in "The Shining."  Then it's just a fight not to let them win and let them take control. Though sometimes I wonder: what if i did let them win for once? Could it really be all that bad?
+
+What if I finally show all of these mother fuckers who I really am? What if I finally get to be the center of attention for once? Instead of being locked in the background of my own FUCKING story.
+
+|Is this really what you feel  
+
+The deep, breathy voice rang in my head like a dark and dank omnipotent presence. By the Gods... I went Spiraling again didn't I? sigh. 
+|I       can       make everyone   r  e   g   r    e  t     that they ever did you wrong, you'll be successful, but in order to do so you must suffer|
+
+What the actual fuck is happening right now? I shook my head and gave my temple a firm smack so I knew I wasn't dreaming.  Apparently I made it to work, don't know how, but I did. The day went on as usual with no other weird disembodied voices booming in my mind like a narrator for some 80's style dark fantasy. I clocked out of work and heard it again on the way to my car: 
+
+|d o n t  i g n o r e  m3 p e A       s       a        n    t|
+
+'Okay, first of all no need to call me names; second of all who the hell are you? '
+
+"What did you say?" my coworker chimed in. 
+
+"Did I say that out loud? Oh gods" I panicked and got in my car and darted back home as fast as I could. It was about 5 miles away from my house when I noticed other things happening. First. the highway street lamps seemed to be growing and shrinking at random as I passed them. Then,  I noticed there were no other cars on the highway around me...It's supposed to be rush hour traffic right now and I'm cruising comfortably around 5 mph over the speed limit. This isn't normal. Nothing is normal. Then, a shadow wafted around me life a sheet of rain, at this point I pull over and look up, because, what the fuck? 
+
+There it is.... the sun.... I could see it so clearly because it had turned black (reminds me of Soundgarden), but it was still undulating and pulsing with plasma, but the rays emitting had turned a deep purple, like someone had turned the sun into a giant black light for some reason, the trees started to glow with a purple-white and green fluorescence, everything else having that hauntingly purple-white glow around it. I looked around, still no one, but a looming sense of doom shrouded me in a veil of anxiety. I swiftly got back in my car, taking a moment to catch my breath. what the fuck what the fuck what the fuck what the fuck?!?!?!?! 
+
+ I started doing my breathing techniques, in....out....hold.......in...hold...out...etc... and counting my fingers: five on the right, one. two. three. four. five....five on the left, one. two. three. four. five. ok, I'm not dreaming so my panic is valid..... just breathe it out.  I drove home taking deep, slow, shaky breaths and watching the road in front of me start.... breathing? The ground raising and lowering like a breathing chest. As I got closer to home, Only just around the corner now, you got this, the breathing waves of road got deeper and deeper, slowly but surely, as if I were getting closer to the source. 
+
+I made this playlist on a gut feeling last week and it's certainly sets the mood for what has transpired today. Lost time, and disembodied voices?! Wtf?
+https://open.spotify.com/playlist/4immunJ0ZwY2qgexQz0E20?si=apMWRYJ2SGGGvNVtKxEXyA&pi=n6k-iQU8R2Sox
