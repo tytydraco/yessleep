@@ -1,4 +1,6 @@
-I settled myself on the huge neon bouncy gym ball for some, tightened my core muscles and moved my legs. I was still panting, dripping with sweat from my session on the elliptical. I turned to the mirror to check my form, and out of nowhere, this large girl dressed in pink and taupe gym gear barged into the ball, like a bear. I can’t quite describe how she just appeared and bodied me.
+I settled myself on the huge neon bouncy gym ball, tightened my core muscles and moved my legs. I was still panting, dripping with sweat from my session on the elliptical. I turned to the mirror to check my form, and out of nowhere, a large girl dressed in pink and taupe gym gear barged into the ball, like a bear.
+
+ I can’t quite describe how she just appeared and bodied me.
 
 “Hey!” I cried, angry and confused, struggling to regain my balance on the ball while pushing her away.
 
@@ -32,7 +34,7 @@ Too late. The weights smashed down as a howl of agony rose, penetrating through 
 
 They told us to leave before the paramedics arrived.
 
-All night I dreamt of the large ghost in the gym, causing havoc and injury. Had she died there? How?
+All night I dreamed of the large ghost in the gym, causing havoc and injury. Had she died there? How?
 
 Against my better judgment I went back the next day. I did the same routine, the elliptical getting me sweating and flushed, and went over to the mirror in front of the huge bouncy gym balls. One of them seemed deflated, sagging sideways, and I felt the rush of fear in me again.
 
@@ -57,5 +59,3 @@ The ball next to me she was seated on changed shape, and I knew she was copying 
 “Promise!” I felt her grip my mind. But the fear was ebbing.
 
 I promised.
-
- 

@@ -52,7 +52,7 @@ I spiraled after their death. Grief does strange things to people—makes them r
 
 The pregnancy test came back positive six weeks later.
 
-The symptoms started immediately, and they were eerily familiar from my mother's diary entries. Like her, I developed an insatiable craving for raw meat. I fought it. New it had to be bad for the baby. My mind searches for answers in science—perhaps I had an iron deficiency, and needed a protein boost. Maybe there was a genetic component. I held out for almost two months before I gave it, and fuck me, it was the best thing I’d ever tasted. I'd find myself standing in my kitchen at 3 AM, blood dripping down my chin as I devoured raw chicken hearts I’d bought for the dogs. The fever came next—a constant, low-grade burn that no doctor could explain. My skin would bruise at the slightest touch.
+The symptoms started immediately, and they were eerily familiar from my mother's diary entries. Like her, I developed an insatiable craving for raw meat. I fought it. Knew it had to be bad for the baby. My mind searches for answers in science—perhaps I had an iron deficiency, and needed a protein boost. Maybe there was a genetic component. I held out for almost two months before I gave it, and fuck me, it was the best thing I’d ever tasted. I'd find myself standing in my kitchen at 3 AM, blood dripping down my chin as I devoured raw chicken hearts I’d bought for the dogs. I loved the sound they made—sinew and muscle giving way beneath my teeth. The fever came next—a constant, low-grade burn that no doctor could explain. My skin would bruise at the slightest touch.
 
 But there were new symptoms too, ones my mother hadn't experienced. I started having dreams—horrible, vivid dreams of dark underground rooms where something waited in the shadows. It wasn’t a memory, I knew that—but it *was* real. I knew that too, somehow.
 
@@ -142,7 +142,7 @@ I held on until the bubbles stopped.
 
 And then I ran.
 
-I don’t know what I’m doing. I want to die. I should die. I shouldn’t be. I’m standing under a bridge somewhere downtown—did I mention that?—I’m wet and I just killed my daughter, only she wasn’t, or is, but something else as well.
+I don’t know what I’m doing. I want to die. I should die. I shouldn’t be in the first place. I’m standing under a bridge somewhere downtown—did I mention that?—I’m wet and I just killed my daughter, only she wasn’t, or she is, but she’s also something else as well.
 
 To anyone reading this—if you've escaped from the Brides of Christendom, if you carry their bloodline, please: don't have children. Don't let them complete their circles of seven. Something is coming, something ancient and hungry, and it's using our daughters as doorways.
 
