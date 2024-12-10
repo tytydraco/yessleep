@@ -2,7 +2,7 @@ In the late summer of 1987, Miami pulsed with neon lights, sweaty bodies, and th
 
 It started with a call on a sweltering Tuesday night. A girl had gone missing from a seedy South Beach club called Eclipse. The owner, some hotshot named Marco, claimed she was last seen leaving with a man nobody could describe. Blond hair? Maybe. A leather jacket? Maybe not. People’s memories get fuzzy after four drinks and a line of powder.
 
-Her name was Teresa Alonzo, 19, a dancer from Hialeah. The kind of girl who thought she’d come to Miami to make it big but wound up slinging drinks in a bikini instead. We found her car parked three blocks from the club, but no sign of her. That wasn’t unusual—people disappeared in Miami all the time. But then the second girl vanished, and the third. All of them were last seen at Eclipse.
+Her name was Teresa , 19, a dancer from Hialeah. The kind of girl who thought she’d come to Miami to make it big but wound up slinging drinks in a bikini instead. We found her car parked three blocks from the club, but no sign of her. That wasn’t unusual—people disappeared in Miami all the time. But then the second girl vanished, and the third. All of them were last seen at Eclipse.
 
 Marco swore up and down he didn’t know anything, but the fear in his eyes said otherwise. He told me about rumors. Whispers about a woman who’d show up every few months, always in the same black dress, always alone. Men would approach her, drawn like moths to a flame, but she never left with anyone. “She’s bad luck,” Marco muttered, wringing his hands. “Every time she shows up, someone disappears.”
 

@@ -48,7 +48,7 @@ After two weeks, I knew in my gut something big was up. After seeing my family d
 
 This process repeated for the next month as I worked with a growing roster of psychiatrists and sleep neurologists who wrote scripts for sequentially more heavily controlled meds. These trials included every sedative under the sun. I won’t re-list them, suffice to say, I left no stone unturned. Just the categories of sleep-inducing Rxs I cycled through, searching with doctors for one that worked, included orexin inhibitors, adrenergic receptor agonists, benzodiazepines, z-drugs, beta blockers, tricyclics, tetracyclics, melatonin modulators, antiepileptics, anticonvulsants, antipsychotics, and, eventually, full-on anesthetics — a la Michael Jackson. I had every bloodwork panel done, a sleep study (sleeping 50 minutes across the night), an MRI, EEG, hired a CBTi coach, etc… nothing helped or provided doctors any insight into what had happened in my brain.
 
-By the three-month mark, I’d trialed 40+ prescriptions off-label. Here let me explain how so-called “psych drugs” work. When prescribed “on-label” for mood disorders like depression, anxiety, and bipolar, these drugs take weeks, if not months, to work. But when prescribed “off-label” for the sole purpose of promoting sleep, these same drugs either work or don’t on the first night, providing diminishing returns as tolerance builds. That’s how I was able, under doctor supervision, to test every hypnotic Rx in existence over 90 days, searching for an illusive solution.
+By the three-month mark, I’d trialed 40+ prescriptions. Here let me explain how so-called “psych drugs” work. When prescribed “on-label” for mood disorders like depression, anxiety, and bipolar, these drugs take weeks, if not months, to work. But when prescribed “off-label” for the sole purpose of promoting sleep, these same drugs either work or don’t on the first night, providing diminishing returns as tolerance builds. That’s how I was able, under doctor supervision, to test every hypnotic Rx in existence over 90 days, searching for an illusive solution.
 
 The newest “designer” meds, like the DORAs, had to be specially ordered by the pharmacy. I was becoming so desperate for sleep as weeks past that for one called Quviviq (which had helped Matthew Perry), and insurance wouldn’t cover, I shelled out $1k not knowing if it would work… it didn’t.
 
@@ -62,7 +62,7 @@ On days when I simply couldn’t function, I couched my absence as “migraines�
 
 Eventually, the mental and physical toll became unsustainable, and I had to start an indefinite leave of absence from the job I loved. I cut out all travel and commitments — canceling trips, reassigning roles, and appointing surrogates. Still, nothing I did to streamline my life changed the sleeplessness. I never yawned, nor got tired. All I could ever manage was an hour or two of medicated sleep — holding out hope with each passing week that a new drug cocktail might finally bring restorative rest.
 
-Across three months, I’d invested tens of thousands of dollars seeing all experts in a 4-hour radius of DC, most of whom don’t take insurance. Yet I was no closer to a solution, let alone a basic understanding of what medically I was facing. I went to hospital ERs, begging to be put into a coma for one night — as Jordan Peterson [had done in in Russia](https://nationalpost.com/health/jordan-peterson-benzodiazepines). But not being suicidal, despite insomnia as its biggest risk factor, I could never get past triage. I reduced my daily routine to the calmest activities, sushi diet, textbook sleep hygiene… no matter what I did to LuLuLemonify my life, I couldn’t sleep. It was a hell you can’t imagine, without relief — not one night.
+Across three months, I’d invested tens of thousands of dollars seeing all experts in a 4-hour radius of DC, most of whom don’t take insurance. Yet I was no closer to a solution, let alone a basic understanding of what medically I was facing. I went to hospital ERs, begging to be put into a coma for rest — as Jordan Peterson [had done in in Russia](https://nationalpost.com/health/jordan-peterson-benzodiazepines). But not being suicidal, despite insomnia as its biggest risk factor, I could never get past triage. I reduced my daily routine to the calmest activities, sushi diet, textbook sleep hygiene… no matter what I did to LuLuLemonify my life, I couldn’t sleep. It was a hell you can’t imagine, without relief — not one night.
 
 By mid-April, month four, encouraged by my doctors and the few people I’d let into my struggle, I took the next step and checked myself into a series of private hospital residencies to treat this mysterious condition with 24-hour care. Across the past two decades, I might have taken four sick days total. So flying to a clinic, let alone leaving work for weeks, was out of character to say the least.
 
@@ -142,7 +142,7 @@ Still in a trance from my head colliding with cement, I thought about Moses in t
 
 When strong enough to walk, I walked in circles. Endlessly. Sam's voice beside me brought periodic news of the outside, beyond the walls… an assassin shot Trump at a rally, but the bullet grazed his ear… a giant bridge across the Chesapeake collapsed nearby, cars dropping into the water as stones into a pond. My world — inside and out — had become magical realism, One Hundred Years of Solitude. Fiction morphed into fact in this Borgesian labyrinth. My sleepless life had become the requiem for a dream.
 
-Given my apparent penchant for transforming medical campuses into deathtraps, ward leadership was terrified of a lawsuit. So that meant all eyes on me, day and night, a never-ending watch. My life was paper scrubs, paper spoons, rubber mattress, plastic pillow, no sheets, metal toilet, no lid, Stockholm shower, no curtain. Strip searches at sunup and sundown. The pattern repeated, day after day after day. I’d become their Al Capone… Hannibal Lecter, without the Goldberg Variations as company… the Kurt Cobain of insomnia. But their overzealous posturing didn’t matter. The time to save me came and went before I arrived.
+Given my apparent penchant for transforming medical campuses into deathtraps, ward leadership was terrified of a lawsuit. So that meant all eyes on me, day and night, a never-ending watch. My life was paper scrubs, paper spoons, rubber mattress, plastic pillow, no sheets, metal toilet, no lid, Stockholm shower, no curtain. Strip searches at sunup and sundown. The pattern repeated, day after day after day. I’d become their Al Capone… Hannibal Lecter, without the Goldberg Variations as company… the Kurt Cobain of insomnia. But their overzealous posturing didn’t matter. The moment to save me came and went before I arrived.
 
 I did my time, and eventually, six weeks later, was released in mid-August. Since then, I’ve survived by planting and cutting trees on acreage I own, and long adventures with my dog [Peanut](https://www.instagram.com/theotterholt/) — trying to keep at bay depression’s downward pull of gravity on a level I never knew existed in this world. Worn out by what’s become a year without rest, now navigating unsettling deficits of a new brain trauma — I keep thinking back to my life before this all started, and the dreams I had to leave behind along the way. I can’t understand why any of it happened, and I’m not able to sleep much, still...
 
@@ -158,9 +158,9 @@ The harder they come, the harder they fall. The happy, go-lucky me of December 2
 
 My story from one night of party drugs may rank among the most life-changing neurotoxic reactions of all time. I’m the exception to the rule, not the rule.
 
-But I’m also not alone. Not the only one.
+I’m also not the only one.
 
-The world is full of terrified people experiencing lasting insomnia from MDMA. [Here’s](https://www.reddit.com/r/lexapro/s/l88p1xECmC) one, here’s [another](https://www.reddit.com/r/insomnia/s/R77cNigJ0y), all variations on the same theme. Most testimonies get shot down by a mob who doubt the same drug they love could do so much damage. You can’t understand until it happens to you. I’ve since discovered so many lives broken by this chemical’s dark side.
+The world is full of terrified people experiencing lasting insomnia from MDMA. [Here’s](https://www.reddit.com/r/lexapro/s/l88p1xECmC) one, here’s [another](https://www.reddit.com/r/insomnia/s/R77cNigJ0y), all variations on the same theme. Most testimonies get shot down by a mob who doubt the drug they love could do so much damage. You can’t understand until it happens to you. I’ve since discovered so many lives broken by this chemical’s dark side.
 
 If you look up NIH case reports, you’ll find things like permanent [anxiety disorders](https://pmc.ncbi.nlm.nih.gov/articles/PMC5968564/) and intractable [psychosis](https://pmc.ncbi.nlm.nih.gov/articles/PMC3304680/) brought on by even one-time MDMA use in otherwise healthy people, as I was.
 
@@ -176,7 +176,7 @@ For 999,999 people out there, since chances are slim, you’ll soon forget my st
 
 But for the next one-in-a-million, just maybe, my tale gives pause before plugging in chemicals with the power to reshape a mind. We each make our own choices, but from where I stand in its abyss, the mind is too fragile a supercomputer to toy with. It’s our universe, and because it surrounds us, it feels permanent, like the sun. But, truth is, we don’t understand our mind’s universe, let alone what can throw off its axis and rotation for good. I learned too late.
 
-I wish I never had this story to tell. I’d give up anything to turn back the hands of time. It’s a “what-if” reel I’ve replayed so often the film has burned thin. I can’t change the past, but my story can help someone else’s future.
+I wish I never had this story to tell. I’d give up anything to turn back the hands of time. It’s a “what-if” reel I’ve replayed so often the film has burned. I can’t change the past, but my story can help someone else’s future.
 
 Did the system fail? No.
 
@@ -188,13 +188,13 @@ Most importantly, No, in that there’s not a neurobiologist on earth who unders
 
 Did the system fail? It did.
 
-Yes, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
+It did, in that 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
 
-Yes, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
+It did, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
 
-Yes, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had I arrived with that in my bags, it would have been confiscated for the glaring risk. 
+It did, in that nurses at high-end facility loaned me a 14-foot cable, knowing I was approaching the breaking point from no sleep. Had I arrived with that in my bags, it would have been confiscated for the glaring risk. 
 
-Yes, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
+It did, in that I turned myself in to an ER in self-induced anoxia, only to be assigned a room beside a six-story stairwell — when an entire trap-proof floor existed for patients experiencing delirium.
 
 My story’s worth telling if for no other reason than the questions that intersect in it across medicine, policy, pharma, drugs, health, and brain science.
 
@@ -204,13 +204,13 @@ I was remembering the people and places I love.
 
 The story’s told. How to move on…
  
-Growing up, my older brother was the daredevil, the risk-taker. He led me down our hilly driveway on a skateboard, showed me how to shotgun beer, drive fast, chop Ritalin into lines, took me climbing 20-story cranes, and, with rolled $100 bills from summer life-guarding, how to blow coke. 
+Growing up, my older brother was the daredevil, the risk-taker. He led me down our hilly driveway on a skateboard, showed me how to shoot a BB-gun, shotgun beer, drive fast, climb 20-story cranes, draft down steep roads on a bike, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. 
 
 I survived so many crazy nights, but not his 50th. We haven’t spoken since. It’s not his fault. No one knew.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
-But the last thing left to face is my heart.
+The last thing left to face is my heart...
 
 They say each of us has our elements. I’ve always been drawn to water and rock. The two views I love most on earth — my cottage, and future home — are both wrapped by stone walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
 
@@ -222,11 +222,11 @@ But I never saw the sign.
 
 And now the stars — even Karlvagn — have all gone out.  
 
-In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, alt vaart, all the time in the world, alltid and for evig, our dreamland, island, homeland, foreland, play-land, heartland, elskland, our everything, elsklingdom.
+In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, alt, alltid and for evig, our dreamland, island, homeland, foreland, play-land, heartland, elskland, our everything, elsklingdom.
 
 I was [the luckiest](https://youtu.be/ISMnfcnX6Ng). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, carried off, a thief in the night, night after night, endlessly, until it vanished… the ruins of insomnia.
 
-I spent 2nd and 3rd grade in India. Each day at school my eyes caught a little blond girl in shy glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
+I spent 3rd grade in India. Each day at school my eyes caught a little blond girl in shy glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
 
 But just as our story was beginning, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called from a pay phone to tell her. No one was home. I never got to say goodbye. 
 
@@ -234,17 +234,17 @@ Her face in the 1990 embassy school yearbook followed me for years. Those pierci
 
 Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, mesmerizing, deep, true. Bright like a diamond. A star made for me. 
 
-I came back to life too. Every note was a melody. Every word a poem. Every kiss an attack. But the best thing that ever happened to me was followed by the worst. 
+I came back to life too. Every note was a melody. Every word a poem. Every kiss an attack. But as that new old story was starting, just like before, only magnified, the best thing to ever happen to me was followed by the worst. 
 
-Before the sleepless nights took my sirenesang away again, this time for good, the final words she said were… “I love you unconditionally.”
+Before the sleepless nights took my sirenesang away again, this time for good, her final words were… “I love you unconditionally.”
 
-I will never forget. My first light. My last light.
+I’ll never forget. My first light. My last light.
 
-On another earth, one where I didn’t take the orange pill, we’re still in drømland, two of us, [liebesträum](https://youtu.be/FZ651tNXp0Y).
+On another earth, one where I didn’t take the orange pill, we’re still in drømland, together, [liebesträum](https://youtu.be/FZ651tNXp0Y).
 
-But here, in this parallel universe, the upside-down — all is gone. Even the ghost.
+But here, in this parallel universe, the upside-down — all is gone. Even the ghost and me.
 
-Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sjø-waves, embarking on what I thought was becoming — like a lightening streik — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
+Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening strike — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
 
 Now I know.
 
@@ -254,7 +254,7 @@ There is one difference. All know sleep. Few ever know true love. I couldn’t k
 
 One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesyk, but never lovelorn. ‘Cause I did it to myself. That… is the hardest pill to swallow.
 
-This December, every carol echoes a bittersweet memento to the final weeks of shining eyes one year ago, before my story began. I miss those nights like you can’t imagine. Last year’s nocturnes were the shooting stars of a light-filled universe, set ablaze, then vanquished and gone. I’ll never get those starbursts back — my heartlight, the shining eyes — or why they slipped away.
+This December, every carol echoes a bittersweet memento to the final weeks of shining eyes one year ago, before my story began. I miss those nights like you can’t imagine. Last year’s nocturnes were the shooting stars of a light-filled universe, set ablaze, then vanquished and gone. I’ll never get those starbursts back — my heartlight, shining eyes — or why they slipped away.
 
 Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Spotless Mind](https://youtu.be/yE-f1alkq9I). Meet me in Montauk.
 
