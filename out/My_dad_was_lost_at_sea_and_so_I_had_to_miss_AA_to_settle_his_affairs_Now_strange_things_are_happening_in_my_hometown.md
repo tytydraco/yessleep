@@ -68,7 +68,7 @@ Even with my windows rolled up, the faint stench of fish managed to force its wa
 
 The entire front of the building was covered by an absurd amount of paper, and upon a closer look, they were missing posters. So many, they overlapped, the top layer shriveled by the perpetual dampness in the air. 
 
-“What in the world?” I whispered. In a town of only 6,000 people, this amount of loss was substantial, but vandalizing a police station wasn’t something I thought the people here had in them. 
+“What in the world?” I whispered. In a town of only 2,000 people, this amount of loss was substantial, but vandalizing a police station wasn’t something I thought the people here had in them. 
 
 The door to the station opened and an officer went to work scraping off wads of posters. He must have sensed my staring, because he looked over his shoulder at me with a glare that said it was in my best interest to move along.
 
