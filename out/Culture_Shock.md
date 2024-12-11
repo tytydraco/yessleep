@@ -45,3 +45,6 @@ In the distance, a rooster crowed, but dawn seemed impossibly far away. Susannah
 As they closed in around me, their shadows merging into one, I couldn't tell if the pounding I heard was my heart or drums from the village – a death knell or a celebration. Perhaps both. Susannah's eyes met mine, filled with equal parts love and predatory anticipation, and I realized that sometimes love means not just accepting all parts of someone, but becoming something entirely new yourself.
 
 The transformation was already burning through my body like acid in my veins. Whether this rebirth would be my salvation or destruction remained to be seen. But as my spine began to split and wings pushed through my shoulders, I found myself smiling with teeth that were no longer my own.
+
+
+Part 2 is [here](https://www.reddit.com/r/nosleep/s/kH2TfR1fAK) 

@@ -1,10 +1,10 @@
-On January 12th, 2024, my happy, healthy, successful 43-year-old life was forever turned upside-down by one Friday night.
+M43. On January 12th, 2024, my happy, healthy, successful life was forever turned upside-down by one Friday night.
 
 This is a tale of party drugs. It’s also a life-and-death journey I could’ve never imagined in my wildest dreams. 
 
-It may be a case study at the intersection of medicine, pharma, policy, and science. Or a harrowing dive into extremes of the human mind. 
+Call it a harrowing dive into extremes of the human condition. Or a case study at the intersection of medicine, pharma, policy, and brain science.
 
-As the one who lived it, telling this, now, for the first time, ten months later, is my confession — assembling the shards of a shattered life and heart into one broken mosaic. 
+As the one who lived it, writing this, eleven months later, is my twelfth hour confession — assembling the shards of a shattered life and heart into one broken mosaic. 
 
 Here goes…
 
@@ -158,7 +158,7 @@ The harder they come, the harder they fall. The happy, go-lucky me of December 2
 
 My story from one night of party drugs may rank among the most life-changing neurotoxic reactions of all time. I’m the exception to the rule, not the rule.
 
-I’m also not the only one.
+But I’m not the only one.
 
 The world is full of terrified people experiencing lasting insomnia from MDMA. [Here’s](https://www.reddit.com/r/lexapro/s/l88p1xECmC) one, here’s [another](https://www.reddit.com/r/insomnia/s/R77cNigJ0y), all variations on the same theme. Most testimonies get shot down by a mob who doubt the drug they love could do so much damage. You can’t understand until it happens to you. I’ve since discovered so many lives broken by this chemical’s dark side.
 
@@ -166,9 +166,7 @@ If you look up NIH case reports, you’ll find things like permanent [anxiety di
 
 If you search user blogs for “long-term comedown” (LTC), there are troves of devastating accounts of MDMA creating neuroses lasting months, years, forever. People have contacted me from around the world to share heart-wrenching life-turns. 
 
-My case is exceptional — like Dr. Earley said, a “one-in-a-million” neurotoxic event.
-
-But if I had any idea I was playing the lottery, even at one in a billion odds, even a trillion, I would’ve never taken the cap handed to me. I loved life too much to risk it. What hit my brain eventually took away the best parts of me. I can’t make sense of it, nor will I ever.
+My case is exceptional — like Dr. Earley said, “one-in-a-million” — but if I had any idea I was playing the lottery, even at one in a billion odds, even a trillion, I would’ve never taken the cap handed to me. I loved life too much to risk it. What hit my brain eventually took away the best parts of me. I can’t make sense of it, nor will I ever.
 
 I’ll also always wonder what good was waiting just around the corner if I’d been only made the other choice that night. It’s too much to think about. I can’t explain fate, but didn’t deserve this. No one does.
 
@@ -178,7 +176,7 @@ But for the next one-in-a-million, maybe, my tale gives pause before plugging in
 
 I wish I never had this story to tell. I’d give up anything to turn back the hands of time. It’s a “what-if” reel I’ve replayed so much the film has burned. I can’t change the past, but my story can change someone else’s future.
 
-Did the system fail? No.
+Did the system fail me? No.
 
 No, in that MDMA put the writing on the wall. That was my choice, and while it may soon be legal in a bunch of countries like the US, Mexico is not one. Ironically, that same morning, Jan 12, Mexican authorities seized on arrival a CBD lip balm from my toiletry bag — received on my birthday, three days before, bought over-the-counter in DC. So there’s no consensus on what’s safe.
 
@@ -188,7 +186,7 @@ Most importantly, No, in that there’s not a neurobiologist on earth who unders
 
 Did the system fail? Yes.
 
-Believe it or not, 3,4-methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
+Believe it or not — methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck Pharmaceuticals, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
 
 Yes, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
 
@@ -214,41 +212,43 @@ I was always loyal to my company and the people I share it with. They’ve been 
 
 The last thing left to face is my heart.
 
-They say each of us has our elements. For me these are water and stone. The two views I love most on earth — at my cottage, and future home — are both wrapped by rock walls and rippling waves. I learned this world from a hermit I used to watch, Crazy Ned.
+I’ve always been drawn to water and rocks. Some of my earliest memories are swimming and collecting stones. Today, the two places I love most on earth — my cottage, and the site of my forever home — are both wrapped in rock walls and rippling waves. I learned this world from a hermit.
 
-As a kid, I spent summers hanging out at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive old man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile-long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of stones by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
+As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile-long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of stones by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 
-Legend had it Crazy Ned was stuck in his endless loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood now seems almost a Biblical omen… this Sisyphus cursed by a pill to push rocks against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
+Legend had it old Crazy Ned was stuck in his endless loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood now seems almost a Biblical omen… this Sisyphus cursed by a pill to push rocks against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
 
 But I never saw the sign.
 
 And now the stars — even Karlvagn — have all gone out.  
 
-In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, alltid and for evig, our dreamland, island, homeland, foreland, playland, heartland, elskland, our everything, elsklingdom.
+In the ensuing darkness, there’s no place left to hide from my heart. It’s been sealed shut since May, burying memories that forever haunt me. Black car, bright eyes, black boots, two smiles, autumn leaves, two oaks, white dress, two hands, starry night, two AM, daybreak drive, two hearts, midnight melodies, two flights, Swiss chocolate, two views, dancing kisses, two lives, dreamy promises, to forever… our own little universe, the one we wanted, all the time in the world, always and for alltid, for evig, our dreamland, island, homeland, foreland, playland, heartland, elskland, our everything, elsklingdom.
 
-I was [the luckiest](https://youtu.be/ISMnfcnX6Ng). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, taken by a thief in the night, night after night, endlessly, until it vanished… the ruins of insomnia.
+I was [the luckiest](https://youtu.be/ISMnfcnX6Ng). Those who saw, saw shining eyes. I had it all, in my hands, the best parts of life, in the making. But from dream to dreamlessness, dreamland to wasteland, my love at first sight was ripped from my fingers, piece by piece, stripped bare, a thief in the night, night after night, endlessly, until it vanished… the ruins of insomnia.
 
-I spent 3rd grade in India. At school each day my eyes met a blond girl in shy passing glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
+I spent 2nd and 3rd grade in India. At school each day my eyes met a stunning blond girl in shy passing glances. Two years above me, I had friends in her class. We wrote secret folded notes, she invited me to her birthday, played spin the bottle, and became each other’s first kiss. Those were the best days of childhood. 
 
-But just as our story was beginning, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called from a pay phone to tell her. No one was home. I never got to say goodbye. 
+But just as our story was starting, my family had to leave the country, no warning. At the Delhi airport, before our flight, I called from a pay phone to tell her. No one was home. I never got to say goodbye. 
 
-Her face in the 1990 embassy school yearbook followed me for years. Her piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew blue and gold crosses everywhere. Her smile haunted me well into my teens, never giving up the ghost.
+Her face in the embassy school yearbook followed me for years. Those piercing eyes and flaxen hair became my colors — the colors of her flag, Sweden. I drew blue and gold crosses everywhere. Her smile haunted me long into my teens, never giving up the ghost.
 
-Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, mesmerizing, deep, true. Bright like a diamond. A star made for me. 
+Then, out of nowhere, last year, on a flight from London, she came back to my life. All grown up, majestic, demure, mesmerizing, deep, true. Bright like a diamond. Platinum. A star made for me. 
 
-I came back to life too. Every note was a melody. Every word a poem. Every kiss an attack. But as that story was starting, just like before, only magnified times a billion, the best thing to ever happen was followed by the worst. 
+I came back to life too. Every note became a melody. Every word a poem. Every kiss an attack. 
 
-Before the sleepless nights took my sirensong away again, this time for good, her final words… “I love you unconditionally.”
+But just as that love story was starting, like a sun swallowed by a black hole, the best thing to ever happen to me was followed by the worst. 
+
+Before the sleepless nights took my sirensong away again, this time for good, her final words were, “I love you unconditionally.”
 
 I’ll never forget. My first light. Last light.
 
-On another earth, one where I didn’t take the orange pill, we’re still in drømland, sammen, [liebesträum](https://youtu.be/FZ651tNXp0Y).
+On another earth, one where I didn’t take the orange pill, we’re still in drømland, alt, sammen, [liebesträum](https://youtu.be/FZ651tNXp0Y).
 
-But here in this parallel universe, the upside-down — all is gone. Even I’m a ghost now too.
+But here in this parallel universe, the upside-down — alt is gone. I am a ghost now too.
 
-There is a mysterious trait of sleeping pills called kindling, which makes it harder to withdraw from the same drug a second time. Love is that way. 
+There is a mysterious trait of sleeping pills known as kindling, which makes it harder to withdraw from the same drug twice.
 
-I can’t go through withdrawal again. 
+My heart knows. This second time obliterated me.
 
 Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening strike — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
 
@@ -266,9 +266,15 @@ Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Sp
 
 Until then, red wine and sleeping pills help me get back to your arms. [Maybe I will see you in the next life.](https://youtu.be/EcSvMFm2ABE)
 
-fœrste lys. ekte lys. fœrste kyss. stjernelys.
+fœrste lys. ekte lys. 
 
-fœrste blikk. kjærlighet. paa maanen. jenta mi sitte.
+fœrste kyss. stjernelys.
 
-siste lys. ceaseless. elsklingen min. natta kyss.
+fœrste blikk. kjærlighet. 
+
+paa maanen. jenta mi sitte.
+
+siste lys. ceaseless. 
+
+elsklingen. natta kyss.
 
