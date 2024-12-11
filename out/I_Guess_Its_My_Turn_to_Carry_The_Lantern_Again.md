@@ -241,7 +241,7 @@ No cold.
 No small presence clutching at my back.
 
 
-The small hand in mine. 
+No small hand in mine. 
 
 
 I froze, gripping the lantern tightly as my heart pounded in my chest.

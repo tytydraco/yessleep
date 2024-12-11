@@ -1,5 +1,7 @@
 [\[Part 4\]](https://www.reddit.com/user/RandomAppalachian468/comments/1haa6md/the_call_of_the_breach_part_4/)
 
+[\[Part 6\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hc13p0/the_call_of_the_breach_part_6/)
+
 The walk up to the white clapboard church that stood in the center of the fortress was lined with dozens of armed men from New Wilderness, rifles at the ready. A large crowd had gathered outside, which the guards held at bay to search each person before letting them through, often to the annoyance of the citizens in question. More soldiers, these from Ark River’s forces, stood in a large unbroken line around the church itself, rifles across their backs, carrying the ornately forged spears and carved wooden shields their kind were known for. They all saluted as we passed the various lines of security, though little enthusiasm gleamed behind their weary eyes. Everyone wanted this to be over, for some resolution to bring our tiny camp together, but no one quite knew how.
 
 *If our enemies could see us, oh how they’d laugh.*
