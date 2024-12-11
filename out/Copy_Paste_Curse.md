@@ -20,7 +20,7 @@ Suddenly, a loud bang echoed through the house, followed by a piercing scream. C
 
 Carl stood up, his fists clenched at his sides. "I can't stand this. They always do this kind of shit. This has to stop tonight."
 
-Carl is usually calm, but sometimes things rub him the wrong way, and his temper flares. Tonight was one of those times. As he stormed up the carpeted stairs, each step a thunderous stomp, I couldn't help but remember the gentle man I'd fallen in love with. The man who would spend hours playing make-believe with the kids, his laughter echoing through the house. That man seemed to be appearing less and less these days. Perhaps it was his 60-hour a week job, maybe he spent too much time looking at social media. Whatever the cause, this last month is the most stressed I’d ever seen him. 
+Carl is usually calm, but sometimes things rub him the wrong way, and his temper flares. Tonight was one of those times. As he stormed up the carpeted stairs, each step a thunderous stomp, I couldn't help but remember the gentle man I'd fallen in love with. The man who would spend hours playing make-believe with the kids, his laughter echoing through the house. That man seemed to be appearing less and less these days. Perhaps it was his 60-hour a week job, maybe he spent too much time looking at social media. Whatever the cause, this last month is the most stressed I’d ever seen him. 
 
 I followed him up to the kids' room, my mind racing. We live in a modest two-bedroom house, its walls adorned with family photos and children's artwork. Our three kids share one room, which often makes bedtime a challenge. The oldest is Charlotte is twelve, Abby is our middle child at ten, and our youngest is Conner at eight years old.
 
@@ -37,6 +37,7 @@ Conner pointed a trembling fingers in the direction of Charlotte. "A-Abby jinxed
 I didn't think Carl could look any angrier until that moment. His face turned a deep shade of red, and if it were possible for steam to expel from his ears, it would be happening. I could see the vein in his temple throbbing, a sure sign that he was about to explode.
 
 "I wish you would just do what I ask," Carl barked, his voice rising. "We told you three to go to bed, and you're up here playing games."
+
 Charlotte laid her head in her hands, her curls falling forward to hide her face. Conner looked even more frightened than before, but it wasn't because of Carl's shouting. Those two didn't seem to notice his rant. Abby lowered her head, her small fingers fidgeting with the hem of her pajama top. She was the only one who appeared to be listening.
 
 "I am so tired of repeating myself over and over. You are the worst kids ever. Now please, do what I say, just this once."
@@ -45,10 +46,11 @@ I watched Abby carefully and noticed her lips move slightly, barely audibly mout
 
 Abby then looked Carl right in the eyes, her gaze unnervingly steady for a child her age. She softly retorted, "Jinx."
 
-Carl's hands flew to his mouth, his eyes growing wide with shock and confusion. He turned to me, his gaze pleading. Slowly, he lowered his hands to reveal smooth, unbroken skin where his mouth should have been. At the same time, Charlotte turned around, and I gasped as I saw that she too was missing her mouth. 
+Carl's hands flew to his mouth, his eyes growing wide with shock and confusion. He turned to me, his gaze pleading. Slowly, he lowered his hands to reveal smooth, unbroken skin where his mouth should have been. At the same time, Charlotte turned around, and I gasped as I saw that she too was missing her mouth. 
 
 I stood frozen, trying to process what I was seeing. Every child knows the jinx game - the silly rule that if you say the same thing at the same time, you can't speak until someone says your name. But this... this was different. This was impossible.
 
 As the reality of the situation sank in, a mixture of emotions washed over me. Fear, seeing my husband and daughter's faces smooth where their mouths should be. Confusion, as my mind struggled to rationalize what couldn't be real. And strangely, a hint of relief.
 
 The only thing I knew for certain was that none of us were in a hurry to say Carl's name.
+
