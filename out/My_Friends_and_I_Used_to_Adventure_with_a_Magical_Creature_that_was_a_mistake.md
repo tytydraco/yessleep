@@ -136,7 +136,7 @@ Benni helped me the rest of the way as we walked. I prayed she and Little John d
 
 By Omertà’s scheming, the gang and I, didn't go to our regular spot that night; instead, we went to the Sacrificial Lamb for poker, stumbling through other degenerate gamblers to find the table we wanted.
 
-Omertà and I wobbled into vacated seats. A guy and his genie friend named Jen left because she wasn't having a good time—poor girl, she looked like she wanted to off herself.
+Omertà and I wobbled into vacated seats. A guy and his genie friend named Jen left because she wasn't having a good time—poor girl, she looked like she wanted to [herself](https://www.reddit.com/r/nosleep/comments/1dwu0j2/i_tried_to_save_a_girl_from_jumping_off_a_building/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button).
 
 Benni and Little John didn’t play. They hung out behind us and watched.  In general, Benni railed against degeneracy of all kinds, she wouldn’t even make a bet on the sound rising the next day. Little John wanted the appearance of being perfect so he only gambled when just the four of us hung out in private
 
@@ -363,5 +363,3 @@ It was another week before I could talk again.
 It was another week after that before I could ask Omertà about what still haunted me. *What was that place and how many people did you bring there?*
 
 Like I said before Reader, all this hate was once love. But was the hate always [there?](https://www.reddit.com/r/Finchink/comments/1hbv7wv/prologue_below/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
-  

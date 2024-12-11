@@ -4,7 +4,7 @@ This is a tale of party drugs. It’s also a life-and-death journey I could’ve
 
 Call it a harrowing dive into extremes of the human condition. Or a case study at the intersection of medicine, pharma, policy, and brain science.
 
-As the one who lived it, writing this, eleven months later, is my confession — assembling the shards of a shattered life and heart into one broken mosaic. 
+As the one who lived it, writing this, eleven months later, is my confession — assembling the shards of a shattered life into one broken mosaic. 
 
 Here goes…
 
@@ -82,7 +82,7 @@ June gave way to July and the 6-month anniversary of my insomnia was fast approa
 
 Doctors had also run out of medications to try, the last being the narcoleptic anesthetic Xyrem (aka GHB, the infamous date-rape drug from [Diddy’s parties](https://www.eonline.com/news/1408795/diddy-allegedly-laced-baby-oil-with-date-rape-drug) — a Schedule I narcotic prescribed by Dr. Earley as an extreme final measure. The most controlled substance in America (only one central pharmacy is authorized to dispense it), Xyrem was taking forever to get approved, required passing through complex safety hoops, and cost $25,000 per month. Receiving it was weeks or more away with no indication it would work where others failed.
 
-Sleep deprivation is a form of torture considered among the worst. Losing a single hour of rest makes Division I basketball players miss twice as many shots the next day. The most sublime music ever written, Bach’s Goldberg Variations, was commissioned to treat “Mad” King Ludwig of Bavaria’s insomnia for a reason — sleeplessness drives you crazy.
+Sleep deprivation is a form of torture considered among the worst. Losing a single hour of rest makes Division I basketball players miss twice as many shots the next day. The most sublime music ever written, Bach’s Goldberg Variations, was commissioned to treat “Mad” King Ludwig of Bavaria’s insomnia because sleeplessness drove him crazy.
 
 We’ve all experienced at some point the relentless feeling after one sleepless night. In just three days, sleep deprivation breaks prisoners of war into giving up classified secrets. So by the time my insomnia hit the 6-month mark in July, the once unfathomable thought of cutting my life short slowly started to creep into my mind as a last resort for rest. Insomnia had literally become my death bed. 
 
@@ -118,7 +118,7 @@ At the end of my third week in The Retreat outside of Baltimore, in early July, 
 
 Despite sharing with my doctors a growing belief that the end was drawing near, and petrified family members calling to warn of the despair in my voice and feared was coming — naively, nurses had loaned me a 14-foot charger cable.
 
-Outside, in some woods nearby, out of view, I fastened the cable to a sturdy branch on an overturned log above a stream and doubled it twice around my neck. I’ve always been drawn to water, so saying goodbye above a trickling creek felt like the only option on campus I could live with, so to speak. I rolled my body off the edge — the noose caught, cinched tight, and I passed out. 
+Outside, in some woods nearby, out of view, I fastened the cable to a sturdy branch on an overturned log above a stream and doubled it twice around my neck. I’ve always been drawn to water, so above a trickling creek was the only spot on campus I could live with, so to speak, to say goodbye. I rolled my body off the edge — the noose caught, cinched tight, and I passed out. 
 
 Sometime later — no one knows how long — one of the cords snapped, then the other, and I fell. Two bursts of orange flooded my head in flashes of the most intense pain I’ve ever known as consciousness returned. My eyes popped open and I jolted back to life, like a scene from a movie. But the right side of my body was numb, I had twitching fingers, double vision, pulsating pupils, uncontrollable shivering, and other weird thermodynamic effects from starving my brain of oxygen long enough to shut it down. This was all later diagnosed as an anoxic brain injury to my left hemisphere.
 
@@ -204,7 +204,7 @@ The story’s told.
 
 How to move on…
  
-Growing up, my older brother was the daredevil between us. He led me down our steep driveway on a skateboard, we got marooned overnight on a jungle island in the Arabian Sea, showed me how to shoot BB-guns and bottle-rockets, drive fast, climb 20-story cranes, and draft down hills at high-speed on a road-bike. He taught me how to shotgun beer, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. 
+As a kid, my older brother was the daredevil between us. He led me down our steep driveway on a skateboard, we got marooned overnight on a jungle island in the Arabian Sea, showed me how to shoot BB-guns and bottle-rockets, drive fast, climb 20-story cranes, and draft down hills at high-speed on a road-bike. He taught me how to shotgun beer, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. 
 
 How did I survive so many wild nights unscathed, but not his 50th. We haven’t spoken since. It’s not his fault. Even Dostoyevsky couldn’t have foreseen what lay ahead.
 
@@ -212,9 +212,9 @@ I was always loyal to my company and the people I share it with. They’ve been 
 
 The last thing left to face is my heart.
 
-I’v been drawn to water and rocks forever. Some of my earliest memories are collecting stones on the beach. Today, the two places I love most on earth — my cottage, and the site of my future home — are both wrapped in rock walls and rippling waves. I learned this world from a hermit.
+I’ve been drawn to water and rocks forever. Some of my earliest memories are collecting stones on the beach. Today, the two places I love most on earth — my cottage, and the site of my future home — are both wrapped in rock walls and rippling waves. I learned this world from a hermit.
 
-As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile-long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of stones by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
+Growing up, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile-long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of stones by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 
 Legend had it old Crazy Ned was stuck in his endless loop from a bad drug trip that broke him, like the strange [case of the frozen addict](https://www.dailymotion.com/video/x95edl8). Looking back, Ned’s appearance in the haze of my childhood now seems almost a Biblical omen… this Sisyphus cursed by a pill to push rocks against the current forever, a Hailey’s Comet sent to me as a warning from the stars.
 
@@ -248,7 +248,7 @@ But here in this parallel universe, the upside-down — alt is gone. I am a ghos
 
 There is a mysterious trait of sleeping pills known as kindling, which makes it harder to withdraw from the same drug twice.
 
-My heart knows. This second time obliterated me.
+My heart knows. The second withdrawal obliterated me.
 
 Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening strike — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
 
@@ -266,10 +266,10 @@ Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Sp
 
 Until then, red wine and sleeping pills help me get back to your arms. [Maybe I will see you in the next life.](https://youtu.be/EcSvMFm2ABE)
 
-fœrste lys. ekte lys. fœrste kyss. stjernelys.
+fœrste lys. ekte lys. fœrste blikk. kjærlighet. 
 
-fœrste blikk. kjærlighet. paa maanen. jenta sitte.
+fœrste kyss. stjernelys. paa maanen. jenta sitte.
 
-evig du. evig meg. jenta min. elsker deg.
+evig du. evig meg. elsklingen. nattakyss. 
 
-elsklingen. nattakyss. ceaseless. siste lys.
+jenta min. elsker deg. ceaseless. siste lys.
