@@ -61,7 +61,7 @@ The omnipresent roar of the front door announced my entry to the house, and I fi
  
 
  
- I saw the flashlight immediately when I hit the last step. It was right there, waiting patiently for me next to the banister. I hurriedly picked it up triumphantly; I didn’t notice the heavy breathing. I was too excited to have my flashlight back. When I flicked on the light, I froze, fossilized in place by fear, my mind refusing to let me comprehend the danger I was in. Standing just a few feet in front of me was a man. He was tall and slouching; his ribs were showing through his ripped shirt like there were trying to claw through his pale kin, his ashgrey hair hung down past his knees in thin whispers, his brown teeth stood patiently in his hanging jaw; his hungry eyes, already consuming me. 
+ I saw the flashlight immediately when I hit the last step. It was right there, waiting patiently for me next to the banister. I picked it up triumphantly; I didn’t notice the heavy breathing. I was too excited to have my flashlight back. When I flicked on the light, I froze, fossilized in place by fear, my mind refusing to let me comprehend the danger I was in. Standing just a few feet in front of me was a man. He was tall and slouching; his ribs were showing through his ripped shirt like there were trying to claw through his pale kin, his ashgrey hair hung down past his knees in thin whispers, his brown teeth stood patiently in his hanging jaw; his hungry eyes, already consuming me. 
 
 
 His throat cracked and popped as he spoke like it was the first time he had done it in years, he said, “Come over here.” 
