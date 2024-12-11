@@ -4,7 +4,7 @@ This is a tale of party drugs. It’s also a life-and-death journey I could’ve
 
 Call it a harrowing dive into extremes of the human condition. Or a case study at the intersection of medicine, pharma, policy, and brain science.
 
-As the one who lived it, writing this, eleven months later, is my twelfth hour confession — assembling the shards of a shattered life and heart into one broken mosaic. 
+As the one who lived it, writing this, eleven months later, is my confession — assembling the shards of a shattered life and heart into one broken mosaic. 
 
 Here goes…
 
@@ -256,9 +256,9 @@ Now I know.
 
 Sleep is like true love. It finds you when you’re not looking. It fills you with dreams. Its melody is a nocturne. And when you lose it, you lose everything.
 
-There is one difference. All know sleep. Few ever know true love. I couldn’t know it then, but I lost both, the same night. 
+There’s one difference. All know sleep. Few know true love. I couldn’t know it then, but I lost both, the same night. 
 
-One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesick, but never lovelorn. ‘Cause I did it to myself. That… is the hardest pill to swallow.
+One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesick, but never lovelorn. ‘Cause I did it to myself. That, is the hardest pill to swallow.
 
 This December, every carol echoes a bittersweet memento to the final weeks of shining eyes one year ago, before my story began. I miss those nights like you can’t imagine. Last year’s nocturnes were the shooting stars of a light-filled universe, set ablaze, then vanquished. I’ll never get those starbursts back — my heartlight, the shining eyes — or why they slipped away.
 
@@ -266,17 +266,10 @@ Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Sp
 
 Until then, red wine and sleeping pills help me get back to your arms. [Maybe I will see you in the next life.](https://youtu.be/EcSvMFm2ABE)
 
-fœrste lys. ekte lys. 
+fœrste lys. ekte lys. fœrste kyss. stjernelys.
 
-fœrste kyss. stjernelys.
+fœrste blikk. kjærlighet. paa maanen. jenta sitte.
 
-fœrste blikk. kjærlighet. 
+evig du. evig meg. jenta min. elsker deg.
 
-paa maanen. jenta sitte.
-
-elsklingen. alt miss.
-
-ceaseless. siste lys.
-
-natta
-
+elsklingen. nattakyss. ceaseless. siste lys.
