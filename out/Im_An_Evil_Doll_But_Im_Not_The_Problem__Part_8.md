@@ -297,3 +297,9 @@ So please, everyone, give me any advice you have in the comments, I’m listenin
 Till next time. 
 
 Punch. 
+
+
+Looks like I'm still kicking
+
+
+https://www.reddit.com/r/nosleep/s/bOomdZnmNi
