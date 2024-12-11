@@ -10,7 +10,7 @@ Here goes…
 
 At my brother’s 50th birthday in Cabo, Mexico, I was offered cocaine as part of the festivities. By no means a user, I’m also not a novice. I’m a normal millennial who never looked for drugs, but is not afraid to try something passed by friends.
 
-I’m a responsible, educated guy with a bunch of advanced degrees — who manages a small, thriving international company. Until January I’d lived a drama-free life, successful by any metric. I’m also an understated middle child, so making noise or having weird stuff happen is not my thing. Until that night, I’d coasted through life without anything big ever going wrong.
+For context, I’ve lived a drama-free life, successful by any metric. I have a bunch of advanced degrees and manage a small but thriving international company. I’m by nature also an understated middle child, so making noise or having weird stuff happen is not my deal. Until that night, I’d coasted without anything major ever going wrong.
 
 Being in my early 40s, my partying days are in the past, and January was the first time in probably a decade+ — since business school — touching party drugs.
 
@@ -186,7 +186,7 @@ Most importantly, No, in that there’s not a neurobiologist on earth who unders
 
 Did the system fail? Yes.
 
-Believe it or not — methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck Pharmaceuticals, owner of the same patented drugs I would later take to fight its damage. You break it, you buy it.
+Believe it or not — methylenedioxy-methamphetamine (MDMA) was first synthesized by Merck Pharmaceuticals, owner of the same patented drugs I’d later take to fight its damage. There’s a saying for that, “You break it, you buy it.”
 
 Yes, in that the very medicines prescribed to give me life-preserving sleep gave me life-destroying depression.
 
@@ -204,15 +204,15 @@ The story’s told.
 
 How to move on…
  
-Growing up, my older brother was the daredevil between us, the risk-taker. He led me down our hilly driveway on a skateboard, we got marooned overnight on a jungle island in the Arabian Sea, showed me how to shoot BB-guns and bottle-rockets, shotgun beer, drive fast, climb 20-story cranes, draft down steep roads on a bike, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. 
+Growing up, my older brother was the daredevil between us. He led me down our steep driveway on a skateboard, we got marooned overnight on a jungle island in the Arabian Sea, showed me how to shoot BB-guns and bottle-rockets, drive fast, climb 20-story cranes, and draft down hills at high-speed on a road-bike. He taught me how to shotgun beer, chop Ritalin into lines, and with rolled bills from summer life-guarding, blow coke. 
 
-I survived so many wild nights unscathed, but not his 50th. We haven’t spoken since. None of it is his fault. Even Dostoyevsky couldn’t have foreseen what lay ahead.
+How did I survive so many wild nights unscathed, but not his 50th. We haven’t spoken since. It’s not his fault. Even Dostoyevsky couldn’t have foreseen what lay ahead.
 
 I was always loyal to my company and the people I share it with. They’ve been loyal all these months, flying the plane, awaiting a return, never giving up hope.
 
 The last thing left to face is my heart.
 
-I’ve always been drawn to water and rocks. Some of my earliest memories are swimming and collecting stones. Today, the two places I love most on earth — my cottage, and the site of my forever home — are both wrapped in rock walls and rippling waves. I learned this world from a hermit.
+I’v been drawn to water and rocks forever. Some of my earliest memories are collecting stones on the beach. Today, the two places I love most on earth — my cottage, and the site of my future home — are both wrapped in rock walls and rippling waves. I learned this world from a hermit.
 
 As a kid, I spent summers at Langley Pool, a neighborhood club set on woods beside the Potomac River. Each day, I’d see a reclusive man with long grey hair enter the neighboring forest — stark naked — and walk a path only he knew to a tucked-away cove. For as long as anyone could remember, he’d [been building a half-mile-long dam](https://wtop.com/news/2011/11/naked-ned-hunts-for-the-infinite-along-the-potomac/) out of stones by hand in the rapids that, across decades, single-handedly redirected the course of one of America’s most famed waterways. To this day, his handiwork is visible on Google Earth, just west of the American-Legion Bridge.
 

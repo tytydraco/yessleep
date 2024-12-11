@@ -6,8 +6,6 @@ After weeks of disrupted sleep, I was beginning to lose my cool. I had tried con
 
 Another glance revealed 3:59 AM. A deep breath then I tossed the warm layer off. The alarm wasn’t due to sound for another hour. *Fuck my life.* I collected myself and found minimal solace in the idea of getting to work early enough to come home for a nap before DJ Tragedy and his sound man woke up for the “day.” I work in the city as a warehouse manager and set my own hours so leaving early wasn’t a problem, “as long as the shit’s done,” as my boss so eloquently puts it.
 
-
-
 The air was brisk as the waxing moon settled onto the horizon. There were no signs of its warmer counterpart arriving anytime soon. I’ve boarded the 5:10 AM bus a number of times in the past for the same reason as today. It lacked the familiar exhausted and soulless faces I normally recognized during our shared trip each morning only replacing them with the unfamiliar. I always smiled at people in passing when I was growing up but was robbed of that desire only a few weeks after my move. Long ago, I confidently concluded that this city devours its inhabitants’ joy with absent affect. The 5:10 AM bus was no different in that regard. 
 
 The driver was a salt-and-pepper haired black man in his 50’s kept warm by a poofy navy blue jacket zipped half way. The closed portion failed to disguise his round gut beneath. Rapid Transit was embossed on the left breast in yellow and orange. He offered no greeting only focusing on the machine between us to ensure I had the funds to ride. After swiping my card and an affirmative nod from him, I proceeded down the narrow isle stepping over the occasional outstretched leg or bag. I prefer to ride towards the back. Positioning potential nutjobs to the front was always safer than wondering what they were doing behind you.
@@ -17,8 +15,6 @@ The first six rows were sporadically filled with a few men in suits with briefca
 The lights were turned off as I took the same seat I normally do on my regular bus and nestled against the cold glass. The city lights began their rhythmic dance as we pulled forward. *MY bus…* I laughed to myself. As if there was a difference. A neon-haired couple suckling pacifiers began jostling in their seats to what I assumed was an ill-attempt at dancing three rows in front. Thank god they weren’t blasting music from their phones as could typically be expected.
 
 My initial scan of my peers while moving through the isle assured me it should be an uneventful ride. The gentle sway afforded by the vehicle’s airbag suspension began to lull me back to my creaky Ikea mattress.
-
-
 
 The sound violently escalated from a low throaty tone to piercing shrill. “uuuuuhhhhhhaaaaaaauuuuuuuAAAAAAAAAAACK! \[snap\] TS- TSSSSS- CK-” I quickly sat up to see the woman had gained the attention of the rest of the bus; if only momentarily.
 
@@ -70,8 +66,6 @@ Our eyes now only inches apart revealed my assailant’s to be… liquid? I can 
 
 The agonizing force of her face pressing against my own was unrelenting. It eclipsed the new growing pressure on my chest. She was pressing her entire body *into* mine. Her smooth “mouth” pressed my lips, our noses now deformed into each other’s cheek bones. The last I remember was feeling as if our eyes had actually touched. That she had moved *into* me. Liquid darkness was all I saw. It felt… lonely and cold. A vast nothingness.
 
-
-
 A short symphony of squeals and the hissing release of hydraulic brakes did not obscure the driver’s announcement, “Cambridge and Townsend.” I sat up to find myself in the same seat I remembered. Two of the men in suits were already walking to the front and half the construction workers had been replaced with new hair styles from my perspective.
 
 My hands raced to my head expecting to find torn flesh and hair and blood but discovered no wounds. I stared at my trembling open palms in disbelief.
@@ -81,8 +75,6 @@ My hands raced to my head expecting to find torn flesh and hair and blood but di
 Still shaken, I nearly ran for the door fearing entrapment if I stayed another second. I glanced at the driver anticipating some sort of acknowledgement of the nightmare we all just experienced. He frowned, “C’mon man, I’m already 5 minutes behind. On or off? Lets go!” As I stepped onto the sidewalk, the blast of cold morning air and sounds of the bustling city reassured me it was over.
 
 I don’t remember much of the rest of my walk to the warehouse other than it was uneventful. Passers-by all equally oblivious to each other as they scurried about their morning business. *How can everyone be so… calm? What the hell just happened?*
-
-
 
 I flashed my badge to the guard at the gate who nodded back. Then, a familiar voice from behind. “Early again, huh? You know, I know a guy who can *fix* your neighbor problem.” Greg was my boss. Kind of rough around the edges but personable enough. His colorful language helped pass the monotonous days of counting boxes.
 
@@ -100,11 +92,9 @@ He craned his neck jokingly analyzing my pants, “well, you didn’t piss yours
 
 “What the fuck is wrong with your eyes?”
 
-The 20 points of pain began to throb along my scalp.  *I wonder if Greg will be different*, laughed the voice in my head. I felt my lips being pulled together.
+The 20 points of pain began to throb along my scalp.  *I wonder if Greg will be different*, the voice in my head cackled. I felt my lips being pulled together.
 
  
-
-
 
  
 

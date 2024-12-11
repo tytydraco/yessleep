@@ -43,34 +43,36 @@ I heard my dad say something like, “Isaiah, are you okay? What happened?”
 
 
 
-And as the gears in my head began to spin again, I had a funny realization, and I started to laugh at my stupidity. No one lives in that house; Grandpa said so, and I had already assumed there would be some kind of animals living there. I told my dad I just wanted to race back to the flat.
+And as the gears in my head began to spin again, I had a funny realization, and I started to laugh at my stupidity. No one lives in that house; Grandpa said so, and I had already assumed there would be some kind of animal living there so it was either that or my imagination. I told my dad I just wanted to race back to the flat.
  
 
 [Part 2] Flashlight
  
 
- When we were walking back to the flat, I had the feeling that I had done something wrong, but I didn't know what it was. Then I realized the flashlight—I had dropped it when I ran downstairs. It was still somewhere in that house, and if I lost it, my dad would kill me. When we walked inside and greeted my grandfather, I could feel a quiet terror squirming in my spine. And I knew I would have to go back in.
+ When we were walking back to the flat, I had the feeling that I had done something wrong, but I didn't know what it was. Then I realized, the flashlight—I had dropped it when I ran downstairs. It was still somewhere in that house, and if I lost it, my dad would kill me. When we walked inside and greeted my grandfather, I could feel a quiet terror squirming in my spine. And I knew I would have to go back in.
  
  
 
-I didn’t sleep that night; I couldn't get my mind off that house, and I was dreading having to explain myself, so I worked up the courage and convinced myself that I could go in and grab it before anyone would notice I was gone, and if I was going to go, it would have to be now. The sky was so beautiful that night it soothed my nerves like the sedatives they mix into a lethal injection. And when I got to the front door, I was hardly afraid at all.
+I didn’t sleep that night; I couldn't get my mind off that house, and I was dreading having to explain myself, so I worked up the courage and convinced myself that I could go in and grab it before anyone would notice I was gone, and if I was going to go, it would have to be now. The sky was so beautiful that night it soothed my nerves like the sedatives they mix into a lethal injection. When I got to the front door, I was hardly afraid at all.
  
  
 
-The omnipresent roar of the front door announced my entry to the house, and I figured it was probably loud enough to send any animal into hiding. I could feel the house shifting in that silent night. I didn't realize it was so quiet until I started to hear my heartbeat in my ears. The first floor was just how we left it: just dirt and couches. So I went up to the second floor, confident it would be a short endeavor, still unshaken by the opaque darkness. I saw the flashlight immediately when I hit the last step.
+The omnipresent roar of the front door announced my entry to the house, and I figured it was probably loud enough to send any animal into hiding. I could feel the house shifting in that silent night. I didn't realize it was so quiet until I started to hear my heartbeat in my ears. The first floor was just how we left it: just dirt and couches. So I went up to the second floor, confident it would be a short endeavor, still unshaken by the opaque darkness.
  
 
  
- It was right there, waiting patiently for me next to the banister. I hurriedly picked it up triumphantly; I didn’t notice the heavy breathing. I was too excited to have my flashlight back. When I flicked on the light, I froze, fossilized in place by terror, my mind refusing to let me comprehend the danger I was in. Standing just a few feet in front of me was a man. He was tall and slouching; his ribs were showing through his ripped shirt, and his brown teeth stood patiently in his hanging jaw; his hungry eyes were already consuming me. 
+ I saw the flashlight immediately when I hit the last step. It was right there, waiting patiently for me next to the banister. I hurriedly picked it up triumphantly; I didn’t notice the heavy breathing. I was too excited to have my flashlight back. When I flicked on the light, I froze, fossilized in place by fear, my mind refusing to let me comprehend the danger I was in. Standing just a few feet in front of me was a man. He was tall and slouching; his ribs were showing through his ripped shirt like there were trying to claw through his pale kin, his ashgrey hair hung down past his knees in thin whispers, his brown teeth stood patiently in his hanging jaw; his hungry eyes, already consuming me. 
 
 
-In a forced whisper he said, “Come over here.” 
+His throat cracked and popped as he spoke like it was the first time he had done it in years, he said, “Come over here.” 
 
 
-Those words, like cold water, snapped me out of my trance and forced my body to move. I ran as fast as I could out of the room; I could hear his skittering behind me. He sounded like he had too many legs, and I swear I felt his hot breath on my neck. When I crossed the threshold of the front door, I could feel his starved fingers just inches from my scalp, reaching out for me, trying to pull me back into that silent night and devour me. I didn't stop running until I got back to the flat, and for a while I could still hear him pacing and grunting outside like a rabid dog waiting for a baby bird to fall from a tree. I was so paralyzed I didn't even wake my dad; I just sat on the floor and waited till I heard the familiar downbow of the rusty hinges, and my exhaustion overwhelmed me, and I let sleep claim my weary mind.
+Those words, like cold water, snapped me out of my trance and forced my body to move. I ran as fast as I could out of the room barely staying ahead of the roaring tarantula catching up to me. He sounded like he had too many legs. i could hear his skittering getting closer until I felt his damp breath on my neck. When I crossed the threshold of the front door, I felt my hair slip between the starved fingers on his hand. Some instinctual part of me said he was trying to pull me back into that silent night and devour me. I knew he wanted to pick my bones clean and i knew if i stopped for even a second he would have his wish. I didn't stop running until I got back to the flat, and for a while I could still hear him pacing and grunting outside like a rabid dog waiting for a baby bird to fall from a tree. I was so paralyzed I didn't even wake my dad; I just sat on the floor and waited till I heard the familiar downbow of the rusty hinges. My exhaustion overwhelmed me, and I let sleep claim my weary mind.
  
  
-In the morning I woke abruptly as my dad got up from the futon. I was still consumed with fear; I could barely tell my dad what I saw. 
+
+
+In the morning I woke abruptly to the sound of my dad getting up from the futon. I was still consumed with fear; I could barely tell my dad what I saw. 
 
 
 All I told him was, “Last night I saw a man in the house.” 
