@@ -1,3 +1,5 @@
+[next part ](https://www.reddit.com/r/nosleep/s/lQYaO9N60X)
+
 Part One
 
 The night was colder than any I could remember. Frost coated the windows, turning the world outside into a blurry, crystalline landscape. I was lying in bed, watching my breath curl into the air, when I heard it: the sound of a train whistle, clear and haunting, cutting through the silence.  
