@@ -2,27 +2,27 @@ On January 12th, 2024, my happy, healthy, successful 43-year-old life was foreve
 
 This is a tale of party drugs. It’s also a life-and-death journey I could’ve never imagined in my wildest dreams. 
 
-Some will see my story as a case study at the intersection of medicine, pharma, policy, and science. Others, a harrowing dive into extremes of the human mind. 
+It may be a case study at the intersection of medicine, pharma, policy, and science. Or a harrowing dive into extremes of the human mind. 
 
-As the one who lived it, telling this here, now, for the first time, ten months later, is my confession — assembling the shards of a shattered life and broken heart into one surreal mosaic. 
+As the one who lived it, telling this, now, for the first time, ten months later, is my confession — assembling the shards of a shattered life and heart into one broken mosaic. 
 
 Here goes…
 
-At my brother’s 50th birthday in Cabo, Mexico, along with other party guests, I was offered cocaine. By no means a user, I’m also not a novice. I’m a normal millennial who never looked for drugs, but is also not afraid to try something passed by friends.
+At my brother’s 50th birthday in Cabo, Mexico, I was offered cocaine as part of the festivities. By no means a user, I’m also not a novice. I’m a normal millennial who never looked for drugs, but is not afraid to try something passed by friends.
 
-For context, I’m a responsible, well-educated guy with a bunch of advanced degrees. I manage a small, thriving international company. This is not a brag, only to establish that until January I lived a drama-free life, successful by any metric. I’m also by nature an understated middle child, so making noise or having weird stuff happen is not my thing. Until that night, I’d coasted through life without anything big ever going wrong.
+I’m a responsible, educated guy with a bunch of advanced degrees — who manages a small, thriving international company. Until January I’d lived a drama-free life, successful by any metric. I’m also an understated middle child, so making noise or having weird stuff happen is not my thing. Until that night, I’d coasted through life without anything big ever going wrong.
 
-Being in my early 40s, my partying days have been over for a while, and January was my first time in over a decade — since business school — touching party drugs.
+Being in my early 40s, my partying days are in the past, and January was the first time in probably a decade+ — since business school — touching party drugs.
 
-During several hours at a place called Bagatelle, where the opening dinner of the three-day bash took place, I had a dozen+ lines/bumps of coke, sipping rum. It was a festive if over-the-top scene as our group of 40 danced atop the long birthday table, stepping over plates, while magnums of champagne carried between waiters were poured into mouths like parishioners taking communion. Not your typical Friday night, but all were having fun celebrating my bro. So chemically speaking, cocaine and alcohol were the first ingredients in my blood.
+Over several hours at a place called Bagatelle, where the opening dinner of the three-day bash took place, I had a dozen+ lines and bumps of coke, sipping rum. It was a festive if over-the-top scene as our group of 40 danced atop the long birthday table, stepping over plates, while magnums of champagne carried between waiters were poured into directly mouths like parishioners taking communion. Not a typical Friday night, but all were having fun celebrating my bro. So chemically speaking, cocaine and alcohol were the first ingredients in my blood.
 
-As midnight approached, I was handed by a banker friend what I was told was MDMA brought from San Francisco. I’d taken molly twice in my life — once at a wedding in Prague, before that at a club in Aruba — and had good experiences. I didn’t particularly want to take it that night in Mexico, being late and tired from flying out of DC at the crack of dawn, having just gotten back from Cartagena a few days before… so I nearly said, “no thanks.”
+As midnight approached, I was handed by a banker friend what I was told was MDMA brought from San Francisco. I’d taken molly twice in my life — once at a wedding in Prague, before that at a club in Aruba — and had good experiences. I didn’t particularly want to take it that night in Mexico, being late and tired from flying out of DC at the crack of dawn, having just gotten back from Colombia a few days before… so I nearly said, “no thanks.”
 
 But your brother only turns a half-century once, and I didn’t overthink it. I split the cap in half with my fingers, swallowed what I figured was a light dose, and kept on with the party.
 
 Biggest mistake of my life. Across all years. The one that changed everything.
 
-When added to the cocaine, MDMA instantly had a negative effect. In my two previous rolls, I hadn’t mixed it. This time I felt an overwhelming anxiety never known in my life.
+When added to the cocaine, MDMA instantly had a negative effect. In my two previous rolls, I hadn’t mixed it. This time I felt an overwhelming anxiety.
 
 An hour into that state, I had to leave the afterparty. I was consumed by unease and couldn’t continue to talk. When I got back to my room at Esperanza, I wasn’t able to sleep. It was no surprise since cocaine makes the process of settling down belabored, so I lay awake, passing out after sunrise.
 
@@ -106,25 +106,25 @@ I’ve always flown under the radar, never seeking attention. So doing the unthi
 
 Against every probable outcome, I partially failed, or partially succeeded — depending on the measuring stick. You could call it my first piece of good luck in six months, coming at a crucial time.
 
-On the other hand, what I did forever changed the life I had and wanted, the people around me, and all that follows. I’m here, but not in a way that feels like me — no matter how far I search for a cure this time around. I wouldn’t wish it on anyone.
+On the other hand, what I did forever changed the life I had and wanted, the people around me, and all that follows. I’m here, but not in a way that feels like me — no matter how far I search for a cure this time around.
 
 This tale has a morose second act.
 
-Since the original intent was to share an advisory, not explore psychological torture, I hadn’t planned to delve into the next chapter of my saga since July. But because it’s all the ripple effect from January, and although it includes shameful details, I’ve found honesty is best at navigating so much uncharted territory. 
+Since the original intent was to share an advisory, not explore psychological torture, I hadn’t planned to delve into the next chapter of my saga since July. But because it’s all the ripple effect from January, and although it includes shameful details, I’m writing this map of uncharted territory for others who get blown off course.
 
 So here’s the rest of my story….
 
 At the end of my third week in The Retreat outside of Baltimore, in early July, with the best doctors in the world no closer to helping me than any had been at the start of my journey six months before, I gave up.
 
-Despite sharing a growing belief that my end was drawing near, and petrified family members calling doctors to warn of the despair they heard in my voice and feared was coming next — naively, nurses had loaned me a 14-foot charger cable.
+Despite sharing with my doctors a growing belief that the end was drawing near, and petrified family members calling to warn of the despair in my voice and feared was coming — naively, nurses had loaned me a 14-foot charger cable.
 
-Outside, in some woods nearby, out of view, I fastened the cable to a sturdy branch on an overturned log above a stream, doubled it twice around my neck, and rolled my body off the edge. I’ve always been drawn to water, so suspending above a trickling creek felt like the most peaceful place on campus to say goodbye. I passed out as the noose caught and cinched tight. 
+Outside, in some woods nearby, out of view, I fastened the cable to a sturdy branch on an overturned log above a stream and doubled it twice around my neck. I’ve always been drawn to water, so saying goodbye above a trickling creek felt like the only option on campus I could live with, so to speak. I rolled my body off the edge — the noose caught, cinched tight, and I passed out. 
 
 Sometime later — no one knows how long — one of the cords snapped, then the other, and I fell. Two bursts of orange flooded my head in flashes of the most intense pain I’ve ever known as consciousness returned. My eyes popped open and I jolted back to life, like a scene from a movie. But the right side of my body was numb, I had twitching fingers, double vision, pulsating pupils, uncontrollable shivering, and other weird thermodynamic effects from starving my brain of oxygen long enough to shut it down. This was all later diagnosed as an anoxic brain injury to my left hemisphere.
 
 When alert enough to rise, I stumbled back to The Retreat and turned myself in. I was escorted to the emergency room in delirium — coping with the effects of the brain injury I’d just suffered, compounded by the insomnia that broke me down in the first place. Nothing, not even hanging, would let me escape. I was trapped in an episode of Black Mirror or The Twilight Zone.
 
-Then, in a twist of dark humor from the universe (that even made Dr. Earley laugh when he heard), I became sleepy in the ER for the first time in six months. Somehow, shutting my brain down reset it in a way that brought intense fatigue — which none of 40+ medications could ever do. So I dozed in and out of consciousness for three days, as MRIs, echocardiograms, and other tests were done to look for necrosis or a heart attack.
+Then, in a twist of dark humor from the universe (that even made Dr. Earley laugh when he heard), I became sleepy in the ER for the first time in six months. Somehow, restarting my brain brought intense fatigue — which none of 40+ medications could ever do. So I dozed in and out of consciousness for three days, as MRIs, echocardiograms, and other tests were done to look for necrosis or a heart attack.
 
 In spite of my self-induced asphyxiation, I was being kept on the hospital’s stroke unit — rather than its protected psych floor. It may have been my well-groomed appearance or polished manner that deceived doctors into not seeing the risk, ignoring what had just brought me in. And so that’s how, shortly before I was scheduled to be transferred to a trauma unit, on the afternoon of July 9, still in anoxic delirium, I broke free from the sitter assigned to watch me when distracted, and bolted to the 6th-floor exit down the hall. Without pause, I dove head-first down the stairwell center — figuring a six-story drop would end the suffering once and for all.
 
@@ -142,7 +142,7 @@ Still in a trance from my head colliding with cement, I thought about Moses in t
 
 When strong enough to walk, I walked in circles. Endlessly. Sam's voice beside me brought periodic news of the outside, beyond the walls… an assassin shot Trump at a rally, but the bullet grazed his ear… a giant bridge across the Chesapeake collapsed nearby, cars dropping into the water as stones into a pond. My world — inside and out — had become magical realism, One Hundred Years of Solitude. Fiction morphed into fact in this Borgesian labyrinth. My sleepless life had become the requiem for a dream.
 
-Given my apparent penchant for transforming medical campuses into deathtraps, ward leadership was terrified of a lawsuit. So that meant all eyes on me, day and night, a never-ending watch. My life was paper scrubs, paper spoons, rubber mattress, plastic pillow, no sheets, metal toilet, no lid, Stockholm shower, no curtain. Strip searches at sunup and sundown. The pattern repeated, day after day after day. I’d become their Al Capone… Hannibal Lecter, without the Goldberg Variations as company… the Kurt Cobain of insomnia. But their overzealous posturing didn’t matter. The moment to save me came and went before I arrived.
+Given my apparent penchant for transforming medical campuses into deathtraps, ward leadership was terrified of a lawsuit. So that meant all eyes on me, day and night, a never-ending watch. My life was paper scrubs, paper spoons, rubber mattress, plastic pillow, no sheets, metal toilet, no lid, Stockholm shower, no curtain. Strip searches at sunup and sundown. The pattern repeated, day after day after day. I’d become their Al Capone… Hannibal Lecter, without the Goldberg Variations as company… the Kurt Cobain of insomnia. But their overzealous posturing didn’t matter. The moment to save me came before I arrived.
 
 I did my time, and eventually, six weeks later, was released in mid-August. Since then, I’ve survived by planting and cutting trees on acreage I own, and long adventures with my dog [Peanut](https://www.instagram.com/theotterholt/) — trying to keep at bay depression’s downward pull of gravity on a level I never knew existed in this world. Worn out by what’s become a year without rest, now navigating unsettling deficits of a new brain trauma — I keep thinking back to my life before this all started, and the dreams I had to leave behind along the way. I can’t understand why any of it happened, and I’m not able to sleep much, still...
 
@@ -244,9 +244,11 @@ I’ll never forget. My first light. Last light.
 
 On another earth, one where I didn’t take the orange pill, we’re still in drømland, sammen, [liebesträum](https://youtu.be/FZ651tNXp0Y).
 
-But here in this parallel universe, the upside-down — all is gone. Even the ghost and me.
+But here in this parallel universe, the upside-down — all is gone. Even I’m a ghost now too.
 
-There is an uncanny trait of sleeping pills called kindling, which makes it harder to withdraw the second time. Love is one of those drugs too.
+There is a mysterious trait of sleeping pills called kindling, which makes it harder to withdraw from the same drug a second time. Love is that way. 
+
+I can’t go through withdrawal again. 
 
 Coming up on the anniversary of the first night that started all the sleepless ones to follow, I keep thinking back to this time last year… healthy and strong, chemical-free, soundly sover, my world in motion, a new moon rising, criss-crossing shimmering sea-waves, embarking on what I thought was becoming — like a lightening strike — the brightest chapter of my life. I’d always heard, “From the brightest day, comes the darkest night.” 
 
@@ -256,7 +258,7 @@ Sleep is like true love. It finds you when you’re not looking. It fills you wi
 
 There is one difference. All know sleep. Few ever know true love. I couldn’t know it then, but I lost both, the same night. 
 
-One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesyk, but never lovelorn. ‘Cause I did it to myself. That… is the hardest pill to swallow.
+One tiny cap I barely remember taking, broke my nights, my world, and my heart — in that order. Lovestruck, became lovesick, but never lovelorn. ‘Cause I did it to myself. That… is the hardest pill to swallow.
 
 This December, every carol echoes a bittersweet memento to the final weeks of shining eyes one year ago, before my story began. I miss those nights like you can’t imagine. Last year’s nocturnes were the shooting stars of a light-filled universe, set ablaze, then vanquished. I’ll never get those starbursts back — my heartlight, the shining eyes — or why they slipped away.
 
@@ -264,6 +266,9 @@ Here’s hoping ECT erases all the memories — like [Eternal Sunshine of the Sp
 
 Until then, red wine and sleeping pills help me get back to your arms. [Maybe I will see you in the next life.](https://youtu.be/EcSvMFm2ABE)
 
-elsklingen min. paa maanen. fœrste blikk. i stjernene. unendilige. ceaseless. siste lys
+fœrste lys. ekte lys. fœrste kyss. stjernelys.
 
-natta
+fœrste blikk. kjærlighet. paa maanen. jenta mi sitte.
+
+siste lys. ceaseless. elsklingen min. natta kyss.
+
