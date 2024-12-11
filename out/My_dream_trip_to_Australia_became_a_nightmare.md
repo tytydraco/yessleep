@@ -52,4 +52,4 @@ I did end up staying a few more nights in Sydney. Honestly, I was still in a sta
 
 For those of you wishing to experience it for yourself, I will not tell you what to do. I will leave you with only one piece of advice. That you educate yourself. Not only by the standards of modern humanity’s limited knowledge of this land, but listen to the stories of those who have lived here since ancient times. Do not underestimate their wisdom.
 
-[It may very well save your life.](https://youtu.be/pgEvUx7Yxbo)
+It may very well save your life.

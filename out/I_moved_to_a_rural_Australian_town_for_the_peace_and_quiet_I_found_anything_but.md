@@ -42,4 +42,4 @@ No idea what exactly it was that I saw on those security recordings. It was clea
 
 Whatever it was, it wasn’t there to play. It was very clearly taunting me. And I’ve no doubt it woulda done a lot more than that, had I ever shown my face. As for why it never came into the house? I dunno. Maybe it did? There were those scratch marks up the wall the night my window was busted in. Maybe they were inside that night, and I never even knew it.
 
-[Scary stuff...](https://youtu.be/bKf38wbfbys)
+Scary stuff…

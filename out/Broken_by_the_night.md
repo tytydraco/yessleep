@@ -1,4 +1,4 @@
-M43. On January 12th, 2024, my happy, healthy, successful life was forever turned upside-down by one Friday night.
+On January 12th, 2024, my happy, healthy, successful life was forever turned upside-down by one Friday night.
 
 This is a tale of party drugs. It’s also a life-and-death journey I could’ve never imagined in my wildest dreams. 
 
@@ -242,7 +242,7 @@ Before the sleepless nights took my sirensong away again, this time for good, he
 
 I’ll never forget. My first light. Last light.
 
-On another earth, one where I didn’t take the orange pill, we’re still in drømland, alt, sammen, [liebesträum](https://youtu.be/FZ651tNXp0Y).
+On another earth, one where I didn’t take the orange pill, we’re still in drømland, sammen, [liebesträum](https://youtu.be/FZ651tNXp0Y).
 
 But here in this parallel universe, the upside-down — alt is gone. I am a ghost now too.
 
@@ -272,9 +272,11 @@ fœrste kyss. stjernelys.
 
 fœrste blikk. kjærlighet. 
 
-paa maanen. jenta mi sitte.
+paa maanen. jenta sitte.
 
-siste lys. ceaseless. 
+elsklingen. alt miss.
 
-elsklingen. natta kyss.
+ceaseless. siste lys.
+
+natta
 
