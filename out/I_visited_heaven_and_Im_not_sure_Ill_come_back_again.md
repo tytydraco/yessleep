@@ -30,7 +30,7 @@ You might think I am afraid and terrified of them, with some unlucky ones having
 
 They're not just ghosts. Imagine being tied to your body even as it rots away. Feeling every agonizing moment as your form decays and fades, becoming less and less. You try to hold on to your thoughts, but they dissolve like sand through your fingers, leaving only the unbearable awareness of everything you're losing. It never stops. The feeling, the awareness — they linger, a cruel punishment till everything you are fades away to dust.
 
-That's what the people there told me anyway. The ones who welcomed me to Heaven, the ones who warned me about the rules. They told me every action has consequences now. Every word either brings me closer to or further from that perfect place. And I can feel myself changing, becoming something rigid and careful. Each movement calculated; each word weighed against eternity.
+That's what the people there told me anyway. The ones who welcomed me to Heaven, the ones who warned me about the rules. They told me every action has consequences. Every word either brings me closer to or further from that perfect place. I can feel myself changing, becoming something rigid and careful. Each movement calculated; each word weighed against eternity.
 
 Last night, I tried to eat dinner with Mom. She made my favorite pasta, trying so hard to reach me. As I watched her move around the kitchen, I felt a pang of guilt — and something else. Pity, maybe? Love? I'm not sure anymore. I smiled at her, but it wasn't real. Not the kind that reaches your eyes. It's hard to feel anything real now.
 
