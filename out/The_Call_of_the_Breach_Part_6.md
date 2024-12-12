@@ -1,5 +1,7 @@
 [\[Part 5\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hb7adf/the_call_of_the_breach_part_5/)
 
+[\[Part 7\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hct9a1/the_call_of_the_breach_part_7/)
+
 *Knock, knock, knock.*
 
 “Lieutenant?”
