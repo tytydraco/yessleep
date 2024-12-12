@@ -5,7 +5,7 @@ When my grandfather got divorced, he didn't take it well, and after all the cour
  
 
 
-When my dad started talking about going out to Grandpa's to clean up the big house. I, of course, wanted to go with him. Being a 9-year-old in northern Appalachia, I was always kind of outdoorsy, and Grandpa's house was in the middle of a beautiful forest that stretched for miles in every direction. At night I would look up at the stars and make binoculars with my hands and try to see heaven. I never did, but that sky was pretty close.
+When my dad started talking about going out to Grandpa's to clean up the big house. I, of course, wanted to go with him. Being a 9-year-old in northern Appalachia, I was always kind of outdoorsy, and Grandpa's house was in the middle of a beautiful forest that stretched for miles in every direction. At night I would look up at the stars and make binoculars with my hands to try to see heaven. I never did, but that sky was pretty close.
  
 
 
@@ -13,11 +13,11 @@ In hindsight, I don't really know why my dad let me come with him; it's not the 
  
  
 
-When the door opened, it let out this terrible rusty groan that reverberated through the house; it was so loud it shook my whole body. Then I noticed the smell; it was a primordial funk that had fermented and distilled for 20 years until it became something closer to an emotion than a smell. At the time, I thought it smelled like teargas, but I was 9, and I didn't know what teargas smelled like, so I was probably wrong. The second thing I noticed was the unrealistic amount of trash. There were piles in every corner, covering every surface. Some piles towered over me, and I thought they might swallow me whole. Even at 9, I thought it was way too much for Grandpa to have accumulated in his months as a shut-in, but I chalked it up to him being a hoarder, and we started to go through the house room by room and get an idea of what we were dealing with. 
+When the door opened, it let out this terrible rusty groan that reverberated through the house; it was so loud it shook my whole body. That held my attention for a little bit, but then I noticed the smell; it was a primordial funk that had fermented and distilled for 20 years until it became something closer to an emotion than a smell. At the time, I thought it smelled like teargas, but I was 9, and I didn't know what teargas smelled like, so I was probably wrong. The second thing I noticed was the unrealistic amount of trash. There were piles in every corner, covering every surface. Some piles towered over me, and I thought they might swallow me whole. Even at 9, I thought it was way too much for Grandpa to have accumulated in his months as a shut-in, but I chalked it up to him being a hoarder, and we started to go through the house room by room and get an idea of what we were dealing with. 
  
 
 
-You know how sometimes if you're walking with another person and your footsteps are just out of sync enough, it can sound like there's an extra pair of footsteps? I remember having that feeling multiple times as we walked from room to room, but I just brushed it off because it was a big house and we had a lot of ground to cover. When we finished our tour of the ground floor, we headed to the second floor. I remember my dad pausing for a little too long when he got upstairs; the only reason I remember that was because I got annoyed waiting behind him, and I was anxious to see more of the creepy old house. He muttered something under his breath, then walked in.
+You know how sometimes if you're walking with another person and your footsteps are just out of sync enough, it can sound like there's a third person walking with you? I remember having that feeling multiple times as we walked from room to room, but I just brushed it off because it was a big house and we had a lot of ground to cover. When we finished our tour of the ground floor, we headed to the second floor. I remember my dad pausing for a little too long when he got upstairs; the only reason I remember that was because I got annoyed waiting behind him, and I was anxious to see more of the creepy old house. He muttered something under his breath, then walked in.
  
 
 

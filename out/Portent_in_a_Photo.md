@@ -6,7 +6,7 @@ Yesterday, I got a message from someone I hadn’t heard from in years. “Hey, 
 
 “Oh my God, yeah, I think that’s me,” I typed back. “Thanks so much for sharing it! Mom and I love looking at old pictures.”
 
-He typed a two-word response: “Me too.” An ellipsis flashed next to his name for a good minute of so like more was coming, but nothing did. I thought about keeping up the chat, but I didn’t want to bother him, so I just saved the picture and made a mental note to share it with ma when I next saw her. I did exactly that the night before Thanksgiving. I wish I hadn’t, but this is where I’m at now.
+He typed a two-word response: “Me too.” An ellipsis flashed next to his name for a good minute or so like more was coming, but nothing did. I thought about keeping up the chat, but I didn’t want to bother him, so I just saved the picture and made a mental note to share it with ma when I next saw her. I did exactly that the night before Thanksgiving. I wish I hadn’t, but this is where I’m at now.
 
 At some point in my young life, I guess loved him. We were never serious—we were too young for that—but he was a lot of things to me. He was someone I grew up with, a childhood friend and a man I could trust, and a sweet, guiltless first kiss at sixteen. Then he grew into a certain severity as a teenager, keeping me at arm’s length until our relationship fizzled.  He moved to another state and I moved on with my life. 
 

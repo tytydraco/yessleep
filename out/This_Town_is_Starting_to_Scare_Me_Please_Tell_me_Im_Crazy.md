@@ -24,3 +24,8 @@ I’m aware that none of this is connected and that all of this is probably just
 
 If you read through all of this, I appreciate it. 
 
+
+EDIT: 
+A lot of you don’t seem to understand why I chose to move here in the first place. When I first came here, it was the middle of the day in the middle of the week. I genuinely just thought people were at work, you know? Living their lives. I didn’t stick around cause the music was getting on my nerves, and I lived more than an hour away from the apartment. I was on a time limit to move, so I threw myself and my belongings in here as fast as I could. I only noticed the weird stuff after. At the end of the day, the place was the closest to my new job, and it was the cheapest one available.  
+
+As for leaving, I can’t. Believe it or not, people are poor. Sometimes, we have to settle on places to live because of convenience. I’ve already put too much money into this place, and breaking my lease is way more cash and trouble than I can afford right now. And no, I can’t just go somewhere else. I just have to stick it out at this point. I’m already taking as many shifts that they’ll give me, so I just have to hold out and hope I can afford someplace better. For now, all I can do is invest in a decent white noise machine or something. I appreciate the help, y’all. 
