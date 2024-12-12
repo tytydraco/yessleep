@@ -145,11 +145,9 @@ My room was empty save for my old bed and a few boxes. Posters of metal bands an
 
 I opened Betty’s carrier and to my surprise, she didn't come out. Instead, she huddled in the back of the carrier in a tiny black ball, the slitted pupils of her yellow eyes wide and on guard.
 
-It was as if I were looking at a different cat than the one I came here with. Betty was the most trusting living thing I’d ever met.
+It was as if I were looking at a different cat than the one I came here with. The night Jenny bailed me out, Betty padded up to me like we were old friends, and in a world full of weirdos who did nasty things to cats, I couldn’t justify killing myself and leaving her on that bridge. There wasn't an ounce of that usual confidence in her now. 
 
- The night Jenny bailed me out, she padded up to me like we were old friends, and in a world full of weirdos who did nasty things to cats, I couldn’t justify killing myself and leaving her on that bridge. There wasn't an ounce of that confidence now. 
-
-“It’s only for a week,” I assured her. “Then we never have to see this place again.” 
+“It’s only for a week,” I assured. “Then we never have to see this place again.” 
 
 I reached in and rubbed her cheek with the back of my fingers. She leaned into my touch, but still refused to come out. 
 
