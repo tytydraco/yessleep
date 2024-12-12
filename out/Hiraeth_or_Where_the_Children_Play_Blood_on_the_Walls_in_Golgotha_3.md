@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hawej8/hiraeth_or_where_the_children_play_2/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hawej8/hiraeth_or_where_the_children_play_2/)/[Next](https://www.reddit.com/r/nosleep/s/FnbmdbenoG)
 
 The seven men were marched from their cells into the front square near the gate of Golgotha where a crowd gathered for witness. Boss Maron and his subordinates had each of the men tied to the next so they were like a chain gang connected by thick rope around their wrists and ankles; each pair of hands tied high behind their backs. All of the men in line dared not look up from their collected feet as they were trickled into the square where the crowd was silent save for sudden outcries of righteousness; it was a punishment not given often but their crimes were too severe for anything less it seemed. I was there too, watching from behind a pair of young women. For the men’s sake at least the sky was clear and bluish and I’d not seen any birds.
 
@@ -112,4 +112,4 @@ We shared that bottle then another and I learned that Dave was sometimes called 
 
 The following morning, there was the ringing of large bells and the wizards came.
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hawej8/hiraeth_or_where_the_children_play_2/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hawej8/hiraeth_or_where_the_children_play_2/)/[Next](https://www.reddit.com/r/nosleep/s/FnbmdbenoG)
