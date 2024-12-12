@@ -1,5 +1,3 @@
-\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~
-
 Let me start by saying I am *not* allergic to cinnamon. This isn’t one of those “I ate a cookie and my throat closed up” kind of stories. No, this is worse. Much worse.
 
 You see, I suffer from PTSD. Not the military kind. Not the “I got lost in the Amazon jungle” kind either. My trauma stems from something far more sinister: Margaret.
@@ -12,7 +10,7 @@ She left me for a guy who looked like Jabba the Hutt if Jabba wore Gucci loafers
 
 ‍
 
-After the divorce, I was a wreck. My coworkers kept chirping about "plenty of fish in the sea," like the sea wasn’t filled with mercury and floating garbage. So, naturally, I decided the solution was isolation. 
+After the divorce, I was a wreck. My coworkers kept chirping about "plenty of fish in the sea," like the sea wasn’t filled with mercury and floating garbage. So, naturally, I decided the solution was isolation.
 
 I bought a cottage in the middle of buttfuck nowhere. A fixer-upper with no Wi-Fi, heating, or running water, but it had a fireplace, so that’s something.
 
