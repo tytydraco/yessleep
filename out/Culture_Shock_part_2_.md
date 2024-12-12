@@ -77,3 +77,6 @@ Susannah wheeled overhead, beautiful and terrible, reaching for me with clawed h
 Dawn would come soon enough. Until then, I spread my wings wider and tried not to think about tomorrow's choice. The night was deep, the hunger was rising, and somewhere in the darkness, my humanity was screaming for me to remember who I used to be.
 
 Whether I would listen remained to be seen.
+
+
+Part [3](https://www.reddit.com/r/nosleep/s/pMVwgqmFTE)
