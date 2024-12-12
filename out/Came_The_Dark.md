@@ -1,8 +1,5 @@
-Prologue
-
 I had never considered that being alone in the woods at night would be a scary experience. Sure there are animals that may pose a threat such as wolves and bears, but wolves and bears have rarely ever been documented to actively hunt humans. Of course what appears to be an animal may seem completely different when hidden behind the shadows of the trees in the dark recesses of the forest. What lurks around you at night may seem to be playing with your sanity as you struggle to comprehend the nocturnal escapades of the wilderness around you. Surely most who dare camp alone aren't driven to madness by a soft rustling of a bush nearby. And I, “one of the brave”, who don't mind being all alone out amongst a sea of trees, had decided to bear through a cold winter on an extended vacation out in my grandfather's cabin. However, my pleasant experience soon soured when the last light of day sunk down over the horizon, casting my surroundings in the black void of night. And the particular animal that moved in the shadows outside had cemented my decision to never enter the woods again.
 
-Part 1
 
 It was a chilly winter morning in late November of 1995. I was out on a solo winter getaway at my grandfather's cabin to relax and enjoy the stunning views of the mountain and hills around the area. It had been ten long years since I had last stayed in this cabin. I was 15 on my previous visit and had already seen most of the beautiful natural scenery that surrounds this place. 
 
@@ -32,7 +29,6 @@ The roots of this tree were overgrown and the ones that hung off the cliff face 
 
 I stepped past the rock and pulled out the flashlight in my pack to get a closer look. The light in my hand illuminated the ground I stood on and showed this wasn't just the deer skull, it was the whole skeleton. Pure white, picked clean, something had been chewing on these bones. Then it hit me. I had just realized where I was. I was standing in the den of a hibernating bear.
 
-Part 2
 
 Not wanting to leave what I came in for, I quickly grabbed the skull and turned towards the exit. One of the bones had rattled loose and struck against the rock I stood over, sending a soft sound slowly increasing in volume as it echoed further down into the darker parts of the cave. Nothing but silence returned, at least for a moment. I again turned towards the exit and as I stepped out back into daylight, a low deep guttural growl bellowed out of the darkness behind me. I started sprinting down the hill and past the lake, clutching the deer skull tightly, eventually making my way back to the cabin. That was probably the fastest I had ever run in my life. There's nothing like the fear of death to really get you off your ass.
 
@@ -66,7 +62,6 @@ fearful that my thin pine wood door would be no match for that massive bear outs
 
 A deep wailing moan of pain echoed through the air as the bear stumbled back. A moment of silence passed before I saw his eyes appear again, this time shaking with pure blind rage. I stood petrified with terror, my brain melting in fear as I stared ahead and saw those glowing yellow eyes as they slowly raised up and were now standing over 12 feet off the ground, shooting a look of murderous intent down at me through the darkness. Impossible… I stopped believing that what I was looking at was an animal. Whatever it was, it sure as hell wasn't a bear.
 
-Part 3
 
 That monster outside appeared to intentionally avoid stepping into the light. It did its best to remain mostly unseen but its silhouette was easy to make out. By its side I saw as it slowly raised its left arm and placed it on the back of the tree next to him and started pushing. Sounds of cracking wood vibrated through the air as the tree began to lean, then CRACK! The tree had snapped at the base and fell on top of the cab of my truck, shards of glass exploding outward as the roof had crumpled like a tin can under the weight of that heavy pine.
 
@@ -100,7 +95,6 @@ I could feel the ground shaking as it stomped around the outside of the pipe, tr
 
 I quickly slid out the other end of the pipe, crawled out of the ditch and back onto the road. I was blinded as I basked in the bright gleaming light of my salvation, a snow plow, approaching from down the road, followed closely by the lights and sirens of a fire truck. In a fit of hysterical laughter I slumped forward, passing out from exhaustion on the cold ground.	
 
-Epilogue
 
 I woke up three days later in a hospital bed. My leg had died from the frostbite and had been amputated. The emergency response team that found me had me airlifted to a hospital in Tacoma. After resting for a while, a duo of police officers entered my room looking to get a statement. They inspected the damage to my cabin and concluded that the fire was caused by a fallen tree. I wondered if they meant the tree that had destroyed my truck. They claimed that the charred trunk of a pine tree was found laid across the foundation of the cabin. That was all that remained among the ashes of what used to be my grandfather's beloved mountain home. That damn thing had managed to cover its tracks, and covered them well. As for my statement, I couldn't have told them about a 12 foot tall monster that lurks in the dark, who would ever believe that. I took a short pause to think and recounted my frequent visitor, “the bear”. That sort of explained my little bear trap incident. The officers finished their report and left me to rest.
 

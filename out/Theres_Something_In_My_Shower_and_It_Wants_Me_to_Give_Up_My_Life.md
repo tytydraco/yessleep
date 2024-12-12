@@ -55,3 +55,5 @@ I’m too conscious about my public image to get mental help and I’m too distr
 At least I know now. There really *is* something more out there, some force of the beyond that may be outside of human understanding completely. I don’t know how many more encounters I can survive before my mind really *does* snap, though. I’m already exhausted, feeling only half-alive during the day hours due to what little sleep I get at night. I’m experiencing that feeling of being watched almost all day now, but its strength seems to increase by tenfold during the night.
 
 Speaking of, I think I’ll head to bed immediately after posting this. Maybe I can get some better sleep if I attempt it while daylight is still around.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1hcald9/theres_something_under_my_bed_and_its_obsessed/)
