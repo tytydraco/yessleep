@@ -1,0 +1,19 @@
+I never expected this story to see the light of day. For over two decades, this event has been one of the most whispered-about tales in military circles. I’ve heard it discussed late at night on base, murmured over beers by soldiers who swore they knew someone who was there. Most would dismiss it as a tall tale, but for those of us who were involved—or close enough to the aftermath—this wasn’t some campfire story. It was real.
+
+The first time I heard it resurface publicly, I was stunned. A leak on a shadowy corner of the web mentioned the “Kandahar Giant,” and I nearly dropped my coffee. The post detailed things only someone with clearance would know. The body size, the engagement details, the aftermath—it was all there, almost word-for-word as I remember it being debriefed to us. It confirmed what I’d known all along: this wasn’t some fabrication. And now, I feel compelled to set the record straight.
+
+It happened in the summer of 2002. I was part of a small squad tasked with searching for a missing patrol in the mountains of Kandahar, Afghanistan. The unit had gone radio silent after a distress call, and command feared the worst. We were dropped at the base of a jagged, desolate range—a place that felt like stepping into another world. The locals avoided the area, and one of our interpreters mentioned strange stories of “giants” living deep in the caves. We brushed it off as folklore, but looking back, maybe we should’ve listened.
+
+As we moved through the craggy terrain, the air grew heavy. Something was off, and we all felt it. Eventually, we stumbled upon the remains of the missing patrol. The scene was… gruesome. Their bodies were torn apart, their gear shredded like paper. Whatever had done this wasn’t human.
+
+Before we could even process what we were seeing, it appeared. A figure emerged from the mouth of a cave, and every instinct in my body screamed to run. This thing was massive—easily 12 feet tall, with fiery red hair, leathery skin, and six fingers on each hand. It carried a spear that looked like it belonged in a museum, but it wasn’t some ancient artifact. It was a weapon, and it knew how to use it.
+
+The engagement was chaos. We opened fire immediately, but it moved faster than anything that size should. I remember the sound of its roar, this deep, guttural noise that shook me to my core. Eventually, sustained fire brought it down, but even as it fell, it fought back with terrifying strength. When it finally went still, we all just stood there, stunned and shaken.
+
+We radioed for evac, and that’s when things got even stranger. Within hours, a special ops team arrived, complete with scientists and a massive transport chopper. They loaded the body onto the aircraft and debriefed us in a way that made it clear: we were never to speak of this. “National security,” they said.
+
+For years, I stayed silent. It wasn’t just fear of the consequences—it was the knowledge that no one would believe me. But this story spread, as stories like this always do. It became legend among soldiers, the kind of tale you hear over and over with just enough consistency to give you pause.
+
+Now, with the leak, the truth is out. People are finally connecting the dots, and I feel a strange sense of relief. This isn’t just a story about a giant in the mountains. It’s about what else the world might be hiding, the things we aren’t supposed to know.
+
+So, take this as you will. Call it a hoax, call me crazy. But if you’ve ever served, if you’ve ever heard the whispers late at night about “that thing in Kandahar,” then you already know the truth. Sometimes, the stories are real.
