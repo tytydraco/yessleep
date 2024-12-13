@@ -97,3 +97,7 @@ But as Susannah turned to me, her tongue already lengthening in anticipation, he
 It was what I was becoming.
 
 And what I might have to do to stop it.
+
+
+
+Part 4 [here](https://www.reddit.com/r/nosleep/s/DRPREDcKqt)
