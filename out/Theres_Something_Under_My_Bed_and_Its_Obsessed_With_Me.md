@@ -58,6 +58,8 @@ After a few moments, I dared to open my eyes.
 
 Nothing was there; I was alone in my room once more, and the trademark feeling of life-fearing panic this being induced had dissipated.
 
-Thankfully, I didn’t have another run-in with it for the rest of the night, or in the morning (I admittedly skipped taking a shower). A part of me wants to believe I succeeded in banishing it from my house, but I know that’s probably too optimistic. In any case, I have some finals to finish up at college before the semester ends, so even if I *did* manage to banish it from my room/household, I have yet to see if it’s capable of haunting me at my campus. I’m writing this from the library, and while nothing has happened as of now, I have yet to experience nightfall at the college since this all began. 
+Thankfully, I didn’t have another run-in with it for the rest of the night, or in the morning (I admittedly skipped taking a shower). A part of me wants to believe I succeeded in banishing it from my house, but I know that’s probably too optimistic. In any case, I have some finals to finish up at college before the semester ends, so even if I *did* manage to banish it from my room/household, I have yet to see if it’s capable of haunting me at my campus. I’m writing this from the library, and while nothing has happened as of now, I have yet to experience nightfall at the college since this all began.
 
 Whatever happens, contingent on my survival, I’ll have another update tomorrow.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1hd21ep/theres_something_in_my_college_dorm_and_my/)

@@ -1076,7 +1076,7 @@ After that, I don’t know.
 
 
 
-\[Interview Directory\](https://www.reddit.com/user/Dopabeane/comments/1h41nkq/pantheon\_inmate\_interviews\_in\_chronological\_order/)
+[Interview Directory](https://www.reddit.com/user/Dopabeane/comments/1h41nkq/pantheon\_inmate\_interviews\_in\_chronological\_order/)
 
   
-\[Employee Handbook\](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/)
+[Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook\_of\_inmate\_information\_and\_protocol\_for/)
