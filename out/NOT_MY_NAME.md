@@ -6,24 +6,30 @@ I never thought anything between us would go wrong, especially not today, on our
 
 He’s an accomplished neurosurgeon, and from the moment we started talking, I was *charmed*. There was this strange attraction between us, and I couldn’t help but want to get to know him better. Now I can’t even say his name without feeling a repulsive, cold shiver of disgust and horror. I remember being approached by him, and he went on for minutes about how I reminded him of a certain someone.
 
-*I thought I knew him* – how could I have **missed** the signs? He had nothing unusual to his character before we married. He was confident, well-spoken, intelligent, and had the physique and looks that really attracted me – everything I thought I wanted in a partner. When we clicked, it felt like fate. 
+*I thought I knew him* – how could I have **missed** the signs? He had nothing unusual to his character before we married. He was confident, well-spoken, intelligent, and had the physique and looks that really attracted me – everything I thought I wanted in a partner. When we clicked, it felt like fate.
 
-Victor told me *I reminded him of someone he loved and lost* quite often. I didn’t care to ask because at first, I felt flattered; and now this remark of his makes my skin crawl.
+Victor told me *I reminded him of someone he loved and lost* quite often. I didn’t care to ask **who** because at first, I felt flattered; and now this remark of his makes my skin crawl.
 
 In the beginning, everything about us was so natural. We had issues, but none that stopped us from being together. He was so attentive. He bought me gifts – clothes, jewellery and everything he thought I’d love or would look good on me. But *there was something* about the gifts he’d bring – he would get really, really upset if I didn’t appreciate or wear them enough. Not angry – not typical, but *really quiet* and *withdrawn*. It got so intense he would give me the silent treatment for days.
 
-  
-His estrangement from me began with little, mistakable things – *he started to get my name wrong,* calling me *“Evelyn”*, instead of *Emma*. When I pointed it out, he smiled and said he liked the name, insisting it suited me better. He even claimed it to be a special nickname, *something just between us*. I didn’t mind at first, and never felt anything special behind the purpose of him doing so.
+His estrangement from me began with little, mistakable things – *he started to get my name wrong,* calling me *“Evelyn”*, instead of *Emma*. 
 
-He then landed into an obsession of making me do things in a certain way. **It never felt right.** Sometimes, he’d ask me to do my hair in a way he’d like, wear a certain set of clothes on a certain day, eat in a specific manner, all of which felt… initially innocent yet increasingly pervasive with each demand he made. 
+**NOT MY NAME.**
+
+  
+When I pointed it out, he smiled and said he liked the name, insisting it suited me better. He even claimed it to be a special nickname, *something just between us*. I didn’t mind at first, and never felt anything special behind the purpose of him doing so.
+
+He then landed into an obsession of making me do things in a certain way. **It never felt right.** Sometimes, he’d ask me to do my hair in a way he’d like, wear a certain set of clothes on a certain day, eat in a specific manner, all of which felt… initially innocent yet increasingly pervasive with each demand he made.
 
 I couldn’t make anything meaningful of those requests, until one day I stopped listening to him. We got into a huge argument that day, and he really started growing distant. I tried apologizing to him if I hurt his feelings, because I was afraid he didn’t really express much. We happened to patch up again, and he was mature enough to realise he really did become too controlling. *I let it pass.*
 
-I thought, *maybe he was just particular*, or maybe I wasn’t paying enough attention to him. After all, I wanted this to work. **I should have known better.**
+I thought, *maybe he was just particular*, or maybe I wasn’t paying enough attention to him. After all, I wanted this to work. 
 
-I thought he was just.. I don’t like to put it this way, not satisfied with what I offered to him. So I tried being intimate (he never gave any effort) and he always dismissed my approaches – and this was the case even well before we got married. He was always so obsessed with *keeping me “pure”* and saving the bedroom for marriage. 
+**I should have known better.**
 
-Now that we are married, and I have seen nothing go in that direction – and I feel a little lost. However this really isn’t a problem for me since I'm not the most physical person either, but yes.. everybody waits for their moment.
+I thought he was just.. I don’t like to put it this way, not satisfied with what I offered to him. So I tried being intimate (he never gave any effort) and he always dismissed my approaches – and this was the case even well before we got married. He was always so obsessed with *keeping me “pure”* and saving the bedroom for marriage.
+
+Now that we are married, and I have seen nothing go in that direction – I feel a little lost. However this really isn’t a problem for me since I'm not the most physical person either, but yes.. everybody *waits for their moment.*
 
 He began to sense this, I think - and he had found a new obsession. He often insisted on giving me massages, and at first, I loved the attention – it felt intimate in a way nothing else between us did, aside from our usual kisses. But the more he offered, the more it started to feel strange. I didn’t really get why it had to be so frequent, and why he seemed so focused on my body in that particular way.
 
@@ -43,16 +49,16 @@ This time, he wasn’t just watching. He was murmuring something indistinct unde
 
 ***“So perfect… love, … it’s only.. only time.”***
 
-I tried twitching slightly in bed, raising my head a little, making it clear I was awake through a silent cough. His eyes snapped to mine, and the intensity of his gaze was *utterly suffocating*. *It felt like I’d intruded on something deeply private, something very sacred to him.*   
-  
+I tried twitching slightly in bed, raising my head a little, making it clear I was awake through a silent cough. His eyes snapped to mine, and the intensity of his gaze was *utterly suffocating*. *It felt like I’d intruded on something deeply private, something very sacred to him.*
+
 **The air felt so thick I could barely catch a breath.**
 
-This behaviour, was coming from a man who had no interest in any of my physical urges. The very thought of us going at it repelled him, so much - it was hard for me to even bring this topic to the table without embarrassing myself. 
+This behaviour, was coming from a man who had no interest in any of my physical urges. The very thought of us going at it repelled him, so much - it was hard for me to even bring this topic to the table without embarrassing myself.
 
 **I didn't know what he was saving me for.**
 
-This continued sporadically for about a week. Each night, I was terrified he’d escalate. We didn’t have the habit of cuddling as we slept, so I really could not make out if he was off bed without turning to him. I feared I’d see him stare at me as I slept, or something worse. My imagination ran wild. And then, without any signs, *he stopped.*   
-  
+This continued sporadically for about a week. Each night, I was terrified he’d escalate. We didn’t have the habit of cuddling as we slept, so I really could not make out if he was off bed without turning to him. I feared I’d see him stare at me as I slept, or something worse. My imagination ran wild. And then, without any signs, *he stopped.*
+
 **I should have felt relief, but instead, it left me on edge, wondering what he might do next.**
 
 Nothing really disturbed me until early this month. He gave to me a vase – no, a pot as a gift.
@@ -97,14 +103,13 @@ It was evident he was really excited, and I tried to not spoil his mood. So I re
 
 ***Little did I know, I wasn’t actually prepared.***
 
-  
 He gave me no other *"special"* instructions, so I sprang into my car as soon as I left the hospital (work), and drove home, constantly thinking about the surprise he had readied for me.
 
 As I parked my car in our garage, I stepped out to see that the lights were off, as if the power was out. I could see he placed some candles by the doorstep, and got a new, *"Welcome Home!"* mat. The door was unlocked, so I entered the house with a sense of uneasy awe.
 
 It was drenched in candlelight. There was that same, piny smell from that oil he used previously – but I could feel the faint scent of daisies and lavender fill the air.
 
-The pot sat on the central mantlepiece, casting a shadow on the adjacent wall. The dim orange light from the candles reflected on it in the darkness. *I could however, notice that its lid was slightly open.* 
+The pot sat on the central mantlepiece, casting a shadow on the adjacent wall. The dim orange light from the candles reflected on it in the darkness. *I could however, notice that its lid was slightly open.*
 
 As I went further in, the door closed in behind me with a jingle of tiny bells adoring its corners. It briefly startled me.
 
@@ -124,7 +129,7 @@ My heart raced as I walked towards it, the bells like a countdown for what I was
 
 As I enter the room, I don’t see Victor anywhere near. Something very jarring, however, catches my eye. The bells stop abruptly.
 
-**I see a severed head.** 
+**I see a severed head.**
 
 A head, of a… woman, who resembled me so closely.. it was hard to believe that.. she was, in fact, once alive. *Maybe, maybe.. she was who Victor had been talking about? The one.. I so closely resembled?*
 
@@ -156,7 +161,7 @@ He stepped closer, his grin widening, *“Hush… dear. This won’t hurt, I pro
 
 It all came to me at once. The gifts, the massages, his controlling, quirky requests, and demands for how I looked and acted – it wasn’t me he loved.
 
-**I wasn’t Emma to him. I was her.** 
+**I wasn’t Emma to him. I was her.**
 
 ***Evelyn.***
 
@@ -164,7 +169,7 @@ It all came to me at once. The gifts, the massages, his controlling, quirky requ
 
 ***“Tonight, dear – we worship her.”*** He announced.
 
-My heart raced as his words sank into my paralysed body. 
+My heart raced as his words sank into my paralysed body.
 
 **I was his offering.**
 
@@ -204,7 +209,7 @@ I can’t shake the feeling that whatever I’ve done is not enough. Now I fear 
 
 I don’t feel like sleeping anymore.
 
-I thought I knew him. 
+I thought I knew him.
 
 I thought I understood what love meant.
 
