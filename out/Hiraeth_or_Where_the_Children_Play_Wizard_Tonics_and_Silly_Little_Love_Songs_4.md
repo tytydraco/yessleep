@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/DbWFO4XKai)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/DbWFO4XKai)/[Next](https://www.reddit.com/r/nosleep/s/LnGvyWvdgQ)
 
 
 The wagons or tanks rolled through the gate in a caravan that was more akin to a carnival than a group of tradesmen; all the wizards with their pointed hats were shaped magnificently against the browns and grays, some wore white porcelain dramedy masks beneath headwear as dark as pipe resin, men and women and those between—as that was common from where they hailed. Their company was perhaps forty and their mules and mares were thirsty and were led to troughs to idle while the wizards removed goods from their wagons or tanks and although it was not a spectacle for them to arrive within Golgotha’s walls, it was something still and the citizens gathered to greet whatever wizards they might know but mostly perhaps to whisper rumors on them. The wizards seemed a taller folk, but that was because of the hats, and they seemed wider too, but that was for the robes they adorned with costume jewelry, trinkets, or fingernail-sized lanterns which contained magical properties hung off their clothes as ornaments (some metal and other crudely wooden). I never knew a people that could trek the wastes in that time as well as me till I knew them.
@@ -316,4 +316,4 @@ I laughed into my hand. “That’s—that’s a thought.”
 “I mean it.” His stare was like pinpricks.
 
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/DbWFO4XKai)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/DbWFO4XKai)/[Next](https://www.reddit.com/r/nosleep/s/LnGvyWvdgQ)
