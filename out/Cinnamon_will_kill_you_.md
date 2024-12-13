@@ -52,6 +52,6 @@ Great. Just what I needed. A cinnamon-smelling cryptid stalking me in the woods.
 
 Whatever it is, I’ll deal with it. But first, I need to buy more cocoa.
 
-**To be continued…**
+[To be continued…](https://www.reddit.com/r/nosleep/comments/1hd8abd/peppermint_will_kill_you_2/)
 
 \~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~
