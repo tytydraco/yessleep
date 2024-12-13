@@ -1,5 +1,7 @@
 [\[Part 6\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hc13p0/the_call_of_the_breach_part_6/)
 
+[\[Part 8\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hdnwzv/the_call_of_the_breach_part_8/)
+
 “You’ve got your canteen, right?” I glanced over Jamie’s war belt, heart aching within my ribcage.
 
 Her wry features shrouded in the hood of her overcoat, Jamie made a weary grin, and her words became fog in the morning sunlight. “You asked that already.”

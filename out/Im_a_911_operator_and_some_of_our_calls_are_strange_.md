@@ -1,4 +1,6 @@
-[previously](https://www.reddit.com/r/nosleep/s/TWOz8vtIor) [part one](https://www.reddit.com/r/nosleep/s/KM4OoJexKV)
+[previously](https://www.reddit.com/r/nosleep/s/TWOz8vtIor) 
+
+[part one](https://www.reddit.com/r/nosleep/s/KM4OoJexKV)
 
 Hey everyone, sorry about the cliff hanger. There’s been a few… interesting developments. 
 
@@ -261,3 +263,5 @@ I stuck my tongue out at Stark’s  back as he left the room. Too late I realize
 I glanced at the thick stack of papers in the folder than up to the waiting group of strangers. 
 
 I cleared my throat, “so… who knows what they’ve been signed up for?” 
+
+[Next](https://www.reddit.com/r/nosleep/s/0DiEVwrh8h)
