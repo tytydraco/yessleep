@@ -311,5 +311,5 @@ He pulled out a desk drawer and removed a revolver.  Before I could even cry out
 
 The sound of the gun going off was thunderous, like the ringing of some dooming bell.
 
-He had no smile to offer as he met my eyes.  “Because what choice [do you have?](https://www.reddit.com/r/Verastahl/) "
+He had no smile to offer as he met my eyes.  “Because what choice do you [have?](https://www.reddit.com/r/Verastahl/) "
 
