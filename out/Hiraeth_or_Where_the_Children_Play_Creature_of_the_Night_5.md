@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/AMpvpGEcH0)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/AMpvpGEcH0)/[Next](https://www.reddit.com/r/nosleep/s/BnGZCo11p4)
 
 
 
@@ -316,4 +316,4 @@ Maron swiveled forward awkwardly so we were only feet from each other, still wea
 
 Dave refused to speak and that was all for the best.
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/AMpvpGEcH0)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/AMpvpGEcH0)/[Next](https://www.reddit.com/r/nosleep/s/BnGZCo11p4)
