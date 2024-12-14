@@ -1,5 +1,7 @@
 [\[Part 7\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hct9a1/the_call_of_the_breach_part_7/)
 
+[\[Part 9\]](https://www.reddit.com/user/RandomAppalachian468/comments/1heesvf/the_call_of_the_breach_part_9/)
+
 The makeshift headquarters for our tiny alliance was already packed by the time we arrived, and I found myself standing beside the rest of the officials, along with the other lieutenants from both our rangers and Ark River’s forces. All in all, we squeezed into the crowded olive-green surplus tent, around a rectangular folding table where Sean spread out a large paper map of Barron County.
 
 “Our plan is to move fast, up the lesser used secondary roads, to put Black Oak in a pincer.” He placed wooden tokens on the map to signify various units and moved them into position as he spoke. “Our scouts will lead the way through the marshlands in the north, and we will take the enemy by surprise. Hit-and-run attacks will wear down their outer defenses, including outposts and patrol bases, leaving the city exposed. Our guns can help breach the outer walls, and once inside, we will secure the warehouses, weapons depots, and headquarters respectively. If we can close with their heavy armor before it can deploy, we can overwhelm it. Without those, ELSAR won’t be able to maintain their defense, and will be forced to withdraw.”
