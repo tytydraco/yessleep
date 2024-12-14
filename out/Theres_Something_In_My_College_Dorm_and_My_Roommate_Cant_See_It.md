@@ -2,7 +2,7 @@
 
 A part of me was keeping the hope alive that the direct confrontation with the entity in my bedroom was going to be the end of it.
 
- It certainly felt climactic to me, and I had been carrying an emotion that felt like a hybrid between victory and resolution ever since. Those few hours of naivety ended abruptly and more jarringly than I could have anticipated. I can’t fall asleep now that I’ve witnessed its true physical form, and I believe it's still in the corner as I’m typing this. I feel like there’s a barrel of a gun pressed against the back of my head, but I’ve learned to live with it at this point. As always, let’s hope I can finish writing this without spiraling into a panic attack, or a far worse outcome coming to fruition.
+It certainly felt climactic to me, and I had been carrying an emotion that felt like a hybrid between victory and resolution ever since. Those few hours of naivety ended abruptly and more jarringly than I could have anticipated. I can’t fall asleep now that I’ve witnessed its true physical form, and I believe it's still in the corner as I’m typing this. I feel like there’s a barrel of a gun pressed against the back of my head, but I’ve learned to live with it at this point. As always, let’s hope I can finish writing this without spiraling into a panic attack, or a far worse outcome coming to fruition.
 
 After a long day of studying in the library and facing a couple of final exams I had been dreading (my anxiety over test-taking had vanished in light of recent events; most everything around me had begun to seem childish compared to dealing with chronic existential crisis), I was looking forward to relaxing in my dorm room, maybe even turning in for the night ridiculously early once again.
 
@@ -125,4 +125,6 @@ I don’t know if I’ll be getting any sleep tonight, or if I’m just going to
 
 I’ve decided, now. Nothing can possibly be worse than this, so what do I have to lose?
 
- Tomorrow, I’m going to ask out Hazel.
+Tomorrow, I’m going to ask out Hazel.
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1hdteze/theres_something_stalking_me_and_time_is_running/)
