@@ -1,4 +1,4 @@
-Amon allowed me to keep some extra paper today. He demanded I draw a picture of Neil Armstrong and him on the moon together. He says if it’s not good, he’s going to gouge out my eyes. He probably didn't mean it. At least, the eight-year-old part of him didn't. But that ancient thing sharing his skin like an ill-fitting suit? That part never makes empty threats.
+Amon allowed me to keep some extra paper today. He demanded I draw a picture of Neil Armstrong and him on the moon together. He says if it’s not good, he’s going to gouge out my eyes. He probably didn't mean it. At least, the eight-year-old part of him didn't. But that wicked thing sharing his skin like an ill-fitting suit? That part never makes empty threats.
 
 The drawing's finished now. I have maybe two hours before he slips away before school and those small feet pad down the concrete steps. Two hours to write this, to fold it small and slip it behind the loose brick near my cot. Two hours to explain why I know with absolute certainty that one day, Amon will kill me.
 
@@ -208,7 +208,7 @@ I came to with the taste of copper in my mouth and cold cement against my cheek.
 
 "Because you're going to be my new mom," he said, as if it were obvious. "My last mom taught me wrong. She thought the machines could keep the bad parts locked away, but they just made them stronger. But you're different. You understand me. And if you're good—if you really love me—I won't have to hurt anyone else. Not my foster family, not the kids at school. They can all stay alive."
 
-The worst part was his sincerity. The desperate need for connection warring with something ancient and hungry behind his eyes. I thought of Michael's chest, torn open like paper. Of Ms. Hutton's missing heart. Of all the small cruelties I'd witnessed and dismissed.
+The worst part was his sincerity. The desperate need for connection warring with something hungry and violent behind his eyes. I thought of Michael's chest, torn open like paper. Of Ms. Hutton's missing heart. Of all the small cruelties I'd witnessed and dismissed.
 
 "Of course I'll be your mom," I whispered, and watched his face light up with terrible joy.
 
