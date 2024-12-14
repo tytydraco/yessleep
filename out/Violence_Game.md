@@ -2,9 +2,9 @@ While writing this story, Storm Bert and Storm Darragh made their passing over t
 
 I live on top of a hill, so I'm used to the wind. But it's been *really* windy.
 
-I vape and I'm not allowed to smoke in my building, so I step outside. One morning, I exit to a horrendous howling. There are leaves flying, the stream from the garden fountain is disintegrating. Everything is warped by the tremendous energy. 
+I vape and I'm not allowed to smoke in my building, so I step outside. One morning, I exit to a horrendous howling. There are leaves flying, the stream from the garden fountain is disintegrating. Everything is warped by the tremendous energy.
 
-\-an apt metaphor for how it feels to be a child. 
+\-an apt metaphor for how it feels to be a child.
 
 **Tremors**
 
@@ -34,7 +34,7 @@ I recall the first few days we stayed there going fairly smoothly. Will and mum 
 
 Bad things don't always happen quickly; that might be what makes the headlines, but what about all the things that happen behind closed doors?
 
-In truth, a lot of bad things happen very quietly, at low frequencies. They are like barely detectable tremors, not always dangerous in themselves but act as warning signs of what is to come. 
+In truth, a lot of bad things happen very quietly, at low frequencies. They are like barely detectable tremors, not always dangerous in themselves but act as warning signs of what is to come.
 
 For me, that was my arm being grabbed a lot tighter than I was used to. Or a grunt of disapproval with no opening for criticism or explanation. A whack on the shoulder that made me cry and also confused as to what I had done wrong.
 
@@ -80,9 +80,9 @@ The faces were only the beginning. They were tremors.
 
 **My Broken Lighthouse**
 
-My mother conceived me when she was just twenty, through a caesarean pregnancy. Yes, that doctor sliced open her belly and yanked me out into the world. I must have been crying and screaming and so confused. 
+My mother conceived me when she was just twenty, through a caesarean pregnancy. Yes, that doctor sliced open her belly and yanked me out into the world. I must have been crying and screaming and so confused.
 
-I don't even remember how she met my dad, but I know they were both party heads; drugs, alcohol, sex. This was in the late 90s, not that every generation isn't exactly the same. 
+I don't even remember how she met my dad, but I know they were both party heads; drugs, alcohol, sex. This was in the late 90s, not that every generation isn't exactly the same.
 
 I think it's safe to say it was an accidental pregnancy. Neither of them were prepared to bring a child into this world. *My father was so not ready that he didn't want anything to do with either of us.*
 
@@ -92,7 +92,7 @@ I can't say what it's like to have a child at that age. I've told myself that I 
 
 We all have some idea now through the popularization of psychology how generational trauma can operate. People infect those around them with their fears and paranoia, who in turn infect others.
 
-Our family had a lot of problems. It still does, and will do probably long after I'm dead. 
+Our family had a lot of problems. It still does, and will do probably long after I'm dead.
 
 If I had to describe her soul I'd say it was in a state of agitation. Sometimes free and content, even serene, but too often trapped in a state of irritation and upset. It didn't always take a lot to trigger her.
 
@@ -126,7 +126,7 @@ I distinctively remember the thud of his work boots descending. Slow and paced, 
 
 The light coming through the front door cast his shadow through the hall, until he appeared in the doorway, holding a tool and a dirty cloth.
 
-He stared at me with a devious smile carved onto his face. 
+He stared at me with a devious smile carved onto his face.
 
 And then he did something terrible to me.
 
@@ -230,7 +230,7 @@ It's the house cat's house, and he'd played by its rules. So much that his own w
 
 There was a catch, though; no, a latch - on the door of the bathroom. It was the only door in the house with a lock.
 
-That was, at least, something real. Something tangible in this nightmare.
+That was, at least, something real. Something tangible in an otherwise incorporeal landscape made only of fear.
 
 And little ratty had been rehearsing. Not physically, not really mentally either. But some unconscious part of him had been calculating his survival while he stared at the white paint on the back of that door.
 
@@ -266,7 +266,7 @@ Ratty wondered, as he had done a few times before, if the game was over now.
 
 Just as he did so, the bathroom door creaked open.
 
-The monster known as Will was standing there, his expression the amalgam of a hundred nightmares.
+The monster known as Will was standing there, his expression the amalgam of a hundred ancient beasts. 
 
 He grabbed ratty by the scruff and plunged his head into the sink, trying to drown him, but somehow ratty slipped away and ran down the stairs.
 
@@ -292,40 +292,40 @@ Mummy rat come home soon. I'll be in my room.
 
 **The Truth**
 
-My mother had failed me, but so what? A bridge sometimes collapses. Train tracks warp and cause accidents. 
+My mother had failed me, but so what? A bridge sometimes collapses. Train tracks warp and cause accidents.
 
-We expect so much of people, when they're really not that well-equipped. So blind are they. So distracted. 
+We expect so much of people, when they're really not that well-equipped. So blind are they. So distracted.
 
-Barely alive. Barely conscious of what they're doing. 
+Barely alive. Barely conscious of what they're doing.
 
-I could barely speak, barely eat. It's his sore throat, Will said. 
+I could barely speak, barely eat. It's his sore throat, Will said.
 
-Most of my toys had been destroyed and trashed, not that toys could distract me anymore; the danger and the terror had escalated to a point beyond that.  
+Most of my toys had been destroyed and trashed, not that toys could distract me anymore; the danger and the terror had escalated to a point beyond that.
 
-I left the house while they were watching TV one night. Took a walk down a wooded path. Found myself taking off all my clothes to let the rain hit my burns. 
+I left the house while they were watching TV one night. Took a walk down a wooded path. Found myself taking off all my clothes to let the rain hit my burns.
 
-To this day, I don't know why I did that, but it was the sanest thing I ever did. I spent some time burying my head into the leaves and crying. Though my face was covered in dirt and I was stinging all over, I felt peace and solace. 
+To this day, I don't know why I did that, but it was the sanest thing I ever did. I spent some time burying my head into the leaves and crying. Though my face was covered in dirt and I was stinging all over, I felt peace and solace.
 
-I returned quietly with neither of them noticing I'd been gone for over an hour. 
+I returned quietly with neither of them noticing I'd been gone for over an hour.
 
-I walked straight into the living room and sat between them - my mother and Will. 
+I walked straight into the living room and sat between them - my mother and Will.
 
-"Mum, I have something to tell you." I said, over the sound of the TV. 
+"Mum, I have something to tell you." I said, over the sound of the TV.
 
 Will looked over with his mouth poised to interrupt, but before he could -
 
-"I love you." I said, wrapping my arms around her. 
+"I love you." I said, wrapping my arms around her.
 
-"I love you too, darling." She replied, kissing me on the forehead. 
+"I love you too, darling." She replied, kissing me on the forehead.
 
-The next day was a weekend day. In the living room was me and mum, where everything shone in the early light. Will was in the kitchen, attempting to finish his job. 
+The next day was a weekend day. In the living room was me and mum, where everything shone in the early light. Will was in the kitchen, attempting to finish his job.
 
-I decided spontaneously in that moment to tell her everything. As Will was out of earshot, I told her all the things he had done to me and promised to do. 
+I decided spontaneously in that moment to tell her everything. As Will was out of earshot, I told her all the things he had done to me and promised to do.
 
-Then she summoned him into the living room. As he stepped through the doorway, somehow he didn't seem so powerful anymore. 
+Then she summoned him into the living room. As he stepped through the doorway, somehow he didn't seem so powerful anymore.
 
-As mum repeated what I'd said, and pushed him on it, he seemed to do little more than shrug. 
+As mum repeated what I'd said, and pushed him on it, he seemed to do little more than shrug.
 
-Their relationship ended right there and then. 
+Their relationship ended right there and then.
 
-The game was finally over. 
+The game was finally over.
