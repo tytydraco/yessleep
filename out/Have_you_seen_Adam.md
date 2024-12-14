@@ -1,0 +1,21 @@
+Authors note*: My coworker and mentor asked me to write for him and his story is true. Being an avid writer myself, I figured I’d make this in memory of Brent. Thank you where you are.
+
+
+
+I know where you live, your finances, your health care, when you’re getting married, when you’re getting divorced. I know your child’s name, age and height. It’s my responsibility to ensure that that information stays between you and I. After all, I’m just the messenger.
+
+2005 was a horrible year for many of us. The community was destroyed and the people came together. There were bodies everywhere and we will never know the true count. My house was destroyed and the only vehicle I had was a toaster on wheels that stalled in reverse. It was my 10th year in the service and I made it my job to help as many as I could. I failed at that and I will never forgive myself. 
+
+My route was simple. Start at the first seven businesses and deliver to the sober living at my last stop. I’d been on it for 6 years at that point and I loved every day I came in. I watched your kids grow up, your homes get built and the community grow. Bill and Sarah were stop number 317 at the end of the road. They had a big house, with a tennis court and a 100yd brick mosaic driveway. Their son Adam was 2 when I first got on the route. He was autistic but he was a good kid who loved to tell a story. 
+
+Down a dirt a few hundred yards to the west was a dilapidated gas station. It had the old BP sign that still lit up at night and broken windows and an old refrigerator next to a desk. I’d go there for my lunch every day before I hit Bills place. All the cool rocks and golf balls I collected on the route, I’d toss in the fridge. It was a cool fridge with a lock on it like when I was kid. 
+
+When it hit, everything was gone. The flooding was horrid. My route looked like a wasteland but I needed to do a service and even though I had nothing left, I took my handgun with me and a couple cases of beer and snacks. I handed out what little I had with every handful of mail. Every day was rough but I got through it. 
+
+Bill and Sarah’s house was gone. There was sewage all over my route because there was no longer any maintenance to the water supply. The smell was horrid everywhere you went. But old bill and Sarah weren’t worried about that. It was Adam. He was missing. I told them I’d stay on the lookout and that Adam was my priority along with the mail. 
+
+The weeks came and went and still no sign of Adam. The once cheerful lunches were gone. It was just me and the mail. No cell phones at the time. nothing but depression and sewage. Eventually they cleaned up the streets and Bill and Sarah moved on hoping that the police would eventually find Adam. 
+
+Three months after the disaster, I was having lunch, listening to my radio when I realized something. The gas station stank. It wasn’t the mold. The sewage smell wasn’t there anymore. It reminded me of when I worked in the hospital as a janitor on the lower halls. During the summer, they would bring in bodies to the morgue that were bloated and maggot infested and the whole basement floor would have a putrid decomp smell to it. Anyways, back to it. I hadn’t touched the fridge because my mind wasn’t focused on golf balls and rocks, it was somewhere else. I went into the office and noticed that there were golf balls all over the ground. The stench was horrifying and I couldn’t even begin to describe how I felt. I knew immediately what was coming but I pushed away my gut feeling and opened the fridge… 
+
+Authors note continued* your mailman might seem weird. He might be angry at times. But we’ve seen things that nobody would think is normal. As the author, I can tell you that I often find drugs in mailboxes and leave it alone. I’ve seen two men shot in broad daylight and out to fear for my safety, I’ve kept my mouth shut. Please understand that we are human and December is the busiest time of our year. We care about you and want you to be safe and get all your presents in time. -Alex 
