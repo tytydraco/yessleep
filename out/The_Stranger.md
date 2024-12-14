@@ -1,193 +1,27 @@
-*I awoke to the sound of what sounded like rats scratching behind the walls, yellow notepad in hand. I must have fallen asleep compiling today's to-do list. Upon examining the pad I found a message written in unfamiliar handwriting*
+  My wife and I recently moved to her hometown into her childhood home. It was bigger than our old house with plenty of room for not just our two cats, but a new kitten. He was a feisty little guy, easily the most courageous of his siblings. When we brought him home, it wasn’t long before he wanted to explore every nook and cranny of the place. If there was any space we thought it was too dangerous to let him into, he would throw a hissy fit at us, annoyed that there was an untouched area that he wasn’t allowed into. All this is to say, our little guy, Rorschach, was not easily cowed. It was a little surprising to us then, when he was staring, hair up and back arched, into what was to be my wife’s office one evening. The light was on, so I don’t think there was any way he could’ve mistaken anything in there for a threat. Our other cat, Tarrare, was also in the office, so we thought maybe he got spooked by her, seeing as how the little guy still hadn’t gotten completely used to the other cats. I checked the office anyway, for pests or the like, then to be thorough, I looked along the wall outside. Nothing amiss. We didn’t think anything of it at the time. After all, Tarrare was completely at ease in the office.
 
-***Behind you***
+  A few days later, we put our other cat, Häagen-Dazs, alone in the bathroom with the hot water running. She had allergies and the steam from the shower seemed to ease her sinuses. After a short while, my wife, we’ll call her RocksAnn, went to the bathroom to check on her. When she went in, she saw Häagen-Dazs staring intently at the running water. She called her name, but she didn’t respond. Maybe the running water was too loud. She reached down to pet her, but when she did, Häagen-Dazs flipped out, literally. She sprung up and flipped against the wall like a jack in the box popping out. I don’t know what made the poor girl so spooked. We’d done this shower treatment for her at least a dozen times before, but I guess it was the first time in the new house. Again we didn’t think much of this as all that really happened was our cat got spooked by a room she wasn’t really used to. Cats are finicky like that. Häagen-Dazs was no different and unlike Rorschach was fairly timid and skittish. In fact I wouldn’t have bothered writing and posting anything about these two pretty mundane experiences had it not been for the next few weeks, and now I can’t help but feel there could be more to them.
 
-*I froze in fear of whatever was waiting.*
+   I should note how our house is situated. For the most part, it’s the usual setup of a neighbor’s house on either side and facing the street. The back though, rather than being framed by more neighbors, is lined with the town cemetery. It’s actually nice because most of our neighbors play loud obnoxious music. Not a peep from the cemetery though. Anyways, the first few weeks at the house went without incident besides those with the cats. Around the fourth week though, a few things seemed to be amiss. Little things mostly. Lights would flicker off, just for a moment, then something would be in a spot where I swear I didn’t leave it. One time I heard my wife call my name from another room, so I went to check on her.
 
-*“Emily” a quiet voice whispered out, “Emilia” the small voice sounded far away, now accompanied by approaching footsteps.* 
+  “What?”, she asked.
 
-*I whimpered under my blanket, squeezing my eyes shut, trying to hold my breath.* 
+  “You called me.” I told her.
 
-*“Been a long time, hasn’t it?” the voice laughed, slowly creeping closer.* 
+  “Nah, your headphones must be blurring other noises.”
 
-*Suddenly I felt a cold chill against my neck, as if someone was breathing on it.* 
+  Maybe. I did always wear headphones while doing most household tasks. Still, I heard her call my name clear as crystal. Could’ve been she was messing with me. We did often scare each other. But that was always by cheap jump scares. Maybe she was making her scare game more convoluted but I didn’t think so. This was a woman whose humor was people falling over. She wasn’t exactly all about subtlety. Besides if she was messing with me, she would’ve made sure to laugh at me about it later, but she never did. That was one of the weirder happenings. Another thing was my figurines. I collect a lot of action figure type stuff, bionicles mostly. Yes I’m twenty six years old. Most of them are pretty poseable figures and can have their limbs and heads moved every which way. Well I had a few on the kitchen table that I hadn’t put on a shelf yet. When I woke up one morning and went into the kitchen to make coffee, I barely noticed that all their heads were looking at the window that faced the cemetery. I know none of them were posed like that the day before. I don’t think my wife did that to mess with me either. It’s such a small thing that I could’ve easily missed. I kinda wish we had some curtains for that window now. 
 
-*“Not gonna say hello?” the voice whispered in my ear.*
+  Writing this now I also just realized when the weird goings on stopped, at least for a little while. Our house used to have central heating and a/c, but the system hasn’t been used for years, and we had no plans to start it back up again any time soon. So all the ceiling vents that had been open, we closed. It was such a small thing that I didn’t think about at the time. But that’s when all the weird happenings stopped for about a week. I pushed the past events to the back of my mind and assumed it was over. We’d more or less settled in and everything was finally smoothing out. I was content to jot the odd stuff up to the expected stress of moving into a new home. 
 
-Buzzzzzz, buzzzzzz, buzzzzzz
+  My convenient illusion came to an inconvenient conclusion though, when my wife and I were woken up in the middle of the night by a terrified yelping. I got up and went to the kitchen where it was coming from. When I turned the light on I saw Häagen-Dazs screaming and yelping and pawing at the kitchen window. I put on my shoes and went outside and looked around with my phone light. I probably should’ve also carried a blunt object like a bat or something, but I never claimed to be smart now did I? Besides I assumed it would be something like another cat that set Häagen-Dazs off. Our neighborhood had plenty of outdoor cats after all, and a similar thing happened at our old house with Tarrare. Her and a stray cat had gotten into a tiff with the window keeping them from getting at each other. Anyway I couldn’t find anything outside to warrant concern. That is until I shined the light on the window. That’s when my blood froze. On either edge of the window was a dirty handprint, and in the middle was a badly drawn happy face, also from dirt. Two dots and a semi circle. The dirt had dripped down in spots. From the left eye it looked like a tear. I did not want to be outside a second longer. I went in and made sure all the doors were locked. When I told RocksAnn what happened we decided to call the police. We told them what happened and showed them the handprints. Unfortunately for whatever reason, there were no fingerprints to examine. Whoever it was must’ve been wearing gloves they said. They told us that since we weren’t in the best neighborhood, it’s possible that some kid was in our yard and trying to mess with us. There wasn’t much else they could do, so we were told to keep an eye open and call if anything else happened. We didn’t really sleep that night.
 
-The alarm clock annoyingly sounded off, waking me from my nightmare as I screamed. 
+  The next couple of weeks were rough to say the least. I started finding those same dirty handprints on both of our vehicles. A couple times there was one on the living room window. We called the cops again twice, but there was still no way to trace the prints. I wanted to set up cameras but we couldn’t afford much in that department. One night I did tape my phone high on the wall facing the cemetery to record all night. Nothing. Things came to a head on a Saturday night. We were just about to fall asleep, when I heard something that froze my blood. A knock. At the back door. Well not quite a knock. More like a slap. I got up and put on my robe. Quietly as I could, I inched to the front door. RocksAnn waited for me in the living room. I put my ear close to the back door, waiting. In spite of me wearing a fairly thick robe, it felt so cold. I know we hadn’t insulated the back door but still, the cold air was thick and almost made it hard to breathe. Even though I was expecting it, I still almost jumped out of my skin when I heard the slap again. The hand, or what I assumed was the hand, slid against the door. Almost like a cat pawing, but slower and more rough. And also more…deliberate. The doorknob remained undisturbed. I motioned away from the door as silently as I could. My hand found a hammer that I still hadn’t found a place in the house for. The stranger pawed at the door once more. That’s about when I heard the stranger’s voice, only it wasn’t a stranger’s voice. It was my wife’s voice on the other side of the door.
 
-“Emily, what happened?” my husband shot awake beside me, startled. 
+  “H-Hel-lo?”, said the stranger. I was not about to answer back. The way their greeting was spoken sounded breathy. Almost like a whispered hiss. I could see RocksAnn from where I stood at the kitchen/back door. Through the darkness, I could see her face had gone ashen. I can’t imagine I looked any different. The stranger’s one word had shifted our perspective on the past few weeks. Whatever was on the other side of that door was no punk kid or vagrant. No telling if it was really a person at all. And while my wife and I said nothing to each other, the looks we exchanged affirmed that neither of us wanted to find out. After waiting for a few painfully long minutes, the stranger made a new noise. Not a slap on the door, but a knock. And then they spoke once more, now more clearly and fluently. “Hello?” It was my own voice this time. I had to cover my mouth to keep from gasping. It knocked one more time, in this case with a rhythm I used all the time: shave and a haircut. 
 
-“Huh? Oh nothing, just a dream.” I replied in confusion.
+  Knock-knockknockknockknock. 
 
-“Nothing, huh.” he mocked as he stretched his way out of bed, “okay, want something to eat?” 
+  Now I was starting to get pissed. It’s like it was mocking us, and not just because it was using our voices. Still, I was not about to open the door. Nor were either of us going to say a word to our would be intruder. All we could do was wait. It didn’t knock again. It didn’t repeat its greetings. All it did was breathe, loud enough to be heard by me anyway. It sounded tired. Almost like an old man whose lungs weren’t what they used to be. I hoped it couldn’t hear us breathe. For the better part of an hour I stood by the door shivering. I should’ve been sweating in my thick robe. Eventually the breathing faded, and the deep chill subsided. And the room felt normal again. For a minute I thought it was over, and maybe it was. But I never claimed to be smart now did I? 
 
-I simply shook my head in response. 
-
-“Okay,” he said, planting a kiss on my forehead before he made his way out of the room. 
-
-I tried to stand, still shaking from the nightmare, one I hadn't had since I was a little girl. 
-
-*“Been a long time, hasn’t it?”* 
-
-The voice echoed in my head. 
-
-*Yes, it had.* I replied to myself.
-
-“Hey honey,” Daryl called from the other room, “you still tagging along today?”
-
-“No, I think I'm just going to stay here. I’m not feeling too good.”
-
-“Cause of the dream?” he asked as he entered the bedroom, handing me a plate covered in scrambled eggs.
-
-I hid a smile under a sigh, “I told you I didn't want any.” 
-
-“I guess I don’t listen, eat,” he said
-
-“Thank you.” I forced. “When are you heading out?” I asked
-
-“After a shower, you coming?” 
-
-I giggled, “no, I’m gonna pass.”
-
-“Alright, suit yourself.” 
-
-He whistled as he walked into the bathroom.
-
-“You know I was thinking,” I began, looking up towards the bathroom mirror I saw a woman's face staring back at me. Her dark, malevolent eyes are studying me. Smirking at my fearful expression. 
-
-“What’s that?” Daryl called from the shower. 
-
-“N-nothing. Nevermind.” 
-
-Just then I heard the women's familiar voice, echoing songs threw the air.
-
-“Do you have to go?” I pleaded as my husband gathered his things, getting ready to walk out the door. 
-
-“I mean..” he started before I interrupted, 
-
-“No, never mind it's okay. Have fun.” I forced a smile.
-
-“Okay.. you could come.” 
-
-“No, it’s okay. I’ll be okay.” I said softly. 
-
-“Okay..” his eyes filled with worry, “I love you, call me if you need anything.” 
-
-“Love you too.” 
-
-He paused at the door, “You know what, why don’t you call Anna over. You haven’t seen her in a minute.” 
-
-“Yeah, I will.” 
-
-He shot one last smile before heading out the door.
-
-*Not a bad idea.* 
-
-I picked up the phone, only to realize I had actually missed her call. 
-
-Anna was my best friend growing up, she was the closest thing to a sister I ever had.
-
-“Hello?” her sweet voice called thru the phone, 
-
-“Hey Anna, do you have any plans today?”
-
-“Oh, Emilia, hi. Yes,” she paused, “but I can cancel them.” she laughed, “I’ll be there in five.”
-
-“Great, see you then.” 
-
-A knock rang out through the house, stopping me in my tracks.
-
-“Emmy! Emilia, it’s me.”
-
-I sighed in relief hearing Anna’s voice. 
-
-“Jesus, Anna. Since when do you knock?” 
-
-She laughed, “since now I guess. Where’s Daryl?” 
-
-“He went out with some friends, hunting I think.” 
-
-She nodded, “well that’s too bad,” she said reaching into her purse, “cause look what I brought.”
-
-She held up two bottles of red wine, 
-
-“Yes, please.” I laughed as I grabbed them from her, “I'll go get us some glasses.”
-
-“Fabulous, I know where the living room is.”
-
-Entering the kitchen I couldn’t help but noticed the figure in the mirror, 
-
-“You can’t escape me” it laughed before disappearing. 
-
-I’d seen her once before when I was a little girl. She’d shown up in my dream, offering me an escape. 
-
-*“I can make all of your troubles disappear, my dear.”* she’d say, gesturing towards a mirror, *“just step in, and you’ll never have to worry again.”* 
-
-*“What about my mommy?” I’d ask*
-
-*“She can’t go. This is just for you.”* 
-
-*“No” I’d cry*
-
-*“Get in!” she’d screech, trying to push me threw*
-
-*“No!” I’d scream myself awake.*
-
-I shook the memories away, “it’s just a bad dream.” I told myself as I walked back to the living room where Anna was waiting. 
-
-“Emilia! Why did you never tell me you had a twin sister?” 
-
-I froze in shock, “i-i don’t.” I shook.
-
-“Yeah, she was just in here, she said you two were split between your parents after the divorce. I thought your dad died?” She explained
-
-“He did. Who- what?” I asked in confusion
-
-“Emilia, what’s going on?” 
-
-“I just need a minute,” I felt my chest grow heavy, “I’m gonna go splash my face with some water,” I said as I headed towards the bathroom.
-
-“Okay,” Anna said in confusion.
-
-I bent over the bathroom sink, filling my hands with cold water when I heard a tap on the mirror. I straightened up, examining the mirror. 
-
-The figure staring back at me looked like me, but her eyes were jet black. I raised my hand, watching my motion in the mirror. I leaned in closer, placing my hand on the glass. 
-
-Suddenly the figure's face broke out into a malevolent smile, and I felt its hand wrap around mine and begin to pull. 
-
-“No!” I cried as I was pulled through, switching places with her. I fell to the ground. The bathroom looked just like the one I was in, but everything was darker. Overgrown with what appeared to be black mold. I brought myself to my feet, running to the mirror on the wall in terror.
-
-“No! Let me out!” I screamed as I banged against the glass, my hands began to plead under the force.
-
-The figure smiled at me, “I told you,” she paused to laugh, “you can't escape me.” 
-
-I heard the front door open, “Emilia?” Daryl called, the figure crooked its head to the noise. “Baby, Anna called me.” 
-
-“Daryl.” I whispered, “Daryl, no!”
-
-Turning back to face me, the figure called back in response to him, “in here, darling.” smirking, she raised her arm before throwing it at the glass. Shattering the mirror. 
-
-“Daryl no!” 
-
-“Emily?” I heard Daryl ask before entering the bathroom, “Emily, what're you-” 
-
-He let out a pained grunt, blood splattered against the pieces of the broken mirror. 
-
-“No!” I wailed. 
-
-“Daryl?” Anna called before letting out a shriek of shrill terror. 
-
-I sank against the wall, dropping to the ground. My cries echo through the dainty bathroom. In mere seconds my life had been stripped from me.
-
-“No,” I whispered in defeat.
-
-I heard Daryl cough, still laying on the ground.
-
-“Daryl! Daryl” I yelled, “oh my god, you’re okay.”
-
-“Emily,” he coughed, digging in the trash beside him, “Emily, what is this.” he cried as he held up a used pregnancy test that read positive. 
-
-I cried from behind the mirror, “surprise.”
+  For whatever reason, curiosity, stupidity, whatever you like, I moved my hand to the doorknob. I saw my wife shake her head at me emphatically. I mouthed a probably unconvincing “It’ll be fine” at her, and I opened the door and went outside. I shined my phone light through the night and saw no sign of anything. It was a quiet, still night. Peaceful even. Or at least it would be if it weren’t for the past hour. I shined my light at the still open door. On the outside was the familiar dusty handprint, slid down the door. I put my hand next to it. It was a little smaller than mine. I decided it was probably time to get back inside and lock the door. That was about when I heard a gust of wind getting louder by the second. I swore under my breath and scrambled inside and just as I was slamming the door, I felt a burst of blistering cold, dusty wind. I looked at RocksAnn. She had both hands in her hair and the most horrified look I had ever seen on her face. I tried to think, to delude myself, that maybe it was just ordinary wind, or that I’d closed the door in time. But I knew better. I’d let my curiosity get the best of me. And I’d foolishly let a stranger into our house.
