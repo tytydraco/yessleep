@@ -160,3 +160,8 @@ The hunger still called, but softer now. Another voice was growing stronger - th
 Not a hunter of humans.
 
 A hunter of monsters.
+
+
+
+
+Part [5](https://www.reddit.com/u/Screwlost/s/J6JzxSD59B)
