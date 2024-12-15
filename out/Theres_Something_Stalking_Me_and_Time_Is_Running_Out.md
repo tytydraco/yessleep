@@ -126,4 +126,4 @@ If nothing else though, I’ll have faced my demons directly.
 
 There are worse ways for a man’s story to end.
 
-Part 6 (coming soon)
+[Part 6](https://www.reddit.com/r/nosleep/comments/1hemkqx/something_was_following_my_brother_before_he_died/)

@@ -1,0 +1,30 @@
+It started with a letter and a deed. Uncle Elias, my mother’s reclusive brother, had passed away under mysterious circumstances, leaving his sprawling house and the surrounding land to me. I hadn’t seen him in nearly a decade, but my childhood memories of him were fond. He was eccentric but kind, his stories always a little too fantastical to be true, yet told with such conviction that I believed every word. When I was younger, I idolized him. As I got older, life took over, and we drifted apart.
+
+Now, standing in the doorway of his old house, I felt a strange mixture of nostalgia and unease. The house had the kind of presence that loomed over you, tall and weatherworn, with windows that seemed to watch. The surrounding land stretched endlessly, a mixture of untamed forest and rolling fields. It felt both inviting and isolating. Still, it was mine now, and I planned to make it my home. It felt too big and empty for just me, though, so I decided I’d adopt a cat for companionship. The shelter told me I could pick up my new friend in a week—plenty of time to settle in.
+
+The first night in the house was quiet, almost too quiet. The kind of quiet where every creak of the floorboards sounds like a footstep. I chalked it up to my nerves and the age of the place. By the third night, though, I couldn’t ignore the oddities. I’d hear faint whispers, just on the edge of comprehension, coming from empty rooms. Doors I knew I had closed would be slightly ajar. A cold draft seemed to follow me, though the windows were all sealed. Once, I found a light on in the basement—a light I was sure I hadn’t turned on.
+
+One night, I was jolted awake by the sound of something heavy scraping across the attic floor directly above my bed. I lay frozen, heart pounding, staring at the ceiling. Eventually, the noise stopped, but I didn’t sleep the rest of the night. The following morning, I ventured up to the attic, but found nothing out of place. The thick layer of dust covering the old furniture and forgotten belongings was undisturbed. Whatever had made the noise left no trace.
+
+By the time the week was up, I was desperate for my new companion. When I finally brought home the little black cat—I named her Artemis—I felt a glimmer of hope. Her presence immediately made the house feel less oppressive. She was curious and bold, strutting through the rooms like she owned the place. That first night, she slept at the foot of my bed, and I felt safer than I had since I’d moved in.
+
+The strange occurrences didn’t stop entirely, but they seemed less intense. The whispers were softer, the drafts less chilling. It was as if the house—or whatever was in it—was wary of Artemis. Intrigued, I started researching cats and the paranormal. I learned that in many cultures, cats are believed to have a spiritual connection, capable of warding off evil spirits and guiding the dead. It was a comforting thought, but it also raised a chilling question: had something in this house been responsible for my uncle’s death?
+
+One night, I decided to test a theory. I left Artemis in the living room and went upstairs to my bedroom. As soon as I crossed the threshold, the oppressive feeling returned, stronger than ever. The whispers were louder, more insistent, and I swore I could see a shadow moving in the corner of my eye. Panicked, I called for Artemis. She padded into the room, jumped onto the bed, and the atmosphere shifted instantly. The whispers faded. The shadow disappeared.
+
+That’s when I knew. Whatever was in this house couldn’t touch me as long as Artemis was nearby. The thought was both comforting and terrifying. What if there was a moment she wasn’t there? What if the spirit grew stronger?
+
+The solution seemed simple: more cats. I adopted another, a gray tabby I named Milo, and then another, a calico named Cleo. Each new addition seemed to strengthen the invisible barrier between me and the malevolent presence. Soon, the house was alive with the sound of purring and playful paws. My little army of feline guardians had transformed the oppressive mansion into something almost cozy.
+
+But the spirit didn’t leave. Every night, as I lay in bed surrounded by my cats, I’d see it. A shadowy figure standing in the doorway, watching. It never moved, never spoke, but its presence was undeniable. I could feel its hatred, its frustration. It wanted me gone, but it couldn’t reach me.
+
+As the weeks turned to months, the cats became my life. I added more to the family: a Siamese named Oliver, a fluffy Maine Coon I called Willow, a scrappy little stray I found on the property, whom I named Ash; the list goes on. Each one brought a new layer of warmth and protection to the house. The spirit’s presence became almost a routine. It was there every night, but it could do nothing but stare.
+
+Occasionally, I’d feel a pang of fear. What if I was wrong? What if it was biding its time? On those nights, I’d gather all the cats into my bedroom, their comforting purrs lulling me to sleep. They seemed to know, instinctively, when I needed them most. I’d wake up to find them all nestled around me, a fortress of fur and trust.
+
+One stormy night, the power went out. The house was plunged into darkness, and for the first time in months, I felt truly vulnerable. I lit candles, the flickering light casting long shadows on the walls. The spirit’s silhouette seemed larger that night, more defined. But Artemis jumped onto my lap, her green eyes meeting mine with an unspoken assurance. Milo and Cleo flanked her, and soon the others joined. Their presence banished the fear.
+
+Even now, as I write this, I can see it. The spirit stands in the doorway, a dark silhouette against the faint glow of the hallway light. It stares, as it always does, but I’m not afraid. Artemis is curled up on my chest, purring softly. Milo is at my feet. Cleo, Willow, Oliver, and Ash are scattered around the room, their serene presence a shield I know will never falter.
+
+This house is mine. And as long as I have my cats, it always will be.
+
