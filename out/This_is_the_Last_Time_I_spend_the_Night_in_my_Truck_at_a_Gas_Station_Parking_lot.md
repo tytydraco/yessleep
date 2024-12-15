@@ -60,7 +60,7 @@ Was this a joke?
 
 She didn't move from where she was despite my refusal to lend her a light. What was wrong with her?
 
-“Can you lend me your phone?” she continued in the same emotional voice.
+“Can you lend me your phone?” she continued in the same emotionless voice.
 
 I don't know what she wanted from me, but I could sense that something was wrong with her.
 
@@ -116,7 +116,7 @@ It was the voice of a young man, obviously a policeman.
 
 “Yes, I'm sure. I don't know who called you, maybe someone alerted by the noise and my screams” I said with a laugh, the pressure easing.
 
-“Please step or of the vehicle sir I just want to be sure that everything is alright” he asked in an authoritative voice.
+“Please step of the vehicle sir I just want to be sure that everything is alright” he asked in an authoritative voice.
 
 “No, no, really, I assure you everything's fine”.
 
