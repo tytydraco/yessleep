@@ -19,3 +19,5 @@ Then, the pounding on the door stopped. Silence. Agonizing minutes passed until 
 I fled that same morning to a friend’s place. The next day, I returned briefly for my belongings. In my mailbox was an unmarked envelope. Inside was a single Polaroid: me, standing in my living room the night before, talking to the police. The photo had been taken from inside my apartment.
 
 Somehow, he had outsmarted me, eluded the authorities, and watched me from every angle, above, below, through walls I once thought solid. I’ll never know how he slipped in and out unseen, never learn his name. But to the man who lurked beneath my floorboards and in my attic, if you ever read this, know that I would rather lose my mind than ever meet you face-to-face. Don’t ever come back. Not ever.
+
+Just scanned this old Polaroid I found in a box after everything that happened. The quality’s rough, but it’s what I had. Thought I’d share it since some of you were curious… : https://i.ibb.co/RbVvwWP/scan10001.png
