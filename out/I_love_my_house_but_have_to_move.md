@@ -26,7 +26,7 @@ Admittedly they were still prototyping rocks when she moved into the neighborhoo
 
 So goes the saga of moving his stuff upstairs, but hey our Work from Home Office is next to the kitchen. So much closer to the coffee.
 
-Ah but now he is off to college. Living in a brownstone that is definitely haunted with four roommates. There is even an article in the newspaper about it. Granted the article was from 1872 so maybe the ghosts moved on. He seems quite unbothered.
+Ah but now he is off to college. Living in a brownstone that is definitely haunted with four roommates. There is even an article in the newspaper about it. Granted the article was from 1872 so maybe the ghosts moved out. He seems quite unbothered.
 
 “We should get a dog!” the wife says.  
 “We are still mourning the last dog!”  
@@ -46,7 +46,7 @@ We adore corgis and they are smart, cute and can’t jump the fence.
 
 We are in luck, well mostly. She is potty trained. At least during the day.
 
-*Thump, Thump Thumpity thump.*
+*Thump, Thump, Thumpity thump.*
 
 There we were watching a movie in the sun room. Did I mention the sun room? Sometime in the 1960s someone added a sun room. Not one of those attach a tin garden shed to you house things but a proper room but with a flat roof tucked under the eaves of the house. This seems to be the source of our problem. The roof is flat enough to stand on. I have done it while cleaning the gutters.
 
