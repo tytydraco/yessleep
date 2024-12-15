@@ -1,4 +1,4 @@
-You probably have lived in one of those new developments with huge houses and a HOA to ensure that everything is color coordinated. Maybe you lived in an antique neighborhood with picturesque little houses and Victorian Mansions. Me I live in a war neighborhood. It is boring and I love it. Built before the war; well directly before America entered WWII. The neighborhood was “designed to support aerospace” the Realtor said. Aerospace at the time was the bomb and rocket factory. The houses are quaint and small. They hadn’t invented the term tiny yet.
+Maybe you live in an antique neighborhood with picturesque little houses and Victorian Mansions. You probably live in one of those new developments with huge houses and a HOA to ensure that everything is color coordinated. Me I live in a war neighborhood. It is quaint but boring and I love it. Built before the war; well directly before America entered WWII. The neighborhood was “designed to support aerospace” the Realtor said. Aerospace at the time was the bomb and rocket factory. The houses are quaint and small. They hadn’t invented the term tiny yet.
 
 Most of my neighbors have two bedrooms one bathroom and a common room plan that was too small for anything to be called “Great”. But my house was special. You see when they built my house they bought two lots both small but together you could make something. And after the war they did. My house expanded adding a sunny and grand living room and an attached garage with a small second story. My house is only smallish.
 
@@ -8,13 +8,12 @@ So my son wanted to move upstairs during his sophomore year. When we moved in, h
 
 “Sure but why the sudden move.”  
 “Dad, the house is haunted.”  
-“Preposterous the house is too new to be haunted. The old lady across the street has known everyone who lived in this house.”  
+“Preposterous the house is too new to be haunted. The old lady across the street has known everyone who lived in this house. She says no one ever died in or near the house and no one who lived there was depressed enough or mean enough to haunt it.”  
 “She is old as dirt and maybe senile” he said.  
-“No!”
+“No! She isn't.”
 
 Admittedly they were still prototyping rocks when she moved into the neighborhood.
 
-“She says no one ever died in or near the house and no one who lived there was depressed enough or mean enough to haunt it.”  
 “It’s still haunted, Dad!”  
 “Have you seen any ghosts?”  
 “No”  
@@ -31,7 +30,7 @@ Ah but now he is off to college. Living in a brownstone that is definitely haunt
 “We should get a dog!” the wife says.  
 “We are still mourning the last dog!”  
 “It has been over 4 years. We haven’t had a dog in this house.  
-With the boy in college I miss the pitter patter of little feet.  
+With the boy in college, I miss the pitter patter of little feet.  
 We can get a rescue and avoid the puppy phase.”
 
 With our genes the “pitter patter” sounded more like a Clydesdale learning to tap dance to pornographic Rap music.
@@ -82,6 +81,6 @@ I pop open the app on my phone.
 It isn’t a rat.  
 And it isn’t the neighbor’s cat.  
 But it is eating a rat.  
-And posing for “selfies”.
+And posing for “selfies” using my camera.
 
 “Honey, Sorry to bother while you are at your sister’s but we need to move.”
