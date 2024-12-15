@@ -112,7 +112,7 @@ Pushing back against the buzzing in my mind by focusing on the music, I defiantl
 
 I sang along loudly with whatever songs I knew as I raced home, constantly over speed limit, doing everything in my power to ignore the entity and prevent its voice from creeping into my mind again.
 
-I began writing this installment the second I got home; as I said last time, writing seems to be one of the best methods of coping with everything that’s happened recently. The fear doesn’t go away, but I can at least process it, put it into written words, something I’ve always been good at understanding. It took me longer to write this account than the others, as I really had to dig deep in order to properly convey everything that I inwardly experience upon interacting with this entity beyond the boundaries of my imagination.
+I began writing this installment the second I got home; my parents are on a date night, so it's empty save for me. As I said last time, writing seems to be one of the best methods of coping with everything that’s happened recently. The fear doesn’t go away, but I can at least process it, put it into written words, something I’ve always been good at understanding. It took me longer to write this account than the others, as I really had to dig deep in order to properly convey everything that I inwardly experience upon interacting with this entity beyond the boundaries of my imagination.
 
 I haven’t seen it since arriving home, but ever since the sun set, I’ve heard a tapping against my window. The blinds are closed, and each time I hear the sound, I’m reminded of that first night I experienced this uniquely raw terror for the first time. It’s gotten gradually more aggressive, and I can practically feel desperate urgency in the taps now.
 
