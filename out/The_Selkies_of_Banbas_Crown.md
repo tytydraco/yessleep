@@ -1,3 +1,5 @@
+[Part Two](https://www.reddit.com/r/nosleep/comments/1hf2i9a/how_my_greatgreatgreatgreatgreat_grandfather/)
+
 The waves crashed against the jagged rocks, spraying salty mist into the air as I stood on the cliff’s edge. The wind tugged at my hair and for a moment, I felt like a part of the sea itself, with the waves below threatening to pull me back home. Granny always said our family had selkie blood. I used to laugh it off, thinking it was just one of her tales to keep the magic alive in our dull little village. But lately, the stories felt heavier, less like folklore and more like truth.
 
 “The sea doesn’t forget, Aoife,” she had whispered to me once. “And neither do the selkies.”
