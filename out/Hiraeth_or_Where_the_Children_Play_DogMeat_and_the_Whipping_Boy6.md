@@ -8,7 +8,7 @@ I withdrew a handful of antibiotics, and he took them without putting them to hi
 
 “I might lose my life.”
 
-“Maybe not,” I offered a grim smile and water with for the pills. “You’re alive still.”
+“Maybe not,” I offered a grim smile and water for the pills. “You’re alive still.”
 
 “How much longer though?” He took the medicine and grimaced hard. The boy looked older than he was. “It smells like blood here. I can smell the people that’ve been here before.”
 
