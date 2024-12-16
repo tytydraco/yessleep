@@ -41,7 +41,7 @@ I know I don’t, because my costume arrived today from the Halloween store. Ins
 
 Day Five – October 31st 
 
-I’ve got nothing. No leads, no answers, nothing. I’ve spent all day wrestling with this in my head. I’ve been trying to reach Jonas but there’s no answer, he must be with his wife. I’m leaving for the party soon, wearing this outfit that under normal circumstances, I would adore. Now, though, I feel like I’m about to march to the gallows. 
+I’ve got nothing. No leads, no answers, nothing. I’ve spent all day wrestling with this in my head. I’ve been trying to reach Jonas but there’s no answer, he must be with that reporter -- his new girlfriend. I’m leaving for the party soon, wearing this outfit that under normal circumstances, I would adore. Now, though, I feel like I’m about to march to the gallows. 
 
 This will likely be my last entry. I don’t know what’s going to happen tonight, but I want the reader of this to know that I’m not insane. I’m not losing my mind. I hope someone can make sense of this where I couldn’t. 
 
