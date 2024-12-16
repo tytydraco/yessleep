@@ -10,7 +10,7 @@ I see it everywhere now.
 
 It still retains a bit of stealth; sometimes, it will take me a while to notice it, sometimes it’s ever so carefully tucked away in a pocket of space that my eyes might not see it upon first entering a location. But regardless of where it may be ‘hiding,’ it always allows me to find it eventually.
 
-Before, I was capable of tucking it away in the recesses of my brain during normal life for the most part. I’d have lingering feelings of dread and paranoia, but I could function as I needed to around other people, accomplish the tasks I needed to get done. While It felt as though I was fighting demons when alone, it was more akin to leading a double life.
+Before, I was capable of tucking it away in the recesses of my brain during normal life for the most part. I’d have lingering feelings of dread and paranoia, but I could function as I needed to around other people, accomplish the tasks I needed to get done. While it felt as though I was fighting demons when alone, it was more akin to leading a double life.
 
 Now, this entity was actively ruining my existence.
 

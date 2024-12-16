@@ -46,7 +46,7 @@ For a moment I had to scramble to understand what Zachary was talking about.
 
 Hazel was a gorgeous junior-year student in our literature elective, her intelligence matching her beauty equally. I had openly expressed my attraction to her around Zachary for the past couple of months, but I was of course far too awkward to start a conversation with her out of nowhere. I wasn’t entirely sure she was even single, as most pretty girls around campus were reliably taken.
 
-“I think your using excuses to procrastinate,” Zachary teased me, standing up and heading towards the door. “Trust me bro, it’s not that hard. You gotta talk to her sometime if anything’s ever gonna happen. Just treat her like a friend that’s not a… friend. I don’t know how to say it, really, but you gotta talk to her!”
+“I think you're using excuses to procrastinate,” Zachary teased me, standing up and heading towards the door. “Trust me bro, it’s not that hard. You gotta talk to her sometime if anything’s ever gonna happen. Just treat her like a friend that’s not a… friend. I don’t know how to say it, really, but you gotta talk to her!”
 
 Inspiring words, Zachary.
 
