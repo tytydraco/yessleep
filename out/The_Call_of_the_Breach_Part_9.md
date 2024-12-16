@@ -1,5 +1,7 @@
 [\[Part 8\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hdnwzv/the_call_of_the_breach_part_8/)
 
+[\[Part 10\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hf8jh3/the_call_of_the_breach_part_10/)
+
 Golden sunlight streamed down from overhead, a warm reprieve from the chill of the late fall day, but I couldn’t enjoy it for the deep *boom-booms* that echoed in the distance.
 
 *“Eagle Five, good effect on target. 100 over 100. Rhino One Actual, out.”*

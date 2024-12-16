@@ -174,9 +174,8 @@ Jackson pointed his knife not in anger, “Don’t joke about dragons.”
 
 We ate a mess of watery stew—potatoes and onions and cloves of half-good garlic was what was left for hearty prep and in the night, after we’d finished our meal and washed our utensils and taken to the tent, Billy found the play gun that Jackson had made for him from scrounged scrap metal and pointed it at me and told me that he’d shoot me and I laughed and wrestled the gun from his little hands, putting him into a headlock and tossing the metal piece to the dirt floor of the tent.
 
-“Quit playing—s’time for bed,” Jackson told us and although I was too old for it, Jackson read a story to Billy and I listened and I think Jackson knew I was listening because he’d periodically hesitate a page turn and look over to see me in my bedroll still awake; the story was old and it was about a man named Don that liked to read books and the man wanted to be a knight, but he had it all wrong.
+“Quit playing—s’time for bed,” Jackson told us and although I was too old for it, Jackson read a story to Billy and I listened and I think Jackson knew I was listening because he’d periodically hesitate a page turn and look over to see me in my bedroll still awake; the story was old and it was about a man named Don that liked to read books and the man wanted to be a knight, but he had it all [wrong.](https://www.reddit.com/user/Edwardthecrazyman/comments/17qis3x/archive/)
 
 
 [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1he9pfa/hiraeth_or_where_the_children_play_dogmeat_and/)
 
-[XXX](https://www.reddit.com/user/Edwardthecrazyman/comments/17qis3x/archive/)
