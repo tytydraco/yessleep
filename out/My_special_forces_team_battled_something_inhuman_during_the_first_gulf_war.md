@@ -464,12 +464,3 @@ And this is it. My tell all on what really happened the night of January 14th, 1
 
 
 This corporal Dexter. Signing off for now.
-
-
-Part 2
-
-https://www.reddit.com/r/nosleep/comments/1h5g36u/im_trying_to_get_the_truth_out_about_a_mission_i/
-
-Part 1
-
-https://www.reddit.com/r/nosleep/comments/1h4n3cx/i_was_in_the_first_gulf_war_ive_held_the_secret/
