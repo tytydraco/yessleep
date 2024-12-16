@@ -32,7 +32,7 @@ Dated as August 2004 to March 2005
 
 *After my first translocation, I had a resounding difficulty not discussing it at every possible turn. It was a bit of a compulsion - a mounting pressure that would build up behind my eyes and my sinuses until I finally gave in and recounted the whole damn ordeal. Lucy was a bit tired of it, but her innate sainthood prohibited her from overly criticizing me. Never one to kick someone when they’re already down. Greg was not cursed with the same piety.* 
 
-*“I just think you need to make light of it - give it a tiny bit of levity?” He paused again, waiting for my response. I kept my gaze focused away from him and began to pseudo-busy myself by tracing the shape of a cloud with my eyes. We sat for a moment, my body acclimating to the foreboding calmness of the moment. The quiet melody of the wind through long grass accenting an approaching demarcation.* 
+*“I just think you need to make light of it - give it a tiny bit of levity?” He paused again, waiting for my response. I kept my gaze focused away from him and began to pseudo-busy myself by tracing the shape of a cloud with my eyes. We sat for a moment, my body acclimating to a foreboding calmness. The quiet melody of the wind through long grass accenting an approaching demarcation.* 
 
 *“I think its name is Atlas, though.”*
 
