@@ -448,8 +448,7 @@ The demon moved jauntily to the well, where its strong arms began to roll the cr
 
 “Oh god,” I heard Aggie say. It sounded like a far-off girl from an unknown planet.
 
-Baphomet lifted the girl from her bondage then sliced the rope with a razor-sharp fingernail. I hesitantly moved closer to the scene and removed my jacket.
+Baphomet lifted the girl from her bondage then sliced the rope with a razor-sharp fingernail. I hesitantly moved closer to the scene and removed my [jacket.](https://www.reddit.com/user/Edwardthecrazyman/comments/17qis3x/archive/)
 
 [Next](https://www.reddit.com/r/nosleep/comments/1hawej8/hiraeth_or_where_the_children_play_2/)
 
-[XXX](https://www.reddit.com/user/Edwardthecrazyman/comments/17qis3x/archive/)
