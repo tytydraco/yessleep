@@ -80,11 +80,11 @@ And yet, this didn’t feel like the fun fakery of the village outside. And . . 
 
 These thoughts raged through my skull, and I wanted to voice them, but I tamped down the urge telling myself that I was just being silly. That this strange paranoia was unfounded with no relation to reality.
 
-“Joel Donaldson.” Santa announced in that booming voice. “Yours is the first name signed. Time to see if you’re naughty or nice.”
+“Joel.” Santa announced in that booming voice. “Yours is the first name signed. Time to see if you’re naughty or nice.”
 
 Joel stepped forward with a comical flourish. I noticed that his face was radiant with a blend of happiness and just a little bit too much alcohol consumed in our day of revels. “I’m ready for my present!” he announced with all the innocence and expectation of someone who truly thought that was right in the world.
 
-“You will get your just reward,” Santa declared somberly. He held up the scroll in front of him and let it unfurl. He read it aloud. “Joel Donaldson, you are on the . . . naughty list!”
+“You will get your just reward,” Santa declared somberly. He held up the scroll in front of him and let it unfurl. He read it aloud. “Joel, you are on the . . . naughty list!”
 
 “Ooooo,” Joel said mockingly with a smile and a wave of his hands.
 
@@ -106,7 +106,7 @@ The elves laughed musically and began to chant. “Naughty list! Naughty list!�
 
 The floor opened up in front of Joel, and a large, ornate office desk stacked with papers and writing implements rose up before him.
 
-The elves’ chanting ceased as Santa began to speak. “Joel Donaldson,” He announced in a tone was both businesslike and filled with malice. “You have been a naughty boy! You have been stealing from your employer, using your position as accountant to cook the books and move money from the business to your personal accounts.”
+The elves’ chanting ceased as Santa began to speak. “Joel,” He announced in a tone was both businesslike and filled with malice. “You have been a naughty boy! You have been stealing from your employer, using your position as accountant to cook the books and move money from the business to your personal accounts.”
 
 “I’ve done no such thing!” Joel insisted. “Let me out of here! I swear to God I’m going to sue you into oblivion!”
 
@@ -150,7 +150,7 @@ The room was filled with people stuffed into old-fashioned telephone booths. The
 
 A column of elves filed into the room from a hidden door. Wicked smiles plastered across their faces, they went about the room checking the phone booths, performing repairs, and washing out blood by connecting a hose to a nozzle on the outside of the phone booth that caused the water to spray right into the person’s face at high volume, rinsing away the blood by sheer volume of water that drained out the bottom to God-knows-where.
 
-Booming laughter announced the arrival of Santa Claus, as he approached us from behind the phone booths. “Carol Jenkins,” he announced. “Time to see if you’ve been naughty or nice!”
+Booming laughter announced the arrival of Santa Claus, as he approached us from behind the phone booths. “Carol,” he announced. “Time to see if you’ve been naughty or nice!”
 
 He raised the hand with the scroll, but before he let it unfurl, I called out.
 
@@ -170,7 +170,7 @@ We all stared in horror at the giant before us. His face was like gnarled wood, 
 
 Carol’s eyes opened wide, and her mouth worked rapidly, trying to speak, but failing to form any words.
 
-Krampus again lifted the scroll and let it unfurl. “Carol Jenkins,” he announced. “You are on . . . the naughty list!”
+Krampus again lifted the scroll and let it unfurl. “Carol,” he announced. “You are on . . . the naughty list!”
 
 As he announced this, the elves in the room began to sing. “Naughty list! Naughty list! You are on the naughty list!”
 
@@ -212,7 +212,7 @@ The inferno lit the room in a dancing, ominous glow. It might have been a comfor
 
 The fire blazed even higher and belched out into the room, licking the bedframe for just a moment like the tongue of some arcane, hungry beast. As the fire retreated, a now-familiar, horrifying figure stepped out of the flames, followed by an entourage of those despicable elves.
 
-Without any further fanfare, Krampus held out his scroll and dropped the bottom roll. “John Valentine,” he announced in that booming voice. “You are on the naughty list!”
+Without any further fanfare, Krampus held out his scroll and dropped the bottom roll. “John,” he announced in that booming voice. “You are on the naughty list!”
 
 The elves were on him in an instant, singing that horrible chant, “Naughty list! Naughty list! You are on the naughty list!” as they grabbed him and lifted him overhead kicking and screaming. It was futile. Small as they were, the elves’ grip was like iron, and all John could accomplish was wrenching his own back and shoulders painfully as the proceeded to the bed.
 
@@ -226,7 +226,7 @@ John was screaming in protest. “It’s not like that!” he protested. “We�
 
 Krampus laughed wickedly. “You continue to lie even as you face just punishment for your crimes,” he declared with absolute authority. “You never loved her. You had other women even as you took what didn’t belong to you over, and over, and over again.”
 
-I was stunned. The john I knew would never do something so heinous. He was a good, upright man, and the only one I trusted completely.
+I was stunned. The John I knew would never do something so heinous. He was a good, upright man, and the only one I trusted completely.
 
 I turned to my wife in shock. “Who did he . . .” my words caught in my throat as I saw my wife, my dear Clarissa, crying. Her mouth quivering with great sobs, and tears flowing like twin rivers from her bright green eyes, her head hung in shame.
 
@@ -240,7 +240,7 @@ I felt my own tears begin to well up and pour out of my eyes. “Why?” I croak
 
 “Her words were like a punch to the gut by a champion heavyweight boxer. I was left stunned, breathless, and unable to form a coherent thought.
 
-“Clarissa Hart,” Krampus announced as if he had been waiting for this exact moment to speak. “You are on the naughty list!”
+“Clarissa,” Krampus announced as if he had been waiting for this exact moment to speak. “You are on the naughty list!”
 
 The elves crowded around my wife. “Naughty list! Naughty list! You are on the naughty list!” they chanted gleefully as they grabbed her, lifted her up, and began to march toward the bed.
 
@@ -298,7 +298,7 @@ I don’t know why, but something about being told that good and evil are univer
 
 I slumped back in my chair. Completely spent, suddenly helpless and uncaring. “Just kill me and get it over with,” I sighed. “Stop toying with me.”
 
-Krampus chuckled, a real one, like he genuinely found me funny/ “I’m not going to kill you,” he declared with finality. “You’re not on the naughty list. Instead, I’m going to give you a gift.”
+Krampus chuckled, a real one, like he genuinely found me funny, “I’m not going to kill you,” he declared with finality. “You’re not on the naughty list. Instead, I’m going to give you a gift.”
 
 I didn’t have time to aske what he meant by “gift” before he was on me. He grabbed a hold of the front of my shirt with one mighty hand and lifted me up. Then with his free hand he pulled back his hood to reveal that among his other horrifying features, he had horns like a goat, and this, straggly hair that seemed to flow and move of its own volition. He opened his mouth, and it stretched wider than any mortal man’s mouth ever could, so wide that I thought he meant to eat me in a single gulp.
 
