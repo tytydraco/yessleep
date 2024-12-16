@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1h0v85l/im_a_nurse_at_a_rehab_center_its_hell_on_earth/) [Part 3](https://www.reddit.com/r/nosleep/comments/1hcwsnj/im_a_nurse_at_a_rehab_center_its_hell_on_earth/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1h0v85l/im_a_nurse_at_a_rehab_center_its_hell_on_earth/) [Part 3](https://www.reddit.com/r/nosleep/comments/1hcwsnj/im_a_nurse_at_a_rehab_center_its_hell_on_earth/) [Part 4](https://www.reddit.com/r/nosleep/comments/1hfurzx/im_a_nurse_at_a_rehab_center_its_hell_on_earth/)
 
 My entire world had been turned upside down in the span of mere minutes. The job I had worked so hard for almost my whole life turned out to be a living nightmare. I had been forced to torture a patient and had seen orderlies slam a patient to the ground and most likely break one of her bones. And it was still my first day. 
 

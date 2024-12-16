@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1he9pfa/hiraeth_or_where_the_children_play_dogmeat_and/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1he9pfa/hiraeth_or_where_the_children_play_dogmeat_and/)/[Next](https://www.reddit.com/r/nosleep/s/vE8bdosNua)
 
   
 
@@ -177,5 +177,5 @@ We ate a mess of watery stew—potatoes and onions and cloves of half-good garli
 “Quit playing—s’time for bed,” Jackson told us and although I was too old for it, Jackson read a story to Billy and I listened and I think Jackson knew I was listening because he’d periodically hesitate a page turn and look over to see me in my bedroll still awake; the story was old and it was about a man named Don that liked to read books and the man wanted to be a knight, but he had it all [wrong.](https://www.reddit.com/user/Edwardthecrazyman/comments/17qis3x/archive/)
 
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1he9pfa/hiraeth_or_where_the_children_play_dogmeat_and/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1he9pfa/hiraeth_or_where_the_children_play_dogmeat_and/)/[Next](https://www.reddit.com/r/nosleep/s/vE8bdosNua)
 
