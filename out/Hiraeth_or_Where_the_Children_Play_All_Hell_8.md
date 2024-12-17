@@ -1,5 +1,5 @@
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/wjztxZSnUZ)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/wjztxZSnUZ)/[Next](https://www.reddit.com/r/nosleep/comments/1hgmdba/hiraeth_or_where_the_children_play_no_deals_with/)
 
 Andrew remained sick for a time, and we watched over him while he recovered in my bed; I’d taken to sleeping on the floor—Dave visited often and Gemma came whenever she could sneak away from the watchful eye of her father, the Bosses, and their servants. The young man’s wounds were terrible, easily beyond my expertise (although I had some field experience, I was sure at times that Andrew would die) and he spoke often in his sleep, and he said Gemma’s name all the time. I fed him heartened soups when I could and gave him water, but his eyes remained unfocused like he was staring off into the great beyond somewhere. Gemma grew more worried with every passing day, and she tried to rouse him from his stupor, but nothing she did could breach his strange daze and Dave, whenever he came, helped me lift the boy, check that he wasn’t developing unnecessary sores, and he would aid in replacing Andrew’s bandages. 
 
@@ -266,4 +266,4 @@ I pushed from my spot, gathered them in my arms and we moved like a strange cent
 The earth trembled beneath our feet, and I heard the confetti of rubble on rubble and the earth itself screamed and I knew Dave had done what he’d set out to.
 
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/wjztxZSnUZ)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/wjztxZSnUZ)/[Next](https://www.reddit.com/r/nosleep/comments/1hgmdba/hiraeth_or_where_the_children_play_no_deals_with/)
