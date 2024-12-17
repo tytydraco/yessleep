@@ -30,8 +30,6 @@ During my last appointment, Dr. Lyra's face lingered too long in a smile, as tho
 
 When I told her I wasn't taking them anymore, her expression froze. Everything stopped—not just her face, but the room itself. For a fraction of a second, I swear I saw her flicker, like a TV losing signal. Then she resumed, too quickly. Her voice piled on top of itself as her smile stretched wider than humanly possible.
 
- 
-
 "That's... great news. Wonderful progress. But I think you should keep taking them—just a little longer. For safety."
 
 Her hands trembled as she shoved another bottle into my hands, and I saw something... moving beneath her skin, as if her veins were alive and rearranging themselves.
