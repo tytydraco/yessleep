@@ -18,7 +18,7 @@ In another twist of the knife that almost feels poetic, John didn’t have the w
 
 Two dimming stars in the moonless night that had nearly crossed paths - John and I were following similar trajectories, but we were just a little too distant from each other to communicate.
 
-I need to move on from this topic, otherwise I’ll never complete this. Just know that after the events of the last year, I don’t have such a clear-cut answer for which death is worse
+I need to move on from this topic, otherwise I’ll never complete this. Just know that after the events of the last year, I don’t have such a clear-cut answer for which death is worse.
 
 Not anymore. 
 
