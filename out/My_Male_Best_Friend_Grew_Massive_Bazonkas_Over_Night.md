@@ -1,8 +1,8 @@
-I know what you're thinking by reading the title of this post; surely this is some kind of joke, a meme, a fake story someone would write to make a few dozen people on the subreddit of a creepy pasta podcast happy right?
+I know what you're thinking by reading the title of this post; surely this is some kind of joke, a meme, a fake story someone would write to make a few people on the subreddit of a creepy pasta podcast happy, right?
 
-But I assure you, this is all true and happened to me many years ago when I was 18. My friend Zach and I had both finished College, unsure of what to do with our lives now besides spending our time out of education sitting in my garage playing Nintendo and smoking pot. As great as it was for a few weeks, it wasn't a viable carer choice
+But I assure you, this is all true and happened to me many years ago when I was 18. My friend Zach and I had both just finished College, unsure of what to do with our lives now besides spending our time out of education sitting in my garage playing Nintendo and smoking pot. As great as it was for a few weeks, it wasn't a viable carer choice.
 
-"Let's check the paper for jobs" I told Zach one day, half baked and stuck at the Water Temple in The Legend of Zelda: Ocarina of Time.
+"Let's check the paper for jobs" I suggested to Zach one day, half baked and stuck at the Water Temple in The Legend of Zelda: Ocarina of Time.
 
 "We can also head into town tomorrow, see if anyone has any positions posted up somewhere"
 
@@ -12,7 +12,7 @@ We'd been practically inseparable ever since childhood, spending most weekends a
 
 But something was off with him tonight. He'd been acting off, much quieter than usual and his face seemed grim, as if some heavy burden was pressing down hard on his chest.
 
-"Don't sound too excited". I turned to him and that's I noticed something odd. His shirt, which he always brought a size too small to exaggerate the make believe muscles he tried to show off, was stretched out awkwardly across three swollen lumps protruding from his chest.
+"Don't sound too excited". I turned to him and that's when I noticed something odd. His shirt, which he always brought a size too small to exaggerate the make believe muscles he tried to show off, was stretched out awkwardly across three swollen lumps protruding from his chest.
 
 "What the hell?" I half laughed, thinking it was some sort of joke. But Zach didn't laugh and as he looked down at the gargantuan behemoths trying to bust through his shirt, I saw his face go pale and his eyes grow wide in fear and confusion. He violently pulled off his shirt, revealing three monstrous boobies, growing before our bewildered eyes to an unnatural size.
 
@@ -20,7 +20,7 @@ But something was off with him tonight. He'd been acting off, much quieter than 
 
 Before I could say anything, he jolted up and ran out of my garage and into the night, his arms trying desperately to contain the colossal weapons hanging from his chest, their thunderous applause as they slapped together in his arms echoed through the night.
 
-"Zach!" I yelled after him as he left, distracted by the size of the absolute units he held against him, the choir of boobies draining out any other sound. I tried to chase him but he was always quicker than I was, even with the additional weight from the spontaneous melons.
+"Zach!" I yelled after him as he left, distracted by the size of the absolute units he held against him, the choir of boobies draining out all other thoughts in my head. I chased him, but he was always quicker than I was, even with the additional weight from the spontaneous melons.
 
 I didn't hear from Zach for over a week. None of our mutual friends or even his own parents had heard from him since. I wanted to tell them what happened but how could I? I told them as much as I thought they would believe, I told them he had seemed off and ran away somewhere, leaving out the giant knockers he had grown from no where. That's not something that just comes out of nowhere in seconds. Of course they continued to question me when that's all I could give them, as did the police when they were brought in after it turned into an official disappearance.
 
@@ -50,7 +50,7 @@ I turned back to Zach. His unconscious body was held in the air by the side boob
 
 "You were the intended host, but this vessel has served it's purpose well until now."
 
-The boobies leaned forward, hoovering directly over the fire. They had grown again, now completely covering Zach. There was nothing left of him now but his boobs.
+The boobies leaned forward, hoovering directly over the fire. They had grown again, now completely covering Zach. There was nothing left of him now but his big ol' borrascas.
 
 "You will join us now"
 
