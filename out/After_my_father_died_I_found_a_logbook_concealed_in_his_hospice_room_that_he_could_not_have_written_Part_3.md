@@ -2,7 +2,7 @@ Never in my life have I experienced such a relentless case of insomnia as I did 
 
 My left eye was identical to Atlas’ left eye. Both eyes bore a striking resemblance to the[ sigil](https://imgur.com/a/symbol-above-every-entry-Rb2VbHP), which was omnipresent but completely unaddressed in all of John’s entries.
 
-It felt like all the residual thoughts and questions surrounding the contents of the deathbed logbook had begun to occupy physical space in my head. Every time I restlessly repositioned my head on my pillow I could feel the weight of those ruminations slosh around in my skull, the partially coagulated thoughtform taking a few moments to settle out like the fluid in a magic eight ball. Eventually, I gave up on sleep entirely. I resigned myself to reviewing the events described in John’s logbook, trying to inspect each piece from every possible angle in order to glean an epiphany, as if that epiphany would act as some sort of mental Ambien. Unfortunately, it became clear that I was still missing some crucial components to this narrative, and I could divine nothing additional from the information I already had absorbed that would pacify my ragged psyche. I needed more. 
+It felt like all the residual thoughts and questions surrounding the contents of the deathbed logbook had begun to occupy actual physical space - every time I repositioned my head on my pillow I could feel the weight of those ruminations slosh around in my skull, the partially coagulated thoughtform taking a few moments to settle out like the fluid in a magic eight ball. Eventually, I gave up on sleep entirely. I resigned myself to reviewing the events described in John’s logbook, trying to inspect each piece from every possible angle in order to glean an epiphany, as if that epiphany would act as some sort of figurative Ambien. Unfortunately, it became clear that I was still missing some crucial components to this narrative, and I could divine nothing additional from the information I already had absorbed that would pacify my ragged psyche. I needed more. 
 
 Cup of coffee in hand, I reluctantly sat back down at my office desk. I glanced over at the clock - 330 AM. After taking a few deep, meditative breaths, I did what I could to brace myself and I flipped over another menu. 
 
@@ -144,6 +144,6 @@ To introduce what is coming in the next post (which may be the penultimate or ul
 
 Days later, I would develop the prerequisite bravery to find and unlock that abhorrent vault. Inside an eight hundred square foot container laid thousands of moth-eaten marble notebooks, stacked in unorganized, schizophrenic piles, as well as the final grim piece to understanding [the sigil](https://imgur.com/a/symbol-above-every-entry-Rb2VbHP). John Morrison was correct when he said he knew the sigil wasn’t depicting an eye. Or, more accurately, it wasn’t *only* the depiction of an eye. 
 
-Something more devastating was concealed within it, waiting for me and me alone.
+Something more devastating was concealed within it.
 
 \-Peter Morrison 
