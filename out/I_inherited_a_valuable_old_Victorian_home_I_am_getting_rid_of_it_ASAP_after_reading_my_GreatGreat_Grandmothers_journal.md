@@ -8,17 +8,17 @@ The house came into view as I pulled down a narrow road at the end of a steep hi
 
 I had looked for the best-reviewed realtor in the area ahead of time and had him meet me there. I parked in the gravel driveway and climbed out of my car. The realtor was waiting on the porch, his hand already outstretched waiting to greet me. He had the look of a professional, sharp and well put-together.
 
-“Hello, welcome” he said as I approached. His voice was smooth and steady, and he looked at me with an easy smile. “I’m Samuel Drake. It’s good to meet you. I’ll be helping you through the sale of this property, making it as pain-free as possible for you.”
+“Hello, welcome” he said as I approached. His voice was smooth and steady, and he looked at me with an easy smile. “I’m Samuel. It’s good to meet you. I’ll be helping you through the sale of this property, making it as pain-free as possible for you.”
 
 I shook his hand and looked at the house again. It looked… lived-in, almost, despite being vacant for so long. “Yes. Thank you for meeting me here,” I said, trying to keep my tone neutral.
 
-Drake glanced back toward the house as though he’d already been thinking about this. “This house has a lot of value. Properties like this one, historic homes in this part of Massachusetts, they’re rare. With a bit of cleaning and repair, this could easily sell for close to a million. There’s interest here, especially with the old Victorian charm and the history behind it. It’s a prime candidate for restoration.”
+Samuel glanced back toward the house as though he’d already been thinking about this. “This house has a lot of value. Properties like this one, historic homes in this part of Massachusetts, they’re rare. With a bit of cleaning and repair, this could easily sell for close to a million. There’s interest here, especially with the old Victorian charm and the history behind it. It’s a prime candidate for restoration.”
 
 I stared back at him, caught off-guard. Almost a million dollars. The number hung in the air for a moment. I wasn’t sure how I’d expected this trip to go, but I hadn’t expected to hear that.
 
 “Really? That much?” I managed to say, surprised at how calm I sounded.
 
-Drake nodded, stepping toward the house. “Oh, yes. There’s demand for homes like this. And with the right work, it could be an easy sale. Nothing that can’t be managed with a little attention to detail.”
+Samuel nodded, stepping toward the house. “Oh, yes. There’s demand for homes like this. And with the right work, it could be an easy sale. Nothing that can’t be managed with a little attention to detail.”
 
 Before I could respond, another figure came from the side of the house, tall, broad-shouldered, his hair a bright white that contrasted against his flannel shirt. He looked at me as though he already knew who I was.
 
@@ -234,7 +234,7 @@ Peaking from around the edge of the front door, just visible in the dim light, w
 
 I didn’t stick around to see what it would do next. I got in my car and drove away, the house shrinking in my rearview mirror, but the image of those eyes is forever burned into my mind.
 
-I know now what my great-great grandmother went through was real, I saw it myself. I don’t know what happened to her, but I know she must have met a terrible fate. I never went back to the house, and I never will. I want nothing to do with it. I called Samuel Drake and told him I wanted to sell the house as is. I don’t care what I get for it at this point, I just want it out of my possession as quickly as possible.
+I know now what my great-great grandmother went through was real, I saw it myself. I don’t know what happened to her, but I know she must have met a terrible fate. I never went back to the house, and I never will. I want nothing to do with it. I called Samuel and told him I wanted to sell the house as is. I don’t care what I get for it at this point, I just want it out of my possession as quickly as possible.
 
  
 
