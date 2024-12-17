@@ -1,5 +1,7 @@
 [\[Part 9\]](https://www.reddit.com/user/RandomAppalachian468/comments/1heesvf/the_call_of_the_breach_part_9/)
 
+[\[Part 11\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hg2han/the_call_of_the_breach_part_11/)
+
 Perched atop my command truck, I stared off into the misty blackness, a thick wool blanket wrapped around my shoulders, the Type 9 cradled in my arms. Dawn was close, but even in the dark the fighting had barely petered off, enemy patrols doing their best to track our distraction sorties in the dark. Curtains of thick white fog hugged the surrounding hills like tufts of cotton, and occasionally lit up from artillery on the horizon. Most of us had bedded down in prearranged hide spots many hours ago, digging in and waiting for the sunrise. With the sheer amount of mutants out there, Vecitorak notwithstanding, it was safer to stay inside the wire.
 
 *Not that it’s much safer in the daylight with all the shells flying back and forth.*
