@@ -246,7 +246,7 @@ Her tails swished, and she beamed. “Absolutely.”
 
 Somehow, I already knew I wasn’t getting out of this.
 
-“What if I say no?” I asked, my voice sharper than I meant it to be.
+“What if I say no?” I asked again, my voice sharper than I meant it to be.
 
 The room shifted.
 

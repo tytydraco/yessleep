@@ -362,4 +362,4 @@ It was another week before I could talk again.
 
 It was another week after that before I could ask Omertà about what still haunted me. *What was that place and how many people did you bring there?*
 
-Like I said before Reader, all this hate was once love. But was the hate always [there?](https://www.reddit.com/r/Finchink/comments/1hbv7wv/prologue_below/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+Like I said before Reader, all this hate was once love. But was the hate always [there?](https://www.reddit.com/r/nosleep/comments/1hg42zy/my_supernatural_friend_brought_me_to_hell_i_came/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
