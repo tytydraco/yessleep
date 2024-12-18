@@ -1,20 +1,20 @@
-John Morrison was, and will always be, my north star. Naturally, the pain wrought by his ceaseless and incremental deterioration over the last five years at the hands of his Alzheimer’s dementia has been invariably devastating for my family. Besides the raw agony of it all, and in keeping with the metaphor, the dimming of his light has often left me desperately lost and maddeningly aimless. With time, however, I found meaning through trying to live up to him and who he was. Chasing his memory has allowed me to harness that crushing pain for what it was and continues to be - a representation of what a monument of a man John Morrison truly was. If he wasn’t worth remembering, his erasure wouldn’t hurt nearly as much. 
+John was, and will always be, my north star. Naturally, the pain wrought by his ceaseless and incremental deterioration over the last five years at the hands of his Alzheimer’s dementia has been invariably devastating for my family. Besides the raw agony of it all, and in keeping with the metaphor, the dimming of his light has often left me desperately lost and maddeningly aimless. With time, however, I found meaning through trying to live up to him and who he was. Chasing his memory has allowed me to harness that crushing pain for what it was and continues to be - a representation of what a monument of a man John truly was. If he wasn’t worth remembering, his erasure wouldn’t hurt nearly as much. 
 
-A few weeks ago, John Morrison died. His death was the first and last mercy of his disease process. And while I feel some bittersweet relief that his fragmented consciousness can finally rest, I also find myself unnerved in equal measure. After his passing, I discovered a set of documents under the mattress of his hospice bed - some sort of journal, or maybe logbook, is a better way to describe it. Even if you were to ignore the actual content of these documents, their very existence is a bit mystifying. First and foremost, my father could not speak a meaningful sentence for at least six months prior to his death - let alone write one. And yet, I find myself holding a series of articulately worded and precisely written journal entries, in his handwriting, with his very distinctive narrative voice intact no less.
+A few weeks ago, John died. His death was the first and last mercy of his disease process. And while I feel some bittersweet relief that his fragmented consciousness can finally rest, I also find myself unnerved in equal measure. After his passing, I discovered a set of documents under the mattress of his hospice bed - some sort of journal, or maybe logbook, is a better way to describe it. Even if you were to ignore the actual content of these documents, their very existence is a bit mystifying. First and foremost, my father could not speak a meaningful sentence for at least six months prior to his death - let alone write one. And yet, I find myself holding a series of articulately worded and precisely written journal entries, in his handwriting, with his very distinctive narrative voice intact no less.
 
 Upon first inspection, my explanation for these documents was that they were old, and that one of my other family members must have left it behind when they were visiting him one day - why they would have effectively hidden said documents under his mattress, I do not know. But upon further evaluation, and to my bewilderment, I found evidence that these documents *had absolutely* been written recently. We moved John into this hospice facility half a year ago, and one peculiar quirk of this institution is the way they approach providing meals for their dying patients. Every morning at sunrise, the aides distribute menus detailing what is going to be available to eat throughout the day. I always found this a bit odd (people on death’s door aren’t known for their voracious appetite or distinct interest in a rotating set of meals prepared with the assistance of a few local grocery chains), but ultimately wholesome and humanizing.
 
-John Morrison had created this logbook, in delicate blue ink, on the back of these menus. 
+John had created this logbook, in delicate blue ink, on the back of these menus. 
 
 However strange, I think I could reconcile and attribute finding incoherent scribbles on the back of looseleaf paper menus mysteriously sequestered under a mattress to the inane wonders of a rapidly crystallizing brain.
 
 Incoherent scribbles are not what I have sitting in a disorderly stack to the left of my laptop as I type this. 
 
-I am making this post to immortalize the transcripts of John Morrison’s deathbed logbook. In doing so, I find myself ruminating on the point, and potential dangers, of doing so. Morally, I think sharing what he recorded in the brief lucid moments before his inevitable curtain call may be self-centered. But I am finding my morals to be suspended by the continuing, desperate search for guidance - a surrogate north star to fill the vacuum created by the untoward loss of a great man.
+I am making this post to immortalize the transcripts of John's deathbed logbook. In doing so, I find myself ruminating on the point, and potential dangers, of doing so. Morally, I think sharing what he recorded in the brief lucid moments before his inevitable curtain call may be self-centered. But I am finding my morals to be suspended by the continuing, desperate search for guidance - a surrogate north star to fill the vacuum created by the untoward loss of a great man.
 
 Although, I recognize my actions here may only serve to accelerate some looming cataclysm. 
 
-For these logs to make sense, I will need to provide a brief description of who John Morrison was. Socially, he was soft spoken - despite his innate understanding of humor, which usually goes hand in hand with extroversion. Throughout my childhood, however, his introversion evolved into overwhelming reclusiveness.
+For these logs to make sense, I will need to provide a brief description of who John was. Socially, he was soft spoken - despite his innate understanding of humor, which usually goes hand in hand with extroversion. Throughout my childhood, however, his introversion evolved into overwhelming reclusiveness.
 
 I try not to hold it against him, as his monasticism was a byproduct of devotion to his work and his singular hobby. He paid the bills with a science background and found meaning through art. More specifically, he was a cellular biologist and an amateur oil painter. I think he found his fullness through the juxtaposition of biology and art. He once told me he felt that pursuing both disciplines with equal vigor would allow him to find their "common endpoint”, the elusive location where intellectualism and faith eventually merged and became indistinguishable from one and other.
 
@@ -32,17 +32,17 @@ But enough preamble - below, I will detail his first entry, or what I think is h
 
 One evening, about a week after he died, I called and asked his case manager at the hospice if she could help determine which menu came out when, much to her immediate and obvious confusion (retrospectively, I can understand how this would be an odd question to pose *after* John died). I reluctantly shared my discovery of the logbook, for which she also had no explanation. What she could tell me is that none of his care team *ever* observed him writing anything down, nor do they like to have loose pens floating around their memory unit because they could pose a danger to their patients. 
 
-John Morrison journaled throughout his life, though he was intensely private about his writing, and seemingly would dispose of his journals upon completion. I don’t recall exactly when he began journaling, but I have vivid memories of being shooed away when I found him writing in his notebooks. In my adolescence, I resented him for this. But in the end, I’ve tried to let bygones be bygones. 
+John journaled throughout his life, though he was intensely private about his writing, and seemingly would dispose of his journals upon completion. I don’t recall exactly when he began journaling, but I have vivid memories of being shooed away when I found him writing in his notebooks. In my adolescence, I resented him for this. But in the end, I’ve tried to let bygones be bygones. 
 
 As a small aside, he went out of his way to meticulously draw some tables/figures, as, evidently, some surviving scientific methodology hid away from the wildfire that was his dementia, only to re-emerge in the lead up to his death. I will scan and upload those pictures as well.
 
 I will have poured over all the entries by the time I post this.  A lot has happened in the weeks since he’s passed, and I plan on including commentary to help contextualize the entries. It may take me some time. 
 
-As a final note: he included an image before every entry, which can be found at this link ([https://imgur.com/a/Rb2VbHP](https://imgur.com/a/Rb2VbHP)). This arcane letterhead is copied *perfectly* between entries. And I mean perfect - they are all identical. Just like the unforeseen resurgence of John’s analytical mind, his dexterous hand also apparently reawakened during his time in hospice (despite the fact that when I visited him, I would help him dress, brush his teeth, etc.).
+As a final note: he included an image before every entry, which can be found at this link (https://imgur.com/a/Rb2VbHP). This arcane letterhead is copied *perfectly* between entries. And I mean perfect - they are all identical. Just like the unforeseen resurgence of John’s analytical mind, his dexterous hand also apparently reawakened during his time in hospice (despite the fact that when I visited him, I would help him dress, brush his teeth, etc.).
 
 I will let you all know ahead of time that this tableau is the divine and horrible cornerstone, the transcendent and anathematized bedrock, the cursed fucking linchpin to everything I’ve found within his logbook. As much as I want to emphasize its importance, I can’t explain *why* it is so important at the moment.
 
-All I can say now is that I believe that John Morrison did find his “common endpoint”, and it may cost us everything. 
+All I can say now is that I believe that John did find his “common endpoint”, and it may cost us everything. 
 
 Entry 1:
 
@@ -126,4 +126,4 @@ John was actually a year off - I was 15 when he had his first seizure. Date-wise
 
 I apologize, but I am exhausted and will need to stop transcription here for now. I will upload again when I am able.
 
-\-Peter Morrison
+\-Peter M.
