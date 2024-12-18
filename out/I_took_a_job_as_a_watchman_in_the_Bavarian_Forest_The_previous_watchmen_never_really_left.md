@@ -1,8 +1,6 @@
- The Bavarian Forest in southwestern Germany spans about six thousand square kilometres across Baden-Württemberg. Follow it far enough and it merges with the Šumava along the Czech border, eventually leading to the Großer Rachel peak region. This area, known as the Rachelgebiet, is considered the heart of the Bavarian Forest, a place where human activity is strictly prohibited—though not for the reasons 
+Deep in the Bavarian Forest, where storms toppled trees decades ago and nature let them rot undisturbed, lies the Rachelgebiet—a place so untouched by humanity that sunlight struggles to pierce the canopy. There are no trails here, no clearings, no way to orient yourself if you’re lost. Just an endless expanse of shadow and silence where time itself feels irrelevant. It’s a place few dare to speak of, let alone enter. But they should have—because that’s where people started disappearing.
 
-Entire swathes of fallen trees lay where storms dropped them decades ago, rotting quietly in the perpetual twilight beneath the canopy. No trails, no clearings, no signs of civilization. Just an endless forest so dense you could walk for days without seeing direct sunlight. I'm telling you this now to highlight how isolated and ancient this little part of our world is. And perhaps to explain why no one noticed when people started disappearing.
-
-You can imagine my surprise when I got the job.                                       
+I didn’t know any of this when I took the job. 
 
 I'd just been fired from a warehouse logistics role. My interim boss at the time was a twenty-four year old nepo plant, running the place whilst his father was on vacation. The heir apparent was short-tempered and arrogant. One of those types who think they know everything about running a business because they've read “*Rich Dad Poor Dad*” and follow Gary Vee on Instagram.
 

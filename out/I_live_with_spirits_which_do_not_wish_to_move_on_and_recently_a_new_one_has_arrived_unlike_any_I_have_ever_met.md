@@ -74,7 +74,7 @@ I was frozen, for at least several seconds I just stood there without noise, my 
 
 She did not say anything in return, I felt like a fool. The cold continued to gnaw at me, my body could no longer forget to shiver.
 
-“Do wish for something from me?”, I exhaled.
+“Do you wish for something from me?”, I exhaled.
 
 She continued to stare into my eyes, hers did not blink at all while mine were trying their best to fend off the cold. My breath was fully visible.
 
