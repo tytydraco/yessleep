@@ -1,10 +1,10 @@
-Thank you all for your patience. 
+Thank you all for your patience.
 
-This has been a trying few weeks, only to be unironically complicated by my own health going on the fritz. In spite of setbacks, I am trying to remain steadfast. I have already made the irreversible decision to disseminate John Morrison’s deathbed logbook, and I will try to suffer any consequences with dignity. I think I am starting to desire contrition, but, in a sense, it might already be too late. I may be irredeemable. 
+This has been a trying few weeks, only to be unironically complicated by my own health going on the fritz. In spite of setbacks, I am trying to remain steadfast. I have already made the irreversible decision to disseminate John’s deathbed logbook, and I will try to suffer any consequences with dignity. I think I am starting to desire contrition, but, in a sense, it might already be too late. I may be irredeemable. 
 
 I am jumping ahead a bit. For now, what’s important to restate is that I have already read the logbook in its entirety. As you might imagine, digesting the events described was beyond emotionally draining. And while that’s all well and good, if it didn’t matter, I wouldn’t bother dragging you all through the miasma with me. However, my investigation into the logbook also has some narrative significance in tying everything together. I hope that my commentary will serve to put you in my mind’s eye, so to speak. 
 
-As a reminder, this image ([https://imgur.com/a/Rb2VbHP](https://imgur.com/a/Rb2VbHP)) is going to become increasingly vital as we progress. Take a moment with it. The more you understand this sigil, the better you’ll come to comprehend my motivations and, eventually, my regrets. 
+As a reminder, this image (https://imgur.com/a/Rb2VbHP) is going to become increasingly vital as we progress. Take a moment with it. The more you understand this sigil, the better you’ll come to comprehend my motivations and, eventually, my regrets. 
 
 Entry 2:
 
@@ -66,7 +66,7 @@ Dated as August 2004 to March 2005
 
 *The two translocations I have experienced so far follow a predictable pattern: I am reliving a memory. The ambient noise of the memory fades out to complete and utter silence, followed by Atlas appearing with his cacophony.* 
 
-*I want to start small by dissecting one individual part of that: the auditory component. What I find so fascinating is the initial dissolution of the sound recorded in my memory. Seemingly, before the cacophony begins, the ambient noise of the memory is eliminated - it does not just continue on to eventually add to the cacophony. Not only that, its disappearance seems to be the harbinger to the arrival of Atlas. But why does it disappear? Why would it not just layer on top of everything else? Why is this important? To explain, take the physics of noise-eliminating headphones, shown in figure 1 (*[https://imgur.com/a/S6pHGhd](https://imgur.com/a/S6pHGhd)*).* 
+*I want to start small by dissecting one individual part of that: the auditory component. What I find so fascinating is the initial dissolution of the sound recorded in my memory. Seemingly, before the cacophony begins, the ambient noise of the memory is eliminated - it does not just continue on to eventually add to the cacophony. Not only that, its disappearance seems to be the harbinger to the arrival of Atlas. But why does it disappear? Why would it not just layer on top of everything else? Why is this important? To explain, take the physics of noise-eliminating headphones, shown in figure 1 (*https://imgur.com/a/S6pHGhd*).* 
 
 *When sound bombards noise canceling headphones, it is filtered through a microphone, which approximates the wavelength of that sound. Once approximated, circuitry in the headphone then inverts* *that wavelength. That inverted wavelength is played through the headphone, which effectively cancels* *the wavelength made by the original sound.*
 
@@ -80,7 +80,7 @@ Dated as August 2004 to March 2005
 
 End of Entry 2 
 
-John’s car crash could not have come at a worse time in my adolescence. I think that was when I was the most disconnected from him. He was always introverted, sure. He was religious about attending his work and his paintings, yes since the moment I was born. But he wasn’t reclusive until I began middle school. Day by day, he became more disinterested. My mom interpreted this as depression, I interpreted it as disappointment (in me and his life). There were fleeting moments where I felt John Morrison appear whole, comedic and passionate and caring. But they became less and less frequent overtime. When he had his first seizure and started medication, somehow it seemed to get even worse. But when he had his near-fatal crash, I thought I had lost him and our disconnect had become forever irreconcilable. 
+John’s car crash could not have come at a worse time in my adolescence. I think that was when I was the most disconnected from him. He was always introverted, sure. He was religious about attending his work and his paintings, yes since the moment I was born. But he wasn’t reclusive until I began middle school. Day by day, he became more disinterested. My mom interpreted this as depression, I interpreted it as disappointment (in me and his life). There were fleeting moments where I felt John appear whole, comedic and passionate and caring. But they became less and less frequent overtime. When he had his first seizure and started medication, somehow it seemed to get even worse. But when he had his near-fatal crash, I thought I had lost him and our disconnect had become forever irreconcilable. 
 
 But as he slowly recovered, I began to see more and more of him reappear. Clouds parting in the night sky, celestial bodies returning with some spare, guiding moonlight. That period of my life was memorable and defining, but ultimately ephemeral, like all good things. 
 
@@ -92,8 +92,4 @@ In the end, I couldn’t do it. Defeated by something I could not hope to compre
 
 In that translocation, John saw my eye, or something like it. But in time, I would determine that is not what he actually recognized at that moment.
 
-\-Peter Morrison 
-
-
-
-  
+\-Peter M.

@@ -82,7 +82,7 @@ She continued to stare into my eyes, hers did not blink at all while mine were t
 
 My words stopped, it was unbearable, if I had ever felt closer to dying than I did there then I did not remember. I whimpered coarsely, looking at my exhales spread visibly in the room. My legs gave way and I fell onto my knees, my skin had begun to almost burn, I could barely feel anything. But she still stared into my eyes, but I could not meet her gaze anymore, my eyes were begging to close, the fight in me slowly dying. I took a final look at her, sitting on the bed still, glowing with that otherworldly glow which made her hair seem like strands of light. Her eyes seemed sad as they saw mine giving way.
 
-“You were the most ghost I ever saw.”, I managed to out those words, and then my eyes were shut. I did not expect anything after that.
+“You were the most beautiful ghost I ever saw.”, I managed to out those words, and then my eyes were shut. I did not expect anything after that.
 
 But then it all vanished, and for a moment I thought my body had begun to truly burn, but I realized then that all that happened was that the chill had departed. I opened my eyes from where I lay a crumpled heap upon the floor, the bed was vacant. She had disappeared. I took in several long, deep breaths.
 

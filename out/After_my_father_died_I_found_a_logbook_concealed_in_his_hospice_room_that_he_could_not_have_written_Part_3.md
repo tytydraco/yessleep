@@ -126,7 +126,7 @@ CJD is a wildly progressive and incredibly rare entity, estimated to affect appr
 
 Proteins are the molecules that allow all cells to function - fundamental building blocks to human cells, bacterial cells, viral cells, so on and so on. Canonically, though, they are not really considered to be “alive” - simply parts that create a larger whole. In the same way that if you cut off your hand and you were somehow able to keep the tissue from decaying, you probably wouldn’t consider that phantom appendage to be “alive” in the same way you are.
 
-And yet, the proteins implicated in CJD are able to “infect” a human host if infested tissues are consumed - an ability thought to be reserved for living things (there are cases in Papua New Guinea of aboriginal tribespeople developing a subset of this disease due to ritualistic cannibalism of human brain tissue). 
+And yet, the proteins implicated in CJD are able to “infect” a human host if infested tissues are consumed - an ability thought to be reserved for living things (there are cases in Papua New Guinea of aboriginal tribespeople developing a subset of this disease due to ritualistic cannibalism of human brain tissue).
 
 There is no treatment, and diagnosis of the disease is usually presumed in patients who have all the cardinal findings of CJD as well as MRI and lab findings that are in support of the diagnosis. However, it is important to note that the only way to definitively make this diagnosis is through a brain biopsy, which is seldom performed due to the risk of spreading the infectious, deadly protein. Most patients die within one year of symptom onset.
 
@@ -144,8 +144,8 @@ As much as I want to finish this, I need to rest.
 
 To introduce what is coming in the next post (which may be the penultimate or ultimate post, depending on my energy levels in the coming few days), the SC484 in the phrase “John, put NLRP77 in SC484” referred to a storage container numbered 484 at a warehouse half an hour from my childhood home. When questioned, Lucy did not know of its existence. No one did. 
 
-Days later, I would develop the prerequisite bravery to find and unlock that abhorrent vault. Inside an eight hundred square foot container laid thousands of moth-eaten marble notebooks, stacked in unorganized, schizophrenic piles, as well as the final grim piece to understanding [the sigil](https://imgur.com/a/symbol-above-every-entry-Rb2VbHP). John Morrison was correct when he said he knew the sigil wasn’t depicting an eye. Or, more accurately, it wasn’t *only* the depiction of an eye. 
+Days later, I would develop the prerequisite bravery to find and unlock that abhorrent vault. Inside an eight hundred square foot container laid thousands of moth-eaten marble notebooks, stacked in unorganized, schizophrenic piles, as well as the final grim piece to understanding [the sigil](https://imgur.com/a/symbol-above-every-entry-Rb2VbHP). John was correct when he said he knew the sigil wasn’t depicting an eye. Or, more accurately, it wasn’t *only* the depiction of an eye. 
 
 Something more devastating was concealed within it.
 
-\-Peter Morrison 
+\-Peter M
