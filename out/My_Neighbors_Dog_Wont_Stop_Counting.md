@@ -31,3 +31,7 @@ Before you ask, I'm not talking to my neighbor about this, and I'm not talking t
 Anyways, the dog hasn't stopped. I mean he always falls asleep by the time the sun comes up. (About when I do, actually.) but then he returns to it around midnight. And the number just keeps going up. That night he got to about 20,000, and when he starts up tonight he'll be at over 60,000.
 
 Not really sure what to do. Guess I just needed to tell somebody.
+
+
+
+EDIT: He's started up again for the night. I'm sober, to rule out any.. misrepresentations. I guess now I'll just listen while I play Subnautica. It's a little colder tonight but whatever happens out there, I need to know about it. I'll update if anything interesting happens.
