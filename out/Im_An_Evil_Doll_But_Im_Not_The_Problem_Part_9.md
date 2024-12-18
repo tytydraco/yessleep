@@ -417,3 +417,6 @@ You’ve helped me out before, JP boosted a couple of books when he was here the
 I know it’s a lot to ask, but I want these people to get out, I want to prove, I’m not the problem. 
 
 
+Looks like I'm still around:
+
+https://www.reddit.com/r/nosleep/s/YLSQ0DQ5ti
