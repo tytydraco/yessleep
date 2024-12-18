@@ -6,7 +6,7 @@ And as she was writing the letters she had felt like a coyote, the feeling was d
 
 She had dreamed of the coyote for several nights, and she knew now that it was more than just a dream symbol, more than just words on a wall. There was a real message for her here. The inner groove spoke its own language.
 
-If you happen to be reading these hastily written words, you are probably wondering what this coyoute is, and I will tell you or rather I will do my best to tell you because we are dealing with the challenge of an illusion, so large, so vast that it escapes our perception, and those who see it will be thought of as insane. Trust me on this one as we *start close in,*
+If you happen to be reading these hastily written words, you are probably wondering what this coyote is, and I will tell you or rather I will do my best to tell you because we are dealing with the challenge of an illusion, so large, so vast that it escapes our perception, and those who see it will be thought of as insane. Trust me on this one as we *start close in,*
 
 *don't take the second step or the third,*
 
@@ -44,6 +44,6 @@ Amanda had named the
 
 the tiger, as she had a faint idea that being attacked by a tiger was like being hit by a piano falling from the third floor. Not that she had ever been attacked by a tiger, maybe in another lifetime, but the influence - to use that name - she was intimately familiar with. As are you. And she intuitively sensed a predator like a tiger.
 
-But now the tables had started to turn. Teeth that she did not know she had - metaphorical speaking - had started to grow from deep inside: Amanda had noticed how attention sometimes falled into a specific place of non-attention, leaving room for other states to arise. Like the feeling of merging with the coyote. It needed her to let go to make its presence known, to hang loosely in the threads of meaning, that balance where the rigidity of mind is not too tight and not too loose, giving just the right breathing space for a common sphere to form. Nascently and yet solid. She had to trust that the shapeshifting trickery she witnessed from the coyote was necessary in order to find common ground. Or maybe the shapeshifting was the common ground? She knew for sure that her normal daily consciousness was in no help in this matter, and so she had to allow the medicine to do its work.
+But now the tables had started to turn. Teeth that she did not know she had, had started to grow from deep inside: Amanda had noticed how attention sometimes falled into a specific place of non-attention, leaving room for other states to arise. Like the feeling of merging with the coyote. It needed her to let go to make its presence known, to hang loosely in the threads of meaning, that balance where the rigidity of mind is not too tight and not too loose, giving just the right breathing space for a common sphere to form. Nascently and yet solid. She had to trust that the shapeshifting trickery she witnessed from the coyote was necessary in order to find common ground. Or maybe the shapeshifting was the common ground? She knew for sure that her normal daily consciousness was in no help in this matter, and so she had to allow the medicine to do its work.
 
 *(to be continued)*
