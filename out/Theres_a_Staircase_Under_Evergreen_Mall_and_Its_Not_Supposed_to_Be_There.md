@@ -468,8 +468,6 @@ A shattered, bloody hand slid around the edge of the door.
 
 Then the top of a head appeared—dangling unnaturally, eyes gleaming from the shadows.
 
-My best friend’s voice broke the silence.
-
-“Ready for our next adventure?”
+My best friend's laughter broke the silence, broken and distorted.
 
 The first flight of stairs stretched into the dark, waiting for me to follow.
