@@ -12,8 +12,8 @@ I say all this for simple context. I am no stranger to the unexplainable, but wh
 Incident Number: 24-0711
 Date of Incident: November 29, 2018
 Time of Arrival: 11:54 PM
-Location: Room 12, Sir Sleep-a-Lot Motel, Yellow Smoke County
-Reporting Officer: Detective Arthur Graham, Yellow Smoke County Police Department
+Location: Room 12, Sir Sleep-a-Lot Motel, [REDACTED] County
+Reporting Officer: Detective [REDACTED]
 
 Victim name: John Doe (Name yet to be confirmed through fingerprint or DNA)
 Gender: male
@@ -22,7 +22,7 @@ Occupation: unknown
 
 Suspects: none at present 
 
-The victim checked into the ‘Sir Sleep-a-Lot’ Motel on the morning of November 25th, 2018. He informed the motel owner, Mr. John Kelly, that he would be staying for three days. No known associates or visitors during the stay.
+The victim checked into the ‘Sir Sleep-a-Lot’ Motel on the morning of November 25th, 2018. He informed the motel owner, Mr John K, that he would be staying for three days. No known associates or visitors during the stay.
 
 Victim was found laying on bed in supine position. Victim had skin removed crudely. Patches of flesh hang loosely, revealing bone in some areas. Teeth indents on right part of pelvic bone will be examined. The victim's head is absent from the scene. Notably, the body had been dressed in what appeared to be women’s undergarments, specifically a pair of lace stockings and a torn satin slip. Neither items of clothing belonged to the victim.  The body was likely dressed post-mortem. 
 
@@ -32,7 +32,7 @@ Blood covers every inch of the room's four walls and carpet. The blood spray app
 
 Teeth were found on the room's desk, thirty-three in total arranged into a circular pattern ten inches in diameter. The careful arrangement appears to be ritualistic. The teeth are currently assumed to have been belonging to the victim. The location of the victim's head has not been identified.
 
-Addendum: The findings of the forensic odontologist have determined that thirty-two of the thirty-three teeth belonged to a person matching the victim's description; a caucasian male in his forties. One of the teeth matches a younger caucasian female. It was eventually connected through dental records to be from twenty-four year old Alyssa Hadland, reported missing in 1997. The Hadland case was archived in 1999 due to absence of evidence. 
+Addendum: The findings of the forensic odontologist have determined that thirty-two of the thirty-three teeth belonged to a person matching the victim's description; a caucasian male in his forties. One of the teeth matches a younger caucasian female. It was eventually connected through dental records to be from twenty-four year old [REDACTED] Hadland, reported missing in 1997. The Hadland case was archived in 1999 due to absence of evidence. 
 
 The victim’s tongue was discovered in the bathroom sink, exhibiting a complete severance at the base. The incision appeared clean and precise, suggesting the use of a surgical-grade or extremely sharp cutting instrument. Notably, the tongue was found in isolation within the sink, devoid of any other biological material, indicating that it may have been intentionally relocated post-excision. 
 
@@ -40,13 +40,13 @@ First responders noted signs of tampering on the coin-operated television in the
 
 Addendum: Both of the victim's eyes were recovered from the interior of the room's coin-operated television. The television screen had been removed and the eyes were placed within the cavity where the cathode ray tube was situated. This positioning suggests deliberate placement, indicating a possible symbolic motive.
 
-The only item of clothing found at the scene belonging to the victim was one pair of denim jeans, which witness John Kelly recalls being worn by the victim the morning he checked in. The jeans were contaminated with the victim's blood. In the pockets were found a one-way bus ticket from the towns of Cosgrave to Mayor's Income, one packet of apple flavoured gum and a button. No other possessions of the victim were found. A pair of small, leather lace-up shoes were found at the foot of the bed. From the lack of blood stains, we can assume the shoes were placed there after the homicide. 
+The only item of clothing found at the scene belonging to the victim was one pair of denim jeans, which witness John K recalls being worn by the victim the morning he checked in. The jeans were contaminated with the victim's blood. In the pockets were found a one-way bus ticket, one packet of apple flavoured gum and a button. No other possessions of the victim were found. A pair of small, leather lace-up shoes were found at the foot of the bed. From the lack of blood stains, we can assume the shoes were placed there after the homicide. 
 
-Addendum A: A shirt likely belonging to the victim was found three weeks later partially buried in a field in San Tommaso, a small town 240 miles south of Yellow smoke. The shirt matched the description given by John Kelly of the victim. Blood samples taken from the shirt were a strong match to those taken from the crime scene, although without the identity of the victim a definitive link is challenging to corroborate.
+Addendum A: A shirt likely belonging to the victim was found three weeks later partially buried in a field in [REDACTED], a small town 240 miles south of the crime scene. The shirt matched the description given by John K of the victim. Blood samples taken from the shirt were a strong match to those taken from the crime scene, although without the identity of the victim a definitive link is challenging to corroborate.
 
 Addendum B: The small shoes found at the crime scene were dated to 1909 and determined to have some value among antique dealers. Due to their small size they can be assumed to be children's shoes. 
 
-The room showed no obvious signs of damage. The furniture appeared to have been undisturbed although a Bible was missing from the bedside cabinet. Neither John Kelly nor his son David, lead witnesses of the case, recall seeing the victim with any luggage. For this reason, it is unclear if his possessions were taken or if he simply had none to begin with. The motive of this homicide remains unclear. 
+The room showed no obvious signs of damage. The furniture appeared to have been undisturbed although a Bible was missing from the bedside cabinet. Neither John K nor his son David, lead witnesses of the case, recall seeing the victim with any luggage. For this reason, it is unclear if his possessions were taken or if he simply had none to begin with. The motive of this homicide remains unclear. 
 
 
 I'll save you the rest of the procedural formalities. I've lost track of how many nights I've spent awake, staring at my computer screen reading and rereading this report. It's stayed with me for the past six years, constantly at the back of mind. At my personal behest, the case remained open despite insufficient evidence and a complete lack of any leads. When it was finally shelved at the beginning of this year, they were no closer to solving it than we were the day we found him. 
@@ -61,7 +61,7 @@ I decided I was finished for the night. I'd squeezed every piece of relevant inf
 
 Witness_1.mp3 
 
-It was an audio file. Somehow I hadn't noticed it before. Hell, I don't think I had even listened to it before. To my knowledge, all the Witness statements taken that night were written. I clicked on it, figuring it must've been taken from David Kelly, the kid who'd found the body. 
+It was an audio file. Somehow I hadn't noticed it before. Hell, I don't think I had even listened to it before. To my knowledge, all the Witness statements taken that night were written. I clicked on it, figuring it must've been taken from David K, the kid who'd found the body. 
 
 I took a sip of my last dregs of coffee and sat back in my chair, jacking up the volume. The audio wasn't the best quality. It was shrouded in the static of an analogue recording and to my shock, the supposed ‘1st witness’ had a woman's voice. The following is a transcript of what was on that file.
 

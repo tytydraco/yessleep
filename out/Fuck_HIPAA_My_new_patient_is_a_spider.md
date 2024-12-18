@@ -1,4 +1,4 @@
-In the summer of 2018, officers from several local law enforcement agencies attended a SWAT training exercise at the shuttered East Hills Mall in Bakersfield, California.
+In the summer of 2018, officers from several local law enforcement agencies attended a SWAT training exercise at an abandoned mall in Bakersfield, California.
 
 Approximately two hours into the training, two of the officers vanished. They responded to nothing, not even to radio calls.
 
@@ -60,11 +60,11 @@ So when my friend Breanna asked, *Seriously, what do you see in him?* I told her
 
 She rolled her eyes and went, *Let’s try again. Why do you love him?*
 
-I was obsessed with theater back then, so I threw a Christopher Marlowe quote at her:
+I was obsessed with theater back then, so I threw out a quote from a playwright named Christopher Marlowe:
 
 “*Why do you love him who the world hates so? Because he loves me more than all the world.”*
 
-That quote was particularly appropriate because Marley’s full name is Marlowe, just like the playwright. 
+That quote was particularly appropriate because Marley’s actual first name is Marlowe. 
 
 “That’s why, Breanna,” I told her. “Because he loves me more than anything or anyone.”
 
@@ -116,7 +116,7 @@ I spun around and marched away, wiping tears and terror away in equal measure. F
 
 Let him forget. I’d stay at the mall all night, basking in the echoes and the heat and the memory of my mother’s perfume. It was a hell of a lot better than my dad’s house, where I had to listen to him stomp around while his girlfriend soothe their new baby every minute of every day.
 
-I marched all the way to the end of the mall, trying and failing to absorb the ambiance – the activity, the excitement, the *being*, just like I’d used to\*.\* But it was impossible. The mall was like a happy hive that I couldn’t join even though I was right there inside of it. People parted around me, but didn’t spare me a glance. It felt like I was the wrong end of a magnet pushing all the other magnets away.
+I marched all the way to the end of the mall, trying and failing to absorb the ambiance – the activity, the excitement, the *being*, just like I’d used to. But it was impossible. The mall was like a happy hive that I couldn’t join even though I was right there inside of it. People parted around me, but didn’t spare me a glance. It felt like I was the wrong end of a magnet pushing all the other magnets away.
 
 But that was the story of my life, wasn’t it? No brothers or sisters, no cousins, no friends from school or church. Something about me *repelled*. The only people who ever came close to my heart were my mother and my grandpa who lived in New York City, which might as well have been the moon for all the good it did me.
 
@@ -624,6 +624,6 @@ But if you want to try, she’s waiting for you in cell 23.
 
 \* \* \*
 
-[Employee Handbook](https://www.reddit.com/r/nosleep/comments/1h49ypg/fuck\_hipaa\_my\_new\_patient\_looks\_like\_he\_came/)
+[Employee Handbook](https://www.reddit.com/user/Dopabeane/comments/1gx7dno/handbook_of_inmate_information_and_protocol_for/)
 
 [Interview Directory](https://www.reddit.com/user/Dopabeane/comments/1h41nkq/pantheon\_inmate\_interviews\_in\_chronological\_order/)
