@@ -298,4 +298,4 @@ Then, with a swish of her tails, she disappeared into the shadows of the house.
 
 I stayed frozen in the kitchen for a long while, listening to the silence that followed. The light above me had stopped flickering, but the weight of the room felt heavier—like it wasn’t entirely mine anymore.
 
-To be continued.
+Continued in [Part Two](https://www.reddit.com/r/nosleep/s/cWlu2erJTr)

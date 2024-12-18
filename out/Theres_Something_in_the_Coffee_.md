@@ -166,7 +166,7 @@ Two hours passed…
 
 I was beginning to get frustrated. It seemed that the tablet the doctor had given me wasn't helping. So I just lay there, staring at the ceiling for some time and holding my eyes shut.
 
-Nothing happened until about midnight, and quite frankly, I wish it had stayed that way. I immediately felt the throbbing in my head return, and the gentle taps that seemed to be circulating around my entire head went into overdrive. It was more evenly spread now, too. Rather than being in specific locations, it was across what seemed to be the entire circumference of my brain all at once. I could almost*...hear…*it inside me, all the little contacts… like crinkling paper.
+Nothing happened until about midnight, and quite frankly, I wish it had stayed that way. I immediately felt the throbbing in my head return, and the gentle taps that seemed to be circulating around my entire head went into overdrive. It was more evenly spread now, too. Rather than being in specific locations, it was across what seemed to be the entire circumference of my brain all at once. I could almost\*...hear…\*it inside me, all the little contacts… like crinkling paper.
 
 I sprung up to a sitting position, clutching my face in pain. My eyes had adjusted to the darkness now; what was once pure nothingness had brightened into a shadowy cacophony that ate the corners and walls of the room. The nausea returned, and stars pulsated through my vision, and just then… something caught my eye. 
 
@@ -378,7 +378,7 @@ Oh yeah, at this point, I was also being watched by a team of them 24/7. I was d
 
 The anti-parasitics they were trying seemed to have no effect. I guess that was to be expected.
 
-The next day, one of the researchers came in and told me he had an idea. My symptoms seemed to calm down when I was at a state of ease and flare up when I was stressed or scared so he proposed giving me a high dose of ketoconazole, a medication that's supposed to regulate my stress hormones. 
+The next day, one of the researchers came in and told me he had an idea. My symptoms seemed to calm down when I was at a state of ease and flare up when I was stressed or scared so he proposed giving me a high dose of  a medication that's supposed to regulate my stress hormones. 
 
 I tried it for two days, and the scientists' theories were all but confirmed because my hallucinations and all my other symptoms weakened significantly. A subsequent CT scan revealed the thing had grown much smaller than it had been before… it was starving. This is what led to the current theory that the parasite likely feeds off of stress hormones or other things your body produces during these periods. 
 

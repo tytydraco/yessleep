@@ -1,5 +1,7 @@
 [\[Part 10\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hf8jh3/the_call_of_the_breach_part_10/)
 
+[\[Part 12\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hharfm/the_call_of_the_breach_part_12/)
+
 Over mud, grass, and gravel I ran side by side with the rest, dozens upon dozens of forest green silhouettes emerging from the forest in a screaming tide. Bullets whined through the air like hornets, an enemy mortar round landed within the ranks of second platoon a few hundred yards to my left, and agonized wails of pain began to echo through the night. I caught sight of a few bodies fly into the air from it, and watched a severed arm tumble past me, still grasping a rifle. Burned gunpowder stung my nose, dirt gritted between my teeth from the particles that still rained from the air, and adrenaline surged in my veins like fluid lightning. My throat hurt from yelling, but a part of me was too afraid to stop, as if it somehow gave me arcane protection from the storm of lead that hissed through the air.
 
 *Bam-bam-bam-bam-bam.*
