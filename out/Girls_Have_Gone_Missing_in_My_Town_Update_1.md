@@ -26,11 +26,10 @@ Thanks to everyone who read my first post. I'm going to do more research while w
 
 I just got a text from Marie as I'm finishing this up. She wants to meet me this weekend and hang out like old times. I'll report back with how it goes.
 
-Edit: I'm never RE4R ever again. My dad and I were sitting on the couch and playing it not even ten minutes ago when my mom got a text in the neighborhood group-chat that Mrs. Moore died. Apparently, she had a heart attack from the sight of her missing daughter. If anyone wants to buy the Moore's horse to help them out, HMU.
+Edit: I'm never playing RE4R ever again. My dad and I were sitting on the couch and playing it not even ten minutes ago when my mom got a text in the neighborhood group-chat that Mrs. Moore died. Apparently, she had a heart attack from the sight of her missing daughter. If anyone wants to buy the Moore's horse to help them out, HMU.
 
 Jesus Christ, I don't know what to say.
 
 Some of you seem to be skeptical of Marie, so I'll find a way to let y'all know I'm still me every update. Thanks again for the concern, Nola signing off.
 
-  
 [Girls Have Gone Missing in My Town. : r/nosleep](https://www.reddit.com/r/nosleep/comments/1hfrbst/girls_have_gone_missing_in_my_town/)
