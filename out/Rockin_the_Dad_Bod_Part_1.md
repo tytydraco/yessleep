@@ -176,3 +176,5 @@ I climbed back into the passenger seat and buckled the seatbelt. Kevin pressed t
 “Nice job,” Kevin said. He gently let off the gas and the car slowly settled back to a now-feeling-slow 90.
 
 “Hey look,” he pointed out the windshield. “Let’s stop at the Eesix for a snack.”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1hhhiwy/rockin_the_dad_bad_part_2/)
