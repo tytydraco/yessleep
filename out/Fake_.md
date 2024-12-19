@@ -1,0 +1,20 @@
+Sometimes you just wake up for a nap and know that something is wrong. It was not that room be cold after a nap. Living in student dorms you get used to the boiler stopping and living you to the cold embrace of the outside world. And ofcourse the fire alarms no longer make you bat an eye because some motherfuckers can't stop smoking inside. It sure is anoing tho...
+
+I can here someone walking down the hall and some guys having a party above my room. I would bet you my live savings that the guy that started the alarm is there too. There goes my napping so might as well see how is outside.
+
+I slowly approach the window watching out to the street. In the dark fog I see the lights of a car awkwardly parking. Not a person in sight outside that one single car. Even tho it's kinda early the street lights are on. Quite an unusual sight. Come to think of it what is even happening above. Those jerks have a wierd taste of music. The notes feel wrong. Like they don't match. It's like listening to some garage band trying to add their own spin to some random underground song. It's just wron..
+
+And here comes the fire alarm again. Didn't hear it in like 5 minutes. Nicotine is really addictive kids. Why am I even typing this? Maybe I'm just finally losing it. Too much time spent studying. Maybe I should join the party above. It's not the best sounding but the people seem talkative, tho I can understand what they say at all.
+
+Ok that song never ends. It's been 20 minutes since I woke up and it's still the same horrible notes flooded with voices. There were 3 more people that walked down the hallway. Always 27 loud steps. Like someone on heels is trying to make their existence heard.
+
+ The heating is still out and now that I look at it that one car, that one fucking car is parking again. It wants me to think it's normal. But no. It's not. It's like someone is trying to learn how to park, but no one has left the car last time. I swear I would have seen it. Something is wrong. Very wrong. I will just draw the blinds and go clean my desk. There are too many you hurt cups and dirty plates on it anyway.
+
+I looked from behind the blinds for the last hour. No human in sight yet that car was parking again, the music never stopped, the person is still walking, there is something wrong, something happened to the people. These I swear they are not humans. They don't talk like humans their voices their music a cheap imitation. They try to get me, ofcourse they took everyone else, I'm alone and they want me, for some fucking reason they want me. This, this is why I was typing to seek a human, is there any human. There sure was some invasion some alien or monster or demon. They are all gone. There is nothing to trust nothing to see..
+
+I can hear some shy knocks from behind the door. My curiosity got their attention that's clear. A voice from behind sounds almost like one of my roommates. They got so good so quick. They stopped the music at some point. I can't recall it tho, but they can't fool me. They want me to believe them. That my roommate just lost his keys and can't get in. Sure what an excuse. They must have saw me through the window or they figured I shut the blinds. They are comming from me. My poor roommates. I can only imagine the horror they went through with this thing..
+
+It started hitting the door so hard. It's trying to breaking. Screaming cussing some other "people" chimed in at the door. It got so good at fakeing it. It even sent me messages on Whatsapp.  It's still not perfect. I can see how it misspelled things. I need to protect myself from it. I will push the small wardrobe we have into the door. That should stop it..
+
+Sirens blare outside. It figured how to climb to the 8th floor. It's trying to tell me they are firefighters. They will soon break my window. I refuse to die to that horrible creature. Thank good I could still find my cutter with the mess inside my drawer. I leave this for you, you are probably the last person alive, if there is even someone else alive. After I send this I will kill myself. I won't let it torture me I won't let it win. So please, for me, hide from it, stay alive
+
