@@ -35,3 +35,6 @@ Younger girls started going missing over the summer. Thirteen, ten, seven, two, 
 Whatever took them, it hasn't stopped. It just slowed down.
 
 Any help is appreciated. Thanks.
+
+  
+Nola, signing off.

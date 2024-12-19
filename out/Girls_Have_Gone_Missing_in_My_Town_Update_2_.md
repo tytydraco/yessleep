@@ -2,8 +2,6 @@
 
 [Girls Have Gone Missing in My Town Update 1 : r/nosleep](https://www.reddit.com/r/nosleep/comments/1hgiq4c/girls_have_gone_missing_in_my_town_update_1/)
 
-
-
 K'o uvnn cnkxg!!
 
 It's been a few days since my last post, sorry 'bout that. For anyone who hasn't read the first two posts: my small town has been plagued by disappearing girls sinch March 23rd of this year, and one of my friends was one of those girls. Her name is Calla Dollenganger, and I last said that I'd be talking to her sister, Marie, this weekend. She's the reason I'm doing all of this.
@@ -63,3 +61,6 @@ Marie texted me again today, and she said she had a gift for me. I can't wait an
 Guys my mom just came into my room crying. Mitzy was found dead in a ditch earlier today, and she's apparently been there for over a month. If it wasn't for her jewelry and painted nails no one would recognize her. Most of her skin had been removed and her clothes were gone.
 
 I feel sick to my stomach, and it doesn't help that there's a stotm right oitside. I think I'm gonna eat some paper and vomit BRB
+
+  
+Nola, signing off
