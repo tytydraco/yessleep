@@ -1,6 +1,6 @@
 Chapter 1: Bursting the Bubble
 
-To all listening on this frequency, I have been to their realm. What’s happening now is their idea of sport until their invasion begins. We need to identify them and the breaches before it’s too late!
+To all listening on this broadcast, I have been to their realm. What’s happening now is their idea of sport until their invasion begins. We need to identify them and the breaches before it’s too late!
 
 You might have noticed disappearances all over the country. Hell, they’ve been happening worldwide, but it seems to have started in Russia near someplace called Dachnyye Goryachiye Istochniki. Obviously, no one took it seriously, except the Russians after odd reports of rabid humans sprung out of nowhere. That’s around the time the first video dropped. The problem was, well, it was dark. Pitch black. But we could hear the screams. There were those unlike anything I’d ever fathomed from any animal, then there were those that were unnaturally long and loud. Apparently, a man was pleading for mercy. Now no one can contact a single town within 20 miles.
 
@@ -150,7 +150,7 @@ My heart dropped. Everything seemed more wrong than ever, but I still couldn’t
 
 “Yep! That’s her name! I keep forgetting it,” he said. “She also loves cats and The Expanse of Space.”
 
-“Russell. She told me she likes Corgis. I’ve been looking into getting one or two for the past week. You like cats. She’s also interested in things, I’m sorry, most women do not like. Also, there are others like her that look too,” I struggled to finish my sentence, but he understood what I was saying. 
+“Russell. She told me she likes Corgis. I’ve been looking into getting one or two for the past week. You like cats. She’s also interested in things, I’m sorry, most women do not like. Also, there are others like her that look too,” I struggled to finish my sentence, but he understood what I was saying.
 
 ”Perfect. Too perfect,” he replied. We looked at each other before looking towards the door.
 
