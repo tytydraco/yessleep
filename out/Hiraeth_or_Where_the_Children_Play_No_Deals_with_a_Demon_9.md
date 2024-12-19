@@ -1,5 +1,5 @@
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hfuat9/hiraeth_or_where_the_children_play_all_hell_8/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hfuat9/hiraeth_or_where_the_children_play_all_hell_8/)/[Next](https://www.reddit.com/r/nosleep/comments/1hhj608/hiraeth_or_where_the_children_play_the_leech/)
 
 “I never should have taken you back there,” I said to Andrew, “Should’ve just left that place to rot.” I shook my head.
 
@@ -299,4 +299,4 @@ A voice came from the other side of the door, bemoaning desperation.
 They looked at me and Trouble continued [growling.](https://www.reddit.com/user/Edwardthecrazyman/comments/17qis3x/archive/)
 
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hfuat9/hiraeth_or_where_the_children_play_all_hell_8/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hfuat9/hiraeth_or_where_the_children_play_all_hell_8/)/[Next](https://www.reddit.com/r/nosleep/comments/1hhj608/hiraeth_or_where_the_children_play_the_leech/)
