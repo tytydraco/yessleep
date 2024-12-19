@@ -1,5 +1,7 @@
 [\[Part 11\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hg2han/the_call_of_the_breach_part_11/)
 
+[\[Part 13\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hi4k7j/the_call_of_the_breach_part_13/)
+
 I slipped on a patch of mud and cursed under my breath. It wasn’t far to where my platoon had pitched their tents, but on my aching feet it seemed like miles.
 
 “Ohio, make up your freaking mind.” I growled as I wiped a splatter of reddish-brown muck from my pants. “Either it’s winter, or it’s not. Freeze the mud solid, or warm up so we don’t need coats, just *pick one*.”
