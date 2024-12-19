@@ -1,6 +1,6 @@
 I believe I first felt its presence two weeks ago.
 
-I had been busying myself with the dishes that evening, I am only resident here who needs to eat so there weren’t a lot of them by any means, but I had little to do then and thus was fine with anything to waste away time. The faucet’s flow was the only noise there then, loud enough to drown out all others but mundane enough to fade into the background in my ears.
+I had been busying myself with the dishes that evening, I am only the resident here who needs to eat so there weren’t a lot of them by any means, but I had little to do then and thus was fine with anything to waste away the time. The faucet’s flow was the only noise there then, loud enough to drown out all others but mundane enough to fade into the background in my ears.
 
 It was in that half-silence that I first felt that slight chill in my limbs, as if something tiny was crawling over my body here and there. Winter is soon to arrive; it was nothing remarkable. I turned off the faucet and stepped away from the sink, but that chill only grew stronger. It made its way over my body, crawling further and further until I finally knew that something wasn’t right. I turned around and observed the wide room, there was nothing there. No solitary figure, no strange shadow, nothing.
 
@@ -20,21 +20,21 @@ They all disappear eventually; they have places to be after all. Perhaps if the 
 
 I first caught a glimpse of it ten days ago.
 
-It was a few hours before noon, yet there was little sunlight to brighten up the halls of the manor, a harsh storm was brewing, and the winter fog had already began making untimely appearances. As I made my way towards the library through one of the halls, the open windows let in some scarce light to create misty shafts.
+It was a few hours before noon, yet there was little sunlight to brighten up the halls of the manor, a harsh storm was brewing, and the winter fog had already begun making untimely appearances. As I made my way towards the library through one of the halls, the open windows let in some scarce light to create misty shafts.
 
-It grew as I walked, crawling its way up my limbs and spin, growing colder as it crawled further, until it began to pierce me and I could ignore it no longer. I gasped as if I had just resurfaced from water after nearly drowning, and then jolted around to see what was its source. And this time I was not greeted by nothing.
+It grew as I walked, crawling its way up my limbs and spine, growing colder as it crawled further, until it began to pierce me and I could ignore it no longer. I gasped as if I had just resurfaced from water after nearly drowning, and then jolted around to see what was its source. And this time I was not greeted by nothing.
 
 It lasted for but a moment. I saw just a silhouette, a brilliant silhouette of mist and light which glowed with an otherworldly beauty in that dark hall, its shape barely resembled a person yet it was more brilliant than any person could be. My eyes were glued to it, and strangely I couldn’t find myself to say anything before It faded away, and with it the chill did so as well.
 
-I snapped back, “Please! Don’t disappear again!”, I called, though the gentleness was overshadowed by desperation now, “Are you lost here? Nothing can do you harm here, so why much you disappear?”
+I snapped back, “Please! Don’t disappear again!”, I called, though the gentleness was overshadowed by desperation now, “Are you lost here? Nothing can do you harm here, so why must you disappear?”
 
-I regretted those words as the beautiful figure did not reappear. I was sore for next several days then, wondering if it wouldn’t have fled if I had spoken lighter, yearning to see that brilliant silhouette again.
+I regretted those words as the beautiful figure did not reappear. I was sore for next several days then, wondering if it wouldn’t have fled if I had spoken lighter, yearning to see that brilliant silhouette again. How can someone dead have such an effect on you?
 
-That evening, I headed out towards onto the manor’s porch, despite the long toll of time which they have faced in their years, the planks still Stand strong, barely even creaking if stepped on. The fisherman was standing against the porch railing, fishing rod in one hand and the other tucked within his dusty coat. His fisherman cap was half torn and eternally stained, and his loose pants and undershirt fared no better. His beard was of a similar quality as his clothes.
+That evening, I headed out onto the manor’s porch, despite the long toll of time which they have faced in their years, the planks still stand strong, barely even creaking if stepped on. The fisherman was standing against the porch railing, fishing rod in one hand and the other tucked within his dusty coat. His fisherman's cap was half torn and eternally stained, and his loose pants and undershirt fared no better. His beard was of a similar quality as his clothes.
 
-“Evening, young lady!”, he tipped his hat. His voice was as course as you would expect, but that energy of one who found only joy in speaking.
+“Evening, young lady!”, he tipped his hat. His voice was as course as you would expect, but with that energy of one who found only joy in speaking.
 
-“Good evening!”, I said, he would get upset if I did not meet his greeting, “Sorry for being a bit abrupt but have you, by chance, noticed anyone knew around? Or felt another presence perhaps?”
+“Good evening!”, I said, he would get upset if I did not meet his greetings, “Sorry for being a bit abrupt but have you, by chance, noticed anyone knew around? Or felt another presence perhaps?”
 
 He furrowed his brow, but a smile of interest accompanied it, “Oh my, my, that is a quite a question, is it not? Hmmm… will we have another resident in this little home? I truly do not wish to share this porch with any more individuals, no matter how fine they may be.”, that was not an answer.
 
@@ -44,7 +44,7 @@ He furrowed his brow, but a smile of interest accompanied it, “Oh my, my, that
 
 There was no such thing as ‘dead business’, he simply adored derailing conversations.
 
-I could get no more out of him, and thus I left him there with a thanks as polite as I could manage. The fisherman is one of many who I call ‘residents’ here, those of the dead who simply ‘live’ in the manor and appear frequently at whatever positions or tasks they have set themselves up for. There are ‘visitors’ there as well, spirits who only linger for some small time while they move onto whatever comes next for them, or wherever next they may wish to visit. Some of them are friendly, some others have been difficult.
+I could get no more out of him, and thus I left him there with a thanks as polite as I could manage. The fisherman is one of many who I refer to as ‘residents’ here, those of the dead who simply ‘live’ in the manor and appear frequently at whatever positions or tasks they have set themselves up for. There are ‘visitors’ there as well, spirits who only linger for some little time while they move onto whatever comes next for them, or wherever next they may wish to visit. Some of them are friendly, some others have been difficult.
 
 The world is filled with death aplenty, after all.
 
