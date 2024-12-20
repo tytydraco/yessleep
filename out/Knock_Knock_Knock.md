@@ -118,7 +118,7 @@ This nightly routine went on for months. Every night, the Beast would torment me
 
 It was November. I'd replaced all the 2x4's with rebar, and the bedsheets on the windows with blackout curtains. I'd even gotten myself a part time job at the paper factory in town. Pay was garbage, but it kept Ella and I fed, the propane tank full, and the guns loaded. 
 
-Over these months, Jim had become my only friend. He'd gifted me a handgun to keep on my person at all times. He said he wouldn't miss it and I believed him. He had an arsenal that I'm sure would've had him on the ATF’s watchlist if we hadn't lived at the intersection of bumfuck and deliverance which was prime hunting grounds. I'd even traded in the over and under for a pump action 20gauge with a six shot capacity. 
+Over these months, Jim had become my only friend. He'd gifted me a handgun to keep on my person at all times. He said he wouldn't miss it and I believed him. He had an arsenal that I'm sure would've had him on the ATF’s watchlist if we hadn't lived at the intersection of the sticks and deliverance which was prime hunting grounds. I'd even traded in the over and under for a pump action 20gauge with a six shot capacity. 
 
 The forest gave me fresh meat at least. The river gave me fish. Mother Nature had fully adopted me and had been a very generous matriarch. I know what you're thinking… “Why would you stay there?” And my answer is, I had nowhere to go. I was completely disowned by my family. The family that hadn't disowned me were dead. And as of now, my routine was completely safe. Jim had informed me that the Beast, according to everything he'd learned, could only enter via an open or unlocked door/window. The Beast followed very strict rules. 
 
