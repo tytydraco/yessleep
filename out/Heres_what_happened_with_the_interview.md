@@ -2,7 +2,7 @@
 
 
 
-Regardless of what happens from now on, I’m moving on. And move on, I have, because that interview was certainly something. Hell, the whole place wasn’t anything but typical! When I checked Google Maps for the area (it’s located at 1324 \*\*\*\*\* St), it just went staticky. No matter what I did, I couldn’t get a clear picture of the area, but I *could* get directions. So it’s not all bad, at least.
+Regardless of what happens from now on, I’m moving on. And move on, I have, because that interview was certainly something. Hell, the whole place was anything but typical! When I checked Google Maps for the area (it’s located at 1324 \*\*\*\*\* St), it just went staticky. No matter what I did, I couldn’t get a clear picture of the area, but I *could* get directions. So it’s not all bad, at least.
 
 
 
