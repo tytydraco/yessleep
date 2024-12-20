@@ -1,5 +1,5 @@
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hgmdba/hiraeth_or_where_the_children_play_no_deals_with/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hgmdba/hiraeth_or_where_the_children_play_no_deals_with/)/[Next](https://www.reddit.com/r/nosleep/comments/1hiopez/hiraeth_or_where_the_children_play_hell_is/)
 
 
 She stood there in the doorway, a woman with cream colored hair which reached her shoulders; Andrew gathered a lantern, and her face was caught in the light of the thing and even with its glow, her pallor was unmistakable—the woman was thin, gaunt, and wore ragged clothing. Her body didn’t fill the frame and so she was small there in the negative blackness of the stairwell and she did not rush in, nor did she say a word upon seeing us. Trouble growled by our feet and the mutt exposed its teeth while lowering its head as though it was ready to pounce. Whatever fright was in the air, it was contagious, and I wanted to reach out and comfort the dog, but I caught the eyes of the woman as she placed a long hand by the hinge of the door. It flinched away so that she held her hands before her chest, clasped like in fists of prayer. Her expression softened and her eyes seemed to round in the glow of Andrew’s light—he held it high over his head to bathe the room in it.
@@ -289,4 +289,4 @@ Taking notice of the specks he indicated far ahead on the road, I too knelt, and
 “Probably not,” said [Gemma.](https://www.reddit.com/user/Edwardthecrazyman/comments/17qis3x/archive/)
 
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hgmdba/hiraeth_or_where_the_children_play_no_deals_with/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hgmdba/hiraeth_or_where_the_children_play_no_deals_with/)/[Next](https://www.reddit.com/r/nosleep/comments/1hiopez/hiraeth_or_where_the_children_play_hell_is/)

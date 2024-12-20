@@ -54,7 +54,7 @@ Sometimes I could see it, if I was fast enough, but I could never fully process 
 
  
 
-I tried to trick it using reflections to see, but they still flicked away. I tried to take video, but it was the same. By the time to recording started, they had already flicked away.
+I tried to trick it using reflections to see, but they still flicked away. I tried to take video, but it was the same. By the time the recording started, they had already flicked away.
 
  
 
