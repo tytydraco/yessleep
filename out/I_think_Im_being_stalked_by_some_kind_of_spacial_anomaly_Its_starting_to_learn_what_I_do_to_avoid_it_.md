@@ -74,7 +74,7 @@ Something about sleep banishes the irregularity. Alternatively, perhaps it can�
 
 I think the anomaly is getting frustrated, given that my protocol has subverted its ability to detain me. I can tell because its efforts are getting more creative. More desperate, too.
 
-Last night, I opened my desk drawer and reached in to grab some printer paper. When I did, my right hand just kept going. I ended up falling forward because it was so unexpected, causing my entire arm and half my shoulder to be swallow by a drawer that, on the outside, wasn’t bigger than a pizza box. 
+Last night, I opened my desk drawer and reached in to grab some printer paper. When I did, my right hand just kept going. I ended up falling forward because it was so unexpected, causing my entire arm and half my shoulder to be swallowed by a drawer that, on the outside, wasn’t bigger than a pizza box. 
 
 It started closing on its own, which really started to amplify my panic. While my hand was flailing inside the drawer, it connected with something - the surface of something metallic, I think. I can’t tell you exactly what that surface was because the drawer was pitch black, and I couldn’t get an appreciation for how it felt, as the surface was so hot that it singed half of my fingertips, straight to the bone. 
 

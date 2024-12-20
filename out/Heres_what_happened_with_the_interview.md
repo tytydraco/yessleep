@@ -62,7 +62,7 @@ Though how, I’d be hard-pressed to tell you, even now, hours after as I sit ty
 
 
 
-“Hmmm… I see why the boss took an interest in you… Quite interesting indeed. You’ll fight right in here.” She brought her hands up to her mouth, a smile slipping through the cracks of her hands. As soon as she took that pose, I saw the snakes snap away, and reality come back into view.
+“Hmmm… I see why the boss took an interest in you… Quite interesting indeed. You’ll fit right in here.” She brought her hands up to her mouth, a smile slipping through the cracks of her hands. As soon as she took that pose, I saw the snakes snap away, and reality come back into view.
 
 
 
