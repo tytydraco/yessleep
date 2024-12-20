@@ -275,3 +275,6 @@ He was pleading towards me with folded hands to show him mercy.
 ‘This is for Stella. And She’s lovin it’, I said out loud.
 
 I hit the accelerator again.
+
+  
+[X](https://www.reddit.com/user/Federal_Machine692/)
