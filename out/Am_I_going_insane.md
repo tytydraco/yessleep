@@ -1,0 +1,23 @@
+Hey Reddit,
+I never imagined I’d be here, spilling my thoughts to strangers online, but I've hit a breaking point—emotionally and mentally. What I’m about to share might seem crazy, but I assure you it’s real. It all began about three weeks ago when I was heading back to my dorm. 
+
+Let me introduce myself. I’m Cassie, a 21-year-old college student at NYU, juggling classes, a part-time job, and occasionally trying to have a social life. My life was pretty ordinary—until that one day, I spotted him: a tall guy in a dark hoodie always lurking just out of sight, whether I was waiting for the subway, studying at the library, or grabbing coffee late at night. It started as a slight feeling in my gut like someone was watching me. But soon, I began to see him everywhere.  I tried to dismiss it, telling myself it was just my imagination. I mean, it’s a big city, and hoodies are everywhere.
+But one day, as the subway car door closed, I saw him at the far end, staring in, and my heart sank. His face was expressionless, but his eyes—I’ll never forget those eyes—were dark and intense. It felt as if he could see right through me.  From that moment on, I couldn’t shake the feeling. Every time I glanced over my shoulder, there he was, sometimes barely concealed behind a streetlight or a group of people. At first, I told myself it wasn’t real; that I was just an overwhelmed college student starting to lose it. But with each passing day, my anxiety grew into full-blown dread. I stopped walking home at night and switched to rideshare, but each time I looked in the rearview mirror, I half-expected to see him looming behind me, his shadow stretching ominously over the backseat.  I confided in my roommate, Melanie, hoping she could offer some clarity. She laughed, rolled her eyes, and called it a "New York syndrome." She didn’t take it seriously, brushing me off like I was being overdramatic. But I was not making this up anymore.
+
+I decided to seek some comfort online like many do in tough times. The Reddit community seemed to excel at unravelling mysteries, so I found myself in a thread about urban legends, aptly titled “Does This Happen to Anyone Else?” I began to share my thoughts, detailing the figure that lurked and the dread that was slowly gnawing at my sanity.  Responses flooded in, some sympathetic and others outright dismissive, but one stood out. A user named “[redacted]” replied, “If you see him it’s too late, he chose you.” The comment sent a chill down my spine, and I felt my heart race. I clicked on the user’s profile, which contained only a series of cryptic posts about feeling hunted, discussing shadows that seemed to linger. It took mere moments for a disturbing realization to hit me: I wasn’t alone in this. 
+As days passed, the shadow creature morphed into a haunting presence in my life. I struggled to concentrate on my assignments or enjoy evenings with friends. I was caught in a cycle of paranoia, careful to stay within well-lit areas. I began to skip classes. Melanie noticed my decline, urging me to speak with campus counselling, but the thought of sounding insane terrified me—what if they locked me away?  Then came the night I reached my breaking point. It was a Wednesday, and I got home from work late, adrenaline coursing through me. In a moment of defiance—and desperation—I decided to confront him. Maybe if I showed him I wasn’t afraid anymore, he’d leave me alone. I put on my most vibrant jacket, a deep red that was meant to exude courage. Determined to banish my fear, I walked down my usual path, eyes wide open.  There he was, slumped against a street wall, head down, the hoodie casting a shadow over his face. My heart raced. I crossed the street and then paused, my heart pounding as I felt him lift his head slightly. He was finally in view, and a gasp escaped my lips.
+
+His face was gaunt and sunken, his eyes hollow—disconcertingly empty, as if they held all the secrets of the world and none at all.
+
+“Why are you always following me?” I shouted into the cold night, my voice shaking.
+
+A pause hung in the air. He didn’t move, just stared. A smirk slowly spread across his lips, sending chills through me. “You feel it, don’t you?” he finally said, his voice a sinister whisper that seemed to seep from every shadow around us.
+
+As the shadows deepened and swirled around him, I turned and ran, as fast and as I could and safely made it back to my dorm. That was 2 days ago.
+
+If you're reading this, please tell me—how do I escape this madness? Should I leave the city? Wait it out? Or is there no escape at all? Because right now, I regret stepping into the shadows.
+
+Sincerely,  
+Cassie
+
+P.S. I hope this reaches someone before it’s too late.
