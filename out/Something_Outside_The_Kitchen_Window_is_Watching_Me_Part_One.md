@@ -235,3 +235,7 @@ My forehead rested against my knees, and for a brief moment, I let my body curl 
 \- - -
 
 End of **Part One**
+
+\- - -
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1him8aw/something_outside_the_kitchen_window_is_watching/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
