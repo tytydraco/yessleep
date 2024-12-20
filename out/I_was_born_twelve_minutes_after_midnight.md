@@ -120,3 +120,61 @@ I want to throw up.
 
 But more than that, I want to live, so screw the natural order, screw my fear.  I see their headlights in the driveway.  We’re doing it.  I’ll post this in a little bit, once we get to the trail.  And I promise… I’ll update this post as soon as it’s over.
 
+
+
+Okay.  I’m alive.  Tom is alive.  Susan is alive.
+
+And so is… the person I pulled out.
+
+Unbelievably, everything went according to Tom’s plan.  I feel… exhilarated?  Giddy?  Probably going to stop sobbing as soon as the adrenaline high crashes?  All of these at once.
+
+The trail we used is accessible by car.  From the parking lot, you can either go up or down and obviously we were going down.  We only needed a bit over a mile, after all.  Tom unloaded his bike and the floodlight and we got into position.  My skin prickled as we waited, like the air around us was growing thinner and I could feel the touch of fingers, anxious to drag me back into their embrace.  My nerves were about ready to snap and while we’d done this dozens of times before, I wanted to yell at Tom that him counting down the seconds wasn’t actually making me feel better.
+
+With fifteen seconds to spare, I started running.  Tom got his bike going, barely peddling to stay ahead of us, with a floodlight on his back and a mirror on his handlebars through which he would be able to see the void.  Then, exactly at midnight, I felt it.  I felt the wind and cold around me twist, I felt the ice of terror stab through my gut, and the race for my life began in earnest.
+
+My feet struck the ground hard as I stretched my legs out as far as I could, letting gravity carry me forward.  The cold night air on the back of my neck was indistinguishable from the touch of the void and my lungs burned, constricting with terror, because surely this wasn’t working - I was going to die -
+
+“It’s working!” Tom yelled back at me.  “It’s falling behind!  Eleven minutes to go!”
+
+I could have cried, but I couldn’t, not yet, not until it was done.  I ran, trusting to my practice, trusting to my form as my feet hit the packed earth and I watched for stones or potholes in the trail in front of me, illuminated by both of our lights so that the only thing I could see was the path directly ahead, the darkness swallowing up the rest of the world around me.  And Tom kept yelling back to me, that we had reached the two minute mark, then the five, that everything was just as we’d planned, that I was still ahead of the void.
+
+“We’re coming up on the ridge,” he yelled back.  “You need to slow down.”
+
+He cut sideways, putting some distance between himself and where I’d wait for the vortex so that it couldn’t reach out and grab him.  I skidded to a stop at the edge of the ridge.  It was a short line where the soil fell away to an exposed rock face.  It wasn’t even that high up.  Below us, I saw Susan waiting for us with a headlamp of her own.  She held a baseball bat with both hands.  Just in case.
+
+“Here it comes,” Tom called out.  
+
+I couldn’t breath.  It was like the world was slowing to a stop around me.
+
+“There’s - there’s one - I recognize him!  You need to grab him!”
+
+I couldn’t.  I was frozen in place, my skin rapidly cooling in the cold air, puff of steam escaping my numb lips.  I couldn’t do this.  I had to keep running, like I’d done for years now, because my death was snapping at my heels -
+
+“Please!”
+
+I heard his desperation.  He needed me to pull this person out, because it would bring them back to life, and there was something *personal* in his plea.  He couldn’t do it himself.
+
+Only I could.
+
+I turned.  
+
+Behind me was a gaping tear in the world, pitch-black, save for the shadowy forms stretching their arms out, fingers splayed, dragging themselves towards me in desperation.  My mouth was dry.  I was barely hearing what Tom was yelling at me, but a few words made it through.  That one.  The one in the center.  The one who was more desperate than all the others, the one that was the furthest out of the vortex, whose torso was almost free.  Grab that one.
+
+And I did.  It felt like it wasn’t myself who was moving.  Like I was a bystander, watching someone braver and stronger than I was.  Someone who stretched out a hand and grabbed the man’s hand - because even without Tom telling me I knew who it was, it was the father who died and dropped his newborn baby, the patient that Tom knew shouldn’t have died, the one that spurred him to risk his career, his reputation to seek me out - I wrapped my fingers around his wrist as tight as I could.  I felt hands brush my arms, my ankles, but it was too late for those still trapped in the vortex, I was stepping backwards out of their reach, I was turning, I was pulling and then I was falling and for a moment the world was wind and darkness -
+
+\- then I hit the leaves and the ground, feet-first, I was tumbling forward, I heard Susan yelling but I didn’t know what she was saying, I felt her grabbing my arms saying run, run, and I did, but only for a few paces before my watch sounded an alarm and it was over, it was twelve minutes past midnight and I was alive.
+
+As was Susan.  As was Tom.
+
+And as was the man picking himself up off the forest floor.
+
+I wish I could tell you everything about him, but we only talked long enough to get our bearings on what the heck had just happened.  The last thing he remembered was that he was in the hospital and now he was here.   And he desperately wanted to see his wife and child and know that they were okay.  Everything else could wait until after that.  I’m sure this will frustrate some of you, but we agreed.  I know you’re anxious for answers - believe me, I *know* \- but he lives in the area and we’ve got a whole year to figure it out with him.
+
+I want to laugh.  Another year.  I have another year.  And I didn’t just outrun the void - I *gained ground* on it.  *I pulled someone out.*  
+
+For the first time in my life, I feel like maybe things have changed for the better.
+
+Tom volunteered to drive the man home.  Susan could take me home.  And I’ve been in the back seat of her car, typing this up, so that I could let you all know as soon as possible that I’m alive for another year.
+
+I guess we’ll find out next year if anything has changed inside the vortex.
+
