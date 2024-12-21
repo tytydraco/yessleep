@@ -47,3 +47,5 @@ the tiger, as she had a faint idea that being attacked by a tiger was like being
 But now the tables had started to turn. Teeth that she did not know she had, had started to grow from deep inside: Amanda had noticed how attention sometimes falled into a specific place of non-attention, leaving room for other states to arise. Like the feeling of merging with the coyote. It needed her to let go to make its presence known, to hang loosely in the threads of meaning, that balance where the rigidity of mind is not too tight and not too loose, giving just the right breathing space for a common sphere to form. Nascently and yet solid. She had to trust that the shapeshifting trickery she witnessed from the coyote was necessary in order to find common ground. Or maybe the shapeshifting was the common ground? She knew for sure that her normal daily consciousness was in no help in this matter, and so she had to allow the medicine to do its work.
 
 *(to be continued)*
+
+Link to [part 2](https://www.reddit.com/r/nosleep/comments/1hjdx9w/everybodys_gangsta_until_the_coyote_stands_on_two/)
