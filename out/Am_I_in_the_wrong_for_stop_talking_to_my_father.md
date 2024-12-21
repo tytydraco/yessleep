@@ -1,0 +1,13 @@
+
+I am a 15 year old male and my sister is a 15 year old female. We were born to two divorced parents.  Legally, both of my parents have to take us 3 and a half days each week to be with them.  My father was not that guy.  At first, he only took us on weekends, but slowly he disappeared from our lives completely.  My mom and the court fought for him to come get us, but he didn't care.  My father was a violent man, a heavy smoker and an alcoholic. 
+
+ My mom and dad, ever since I was little, I remember them arguing about who would take me today, and I, a 4-year-old boy, sat on the side and cried to myself.  To this day I have abandonment anxiety and I keep all the things that lie to me to myself.  Almost every time I came to visit him, he beat me for being "unmanly" especially when I was young (I grew up without friends because I wasn't popular, so I had to hang out with my sister and her friends, which made me play with dolls almost all the time).  My father was so upset by this that he hit me and injured me.  
+
+My father is also a racist person, he does not like Arabs (we are a Jewish family, my father supports far-right parties (that is, anti-Arabs)) especially, so when I was 8 years old, I told him that I had an Arab friend, and he got so angry, that he hit  me in the skull and cracked it.  I still have a scar there.  Legally, because I was young, I had to go to him.  But these are not the reasons why I am writing this.  When I was 10 years old, my father was angry with my sister for some reason and he was about to raise a hand on her, I was protecting my sister and I was angry with him.  My dad was so angry, he threw something metal at me that caused my front teeth to crack (by the way, that's why I have to have root canals done on my two front teeth) from that day on, I swore I wouldn't talk to him again, and that's what happened.  
+
+My father just disappeared from my life without any sign.  And today, when I'm 15 years old, after he abandoned me for almost 6 years, he tried to come back into my life.  And legally, I'm allowed to object, so that's what I did.  He called me and I just cursed him and hung up.  Then I blocked him.  
+
+Thanks for reading 
+
+
+Edit: Status update: Did I say earlier that my father is a supporter of a far-right party?  Well then, I'm sorry to break the news, he's going to be a member of Congress in the state where I live.  I really don't want to know how it ends, because I am worried for the people's life inside my country.
