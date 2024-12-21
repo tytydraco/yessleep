@@ -141,10 +141,10 @@ I screamed and smashed my thumb at the seatbelt buckle. The Italian design geniu
 
 I finally managed to unlatch the belt and fell out of the car. The gravel was cold and wet. I stood. Some of the pointier pebbles stuck into my palms. I ran.
 
-No – I didn’t run. I fled. I engaged in panicked forward motion. I didn't care where I was going, as long as it was away from the car. Well, away from The Parson who was in the car.  
-  
-I'm not in great physical condition. But still, normally I'd be able to get a few hundred yards before hitting the oxygen wall. But the struggle with the seat belt, and my useless screaming in terror took its toll on my anaerobic output. My heart rate hit maximum the instant I saw The Parson behind me in the back seat and didn’t back off.  
-  
+No – I didn’t run. I fled. I engaged in panicked forward motion. I didn't care where I was going, as long as it was away from the car. Well, away from The Parson who was in the car.
+
+I'm not in great physical condition. But still, normally I'd be able to get a few hundred yards before hitting the oxygen wall. But the struggle with the seat belt, and my useless screaming in terror took its toll on my anaerobic output. My heart rate hit maximum the instant I saw The Parson behind me in the back seat and didn’t back off.
+
 I made it a few hundred feet before the burning need to put oxygen in my lungs brought me to a standstill, hands on knees, sucking in as much air as I could. The rain picked up. The darkness picked up too. The night became thicker. The universe consisted of me, the car, and the gravel. I couldn't even see the church anymore.
 
 I looked behind me. There was motion inside the car. I turned and ran again, this time at a pace I thought I could maintain – basically a fast walk. I heard the car door slam. Then the sound of tires rolling over gravel. I turned around. The Parson was driving. He had put his hat back on. The Maserati was just idling forward, but moving faster than I was.
@@ -202,3 +202,5 @@ He strode past me and I turned to follow him. The little church stood directly i
 “The Lord chooses the moves. We are only the pieces.” The parson opened the front door to the church. A chime rang. He gestured for me to enter and I obeyed.
 
 I stepped across the threshold. A counter with three cash registers stood in front of me. To my right, a dozen rows of shelves stocked with sugary, fried food. Behind them, a wall of glass doors keeping the refrigerated drinks cold. I was back in the E6 travel mart.
+
+\[[Part 4](https://www.reddit.com/r/nosleep/comments/1hizade/rockin_the_dad_bod_part_4/)\]
