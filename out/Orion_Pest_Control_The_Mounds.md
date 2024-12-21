@@ -420,4 +420,4 @@ She slowly raised a hand to my cheek, her frown deepening as she cupped it affec
 
 She sounded distant as she said, “[Maybe](https://www.reddit.com/r/atypicalpests/s/IhB33kiCdf).”
 
-
+Update: [Good thing I wrote this experience down when I did. ](https://www.reddit.com/r/nosleep/s/JRhQ9jsSvY)
