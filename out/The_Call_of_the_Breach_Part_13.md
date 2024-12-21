@@ -1,5 +1,7 @@
 [\[Part 12\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hharfm/the_call_of_the_breach_part_12/)
 
+[\[Part 14\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hj39jy/the_call_of_the_breach_part_14/)
+
 Chris stood with his back to me, one hand on his radio mic. “Copy that, Hilltop. Will do.”
 
 Leaning against the scuffed armor plating of my armored pickup truck, I watched his broad shoulders slacken, and I bit my lip in disappointment. Chris had come the instant he’d been able this morning, and it had been all I could do the night prior to talk him down over a private radio channel so that he didn’t attempt to reach me in the dark. Vecitorak hadn’t gotten so close to me since the night I was stabbed, and for Chris it was a personal grudge borne with hatred that the freak had managed it once more.

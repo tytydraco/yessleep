@@ -160,7 +160,7 @@ This time, I tried kneeing him. He flinched, but didn't let me out from between 
 
 For the duration of that training session, the Replacement’s grunts remained in the background of our sparring. But while pinned, I heard them as if they were right next to me. 
 
-“So damn stubborn.” Iolo remarked. “Pain in the arse, is what you are.”
+“So damn stubborn.” Iolo remarked. “Pain in the ass, is what you are.”
 
 Silently promising that I'd nick him with the iron blade as revenge, I glared at him. “I yield.”
 
