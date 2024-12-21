@@ -1,3 +1,5 @@
+Vampire/alien/other reality
+
 Chapter 1: Bursting the Bubble
 
 To anyone listening, my name is Devin Johnson. We are being hunted by creatures that were made to infiltrate our race, but what’s coming is nothing short of world-ending. We need to eliminate them and close the breaches they’ve been opening across our world. I know all this sounds crazy. Perhaps it's out of the blue for some of you, but listen to my story before you write me off. What I will tell you might save your life and those important to you.
