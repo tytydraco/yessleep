@@ -29,7 +29,7 @@ Was it because of me? Did I really mess up that bad? I know I messed up but wasn
 
 “Yeah, let’s begin.”
 
-I decided to hit the bar at evening like always. It was a weekly thing me and Brian did to unwind after a week’s worth of work and stress.  
+After work, I decided to hit the bar  like always. It was a weekly thing me and Brian did to unwind after a week’s worth of work and stress.  
 “Hey David,” I greeted the guard at the entrance, “how’s your son?”
 
 He squinted at me, confusion evident on his face.
@@ -176,7 +176,7 @@ I knocked on the door.
 
 There is something I am forgetting. My head hurts.
 
-“River”
+“River...”
 
 “Yeah? Who are you and what are you doing here?”
 
