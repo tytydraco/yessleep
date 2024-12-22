@@ -12,9 +12,9 @@ I turned on the faucet again, intent on finishing the chore, yet it returned the
 
 Have you ever felt that source-less chill upon your skin? On lonely nights without company, when standing in seemingly seclusion, the building up of that strange, odd chill along your spine and bones?
 
-We often do not even notice it until it has grown much too strong to ignore. What would you do then, when that strange chill passes over you? Would you feel as though you caught in the corner of your eye, some strange thing that should not be? Would you feel as though you are being watched and stalked in your own place of comfort? As if there is another presence around you, lying out of sight, just waiting to disappear?
+We often do not even notice it until it has grown much too strong to ignore. What would you do then, when that strange chill passes over you? Would you feel as though you caught in the corner of your eye, some strange thing that should not be? As if there is another presence around you, lying out of sight, just waiting to disappear?
 
-They all disappear eventually; they have places to be after all. Perhaps if the distance between me and one of you is scant enough then that presence could be trying to get to me.
+They all disappear eventually. Perhaps if the distance between me and one of you is scant enough then that presence could be trying to get to me.
 
 \------------------
 
@@ -48,7 +48,7 @@ I could get no more out of him, and thus I left him there with a thanks as polit
 
 The world is filled with death aplenty, after all.
 
-Some are like a soft embrace, a final touch of warmth before the cadaver is left behind as the spirit within tries to leave to a kinder place. Some others I have seen are harsh and cruel. Abrupt. Unwanted. The body must be abandoned all the same, but how can one who was cheated out of their time bear to just leave it all behind so?
+Some are like a soft embrace, long expected and welcomed. Some others I have seen are harsh and cruel. Abrupt and unwanted. The body must be abandoned all the same, but how can one who was cheated out of their time bear to just leave it all behind so?
 
 \------------------
 
@@ -106,7 +106,7 @@ As I lied in the warmth of my large bed again, I could not sleep. My thoughts we
 
 When some die, sometimes they do not wish to move on to whatever is next. They cling to all that they can; despite having their destination be beyond death, they breathe life into things which should not have them, linger here in ways that they aren’t supposed to.
 
- Sometimes they cry, and become afraid and confused as they linger behind, aware that they must not remain, but too afraid to move on. But some others instead are glad, and feel great joy and even comfort in their states of stagnancy, there are many of these that I have known and know, they are the warmed of them all. They are filled with fear at the thought of losing their bliss in whatever lies beyond, and so often choose to linger behind as long as they wish.
+Sometimes they cry, and become afraid and confused as they linger behind, aware that they must not remain, but too afraid to move on. But some others instead are glad, and feel great joy and even comfort in their states of stagnancy, there are many of these that I have known and know, they are the warmed of them all. They are filled with fear at the thought of losing their bliss in whatever lies beyond, and so often choose to linger behind as long as they wish.
 
 ‘She’, as I have begun to just refer to her, I believe is meant to be a resident. One of the dead who stays in the manor until or if they move onto what lies next. No visitor stays here for so long, yet already since that encounter last week I have felt her chill at various points in the manor. I do not know if her appearing like that again frightens me because of the thought of the cold or if it excites me because of the thought of knowing what she wants.
 
