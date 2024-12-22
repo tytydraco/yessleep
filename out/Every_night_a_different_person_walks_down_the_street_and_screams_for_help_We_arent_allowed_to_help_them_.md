@@ -188,7 +188,6 @@ As I lay in the dark, staring at the ceiling, for some strange reason I thought 
 
 Eventually, I was able to drift off to sleep. 
 
-  
 The next few weeks were difficult. 
 
 I spent more and more time with my new neighbors. I came to find that they were right: I didn’t think there was a single person older than thirty in our entire building, but I saw them all the time leaving the one next door. 
@@ -205,9 +204,9 @@ Like, *I don’t want to die.* 
 
 Or even *I’m sorry*. 
 
-There were a lot of children. 
+There were a lot of children.
 
-One night, while I was half awake, an alarm went off - it wasn't like the one on our phones, it was blaring, only somewhat muffled by my window. My apartment glowed a flashing red from outside. I didn't even look. I was too scared of what I might see. 
+One night, while I was half awake, an alarm went off - it wasn't like the one on our phones, it was blaring, only somewhat muffled by my window. My apartment glowed a flashing red from outside. I didn't even look. I was too scared of what I might see.
 
 I just covered my head with my pillow and tried to fall back asleep.
 
@@ -220,8 +219,6 @@ She didn’t talk much about the rules. So I didn’t either. We didn’t talk a
 Right when I was beginning to feel comfortable was when it happened. 
 
 It started with a birthday cake. 
-
-
 
 “Happy birthday!” 
 
@@ -263,7 +260,7 @@ I didn’t get to finish my quip before she kissed me. 
 
 It was nice. 
 
-And then it wasn't. 
+And then it wasn't.
 
 “Hey,” Will called out to me, squeezing through a crowd of men wearing tattered leather jackets to get to me. “Arden! Where’s everybody else?” 
 
@@ -367,11 +364,10 @@ I didn’t understand. 
 
 As we sped away, I looked back… I couldn’t help it. I saw the flash of some sort of van in the blinding red light, pulling around the corner. Then nothing. 
 
-  
 That was a week or two ago. I don’t know. I’ve been having a hard time keeping track of time. 
 
 None of us have spoken much since that night. We tried the police, of course, but as you could assume, nothing came of it. I think whatever this is is far larger than we know. I don’t know if it’s some kind of experiment, or just a sick game, but I’m going to move back into my parents house next week, despite all their berating, and then figure out what to do from there. 
 
 I don’t know if that was really Shannon that we saw that night, or if it was something else, and I don’t know which is worse - all I know is that last night, I heard Will’s voice outside my window. Crying. Pleading for help. 
 
-I didn’t interfere. 
+I didn’t [interfere](https://www.reddit.com/r/nosleep/comments/1hd05yr/every_night_a_different_person_walked_down_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button). 

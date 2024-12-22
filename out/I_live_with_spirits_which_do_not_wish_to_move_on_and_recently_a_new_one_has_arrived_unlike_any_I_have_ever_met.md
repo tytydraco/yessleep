@@ -106,7 +106,7 @@ As I lied in the warmth of my large bed again, I could not sleep. My thoughts we
 
 When some die, sometimes they do not wish to move on to whatever is next. They cling to all that they can; despite having their destination be beyond death, they breathe life into things which should not have them, linger here in ways that they aren’t supposed to.
 
-Sometimes they cry, and become afraid and confused as they linger behind, aware that they must not remain, but too afraid to move on. But some others instead are glad, and feel great joy and even comfort in their states of stagnancy, there are many of these that I have known and know, they are the warmed of them all. They are filled with fear at the thought of losing their bliss in whatever lies beyond, and so often choose to linger behind as long as they wish.
+Sometimes they cry, and become afraid and confused as they linger behind, aware that they must not remain, but too afraid to move on. But some others instead are glad, and feel great joy and even comfort in their states of stagnancy, there are many of these that I have known and know, they are the warmest of them all. They are filled with fear at the thought of losing their bliss in whatever lies beyond, and so often choose to linger behind as long as they wish.
 
 ‘She’, as I have begun to just refer to her, I believe is meant to be a resident. One of the dead who stays in the manor until or if they move onto what lies next. No visitor stays here for so long, yet already since that encounter last week I have felt her chill at various points in the manor. I do not know if her appearing like that again frightens me because of the thought of the cold or if it excites me because of the thought of knowing what she wants.
 

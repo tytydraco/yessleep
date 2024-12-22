@@ -124,11 +124,11 @@ I had developed a habit of spending many tiring nights observing that torn board
 
 It was entertaining to observe from a distance, though I had learned well to not go near him. The Housekeeper had to save me once, the Fisherman did another day, and I managed to escape his actions myself the third time. I had learned my lesson after the third time.
 
-But as I watched the sun set from the warmth of that room, I started to feel her presence again. And I excited by it as I observed the corners of the room to see where she would appear, I stood and looked in a corner for a while to see if that would make her appear sitting on the bed again.
+But as I watched the sun set from the warmth of that room, I started to feel her presence again. And I was excited by it as I observed the corners of the room to see where she would appear, I even stood and looked in a corner for a while to see if that would make her appear sitting on the bed again.
 
 But nothing like that happened, I instead looked outside and saw her standing under a tree in the yard, close to the still fine fence. She glowed in the twilight, and she looked at me from there. She had chosen an inconvenient location.
 
-I dressed myself as I could for the winter evening, having learned well from that night, and head down the stairs and towards the manor’s door. The Fisherman was there on the porch still, he greeted me, and I returned his greeting out of necessity, but nothing more than that.
+I dressed myself as best as I could for the winter evening, having learned well from that night, and headed down the stairs and towards the manor’s door. The Fisherman was there on the porch still, he greeted me, and I returned his greeting out of necessity, but nothing more.
 
 I quickly went over to the tree under which she stood, my arms around me because of the cold. She looked at me as I approached, and her glow lit up the evening mist all around her, creating a dreamlike visage.
 
@@ -150,7 +150,7 @@ She appeared to think long and hard, it was as if she grew more human with every
 
 She gasped as I looked at her, she had never done that before either, and I saw genuine fear in her face then as the Burglar got through the breach. She faded way, her expression frozen like that. It was too late to run back inside, or hide.
 
-The Burglar looked at me, his mouth and eyes were all that weren’t covered in that block cloth. He grinned and sprinted towards with unnatural speed, his saw vanished and was replaced a pocketknife, less dangerous, but it would still hurt. I had to hold my ground.
+The Burglar looked at me, his mouth and eyes were all that weren’t covered in that block cloth. He grinned and sprinted towards me with unnatural speed, his saw vanished and was replaced by a pocketknife, less dangerous, but it would still hurt. I had to hold my ground.
 
 “Stop.”, I commanded with as much authority as I could, and did not move from where I stood. He did stop, but that smile did not vanish from his face.
 
