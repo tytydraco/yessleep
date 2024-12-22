@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hhj608/hiraeth_or_where_the_children_play_the_leech/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hhj608/hiraeth_or_where_the_children_play_the_leech/)/[Next](https://www.reddit.com/r/nosleep/comments/1hk8bwn/hiraeth_or_where_the_children_play_oh_dear/)
 
 
 The figures began to wave, indicating that they’d seen us just as well as we’d seen them, and I lowered the binoculars to catch the faces of the children. “They know we’re here.”
@@ -189,4 +189,4 @@ With that, the creature left us for the night, but sleep was a near impossibilit
 
 Gemma remained dejected that day, holding her eyes to the ground or the sky and muttered responses to whatever was spoken to her.
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hhj608/hiraeth_or_where_the_children_play_the_leech/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hhj608/hiraeth_or_where_the_children_play_the_leech/)/[Next](https://www.reddit.com/r/nosleep/comments/1hk8bwn/hiraeth_or_where_the_children_play_oh_dear/)
