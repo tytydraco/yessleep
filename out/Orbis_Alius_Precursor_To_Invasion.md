@@ -1,3 +1,5 @@
+ Please give feedback and thank you for your time!
+
 Vampire/alien/other reality
 
 Chapter 1: Bursting the Bubble
