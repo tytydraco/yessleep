@@ -28,9 +28,9 @@ That works 98% of the time. If it doesn’t I assume there’s still some work t
 
 I started to work for the Apothecary because of the promise that he made me. 
 
-“If you will work for me, take an oath of service to what is, and take my task upon you.
+“If you will work for me, take an oath of service to what is, and take my task upon you. 
 
-“In return, you will receive that which you need and want in the present moment continually, supposing that it will be for your long-term wellbeing according to the Flame of Wisdom. 
+"You will receive that which you need and want in the present moment continually, supposing that it will be for your long-term wellbeing according to the Flame of Wisdom. 
 
 “This is not forever, nor is it binding; You will serve me as long as you will it and you will be allowed to separate yourself from me when you wish it.
 
@@ -39,4 +39,3 @@ I started to work for the Apothecary because of the promise that he made me. 
 I have found it to be true. Since I started working for the apothecary, I haven’t lacked for anything I need. For example, my paycheck came in a day early once so I could pay rent on time. Or I woke up late and didn’t have time to grab breakfast once and a work buddy brought me a bagel. It’s subtle. Hot girls aren’t climbing into the back of my van to give me head every day but I guess that wouldn’t be for my long-term wellbeing according to the Flame of Wisdom. I‘m happy with it, and I think you will be, too, if you try it. 
 
 There is a lot more that the Apothecary has told me, like the secret hand sign that can bless other delivery drivers with the flame of wisdom, or the greater oaths that bring you greater promises and responsibilities, but I’ll save them for later. 
-
