@@ -1,3 +1,4 @@
+
 In the small town of Hollow Ridge, nestled at the edge of a dense forest, there was one rule every resident knew: never enter the woods. The trees, ancient and twisted, seemed to hum with an unnatural energy. The locals spoke in hushed tones about The Limb Taker, a creature that haunted the forest. Legend had it that anyone who ventured too far would return maimed—missing an arm, a leg, sometimes both. Worse, they would return with their minds shattered, babbling about monstrous figures lurking in the shadows.
 
 Lena had grown up hearing the warnings. Her parents, her friends, and even strangers who passed through spoke of the cursed woods with a mix of dread and reverence. The fear was palpable, and Lena couldn’t understand it. She was tired of the whispers, tired of hearing her classmates tell stories of The Limb Taker. She needed to know the truth.
