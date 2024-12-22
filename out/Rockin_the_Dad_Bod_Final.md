@@ -148,6 +148,6 @@ I remembered my conversation with Kevin at the party. Only hours ago:
 
 Pawn Promotion. I had been promoted. I was a …
 
-I looked at my arms – all eight of them. I was a Queen.
+I looked at my arms – all eight of them. I was a [Queen](https://www.anewkindofmonster.com/).
 
  
