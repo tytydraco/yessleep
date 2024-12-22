@@ -1,267 +1,236 @@
-[previously](https://www.reddit.com/r/nosleep/s/TWOz8vtIor) 
+[previously](https://www.reddit.com/r/nosleep/s/TG4biaz3Dv)
+
 
 [part one](https://www.reddit.com/r/nosleep/s/KM4OoJexKV)
 
-Hey everyone, sorry about the cliff hanger. There’s been a few… interesting developments. 
+I’m going to have my work cut out for me. Kylie here with another update on the crazy 911 call center in little old Greenbrier. 
 
-I’m going to start off where I left things last time. Andy trench, like I said it stank and was vomit inducing. 
+A few comments, please stop trying to find me. I’m not interested in dating anyone and you come across as really creepy. 
 
-Jordan gave me no time to react though, with an iron grip on my wrist he led me back to the call center. 
+I also don’t want to talk about Jordan, some of you have speculated that he is not dead and that might be true. Either way I don’t want to think about that day. 
 
-He didn’t let go at the front door, we marched right through the lobby, past the phone booths and to the bathrooms. 
+That being said my mama didn’t raise a quitter. I’m being cautious with my investigating as I don’t know the intentions of the people in charge or my new coworkers. But I will continue to unravel this shit show. 
 
-I winced at my reflection, I looked like a cosplayer for a horror movie. Only this wasn’t a movie, it was my life. 
+“Who knows what they’ve been signed up for?” I asked the five individuals in front of me. It was a cringe line but I’ve never been much of a public speaker. 
 
-I sat on the countertop and rested my head in my hands. I was so tired, this isn’t how I thought my night would go. 
+Krista held up a folder with a look of detachment, “we’ve been briefed. I think we can handle answering some phones”. She turned and walked to the nearest desk. 
 
-Jordan waited for the water to get warm before soaking a towel in the sink. I sat there, too numb to react as he washed Andy’s blood off of me. 
+Dale spoke up, “like she said toots, we’ve choked a few snakes so listening to the horn is a nothing”. I wasn’t entirely sure what he meant but apparently it was enough because he took the desk next Krista. 
 
-He even took the time to wash it out of my hair. I wasn’t out of it enough to change my shirt with him there, I went to the lobby for that. 
+Stephan raised his hand almost timidly, “ma’am our briefing said that we are to learn from the best. Am I to assume you are the best?” I shook my head, “no I’m not, I’m just the only one left”. 
 
-Then I sat on the floor. It was painful in the beginning, it was like the tears had to break their way out of me. Once the first one fell the rest came rushing after. My whole body convulsed with sobs, I cried until I couldn’t cry anymore. This job is so fucked. 
+Stephan nodded, “that’s good enough for me”. He shook my hand, his bear sized mitten enveloping mine. “I’ll be on observation”. 
 
-I put myself back together, I brushed my hair and grabbed a snack. My clothes were clean enough, the sticky feeling of blood covered skin was gone. It was time to get back to work. 
+Padric gave me a light hearted mock salute and followed Stephan over to where Krista and Dale were sitting. 
 
-Jordan was at his desk. Perfect. 
+Shang shook my hand as well, “I am sorry about my first impression. I promise I’m capable of doing the job, do you have any tips?” 
 
-I walked up and slammed both of my hands down on the cheap wood. I tried not to flinch as the impact sent a shock up my arms. “Ok Jordan, what’s with the book of names? And who are the Andy’s you’ve been killing?” 
+His eagerness reminded me of Allyson, hopefully things go better for Shang. 
 
-Jordan glanced up from the western he was reading, “it is a book with the names of people living within range of the radio station. The Andy’s are clearly clones, fungi or cyborgs”. 
+“Trust your gut and don’t assume anything”. Shang pressed his lips into a grimace, “that’s pretty vague but I’m sure we will catch on”. 
 
-He lifted the book again as if the conversation was over. I pulled the book down and glared at him, “what is the significance of the names?” Jordan pulled the book away from me, “they are the names, of people, within range of the radio station”. 
+With that out of the way I could start training. Krista and Dale would take the first shift but the whole crew was going to stay for a couple hours to get a feel for the job. 
 
-He leaned back in his chair as if moving the book a foot farther back would deter me. As soon as he tried to resume his reading I snatched the book away. 
+I could tell none of them were taking it seriously. I didn’t know their backgrounds but I doubted they were as prepared as they thought they were. 
 
-“You can have this back when you give me some satisfactory answers”. I crossed my arms smugly. Jordan leaned down and with a key he seemingly produced from thin air he unlocked one of the drawers of his desk. Finally, some progress! 
+We went over the basics, how the call lines worked, phone tracking, calling in codes to the PD and FD dispatch. 
 
-Jordan than pulled an exact copy of the book I had in my hand out of the drawer. With a hint of a smirk he leaned back and began reading again. 
+They all looked pretty bored and I couldn’t blame them, this part of the job was easy enough a trained monkey could do it. And if they were lucky it would stay that way. 
 
-I stormed around to the other side of the desk and plunged my hand into the still open drawer. Jordan grabbed my bicep, “DON’T!” I shouted catching both of us by surprise, but it worked. He let go of me, Jordan waved his hand as if to say “go ahead”.
+We fielded a call within the first hour, an elderly lady had fallen down and needed assistance. 
 
-He put his nose right back into that stupid western. I pulled the leather book of names and a folder out of the drawer. I stomped over to my desk and sat. 
+Krista was calm and professional with her and stayed in the line until help arrived. Just a simple call, Krista looked pissed off though. 
 
-I had looked at the book previously, while I suspected there was more to it than Jordan was letting on I was more curious about the folder. 
+Dale kept chatting away while eating pistachios, I thought maybe that was what had Krista worked up. 
 
-It was an ordinary off white folder like you would find in a filing cabinet. I glanced over at Jordan, he appeared to be paying me no mind. 
+With nothing else happening I sent Shang, Padric and Stephan away. They would be back in six hours for the night shift anyways. 
 
-Inside the folder was a number of envelopes, each with a name hand written across the front. 
+I sat where Jordan used to, the sleek black metal desk looked out of place. It felt surreal to be sitting there going over Krista’s report. 
 
-Unlike the ones in the book the names here meant something to me, they were the names of people I knew. People like Andy, Edwin, or “Nic”, Chuck, myself, what looked to be everyone at Greenbrier FD, PD and the local politicians. 
+Her hand writing was immaculate and she had gone into detail on everything. There was nothing to add so I filed it away. 
 
-The envelope on top was still crisp, it had “Allyson” freshly scrawled across it. 
+I pulled out a book and leaned back. 
 
-I opened it. The contents were confusing, there was a page with basic information. 
-Name: Allyson Studebaker 
-Age: unknown
-Origin: unknown
-Assessment: She calls herself Allyson Studebaker, claims to be nineteen years old. Stands at roughly five foot eleven, estimated weight of one hundred eighty pounds. Red hair, black eyes. Observation shows a lack of familiarity with normal objects and pop culture references. 
+I only got about two pages in before Krista cleared her throat loudly. “Is this all we do? Just sit here and wait?” 
 
-Continued observation needed to determine threat level. 
+I nodded, “pretty much, some days are busy and others are slow”.
 
-I looked up from the page, the envelope also contained more than a few photos of Allyson. They seemed strangely consensual, she appeared to be posing in all of them. 
+ Krista scoffed as if offended by the very thought, “this is bullshit, why are we even here?” 
 
-I couldn’t help but notice the envelope with my name on it. 
+I didn’t bother answering, it’s not like I had anything more than an educated guess. “Why pull a horses tail when oats will git you there?” 
 
-I jumped and nearly screamed when a hand grabbed my shoulder. I turned to see Jordan standing next to me, the way he could cross a room without making a sound was so creepy. 
+I don’t think Krista had anymore of an idea as to what Dale meant than I did. Ignoring both of them I went back to my book. Or at least that’s what I wanted them to think, in reality I kept a careful eye on them. 
 
-“You won’t find what you’re looking for in there” he said before pulling up a chair and sitting in it. “I wasn’t sure about you in the beginning, the way you took all the weird happenings in this place in stride was suspicious”. 
+The minutes turned to hours, Dale was softly snoring in his chair and Krista had an impressive house of cards built. I felt myself drifting off, I nearly flopped out of my chair when the phone rang. 
 
-“I get it though, you grew up here and weird stuff is just part of life”. He seemed to be lost in his own thoughts for a moment. 
+Krista’s hand shot out like a viper, she pressed the answer button. “Greenbrier 911 what is the nature of your emergency?” Her voice had that agonizing tone professional people use when trying to sound nice. 
 
-“I don’t think I can fully satisfied your curiosity but I believe you deserve to know as much as I do. Especially now that you are so deeply involved, just know that you can’t unlearn things. If you keep pursuing this path your life will change”. 
+I put on my headset and patched into the call. I listened as Krista calmly talked a lady through a car wreck. To her credit she did everything by the book. There was a lack of empathy though, it wasn’t anything in particular that she did. But the feeling was there. 
 
-It didn't sound like a threat, it sounded like a genuine warning. I had to think for a minute, if I let this go would my life calm down? Possibly, but I know myself well enough to know that I would never be ok with just hiding. I needed some closure, I needed the information Jordan had to offer. 
+After the call Krista turned in another highly detailed flawless report. I barely caught the report as Krista tossed it across my desk. 
 
-I nodded my head, “go on, I need to know”. Jordan sighed, “I shouldn’t have hoped for anything else. Grab a coffee for each of us, it’s going to be a long night”. 
+Seeing they had things under control I informed them I was going to get some sleep and to call me if anything weird happens. 
 
-Jordan’s humanlike behavior was an unexpected but welcome surprise. I was finally going to get some answers. 
+I could tell they both felt like the job was the easiest thing in the world and I hoped it would be. 
 
-The coffee pot in the lobby was already full, grabbing two mugs I filled them and placed them in the microwave. 
+The ringing of my alarm pulled me from the incomprehensible dream that had slid its way into my brain. I shuddered, I couldn’t remember any details but it had been a dark, viscous and slick thought. 
 
-As I watched the timer count down something caught my attention. I walked closer to the sink, it sounded like air was coming up from the drain. A rank stench hit my nose. 
+I needed a shower to wash it away. I stood under the warm water until it turned cold. My skin tightened under the frigid liquid yet I hesitated to move away. Doing so would signify the start of a new day.  A new shift at the call center. 
 
-I recoiled just as a warm burp of disgusting air oozed out of the drain. The smell filled the lobby almost instantly. I was so busy repressing a gag I almost missed the whispering. 
+I threw on a hoodie and my fat girl jeans, I didn’t care about appearances. I had more people to train today and since yesterday had been uneventful I was expecting shit to hit the fan today. 
 
-I gagged hard, hot vomit was trying to force it’s way out. I stubbornly held it in, the whispering grew louder. It held a viscous and feral tone. I could physically feel the hunger in the voice as it gurgled up from the drain. 
+When I arrived Dale and Krista had already left. Shang’s voice echoed loudly from within the room, what ever he said caused Stephan and Padric to laugh loudly. 
 
-“You took from us, now we will take you”. My hands shook violently, my eyes felt as if they were going to come out of my head. The whole room was thick with that putrid air, the scent was thick enough to tint the lights red. 
+After taking a steady breath I walked in. The noise died almost instantly, the three of them stood up a little straighter. 
 
-I was on the ground, I had to get up. I had to get out, I clawed my way across the concrete floor. The coolness of the ground beneath me brought a small amount of clarity to my brain. 
+“Ma’am, we are ready to receive your orders”. Stephan stood nearly at attention as he spoke. 
 
-I found a wall and pulled myself up. Everything was spinning, I lost the battle with my stomach and spewed my lunch across the floor. 
+Once again while Shang and Padric wore suits Stephan was rocking a “vote for Pedro” T-shirt and jeans. “At ease” I said with a smile. “I don’t have any orders, you know the basics. Just let me know if you have any questions or need help”. 
 
-There was a bang at the door, the one leading outside. Another bang, something was trying to get in. I tried to cry out for Jordan, all I achieved was choking on the puke still in my mouth. 
+Shang and Padric were sharing some sort of silent conversation. By elbowing Shang with a decent amount of force Padric got him to speak. 
 
-Despite my body feeling weak and my head spinning I managed to make a run for the door leading to the call center. I hit the steel hard, pain shot through my wrist. 
+“So I I have a question, why are we here? Where is everyone else? Like shouldn’t you be able to just hire people from town? And even if you can’t why would someone pay us to be here?” 
 
-The door opened and I fell through the opening. A hand grabbed the back of my shirt and lifted me away from the doorway. 
+I crossed my arms and sat on my desk facing the three men. “That is a lot more than one question”. 
 
-Jordan was locking the doors as something on the other side was bashing against them. He managed to slip the locks into place. I breathed a sigh of relief, those new doors were quite robust. 
+Shang looked embarrassed, “sorry I guess there’s just a lot on my mind”. 
 
-With the air free from that horrid odor I found myself feeling a lot better almost instantly. I got to my feet and followed Jordan to his office, he turned the monitor enough for me to be able to see it. 
+“I tell you what” I said to all three of them, “I’ll answer one question of yours for each question of mine you answer, deal?” 
 
-The lobby was filled with a repulsive writhing mass of sweat covered flesh. A few looked like Andy, but most were corrupted copies of a copy. Limbs were the wrong length, some had too many fingers while others had too few. 
+The three of them shared a look, Stephan shrugged his oversized shoulders nonchalantly. Padric thought about it the longest before finally nodding in agreement. 
 
-I didn’t hesitate for a second, I pressed the S.O.S button. Jordan removed his shotgun from where it had been concealed. He placed two shells on his desk while loading the rest into the firearm. 
+“Ok” agreed Shang, “first question, what happened to the previous employees?” 
 
-He noticed my questioning look, “it’s just in case there’s no other escape. Some things are worse than death”. I was repulsed at the very thought but Jordan was already on the move.
+Fuck 
 
-“Check the bathroom, I’m going to barricade the door”. I nodded then rushed across the room. I opened the bathroom door to find the window smashed. A head protruded into the room surrounded by a dozen arms each jostling for room. 
+I was really hoping that wouldn’t come up. “I think they died. I saw one… well I saw him take a shotgun to the face but I’m not sure if that counts”. 
 
-The head was lifeless, it’s eyes bulging and tongue rolling about freely. These things had crushed one of their own in an attempt to gain entry, it was clear nothing short of death would stop them. 
+Shang’s brow furrowed in confusion. “Ok I think that needs more explaining”. “He attacked us, and the previous manager stopped him”. I said. 
 
-The windows small size was our saving grace, the concrete walls were robust enough that even these ghouls couldn’t break though. 
+They didn’t look satisfied with my answer, I wasn’t sure how much I should tell them. The last thing I needed was for them to think I was crazy. 
 
-The same couldn’t be said for the main door, I jerked around as Jordan’s gun boomed. A corner of the main door had come free of the frame and was bowing in under the weight of the Andy’s. 
+“That was your question so now it’s my turn, where did you guys come from?” “Fair enough” said Stephan, “myself, Krista and Dale were recruited from the Marine Corp. Padric was a Ranger flunky and C-man Shang was in the Navy. We were approached either when we were looking to re-up or for some of us, when we found ourselves in trouble. They offered really good money so here we are”. 
 
-Jordan shot again, and then again. Each time he fired there would be a brief moment where the door would nearly return to it’s place. Only to be crashed into once again, it was a losing battle. The gap was growing with each moment. 
+It looked like Shang was about to ask another question but Padric cut him off, “my turn, like Stephan said, we’re all from differing backgrounds of a similar category. So it’s a little weird that someone would pay us to come here and answer phones. Now that you mention the previous employees all dying or otherwise disappearing it makes a little more sense. So my question is, what’s wrong with this place?” 
 
-The cacophony of gunshots left my ears ringing. There was a look of desperation on Jordan’s face, he was scared. 
+I laughed, probably not the best reaction but it just popped out. 
 
-It was a sobering realization, through all the weird shit we had seen Jordan had never looked the last bit afraid. 
+“Sorry, it’s really not funny. It’s just, well I don’t know what’s wrong. Growing up here gave me a certain disposition towards unusual things. But lately everything has escalated. Here’s what I can tell you, the call center must stay operational at all costs. And never take things for granted”. 
 
-The gun went off three more times, Jordan looked at the empty chamber then up to me. “Grab those shells off my desk”
+As if to emphasize my point the phone rang, Stephan leaned over and hit the green button, “yo Greenbrier 911 how may I be of assistance sir or ma’am?” 
 
-I did as he asked, Jordan had his back against the door in an attempt to brace it. He loaded our remaining shots, “Kylie”. He seemed to struggle with finding the right words, “I’m sorry, I won’t let them take me back. I’m sorry that there isn’t more I can do for you, I won’t make your decision for you but I suggest you follow my lead”. 
+ He winked at me as he talked. The caller replied and Stephan’s grin faltered, leaning over I pressed the speaker phone button allowing all of us to listen in. 
 
- “Jordan the police are on their way, we just have to hold the door. We’ll be ok”. 
+“Raccoons are here again and I’ll be damned if they aren’t looking for a fight!” The voice was that of an angry male. Stephan sat up a straighter, “hey now let’s slow down mister. You say raccoons are in your house? Have tried shooing them out the door?” 
 
-He had a tired smile on his face, “for your sake I hope so. But I won’t risk it”. 
+I face palmed, everyone knows you don’t engage with Greenbrier trash pandas unless you want a very intense interaction.
 
-Jordan placed his chin over the barrel of the shotgun, “it’s ok to close your eyes Kylie”. 
+ The voice yelled back, “the big one already took my knife block, I’m not going anywhere until I know they’re gone!” 
 
-The realization of what he planned on doing hit me, I lunged forward. “Jordan don’t!” 
+I cut in, “sir what is your address, we will get animal control out there as soon as possible”. 
 
-He pulled the trigger, a loud click rang out. My heart nearly stopped, the gun hadn’t fired. Annoyed Jordan inspected the shotgun, he ejected the shell and chambered the next one. 
+“1132 Crustacean Court, tell them the bastards are armed”. 
 
-While he did so he leaned forward, it was only for a moment. Jordan instantly realized his mistake, but it was too late. The door was forced open enough for three arms to reach into the room. 
+“Yes sir, I’ll will. Until they arrive please stay in a safe location”. I turned speaker phone off, “Stephan, stay on the line with him and get any important info the you can”. 
 
-They grabbed Jordan, dirty pink fingers resembling pig flesh dug into Jordan. He was lifted from the ground, the shotgun clattered to the floor. Jordan elbowed and kicked but the arms were too strong. 
+I typed out a report to Greenbrier PD, “the rest of you watch and learn. Once we have an address and a threat level we can send in police officers. They will want as much info as possible so always stay on the line with the caller”.
 
-They lifted him off his feet, before I could react his head disappeared through the hole. He screamed out, “shoot Kylie! Shoot!”
+Adrian was dispatching, he confirmed they had received the message and had a unit on the way. 
 
-I was frozen, the gun lay just a few feet away yet I couldn’t grab it. Jordan’s desperation increased as his shoulders wedged against the door frame. I reached forward to grab his leg, to try and pull him back. But it was too late. With a wet crack the rest of him conformed to the hole and disappeared. 
+While I double checked the callers address with the pinged location Padric asked a question I knew was coming. “What’s the big deal? Is there a rabies outbreak in the area?” 
 
-The door buckled wildly as the bodies on the other side renewed their attack. I backed away, I didn’t want to risk getting close enough to grab the gun. Not now that the gap was large enough for those things to get their heads through. 
+I shook my head, “no. Let’s just say the raccoons in this area have been a constant issue for awhile. They can be very aggressive when provoked, you’ll understand when you cross paths with one”. 
 
-In a terrifying spectacle of contortion one of the Andy’s started to squeeze into the room. I ran for the bathroom, my last stand. Careful to avoid the arm filled window I slammed the heavy metal door shut. I didn’t know how long it would hold, I just prayed it would be long enough. 
+There was a police scanner on my desk, plugging it in and waited for it to power up. It was a little different than our previous model but I managed to get it going before the police arrived at the address. 
 
-Soon I could hear them in the other room, the shattering of glass and slapping of bare feet on concrete rang out. 
+Officer one: “Greenbrier PD anyone here?” 
 
-I wished they made more noise, even if it was zombie like groans. Anything would be better then the silent way they attacked, the only sound being their bodies against the surrounding environment. 
+A fist banging on the front door could be heard. 
 
-Just as I feared, they soon began to assault the bathroom door. It was thick and well built but I knew it wouldn’t hold forever. I sat with my back to it, I faced the open window and the lifeless head still trapped within the frame. I could feel the door bend and flex. It wouldn’t be long now, I just hoped it wouldn’t hurt too badly. 
+Officer one: “I am entering the house. Please remain calm”. 
+Officer two: “yo French they got into the wine cooler”.
+ Officer one: “alright, hang tight. I’m gonna grab the twelve gauge”.
 
-A rapid succession of pops from outside caught my attention. More pops followed by shouts, someone was out there! 
+Foot steps raced out the door. The caller yelled out from the bathroom, “hey! Get back here! You are required by law to protect me!” 
 
-I screamed out “I’m in here! Help me! Please!” They no longer beat against the door, something else had caught their attention. I screamed as a bullet pierced the door just inches above my head. 
+Officer two: “shut up man, we’re not looking to get torn up. Just chill while we search the house”. 
 
-It sounded like a battlefield, then as if a switch had been flipped, silence. 
+The first officer returned and we listened as they searched the house room by room. Finally once it was all clear they got a report from the homeowner. Nearly three grand in missing items was reported. 
 
-I nearly jumped out of my skin when someone knocked on the door. “Hey you still alive in there?” I knew that voice! 
+Stephan filled out his report. Much like Krista it was professional and crisp. I let them goof around for the remainder of their shift. I knew the calm wouldn’t last, it never does. 
 
-I ripped open the door and rushed out, Dean embraced me tightly, “it’s good to see you Kay, I was worried. Are you alone?” 
 
-I didn’t have to answer, one look at my face was all Dean needed. “I’m sorry Kay, let’s get you out of here”. Another officer rushed in, “yo we got company! And a lot of it”. 
+It almost did though, things were remarkably quiet for nearly a week. I was starting to feel like maybe Greenbrier was back to its normal self. 
 
-Dean took charge, “alright Tejano, I’m going to clear a path to the car with the M240, I want you to follow right behind me with Kylie”. 
+Then Krista quit. It was another slow day. A few calls about things like a stranger in the woods, a serial dingdong ditcher and someone pied someone else’s car. Imagine egging but with cherry pie, a terrible waste of pie but not something interesting enough to keep Krista engaged. 
 
-Tejano looked uncertain, “you sure you can walk while shooting that?” Dean shouldered the big gun, “watch and see”. Dean hit the lobby at a brisk pace, I was right behind him with Tejano taking up the rear. 
+Krista had been working with Stephan and Padric. At the end of her shift she came up to my desk, “I want you to know I won’t be returning tomorrow. This isn’t what I signed up for”. 
 
-We made it out of the building before the horde broke the treeline. Dean opened fire, I saw bodies, these ones even more disfigured than the last wave start to fall.
+Padric looked over from his desk, “you sure about that? We got a contract”. Krista flipped him off, “mind your own business. So, Kylie I’m heading out of town. This place is a little too chill for me”. 
 
-Dean’s pace slowed as he fired, behind me Tejano opened fire as well. Between both of them they managed to keep the clones at bay until we reached the cruiser.
+I thanked her for sticking it out as long as she did but I think she almost took it as an insult? Anyways I wasn’t sad to see her leave, she was stiff and really brought the mood down. 
 
-Wasting no time the three of us climbed into the car. Tejano punched the gas the instant he was inside. Dean hung out the window hosing down our pursuers. 
+A few hours later Shang and Dale were settled into their routines. I was finishing my masterfully crafted doodle when the phone rang, Shang jumped at the opportunity. 
 
-The car hit a particularly large bump, Dean dropped his gun and likely would have fallen out of the car if I hadn’t grabbed his legs. 
+“Heeeeeello, Greenbrier 911 how…” The caller cut him off so loudly I could hear her without tapping into Shang’s line. “Shut up Conner. I know who I called”. 
 
-“Thanks Kay” said Dean once back inside. Tejano drove the cruiser like it was a rally car, we reached main street in record time. 
+I put my own headset on as Shang replied, “hey Krista, what’s up?” 
 
-Nothing followed us out of the woods, two more cruisers were on standby at the edge of town just to be safe. 
+“A deer ran into the road as I was leaving town. My car needs a tow but I can’t get a call out to anyone but 911”. 
 
-I got out of the car. Dean and Tejano did the same, I knew they had questions but I didn’t have any answers. 
+“Weird, I can probably send a tow from here. Where are you at?” 
 
-Everyone’s attention was diverted from me to the sound of rotors over head. A sleek looking helicopter zipped past town at a questionably low altitude. 
+Krista was quiet for a bit, “Conner? If the deer was pregnant could the faun still be alive?” Shang scrunched his face in confusion, “yeah probably for a little bit. Why?” 
 
-Tejano whistled in admiration, “yo Dean was that what I think it was?” Dean nodded, “looked like an AH-64 to me, notice the lack of decals and tail number? That bad bitch was totally blacked out”. 
+Call it premonition or just plain old experience but something was wrong, I could feel it. My body was tense as I waited for Krista to reply. 
 
-I flinched at the distant sound of explosions, the booms were soon followed by something that sounded like chainsaw but was much too loud to be one. 
+“It’s, it’s moving. Not the deer, something inside of it. I can see it under the skin”. A crack rang out, Krista yelled in surprise, “Shit! It’s breaking it’s way out, it literally just wrecked the rib cage and I can see it pushing against the skin. It doesn’t have hooves, why doesn’t it have hooves?!” Krista’s voice rose in panic.
 
-Dean led me back to his place, “you can stay here as long as you want”. I thanked him, his house was very male centric. Plus I wanted to sleep in my own bed, I told Dean as much. I just wanted to go home. 
+I started tracing her phone immediately. Shang yelled out, “Krista what’s going on?” 
 
-He didn't like the idea but drove me there anyways. “You be careful ok? I’ll be on patrol for the next few hours but then I can spend the night if you want. What ever you need to feel safe”. 
+The trace wasn’t working, I was getting locations all over the place. 
 
-He was sweet, but I needed my independence back. I needed to know I could move on from everything that happened and still be myself. “Thanks Dean, you’re the best. And thanks again for saving me, I don’t know what I would have done if you hadn’t arrived when you did”. That was a lie, I know I would have died a painful death like Jordan had.
+Dale was watching us, I couldn’t put a finger on it but something was off about him. 
 
- Dean reluctantly left, he made sure I had my hand gun close by and loaded. We compromised on keeping it chambered but leaving the hammer down. 
+More horrified screams filled the room, “please! No, no, no! Fuck off!” Shang called out, “Krista where are you? What’s going on?” 
 
-Hours ticked by, I hadn’t moved from the chair I sat in after Dean left. My brain was a mess of memories, each one assaulting the others in an attempt to be in the front. 
+A gun shot rang out, followed shortly by two more. The snapping of branches and Krista’s heavy breathing was still audible. Shang was calling out to her, then he stopped. 
 
-Sometime after the sun had set I heard a knock at the front door. Call it paranoia but pulled the hammer on my pistol back. Slowly I made my way down the stairs and across the kitchen. 
+Krista cried out in pain, she whimpered quietly. Her last gasp was cut off by a wet squelching sound. Shang looked at me, his face pale and eyes wide. With a trembling finger he turned up the volume, I could now hear what before only he could. 
 
-I peaked through the curtains, two men in suits stood on my porch. Still wary I unlocked the door and opened it. The lead man flashed a badge, “good evening ma’am, we have reason to believe this is the residence of Kylie [REMOVED]. May we come in?” 
+Slurping of fluids and the smacking of lips filled the room. 
 
-I almost said yes, I don’t know why but I felt compelled to do as they asked. Coming to my senses I shook my head and went to close the door. The nearest man blocked the door from closing, “ma’am I would reconsider. There are a few bodies that can be linked to you, or they can be handled discreetly. The choice is yours”. 
+I nearly jumped out of my skin when Dale explosively slapped his desk. Jumping to his feet Dale pulled a handgun from his desk and slid it into a hidden waistband holster. 
 
-I let them in. I offered them something to drink but they both refused. They each flashed a badge too fast for me to see much of anything, “I’m agent Planck and this is my partner agent Stark, we understand you are under a certain amount of stress but we must ask something of you”. 
+“When the molasses gets thick you best turn up the heat”. My computer dinged, Krista’s phone had called us from a side road. She wasn’t anywhere near the road out of town. Dale was out the door in a flash, a minute later I heard the engine of his Tahoe roaring into the distance. 
 
-I felt like the use of such obvious fake names was a bit insulting but I let “Planck” continue his speech. 
+I sent the police a message, ongoing homicide of unusual origin, and the location. 
 
-“The call center cannot be unmanned. You are the most experienced operator in this whole county. We need you to return to work”. 
+Before we had time to process what just happened the phone rang. “Shang” I called out, “the phone”. He looked at me in disbelief, “what the about Krista?” 
 
-I started to laugh, it wasn’t joyful or voluntary. The sheer absurdity of Planck’s request was beyond belief. 
+“The police are on their way, now we have a job to do”. I nearly gagged at the realization that I sounded just like Jordan right then. 
 
-“No. I’ve done enough”.
+Conner Shang might have some things in his past that the others looked down on him for but to his credit, he answered the phone with a polite and professional tone. 
 
- The agents glanced at each other, Planck spoke again, “I’m afraid we were not asking. You have been promoted to manager, you have been provided five people. They will stay on until you find their replacements”. 
+“Greenbrier 911 how may I help you?” The lady caller answered, “I’m sorry to be a bother but those posters do say to call if we find something unusual”. Shang asked, “and what kind of unusual are we talking about ma’am?” 
 
-I shook my head vigorously, “you’re not hearing me. I’m not going back, I quit. Throw me in jail for all I care, it would be better than entering that hell hole again”. 
+“Well it’s just that my lawn was soft this morning, and I know that doesn’t sound unusual but it wasn’t soft yesterday. I told my husband and he decided to check it out. Sure enough Edgar found that his beloved grass had a problem. He thought maybe a pipe had broken so went to the shed and grabbed a shovel”. 
 
-Agent Stark chuckled, “ma’am that place is far from hell. Listen carefully, we are going to take you back to the call center. You are going to behave and do your job. If you attempt to flee we will find you and you will beg us to let you escape to hell”. 
+The old lady sighed, “well he had barely punctured the soil when the ground rumbled. A slight chasm opened up under Edgar. The walls of it were pink and organic, Edgar always paid so much attention to the yard. I don’t know how he could have missed something like this. Anyways I really do need to be going, the roots quieted Edgar down nicely. He can finally spend the rest of his life with that damn lawn”. 
 
-Planck took over, “it’s pretty simple, you can come along and get a nice raise along with your promotion. Or you can be difficult and kick the goad the entire way. The choice is yours”. 
+The line clicked, Shang stared at me blankly. I thought maybe he had broken mentally but he finally spoke. “Kylie, what the hell is wrong with this place?”
 
-My shoulders slumped, “can I pack a bag?” Planck nodded. Resigned to my fate I went upstairs and packed an over night bag. 
 
-When I was done the agents led me outside. Two black Tahoe’s were parked in front of my house. Planck handed me a key ring with a Chevy fob on it. “The back one is yours, consider it a sign on bonus. You’ll find good behavior can be very rewarding”.
+Shang had asked a very difficult question, one I had blown off the day he asked it. But you know what? I wasn’t going to be Jordan, I wasn’t going to hide things and let people live in the dark. 
 
-I followed the agents to the call center, when we pulled up I couldn’t believe what I was seeing. It had been roughly six hours since the attack.
+Krista’s encounter was three days ago. She was still missing, no sign of her or her car. Absolutely nothing, agent Planck stopped by the day after and told me Krista had been reassigned somewhere else at her request. And that I would receive someone new if I couldn’t source another employee locally. 
 
-The fence was brand new, it was taller, and black. It now had coils of wire on the top. A heavy gate opened for us as we drove up. 
+His story smelled like bullshit, and not the fresh warmed by the sun kind. Rather more like the aged in the bottom of a lagoon for two years kind. 
 
-The building had been painted, I could smell the fresh lacquer curing as we walked up. The front doors had been replaced with what looked like blast doors. The inside of the lobby was clean, painted and had all new appliances. 
+Oh and I think who ever pays Planck and Stark has someone renting across the street from me. The previous tenants have been gone awhile, I haven’t seen the new tenants but there’s a lot of movement behind the blinds. 
 
-Inside the call center was more of the same, everything was new down to the toilets. I barely recognized the place. They had installed carpet and proper lighting giving the room an almost comfortable feel. 
+That would solve the mystery as to how it got fixed up so fast. Anything is possible with enough money. 
 
-Except I knew why everything had been replaced. The walls were stained with horror so deep no amount of paint could hide it all.
+I’ve gathered everything that I know into a folder. I’m going to do my best to explain to Shang, Padric, Dale and Stephen what’s been happening. I know they’ll have a lot of questions so before I do so I need check something out. 
 
-I looked around, my map was gone. Years of data erased in a moment, I wondered if it had been destroyed or confiscated. Jordan’s desk with all its secrets had been replaced as well. The place was sanitized of all its history.
-
-I instinctively flinched at the sound of the doors behind me opening. In walked what I assumed must be the five promised workers. 
-
-Krista was first in, she wore a perfectly pressed grey suit and had her hair pulled into a painfully tight ponytail. She was curt and to the point with her introduction. 
-
-Padric had a little more personality, luckily he wasn’t insulted when I referred to him as Patrick the first couple times. Like Krista he wore a suit but his was mostly black. 
-
-Stephan stood out the most, due to his attire as well as his size. He strode into the room narrowly avoiding knocking his head on the door frame. He wore blue jeans and a simple white T-shirt that looked as if it was painted onto his steroid enhanced tribal tattoo covered torso. 
-
-Dale was by far the oldest, he had a quiet voice with a hint of an accent to it. He wore a suit as well but no tie and it fit loosely, Dale looked the most at ease of the four. 
-
-Planck looked at his watch with annoyance, “where is agent Shang?” No one knew. 
-
-Planck and Stark looked ready to leave but I had a feeling they couldn’t until everything was squared away. Ten minutes later we heard footsteps running through the lobby. 
-
-A younger guy rushed into the room, he was slightly out of breath. “Sorry I’m late, GPS took me all over the place. I had to pull over and ask some random house for directions”.
-
- Planck ignored his excuse, “this is the final member of your team, Conner Shang. 22 years old, graduated bottom of his class and clearly unable to follow written directions”. 
-
-Without another Planck turned and left. Stark handed me a folder, “everything you need is in there. Don’t call unless it’s an emergency or else we’ll make it one”. 
-
-I stuck my tongue out at Stark’s  back as he left the room. Too late I realized the five people still in the room likely reported to Planck and Stark or their mutual boss. 
-
-I glanced at the thick stack of papers in the folder than up to the waiting group of strangers. 
-
-I cleared my throat, “so… who knows what they’ve been signed up for?” 
-
-[Next](https://www.reddit.com/r/nosleep/s/0DiEVwrh8h)
+I need to get into the call center basement. 
