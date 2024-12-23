@@ -1,29 +1,42 @@
-Hi everyone,
 
-&#x200B;
+July 24, 2008. It’s been years. I’m 90 years old, but it still haunts me to this day. After 30 or, I don’t know, 50 years, the cabin accident. The monster still haunts me, but I see him.
 
-I have some disturbing news to share, unfortunately. Yesterday, Douglas was found dead in his home by his wife, who had just come back from a business trip. He had been alone in his house for a number of days now.
+I was exploring the mountains of Greece, lost in the snow. The storm came too fast, and I was freezing to death. Then I saw it—the cabin, barely visible through the blizzard. I stumbled inside, too exhausted to care about what might be lurking there.
 
-The police have put tape around his house, and no one is allowed to see his body. I'm sure you have all heard the rumors, but I am here to clear up some things. I was at a bar with Douglas out late the night before he died. He seemed a bit... off. His eyes showed that he wasn't really here; his mind was somewhere else. When I tried to ask him what was wrong, he just shrugged and said he hadn't been getting good sleep. I tried to ask him further questions but he wouldn't let me push it. He was non-responsive like this for most of the night. He refused to drink a single drop of alcohol, noting that beer made him sleepy and he "couldn't afford to sleep again."
+The air was thick, heavy with something ancient. As I moved closer to the fire pit, I saw it. In the far corner of the room stood a creature—tall, skeletal, with eyes glowing like coals. Its skin was gray, stretched tight over its bones. It didn’t have a face, just a mass of shadows.
 
-When it was around 1:30 AM, we started the walk home. When we came to where we normally parted ways, he just stopped. I looked back and asked him what was wrong, but he just looked down at the ground. When I walked closer and questioned him again, he grabbed both my shoulders and looked up at me with bloodshot eyes. Crazed eyes. I'll never forget what he said that night: "It watches me, Daniel. It watches me as I sleep. I've seen it. It just stands and stares with this smile on its face."
+I froze, my heart pounding. It began to move toward me, its limbs creaking like branches in the wind. I couldn’t move, couldn’t breathe. It was pulling me in, as if it was meant to take me.
 
-"Woah, woah, woah..." I told him. "Slow down."
+Then the sunlight broke through the cabin’s window, and the creature recoiled. The light seemed to burn it, warping its form. It hissed and disappeared into the shadows, like smoke fading with the dawn.
 
-"Daniel... I think it's going to take me away. It wants me, Daniel," he said, his voice becoming more and more crazed.
+I ran. I don’t even remember how, but I ran—out of the cabin, through the snow, straight to a small convenience store in a nearby village. I slammed the door behind me, my chest heaving. I don’t know how I survived that night, but I’ll never forget what I saw.
 
-I tried to calm him but he wouldn't listen. He started begging. "Daniel, please... I need help. It's going to take me."
+The monster is still out there, waiting for the next person to wander into its trap.
 
-So I walked him home, determined to help. I walked into his bedroom, and it looked viscerally normal. I opened the closet and checked everywhere with him. "See? No monsters here," I said to him, patronizingly, like I was talking to a child. I regret not checking twice.
+After I got in the convenience store, I slammed the door behind me, my breath coming in short gasps. The small shop smelled like old wood and stale coffee. The man behind the counter looked up from his magazine. He paused, his eyes scanning me, and then he asked, "Are you okay?"
 
-He bid me farewell, but I could still sense a deep fear in him. He closed the front door, and I walked to the street. For a second, I wondered if I should stay with him for the night. I reassured myself that he'd be fine and it was just his imagination. That was one of the biggest mistakes of my life.
+For a second, I thought he might think I was a drug addict, the way I must’ve looked—wild-eyed, shaking, covered in snow. But I didn’t care. I was still shaking from what I had seen, the image of that monster burned into my mind.
 
-This morning, I woke up, and I had the urge to check on Douglas. So, I walked over to his house and I saw three police cars outside and yellow tape around his house. At the moment, they're ruling it a suicide, but an autopsy hasn't been completed yet. 
+"I... I just came from the cabin," I said, my voice hoarse. "There’s something there, something terrible."
 
-This may be controversial, but I think the cops are wrong. There was something there. Something in Douglas's house. Something that killed him. So please, I urge you all to keep yourselves safe and stay on the lookout for anything suspicious.
+The man raised an eyebrow, as if he didn’t believe me, but I could see the hesitation in his eyes. So, I told him everything. The storm, the cold, the cabin in the distance. The shopkeeper’s warning. And then, when I finally stepped inside, how I saw it—the creature in the corner of the room, the way it moved toward me, its eyes glowing, its presence choking the air around me. I told him about the light breaking through the window and how the monster had disappeared. I left out nothing.
 
-&#x200B;
+By the time I finished, the man was silent. He stood still, his face pale. His hands trembled slightly as he reached for the counter. For a moment, I thought he might dismiss me as insane. But then he spoke, his voice low, almost a whisper.
 
-Thank you,
+"You’re not the first to see it," he said, his gaze distant. "People disappear around that cabin, year after year. They... they say it’s not just a monster. It’s something older, something that feeds off the darkness."
 
-Daniel
+His words hit me like a wave, and I knew he wasn’t just humoring me. He was scared, like he’d seen it too—like he knew the truth.
+
+And in that moment, I realized something terrifying: the creature wasn’t just something that lived in the cabin. It was part of the mountain, part of the land. And no matter how many years passed, it would always be waiting, lurking in the shadows, ready to claim anyone foolish enough to wander too close.
+
+The man stared at me, and for the first time since I stepped into the store, I felt like I wasn’t alone. But I also knew one thing: I had to leave the mountain. And I had to do it before it found me again.
+
+I don’t know what to do. The light doesn’t help anymore. The city’s noise doesn’t drown it out. It’s getting closer. And the worst part? I think it’s been following me all these years.
+
+I have done everything. I went to psychologists, hoping they could help me make sense of it, to help me forget. I take Xanax to relax, anything I can to calm the relentless fear. I’ve tried every treatment, every medication—P.O.S., whatever they told me would work. But it doesn’t work anymore.
+
+Even dementia, I thought, would erase this memory. I prayed for it, hoped for it. But no, dementia has erased everything. The faces, the names, the years, the moments. It’s taken so much. But it hasn’t taken that night. It hasn’t taken him.
+
+I remember the cabin. I remember the creature. I remember its eyes, its breath. I remember the cold, the dark, the silence. And I don’t know who I am anymore. I’ve forgotten everything else—except that.
+
+I wake up in the middle of the night, gasping for air, and I know. I know he’s still out there, somewhere. I hear the scratching at the walls, the whispers in the corners of my mind. But most of all, I know—he knows where I am. And this time, there won’t be a light to save me.
