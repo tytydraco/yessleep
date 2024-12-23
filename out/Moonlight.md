@@ -1,13 +1,27 @@
-I have lived in a small hunting town for as long as I can remember. Growing up, my father always took me out hunting, and we really bonded over it. My favorite trips we used to take were at night, where we would hide in the bushes deep in the woods, but the moon always found a way to creep through the branches and find us. Even now, after my father’s passing, the moonlight has been beautiful to me, and I still go hunting in the exact bushes we always went to together. 
+The first night I met Him, it was His breathing that caught my attention. The sound was raspy and labored, yet wet, as though He was breathing through a punctured lung. There was a distinct gurgling noise that reminded me of my infant niece. I remember the last time I held her. She looked up at me with her bright, curious eyes and made a happy giggling sound that sounded like several bubbles popping in her throat. It’s fuzzy after that, most likely due to the concussion.
 
-Eventually, after my mother passed away as well, I had to move and find my own place. I found this beautiful cottage deep in the woods not too far from where I grew up. I always have loved how the moon casts an amazing glow on my backyard. It isn’t much, but it’s enough for me to see all of the nocturnal animals come out for the night. Something about the moonlight has always made me feel at peace, has helped me sleep at night.
+Through the crack in my curtains, the dull glow of the moon reflected off His eyes, forcing them to look as if they were giving off their own light source. 
 
-A few nights ago, I began noticing something rather peculiar in my backyard. It was a lone deer, that just stands there and doesn’t move. Its antlers are all bent and awkward, but I can’t see any other features. Its silhouette just stands there, motionless. While it is a little strange, the real kicker is that it seems to be getting closer to my back porch every single night. I never thought anything of it, just a strange deer with strange behavior. 
+I squeezed my eyes shut in the hopes that He would go away, that I might wake up to the brighter light of the morning sun gliding across my bed. Another body warm and real next to mine. 
 
-Eventually however, it started to gradually increase how close it was getting to my back porch. It was still completely motionless, just staring into the nothingness of the night. I did begin to notice the that the moonlight refracted off of its antlers in a very strange way…almost like the antlers were made of some kind of aluminum. I assumed it was the way I was looking at it strange or it was the angle, but a part of me was thinking the antlers were fake.
+No such thing happened. There was a sound, barely audible but easily identifiable. The shuffling of fabric, and the soft creak of a floor board. They broke through the silence of the night paired with the sounds of my own frenzied panting, each sound layered on top of each other in a haunting triad. 
 
-The next day is what changed everything for me. I looked outside, and it was on my back porch. I turned on the backlight and I saw this very crude imitation of a deer. In the dark it seemed exact, in the light it was this strange amalgamation of different animal hides, and aluminum antlers. I yelled to try to get rid of it, and it remained motionless. I ran downstairs to lock the back door and close the curtain but when I went to lock the door, it was on its hind legs, its face pressed against the glass of the back door…its eyes completely human and the moonlight refracting off the antlers. 
+Meeting His eyes, I saw that they were bigger. Closer. I was delirious with sleep and fear, uncertain if what I saw was truly there, so, just to be sure, I closed my eyes once more in a move of irrational stupidity. More shuffling. More creaking floor boards. It then occurred to me that it did not matter if I was dreaming or not. I opened my eyes and saw that those twin lights were almost to my bed, that rusted, bubbled breath a deafening siren in my ear. 
 
-I panicked, pounding on the glass thinking it was some sort of strange monster-like creature until it started breathing heavily onto the glass, causing it to fog. It removed its front hoof, revealing a hand. I realized that this “thing” was a man in a costume. A sick, disgusting costume. It began to write in the breath it put on the window the simple phrase, “In the moonlight I become the hunter”.
+I did not blink for the rest of the night, and neither did He. I did not blink the night after either, nor the night after that. And neither did he.
 
-I yelled, closed the curtains and called the police. They took what felt like years to show up, and when they did they found nothing out of the ordinary, and they told me everything was safe. To this day I haven’t seen that thing again…and I hope I never do. I still have no idea what it could’ve wanted from me…but I assume because I’m a hunter, it wants me gone. While the moonlight is beautiful always remember, it can reveal things you never wish to see.
+Every night, when the sun dances away and out of sight over the horizon, He emerges with His glowing eyes and His wet breathing. 
+
+I’d tried locking the closet door once, foolishly thinking myself a genius as I slipped into bed and closed my eyes without fear. I was halfway to falling asleep when I heard the squeal of the door and opened my eyes with a panicked gasp, finding Him already halfway across the room. 
+
+He wheezed with every inhale, sometimes choking on his own air. With his face shrouded in darkness, my curiosity yearned to know what he looked like. My more rational brain tells me I would never be able to forget. 
+
+How long has it been since I’ve slept?
+
+He waits. For the incessant tugging on my eyelids to grow too aggressive for me to ignore. 
+
+Sometimes I catch myself drifting off, only to be roused by the soft creaking of His steps. I cannot tell if He’s getting faster, or if I am sliding further and further. 
+
+If anyone finds this—please know that I tried. 
+
+I’m sorry. 
