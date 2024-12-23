@@ -266,4 +266,4 @@ All that changed when my phone rang this evening. Megan spoke in a rushed, panic
 
 “What? Who’s back?”
 
-“It’s Aunt Amy. Patrick, she hasn’t aged a day from when we last saw her, and she just knocked [five times at the front door](https://www.reddit.com/r/PeaceSim/).”
+“It’s Aunt Amy. Patrick, she hasn’t aged a day from when we last saw her, and she just knocked five times at the [front door](https://www.reddit.com/r/PeaceSim/).”
