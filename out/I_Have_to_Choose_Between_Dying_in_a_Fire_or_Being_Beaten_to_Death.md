@@ -12,7 +12,7 @@ I cracked open the door and was met by one of the most beautiful women I had eve
 
 I immediately perked up, opening the door wider to get a better look at her. Even though I knew that she could be a marketer or some other scammer, I wanted to drink in the scene before she ruined my fantasy.
 
-“Thomas Reinhart?” she asked, her voice both velvety and commanding in equal measures.
+“\[One-Angle7033\]?” she asked, her voice both velvety and commanding in equal measures.
 
 That got my attention.
 
@@ -60,7 +60,7 @@ I paused, staring at her as she appeared to take in the entire room around her. 
 
 She looked up at me again, not even allowing a crack in her facade. 
 
-“I assure you Mr. Reinhart, this will be much easier if you cooperate. We have much to discuss.” she said, seemingly oblivious to the size difference as she grinned wider up at me.
+“I assure you \[One-Angle7033\], this will be much easier if you cooperate. We have much to discuss.” she said, seemingly oblivious to the size difference as she grinned wider up at me.
 
 I was speechless. How dare she sit in my house, refuse to leave, and act like everything was a-okay? How did this delusional chick think that this was going to go? That I would give up and let her do her stupid presentation or whatever it is that she wanted from me?
 
@@ -104,13 +104,13 @@ The paper, despite her appearance, was strangely normal. Clean, unwrinkled, and 
 
 I pick it up, carefully reading the document:
 
-‘This document is for the recipient Thomas Reinhart to discuss the manner and matter of his upcoming death.’
+‘This document is for the recipient \[One-Angle7033\] to discuss the manner and matter of his upcoming death.’
 
 My death?
 
 “Is this some kind of sick joke?” I snort, my voice frigid but my gaze unmoving.
 
-“I’m afraid not Mr. Reinhart. This is a discussion as old as the cosmos and your only opportunity to decide on your fate.” she says, an odd rattle of life returning to her voice as she speaks.
+“I’m afraid not \[One-Angle7033\]. This is a discussion as old as the cosmos and your only opportunity to decide on your fate.” she says, an odd rattle of life returning to her voice as she speaks.
 
 I looked up at her, just in time to see her appearance morph again. Her features softened as her hair, skin, and eyes returned to their former splendor. Her expression was still very matter of fact, but I now saw a wise, ancientness behind her gaze.
 
@@ -134,7 +134,7 @@ She did not laugh.
 
 She slid a piece of paper in front of me silently, resting her fingers on the page momentarily before slowly withdrawing them. I looked down at the paper, freezing as I read the contents. 
 
-The page was filled with words and  numbers. Everything was spaced out evenly and in a well organized fashion, with dozens of entries spanning down the length of the page.
+The page was filled with words and numbers. Everything was spaced out evenly and in a well-organized fashion, with dozens of entries spanning down the length of the page.
 
 It was a list of all the times that I stole from others. The small sums, the big illegal acts I got away with, and all the other ways I lined my pockets at the expense of others. The page was divided by dates and times, listed out point by point. Next to the times, sat a small summary of events:
 
@@ -178,7 +178,7 @@ And she was right. I did know better. I knew that giving him up would condemn an
 
 She waved her hand above the paper in front of me. The paper burst into flames and burned up into a plume of smoke within seconds, wafting up and disappearing into thin air.
 
-“You’re correct Mr. Reinhart. Theft alone does not justify the fates offered. Even the most egregious acts of theft can eventually be replenished. Money changes hands often and your estate would correct the wrongs of the past when you pass.”
+“You’re correct \[One-Angle7033\]. Theft alone does not justify the fates offered. Even the most egregious acts of theft can eventually be replenished. Money changes hands often and your estate would correct the wrongs of the past when you pass.”
 
 She then slid another piece of paper in front of me, this time showing an image. It was a selfie, with three people smiling into the camera. I sit in the middle, with two women sitting on either side of me. I immediately recognized the pictured women as my ex-wife and her best friend. Both were smiling into the camera, with my wife leaning her head on my shoulder in the picture.
 
@@ -234,7 +234,7 @@ She was now directly in front of me. She was physically imposing despite being m
 
 “You broke the vow of holy matrimony. You committed adultery and destroyed two lives. I would have far more respect for you if you just said you wanted a little on the side than giving me that sorry ass excuse. You would at least be honest.”
 
-She was suddenly back at the table, as if being chopped out of existence and placed back in her chair. Her legs were crossed and she was relaxed, her eyes returning back to their ice blue hue. 
+She was suddenly back at the table, as if being chopped out of existence and placed back in her chair. Her legs were crossed, and she was relaxed, her eyes returning back to their ice blue hue. 
 
 “Well, I guess we should make those three women’s lives you personally ruined.” She sighed, sliding the envelope across the table to the spot in front of the toppled chair. 
 
@@ -242,7 +242,7 @@ I took a few seconds to compose myself, feeling my heart race and my vision get 
 
 I opened the envelope, sliding out the final picture from inside.
 
-Instantly, everything goes cold. I felt nauseous as a stoic face stared back at me. The face is that of a young man, 16 years old. His hair is messy and he stares directly into the camera. He looks as though he was woken up to take this photo, with his eyes half awake and generally bleary. The background is plain, with only sporadic, evenly spaced lines marking up the wall in the background.
+Instantly, everything goes cold. I felt nauseous as a stoic face stared back at me. The face is that of a young man, 16 years old. His hair is messy, and he stares directly into the camera. He looks as though he was woken up to take this photo, with his eyes half awake and generally bleary. The background is plain, with only sporadic, evenly spaced lines marking up the wall in the background.
 
 This was me. This was a mugshot of mine before my dad sealed my record and got the rape charges dropped.
 
@@ -266,7 +266,7 @@ She tilted her head, as if curious at my stubbornness despite overwhelming evide
 
 “What if I changed today? What if I dedicated the rest of my days to-”
 
-She cut me off with a loud slam against the table top. I jumped as the air was filled with the smell of smoke, feeling the heat of the flames before abruptly vanishing. Her eyes, while back to being a cloudy white, burned with a rage that I had not seen before or since. Her hand was still pressed firmly against the table, a thin, frail finger poking into the paper as she pointed to a line:
+She cut me off with a loud slam against the tabletop. I jumped as the air was filled with the smell of smoke, feeling the heat of the flames before abruptly vanishing. Her eyes, while back to being a cloudy white, burned with a rage that I had not seen before or since. Her hand was still pressed firmly against the table, a thin, frail finger poking into the paper as she pointed to a line:
 
 ‘The recipient’s fate, upon receiving the notice, shall be carried out at 5 am, tomorrow.’
 
@@ -294,7 +294,7 @@ She cooed the words, her voice purring with an almost lustful tone. I felt her f
 
 “Maybe I should take the choice away. Why should cruel men like you get the luxury of choice when you deprive others of their autonomy?” she asked, her words pointed as the sharp point pressed against my vein. The thin skin of my neck barely kept the point at bay, threatening to drain my blood in seconds if cut. 
 
-Just as suddenly, she was gone. The pressure eased, with relief quickly washing over me. I released the breath I didn’t know I was holding, collapsing against the table top as the rest of my strength sapped away. I heard the door creak open before she called back to me.
+Just as suddenly, she was gone. The pressure eased, with relief quickly washing over me. I released the breath I didn’t know I was holding, collapsing against the tabletop as the rest of my strength sapped away. I heard the door creak open before she called back to me.
 
 “You have until midnight to decide. Or I will decide for you.”
 

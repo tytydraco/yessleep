@@ -1,10 +1,10 @@
 This is a story you probably won’t be used to, but it’s one I needed to write. Ever since I was young well… I’ve had dreams and been able to see things. Sometimes it comes in the form of nightmares, I wake up from a dream of being in another’s body. Sometimes I wake up after experiencing someone's death. This one was unique. Maybe I will continue sharing my experiences, but this one is just for Donny. There are things he needs to know; however he might view it. It’s not directly from me, but there's darkness around him.
 
+***
+
 We know the city doesn’t sleep, not in the early morning for a quiet hour. Not when the student sets his laptop down to rest. The city doesn’t sleep when the sun rises, nor when the ill catch the busses on quiet streets. When the sun rises and shines on the seats, it falls into the hair of slickened scalps and tight ponytails. The faces of the people who come in different phases. A drunk, on their way home from a long night. The middle-aged woman is on a brisk walk, jaywalking the road. Sometimes it shines on the homeless man, turning and pulling the blanket over his head. The light shines from the tall buildings and reflects on everyone. The concrete blocks identify themselves as a person does at their first meeting. Everyone knows what the blocks mean when they say to them, *“Hello this is what I am”.* Then the people spend their day keeping up with the world, waiting for the sun to go back down.
 
-\*\*\*
-
-He stands from the seat and I watch, waiting for him to see his shoes. The bus waits for people to get off, its doors open, and Donny is tying his shoes. Tired and late for a meeting a woman behind him taps her fingers on the back of a chair. The voices and chattering of those behind dull into a blur. Everyone tumbles onto the pavement together, seemingly in rows and he jerks aside.
+He stands from the seat and I watch, waiting for him to see his shoes. The bus waits for people to get off, its doors open, and Donny is tying his shoes. Tired and late for a meeting a woman behind him taps her fingers on the back of a chair. The voices and chattering of those behind dull into a blur. Everyone tumbles onto the pavement together, seemingly in rows, and he jerks aside.
 
 We walk together down the street, and a slew of heavy-headed pedestrians exit a building spreading apart. Maybe for a moment, he feels like a piece of straw or grass, collected in a field and shapeless; but I see his eyes and how he tips his head up at the sky, gazing at the tall buildings. The buildings above him reflect, and the heat of the sun touches his cheeks. He breathes in until his entire chest is filled. 
 

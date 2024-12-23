@@ -14,7 +14,7 @@ It started soon after the Apollo Lunar missions. Space exploration was at it pea
 
 Leading physicists dismissed our findings as speculative nonsense. They claimed our methodology was flawed. The heart of the controversy lay in the implications of our work. If light had indeed slowed down, it undermined one of the most important constants in physics. The speed of light wasn’t just a number, it was a cornerstone of modern science. To question it was to question the very structure of the universe. The US govenment played a significant role in suppressing our work as it undermined the careers of a lot of very prominent and well paid scientists.
 
-I still continued my work in obscurity. My reputation was tarnished beyond repair but I refused to up.
+I still continued my work in obscurity. My reputation was tarnished beyond repair but I refused to give up.
 
 See, If the speed of light had slowed, it raised a haunting question: why?
 
