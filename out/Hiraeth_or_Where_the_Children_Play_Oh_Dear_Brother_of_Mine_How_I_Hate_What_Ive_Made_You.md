@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hiopez/hiraeth_or_where_the_children_play_hell_is/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hiopez/hiraeth_or_where_the_children_play_hell_is/)/[Next](https://www.reddit.com/r/nosleep/comments/1hl3oor/hiraeth_or_where_the_children_play_the/)
 
 Gemma was right about the sky’s open night, and I could sympathize with her recollection of the beauty, but for me it must’ve been a greater tragedy—the young woman had only ever enjoyed the stars in the pits of Golgotha; I could, long before, drink in the sky at leisure. Cruel memories.
 
@@ -210,4 +210,4 @@ Mephisto tainted me so that I could speak with his kind as a dealmaker and the d
 
 Billy or Maron or whatever he is should have been reaped long ago or better, I should never have brought that abomination alive. Such a cruel world where a deep longing like that can be inverted, weaponized. Me and him should both die; me and him should have died a long time ago. 
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hiopez/hiraeth_or_where_the_children_play_hell_is/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hiopez/hiraeth_or_where_the_children_play_hell_is/)/[Next](https://www.reddit.com/r/nosleep/comments/1hl3oor/hiraeth_or_where_the_children_play_the/)
