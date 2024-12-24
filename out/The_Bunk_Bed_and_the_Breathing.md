@@ -1,39 +1,31 @@
-This first began in 1999 in Raleigh, North Carolina when I was 6 years old. 
+This started in 1999, back when I was six, in Raleigh, North Carolina.
 
-My childhood bedroom was the size of a bad thought. Sarah slept like the dead beneath me, thank God. Because every night, something else in that room was awake, and I could hear it breathing. Me? Forget it. Sarah could’ve slept through a bomb going off down the street on that bottom bunk. I'd lie up top, every creak that old house groaned, every single leaf that scraped against the windowpane, jolting me wide awake. Just lying there, eyes glued to the dark, listening to the *real* sounds of the house – the ones that weren't supposed to be there.
+My bedroom was small, just big enough for a bunk bed and a dresser. My sister Sarah slept on the bottom bunk, and I had the top. She could sleep through anything. I couldn’t. Every night, I’d lie awake, jumpy at every little creak or rustle in the house. It wasn’t just the usual kid fear of the dark, though. It was something else.
 
-One of my earliest memories from that cramped space… it’s still there, you know? Burned into my brain, this raw, unsettling feeling. It was the breathing. Not normal kid-sleeping breathing, not even close. This was… ragged, thick. Like something was drowning, trying to force air in. And it wasn't Sarah. Definitely wasn't Sarah.
+I don’t remember when I first noticed the breathing. It wasn’t constant. Just… some nights. Quiet at first, this wet, raspy sound, like someone breathing through a bad cold. I’d tell myself it was the wind, or maybe pipes in the wall, but the sound wasn’t steady enough for that. And it always seemed so close, like it was in the room with us.
 
-It’d start soft, a faint, wet wheezing. I’d try to tell myself it was the wind, the house settling. Anything but what it sounded like. Then it would get louder, closer. You could feel the effort, that desperate struggle for breath. It felt like it was right there, sharing the room, right under my bunk. Sometimes, the frame would vibrate a little with each choked inhale. Creepy as hell.
+At first, I thought it was Sarah. I’d call her name softly, trying not to wake her all the way up, but she’d just mumble and roll over. She didn’t hear it.
 
-My kid brain tried to make sense of it. Pipes? Yeah, right. This felt… alive. Like something was trapped and in pain.
+Some nights, it would start faint and stay faint, and I could almost convince myself it wasn’t real. Other nights, though, it got louder. And worse. There was this pressure that came with it, like the air was thicker in the room, and I’d feel the bunk bed vibrate faintly, in time with those slow, heavy breaths.
 
-I’d try to nudge Sarah awake. Whisper her name, shake her gently. Nothing. She’d just mumble and roll over, completely gone. Didn't hear a thing. And me? I was just lying there, frozen, listening to this… monstrous breathing filling every inch of that tiny space. Completely alone with it.
+I didn’t tell my parents. What could I say? “There’s breathing in my room”? They’d laugh it off. I even tried to convince myself it was all in my head. But when it happened, I’d lie there, stiff as a board, my heart pounding so loud it drowned everything else out.
 
-It wasn't every night, thankfully. Just… sometimes. No pattern I could figure out. Years it went on. Some nights, silence. Sweet, blessed silence. Other nights, that awful breathing would start the second the lights went off and wouldn't stop until just before dawn. I'd lie there, stiff as a board with fear, staring into the blackness, trying to pinpoint where it was coming from. Under the bed? Inside the walls? Or… closer? God, that thought still makes my blood run cold.
+It wasn’t every night. Sometimes it’d be weeks, even months, before it came back. But when it did, it was always the same—me lying there, too scared to move, Sarah out cold, and that awful, choking sound filling the room.
 
-As I got older, I started, you know, keeping a flashlight under my pillow, just in case. A few times – or maybe more, I don't know, honestly, it's all still a blur – when that breathing felt like it was right on top of me, like something was breathing right down my damn neck, I'd snap that light on, my hand shaking so hard it felt like it would come right off, trying to see *something*, anything at all in that room, but never, never seeing a damn thing. Nothing. Just our clothes crammed in the closet, shadows doing that creepy stretched-out thing. But the breathing? Still there. Heavy. Mocking me.
+I got older, and I stopped noticing it as much. Maybe I just learned how to sleep through it. Or maybe it really did stop. By the time I was 12, it was gone. We moved a few years later, and I never thought about it again.
 
-Eventually, we moved. Thank Christ. My own room. Bigger. Quieter. The breathing stopped. I almost forgot about it, figured it was just a kid's overactive imagination fueled by too many scary stories. You try to rationalize it away, right?
+Until I came home to visit my parents last year.
 
-Until a few weeks ago.
+They’d turned my old room into a guest room, but the bunk bed was still there, shoved into a corner under a sheet. I was helping Dad clean out the attic when he mentioned they’d had a pest problem years ago. “That old bedroom of yours,” he said, “something kept getting into the walls. We never figured out how. It was loud, though. Breathing, scratching… weird stuff. We had to call an exterminator a couple times.”
 
-Visiting my folks. My old room’s a guest room now, but the bunk bed was still there, shoved in a corner under a dusty sheet. Helping Dad carry some crap upstairs when I saw it.
+I felt my stomach drop when he said it. “Breathing?” I asked, trying to sound casual.
 
-Not the bunk bed, but the floor underneath. Or rather, what was *on* the floor underneath. The dust, where Sarah's bunk used to be, was all violently disrupted. Like something had been dragged in and out repeatedly. Faint trails in the dust leading towards the wall, like desperate claws had tried to dig in.
+“Yeah, sounded like a raccoon or something. Real raspy.” He shrugged, like it was no big deal.
 
-Dad noticed me staring. “Oh, yeah,” he said, casual as you like, “we had a bit of a pest problem in that room for a while. Nothing major, just some… we never figured out what, exactly. Exterminator came, laid down some traps. Seemed to do the trick.”
+I went back to my old room later, just to look around. The bed was gone, but when I checked the floor where it used to sit, there were these faint trails in the dust, like something had been dragged in and out of the space under the bed. They led toward the wall, where the baseboard was cracked and slightly pushed out, like something had squeezed through.
 
-He kept talking about the gutters, but I was stuck staring at that floor, my heart hammering.
+I stood there for a long time, staring at those marks, trying not to think about all those nights I’d spent lying awake, listening.
 
-Pest problem. Traps.
+I don’t know what it was. A raccoon. A stray cat. Something else. I don’t want to know.
 
-Suddenly, that raw, suffocating breathing slammed back into my memory. And it hit me, hard. It wasn't coming *from* the bed. It was coming *from under* it. From whatever the hell had been living, maybe *hiding*, in that cramped space beneath Sarah. Inches below me, all those nights.
-
-And those trails to the wall… where did they go? Inside? Was it just… living in the walls? Could it still be there? Somewhere in that house, silent, unseen… waiting?
-
-Thirty years they’ve lived in that house. *Thirty years*. I slept in that room for half my childhood. And all that time, something else might have been there. Sharing the space. Breathing in the dark. Its presence a secret, cold weight just under the surface.
-
-Now, every time I think about visiting, I get this sick feeling in my gut. A cold dread that just won't quit. I picture that disturbed dust, those faint trails vanishing into the wall. And I can't shake the thought that whatever it was, whatever *breathed* under Sarah’s bed… might still be there, listening for the silence. And I wonder if those traps got everything. Because some things… some things find other ways in. They always do.
-
-And to whatever was under our bed.. NEVER. Let’s not meet again at ALL. 
+I don’t visit much anymore, though. Just thinking about that room makes my skin crawl.
