@@ -83,5 +83,3 @@ The doctor paused, waiting patiently for whatever questions Cassandra had. 
 But she had none. Instead, there was an eerie, uncomfortable silence for almost a minute.
 
 Then, Cassandra tilted her head back, closed her eyes, wept, and had a very long laugh. 
-
-More Stories: [https://linktr.ee/unalloyedsainttrina](https://linktr.ee/unalloyedsainttrina)
