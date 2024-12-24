@@ -79,3 +79,7 @@ This would be a war for reality itself.
 And I was still transforming, still hungry, still dreaming of Susannah's kiss.
 
 Still wondering if fighting the change was the right choice after all.
+
+
+
+Part 7 [here](https://www.reddit.com/r/nosleep/s/ltEwFgAmhU)
