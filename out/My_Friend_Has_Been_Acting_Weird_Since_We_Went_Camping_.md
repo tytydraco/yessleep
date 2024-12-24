@@ -58,4 +58,4 @@ Then when I tried to get him to play video games with me, he got confused and an
 
 I probably should’ve told someone about the signs, I should’ve told my mom he was watching my sister, I should’ve done something before we got to this point. I have to go to bed so I’ll leave you off at the end of day 1. 
 
-[Part II](https://www.reddit.com/r/nosleep/s/X4I2DGnpVO)
+[Part II](https://www.reddit.com/r/nosleep/s/yzw1Jlkl9f)

@@ -1,4 +1,4 @@
-[I’m no longer a rookie pt 1](https://www.reddit.com/r/nosleep/comments/1gxsrvg/im_no_longer_a_rookie_with_the_winchester_police/?share_id=1O7MQ_GvY3tuwPfYJ7w5z&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1) | [Other journal entries](https://www.reddit.com/r/SpnsAthenaeum/comments/1gpe8cd/guide_to_im_a_rookie_with_the_winchester_police/)
+[I’m no longer a rookie pt 1](https://www.reddit.com/r/nosleep/comments/1gxsrvg/im_no_longer_a_rookie_with_the_winchester_police/?share_id=1O7MQ_GvY3tuwPfYJ7w5z&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1) | [Other journal entries](https://www.reddit.com/r/SpnsAthenaeum/comments/1gpe8cd/guide_to_im_a_rookie_with_the_winchester_police/) | [Next](https://www.reddit.com/r/nosleep/s/Usc8jAvyg8)
 
 “W-what the hell are we supposed to do now?” Dustin asked as he looked around, completely dumbfounded. Guess they didn’t cover rogue revenant showdowns on his detective’s exam.
 
