@@ -1,4 +1,4 @@
-I've been reading through some of the older r/NoSleep posts recently and have enjoyed some of them. I've never really used reddit, even though I made an account four or five years ago. I uncovered some old photos of mine and reckoned I'd tell a story of my own. 
+I've never really used reddit, even though I made an account four or five years ago. I uncovered some old photos of mine recently and reckoned I'd share a story of mine on here.
 
 I live in a small town called Woodton. A small place of just under two thousand people. It's not a very attractive place. The only appealing feature that it has, in my opinion, is the 'Gorge', running through the Mountain range just west of the town with a river flowing through the bottom of it. A road was built on one side of the Gorge that spanned its length. It closed in 2017 after a series of large landslides that caused the District Council to render the road irreparably damaged. 
 
@@ -36,9 +36,9 @@ I sighed lightly "Yeah, I guess. It's nice out here." I took a deep breath of th
 
 A couple weeks later we were back out at the bulldozers. I'd brought my dads camera with us to take some cool photos, and I think some of them turned out okay for a fifteen year old. 
 
-[One](https://imgur.com/a/5iOgFnJ) 
+[Bulldozers picture](https://imgur.com/a/5iOgFnJ)
 
-[Two](https://imgur.com/a/4MWrzpV) 
+[Gorge picture](https://imgur.com/a/4MWrzpV) 
 
 James and I had taken to scaring each other with different monsters and cryptids that we thought up, and we slowly started introducing them to the rest of our group. James also told us about how his father had once told him stories of something native to the forest around the Gorge and Woodton, but he couldn't remember what it was. All he remembered was his dad telling him about a man who was driven into exile by the original Woodton settlers, sometime around the mid seventeen hundreds, and he had been lost to time. 
 
@@ -54,7 +54,7 @@ James replied, "It's not too far from here. We can probably go and explore it be
 
 We walked for a few minutes before coming across a path entrance that came off of the old road. 
 
-[Path](https://imgur.com/a/NzzspIF) 
+[Path entrance](https://imgur.com/a/NzzspIF) 
 
 There was a sign on the left side of the track that read G RGE TRA L. Some of the letters paint had been chipped to the point where they were illegible. It looked like the track was fairly well maintained, and I questioned why no one had repainted the sign. Matthew and James eagerly moved down the path. The rest of us followed suit, although I admit I felt uneasy at the time for a reason that I could not pinpoint. 
 
@@ -92,14 +92,10 @@ James once more swept his flashlight around us while Matthew picked up Aiden.
 
 Takuma was gone.
 
-
-
-  
 I haven't seen him since that day five years ago.
 
-I'm so, so sorry Tak. 
+I'm so, so sorry Tak.
 
-  
 I had felt my heart drop. I called out for him. This was the first time that I felt true fear in my life. Real, incomprehensible fear. I looked at James, and he turned and ran. Since he was our only light source now, we had no reason but to follow him. We ran for what felt like hours, until James finally stopped. He looked back at me with a wild look in his eyes.
 
 "Where is the damn fork? We should've hit it by now." He sounding hysteric. He screamed at us "*Where is it? Where are we? God fucking damn it!"*
@@ -116,30 +112,20 @@ I flicked my phone on and prayed that I had a signal. I held my breath as my pho
 
 I told him everything that happened, and I could hear his voice become shaky. He said he would call James' and Takuma's dads and come out as soon as possible. He hung up the call, and I finally realized that I could use my phone's flashlight. I turned it on.
 
-  
 Another goddamn axe. There was another one in front of me. This time there was a carving above it. It looked hurriedly cut, and it showed a river flowing between to mighty mountains. Even more unnerving, stickers of trees were placed on the mountains. Peeking out from one of the stickers was another sticker. It was of a man. I remember snapping a picture of it, but I haven't been able to find it. After seeing that, we got the hell out of there. It took us about two hours to get back to the fork in the path, and my father, as well as Takuma's father, David, were waving flashlights around calling for us. James' Dad stood behind them. My dad rushed to us and embraced me, as did James' dad. David, however, just stood there. He stared past us, his flashlight trained on something. I looked over my shoulder and saw what he was staring at.
 
-
-
-There was a man watching us in the trees. 
-
-
+There was a man watching us in the trees.
 
 He grinned eerily, and in his hands he clasped a broad wood axe. Matthew immediately turned and ran, still carrying Aiden, down the path. I couldn't move. The man locked eyes with me. He didn't move. I was terrified. Writing this I can feel the terror come back. I can remebmer his face perfectly. His wide grin still causes me to freeze in terror whenenver i think about it
 
-  
 I feel his gaze locked on me and I hate it
 
 I hate it
 
-  
 I don't know how to describe it, but I remember my dad picking up a rock and throwing it at the man. It hit the man in the chest, and he took a step back but didn't break eye contact. I turned and ran. I heard the rest of us follow closely behind. I don't know how long we ran, but it didn't feel very long. Matthew and Aiden were already waiting by my car, and my dad unlocked it, throwing the drivers door open. David was already driving from the area, the same with James' father.
 
 We must've broken at least ten different road rules, but we didn't care. No one spoke a word. Matthew and Aiden stayed at our house for the night.
 
-
-
-  
 I hadn't even thought about this until a year ago. David had lost his wife a decade ago, and Tak was the only thing he had left. He became a recluse. Some fucking asshole stuck an axe in a stump in his own backyard, and that was the final straw for him. He committed suicide days after.
 
 I haven't talked to any of those guys in a while. I really hope they've forgotten about it.

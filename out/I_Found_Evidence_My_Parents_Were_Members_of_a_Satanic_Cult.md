@@ -1,3 +1,5 @@
+Part 2 is [HERE](https://www.reddit.com/user/shawncbaker9/comments/1hkaf53/i_found_evidence_my_parents_were_members_of_a/).
+
 "Remove your skin, remove your sin, remove the life you sold to them."
 
 I found that lyrical little ditty scrawled inside a dusty old tome hidden in a secret passageway in my Father's basement. Reading those words confirmed all my suspicions. The man who raised me was a black magician, and he'd fucked around and let something unspeakable loose upon the narrow little streets of our suburban community.

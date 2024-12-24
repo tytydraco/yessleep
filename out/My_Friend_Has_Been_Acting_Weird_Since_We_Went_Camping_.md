@@ -54,6 +54,6 @@ We got back to the house and my mom had prepared us some food but Kane refused t
 
 Then when I tried to get him to play video games with me, he got confused and angry, he ended up throwing my spare controller and breaking it. Then when I got distracted I caught him staring into my younger sisters room, when I yelled at him about it he said,
 
-“I wanted to know what she does when no one is watching.” Which really freaked me out, I told him he should probably go home. 
+“I wanted to know what she does when no one is watching.” I got way too freaked me out, I told him he should probably go home. 
 
 I probably should’ve told someone about the signs, I should’ve told my mom he was watching my sister, I should’ve done something before we got to this point. I have to go to bed so I’ll leave you off at the end of day 1. 

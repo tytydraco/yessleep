@@ -1,3 +1,5 @@
+This first began in 1999 in Raleigh, North Carolina when I was 6 years old. 
+
 My childhood bedroom was the size of a bad thought. Sarah slept like the dead beneath me, thank God. Because every night, something else in that room was awake, and I could hear it breathing. Me? Forget it. Sarah could’ve slept through a bomb going off down the street on that bottom bunk. I'd lie up top, every creak that old house groaned, every single leaf that scraped against the windowpane, jolting me wide awake. Just lying there, eyes glued to the dark, listening to the *real* sounds of the house – the ones that weren't supposed to be there.
 
 One of my earliest memories from that cramped space… it’s still there, you know? Burned into my brain, this raw, unsettling feeling. It was the breathing. Not normal kid-sleeping breathing, not even close. This was… ragged, thick. Like something was drowning, trying to force air in. And it wasn't Sarah. Definitely wasn't Sarah.
