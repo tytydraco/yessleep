@@ -35,3 +35,5 @@ And those trails to the wall… where did they go? Inside? Was it just… living
 Thirty years they’ve lived in that house. *Thirty years*. I slept in that room for half my childhood. And all that time, something else might have been there. Sharing the space. Breathing in the dark. Its presence a secret, cold weight just under the surface.
 
 Now, every time I think about visiting, I get this sick feeling in my gut. A cold dread that just won't quit. I picture that disturbed dust, those faint trails vanishing into the wall. And I can't shake the thought that whatever it was, whatever *breathed* under Sarah’s bed… might still be there, listening for the silence. And I wonder if those traps got everything. Because some things… some things find other ways in. They always do.
+
+And to whatever was under our bed.. NEVER. Let’s not meet again at ALL. 
