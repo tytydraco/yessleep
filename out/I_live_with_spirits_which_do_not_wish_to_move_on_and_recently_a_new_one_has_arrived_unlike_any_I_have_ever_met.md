@@ -111,3 +111,5 @@ Sometimes they cry, and become afraid and confused as they linger behind, aware 
 ‘She’, as I have begun to just refer to her, I believe is meant to be a resident. One of the dead who stays in the manor until or if they move onto what lies next. No visitor stays here for so long, yet already since that encounter last week I have felt her chill at various points in the manor. I do not know if her appearing like that again frightens me because of the thought of the cold or if it excites me because of the thought of knowing what she wants.
 
 Winter is soon to come. Stay warm, and perhaps if you feel a familiar chill, you could direct her towards me?
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1hjv2pm/if_you_ever_feel_a_strange_chill_in_the_air_then/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
