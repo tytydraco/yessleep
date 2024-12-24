@@ -1,5 +1,7 @@
 [\[Part 14\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hj39jy/the_call_of_the_breach_part_14/)
 
+[\[Part 16\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hl1nmg/the_call_of_the_breach_part_16/)
+
 “Medic!”
 
 I watched as the newest casualty was shuttled away on a bloodstained stretcher, the boy’s face covered in shrapnel. Both medic girls carrying him struggled just to stay on their feet, their eyes ringed with dark circles, their steps unsteady as they tripped over the rubble strewn sidewalk. Smoke filled the air to choke us, the nearby building already half-consumed with fire, and I tasted sour burnt flesh on the air.

@@ -10,7 +10,7 @@ I’d try to nudge Sarah awake. Whisper her name, shake her gently. Nothing. She
 
 It wasn't every night, thankfully. Just… sometimes. No pattern I could figure out. Years it went on. Some nights, silence. Sweet, blessed silence. Other nights, that awful breathing would start the second the lights went off and wouldn't stop until just before dawn. I'd lie there, stiff as a board with fear, staring into the blackness, trying to pinpoint where it was coming from. Under the bed? Inside the walls? Or… closer? God, that thought still makes my blood run cold.
 
-When I got a little older, I started sleeping with a flashlight under my pillow. A couple of times, when the breathing was right there, almost on top of me, I'd snap it on, my hand shaking, scanning the room. Nothing. Just our clothes crammed in the closet, shadows doing that creepy stretched-out thing. But the breathing? Still there. Heavy. Mocking me.
+As I got older, I started, you know, keeping a flashlight under my pillow, just in case. A few times – or maybe more, I don't know, honestly, it's all still a blur – when that breathing felt like it was right on top of me, like something was breathing right down my damn neck, I'd snap that light on, my hand shaking so hard it felt like it would come right off, trying to see *something*, anything at all in that room, but never, never seeing a damn thing. Nothing. Just our clothes crammed in the closet, shadows doing that creepy stretched-out thing. But the breathing? Still there. Heavy. Mocking me.
 
 Eventually, we moved. Thank Christ. My own room. Bigger. Quieter. The breathing stopped. I almost forgot about it, figured it was just a kid's overactive imagination fueled by too many scary stories. You try to rationalize it away, right?
 

@@ -12,13 +12,12 @@ A few weeks ago, I walked into her room and found her sitting on the bed and sta
 
 Today is where thing got really weird. She came home today with her hair dyed black, contacts that turned her eyes brown, and freckles painted on; when she said hi to me, I was surprised to hear her real voice. We're Australian, but she's always kept an American accent up for years. I don't even know the reason why. (Our parents were also confused over her to-them-sudden-change FYI. I mean, she just came home and looked more like me then ever).
 
-Her personality has also changed. You'd think she would act more like me, right? Nope. She used to be so energetic and outgoing, always talking about the things she was interested in. However, she's gone quiet and barely says anything. Most of it is mindlessly creepy. Just today, she asked me, "Who would miss you if you went camping?
+Her personality has also changed. You'd think she would act more like me, right? Nope. She used to be so energetic and outgoing, always talking about the things she was interested in. However, she's gone quiet and barely says anything. Most of it is mindlessly creepy. Just today, she asked me, "Who would miss you if you went camping?" I don't even like camping.
 
 This weekend, I caught her about to leave the house, so I asked where she was going. She said that she was going to my friend's house, and that D was expecting her. That confused me, so I checked my texts to see if I had missed something. Turns out, I had made plans to go over. I don't know what C was thinking. Maybe she checked my phone and thought it would be a funny prank.
 
 I did mention this to my mother, who told me to go check the family scrapbooks. Since Christmas is tomorrow, I can look through them while waiting for dinner.
 
-Any help is appreciated, thanks. 
+Any help is appreciated, thanks.
 
-  
 T.

@@ -8,7 +8,7 @@ Something you need to have a concept of beforehand is my friend, Kane, is a very
 
 He’s a kind guy who wants to spread kindness, so when I tell you this story keep that in mind. 
 
-This all started 3 days ago on the last night of our camping trip. A day before that I told Kane I was hearing some weird noises in the woods, birds calling would morph into wolfs howling without intermission. 
+This all started 3 days ago on the last night of our camping trip. That day I told Kane I was hearing some weird noises in the woods, birds calling would morph into wolfs howling without intermission. 
 
 When presented with this, Kane said, “Shawn you’re just paranoid, you’re so used to busses honking and cars tires screeching you’re overthinking the forest noises.”
 
