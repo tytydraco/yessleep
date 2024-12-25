@@ -269,5 +269,3 @@ I think I'm going to rest now.
 Just for a minute.
 
 There's a woman in white standing among the trees. She's watching me, smiling that serene smile they all share. It’s like she knew I wouldn’t make it ‘til Sunday.
-
-Now that I know what they’re looking for, I hope they[ don’t find it.](https://www.reddit.com/user/lemonsorbetstan/comments/1hbq68e/the_brides_of_christendom/)

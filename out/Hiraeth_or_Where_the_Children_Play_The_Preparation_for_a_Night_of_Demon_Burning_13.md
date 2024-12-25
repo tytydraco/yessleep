@@ -1,5 +1,5 @@
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hk8bwn/hiraeth_or_where_the_children_play_oh_dear/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hk8bwn/hiraeth_or_where_the_children_play_oh_dear/)/[Next](https://www.reddit.com/r/nosleep/comments/1hlt5i7/hiraeth_or_where_the_children_play_burning_bodies/)
 
 The travel took on a less gloomy quality in the day that passed since Gemma’s self-reflection and although there remained a queer distance in her eyes, she seemed in better spirits in losing the weight of the words.
 
@@ -243,4 +243,4 @@ Andrew removed the lenses from his eyes and held them to his chest and asked, �
 “We’ll keep an eye on it,” I said, “You don’t want to mess with a fiend unless you have to.”
 
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hk8bwn/hiraeth_or_where_the_children_play_oh_dear/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hk8bwn/hiraeth_or_where_the_children_play_oh_dear/)/[Next](https://www.reddit.com/r/nosleep/comments/1hlt5i7/hiraeth_or_where_the_children_play_burning_bodies/)
