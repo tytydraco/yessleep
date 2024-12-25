@@ -54,5 +54,7 @@ I remember how sweaty I was despite the cold. And I almost forgot how that night
 
 He said my room was open before he got back. And I was lying limp with my head on the chair, sleeping soundly. 
 
-If that was a dream. That was the most fuck up shit I've ever experienced. And I won't take it any other than that. Or who would have open the door before my brother or even let himself in. 
+If that was a dream. That was the most fuck up shit I've ever experienced. And I won't take it any other than that. 
+
+Still, I can't help but ask myself. Who open the door before my brother or even let himself in. 
 
