@@ -114,13 +114,13 @@ The balls of light turned into the driveway. And when they did, Alice noticed so
 
 The headlights had no car attached, dissolving without a trace within seconds of their arrival.
 
-For months, this was a nightly occurrence, and only she could see it, which scared Alice. But when she formally explained to the phenomenon to her grandfather for the first time, how they looked like headlights without a car, a weak and bittersweet grin appeared on his face, and he carefully brought up his hands to sign to her:
+For months, this was a nightly occurrence, and only she could see it, which scared Alice. But when she formally explained the phenomenon to her grandfather for the first time, how they looked like headlights without a car, a weak and bittersweet grin appeared on his face, and he carefully brought up his hands to sign to her:
 
 *I’d bet good money that’s Marty making his way home, sweetheart. He just loved you that much.*
 
 From then on, the orbs comforted Alice and made her feel deeply connected with her long-lost father, wherever he was. But in the present, at the age of nearly seventeen, she had modified the purpose of her vigil.
 
-Originally, she liked the idea of her father’s endless search for her. It made her feel less alone. But as she lived life and matured, she realized how alone he must be looking for her from where he was. Now, all she wanted was for Marty to stop looking. She wanted her father to finally rest. 
+Originally, she liked the idea of her father’s endless search for her. It made her feel less alone. But as she lived life and matured, she realized how alone he must be looking for her from where he was. All she wanted was for Marty to stop looking. She wanted her father to finally rest. 
 
 Now, when the orbs passed by, she would sign to them from her window, desperately hopeful that even from where he was he could see her hands move, communicating an important message to him:
 
