@@ -1,0 +1,15 @@
+I saw a Tik Tok just then that said “who has something scary or unusual they went through and can’t even explain it to this day.” and it got me thinking…
+
+I live in a small coastal town in Western Australia, that is renowned for being quiet and safe with no crime whatsoever. 
+
+When I was 10, used to be really into skateboarding, going to the skatepark whenever I could. It was a cold winters day and it was raining off and on, but I was so eager to skate that I asked my dad if he could drop me off to skate for a little bit. If you know about skating, you know that it’s not good to skate in the rain because it’ll wreck your board and it’s in general more dangerous and slippery, so I decided to take one of my old ones.
+
+As we arrived to the skatepark, I asked my dad to wait in his car for me in the car park as I knew I’d only be out skating for 20 minutes max due to the weather. I got out, started skating. No one there of course. The rain started to get a bit heavier, but I was already out there so I was utilising all the time I had to get a skate in.
+
+5 minutes into my skate, and a man rocks up with his skateboard. He was of average height with Asian descent. He started skating as per normal, and being a kid, I thought he was just here to have some fun like I was. The skatepark was split in two sections, a big bowl on one side and then lots of different ramps and a half pipe on the other. I used to do a lot of bowl skating so I was mainly there. 
+
+One circuit, I was pumping around the bowl and aired out of the bowl to finish my circuit. I turn around to see this guy on the other side of the bowl, with his phone out recording me, and I could tell he was trying to do it discretly. My young self thought that maybe he just thought I was good and that he was just intrigued. Though, I was a little bit confused, so I decided to skate in the other section of the skatepark in the half pipe. I was going up and down the half pipe, and I notice he was skating by kind of slowly, watching me do this. At this point I was slightly concerned, but again it didn’t fully phase me. A rainy, cold winters day and this guy was recording me skate and then slowly passing by a nearby ramp watching me in the half pipe. I think now this was already weird, but it gets worse.
+
+I decided to zoom around some other little ramps nearby to the half pipe, and then I took a little breather on a soaking wet bench there. I’m keeping an eye on this guy as I had a little weird feeling about the whole recording/pictures thing going on before. He’s skating around and slowly starts coming towards me. I’m now in a bit of fight or flight. I was a fairly good skater as a kid and knew how to go pretty fast around certain areas of this skatepark. So I decided there was a way to test and find out if this guy was trying to follow me or not. As he got closer, I got on my board and started pushing and went down a ramp. He followed me down and I went around fairly fast around this bit that I knew only good skaters could go around, and I had watched him before and knew he wasn’t that good. 
+
+ 
