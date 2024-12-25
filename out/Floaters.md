@@ -164,7 +164,7 @@ My whimpers morphed into hacking, breathless laughter. I threw up. Nothing but b
 
 Keeping track of the rest was hard. The brain can only take so much. It’s a coward at heart.
 
-There were more sirens. People gathering outside. Waiting to starve me out, or getting ready to storm the building. What would happen when they did was the only thing on my mind. Well, not the only thing. Wasn’t long until I got hungry again. And then all I could think about was Mona, in the elevator with her eggshell skull, dripping sweet red juices. The wad of brains clinging to the tall man’s neck. Getting stiff. Starting to stink. Might help clear the air if I looked at them. Just the ones in the room. I was so, so, hungry. Could barely breathe through the drool. The thought of normal food made me sick, and my eyes were getting angry. Stinging like wasps. I started with the gunman, the half-eaten one. Just to tide me over. I stared at him till his bones shone white. After that, I sat back. The turtle was at the edge of its tank. Looking back and forth across the room. It had such sad eyes. It must’ve been thirsty, so I went and filled a dish with water. When I put it in the tank there was a little squeak. Floaters pranced over tiny bones and broken bits of shell. It happened so fast. They snatched it out of the corner of my eye.
+There were more sirens. People gathering outside. Waiting to starve me out, or getting ready to storm the building. What would happen when they did was the only thing on my mind. Well, not the only thing. Wasn’t long until I got hungry again. And then all I could think about was Mona, in the elevator with her eggshell skull, dripping sweet red juices. The wad of brains clinging to the tall man’s neck. Getting stiff. Starting to stink. Might help clear the air if I looked at them. Maybe just the ones in the room. I was so, so, hungry. Could barely breathe through the drool. The thought of normal food made me sick, and my eyes were getting angry, stinging like wasps. I started with the gunman, the half-eaten one. Just to tide me over. I stared at him till his bones shone white. After that, I sat back. The turtle was at the edge of its tank. Looking back and forth across the room. It had such sad eyes. It must’ve been thirsty, so I went and filled a dish with water. When I put it in the tank there was a little squeak. Floaters pranced over tiny bones and broken bits of shell. It happened so fast. They snatched it out of the corner of my eye.
 
 I tried to cry again. But it’s not the same without tears. Muscle memory tried to blink after but my lids were stuck in place. I realized, I hadn’t blinked in hours. It’s a weird feeling, having your eyes pried open, but it doesn’t hurt. They keep them wet. Pick away all the debris. I miss it though. Blinking. Crying. Human things. I went straight to the kitchen knives and stabbed one at my eye. The point was about to drive home when they chewed through the metal and it disappeared down to the handle, like a retractable prop. I kept going until handles were heaped on the counter. Next thing I knew I was under the covers again. Trying to ignore the constant squirming behind my eyes. It hit me then that, in the right hands they could’ve eaten cancer, eaten disease. Emily dedicated her life to making the world a better place and I killed her. I killed everyone. The next day I ate the tall man. Better that than let him rot. At least he was dead already. At least it stopped the pain in my head. It’s what he would have wanted. I found some bleach in Mark’s apartment, tried to pour it in my eyes but all it did was burn my face. I tried everything. And still, one by one, the bodies turned to spotless bones. Until it was just Emily and I.
 
@@ -172,16 +172,16 @@ A small army outside by then. Hundreds maybe. I heard them marching. Voices bark
 
 Her skin was mottled, the color of rotten grapes. It seemed a size too big. Those deep, deep pits where her eyes had been were fixed on me. Her face was different somehow. A smile slashed across it, I’d never seen her smile like that. The corners of her mouth twisted up into cruel points. Like she was laughing at me. Like I was the punchline to a sick joke.
 
-I fell back. My hand hit the tall man’s pistol and sent it skittering sideways under a lamp. Light bounced off the black metal and the gun gleamed like smiling teeth. The whole world was laughing. I went cold, and heavy. My blood was lead. I was tired. Tired to the bone. The noise outside was getting louder. My hand scrabbled at the floor till it closed around the pistol. I made sure not to look.
+I fell back. My hand hit the tall man’s pistol and sent it skittering sideways, under the glow of a lamp. Light bounced off the black metal and the gun gleamed like smiling teeth. The whole world was laughing. I went cold, and heavy. My blood was lead. I was tired. Tired to the bone. The noise outside was getting louder. My hand scrabbled at the floor till it closed around the pistol. I made sure not to look.
 
 …
 
 You’re inside now. I hear boots down the hall. You’ll be here soon.
 
-Whatever you do, don’t let me see you. They’ll still be in me after I’m gone. But I’ll put up a barricade, and slide this under the door. Hope that whoever finds it listens.
+Whatever you do, don’t let me see you. They’ll still be in me after I’m gone. But I’ll put up a barricade and slide this under the door. Hope that whoever finds it listens.
 
 Please listen. Please.
 
 And maybe, if everything ends up alright, you could try to remember me.
 
-END OF RECORDING
+END OF RECORDING 
