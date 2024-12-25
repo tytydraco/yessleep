@@ -146,6 +146,8 @@ I thanked Dustin for the flowers and told him it was good to see that he was fee
 
 I walked back to my desk at a brisk pace, ignoring the gnawing feeling at the back of my mind that *something* was wrong.
 
+***
+
 “What the fuck is this shit?” I muttered to myself as I pulled into my driveway. Something had been taped to the outside of my mailbox. It looked like some kind of note.
 
 Taking a loaded handgun out of my glovebox, I cautiously exited my beat up truck and started to investigate the scene.
@@ -260,6 +262,8 @@ He got through the wards, I reminded myself. He should be fine.
 
 At some point I finally managed to fall into a fitful sleep. And I’m not sure if it was another nightmare or not, but I think I saw a shadowy figure standing in the doorway, watching over me as I slept.
 
+***
+
 Someone came up behind me and knocked on my desk. “Rudy’s out if you’re ready to go talk to him.”
 
 I turned and forced a smile at Detective Davidson. He’d been crashing with me for almost a week at that point and I was kind of getting annoyed by his presence. Not one moment did I have alone. Everywhere I went, he followed. He was metaphorically suffocating me.
@@ -332,6 +336,8 @@ Dustin blew a stray strand of auburn hair out of his face and crossed his arms i
 
 Detective Davidson let out a huff and turned to face me. “Okay,” he moped.
 
+***
+
 I’d had my suspicions before, but I knew something was really wrong with Dustin after he emptied his third clip into a target and hit within the nine and ten circles with almost perfect accuracy.
 
 It’s honestly a miracle the man had passed the detective’s exam with how notoriously bad of a marksman he was. This is the same guy that landed a fluke shot in a siren with a harpoon gun we’re talking about here.
@@ -378,9 +384,9 @@ During my call he’d left the shooting range, apparently getting his fill, leav
 
 I steadied myself, making my way over there. Preparing myself for all the possible nuclear fall out scenarios that could occur.
 
-1)Dustin wasn’t a newly turned supernatural, and miraculously gained the ability to sharp shoot perfectly. He gets so upset and butt hurt that I didn’t trust his word that he disowns me as a partner, quits the division, and becomes a hermit in the woods.
+1) Dustin wasn’t a newly turned supernatural, and miraculously gained the ability to sharp shoot perfectly. He gets so upset and butt hurt that I didn’t trust his word that he disowns me as a partner, quits the division, and becomes a hermit in the woods.
 
-2)He really was turned into a werewolf and he eats me.
+2) He really was turned into a werewolf and he eats me.
 
 Yeah, not liking these options much.
 
