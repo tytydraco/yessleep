@@ -224,7 +224,7 @@ The following day, TJ called Mike. "You need to come over," he said, his voice t
 
 Mike hesitated but eventually agreed. "I’ll be there tomorrow."
 
-Feeling a small measure of relief, TJ decided to spend the day digging deeper into Elias Harper’s life. He returned to the attic, where he had first found the journal. Among the boxes of old belongings, he discovered more photographs and letters. One letter, written in shaky handwriting, caught his attention.
+Feeling a small measure of relief, TJ decided to spend the day digging deeper into Elias Harper’s life. He returned to the room, where he had first found the journal. Among the boxes of old belongings, he discovered more photographs and letters. One letter, written in shaky handwriting, caught his attention.
 
 "To whoever finds this," it began, "you must leave this house. She is not what she seems. She will not let you go."
 
