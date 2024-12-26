@@ -1179,7 +1179,7 @@ But that doesn’t mean I’m wrong.
 
 
 
-[Interview Directory](https://www.reddit.com/r/nosleep/comments/1h0p2dz/fuck\_hipaa\_my\_new\_patient\_keeps\_pulling\_his\_own/)
+[Interview Directory](https://old.reddit.com/user/Dopabeane/comments/1h41nkq/pantheon_inmate_interviews_in_chronological_order/)
 
 
 
