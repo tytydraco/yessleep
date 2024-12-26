@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hl3oor/hiraeth_or_where_the_children_play_the/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hl3oor/hiraeth_or_where_the_children_play_the/)/[Next](https://www.reddit.com/r/nosleep/s/mN1hcb1ebR)
 
 Satan was on the air, on the night, within everything in the long shadows cast by the setting sun and with him came a chill to the air that I could never hope to internalize; it might kill me.
 
@@ -162,4 +162,4 @@ I saw the boy’s body—it lay motionless alongside the dead Alukah and alongsi
 
 “He killed it. He shot it.” Gemma sat beside me, and Trouble placed her snout on the girl’s shoulder. “We’re going to die,” she nodded.
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hl3oor/hiraeth_or_where_the_children_play_the/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hl3oor/hiraeth_or_where_the_children_play_the/)/[Next](https://www.reddit.com/r/nosleep/s/mN1hcb1ebR)
