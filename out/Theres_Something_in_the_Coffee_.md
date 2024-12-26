@@ -166,7 +166,7 @@ Two hours passed…
 
 I was beginning to get frustrated. It seemed that the tablet the doctor had given me wasn't helping. So I just lay there, staring at the ceiling for some time and holding my eyes shut.
 
-Nothing happened until about midnight, and quite frankly, I wish it had stayed that way. I immediately felt the throbbing in my head return, and the gentle taps that seemed to be circulating around my entire head went into overdrive. It was more evenly spread now, too. Rather than being in specific locations, it was across what seemed to be the entire circumference of my brain all at once. I could almost\*...hear…\*it inside me, all the little contacts… like crinkling paper.
+Nothing happened until about midnight, and quite frankly, I wish it had stayed that way. I immediately felt the throbbing in my head return, and the gentle taps that seemed to be circulating around my entire head went into overdrive. It was more evenly spread now, too. Rather than being in specific locations, it was across what seemed to be the entire circumference of my brain all at once. I could almost...*hear*…it inside me, all the little contacts… like crinkling paper.
 
 I sprung up to a sitting position, clutching my face in pain. My eyes had adjusted to the darkness now; what was once pure nothingness had brightened into a shadowy cacophony that ate the corners and walls of the room. The nausea returned, and stars pulsated through my vision, and just then… something caught my eye. 
 

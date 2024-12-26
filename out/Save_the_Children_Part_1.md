@@ -261,3 +261,7 @@ There were words scrawled all over the house - on windows, walls, appliances, an
 *Save the children.*
 
 In my handwriting.  
+
+\*\*\*\*\*
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1hmel5h/save_the_children_part_2/)
