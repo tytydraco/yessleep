@@ -1,12 +1,12 @@
-This is my recollection of the most traumatic event I have experienced. It is like any other truly violent one, chaotic and instantaneous. None of lives tragic moments are long buildups, they are disorientatingly fleeting, only properly understood with hindsight. But I think the retelling is important. If only to remember what happened.
+The following is my recollection of my life’s most traumatic event. It is like any other truly tragic one, chaotic and instantaneous. None of lives violent moments are long buildups and unavoidable consequences, they are disorientatingly fleeting and devastating, only properly understood with hindsight. But I think the retelling is important. If only to remember what happened.
 
  
 
-I am an electrician with a engineering degree. My father had a passion for boats and so naturally I spent some time in the navy. Although I learned much it is only important in so far as telling you that **I** was very qualified for my job. I worked on a cargo ship. That work was a very lonely existence. Hard to keep onto people when you are off shore for long stretches of time, especially women. I had a highschool sweetheart, and I spent time dating after we broke up. But no one could stomach my profession, and having me in exile so consistently. So I make due with my own company. Sure when you are at sea you make friends for life, no way you can’t under those circumstances. The thing is just that most of these friends for life, you won’t ever see again. Everyone takes jobs when they can, and that means spending a lot of time on the same ship with different men. The men with families plan their schedules around those families, staying true to whats important to them. And therefore often fly home when we port. It is different when you are a single man. Work can become an escape from your life. It can keep your mind off the things you really need, keep you from improving, from finding solutions, making changes. It can ocupy your mind even if that mind hungers desperately for change, seeking anything but that horrible doomed loneliness at sea. Still the work makes you stay, it takes away the energy you need to wonder, and find better things.
+I am an electrician with a engineering degree. My father had a passion for boats and so naturally I spent some time in the navy. Although I learned much it is only important in so far as telling you that **I** was very qualified for my job. I worked on a cargo ship. That work was a very lonely existence. Hard to keep onto people when you are off shore for long stretches of time, especially women. I had a highschool sweetheart, and I spent time dating after we broke up. But no one could stomach my proffession, and having me in exile so consistently. So I make due with my own company. Sure when you are at sea you make friends for life, no way you can’t under those circumstanses. The thing is just that most of these friends for life, you won’t ever see again. Everyone takes jobs when they can, and that means spending a lot of time on the same ship with different men. The men with families plan their scheduals around those families, staying true to whats important to them. And therefore often fly home when we port. It is different when you are a single man. Work can become an escape from your life. It can keep your mind off the things you really need, keep you from improving, from finding solutions, making changes. It can ocupy your mind even if that mind hungers desperately for change, seeking anything but that horrible doomed loneliness at sea. Still the work makes you stay, it takes away the energy you need to wonder, and find better things.
 
  
 
-The work that consumed my time on the waters was relatively simple. I did maintenance. Specifically for the stuff that had to work. Lights, sensors, engine control and so on. Anything where you would think an electrical signal resultet in the mechanical change of a system, I was the man you talked to. That made days simple, I had one tool that was always with me, a voltmeter. Wondering if current is passing through this wire? Simple as connecting to it and you will know. Making my rounds around the ship this way checking this and that, I was constantly running into the entire crew. We all knew each other well after no time at all, but from the perspective of others I get why I was always greeted with surprise. I knew where they where stationed, but they knew little of my rounds, or didn’t care to.
+The work that consumed my time on the waters was relativly simple. I did maintenance. Specifically for the stuff that had to work. Lights, sensors, engine control and so on. Anything where you would think an electrical signal resultet in the mechanical change of a system, I was the man you talked to. That made days simple, I had one tool that was always with me, a voltmeter. Wondering if current is passing through this wire? Simple as connecting to it and you will know. Making my rounds around the ship this way checking this and that, I was constantly running into the entire crew. We all knew each other well after no time at all, but from the perspective of others I get why I was always greeted with surprise. I knew where they where stationed, but they knew little of my rounds, or didn’t care to.
 
  
 
@@ -30,23 +30,27 @@ He gave out a small snicker.
 
  
 
-“As usual it’s just lose signals that are being tightened up. But you should be glad I’m not letting anyone in on how shitty our sonar is!”
+“As usual it’s just lose signals that are being tightened up. I think the big problem is behind us. But I promise I’ll take a long look at our sonar before we lay to port!”
 
  
 
-All ships have a sonar that helps measure the depth to the seafloor. It isn’t really useful when your at the middle of the ocean, like we where at this time. But it can be extraordinarily important when close to shore. And if you are like most normal people you probably havn’t thought about how a sound based system knows what is underneath you and what is at the sides of you. After all it is a wave that just propagates out to all sides, so how would you know what the echo was bounced of off?
+Setting of had been a real hassel. Our sonar wouldn’t work and it cut out right when we were navigating a underwater ridgeline. The captain had been yelling at me like a madman while I darted back and fourth trying to get everything in order.
 
  
 
-The reason why it works is answered by how it sounds. Multiple wavelengths of sound are emitted at once. The waves flow over each other creating interference. The image is then created by how these waves have changed when they come back. The waves spread out in 3d, and when the sound is bounced of an object all of the components, with different wavelengths, are shifted in relation to each other. Where there once was negativ interference there is now positive, and maybe, vice versa. Allowing you with some math to know what direction the return signal is coming from. Interference like this is crazy complicated.
-
-When interference is between two waves in head on collision it is relatively easy to understand. But when waves can spread between each other in 3d, or even 2d surfaces like an ocean, it immediately becomes very hard to grasp how they interact. But this complicated interaction is why sonar works, and simultaneously why ours wasn’t always able too.
-
-Because in some cases different wavelengths interact in such an unfortunate manner as to create spots of hyper enlarged magnitudes. Basically a single spot can be placed in a location where all waves peak together, right at that same intersection spot. Creating a wave of such intensity that it can fry the system, simply by being literal hundreds of times bigger than the equipment was ever designed to withstand. A rogue wave, as it is called. And it just so happens that our sonar has a tendency to create such waves much more frequently than you would expect.
+All ships have a sonar that maps the depth of the seafloor. It isn’t really useful when your at the middle of the ocean, like we where at this time. But it can be extraordinarily important when close to shore. And if you are like most normal people you probably havn’t thought about how a sound based system knows what is underneath you and what is at the sides of you. After all it is a wave, how would it know what the echo was bouncing of off?
 
  
 
-“Let me guess, it’s so bad as to basically be like going in blind?” I din’t answer Justin this time. Just looked at Mark as I went by them onto the next task.
+The reason why it works is answered by how it sounds. Multiple wavelengths of sound are emitted at once. The image is then created by how these waves have changed when they come back. When the sound is bounced of an object all of the different wavelengths, are shifted in relation to each other. Where there once was negativ interference there is now positive, and maybe, vice versa. Allowing you with some math to know what direction the return signal is coming from.
+
+When interference is between two waves in head on collision it is relatively easy to understand. But when waves spread between each other in 3d, or even 2d surfaces like an ocean, it immediately becomes very hard to grasp how they interact. But this complicated interaction is why sonar works, and simultaneously why ours wasn’t always able too.
+
+Because in some cases different wavelengths interact in such an unfortunate manner as to create spots of hyper enlarged magnitudes. A single spot can be placed in a location where all waves peak together in the same spot. Creating a wave of such intensity that it can fry the system, simply by being literal hundreds of times bigger than the equipment was ever designed to withstand. A rogue wave, as it is called. And it just so happens that our sonar has a tendency to create such waves much more frequently than you would expect.
+
+ 
+
+“Wouldn’t want that malfunction again. You have that under control next time right?” I din’t answer Justin this time. Just looked at Mark as I went by them onto the next task.
 
  
 
@@ -54,7 +58,7 @@ Because in some cases different wavelengths interact in such an unfortunate mann
 
  
 
-That evening we were all called in to eat together, which was a rare event. The captain chose to give us some bad news, in a nice setting. Not that the room was nice, just that company was. Imagine a ship and you will know what it looked like. Cramped, iron walls spray-painted with a thick layer of white-ish paint, fluorescent lights, tables mounted to the floor the feeling was like you had chosen to live with 15 other men in a floating prison. What a brutal proffesion.
+We were all called to eat dinner together in the evening, which was a rare event. The captain chose to give us some bad news, in a nice setting. Not that the room was nice, just that company was. Imagine a ship and you will know what it looked like. Cramped, iron walls spray-painted with a thick layer of white-ish paint, fluorescent lights, tables mounted to the floor the feeling was like you had chosen to live with 15 other men in a floating prison. What a brutal proffesion.
 
  
 
@@ -62,7 +66,7 @@ That evening we were all called in to eat together, which was a rare event. The 
 
  
 
-“and of cause that means dangerous waters” The weight of his words draped over us like a duvet. Just like any slumber party anything outside of it became a distant reality.
+“and of cause that means dangerous waters.” The weight of his words draped over us like a duvet. Just like any slumber party anything outside of it became a distant reality.
 
  
 
@@ -78,11 +82,11 @@ I broke the silence
 
  
 
-“sounds good cap” A few of the men said uncoordinatedly. Allowing his desperate plea to let his ignorance slip under the rug.
+“sounds good cap” A few of the men said uncoordinatedly. Allowing his desperate plea to let his ignorance of the hook.
 
  
 
-That night I dreamt terrible things. I dreamt that all of us was in the lifeboat. The ship slowly taking on water, we had managed to make an escape. But the lifeboat wouldn’t unlatch. With such a technical fault, I dreamt of the men arguing, to some degree violently. They where choosing a crew-member to unlatch it from the outside. Staying back with the cargo on the doomed vessel. And logically, at least to my dreaming mind, they chose me. I was the only one that knew how to operate the latching mechanism. And being forced to step out from the security of the life boat I watched Mark fight back against the group consensus. Landing backwards on the though metal of the cargo ship, I watched the men that threw me give way to an enormous version of Marks head. Marks head filling the entire doorway with his big teary eyes. As the ship started listing I got to my feet, a new directive being installed into my being. Survival was no longer an option. Only the ability to save my tribe remained. Saving Mark. Dreams are weird conglomerations of ideas. And I don’t know if we hugged but we definitely exchanged a deepfelt goodbye. And I grabbed the small pin keeping me from ridding the boat of it's shackles. Pushing the life boat of the ship I watched as I was ripped from existence by my own heroism.
+That night I dreamt terrible things. I dreamt that all of us were in the lifeboat. The ship slowly taking on water, we had managed to make an escape. But the lifeboat wouldn’t unlatch. With such a technical fault, I dreamt of the men arguing, to some degree violently. They where choosing a crew-member to unlatch it from the outside. Staying back with the cargo on the doomed vessel. And logically, at least to my dreaming mind, they chose me. I was the only one that knew how to operate the latching mechanism. And whilst being forced to step out from the security of the life boat I watched Mark fight back against the group consensus. I landed back first on the though metal of the cargo ship, I watched the men that threw me give way to an enormous version of Marks head. Marks head filling the entire doorway with his big teary eyes. As the ship started listing I got to my feet, a new directive being installed into my being. Survival was no longer an option. Only the ability to save my tribe remained. Saving Mark. Dreams are weird conglomerations of ideas. And I don’t know if we hugged but we definitely exchanged a deepfelt goodbye. And I grabbed the small pin keeping me from ridding the boat of it's shackles. Pushing the life boat of the ship I watched as I was ripped from existence by my own heroism.
 
  
 
@@ -150,13 +154,13 @@ The lifeboat hang at a fortfive degree angle of the side of the ship. It Was ora
 
  
 
-Taking a hand to the top of the door I put my foot onto the sloped floor. What a terrible design choice this was. Ducking into it I used one hand to grab seats on the way down to the control panel, the other hand tightly gripping my trusty voltmeter. Each step into the maw of it my movement became more and more fluid, whilst my anxiety in turn grew worse and worse.
+Taking a hand to the top of the door I put my foot onto the sloped floor. What a terrible design choice this was. Ducking into it I used one hand to grab seats on the way down to the control panel, the other hand tightly gripping my trusty voltmeter. Each step into the maw of it my movement became more and more fluid, whilst my anxiety in turn grew worse and worse. This was a very percarious situation and we were two people that could make a mistake.
 
-As I came closer to its control panel, I could see more and more ocean through the tiny, enforced windows. The waves were scattered across the ocean, like an ill commanded army their power was laughable. Given proper coordination they would have been capable of much greater feats than putting us of balance. I sat myself in the captain’s chair of the small tin.
+As I came closer to the lifeboats control panel, I could see more and more ocean through the tiny, enforced windows above it. The waves were scattered across the ocean, like an ill commanded army their power was laughable. Given proper coordination they would be capable of much greater feats than putting us of balance. I sat myself in the captain’s chair of the small tin.
 
  
 
-“Joshua you there?” I spoke with more nervousness that I thought I would. I wasn’t afraid of falling into the water. I was afraid the boat would fall into the water. Sure, I could get back on the ship. But the boat. Our only safety would be lost forever.
+“Joshua you there?” I spoke with more nervousness that I thought I would. I wasn’t afraid of falling into the water. I was afraid the boat would fall into the water. Sure, I could get back on the ship. But the boat. Our only safety would be lost forever. An unthinkable consequence, that must be avoided at all costs.
 
  
 
@@ -164,7 +168,7 @@ As I came closer to its control panel, I could see more and more ocean through t
 
  
 
-I popped the control panel. I looked for the wire that connected to the release button. It was in a cluster of wires that went to the door. This system had plenty of redundancy. Which was good, and unexpected honestly. Looks like my nightmare was unsubstantiated. But not checking the signal now would be silly. I placed my voltmeter on my lap and removed one of the measuring clamps. Slowly I extended my hand and put the clamp to just one of the release wires. Once in place I retracted my hand and went for the next clamp on the device. Reaching forward I put the other clamp on the same wire, completing the circuit.
+I popped the control panel. I looked for the wire that connected to the release button. It was in a cluster of wires that went to the door. This system had plenty of redundancy. Which was good, and unexpected honestly. Looks like my nightmare was unsubstantiated. But not checking the signal now would be silly. I placed my voltmeter on my lap and removed only one of the measuring clamps. Slowly I extended my hand and put the clamp to just one of the release wires. Once in place I retracted my hand and went for the next clamp on the device. Shaking and moving slowly, filled with nervousness as the moment of truth came closer. Reaching forward I put the other clamp on the same wire, completing the circuit.
 
  
 
@@ -196,7 +200,7 @@ Leaning down I went to take away one of the clamps. But Joshua interrupted me.
 
  
 
-I looked out the small window in front of me. The ocean was full of smaller yet dangerous waves travelling incoherently. But a pattern had emerged from their movement. And one peak had formed to such enormous mass that it began towering over the ship. A rogue wave had formed, and we were going to be hit. I went into shock. Everything slowed down. Watching that wave grow. Every gut-wrenching moment vividly detailed.
+I looked out the small window in front of me. The ocean was full of smaller yet dangerous waves travelling incoherently. But a pattern had emerged from their movement. And one peak had formed to such enormous mass that it began towering over the ship. A rogue wave had formed, and it was going to hit our ship. I went into shock. Everything slowed down. Watching that wave grow. Every gut-wrenching moment vividly detailed.
 
 First was the rain. The wind blew of the water from the top of the skyscraper wave and showered the ship in heavy downpour. This is when I remember the horn sounding. A useless attempt at a warning. The next I remember was feeling our enormous cargo ship being lifted out of the water with a dizzying speed and ease. The rogue wave rolling us over. I felt my body being accelerated by gravity with my back first into the seat, a direction I hadn’t expected gravity to pull. Looking back towards Joshua I hoped he had made it into the lifeboat with me. Only to see him being swept of his feet plummeting toward a background of blue, that I couldn’t determine if was ocean or sky.
 
@@ -216,4 +220,8 @@ Reaching the control panel I used my good arm to do everything. And with the mot
 
 I was sailing blind. Only guided by the sounds of doom. Sounds that only way to slowly shifted from from around me, to besides me and finally to behind me. I had escaped. 
 
+ 
+
 Days later I was picked up as the only surviver. Many ships go down like this every year. Rogue waves are not a myth. They do happen. And you just have to pray, that it won’t be close to you.
+
+ 
