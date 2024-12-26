@@ -1,5 +1,7 @@
 [Part One](https://www.reddit.com/r/nosleep/comments/1hckrvo/something_outside_the_kitchen_window_is_watching/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  
+  
 \- - -  
+  
 I barely got a wink of sleep that night, sitting on the floor like a dog waiting for its owner, I was aware of how crazy I seemed. My gaze never wavered from the thin strip of light under the hardwood door, fixated on every subtle shift of shadow that passed through the faint glow. The steps moved almost deliberately mundane—undoubtedly walking by, feigning domesticity as whatever was outside walked around the hall as if they had owned the place.
 
 I thought I was going insane, whatever lurked and waited for me behind that door, knew I was watching it, just as much as it was watching me.
@@ -247,3 +249,7 @@ With my knuckles repeatedly thumping on the hardwood planes of the mahogany door
 *- - -*
 
 End of **Part Two**
+
+\- - -
+
+[Part Three](https://www.reddit.com/r/nosleep/comments/1hmzo4y/something_outside_the_kitchen_window_is_watching/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

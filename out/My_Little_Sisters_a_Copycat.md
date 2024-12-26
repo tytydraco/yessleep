@@ -4,7 +4,7 @@ I (18F) have a little sister, "C" (16).
 
 We've always been close, but as of late, she's begun to look like me. It started off small, just a matching hairstyle and similar outfit. Nothing too strange. About two or three months ago, she started doing makeup the same way as me. Imagine thinking you're alone when all of the sudden, you catch a glimpse of a pale face staring at you, eyes wide and lips parted as if dead or something.
 
-I screamed a bit and accidentally slammed the door shut, and Cynthia slinked into the room a minute later and apologized half-heartedly. She wanted a hug, but I was still shaken and turned her down a bit too rudely. I remember that she looked upset and stormed out, but I didn't go after her. Later on, I drove her to the mall as my own apology, and I thought she had forgiven me. I should have known better.
+I screamed a bit and accidentally slammed the door shut, and C slinked into the room a minute later and apologized half-heartedly. She wanted a hug, but I was still shaken and turned her down a bit too rudely. I remember that she looked upset and stormed out, but I didn't go after her. Later on, I drove her to the mall as another apology, and I thought she had forgiven me. I should have known better.
 
 I woke up that night to her in my bed and wearing one of my nightgowns, and she had moved me to the floor. That was a bizarre experience, I won't lie. When I tried waking her up, she told me, "Go back to bed, (my nickname for her)." Annoyed, I picked her up and dumped her onto her bed before slamming the door behind me. When I asked her about it the next morning, she just laughed it off and throw the tissue box at my head. (That's a common occurrence).
 
