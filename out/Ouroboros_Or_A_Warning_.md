@@ -48,7 +48,7 @@ From my perspective, this grand tableau was a play on the legend of Ouroboros - 
 
 After a minute of deafening silence, Sam finally inhaled, preparing to say something. Hope nestled into my heart, crackling like tiny embers. Those embers quickly cooled when he sputtered out an answer:
 
-”*I…I think it’s a warning*” “
+”*I…I think it’s a warning*” 
 
 I paused and waited for more - a further explanation of what he meant by the piece being a “warning”, or maybe more elaboration on why it made him uncomfortable.
 
@@ -276,7 +276,7 @@ Carefully, I snapped a photo of the newly mesmerizing display.
 
 Peering over the last stair, I could see Nora laid still, with the rising dawn now illuminating her cadaver. Yellow light revealed that her dying grin had become painted onto her in death.
 
-I took to time to study the expression. It was intricate - the nuances were almost hypnotic. Reflexively, I mirrored her grin, painting it on myself in solidarity. A fake expression that hid the real one underneath.
+I took some time to study the expression. It was intricate - the nuances were almost hypnotic. Reflexively, I mirrored her grin, painting it on myself in solidarity. A fake expression that hid the real one underneath.
 
 Waving the polaroid, I started towards the hill that led down to the lake and to Nora.
 
