@@ -1,10 +1,10 @@
 The call came on a Wednesday night, just after nine. I remember because the clock on my microwave blinked “9:03” in green LED lights when I heard my phone buzzing on the counter. I was halfway through reheating leftover pizza—a rare indulgence ever since I’d sworn off takeout in the name of "self-improvement." 
 
-Seeing her name on the screen sent something awful through me. I hadn’t heard from Sophie in three days—not since our fight about, well, everything. Work. Money. Free time. I didn’t blame her for being tired of me. Most days, I was tired of me too.
+Seeing her name on the screen sent something awful through me. I hadn’t heard from Sophie in three days—not since our fight about, well, everything. Work. Money. Free time. Faith. I didn’t blame her for being tired of me. Most days, I was tired of me too.
 
-I hesitated before answering. “Hey,” I said, trying to sound casual. I tried acting as if I wasn’t dreading this moment.
+I hesitated before answering. “Hey,” I said, trying to sound casual. I tried acting as if I wasn’t dreading that call.
 
-There was a pause. Not a good one. The kind where you know the person on the other end is carefully choosing their words.
+There was a pause. Not a good one. The kind where you know the person on the other end is carefully choosing their next words.
 
 “Hi, Michael,” she finally said. Her voice sounded small, tired. “Can we talk?”
 
@@ -22,11 +22,11 @@ The words hit me like a punch to the gut. “What do you mean? Sophie, come on, 
 
 “I’m trying,” I said, my voice losing itself. “I love you.”
 
-“I love you too,” she said, and that was the worst part. Because I could hear the finality in her voice, the resignation. “But love isn’t enough.”
+“I love you too,” she said, and that was the worst part. Because I could hear the finality in her voice, the resignation. “But I'm not the one who can save you. You need a foundation that's stronger than I can be.”
 
-I wanted to argue, to beg her to reconsider. Instead, I just stood there, gripping the phone like it was the only thing keeping me upright.
+I wanted to argue, to beg her to reconsider. Instead, I just stood there, gripping the phone like it was the only thing keeping me standing.
 
-“I hope you find peace, Michael,” she said after a long silence. “I really do.”
+“I hope you find peace, Michael,” she said after a long silence. “I really do, I'll be praying for you to get the help you need.”
 
 Then the line went dead.
 
@@ -34,9 +34,9 @@ I don’t remember hanging up. I don’t remember the pizza burning in the micro
 
 My sponsor would have had a field day if he had seen me. “A safety net is just a noose with extra steps,” he’d say. But I’d always been too afraid to get rid of it, just like I’d been too afraid to open it—until now.
 
-My hand trembled as I reached for the bottle. The glass felt cool against my palm, almost soothing. I turned it over, the amber liquid sloshing inside. For a second, I thought about Sophie’s voice, the way it cracked when she said goodbye. I thought about the 137 days I’d fought to claw my way out of the hole I’d spent years digging for myself.
+My hand trembled as I reached for the bottle. The glass felt cool against my palm, almost soothing. I turned it over, the amber liquid sloshing inside. For a second, I thought about Sophie’s voice, the way it cracked when she said goodbye. I thought about the 137 days I’d fought to claw my way out of the hole I’d spent years digging myself into. I though of every prayer my AA group forced me to say. About every time Sophie had dragged me to church. I hated it all. I hated that I wasn't fixed. I hated that I didn't feel saved. I hated that—
 
-And then... I don’t know. Something shifted. One second I was in my kitchen, staring down the edge of a decision I wasn’t ready to make. The next, I was sitting in a plush leather chair, the smell of cigar smoke and bourbon heavy in the air.
+And then... Something shifted. One second I was in my kitchen, staring down the edge of a decision I wasn’t ready to make. The next, I was sitting in a plush leather chair, the smell of cigar smoke and bourbon heavy in the air.
 
 The bottle was gone. The kitchen was gone. All around me was the hum of jazz and the low murmur of voices.
 
@@ -66,7 +66,7 @@ My stomach churned. “How do you know that?”
 
 He leaned forward, planting his elbows on the bar and resting his chin on his interlocked fingers. His eyes—dark and sharp—met mine, and for a moment, I couldn’t look away. “Let’s just say I know a man at a crossroads when I see one.”
 
-I forced myself to break eye contact, glancing at the drink menu lying on the bar. There were no prices listed*.* My throat was dry, and I found myself licking my lips.
+I forced myself to break eye contact, glancing at the drink menu lying on the bar. There were no prices listed\*.\* My throat was dry, and I found myself licking my lips.
 
 “I don’t want a drink,” I said firmly, pushing the menu away.
 
@@ -322,7 +322,7 @@ I pushed myself up from the door, my legs shaking but holding me steady. “You 
 
 The bartender’s grin returned, but it was tighter now, less confident. “And what else are you, Michael? Hmm? Look at yourself.” He gestured to the TV, where my drunken double stumbled and slurred. “You think you’re better than this? You think you’re strong enough to fight it?”
 
-I took a step forward, my fists still clenched. “I know I’m not strong enough,” I admitted, my voice raw. “But I know one other thing—I’ve still got faith.”
+I took a step forward, my fists still clenched. “I know I’m not strong enough,” I admitted, my voice raw. “But I know one other thing—I’ve still got faith. Even if that's the last gift Sophie ever gives me, I'm not who I was before I met her.”
 
 Lydia’s smile twisted into a snarl, her perfect features warping into something cruel and inhuman. “You think you can run from this? From us?”
 
@@ -353,5 +353,3 @@ I set the bottle down on the counter and turned away, my legs weak but steady. T
 Almost every night I can still hear the sounds of that bar in my head. I can still hear the bartender coaching me forward. But I know I’m not the only one saying no. I’m not the only one putting up a fight.
 
 The devil’s going to call us all to his Rag and Bone Shop, but just keep saying no. Whatever you order from that bar is going to follow you to the grave.
-
-  
