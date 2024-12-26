@@ -130,7 +130,7 @@ I pulled the gun out I had tucked in the back lining of my jeans. The figure was
 
 I sighed in relief as I went up to the window, pulling back the dresser that covered it and peaked outside to see Kane was nowhere to be found, I knew I hit him because I could see liquid all over the porch, but it wasn’t blood, it was more like a disgusting black sludge with the viscosity of honey. That’s when I saw a bird coming straight for the window, I tried to push the dresser in front of the window but it was too late, Kane had already crashed through the window. 
 
-I couldn't look away as Kan, or whatever had possessed Kane, began to change. The transformation was like watching every horror movie I'd ever seen, compressed into thirty seconds. His feathers thinned and melted away, each one dissolving like candle wax as his body stretched and swelled to human size. 
+I couldn't look away as Kane, or whatever had possessed Kane, began to change. The transformation was like watching every horror movie I'd ever seen, compressed into thirty seconds. His feathers thinned and melted away, each one dissolving like candle wax as his body stretched and swelled to human size. 
 
 The worst part was the sound: the wet snap of wings twisting into arms, bones crackling like kindling in a fire as they forced themselves into new positions. When the teeth burst through his beak, they didn't just appear. They ripped through like nails through rubber, bringing waves of thick, black ooze that dripped between them. By the time it was over, and everything looked normal again, I'd forgotten how to breathe.
 
