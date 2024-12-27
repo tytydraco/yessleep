@@ -241,3 +241,7 @@ As she grew older and older, though, the girl felt the elementals pulling away f
 A scream.  A child’s scream.
 
 I bolted upright in bed. 
+
+\*\*\*\*\*
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1hnmkqg/save_the_children_part_3/)
