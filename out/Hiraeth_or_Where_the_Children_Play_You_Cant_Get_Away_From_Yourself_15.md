@@ -1,4 +1,4 @@
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/u3Jz53cGLw)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/u3Jz53cGLw)/[Next](https://www.reddit.com/r/nosleep/comments/1hnpuzo/hiraeth_or_where_the_children_play_it_dont_rain/)
 
 There’s a place for mourning, but I’ve never known it long enough for comforting myself—the girl wanted to cry and I could scarcely move and when I did work the courage to exercise my muscles, I found the task possibly too great but eventually leveled myself into a sitting position; I was burned badly—the skin of my body up the left side of my body stung like hell and my jacket remained on me only by fate because it was so burned through that it hung off me like a dry heavy rag. The left side of my face didn’t feel right, and I didn’t dare to ask the mourning girl what damage there was.
 
@@ -277,4 +277,4 @@ I drove into the morning, across Poplar Bridge, over the dead Mississippi. Towar
 Loneliness had once been an ally—we’d become foreigners. With nothing more than the hum of the carriage and my own company, I became deranged beyond anything before. 
 
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/u3Jz53cGLw)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/s/u3Jz53cGLw)/[Next](https://www.reddit.com/r/nosleep/comments/1hnpuzo/hiraeth_or_where_the_children_play_it_dont_rain/)

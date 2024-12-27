@@ -75,3 +75,5 @@ As it arrived at my workplace, I could perceive everyone acknowledge it.
 “I am a fast healer,” it replied. “Shall we have a meeting? I want to continue where I left off.”
 
 I screamed internally, knowing that no one could hear me. My colleagues smiled and nodded, oblivious to the horror that had taken my place. I was trapped, a prisoner in my own body, watching helplessly as it lived my life.
+
+[Part 3 - A Momentary Lapse](https://www.reddit.com/r/nosleep/comments/1hnq5d8/a_momentary_lapse/)
