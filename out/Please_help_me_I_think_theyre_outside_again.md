@@ -105,3 +105,5 @@ And Max… God, Max. If you’re out there, I’m so sorry, buddy. I don’t thi
 Please, someone. Anyone. Please respond. Please, I can’t be the only one seeing this, stuck in this nightmare. There has to be someone else out there. Please. I need to know I’m not alone. Please.
 
 I’ll try to post an update if the fog clears or if help shows up. If you don’t hear from me, it means whatever that thing is came back and got in.
+
+[part 2](https://www.reddit.com/r/nosleep/comments/1hnd6hs/please_help_me_i_think_theyre_outside_again/)
