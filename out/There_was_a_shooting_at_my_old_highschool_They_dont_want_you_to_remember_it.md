@@ -1,8 +1,8 @@
-I’ll never forget March 3, 2017. To most people, it’s just a random day, but for me, it’s a wound that won’t stop bleeding. That’s the day seventeen people lost their lives in Oklatogey, Oklahoma, thanks to James Rekson, the shooter. He didn’t leave anyone alive. After taking so many innocent lives, he ended it all by turning the gun on himself. I still see his face sometimes, in my nightmares—completely blank, like he had already accepted what he was about to do, like it was just part of his plan.
+I’ll never forget March 3, 2017. To most people, it’s just a random day, but for me, it’s a wound that won’t stop bleeding. That’s the day seventeen people lost their lives in Oklatogey, Oklahoma, thanks to James Rekson, the shooter. He didn’t leave anyone alive. After taking so many innocent lives, he ended it all by turning the gun on himself. I still see his face sometimes, in my nightmares, completely blank, like he had already accepted what he was about to do, like it was just part of his plan.
 
 But the thing that haunts me the most isn’t just the shooting itself it’s everything that happened after. Or rather, what didn’t.
 
-James Rekson filmed the whole thing. Hundreds of us saw it, either live or on the internet hours later. His manifesto, a twisted, rambling 37-page document, was spread around. He explained, in disturbing detail, what led him to that point. But then, just like that, it was gone. Every trace of it. The stream, the manifesto, everything. Vanished without a trace. No clips. No screenshots. Not even a whisper on the dark web.
+James Rekson filmed the whole thing. Hundreds of us saw it, either live or on the internet hours later. His manifesto, a twisted, rambling 37 page document, was spread around. He explained, in disturbing detail, what led him to that point. But then, just like that, it was gone. Every trace of it. The stream, the manifesto, everything. Vanished without a trace. No clips. No screenshots. Not even a whisper on the dark web.
 
 At first, I thought it was just the world trying to forget. People didn’t want to remember. But now I know better.
 
@@ -32,7 +32,7 @@ Inside, the smell of mildew hit me. The man sat down at a cluttered desk and ges
 
 I didn’t understand what he meant, but he opened two files on the laptop, one labeled Manifesto.pdf, the other Livestream.mp4.
 
-“Watch this,” he said, double-clicking the video.
+“Watch this,” he said, double clicking the video.
 
 The screen flickered, and there it was. The cafeteria. The screams. The chaos. James Rekson walked through the halls, narrating his actions in a cold, detached voice. It was worse than I remembered.
 
@@ -44,7 +44,7 @@ I pulled out my phone, hands trembling, and started recording. The video continu
 
 And then, it happened.
 
-The laptop flickered again. The video disappeared. My phone shut off mid-recording. When I turned it back on, the video was gone.
+The laptop flickered again. The video disappeared. My phone shut off mid recording. When I turned it back on, the video was gone.
 
 The man slammed his fist on the desk, cursing under his breath. “They’re onto us. You need to leave. Now.”
 
