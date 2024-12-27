@@ -186,7 +186,7 @@ He had only reached the twenty-seventh floor when the cacophony became unbearabl
 
 ————————————
 
-All sense of self-preservation erased and overwritten by the need for the knocking to abate, Nathan Suthering rocketed headfirst into the miasma of his bedroom. Guided by the dim light of his phone screen, he located where he stood before, but the knocking did not cease this time. He moved a few steps closer, but still, the knocking did not cease. With no more space between himself and the window, he pressed his face against the glass, looking to where the street should be, and the knocking finally lifted and dissolved into the ether.
+With all sense of self-preservation erased and overwritten by the need for the knocking to abate, Nathan rocketed headfirst into the miasma of his bedroom. Guided by the dim light of his phone screen, he located where he stood before, but the knocking did not cease this time. He moved a few steps closer, but still, the knocking did not cease. With no more space between himself and the window, he pressed his face against the glass, looking to where the street should be, and the knocking finally lifted and dissolved into the ether.
 
 The relief, again, was short-lived.
 
@@ -198,7 +198,7 @@ Their mouths were that of a lamprey’s, gaping and circular, asymmetric teeth l
 
 Their eyes were compound and honeycombed like that of a fly or a praying mantis.
 
-Thousands of these abominations all stared up at Nathan Suthering, waiting. Finally, a chime sounded from an unknown location, and one of their numbers was lifted above the crowd onto their shoulders. The myriad slowly turned away from Nathan and towards the chosen one, and in horrific synchrony, they descended on that chosen one and viciously severed them into innumerable fleshy pieces. The creatures close enough to the carnage greedily filled their gullets with the remains. They inserted meat into their cavernous mouths, but they would not chew. Instead, the circles of teeth would spin and rotate, flaying and deconstructing the tissue until it could slide gently into their throats.
+Thousands of these abominations all stared up at Nathan, waiting. Finally, a chime sounded from an unknown location, and one of their numbers was lifted above the crowd onto their shoulders. The myriad slowly turned away from Nathan and towards the chosen one, and in horrific synchrony, they descended on that chosen one and viciously severed them into innumerable fleshy pieces. The creatures close enough to the carnage greedily filled their gullets with the remains. They inserted meat into their cavernous mouths, but they would not chew. Instead, the circles of teeth would spin and rotate, flaying and deconstructing the tissue until it could slide gently into their throats.
 
 The vision and the accompanying soundscape were mind-shattering, and Nathan drew his head back and closed his eyes. As soon as he did so, the knocking would resume at peak intensity, debilitating pressure finding home again in his skull. The pain would cause him to open his eyes and place his face against the glass to once again bear witness to whatever infernal rite was occurring on the ground below. The horrors would gaze up at him, patiently awaiting another chime to sound and signal sacrifice. When it did, he would watch the bloodletting until he could no longer, and then the knocking would find purchase in him again.
 
