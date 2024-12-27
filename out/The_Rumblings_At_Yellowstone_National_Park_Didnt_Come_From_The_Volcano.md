@@ -56,7 +56,7 @@ Something didn't feel right and I was beginning to regret this decision. Thought
 
 As I thought this, I broke through the tree line and froze, my hand gripping the handle breaks so tightly and fast that I almost flipped over the bike
 
-Right in front of me, was a dead bison. A large dead bison, completely ripped apart. I've seen kills from wolves before, but this wasn't anything like what a normal animal could do. The lower half of the bison was gone, indulging bits of the front, like it was feasted upon by dozens of animals. But the ground was still wet with blood. Flies buzzed about the corpse, bits of what little organs it had left stretched out of the torso, the bull's face in a state of shock.
+Right in front of me, was a dead bison. A large dead bison, completely ripped apart. I've seen kills from wolves before, but this wasn't anything like what a normal animal could do. The lower half of the bison was gone, including bits of the front, like it was feasted upon by dozens of animals. But the ground was still wet with blood. Flies buzzed about the corpse, bits of what little organs it had left stretched out of the torso, the bull's face in a state of shock.
 
 I felt sick rising in my throat and I gagged in-between my ragged breaths as I stared in horror. A cold sweat washed down my face and I pulled at my collar that felt tight around my neck, trying to wrap my head around this and I began to question what could have possibly done this?
 
@@ -116,9 +116,9 @@ The crisp air filled my lungs and senses, the tension in my muscles loosening an
 
 I suddenly felt very uneasy and I didn't want to be out here anymore. I gulped and turned to my left to walk back inside, but as I faced that direction, I felt every cell in my body explode with panic and my blood ran cold.
 
-Like a wrath, something had snuck up to stand a few long strides away from me, likely emerging from the trees behind the cabin, walked past the building and stopped to look down upon me.
+Like a wraith, something had snuck up to stand a few long strides away, likely emerging from the trees behind the cabin, walked past the building and stopped to look down upon me.
 
-Standing barely a few meters away, looming over me and the cabin with its great mass, was a long thought dead animal. It was insane and incompressible to believe to be true, but it was.
+Standing still, looming over me and the cabin with its great mass, was a long thought dead animal. It was insane and incompressible to believe to be true, but it was.
 
 A T Rex. A full grown, gigantic, Tyrannosaurus Rex. Four meters or more at the hip, thirteen meters from nose to tail and if I were to bet, ten or likely more tons in weight. The body was dark brown, the top of the animal's neck, back and tail a thick black and even in the lowlight of the setting sun, I could see orange and tan colours on its massive head. 
 
@@ -128,15 +128,15 @@ I stood there in shock, fear and awe, feeling like a mortal in the face of a god
 
 I backed away from the door, my eyes darting over to the window and I gasped out a squeak.
 
-The T Rex had walked up to the window and bowed its head to peer into the window, its eyes piercing into mine and I backed away from the window and pressed my head to the wall. It continued to look at me, tilting its head curiously, and I could see the intelligence in its eyes. A gleam of sentience that reflected my own, its pupils a black pool that carried memories of another world, far different than mine 
+The T Rex had walked up to the window and bowed its head to peer into the cabin, its eyes piercing into mine and I backed away from the window and pressed my head to the wall. It continued to look at me, tilting its head curiously, and I could see the intelligence in its eyes. A gleam of sentience that reflected my own, its pupils a black pool that carried memories of another world, far different than mine 
 
 It sniffed deeply and opened its mouth, breathing on the glass and fogging it up. 
 
-But even through the condensation, I could still see its huge, sharp and serrated teeth. They were long, sharp and teeth like railroad spikes, the sight of them making my heart tighten in my chest and I wanted to puke when I imagined what they could do to me. 
+But even through the condensation, I could still see its huge, sharp and serrated teeth. They were long, sharp,  like railroad spikes, the sight of them making my heart tighten in my chest and I wanted to puke when I imagined what they could do to me. The Rex could easily smash through the cabin and devour me in one bite of it wanted, and I couldn't tell if it did or not.
 
 The T Rex continued to stare at me before it raised its head and left, the room brightening up now that the sun wasn't blocked out by a colossal predator.
 
-I was still clinging to the wall for dear life as it made a sound, a deep hum that vibrated my body like a rumble. And just as I realised the source of that rumbling came from the dinosaur and this was what killed the bison, the sound escalated into a long, drawn out bellow, louder than a wolf howl, than a bear roar, louder than anything. The sound from an ancient world punched me in the chest and my knees collapsed and I curled up into a ball.
+I was still clinging to the wall for dear life as it made a sound, a deep hum that vibrated my body like a rumble. And just as I realised the source of that rumbling came from the dinosaur and this was what killed the bison, the sound escalated into a long, drawn out bellow. Louder than a wolf howl, than a bear roar, louder than anything. The sound from an ancient world punched me in the chest and my knees collapsed and I curled up into a ball.
 
 As the bellow ended and echoed out, Bob burst from the room in his pajamas and asked me what the hell was going on.
 

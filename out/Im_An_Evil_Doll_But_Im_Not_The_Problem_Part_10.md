@@ -366,3 +366,8 @@ And that’s where things stand. Staring down a supernatural siege, with nothing
 Let me know your ideas in the comments. 
 
 Punch. 
+
+
+Looks like someone else has something to add
+
+https://www.reddit.com/r/nosleep/s/SVIf0gOdh2
