@@ -49,5 +49,3 @@ Then, suddenly, a gunshot echoed from Mrs. Watson’s room.
 
 Frozen in terror, I listened as footsteps—heavy and deliberate—approached Zack’s room.
 
-  
-if you liked this also cheack out my yt channel it goes by the name priyank khadse
