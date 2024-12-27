@@ -106,7 +106,7 @@ I'm writing this as I'm sprinting back to my house, my heart racing with every s
 
 I just made it into the house, barricading the windows and door with every piece of furniture I could find. I'm standing facing the door, waiting for whatever is coming next. I can hear a light pitter-patter trail from the front of the porch to the front door, and I know I'm running out of time.
 
-I barricaded the windows as best I could, and the door with every piece of furniture I could. Luckily my mom was at work and my sister was at school so they were safe and didn’t have to watch me go into a psychotic episode. I stood facing the door for what felt like hours although it was probably only ten minutes until I heard a light pitter patter trial from the front of the porch to the front door. 
+Luckily my mom was at work and my sister was at school so they were safe and didn’t have to watch me go into a psychotic episode. 
 
 A shadow materialized, Kane's silhouette. But my mother's voice drifted through the door, sweet as honey and wrong as a nightmare. "Sweetie, I'm home early from work. Let me in." The doorknob rattled, each tiny movement like thunder in my ears.
 
