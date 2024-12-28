@@ -1,8 +1,8 @@
 "Slitherskin. The Slitherskin is coming."
 
-Those words were the only warning for the nightmare that would be coming for me. But they were muttered to me by someone I didn't know, someone I didn't trust, someone who was a stranger, and so I hadn't listened to them. God, how I wished I would have listened.
+Those words were the only warning for what would be coming for me. But they were muttered to me by someone I didn't know, someone I didn't trust, someone who was a stranger, and so I hadn't listened to them. God, how I wished I would have listened.
 
-For as long as I'd been working at my job, I had taken the same route home from the office. Ride the subway, get off five stops later at the station that was only a ten minute walk away from my house. From there, I could enjoy the stroll home and be back inside by 6:30. I had walked that same route almost every day for the last five years, knew every turn by memory, knew most of the folks that lived along the road. It was a nice neighborhood, with trees lining the road and vintage style streetlamps that illuminated the walk on darker evenings, evenings like the one where I met him.
+For as long as I'd been working at my job, I had taken the same route home from the office. Ride the subway, get off five stops later at the station that was only a ten-minute walk away from my house. From there, I could enjoy the stroll home and be back inside by 6:30. I had walked that same route almost every day for the last five years, knew every turn by memory, knew most of the folks that lived along the road. It was a nice neighborhood, with trees lining the road and vintage style streetlamps that illuminated the walk on darker evenings, evenings like the one where I met him.
 
 From the moment I got off the train I knew a storm was blowing in. Wind rustled through the trees, making their branches shake as if they weighed nothing. Dark clouds obscured any signs of the sunset, and already, low rumblings of thunder echoed around me as I quickened my pace down the sidewalk. I hadn't brought an umbrella, and I could tell that I was about to get soaked.
 
@@ -20,13 +20,13 @@ It was just gibberish to me, and I was getting more convinced that he was either
 
 "No, I'm not. It's coming for me," he hissed back in almost a whisper. "It's coming for me, and it'll be coming for you. Don't let it touch you, stay in the light. Don't let it touch you!"
 
-His voice had gotten louder and more hysterical with each word, and as he finished speaking, he turned and started to sprint away, or at least, as close to a sprint as he could manage with that bad leg. I watched him turn out of sight down a side street, feeling confused and a little worried for the guy. 
+His voice had gotten louder and more hysterical with each word, and as he finished speaking, he turned and started to sprint away, or at least, as close to a sprint as he could manage with that bad leg. I watched him turn out of sight down a side street, feeling confused and a little worried for the guy.
 
 But after a minute of trying to understand what he had meant (and failing), I turned back towards home and I didn't give the man another thought. Neither did I think much of the trickle of blood he had left on the sidewalk leading towards where he had gone. But after that odd beginning to my walk, the rest of it passed without incident. Although, I did think I heard something that sounded almost like the distant sound of a rattlesnake's rattle far away, but it was only brief and like I said before, the man's words had only been gibberish to me. I ignored them. I ignored him.
 
 Slitherskin.
 
-I managed to get into my house about a minute before the storm began. The thunder was almost deafening as rain came down in sheets, and the hallway lights kept flickering on and off as I took off my coat. Most of the house was dark, and as I walked through the living room and dining room, I called out to see if my wife was home. 
+I managed to get into my house about a minute before the storm began. The thunder was almost deafening as rain came down in sheets, and the hallway lights kept flickering on and off as I took off my coat. Most of the house was dark, and as I walked through the living room and dining room, I called out to see if my wife was home.
 
 "Anna? Are you upstairs?"
 
@@ -54,11 +54,11 @@ I never changed out of my clothes last night. I never put anything on that chair
 
 As panic started to take over my body, I reached for my phone on the bedside table and fumbled around for a few seconds before finally grabbing hold of it. Frantically, I shook it to activate the flashlight feature, wincing as bright light filled the room, and pointed it at the chair, terrified for whatever I’d see- and I saw nothing. The chair was normal, and there was nothing on it.
 
-That was when I saw something move on the ground. At first I thought it was just old clothes in a pile from a previous day, but what I thought had to be cloth was slowly moving, no, slowly *seething* towards the edge of the door. I stared at it for a moment, not quite understanding what I was seeing, and then it clicked in a moment of horrible realization. Writhing away from me, like some kind of snake, was a disgusting thin pile of… skin. I only caught a glimpse of it, but it looked like a flattened human being, with the same shape as a body, but loose and thin and hollow. It was as if a skeleton had ripped off all its skin and muscles and left them on my floor. 
+That was when I saw something move on the ground. At first I thought it was just old clothes in a pile from a previous day, but what I thought had to be cloth was slowly moving, no, slowly *seething* towards the edge of the door. I stared at it for a moment, not quite understanding what I was seeing, and then it clicked in a moment of horrible realization. Writhing away from me, like some kind of snake, was a disgusting thin pile of… skin. I only caught a glimpse of it, but it looked like a flattened human being, with the same shape as a body, but loose and thin and hollow. It was as if a skeleton had ripped off all its skin and muscles and left them on my floor.
 
 And as it slid away, faster than anything should move, I heard the same unmistakable sound, like a rattlesnake's rattle.
 
-Then the moment was gone and the thing slid under my bedroom door and out of sight into the hallway. It wasn't until it was gone that I realized just how much my heart had been racing. How cold I had suddenly gotten. How dry my mouth had gone. I tried to swallow and calm my panicked thoughts that were taking off almost before I could stop them, trying to rationalize away what my own eyes had seen, but in the back of my mind I knew that there was no dismissing what had just happened. 
+Then the moment was gone and the thing slid under my bedroom door and out of sight into the hallway. It wasn't until it was gone that I realized just how much my heart had been racing. How cold I had suddenly gotten. How dry my mouth had gone. I tried to swallow and calm my panicked thoughts that were taking off almost before I could stop them, trying to rationalize away what my own eyes had seen, but in the back of my mind I knew that there was no dismissing what had just happened.
 
 *"The Slitherskin is coming."*
 
@@ -74,13 +74,13 @@ At first glance, everything seemed fine in the dim light of the room. Anna was s
 
 Lightening flashed as I stepped forward, flooding the room in bright white light for an instant, and I stopped in my tracks. The body, the outline of the shape standing in front of me, had clearly been my wife. But the naked body standing in front of me was not her. The face I saw on her head was not Anna's. It looked as if someone had draped another skin over her's, one that didn't quite hang right on her bones. The skin pulsated and squirmed on her ever so subtly, moving ever so slightly along her body as it tried to… to bond with her, I think.
 
-But the worst part was her face, or rather Jack's face. Because that was who it was. Jack's face, pale and greasy and foreign hung on her in a way that reminded me of a Halloween silicone mask. But underneath it, behind the pale skin and the drooping cheeks, were my Anna's eyes. Brown eyes. Eyes staring at me that quivered in agony, that pleaded in sorrow, that pierced with terror. 
+But the worst part was her face, or rather Jack's face. Because that was who it was. Jack's face, pale and greasy and foreign hung on her in a way that reminded me of a Halloween silicone mask. But underneath it, behind the pale skin and the drooping cheeks, were my Anna's eyes. Brown eyes. Eyes staring at me that quivered in agony, that pleaded in sorrow, that pierced with terror.
 
 The skin was stuck to her. Bonding to her. Feeding from her.
 
 Then the light was gone, and when the thunder cracked a second after, her screams shattered my heart. I wanted to step forward, to do something to stop it, but I found myself unable to move. My feet felt sluggish, my head pounded, and my heart was racing. We all like to believe that we're the heroes, that we'll do anything when faced with danger. But when I was put to the test, I found out that I was a coward. I couldn't move.
 
-In a few seconds I managed to turn my flashlight back on as she stopped screaming, and when I did, I felt a rise of nausea surge its way up into my throat. On the floor around where she stood was a pile of… for lack of a better word, *meat*. Bloody bones and organs and muscle lay clumped up on the floor around her feet, as if the creature had taken what it wanted and discarded the rest of her body. And when I looked up at her, I no longer saw the other man's skin fused to hers. Instead, her skin, her face, everything was her again, but twisted. Changed. Her whole body sagged the way a balloon does when it's deflating. Her face looked hollow and pale and somehow wrong in every way. And when I looked into her eyes, praying to see something of her left in them, I saw nothing but blackness in the eye sockets. No eyes. No Anna. Just an empty shell that tilted its head at me as I looked at it, and that damn, ever-present rattling.
+In a few seconds I managed to turn my flashlight back on as she stopped screaming, and when I did, I felt a rise of nausea surge its way up into my throat. On the floor around where she stood was a pile of… for lack of a better word, *meat*. Bloody bones and organs and muscle lay clumped up on the floor around her feet, as if the creature had taken what it wanted and discarded the rest of her body. And when I looked up at her, I no longer saw the other man's skin fused to hers. Instead, her skin, her face, everything was her again, but twisted. Changed. Her whole body sagged the way a balloon does when it's deflating. Her face looked hollow and pale and somehow wrong in every way. And when I looked into her eyes, praying to see something of her left in them, I saw nothing but blackness in the eye sockets. No eyes. No Anna. Just an empty shell that tilted its head at me as I looked at it, and that damn, ever-present rattling.
 
 I couldn't save her. I knew that as I watched the skin crumple to the ground, as if the last of the air had left the balloon. I watched it start to slither towards me, the naked, wrinkled, flat skin seething towards me as that sound droned in my ears and I knew I had failed Anna. I had failed her, and I had killed her. It was too late for both of us.
 
@@ -92,7 +92,7 @@ And although I knew it wasn't moving, although I knew it was dead, I could still
 
 I didn't act fast enough. I didn't heed the warnings. I couldn't find my courage, and my Anna, my Anna paid the price. We could have changed. We could have worked on our marriage. God, we could have been so much more and there was so much I should of told her if I just had
 
-I'm sorry, I'm rattling now. Oh. Rattling. Isn't that funny? Isn't it funny, how I hear it even now, even as I break down for the fifth time tonight, even as I hear the sirens outside my hotel from the police that I know are on their way? They think I killed her. But they can't hear it. They can't hear the *rattle*.
+I'm sorry, I'm rattling now. Oh. Rattling. Isn't that funny? Isn't it funny, how I hear it even now, even as I break down for the fifth time tonight, even as I hear the sirens outside my hotel from the police that I know are on their way? They think I killed her. But they can't hear it. They can't hear the *rattle*.
 
 I killed one, but there are more out there. I know they're coming, I can hear them coming for me. For you.
 
