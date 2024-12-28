@@ -1,5 +1,7 @@
 [\[Part 16\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hl1nmg/the_call_of_the_breach_part_16/)
 
+[\[Part 18\]](https://www.reddit.com/user/RandomAppalachian468/comments/1ho0pvq/the_call_of_the_breach_part_18/)
+
 Lying on the cold pavement, I struggled to breathe, and the world seemed to move in slow motion.
 
 Bits of red brick trickled down like rain from the sky, smoke clouded the air, and muffled shots echoed from all directions. Two limp figures sprawled on the pavement not far from me, one with an orange jumpsuit pockmarked with steaming red gashes, the other curled in serene repose under her torrents of crimson hair. A growing ruby-colored puddle under them slithered over the ground in all directions, and something about the sight cut through my shock like a knife through butter.
