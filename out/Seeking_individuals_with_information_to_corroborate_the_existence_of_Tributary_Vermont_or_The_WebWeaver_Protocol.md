@@ -12,7 +12,7 @@ I could tell that Yvette’s replacement would not live more than a few nights i
 
 *“And…what, we’re just supposed to stare at it?”* Reggie muttered, each syllable dripping with a childish irritation.
 
-I tried not to let the newcomer disturb my own focus on the maypole. By my estimation, the speaker system that ran the perimeter of the town had chimed only two minutes ago. At the very least, we had another fifty-eight minutes before the next chime would sound and signal that we should break our gaze. As a restless whistle streamed from Reggie’s lips, I got the distinct feeling that he wouldn’t be able to put in more than five minutes with the maypole. That being said, Reggie was under no obligation to watch it. The chimes, the reverie, the maypole - they all simply represented a strong recommendation from The Bureau, but they weren’t a demand. No pistol-totting enforcers would arrive on scene if he went twiddle his thumbs somewhere else. They could mine useful data about the convergence no matter what Reggie did. He was free to do as he pleased.
+I tried not to let the newcomer disturb my own focus on the maypole. By my estimation, the speaker system that ran the perimeter of the town had chimed only two minutes ago. At the very least, we had another fifty-eight minutes before the next chime would sound and signal that we should break our gaze. As a restless whistle streamed from Reggie’s lips, I got the distinct feeling that he wouldn’t be able to put in more than five minutes with the maypole. That being said, Reggie was under no obligation to watch it. The chimes, the reverie, the maypole - they all simply represented a strong recommendation from The Bureau, but they weren’t a demand. No pistol-totting enforcers would arrive on scene if he went and twiddled his thumbs somewhere else. They could mine useful data about the convergence no matter what Reggie did. He was free to do as he pleased.
 
 It was for his own safety, though. I can say that from experience, having spent the last four years within the confines of Tributary.
 
@@ -30,7 +30,7 @@ She had followed all the recommendations to the letter, never missed a dose of m
 
 When she wasn’t at the maypole five minutes after the first morning chime, Lacy took it upon herself to check on Yvette. When thirty minutes had passed and Lacy hadn’t returned from Yvette’s cottage, which was approximately a three-minute walk from the maypole, I then reluctantly left to find Lacy. Call it experience or intuition, I knew she was gone long before I found Lacy kneeling over what remained of our Yvette.
 
-If you survive long enough at Tributary, you get plenty desensitized to the tangled, sanguine aftermath of spontaneous amalgamation. Something about Yvette’s death stood out—maybe it was Lacy’s long blonde curls, bloodstained from being draped over the overlapping, repeating viscera, or maybe it was the entire spectrum of terror present on Yvette’s intersecting faces. Whatever it was, I felt fear form a heavy cannonball in my stomach like it had the first month I was here, the weight of the feeling making movement and thought difficult.
+If you survive long enough at Tributary, you get plenty desensitized to the tangled, sanguine aftermath of spontaneous amalgamation. Something about Yvette’s death stood out—maybe it was Lacy’s long blonde curls bloodstained from being draped over the overlapping, repeating viscera, or maybe it was the entire spectrum of terror present on Yvette’s intersecting faces. Whatever it was, I felt fear form a heavy cannonball in my stomach like it had the first month I was here, the weight of the feeling making movement and thought difficult.
 
 Showcasing his boredom proudly like it was a badge of honor akin to a Purple Heart, Reggie began trotting around the twenty-foot tall totem, speaking loudly as he did: *”Help me out here Ted - you look old as sin, so I’m supposing you’ve been here awhile and will know the answer. I get paid no matter what I do, correct?”* 
 
@@ -115,3 +115,9 @@ My smile waned as my thoughts drifted back to Yvette - someone who followed ever
 For a second, I thought I saw the barbed curves of a grin overlap my neutral expression, a macabre cosmic friction heralding something even worse than spontaneous amalgamation.
 
 But as soon as it had come, if it had been there at all, it was gone again.
+
+——————-
+
+More to follow,
+
+-Ben

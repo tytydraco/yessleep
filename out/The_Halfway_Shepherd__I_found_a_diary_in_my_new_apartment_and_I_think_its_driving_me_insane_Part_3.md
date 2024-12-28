@@ -200,11 +200,13 @@ My eyes tried burrowed into the boy, unable to crack through his impermeable tee
 
 I bit my lip reflexively, my eyebrows knit together in frustration. “Fine. Last question: do you wish to pass on your life’s experience in order to shape future generations.”
 
-He sat for a moment, my words seeping into him as he blinked slowly. “My life’s experience. . . well I ain’t got much to share. “Do you want to or not, James.”
+He sat for a moment, my words seeping into him as he blinked slowly. “My life’s experience. . . well I ain’t got much to share."
+
+“Do you want to or not, James.”
 
 Silence.
 
-“Fine, whatever.”
+"Fine, whatever.”
 
 *Of fucking course.* “Very well. To complete your processing, let me borrow your hand.”
 
