@@ -1,5 +1,3 @@
-[Part 1](https://www.reddit.com/r/nosleep/s/Os704yNiZk)
-
 I know I spoke about the weird behavior of the apartment complex, but I didn't really say much about the residents themselves. I can't really give away resident information, but what I can do is give some vague ideas on what it is I mean by calling them strange.
 First of all, I want to say that people do live here.
 
@@ -18,3 +16,7 @@ Those are just the ones who look human but have small quirks, that's not even co
 Climbs walls? Got a resident like that. A living voodoo doll? Got a resident like that too. Shapeshifter? I've had so many I can't even keep track. If you think of a nonhuman sentient entity type, chances are l've rented out a suite to someone like them before. They're mostly civil, but just like humans you got the "Karens" and the "Chads" and the "Kyles," you know the type of people that like to just be a complete nuisance with no regard for other people?
 
 Anyway yeah, the complex is home to people from all over, even people you never thought could exist. I've got stories to tell about my time here so far, so don't worry, this won't be the last you hear from me. Now if you'll excuse me, 429 needs me to fix their window for the 20th time.
+
+[Part 1](https://www.reddit.com/r/nosleep/s/Os704yNiZk)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/mE1HOexqSg)
