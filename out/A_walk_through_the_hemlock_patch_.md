@@ -1,0 +1,24 @@
+It was a cold damp December day in the Pennsylvania woods 23 years ago. I was 19 years old at that time in good shape and had keen senses. It was deer season and like most people in the rural areas of I was in the woods. I had already filled my tags so I didn't take a gun with me but still took my Case hunting knife. 
+
+My brothers and I were known for our tracking skills and for our knowledge of the woods. Will was 10 years older than me and Roy was 7 years older. They had both filled their tags as well. We all took radios and came up with the plan for the day. Roy went on the East side of the ridge to help cousins, Will went on the west side with some older men to ensure they were okay, I went down the center of the ridge to drive deer to them. 
+
+I headed towards a thick hemlock patch where I knew the deer liked to hide. Our dad always warned us of that area and cautioned us to avoid it but like many young men I ignored the warnings and often went to that area. After following the edge of the thick hemlocks for about half a mile I saw deer tracks in the light covering of snow and followed. 
+
+I stalked silently through the thick old forest. It was so dense you can barely see 15 yards in front of you. About 30 minutes into the woods I heard the familiar sound of deer running. Oddly they were running in my direction. They got about 10 yards from me and I started clapping and waving my arms to drive them towards the but they turned and headed north. 
+
+O figured one of the other hunters must have spoked them and headed that direction they came from to check in on the hunter. 
+
+After about a 1/4 of a mile I camp across a dead deer. As I got closer to it my stomach turned at what I saw. This poor thing had been mangled and there was blood everywhere. The deer was still warm and freshly killed. It appeared as though something had attacked it while it was bedded down. I looked around and you could see the other deers tracks running away but the only other tracks were mine. I tried to radio my brothers but the radio wouldn't turn on despite having fresh batteries put in before I left. 
+
+The hair on the back of my neck stood up and I caught a scent in the air that I never smelled before. It was a musky oder that made my stomach turn. As I stood there trying to figure out my best way out I heard something moving in the branches above me. I looked up and saw a large cat hop from one tree to the next. I assumed it was a bobcat and slowly backed away. 
+
+As I retreated I felt like I was being watched. I heard a gun shot in the distance and decided that was the direction I was going to head in that direction. I continued to walk backwards through the thick evergreens and heard something behind me. I turned to look and caught a glimpse of what I thought was a coyote. I froze as it circled my area. It walked through a small opening and I got a clear look at it. This wasn't a coyote but was a huge wolf. It stopped and locked eyes with me. It's eyes were a bright blue and seemed unnatural. My mind raced trying to make sense of what was happening. I knew there were no wolves in the area but I was starring right at one. After what felt like an eternity but was probably only 15 seconds the creature ran off.
+
+I had a strong urge to run but knew that would be the end of me. I continued towards the sound of the gun shot and knew I had to be getting close to the edge of the thick hemlock patch. I heard something behind me and knew I was still being followed. I tried the radio again but it remained inoperable. I continued with my slow walk as my heart ponded in my chest. Finally I saw the edge of the hemlocks and broke out of the thick forest. 
+
+My heart instantly sank. I was greeted by a shallow creek with a 10 foot cliff on the other side. I rushed across the creek and jumped to grab the edge of the small cliff. I pulled myself up as the loss soil crumbled at my grasp. I managed to haul myself up. I stood up and unsheathed my knife as I turned to face the hemlock path. The branches rustled as an enormous black bear broke through and starred at me with those same piercing blue eyes. 
+
+
+A shot rang out close to me and struck a tree just above the creatures head. It took a step towards me and almonds appeared to smile before turning and running back into the dense hemlocks. I turned to see my grandfather. He told me to help him field dress the buck he shot and to give him a hand dragging it out. He asked me to hand him the radio and I said it hadn't been working but handed it over. The radio worked perfectly again and he called Will and Roy and asked them to head our way with some 4 wheelers. 
+
+Grandpa looked at me and said now you know why your father and I told you boys to stay away from the hemlocks. There's very dangerous things in there. 
