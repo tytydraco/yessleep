@@ -19,3 +19,5 @@ As for how I ended up being the manager of this place, I really just needed a jo
 I didn’t know anything was wrong with this place when I got the job, it only started being noticeable when people were saying they legitimately couldn’t find this place, even showing that it didn’t appear at all on Google Maps. Where it was supposed to be was just empty, or the image would be corrupted. Then when I started actually meeting the residents, I began to understand a bit more, but I’ll get into that on another day. 
 
 The job pays well, I get a rent free place to stay, I get to keep my cat, so I don’t really have room to complain. I’ll share noteworthy things as they happen though, maybe it’ll give me something to do during my downtime. 
+
+[Part 2](https://www.reddit.com/r/nosleep/s/M7WeHeXpeh)
