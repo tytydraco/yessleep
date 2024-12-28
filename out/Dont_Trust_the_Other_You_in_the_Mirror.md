@@ -12,7 +12,7 @@ After a few months, they had finally found medication that suited me, and coping
 
 My heart sank and my knees buckled. I couldn’t stop the flood of tears leaking from my eyes. 
 
-“Please, I’ll do anything! Just give me another chance!” I pled. I must have looked so pathetic - But I was so overcome with emotion. She’s was my everything. My reason for living. I couldn’t remember life before her. But her expression never changed. She wouldn’t even look at me.
+“Please, I’ll do anything! Just give me another chance!” I pled. I must have looked so pathetic - But I was so overcome with emotion. She was my everything. My reason for living. I couldn’t remember life before her. But her expression never changed. She wouldn’t even look at me.
 
 “I’m sorry. I’ve met someone else. I tried. I really did. But you’ve changed. You’re not the man I remember. You’re like a shell of him. I love you. I always will. But it’s not enough”
 
@@ -48,7 +48,7 @@ The weirdest part was that I felt..comforted. Cathartic. The way you feel after 
 
 I headed downstairs, into the kitchen and grabbed myself a drink of water. I stood against the worktop, sipping my water and flipping through Facebook. I really wish I hadn’t..
 
-There she was. Alicia. And there he was - the home wrecking bastard, with his arm around her. They were smiling from ear to ear, with a beautiful sunset behind them. It was so generically cheesy - But I was overcome with rage and jealousy. She never looked that happy with me. Never. Had our relationship ment nothing to her? Was I that easy to forget? Did our vows even mean anything?  In sickness and in health? - Apparently not. For richer, for worse? - Ha, yeah right. I gripped the glass so hard, I felt it crack beneath my fingers. 
+There she was. Alicia. And there he was - the home wrecking bastard, with his arm around her. They were smiling from ear to ear, with a beautiful sunset behind them. It was so generically cheesy - But I was overcome with rage and jealousy. She never looked that happy with me. Never. Had our relationship ment nothing to her? Was I that easy to forget? Did our vows even mean anything?  In sickness and in health? - Apparently not. For richer, for poorer? - Ha, yeah right. I gripped the glass so hard, I felt it crack beneath my fingers. 
 
 I needed him.
 I needed mirror-me.
@@ -118,11 +118,11 @@ I looked up to meet his gaze one last time and felt the most intense fear I have
 
 And with that. He was gone- Forever. My friend. My therapist. My mirror-me. 
 
-My energy gradually returned to me over the weeks - and so did my pain and sadness. But I’d rather feel that than nothing at all. I still see him in my dreams though. Almost every night actually. Sometimes he has that comforting smile I had grown so attached to, but other times he had that god awful stretched, otherworldly mouth and frightfully wide eyes. I hate those dreams. But at least I’m alive - Soul-intact - and starting to get my life back on track little by little.
+My energy gradually returned to me over the weeks - and so did my pain and sadness. But I’d rather feel that than nothing at all. I still see him in my dreams though. Almost every night actually. Sometimes he has that comforting smile I had grown so attached to, but other times he has that god awful stretched, otherworldly mouth and frightfully wide eyes. I hate those dreams. But at least I’m alive - Soul-intact - and starting to get my life back on track little by little.
 
 So, I’ll leave you with this - the same advice “Spiritwalker67” gave me, which saved my life.
 
 No matter how good it makes you feel.
-No matter how amazing at peace you are.
+No matter how amazingly at peace you are.
 
 Don’t trust the other you in the mirror.

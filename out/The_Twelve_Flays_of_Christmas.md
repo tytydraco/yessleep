@@ -140,6 +140,10 @@ Ask not what your cruel Satanic Mistress can do for you, but ask what you can do
 
 That realization. That if I had the right ingredients. The right anchovy paste. The right chili peppers. The red hot ones. That somehow I, I could resist the evil. Lead us not into temptation. Lead us not off the path of the righteous.
 
+Day 11:
+
+Bring me more gefilte fish julienne, dotard!
+
 Day 10:
 
 More spicy chicken-salad piss boy of darkness!
@@ -174,7 +178,7 @@ BURGERS OR DIE!
 
 Day 2:
 
-McFly wants FRIES pig of dwarf's scrotum!
+McFly wants FRIES, filthy pig of dwarf's scrotum!
 
 And then, it was the night before Christmas, and all through the mansion on the hill, the moans of the damned were moaning a song of surrender.
 
@@ -190,13 +194,13 @@ Ya like them falafels didn't ya? Ya liked the pudding? Burgers? Fries? Salads an
 
 Well, you want everything, so I gave it to you and you, what did you do, your HIGHNESS???
 
-You.
+*You.*
 
-Licked.
+*Licked.*
 
-The.
+*The.*
 
-Plate.
+*Plate.*
 
 And in a restaurant too?!?!?! Who the fuck licks the plate? Only a narcissistic, negative attention seeking demoness, that's who!
 
@@ -208,9 +212,9 @@ And then La Reina glared with all the heat of a thousand bottles of red hot chil
 
 I looked around then let my garb slide down my hollow man shell. It gathered around my ankles and for once in her endless hellspan of a life La Reina McFly was speechless.
 
-"That's right baby! Henry, pig boy, beat ya to it! I made a deal with the mother ship union. And you, you can digest most of my liver, gall bladder, right buttock, left tricep and right bicep as well as molars 23 through 27 and one very giant sebaceous cyst I had been nursing since the 1960s. That was the tahini sauce you couldn't get enough of you, what do we call greedy and corrupt power made demons?
+"That's right baby! Henry, pig boy, beat ya to it! I made a deal with the mother ship union. And you, you can digest most of my liver, gall bladder, right buttock, left tricep and right bicep as well as molars 23 through 27 and one very giant sebaceous cyst I had been nursing since the 1960s. That was the tahini sauce you couldn't get enough of you, you...; what do we call greedy and corrupt power-mad demons?
 
-PIG
+**PIG**
 
 And then, then the unexpected happened. La Reina turned her nose up at me and said, "Oh." Then she walked unceremoniously out the door. That was two days ago. Now I gotta go back to my regenerative frog boy spells. I don't just flay myself half-cocked. Them frogs know what time it is. The knowledge is out there. You just gotta let it in.
 
