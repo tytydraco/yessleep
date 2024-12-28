@@ -1,7 +1,3 @@
-Hi, this is my first attempt at writing and posting a creepypasta story. If you feel like it, let me know what you think in the comments. Any feedback about the story and writing itself is greatly appreciated. English is not my first language, so that is another aspect to writing I want to improve at. You will also stumble upon some dark humour in this story, as well as in my future work (if I ever decide post again), that may not be funny to everyone. I assure you however, it is only satire, my friends and I just have a fucked up sense of humour. Enjoy.  
-
-... 
-
 Do you ever get that weird feeling like you’re being watched? Like you are not alone? Like someone... or someTHING... is out there? Usually, it’s just that, a feeling. You look around and quickly see a familiar, friendly face waving at you. But what about that similar feeling, with shivers running down your spine, with a small voice in your head telling you that something is off. Telling you that, when you look around, you are not going to see a friendly face. 
 
 ...  
@@ -41,3 +37,7 @@ I was still shaken from the encounter with the materialization of my nightmare. 
  
 
 To be continued...  
+
+...
+
+Hi, this is my first attempt at writing and posting a creepypasta story. If you feel like it, let me know what you think in the comments. Any feedback about the story and writing itself is greatly appreciated. English is not my first language, so that is another aspect to writing I want to improve at. You will also stumble upon some dark humour in this story, as well as in my future work (if I ever decide post again), that may not be funny to everyone. I assure you however, it is only satire, my friends and I just have a fucked up sense of humour. Enjoy.  

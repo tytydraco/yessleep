@@ -1,6 +1,3 @@
-
-
-
 I'm almost positive that I'm going to get fired. Like, I'm so confident it's happening I've been updating my resume all day. I don't know if it's going to help because what I did was pretty damning...in more ways than one. Ugh, I'm loathed to admit it, but what the hell, it's so weird I might as well come clean. Maybe someone else has gone through this and can help.
 
 I think I hired a band of demons to play for the old folks at our retirement community.
@@ -165,7 +162,7 @@ Some of those boos morphed into cheers, and I knew I'd won them back. I glanced 
 
 I scampered off stage and passed by Del. I patted him on the back and was disgusted that he felt damp. Like he was sweating through his suit jacket. I know that sounds impossible, but I once watched Bob Dylan play at an outside venue during the height of summer, and that man turned a blue suit all gray. Still, didn't make it any less gross. Worse, he was muttering with his hands held up to his chest and palms facing the ground.
 
-I left him and heard the first blasting notes of the Horns-a-Plenty. A steady, rising beat bleats out of the trumpets, trombones, and saxophones. Finally, Del Prado turned and slowly strutted to the microphone like a peacock on the march. You could feel the sleaze coming off his herky-jerky strut, but there was nothing I could do now. My job was in the hands of a man I met in our parking lot. 
+I left him and heard the first blasting notes of the Horns-a-Plenty. A steady, rising beat bleats out of the trumpets, trombones, and saxophones. Finally, Del Prado turned and slowly strutted to the microphone like a peacock on the march. You could feel the sleaze coming off his herky-jerky strut, but there was nothing I could do now. My job was in the hands of a man I met in our parking lot.
 
 What the hell was I thinking?
 
@@ -175,8 +172,7 @@ What the hell was I thinking?
 
 "Even better. The band and I are as cool as a shady spot, but we love the light, baby!"
 
-Nobody really responded. I dropped my head into my hands and took in a deep breath. I was so screwed. I could feel Mary watching from the security cameras, cackling, and setting up a new job posting for my position. I thought, This had to be rock-bottom. I was wrong. So, so, so wrong.
-
+Nobody really responded. I dropped my head into my hands and took in a deep breath. I was so screwed. I could feel Mary watching from the security cameras, cackling, and setting up a new job posting for my position. I thought, *This had to be rock-bottom*. I was wrong. So, so, so wrong.
 
 "You all hear those horns? Oh, baby, they are humming! Nah, nah, nah. Those horns are blowing! What are they blowing, baby? Does anyone have a guess?"
 
@@ -274,7 +270,7 @@ I ran to the parking lot and didn't see Del Prado or his van. In fact, there was
 
 But something that probably isn't wiped away is the security camera footage. I knew it was just a matter of time before Mary checked those, and then things would get real. Not to mention how the old folks who had been there suddenly moved and acted like they were just waiting for the clock to run out. It was as if whatever had infected them had sapped their life force.
 
-They were mere husks of what they had been...and what they had been were already husks of their former selves. 
+They were mere husks of what they had been...and what they had been were already husks of their former selves.
 
 Julio and I feel physically fine, but this whole thing has taken a toll on us mentally. We're helping each other try to piece together what happened, but we're coming up empty so far. I searched for Del Prado and the Horns-a-Plenty online, but no such band exists. It was like they were sent here by someone.
 
