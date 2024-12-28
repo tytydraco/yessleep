@@ -154,21 +154,17 @@ The lifeboat hang at a fortfive degree angle of the side of the ship. It Was ora
 
  
 
-Taking a hand to the top of the door I put my foot onto the sloped floor. What a terrible design choice this was. Ducking into it I used one hand to grab seats on the way down to the control panel, the other hand tightly gripping my trusty voltmeter. Each step into the maw of it my movement became more and more fluid, whilst my anxiety in turn grew worse and worse. This was a very percarious situation and we were two people that could make a mistake.
+Taking a hand to the top of the door I put my foot onto the sloped floor. What a terrible design choice this was. Ducking into it I used one hand to grab seats on the way down to the control panel, the other hand tightly gripping my trusty voltmeter. Each step into the maw of it my movement became more and more fluid, whilst my anxiety in turn grew worse and worse. For even if Joshua was the best I could find for this responsibility, I still didn't trust him fully.
 
 As I came closer to the lifeboats control panel, I could see more and more ocean through the tiny, enforced windows above it. The waves were scattered across the ocean, like an ill commanded army their power was laughable. Given proper coordination they would be capable of much greater feats than putting us of balance. I sat myself in the captain’s chair of the small tin.
 
  
 
-“Joshua you there?” I spoke with more nervousness that I thought I would. I wasn’t afraid of falling into the water. I was afraid the boat would fall into the water. Sure, I could get back on the ship. But the boat. Our only safety would be lost forever. An unthinkable consequence, that must be avoided at all costs.
-
- 
+“Joshua you there?” I spoke with more nervousness that I thought I would. I wasn’t afraid of falling into the water. I was afraid that the boat would. Sure, I could get back on the ship. But the boat. Our only safety would be lost forever. An unthinkable consequence, that would put everyone at risk. Not just me.
 
 “Yes, I’m here. Holding the release pin. You are clear.”
 
- 
-
-I popped the control panel. I looked for the wire that connected to the release button. It was in a cluster of wires that went to the door. This system had plenty of redundancy. Which was good, and unexpected honestly. Looks like my nightmare was unsubstantiated. But not checking the signal now would be silly. I placed my voltmeter on my lap and removed only one of the measuring clamps. Slowly I extended my hand and put the clamp to just one of the release wires. Once in place I retracted my hand and went for the next clamp on the device. Shaking and moving slowly, filled with nervousness as the moment of truth came closer. Reaching forward I put the other clamp on the same wire, completing the circuit.
+I popped the control panel. I looked for the wire that connected to the release button. It was in a cluster of wires that went to the door. This system had plenty of redundancy. Which was good, and unexpected honestly. Looks like my nightmare was unsubstantiated. But not checking the signal now would be silly. I placed my voltmeter on my lap and removed only one of the measuring clamps. Slowly I extended my hand and put the clamp to just one of the release wires. Once in place I retracted my hand and went for the next clamp on the device. Shaking and moving slowly, filled with nervousness as the defining moment came closer. Reaching forward I put the other clamp on the same wire, completing the circuit.
 
  
 
@@ -200,7 +196,7 @@ Leaning down I went to take away one of the clamps. But Joshua interrupted me.
 
  
 
-I looked out the small window in front of me. The ocean was full of smaller yet dangerous waves travelling incoherently. But a pattern had emerged from their movement. And one peak had formed to such enormous mass that it began towering over the ship. A rogue wave had formed, and it was going to hit our ship. I went into shock. Everything slowed down. Watching that wave grow. Every gut-wrenching moment vividly detailed.
+I looked out the small window in front of me. The ocean was full of smaller yet dangerous waves travelling incoherently. But a pattern had emerged from their movement. And one peak had formed to such enormous mass that it began towering over the ship. A rogue wave was going to hit our ship. I went into shock. Everything slowed down. Watching that wave grow. Every gut-wrenching moment vividly detailed.
 
 First was the rain. The wind blew of the water from the top of the skyscraper wave and showered the ship in heavy downpour. This is when I remember the horn sounding. A useless attempt at a warning. The next I remember was feeling our enormous cargo ship being lifted out of the water with a dizzying speed and ease. The rogue wave rolling us over. I felt my body being accelerated by gravity with my back first into the seat, a direction I hadn’t expected gravity to pull. Looking back towards Joshua I hoped he had made it into the lifeboat with me. Only to see him being swept of his feet plummeting toward a background of blue, that I couldn’t determine if was ocean or sky.
 
