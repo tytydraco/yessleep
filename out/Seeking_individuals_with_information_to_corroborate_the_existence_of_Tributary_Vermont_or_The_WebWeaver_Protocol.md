@@ -34,7 +34,7 @@ If you survive long enough at Tributary, you get plenty desensitized to the tang
 
 Showcasing his boredom proudly like it was a badge of honor akin to a Purple Heart, Reggie began trotting around the twenty-foot tall totem, speaking loudly as he did: *”Help me out here Ted - you look old as sin, so I’m supposing you’ve been here awhile and will know the answer. I get paid no matter what I do, correct?”* 
 
-I took a moment to pause and consider my response. Finding the words I wanted proved difficult at. Before I could respond, Tributary’s profound baseline silence drew my attention away.
+I took a moment to pause and consider my response. Finding the words I wanted proved difficult. Before I could respond, Tributary’s profound baseline silence drew my attention away.
 
 The town lay nestled between two large, forested hills, but natural white noise was absent—no birdsong, no wind through the trees, no distant car horns. Most of the silence was likely because of seclusion from civilization. The lack of birdsong, however, has always been a little less naturally explainable.
 
@@ -50,7 +50,9 @@ Seemingly, every inch of the town was under surveillance. Not that there was *th
 
 Despite his infuriating pretension, Reggie was right about one thing - “modern art piece” would be a very reasonable description for the maypole.
 
-At its center was a wooden cylinder with a diameter about the size of a frisbee. It stood approximately two-stories tall in a small patch of grass that interrupted the asphalt at the half-way point of Tributary’s one street. Thick plastic, dramatically shifting in color every few inches, adorned the post chaotically; its protrusion from the wood was asymmetrical depending on the perspective. Closer to the ground, the plastic looked like dragon scales, oblong and rough. As the material wrapped around the pole and spiraled upwards, however, it transmuted to look more like spikes or stalactites, poking a few feet out from the core. Then, it transmuted again to a glossy sheet with a few thin, centimeter-long tendrils sticking straight up here and there. Next, it looked like ocean waves, and then like stick figures holding hands, so on and so on - innumerable shapes seemingly without coherency or intent in design, from top to bottom.
+At its center was a wooden cylinder with a diameter about the size of a frisbee. It stood approximately two-stories tall in a small patch of grass that interrupted the asphalt at the half-way point of Tributary’s one street. Thick plastic, dramatically shifting in color every few inches, adorned the post chaotically; its protrusion from the wood was decidedly asymmetric.
+
+Closer to the ground, the plastic looked like dragon scales, oblong and rough. As the material wrapped around the pole and spiraled upwards, however, it transmuted to look more like spikes or stalactites, poking a few feet out from the core. Then, it transmuted again to a glossy sheet with a few thin, centimeter-long tendrils sticking straight up here and there. Next, it looked like ocean waves, and then like stick figures holding hands, so on and so on - innumerable shapes seemingly without coherency or intent in design, from top to bottom.
 
 Or, alternatively, maybe the disorder *was* the design - no matter where you looked, and at whatever angle you looked, the maypole offered a wholly unique image. When I was briefed by The Bureau before arriving at Tributary, the welcome coordinator had mentioned that the maypole was theorized to “counteract the surrounding convergent leyline through its nearly unreplicatable uniqueness, grounding subjects in our current thread through focused perception”, whatever that means. The coordinator, muscular and decked in camo like a drill sergeant, implied that this measure may have saved the original inhabitants of Tributary if they had access to it.
 
@@ -58,7 +60,7 @@ Me and my initial group were not told *what* had happened to those original inha
 
 Although, sometimes I’m not so sure I’m recalling the words or phrases from the briefing correctly anymore. It’s just been so long. Not only that, but every newcomer I’ve talked to in the last year denies having had a formal briefing before arriving at Tributary, unlike me. Enticed by the ludicrous financial compensation, they did not want the offer to be revoked by asking any prying questions - no briefing required.
 
-Part of me believes The Bureau stopped briefing people altogether - perhaps it was effecting the data in a way they didn’t expect.
+Part of me believes The Bureau stopped briefing people altogether - perhaps it was affecting the data in a way they didn’t expect.
 
 Or maybe there was never any briefing and I’m housing a false memory - some retroactive revision of my internal narrative to make what happens at Tributary even remotely digestible.
 
@@ -68,7 +70,7 @@ With that proclamation, Reggie walked away from the maypole. I heard Lacy take a
 
 Implicitly, Lacy, Alex, and Harmony understood - Reggie would not be with us long, and arguing with him was not worth the risk. Strong emotion is destabilizing and can make you vulnerable to spontaneous amalgamation.
 
-They promised all of us release once the experiment, referred to in my briefing as the *WebWeaver Protocol*, was completed. Attempts at voluntary early discharge from Tributary, before the completion of the experiment, were met with rifle-fire and death. Four years into this, I’ve believe that The Bureau has no intention of ending the experiment. Whatever they are gleaning from us, it’s clearly valuable - hundreds of spontaneous amalgamations later. The experiment still presses on.
+They promised all of us release once the experiment, referred to in my briefing as the *WebWeaver Protocol*, was completed. Attempts at voluntary early discharge from Tributary, before the completion of the experiment, were met with rifle-fire and death. Four years into this, I now believe that The Bureau has no intention of ending the experiment. Whatever they are gleaning from us, it’s clearly valuable - hundreds of spontaneous amalgamations later, the experiment still presses on.
 
 Maybe his replacement will be better.
 
