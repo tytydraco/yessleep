@@ -1,4 +1,3 @@
- \[SERIOUS\] A warning about Video Vagabond, the rules you follow to summon it, and what I found there. Anonymous post for obvious reasons.
 
 I got a message from a stranger last week about a videotape. Said they saw something at this weird video store. Something about Zackary.
 
