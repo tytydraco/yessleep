@@ -1,5 +1,3 @@
-a short story from my book nightmares and phobias: Tales of Fear and Phobia amazon is available  for free here on reddit, anyone who can help me continue or give constructive criticism about the short story I'm all ears
-
 I wanted to make this as quick as possible. This is a warning to anyone who might try to feed him. Unfortunately, against my will, I have to alert you—who are now reading this text. Don’t see me as a bad guy; I’m just trying to survive. I was thrown into this situation, but I’ll try to help you here. It’s better that you read this all the way through. Otherwise, you’ll have to deal with him, just like I did in the beginning.  
 If you’ve made it this far, I have sad news: you are cursed. Yes, now you know about him, and because of that, you are trapped in this curse. I’m sorry, but your life is over. You will never have peace again, and your family will also become his victims.  
 I’ve heard many reports about people who disappeared out of nowhere, entire families vanishing without explanation. That’s exactly what will happen to you if you don’t listen to me.  

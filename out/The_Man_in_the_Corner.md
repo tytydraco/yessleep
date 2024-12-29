@@ -1,54 +1,23 @@
+To start, this story is mine, and is 100% true. I have many more similar to this, as we grew up in a haunted house… but this one is the main one that comes to mind when thinking of this home. I can do an entire separate post about just the home alone. 
 
-This happened about five years ago, and I still can't shake the feeling that I'm being watched every night. It was a regular Thursday evening in late November. I had just moved into a new apartment on the outskirts of town, a quaint little place with more character than I could have ever hoped for. Or so I thought.
+ANYWAY, back around 2014, I was around 20 years old and was home with just myself, ex boyfriend, and my 3 year old daughter. (I was a teen mom). My mom was out of town on a business trip. Keep in mind, these experiences ALWAYS happened once my mom would leave for several days. My mom is extremely religious, and she would pray out our house with anointing oil on a regular basis. It was almost like every time she went away for long periods of time, whatever it was that was in the house felt strong enough to come out. 
 
-The building was old, probably early 1900s, and had this eerie charm to it. The landlord was an older gentleman named Mr. Thompson. He seemed kind enough, though he had a strange, almost too-welcoming demeanor. He made sure I settled in, and I didn’t think much of it at the time. Maybe he was just lonely.
+Back to the story. My daughter and I shared a bedroom, however, whenever my mom would go out of town, I’d let her sleep in my mom’s room. On the second night my mom was gone, we put my daughter to bed and my ex boyfriend and I (let’s call him Chris), decided to have a late movie night. 
 
-My apartment was on the third floor, and the only other tenant on my floor was a woman named Alice. I never saw her much, just a few times in the hallway. She seemed nervous, always glancing over her shoulder and hurrying back to her apartment.
+Around midnight to 1am, we both overheard my daughter crying. We ran into my mom’s room (with only the hall light on) and she was laying on the bed crying. I got into bed with her to hold her and comfort her (assumed it was a bad dream), and my ex laid on the bottom of the bed at the headboard on his phone. He had closed the door so it was pretty much pitch black in the room beside his phone light (which was low). 
 
-One night, I was lying in bed, struggling to fall asleep. The room was pitch black, and the only sound was the faint ticking of my old wall clock. Just as I was about to drift off, I heard a soft whisper.
+Once my daughter calmed down, I asked her what was wrong. She quietly said, “Mommy I thought you said Heaven was a good place?” It should be pointed out that a weekish prior, an old classmate was in the news paper for passing away, and since we were so young, we had been talking about it. I am religious as well, and when my daughter overheard this conversation, I explained to her someone I used to know had went to Heaven. 
 
-"Help me..."
+Back to present, I told her Heaven is a good place. She then said, “Then why is (Gary) sad his baby went to Heaven?” I am using the name Gary because the actual name she used has been so terrifying to my family we won’t say it to this day. I told her Heaven is a good place, but if someone’s baby goes to Heaven, it is very sad for us because they were so tiny and did not have a lot of life they had lived. She seemed to accept this answer, and remained silent.
 
-My eyes shot open, and I strained to hear more. Nothing. I chalked it up to my imagination and tried to go back to sleep. Then, I heard it again, clearer this time.
+At this point, I assumed Gary must be someone from her daycare (maybe a child who told her something that recently happened), or one of her dad’s friends. My ex there with me was not her father, in case that is confusing. So I followed with, “Is Gary someone from your care?” Her, “No.” Me, “Is he one of daddy’s friends?” Her, “No.” Me, “How did you meet him?” Then she said something that quite honestly froze me, “He was the guy in the corner of the room, next to grandma’s closet.” 
 
-"Please... help me..."
+Chris immediately jumped up from the bed and turned on the lights. We both believed some man was in the room with us. Chris looked EVERYWHERE, and found nothing. I asked her, what does Gary look like? She described him essentially as a tall man like Chris (Chris was over 6’) however, Gary wore a long black coat and had on a tall black top hat. She said Gary was very sad about his baby who went to Heaven, and it made her cry and get scared because Gary looked scary to her. 
 
-I sat up in bed, my heart pounding. The voice was coming from the corner of my room. I reached over and flicked on the bedside lamp. The corner was empty. Just shadows cast by the old wardrobe.
+After this night, for approximately a year later, we would hear new stories about Gary. She told us Gary didn’t like our dog, because when he would try to walk around our dog would follow him and growl and bark at him when nobody was home. She told us Gary had blood all over his face and was hurt by men with glass. (Our house had been built over an old bar). Keep in mind, she didn’t use this exact verbiage, but this is what she meant. The last time we heard details about him, she said she was really scared because Gary told her he wants her to meet his baby. She said his baby was wrapped in a blanket and when he leaned the baby over it was a monster. 
 
-I tried to convince myself it was just a draft or the old pipes. But then, I heard it again, more desperate this time.
+She was terrified. My mom re blessed our home and told Gary he needs to leave, and he is no longer allowed. We didn’t hear about him for almost a year after that, and we did not bring it up to my daughter to ask because it clearly terrified her. 
 
-"He's coming for me... please..."
+Then one day, we went to the cemetery to lay flowers on my grandma’s grave when my daughter randomly said, “Hey mama. This is where Gary lives!” My ex was with us, and we both turned to look at each other, then terrified. After that, we have never heard from him again. My daughter is 13 now, and she has zero recollection of Gary. She has gone so far as to ask us not to bring it up to her because she thinks it’s freaky and doesn’t want to somehow remember it. 
 
-I jumped out of bed and searched the room, but there was no one there. I was wide awake now and utterly terrified. I decided to go for a walk to clear my head. As I stepped into the hallway, I noticed Alice's door was slightly ajar. I could hear her crying inside.
-
-Concerned, I knocked softly. "Alice? Are you okay?"
-
-The crying stopped abruptly. There was a long pause before she whispered, "He's watching you too, isn't he?"
-
-A chill ran down my spine. "Who? Who's watching me?"
-
-She peeked through the crack in the door, her eyes wide with fear. "The man in the corner. He's been here for years. He watches us, waits for us to fall asleep. Then he takes us."
-
-I backed away slowly. This had to be some kind of joke. "Alice, that's not funny."
-
-Her eyes filled with tears. "I'm not joking. He got the last tenant too. Please, you have to believe me."
-
-I didn't know what to say, so I just nodded and went back to my apartment, locking the door behind me. I didn't sleep at all that night.
-
-The next day, I went to see Mr. Thompson. I told him about the voice and Alice's strange behavior. He just smiled and said, "Alice has always had an overactive imagination. Don't let it get to you."
-
-But I couldn't shake the feeling that something was horribly wrong. That night, I stayed up, watching the corner of my room. Around 3 AM, I felt a cold breeze, even though the windows were shut. Then I saw it.
-
-A shadow, darker than the rest, moving in the corner. It grew taller, more defined. My heart raced as the figure of a man emerged from the darkness. His eyes were hollow, and his mouth twisted into a grotesque grin.
-
-I couldn't move, couldn't scream. He stepped closer, and I felt an overwhelming sense of dread. Just as he reached out to touch me, I heard a loud banging on my door. The figure vanished.
-
-I stumbled to the door and flung it open. Alice stood there, pale and shaking. "Did you see him?" she whispered.
-
-I nodded, my voice caught in my throat.
-
-"We have to leave," she said urgently. "Now."
-
-We packed our things and left that night. I moved back in with my parents and never returned to that building. I later learned that the apartment had a history of tenants disappearing under mysterious circumstances.
-
-To this day, I still see the man in the corner out of the corner of my eye, just for a split second, watching and waiting.
+This might not sound as terrifying as you think, but living through Gary stories for a year was absolutely horrifying and what we experienced alongside that with the house was also terrifying. something else I forgot to mention, We are also Native American (Pomo), and have many beliefs we have grown up in regarding the afterlife and ghosts etc. therefore, things like this really freak us out even more. I also have a picture taken years ago around this time of my daughter laying on her grandma’s bed, and immediately after taking it and looking at it, I saw a clear visible hand under the bottom of the blanket, peeking out. I lifted the blanket and nothing was there. My daughter was also way too tiny to have reached the bottom of the blanket. Freaky stuff. 
