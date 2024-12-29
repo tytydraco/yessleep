@@ -12,7 +12,7 @@ I couldn’t stop thinking about it, so the next week, I found an excuse to driv
 
 The change hit like a gut punch. The sleek, futuristic vibe I thought I remembered was gone, replaced by a sense of decay and dread. The sky was overcast during my second visit, heavy with thick clouds that cast a bluish tint over everything. Maybe it was that? But the young faces looked pale and sickly, as though they were lit from below by the strange, diffused blue light.
 
-The few vehicles I saw, seemed odd, with metal panels over their windows, pitted dull-metal exteriors, and chain-mail tires. The buildings seemed to be looming higher and closer now, too, covered in flickering blue panels flashing ads for things I didn’t recognize. They seemed to buzz faintly. The air felt thicker as well, harder to breathe. My car’s vents were closed, but a faint smell, like burning plastic, still seeped through.
+The few vehicles I saw, seemed odd, with metal panels over their windows, pitted dull-metal exteriors, and chainmail tires. The buildings seemed to be looming higher and closer now, too, covered in flickering blue panels flashing ads for things I didn’t recognize. They seemed to buzz faintly. The air felt thicker as well, harder to breathe. My car’s vents were closed, but a faint smell, like burning plastic, still seeped through.
 
 On the sidewalks, the kids seemed to be moving slower, their heads bowed. And something seemed to have shifted in their expressions—I saw resentment, fear, or something worse. Craning my neck and looking around, I almost ran into a young man stumbling into the street. His pale face, suddenly looming in my windshield, had a faintly bluish tint, and the veins on his temples and neck seemed to be drawn with blue marker. Then he was gone.
 
