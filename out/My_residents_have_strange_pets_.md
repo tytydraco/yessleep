@@ -19,5 +19,3 @@ Overall, I don’t care if someone has a cat, dog, snake, slime, lava snail, wha
 That’s all for now I guess. I need to search the lease forms for a deposit plan that works for a large ink gecko. I think that would fall under the “liquid” category…
 
 [Part 1](https://www.reddit.com/r/nosleep/s/rT7nmx5RXf)
-
-[Part 2](https://www.reddit.com/r/nosleep/s/wMcLJEW3ex)

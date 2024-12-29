@@ -1,15 +1,34 @@
-I woke up in the middle of the night in a cold sweat. I had woken from a nightmare but I couldn’t remember what it was. I looked around the room and saw that the window was open. That was strange I didn’t remember opening it. I walked over to the window and shut it I then went downstairs to get some water I was bit thirsty. 
 
-On my way down the stairs I stepped into something wet. I turned on the hall light and saw the red liquid on my sock. I ran to where the wet spot was and saw the pool of blood being soaked up by the carpeted floor. 
+ I lay in bed, my head aching tremendously after I had drunk myself into a stupor the previous night. Not that it mattered to me anymore. The days I had passed, one after the other, in a blur, weeks merging into months.
+ 
+Nothing mattered to me anymore, not after what had happened. I was simply an old man at death's door, waiting for the creaky door to let me in, bidding my days until it finally happened.
 
-I ran to get my phone that I had left downstairs but when I got there my sock was dry and the red stain was gone. I went to where the pool of blood was and to no one’s surprise it was gone as well. I was sure it was there I was one hundred percent sure there was blood. 
+My mind travelled to the aged photograph lying forgotten in the dusty loft, one that was of William and Justine's family picnic. It seemed to haunt me, the joyous radiance that radiated from the faded snapshot. We had driven up to Edenville at the insistence of Justine, who had wanted to enjoy a family picnic during the last of summer. "Such a waste not to go there and enjoy the lake in this glorious weather! The sun, the warmth. It's heaven on Earth!" I could almost hear her mellifluous voice excitedly narrating those words like it was yesterday.
 
-I had felt it on my sock. I was starting to think I was going crazy. I didn’t get the water I went straight back to bed but as my head hit the pillow and I closed my eyes I opened them again and looked around. Im pretty sure I heard something. I looked around the room terrified. I heard it again but it was closer. I hear it it’s over too of me? I looked up and sure enough I saw what was making the sound. 
+ I close my eyes, taking me back to when I was behind the camera, clicking their picture. The sunlight streaming down, shrieks of laughter surrounded me, and the smell of freshly baked apple pie enveloped the air. They were both tangled in each other's arms and posing, their eyes squinted due to the sun, but the smiles etched on their faces. William had his face turned to look at Justine, marvelling like she was a work of art, and she was laughing out loud at the mess Cassie had made of their picnic table...Cassie. My head throbbed painfully. I got out of bed and headed to the basin to splash cold water on my face to wake me up from those painful memories. I needed to stop reminiscing. It wouldn't do me any good. I had to put an end to what I had started. The root cause of all miseries. It had to be killed.
 
-It’s teeth clattered together making a horrid clicking sound as blood dripped from its mouth and onto my face. It’s large clawed fingers dug deep into my ceiling it lower half was missing. It’s long black and shiny hair stocked onto its face with caked up blood and dirt all in it. The wrinkly skin around it’s large smile looked like it had tearing.  I stared at it then got up and started to run. I could hear it hit the ground and I heard nothing. I looked behind me and saw that it was chasing close behind. 
+I wasn't always this miserable. I was happy with my life long ago. William was my childhood best friend; we were more like brothers. Naturally, his family, his wife and daughter, Justine and Cassie, became my family, too. Cassie, a six-year-old angel, would always run around squealing and calling out my name whenever I visited, saying, "It's Uncle R-e-d! It's Uncle R-e-d!" I would pretend not to see her and quizically ask Justine, "Do you hear that? My that sounds a lot like Cassie! But why on Earth can't I see her?" This little routine of ours would always set her off into bursts of laughter, and I would turn around, grinning, turning it into a game of tag. Yes, life used to be serendipitous.
 
-I ran as fast as I could and so did that thing. It ran using its hands since it had no feet and oh boy was that terrifying I was running faster than I did in my whole life. I quickly opened the door and dashed outside. I looked around quickly and saw only woods well you know where I ran. I dashed into those woods and ran and ran then I quickly ducked behind a tree to catch my breath. I sat behind the tree with my hand over my mouth. I was surprised I made it into the woods alive. I looked over to the other side of the tree and saw that thing right in front of my face. With one swipe of its hand it cut the tree in half luckily it was a thick one or else I would be missing my lower half as well. 
 
-I shot up and ran again this time I wasn’t gonna take any breaks. I ran through the rest of the woods and came into town. I kept running like I said no more breaks. I ran into the abandoned subway. For some reason there were no people on the streets the again nobody lived here but me. I ran deep into it and this is time ima take a break because I know it will catch me no matter what a do. 
+But then, one day, I got a call from William that had changed everything to never be the same. 
+Cassie had fainted at school. They had rushed her off to the doctor, and after a multitude of blood tests, they had come to a dreadful conclusion. She had Amyotrophic lateral sclerosis, a disease that affected brain function and cognitive health. It was incurable, and the doctors gave her three months. He had sobbed uncontrollably on the phone, my heart broken by what he had said to me. Little Cassie, my sweet Cassie, was going to die? And we were just supposed to sit back and watch?
 
-So I’m writing this here I guess you can call this my final act. Shit I can hear it. I have to go I can see it right in front of me and it’s running towards me
+
+So I did what I had to. What wouldn't any person do for their loved one? I had found a cure. Yes, I had healed Cassie. A week after her diagnosis, she had gotten better, not worse than they had predicted. She was up and running, the pink colour flushed in her cheeks, her youth glowing from her face. Amazingly and grateful to the gods, William and Justine had taken her to get reports done. The MRI scan showed them proof of the miracle. There was no tumour in her brain. 
+
+I haven't told you the most crucial part of this tale, have I? Why does this miraculous, heartfelt story seem more like horror fiction? Forgive me, I guess I forgot to mention it to you. I had a line of profession quite different from the rest. You see, I worked in a morgue. 
+
+Yes, I know what you're thinking. I can hear the gears turn in your head—Cassie's diagnosis, my work, and the cure-all tie together. But I was desperate. I had to make it work. And it did.
+
+My sacrificing of the dead souls to the devil, that is.
+
+It was like a miracle, and I was proud of saving her and keeping our family together and happy, away from any harm. 
+
+How absolutely foolish.
+
+Until it wasn't satisfied by the dead bodies anymore, it wanted alive, breathing ones. It took William first, then Justine.
+
+Then there were several others, and now it's my turn. I can hear its voice; I think it's right outside my door. It's growling a guttural sound, but I can make out the words to understand what it says.
+
+"Uncle R-e-d..Uncle R-e-d!"
+

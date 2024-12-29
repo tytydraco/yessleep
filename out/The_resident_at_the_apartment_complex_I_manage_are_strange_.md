@@ -18,5 +18,3 @@ Climbs walls? Got a resident like that. A living voodoo doll? Got a resident lik
 Anyway yeah, the complex is home to people from all over, even people you never thought could exist. I've got stories to tell about my time here so far, so don't worry, this won't be the last you hear from me. Now if you'll excuse me, 429 needs me to fix their window for the 20th time.
 
 [Part 1](https://www.reddit.com/r/nosleep/s/Os704yNiZk)
-
-[Part 3](https://www.reddit.com/r/nosleep/s/mE1HOexqSg)
