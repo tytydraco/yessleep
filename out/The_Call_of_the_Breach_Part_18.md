@@ -1,5 +1,7 @@
 [\[Part 17\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hmzs84/the_call_of_the_breach_part_17/)
 
+[\[Part 19\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hp7xzt/the_call_of_the_breach_part_19/)
+
 *Boom.*
 
 Dust rained from the ceiling onto the map table before us, and Chris swiped it away from the topographical lines with a weary hand. “So, we’re all in agreement?”

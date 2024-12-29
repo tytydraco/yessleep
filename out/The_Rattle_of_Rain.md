@@ -179,23 +179,23 @@ Eric was outside now as well, shouting into the forest, and Hannah was standing 
 
 “You don’t think…” I managed to utter to her, “that…that she…”
 
-“No.” Hannah grabbed my arm assuringly. “Aaron no. She’s going to be fine okay? We’ll find her…we just have to-“
+“No.” Hannah grabbed my arm assuringly. “Aaron *no*. She’s going to be fine okay? We’ll find her…we just have to-“
 
-“Ah! What the fuck?” Eric had now stopped shouting, and instead appeared to be struggling with something over at the edge of the wood.
+“AH! What the fuck?” Eric had now stopped shouting for Courtney, and instead appeared to be struggling with something over at the edge of the wood.
 
 “Eric?” Hannah said, letting go of my arm to approach the spot where he stood. “Eric what’s wrong?”
 
 I approached as well, only to see that Eric’s foot looked to be stuck under a tree root.
 
-“I must have walked right into it”, he said, grimacing, but no matter how hard he tried he didn’t seem to be able to dislodge himself.
+“I must have walked right into it”, he said, grimacing. He tried to dislodge himself, but wasn’t able to move.
 
-“Wait up…I’ve got you.” I knelt down and tried to pull his foot out myself, and after a few unsuccessful attempts, hoisted him up around the waist in an effort to lift him straight out of it. Nothing seemed to work.
+“Wait up…I’ve got you.” I knelt down and tried to pull his foot out myself, and after a few unsuccessful attempts tried to hoist him up around the waist in an effort to lift him straight out of it. Nothing seemed to work.
 
 “What the hell is this?”, he said, a note of panic in his voice now. 
 
 The morning was growing brighter. The rain clouds that had loomed overhead for the past 24 hours appeared to be taking a slight reprieve, and as golden rays of light shone upon the ground, I saw something so unbelievable that I almost fell over in shock…
 
-The tree root, which was already wrapped tight around Eric’s foot, was now tightening its grip even further. Thin wooden fingers were shooting out of the mud and slithering all over his ankle — circling and twisting — wrapping his lower leg in tight coils. Hannah let out an ear-splitting scream.
+The tree root, which was already wrapped tight around Eric’s foot, was now tightening its grip even further. Thin wooden fingers were shooting out of the mud and slithering all over his ankle — wrapping his lower leg in tight coils. Hannah let out an ear-splitting *scream.*
 
 Shaking, I once again tried to hoist him up around the waste, but nothing was working, and what was worse was that he now seemed to be sinking.
 
@@ -203,7 +203,7 @@ Shaking, I once again tried to hoist him up around the waste, but nothing was wo
 
 “I don’t know. It’s…” I had him wrapped around the torso, pushing against the ground with all my might. “It’ll be fine.”
 
-“Aaron please…” Hannah was begging…pleading…there were tears streaming silently down her face. “Aaron please get him out of th-“
+“Aaron please…” There were tears streaming silently down Hannah’s face. “Aaron please get him out of th-“
 
 *CRACK.*
 
@@ -211,15 +211,15 @@ Shaking, I once again tried to hoist him up around the waste, but nothing was wo
 
 But the tips of the roots that had circled his leg were now slithering towards me, and instinct took over.
 
-I fell backwards into the mud, struggled backwards as the root-ends nipped at my ankles, and barely managed to get away in time. By the time I stood back up, Eric was almost waist deep in the earth, screaming out in pain. 
+I fell backwards into the mud and crawled away as quickly as I could, barely managing to escape the root-ends nipping at my ankles. By the time I stood back up, Eric was almost waist deep in the earth, screaming out in pain. 
 
 “FUCK! MAKE IT STOP!! PLEASE MAKE IT STO-“
 
 *CRACK.*
 
-His femur had now snapped, and the portion of his body that was still visible tilted suddenly to one side. He was sinking slowly into the ground at an angle, the roots of the tree now wrapping themselves around his torso. He was crying, whimpering, looking out at the two of us in pure fear.
+His femur had now snapped, and the portion of his body that was still visible tilted suddenly to one side. He was sinking slowly into the ground at an angle, the roots of the tree now wrapping themselves around his torso. He was looking out at the two of us in pure fear.
 
-Hannah was sobbing hysterically — making small motions to get closer and then backing away again, as the roots were trying to grasp her ankles as well.
+Hannah was crying hysterically — making small motions to get closer and then backing away again. The roots were moving towards her as well.
 
 I was jumping left and right, trying to find any way possible to approach. Eric’s arm was reaching out to me in one last-ditch effort to be saved, but it was no use. There was no safe ground. 
 
@@ -227,17 +227,17 @@ The core of Eric’s body was now completely hidden from view. The roots were ti
 
 *CRACK.*
 
-Eric’s arm dropped suddenly to the ground, and his upper body hung limp and lifeless to one side. There was nothing now to be done.
+Eric’s arm dropped suddenly to the ground, and his upper body hung limp and lifeless to one side. There was now nothing to be done.
 
-“NOOOOO!!!” Hannah fell to her knees, sobbing uncontrollably, oblivious to the thin fingers that were shooting up out of the mud right next to her. 
+“NOOOOO!!!” Hannah fell to her knees, sobbing, oblivious to the thin fingers that were shooting up out of the mud right next to her. 
 
-I ran over and dragged her away just in time, pulling her back towards the shelter and away from the watching trees, and though I covered her eyes to make sure she couldn’t watch, I saw it — Eric’s head sinking  slowly into the earth, the whites of his eyes looking right at us.
+I ran over and dragged her away just in time, pulling her back towards the shelter and away from the watching trees, and though I covered her eyes to make sure she couldn’t watch, I saw it — Eric’s head sinking slowly into the earth, the whites of his eyes looking right at us.
 
-We fell to the floor, and huddled together in fear, as the forest was filled once more with an unnerving series of clicks.
+We fell to the shelter floor and huddled together in fear as the forest was filled once more with a series of unnerving *clicks.*
 
 Hannah and I remained in the shelter for the next six days — shivering and crying in each other’s arms as the rain pounded against the roof. Every once in a while there were screams off in the distance, followed by that terrible rattling noise, but we never once looked. We barely moved, only getting up to use the restroom or to open a can of raw cold vegetables. 
 
-By the second day we could hear helicopters passing by up above (the authorities must have been alerted of disappearances by fellow hikers) but no one ever showed up to the shelter, and eventually the sound of outside life faded away.
+By the second day we could hear helicopters passing by up above (the authorities must have been alerted to the disappearances) but no one ever showed up to the shelter, and eventually the sound of outside life faded away.
 
 The rain stopped on the seventh day, and once I was confident that the ground was finally hard enough, I convinced Hannah that it was safe to leave.
 
@@ -245,4 +245,4 @@ When we stepped outside I could tell that the scenery was different. The looking
 
 That was 26 years ago. Hannah and I have been with each other ever since, and now have two wonderful children. I guess when you go through something so traumatizing together it’s impossible for anyone else to understand you the same way that they do.
 
-I’ve held myself off from writing this story ever since, as I’m fearful that no one will believe me, but I have no choice now. The weather channels are forecasting heavy rain in that area for the first time since 1998, and I don’t want what happened to us to happened to anyone else. So please! Before you go to Ahote National Park, please think about this story, think about what could happen to your loved ones, and think about that terrible and horrifying clicking noise. Think of the rattle of rain.
+I’ve held myself off from writing this story ever since, as I’m fearful that no one will believe me, but I have no choice now. The weather channels are forecasting heavy rain in that area for the first time since 1998, and I don’t want what happened to us to happened to anyone else. So please! Before you go to Ahote National Park, please think about this story, think about what could happen to your loved ones, and think about that terrible and horrifying *clicking noise.* Think of *the rattle of rain.*
