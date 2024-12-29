@@ -192,7 +192,7 @@ I had to find Laura, so I rushed to her place.
 
 Police tape blocked Laura's apartment door. Her roommate Nina stood in the hallway, arms wrapped around herself.
 
-"The police found her car. At the train station. Empty,” Nina, Laura’s roommate, said, voice cracking.
+"The police found her car. At the train station. Empty,” Nina said, voice cracking.
 
 The ringing in my ears built to a crescendo. Metal scraped against metal, and chains rattled through the static.
 
@@ -339,4 +339,3 @@ Laura’s voice whispered through the silence one last time, "The frequency find
 I closed my laptop and let the quiet settle in. I couldn’t do this again.
 
 In the distance, a phone rang, [unanswered](https://www.reddit.com/user/NekroLore/).
-

@@ -26,7 +26,7 @@ Their poor mother. I contemplated whether or not I had a right to re-open a heal
 
  
 
-One month went by and I was startled awake in the middle of the night the vibration of my phone. There was another text from Francis. I opened it and all it said was, “fuck you”. It was the original ending to our story. Maybe because of the hour, and the way that you can sometimes feel when reality reveals to you that it can be so much more than prosaic, that it can indeed be strange and mysterious, but what I did was I texted him back. A simple inquiry, I said: “Francis?”
+One month went by and I was startled awake in the middle of the night by the vibration of my phone. There was another text from Francis. I opened it and all it said was, “fuck you”. It was the original ending to our story. Maybe because of the hour, and the way that you can sometimes feel when reality reveals to you that it can be so much more than prosaic, that it can indeed be strange and mysterious, but what I did was I texted him back. A simple inquiry, I said: “Francis?”
 
  
 
