@@ -1,4 +1,4 @@
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hmo8c3/hiraeth_or_where_the_children_play_you_cant_get/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hmo8c3/hiraeth_or_where_the_children_play_you_cant_get/)/[Next](https://www.reddit.com/r/nosleep/comments/1hom55x/hiraeth_or_where_the_children_play_god_be_damned/)
 
 As I’m certain I’ve felt the endless sorrows of a life lived poorly, I’m certain too that Gemma was right in saying that I was a pitiable man—pitiful might be the better word in that regard but I catch the drift of her meaning. How long can a man live a life and wallow in sadness? What life is that? What life is that to the one that I love? There is nothing for me that way—if I’d had the sense then I would have thrown myself from a tall building a long time ago. If I intended to live worthlessly, why didn’t I instead die worthlessly?
 
@@ -164,4 +164,4 @@ The wall man which had escorted me there remained at the steps and looked me ove
 
 That night, I went to Felina’s in the dark, stood in the shadows, removed my mask, and smoked. The blue night was cool, and I tilted into the dilapidated structure. There was a family crowded there in the darkness like scared mice—it may well have been an amalgam of people, but I’d like to believe it was a family weathering their misfortune together. The people crowded around a small portable stove and gibbered to one another until they were startled at my arrival, and I waved them goodbye, apologized for the intrusion, and stepped back into the night and felt overwhelmed by what would come next.
 
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hmo8c3/hiraeth_or_where_the_children_play_you_cant_get/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hmo8c3/hiraeth_or_where_the_children_play_you_cant_get/)/[Next](https://www.reddit.com/r/nosleep/comments/1hom55x/hiraeth_or_where_the_children_play_god_be_damned/)
