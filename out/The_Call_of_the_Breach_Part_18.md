@@ -56,7 +56,7 @@ Satisfied with their enthusiasm, Chris turned to Sandra. “In the meantime, you
 
 “Understood.” Sandra made a subconscious tug at her ragged sleeves, as if to roll them up before yet another surgery.
 
-At last, Chris’s gaze fell on me, and I sensed a mix of pride and grim reluctance at what he was asking me to do. “I’ll take the western flank. As acting Head Ranger, you’ll need to be at the front of the offensive to help gauge our success. Since your platoon is already there, can you lead the pincer for the east?”
+At last, Chris’s gaze fell on me, and I sensed a mix of pride and grim reluctance at what he was asking me to do. “I’ll take the eastern flank. As acting Head Ranger, you’ll need to be at the front of the offensive to help gauge our success. Since your platoon is already there, can you lead the pincer for the west?”
 
 My skin tingling at the surreal sound of being addressed in my new rank, I nodded. “Can do.”
 
