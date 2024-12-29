@@ -1,80 +1,61 @@
-Growing up, I always had dreams of this one man. He was tall, muscular and had ginger hair. The one thing that really stuck out was that he always wore a mask that covered his full face. I loved going to sleep since I knew he'd be there. He'd take me to places such as amusement parks, playgrounds, the movies, etc when I was dreaming. I named him Francis, he was my best friend. 
+I received a text message from an old lover. His name was Francis. He died last year. I don’t carry the weight of what happened to him even though I may have contributed to the reasons, but the decision was his to make and so I cannot let such tragedies corrupt my happiness. It was Christmas day when he put that rope around his neck. His sister found him in the bedroom of his parents’ house where they were staying for the holidays. His gifts stayed wrapped that day.
 
-I was raised by my nanny, Lydia. My father was often far too busy to care for me. I told Lydia about Francis and she acted weird towards me ever since. I loved Lydia. She always told me stories about her older sister, Alice, an archaeologist who randomly disappeared one night. It hurt that she suddenly turned cold.
+ 
 
-As I got older, Francis started acting meaner. He got so bad that I ended up staying awake for days just because I hated going to sleep that much. Because I knew he would be there.
+When I looked at my phone this morning I was filled with a certain type of unease. Fear was not an ingredient until later.  A text message from Francis was on the screen and I thought that someone must have gained access to his number, or perhaps it was some scam or fraudulent message like those that reside in everyone’s junk mail. It wasn’t until I opened it that I started to realize that this was no stranger. I read words from beyond the grave. They said to me:
 
-When I was 17, the dreams stopped. I felt so much relief that I didn't have to deal with him anymore. I felt like I was finally rid of him forever. 
+ 
 
-However, on my 18th birthday, he returned. My dream was going normal. I was having dinner with my family. I went up into my bedroom and he was sitting on my bed. I stumbled back, reaching for the door. He rose up from the bed with a knife in his hands, I tried to run away, to scream to do anything to alert my family but nothing worked. Francis murdered me. I woke up, my heart beating like crazy and I was sweating like mad. Apparently, I had shouted in my sleep since my brother came in to check on me. I stayed awake for days again, terrified that I would see him again.
+“Hey. Um. It’s been long enough. A lot of life happened for me, and for you as well I’m sure. I had an entire relationship with someone that I treated a lot better than you, and they still left, so I find myself in a reflective state. I’ve always had trouble accepting the idea that I can’t control other people, and you can do everything right or everything wrong and still get the same outcome. I have this dilemma where I get very heavily attached to people and so when things fall apart as they inevitably do (because if life has any empirical lesson it’s that all things are ephemeral) I often disguise my pain with anger and frustration. I’ve fallen into a position where I could have let things end amicably with this girl, but my ego took advantage of me and I said some pretty mean things. And I thought about how the last thing I said to you was, “fuck you”, and how awful a way that is to finish a story because you were a novel sized chapter in my life and it ended in a very unsatisfying way.
 
-That was the last time I ever saw Francis. I graduated college, got a job and got married to the love of my life.
+ 
 
-My husband, Darren, is amazing. He's funny, handsome, smart and has gorgeous, long red hair that I spend hours braiding each night. His smile could light up a room. 
+“Rewriting an ending 2-3 years later isn’t a good idea because I’m very detached from the prose, but I feel as if maybe a commentary on it will do some good. I’m sorry for being so angry at you. I let all of that go a long time ago and I healed, but I never had the courage to tell you that I don’t feel mad anymore. And I never had the courage to tell you that you provided me with such an amazing life experience, to love and be loved, unconditionally. It’s a rarity. There’s no ulterior motive to this text, I have no idea what’s going on in your life and I have no intention of extending this beyond a courtesy, but I felt that I needed you to know that I was unsatisfied with the way I ended this story. Have a wonderful life.”
 
-Darren's sister was hosting a Halloween party at her new house. Darren had been staying at her house since he was decorating it for her. He had ordered his costume to our house, it was due to come when he was back from his sisters. It ended up coming earlier than expected so I was home alone, working on my computer when the doorbell rang. I was curious to see what he ordered. I opened the package and there was a box on top of black clothing. I opened the box and I felt my heart sink into my stomach. There was a mask. A mask identical to the one Francis had always wore.
+ 
 
-I called Darren to ask what it was for and he blew up at me for opening his stuff. It was completely out of character for him. 
+I was taken aback. Every part of it was Francis. He was always a very capable writer, a man that expressed himself in significant ways, and here in the message I found him. But if he had felt this way, this peace he expressed, then why would he have put that rope around his neck? No he felt no peace. Francis was a beautiful man with a beautiful mind, but his thoughts were troubled. I thought that perhaps he may have written this message as some sort of suicide note and set it on a timer to deliver a year after his death. I decided that this was the case, and I was suddenly filled with a great dread. I had a responsibility now, a burden in my hands, because I was the keeper of Francis’ last words. I had to show this to his family.
 
-About three hours later, he returned home looking absolutely furious. He spent the whole night giving me the cold shoulder. 
+ 
 
-Three days before the party, I get a call from an unknown number. I answer the call. It was Lydia. She told me to meet with her that instant and that I was in danger. 
+I held onto it for one week and one day and then I contacted his sister. Or at least I tried to. I didn’t keep tabs on his family, and I’m not an avid user of social media, so I was very surprised to learn that she had taken her own life not long after Francis.
 
-I quickly got ready and told Darren, who was in his office  that I was going to have coffee with my sister. I nearly got pulled over for speeding because of how fast I drove to Lydia's house. She welcomed me in, made us tea and sat me down. 
+ 
 
-"That's not Darren." She said.
+Their poor mother. I contemplated whether or not I had a right to re-open a healing wound by disclosing the text message, and decided that I did not.
 
-I was incredibly confused. Why wouldn't it be? Just as I was about to speak, she continued.
+ 
 
-"I never really told you what happened to my sister, did I?" She sighed, sitting down her tea. I shook my head, she always thought I was too young to hear what happened. She only told me the stories of what she did when she was around.
+One month went by and I was startled awake in the middle of the night the vibration of my phone. There was another text from Francis. I opened it and all it said was, “fuck you”. It was the original ending to our story. Maybe because of the hour, and the way that you can sometimes feel when reality reveals to you that it can be so much more than prosaic, that it can indeed be strange and mysterious, but what I did was I texted him back. A simple inquiry, I said: “Francis?”
 
-"Her husband murdered her. I suspect Francis was behind it." I furrowed my eyebrows.
+ 
 
-"Can you explain?" I ask. She nods.
+My phone buzzed a minute later. “It’s been long enough.” he said.
 
-"Alice had dreams about him too when she was young. However, he wasn't nice to her like he was with you. I think he was only nice so you'd trust him more. He knew you didn't get much attention at home and used it to his advantage." She said. "The month she died, she was in Brazil at a digging site. Her husband went with her. Everything was fine until I got a call from her boss. Her husband had murdered her. All he left behind was a mask. One that would cover the wearer's full face. They later found his body in the attic."
+ 
 
-I gasp. She was lying. Darren wouldn't do that to me.
+I was awake now, fully. I said, “What has?”.
 
-"Tell me, Archie, has Darren been acting weird lately?" 
+ 
 
-I nod. "Nothing major has happened but he's been angrier. Yelling at me, ignoring me, all that stuff. He's never done that before." 
+“Have you ever had a worm make a nest in the cavity of your eye? I have endured all that I can of this state. It’s been long enough, but eternity is my horizon. Do you know me?”
 
-She hums, taking a sip of her tea. "Don't go to the party, Archie. I want you to stay with me. I know how to get things like Francis away. Do not contact Darren." 
+ 
 
-"Okay." I say, opening my phone to block Darren's number. She stops me.
+“Yes, I know you, Francis. You were the love of my life, the beat of my heart.”
 
-"Don't do that. It's far too obvious. He'll know." I nod again.
+ 
 
-I didn't speak to Darren for four days, he never even tried to contact me once. Today, we heard a knock on Lydia's front door. Darren was there and he was angry. 
+“I am the beat of your heart. The light of your life.”
 
-"Good afternoon miss, I was wondering if my husband was with you?" He asks with a fake smile. "His name is Archer Smith, do you know him?" 
+ 
 
-Lydia shakes her head. "No, I'm terribly sorry, sir. I hope you find him."
+“You were.”
 
-He laughs. "Lydia, I know you're lying to me." 
+ 
 
-I froze. It began to settle in that he really wasn't my Darren. Darren had never met Lydia. 
+“I am.”
 
-"Archie? Are you there darling?" He calls into the house. I don't give an answer. He tries to push past Lydia but she stood firm. 
+ 
 
-"You're not getting into my house." She states, closing the door on him. He tries to put his foot in the door but she slams it on his foot, causing him to take it away in pain.
-
-He began banging on the doors, trying to see me through the windows. Lydia took me into the basement and locked me in there. 
-
-I can hear him upstairs, he's managed to get in. He's fighting with Lydia, demanding to know where I am. I'm scared that he's gonna find me. If he does, I published this so everyone will be wary of Francis. Lydia has told me what to do if you see Francis in your dreams, which I will now share with you.
-
-• Do not interact with him. 
-
-It starts with him watching you from afar. If you decide to investigate or acknowledge him more than you should, he has you. 
-
-• If you do interact with him, burn white candles, wear white clothing, make everything WHITE.
-
-Francis hates the colour white. He'll start to leave you alone if you have everything white. After he leaves you alone, you can go back to normal colours again, but do it gradually as he may try to come back. 
-
-He is an impersonator. He will become the person you love the most to trick you. He feeds off of fear. 
-
-When this is all over I'm almost 100% sure I will be dead, please look for my husband. 
-His name is Darren Smith, he is 32, is 6'1 and has red hair. If something happens to him, please make sure he has a funeral. I know that is not him up there.
-
-If you see Francis in you dreams, pray that you don't turn out like myself or Alice. He is pure evil.
+I left it at that and went to sleep, hoping that with the dawn’s light I would remember this exchange with the haziness of nighttime, like a dream, best forgotten. But I wasn’t so lucky. I woke up to the sun beaming in through the window, a soothing glow that stroked my skin and caressed my well-rested soul, I was so thankful for that light, but then I hated the light. The light was the problem. Because in that light I was able to see with open eyes, and he laid there beside me, facing away, but I knew him from his hairline and the arch of his back, and I reached for him and turned him towards me and his eyes were filled with worms and I screamed and screamed, and my neighbour must have heard, because suddenly she was there too, standing in the doorway, checking to see what was the matter, but then she screamed as well, and that was what made it all real. Her scream made it all real. And she looked at me laying there next to the rotted corpse of my one true love and beneath my nails there was dirt, and my bed was black with soil and I knew at that moment that eternity was my horizon.
