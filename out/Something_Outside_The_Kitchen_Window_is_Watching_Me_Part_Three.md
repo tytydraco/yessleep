@@ -53,7 +53,7 @@ My words caught in my throat as my mind began to process what I just said out lo
 **Family Of Seven Dies In An Apartment Fire**  
 *December 28, 2001 • By Aidan Kellen*
 
-In the early morning of December, a family of seven tragically succumbed to an apartment fire in Richmond, Virginia. Down in the Maplewood District, on Sycamore Hollow Lane, the Crestview Commons apartment flat was engulfed in flames, caused by an undetected gas leak discovered during the investigation.
+In the early morning of December, a family of seven tragically succumbed to an apartment fire in Richmond, Virginia. Down in the (XXXX) District, on (XXXX) Lane, the Crestview Commons apartment flat was engulfed in flames, caused by an undetected gas leak discovered during the investigation.
 
 Authorities uncovered the remains of the Gonzales family; Hector Gonzales (36), Josephine Gonzales (35), and Nico Gonzales (15). The remains of four Gonzales children—Mila (13), Andrew (9), Jenny (5), and Joseph (1)—could not be conclusively identified amidst the aftermath but were ultimately presumed deceased.
 
