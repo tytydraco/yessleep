@@ -36,7 +36,7 @@ Hannah seemed to have no criticism for Eric’s storytelling now. She remained c
 
 But the rest of us never heard what happened next, because at that exact moment Jazz ran away from the fire, barking madly.
 
-“Hey!”, Eric yelled. He stood, put his fingers to his mouth, and *whistled*. “Jazz!”
+“Hey!”, yelled Eric. He stood, put his fingers to his mouth, and *whistled*. “Jazz!”
 
 “Here boy!” yelled Hannah.
 
