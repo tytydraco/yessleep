@@ -343,3 +343,5 @@ As of right now, we're trying to find where the Hunger Grass could be, and along
 Lucky me, I know three Neighbors who are well-versed in the art of torturing mortals. To be clear. I don't believe the Hunters were responsible for planting it. For one, none of them seem like they'd be much into gardening (not even Grandma Iolo), and for another, they appear to prefer to be more direct when it comes to their methods. However, they could give us a lead on either where to find it or what brought it here. 
 
 Looks like grandmother dearest is getting another skull for [Christmas.](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD)
+
+Update: Victor and I attended the Wild Hunt's ['Christmas party'](https://www.reddit.com/r/nosleep/s/cnu2HBu5qY)

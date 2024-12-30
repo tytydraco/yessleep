@@ -44,7 +44,7 @@ Courtney and I followed them through the dark wood to where Jazz, for some odd r
 
 Hannah knelt down and began to pat Jazz on the head. “There we go…it’s alright…good boy.” She looked up at Eric. “What the hell is that thing?”
 
-“I don’t know”, Eric replied, staring at the eye-carving, but I could tell that he wasn’t being entirely truthful. He looked to be shaken by something.
+“I have no idea”, Eric replied, staring at the eye-carving, but I could tell that he wasn’t being entirely truthful. He looked to be shaken by something.
 
 After Jazz finally calmed down and we were able to return to the campsite, the others were ready to hear the end of Eric’s story, but he clearly didn’t want to tell it anymore. Courtney and Hannah protested for a while, but I didn’t say a word. I thought I could tell where the story was heading anyway, and I didn’t want to think about that.
 
@@ -183,7 +183,7 @@ Eric was outside now as well, shouting into the forest, and Hannah was standing 
 
 “No.” Hannah grabbed my arm assuringly. “Aaron *no*. She’s going to be fine okay? We’ll find her…we just have to-“
 
-“Ahhh!”, yelled Eric, “What the fuck?!” He had now stopped shouting for Courtney, and instead appeared to be struggling with something over at the edge of the wood.
+“Ah!”, yelled Eric suddenly, “What the fuck?!” He had now stopped shouting for Courtney, and instead appeared to be struggling with something over at the edge of the wood.
 
 “Eric?” Hannah said, letting go of my arm to approach the spot where he stood. “Eric what’s wrong?”
 
@@ -201,7 +201,7 @@ The tree root, which was already wrapped tight around Eric’s foot, was now tig
 
 Shaking, I once again tried to hoist him up around the waste, but nothing was working, and what was worse was that he now seemed to be sinking.
 
-“What is this?!”, he asked, his voice quivering. “What’s happening to me?!!”
+“What is this?!”, he asked, his voice quivering. “What’s happening?!!”
 
 “I don’t know. It’s…” I had him wrapped around the torso, pushing against the ground with all my might. “It’ll be fine…”
 
