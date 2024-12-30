@@ -44,7 +44,7 @@ Courtney and I followed them through the dark wood to where Jazz, for some odd r
 
 Hannah knelt down and began to pat Jazz on the head. “There we go…it’s alright…good boy.” She looked up at Eric. “What the hell is that thing?”
 
-“I don’t know”, Eric replied, staring at the eye-carving, but I could tell he wasn’t being entirely truthful. He looked to be shaken by something.
+“I don’t know”, Eric replied, staring at the eye-carving, but I could tell that he wasn’t being entirely truthful. He looked to be shaken by something.
 
 After Jazz finally calmed down and we were able to return to the campsite, the others were ready to hear the end of Eric’s story, but he clearly didn’t want to tell it anymore. Courtney and Hannah protested for a while, but I didn’t say a word. I thought I could tell where the story was heading anyway, and I didn’t want to think about that.
 
@@ -104,7 +104,7 @@ The yelping turned into a high painful *squeal*, and then resumed, faster and lo
 
 The yelping became even higher-pitched, but it was softer this time, as if there wasn’t much voice left.
 
-Courtney and I unzipped the tent door and rushed outside just in time to see Hannah and Eric rushing off into the darkness. We followed as quickly as we could. 
+Courtney and I unzipped the tent door and hurried outside just in time to see Hannah and Eric rushing off into the darkness. We followed as quickly as we could. 
 
 Jazz could be heard up ahead…we were getting closer…we were nearly there…
 
@@ -158,7 +158,7 @@ Though the shelter was empty, there seemed to be a great deal of miscellaneous i
 
 On a small wooden desk in the corner was a travel log. If you don’t know what a travel log is, try to think of a guest book at an Airbnb, but instead of a notebook filled with comments about home decor and local restaurants, imagine a jointly-owned diary where dozens of travelers describe their experiences while hiking in the park. They’re usually a much more interesting read than a guest book as well — often involving fun drawings, song lyrics, and even tips for navigating the surrounding area — but this was by far the most interesting travel log I had ever read. As rain pounded against the shelter roof and the others tried to get the fireplace going, I lost myself in its pages.
 
-There were a number of crude hyper-realistic drawings: a bear eating a woman alive, a man’s screaming head poking out of a roaring campfire, another man in various states of agony as leaves and twigs and branches sprout from his skin. There were also pages upon pages of odd schizophrenic ramblings, strange runic symbols, an entire page that had nothing but a tiny scrawl of words in its center that read “Ahote = the restless ones”, and another page with an unsettling cryptic poem. The last four words were underlined:
+There were a number of crude hyper-realistic drawings: a bear eating a woman alive, a man’s screaming head poking out of a roaring campfire, another man in various states of agony as leaves and twigs and branches sprouted from his skin. There were also pages upon pages of odd schizophrenic ramblings, strange runic symbols, an entire page that had nothing but a tiny scrawl of words in its center that read “Ahote = the restless ones”, and another page with an unsettling cryptic poem. The last four words were underlined:
       
 *”Twice born in sunlight, and once born in bone,
 The victimless victims grow harder than stone,
@@ -183,7 +183,7 @@ Eric was outside now as well, shouting into the forest, and Hannah was standing 
 
 “No.” Hannah grabbed my arm assuringly. “Aaron *no*. She’s going to be fine okay? We’ll find her…we just have to-“
 
-“AH! What the fuck?!” Eric had now stopped shouting for Courtney, and instead appeared to be struggling with something over at the edge of the wood.
+“Ahhh!”, yelled Eric, “What the fuck?!” He had now stopped shouting for Courtney, and instead appeared to be struggling with something over at the edge of the wood.
 
 “Eric?” Hannah said, letting go of my arm to approach the spot where he stood. “Eric what’s wrong?”
 
