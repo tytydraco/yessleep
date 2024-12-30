@@ -126,7 +126,7 @@ Hannah was visibly shaking. “Oh my god…Eric…Eric did you hear him? He soun
 
 “I know.” Eric pulled her close and wrapped his arms around her, still looking around in every direction. “I know.”
 
-As Hannah sobbed against Eric’s chest, Courtney grabbed my hand and leaned her head onto my shoulder. We waited there in silence, and though I couldn’t see her face, I knew that we were both crying as well.
+As Hannah cried against Eric’s chest, Courtney grabbed my hand and leaned her head onto my shoulder. We waited there in silence, and though I couldn’t see her face, I knew that we were both crying as well.
 
 After a long and unsuccessful search of the nearby trees, we all tried to return to our tents, but then something happened that was somehow weirder than anything else that had happened up until that point…our campsite seemed to be missing.
 
@@ -247,4 +247,4 @@ When we stepped outside I could tell that the scenery was different. The looking
 
 That was 26 years ago. Hannah and I have been with each other ever since, and now have two wonderful children. I guess when you go through something so traumatizing together it’s impossible for anyone else to understand you the same way that they do.
 
-I’ve held myself off from writing this story ever since, as I’m fearful that no one will believe me, but I have no choice now. The weather channels are forecasting heavy rain in that area for the first time since 1998, and I don’t want what happened to us to happen to anyone else. So please! Before you go to Ahote National Park, please think about this story, think about what could happen to your loved ones, and think about that terrible and horrifying *clicking noise.* Think of *the rattle of rain.*
+I’ve always held myself off from posting this story anywhere, as I’m fearful that no one will believe me, but I have no choice now. The weather channels are forecasting heavy rain in that area for the first time since 1998, and I don’t want what happened to us to happen to anyone else. So please! Before you go to Ahote National Park, please think about this story, think about what could happen to your loved ones, and think about that terrible and horrifying *clicking noise.* Think of *the rattle of rain.*
