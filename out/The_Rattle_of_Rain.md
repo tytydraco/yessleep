@@ -201,11 +201,11 @@ The tree root, which was already wrapped tight around Eric’s foot, was now tig
 
 Shaking, I once again tried to hoist him up around the waste, but nothing was working, and what was worse was that he now seemed to be sinking.
 
-“What is this?!”, he asked, his voice quivering. “What’s happening to me?!”
+“What is this?!”, he asked, his voice quivering. “What’s happening to me?!!”
 
-“I don’t know. It’s…” I had him wrapped around the torso, pushing against the ground with all my might. “It’ll be fine.”
+“I don’t know. It’s…” I had him wrapped around the torso, pushing against the ground with all my might. “It’ll be fine…”
 
-“Aaron please…”, Hannah pleaded, tears streaming silently down her face. “Aaron please get him out of th-“
+“Get him out of there!!” Hannah yelled. Tears were streaming down her face now. “Aaron please get him out of th-“
 
 *CRACK.*
 
