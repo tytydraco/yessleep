@@ -14,13 +14,13 @@ Every disappearance from Ahote National Park has had these three things in commo
 
 “Like I was saying,” Eric continued with a playful glare at Hannah, “others in the area apparently heard the victims’ screams before they vanished. And that’s not all…
 
-“There was apparently some type of confusion amongst the surviving hikers as well, for some of them took days or even weeks to find their way out of the park following these disappearances. And these weren’t amateurs either; many of them were highly experienced, having traversed the trails dozens of times before. But that’s the thing…they said that the trails *weren’t even there*, that they had disappeared like the people who went missing. There were others that disagreed, saying that the trails had merely changed, and just as many who were actually convinced that years had passed since they initially entered the forest and that the trails had become overgrown with the passing of time.
+“There was apparently some type of confusion amongst the surviving hikers as well, for some of them took days or even weeks to find their way out of the park following these disappearances. And these weren’t amateurs either; many of them were highly experienced, having traversed the trails dozens of times before. But that’s the thing…they said that the trails *weren’t even there*, that they had disappeared like the people who went missing. There were others that disagreed, saying that the trails had merely changed, and just as many who were actually convinced that years had passed since they had initially entered the forest and that the trails had become overgrown with the passing of time.
 
 “Now, naturally, since the last disappearance was decades ago, people have had plenty of time to come up with a number of ridiculous theories about what happened here, but the only living people who *really* know what happened are the descendants of the Watomi tribe.
 
-“You see”, continued Eric, glancing around at the nearby trees, “this part of Arizona used to be part of their Reservation, the Watomi that is, until about 100 years ago when the United States government decided to lay claim to it. According to the natives, the U.S. soldiers were determined to use any means necessary to annex their territory: ambushing the Watomi while they slept, chopping down entire sections of the forest to relocate them, starting controlled fires with the remaining trees to suffocate them; and in the end, it worked. After 12 hard-fought years the Watomi were forced to relocate to Black Mesa.
+“You see”, continued Eric, glancing around at the nearby trees, “this area of Arizona used to be part of their Reservation, the Watomi that is, until about 100 years ago when the United States government decided to lay claim to it. According to the natives, the U.S. soldiers were determined to use any means necessary to annex their territory: ambushing the Watomi while they slept, chopping down entire sections of the forest to relocate them, starting controlled fires with the remaining trees to suffocate them; and in the end, it worked. After 12 hard-fought years the Watomi were forced to relocate to Black Mesa.
 
-“But those in the Watomi tribe were not of a forgiving nature. They were a proud people, with a long history of seeking vengeance towards those who had wronged them. Yes, they lost the war, but they managed to capture a number of U.S. hostages after many of the battles, and as a matter of retribution, they performed a kind of horrific ritual with them.
+“But those in the Watomi tribe were not of a forgiving nature. They were a proud people, with a long history of seeking vengeance towards those who had wronged them. Yes, they lost the war, but they managed to capture a number of U.S. hostages after many of the battles, and as a matter of retribution, performed a kind of horrific ritual with them.
 
 “One by one the hostages were tied to a stake, their skin decorated with tar and oil to represent the bark of the nearby Aspens, and one by one they were chopped apart as if their limbs were the branches of a tree. The natives danced around them as they suffered, singing a series of harsh guttural words, laughing as the hostages bled slowly to the forest floor below, but they didn’t kill them. No…not then anyway. Like I said, the Watomi were not the forgiving type, and the U.S. military had not only cut down their trees, they had burned them as well. The blood that had fallen to the stacks of wood below was now used as fuel, and as the flames rose slowly up to the stumps of the victims, the Watomi chanted their song even louder, joining their voices to the terrible anguished screams that rang out into the night sky.”
 
@@ -60,11 +60,11 @@ It took a couple of hours for the weather to die down again, and once it did we 
 
 “It should be here”, Eric said, looking down at his map dubiously. “This doesn’t make any sense.”
 
-Alone and in the thick of the forest again, with the encroaching darkness of night upon us, the joy of the afternoon had seemed to evaporate. The going had been rough. After treading carefully down the mud-soaked slopes of the valley for hours, it looked as if we had now lost the trail.
+Alone and in the thick of the forest again, with the encroaching darkness of night upon us, the joy of the afternoon had seemed to evaporate. The going had been rough, and after treading carefully down the mud-soaked slopes of the valley for hours, it looked as if we had now lost the trail.
 
 “It’s like the story from last night”, Hannah suggested.
 
-“Don’t”, Eric said. He clearly wasn’t in the mood for that. “We’ll be fine. We must have stepped off the trail somewhere back there.”
+“Don’t”, said Eric. He clearly wasn’t in the mood for that. “We’ll be fine. We must have stepped off the trail somewhere back there.”
 
 “It’s getting dark though. We won’t make it back even if we find the trail.”
 
@@ -104,7 +104,9 @@ The yelping turned into a high painful *squeal*, and then resumed, faster and lo
 
 The yelping became even higher-pitched, but it was softer this time, as if there wasn’t much voice left.
 
-Courtney and I unzipped the tent door and rushed outside. We could just see Hannah and Eric rushing off into the darkness towards the source of the sound and followed as quickly as we could. Jazz could be heard up ahead. We were getting closer…we were nearly there…
+Courtney and I unzipped the tent door and rushed outside just in time to see Hannah and Eric rushing off into the darkness. We followed as quickly as we could. 
+
+Jazz could be heard up ahead…we were getting closer…we were nearly there…
 
 *CRACK.*
 
@@ -114,7 +116,7 @@ Courtney and I reached the edge of a small hollow, where Eric and Hannah had now
 
 “JAZZ! JAZZ!!”
 
-“Jazz where are you?! Please! Jazz!!”
+“Jazz where are you?! Jazz!!”
 
 But there was no other sound to be heard, nothing, except…
 
@@ -124,7 +126,7 @@ Hannah was visibly shaking. “Oh my god…Eric…Eric did you hear him? He soun
 
 “I know.” Eric pulled her close and wrapped his arms around her, still looking around in every direction. “I know.”
 
-As Hannah sobbed against Eric’s chest, Courtney grabbed my hand and leaned her head onto my shoulder. We waited in silence, and though I couldn’t see her face, I knew that we were both crying as well.
+As Hannah sobbed against Eric’s chest, Courtney grabbed my hand and leaned her head onto my shoulder. We waited there in silence, and though I couldn’t see her face, I knew that we were both crying as well.
 
 After a long and unsuccessful search of the nearby trees, we all tried to return to our tents, but then something happened that was somehow weirder than anything else that had happened up until that point…our campsite seemed to be missing.
 
@@ -154,7 +156,7 @@ But there were no steps to retrace. The rain had turned all the dirt to mud, and
 
 Though the shelter was empty, there seemed to be a great deal of miscellaneous items strewn all about the place: flashlights and matches and water bottles and canned food. There were also some sleeping bags on the shelter’s flat hardwood floor, and something else that interested me more than any of the other items…
 
-On a small wooden desk in the corner was a travel log. If you don’t know what a travel log is, try to think of a guest book in an Airbnb, but instead of a notebook filled with comments about home decor and local restaurants, imagine a jointly-owned diary where dozens of travelers describe their experiences while hiking in the park. They’re usually a much more interesting read than a guest book as well — often involving fun drawings, song lyrics, and even tips for navigating the surrounding area — but this was by far the most interesting travel log I had ever read. As rain pounded against the shelter roof and the others tried to get the fireplace going, I lost myself in its pages.
+On a small wooden desk in the corner was a travel log. If you don’t know what a travel log is, try to think of a guest book at an Airbnb, but instead of a notebook filled with comments about home decor and local restaurants, imagine a jointly-owned diary where dozens of travelers describe their experiences while hiking in the park. They’re usually a much more interesting read than a guest book as well — often involving fun drawings, song lyrics, and even tips for navigating the surrounding area — but this was by far the most interesting travel log I had ever read. As rain pounded against the shelter roof and the others tried to get the fireplace going, I lost myself in its pages.
 
 There were a number of crude hyper-realistic drawings: a bear eating a woman alive, a man’s screaming head poking out of a roaring campfire, another man in various states of agony as leaves and twigs and branches sprouted from his skin. There were also pages upon pages of odd schizophrenic ramblings, strange runic symbols, an entire page that had nothing but a tiny scrawl of words in its center that read “Ahote = the restless ones”, and another page with an unsettling cryptic poem. The last four words were underlined:
       
@@ -211,7 +213,7 @@ Shaking, I once again tried to hoist him up around the waste, but nothing was wo
 
 But the tips of the roots that had circled his leg were now slithering towards me, and instinct took over.
 
-I fell backwards into the mud and crawled away as quickly as I could, barely managing to escape the root-ends nipping at my ankles. By the time I stood back up, Eric was almost waist deep in the earth, screaming out in pain. 
+I fell backwards into the mud and crawled away as quickly as I could, barely managing to escape the root-ends nipping at my ankles. By the time I stood back up, Eric was almost waist deep in the earth.
 
 “FUCK! MAKE IT STOP!! PLEASE MAKE IT STO-“
 
@@ -229,7 +231,7 @@ The bulk of Eric’s body was now completely hidden from view. The roots were ti
 
 Eric’s arm dropped suddenly to the ground, and his upper body hung limp and lifeless to one side. There was now nothing to be done.
 
-“NO!!!” Hannah fell to her knees, sobbing, oblivious to the thin fingers that were sprouting out of the mud right next to her. 
+“NO!!!” Hannah fell to her knees, sobbing uncontrollably, oblivious to the thin fingers that were sprouting out of the mud right next to her. 
 
 I ran over and managed to drag her away just in time, pulling her back towards the shelter and away from the trees, and though I covered her eyes to make sure she couldn’t watch, I saw it — Eric’s head sinking slowly into the earth, the whites of his eyes looking right at us.
 

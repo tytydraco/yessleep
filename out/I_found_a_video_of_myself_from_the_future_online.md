@@ -104,4 +104,4 @@ Nadine pulls the plug to my headphones.
 
 The man on the computer dies.
 
-“What did it look like to [you?"](https://x.com/sadappearance)
+“What did it look like to you?"
