@@ -318,7 +318,7 @@ The ringing built to a crescendo. Through the static, metal scraped against meta
 
 And somewhere in the city, another girl started screaming.
 
-The dark web forum vanished after Elena's funeral. My thesis notes became evidence in a cold case, filed away in a dusty police archive. Detective Morris closed Jack's investigation without answers. No suspects. No justice.
+The dark web forum vanished after Laura's funeral. My thesis notes became evidence in a cold case, filed away in a dusty police archive. Detective Morris closed Jack's investigation without answers. No suspects. No justice.
 
 Just silence.
 
