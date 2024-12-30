@@ -331,3 +331,6 @@ I stayed silent, my eyes nervously shifting to the scarecrow looming behind him.
 Without warning, he ripped the wooden pole from the ground and tossed it aside; the scarecrow landed in the dirt with a dull thud.
 
 Suddenly, a bolt of lightning cracked across the sky, lighting up the field for a split second, followed by a deep rumble of thunder. But Monroe paid no heed to it.
+
+  
+[Part2](https://www.reddit.com/r/nosleep/comments/1hpmgbe/blood_moon_rising_part2/)
