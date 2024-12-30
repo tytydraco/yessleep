@@ -158,7 +158,7 @@ Though the shelter was empty, there seemed to be a great deal of miscellaneous i
 
 On a small wooden desk in the corner was a travel log. If you don’t know what a travel log is, try to think of a guest book at an Airbnb, but instead of a notebook filled with comments about home decor and local restaurants, imagine a jointly-owned diary where dozens of travelers describe their experiences while hiking in the park. They’re usually a much more interesting read than a guest book as well — often involving fun drawings, song lyrics, and even tips for navigating the surrounding area — but this was by far the most interesting travel log I had ever read. As rain pounded against the shelter roof and the others tried to get the fireplace going, I lost myself in its pages.
 
-There were a number of crude hyper-realistic drawings: a bear eating a woman alive, a man’s screaming head poking out of a roaring campfire, another man in various states of agony as leaves and twigs and branches sprouted from his skin. There were also pages upon pages of odd schizophrenic ramblings, strange runic symbols, an entire page that had nothing but a tiny scrawl of words in its center that read “Ahote = the restless ones”, and another page with an unsettling cryptic poem. The last four words were underlined:
+There were a number of crude hyper-realistic drawings: a bear eating a woman alive, a man’s screaming head poking out of a roaring campfire, another man in various states of agony as leaves and twigs and branches sprout from his skin. There were also pages upon pages of odd schizophrenic ramblings, strange runic symbols, an entire page that had nothing but a tiny scrawl of words in its center that read “Ahote = the restless ones”, and another page with an unsettling cryptic poem. The last four words were underlined:
       
 *”Twice born in sunlight, and once born in bone,
 The victimless victims grow harder than stone,
@@ -191,7 +191,7 @@ I approached as well, only to see that Eric’s foot looked to be stuck under a 
 
 “I must have walked right into it”, he said, grimacing. He tried to dislodge himself, but wasn’t able to move.
 
-“Wait up…I’ve got you.” I knelt down and tried to pull his foot out myself, then attempted to hoist him up around the waist in an effort to lift him straight out of it. Nothing seemed to work.
+“Wait up…I’ve got you.” I knelt down and tried to pull his foot out myself, and then attempted to hoist him up around the waist in an effort to lift him straight out of it. Nothing seemed to work.
 
 “What the hell is this?”, he said, a note of panic in his voice now. 
 
@@ -209,19 +209,19 @@ Shaking, I once again tried to hoist him up around the waste, but nothing was wo
 
 *CRACK.*
 
-“AHHHHHHH!” Eric let out a terrible anguished scream, and I looked down to see that his lower leg was now bent up at a harsh angle. His shin had been snapped completely in half and his foot was sticking out of the mud right next to him. It was twisting in on itself, attached to the rest of his body by nothing but splintered bones and loose tangled skin. He was shouting out in pain. “FUCK!! AH! HELP ME!!”
+“AHHHHHHH!” Eric let out a terrible anguished scream, and I looked down to see that his lower leg was now bent up at a harsh angle. His shin had been snapped completely in half and his foot was sticking out of the mud right next to him. It was twisting in on itself, attached to the rest of his body now by nothing but splintered bones and loose tangled skin. He was shouting out in pain. “AHHH! FUCK!! HELP ME!!”
 
 But the tips of the roots that had circled his leg were now slithering towards me, and instinct took over.
 
 I fell backwards into the mud and crawled away as quickly as I could, barely managing to escape the root-ends nipping at my ankles. By the time I stood back up, Eric was almost waist deep in the earth.
 
-“FUCK! MAKE IT STOP!! PLEASE MAKE IT STO-“
+MAKE IT STOP!! PLEASE MAKE IT STO-“
 
 *CRACK.*
 
-His femur had now snapped, and the portion of his body that was still visible tilted suddenly to one side. He was sinking slowly into the ground at an angle, the roots of the tree now wrapping themselves around his core. He was looking out at the two of us in pure fear.
+The portion of Eric’s body that was still visible tilted suddenly to one side. He was sinking slowly into the ground at an angle, the roots of the tree now wrapping themselves around his core. He was looking out at the two of us in pure fear, but no longer seemed to have the voice to yell.
 
-Hannah was crying hysterically — making small motions to get closer and then backing away again. The roots were moving towards her as well.
+Hannah was crying hysterically — making small motions to get closer and then backing away again.
 
 I was jumping left and right, trying to find any way possible to approach. Eric’s arm was reaching out to me in one last-ditch effort to be saved, but it was no use. There was no safe ground. 
 
@@ -231,7 +231,7 @@ The bulk of Eric’s body was now completely hidden from view. The roots were ti
 
 Eric’s arm dropped suddenly to the ground, and his upper body hung limp and lifeless to one side. There was now nothing to be done.
 
-“NO!!!” Hannah fell to her knees, sobbing uncontrollably, oblivious to the thin fingers that were sprouting out of the mud right next to her. 
+Hannah fell to her knees, sobbing wildly, oblivious to the thin fingers that were sprouting out of the mud right next to her. 
 
 I ran over and managed to drag her away just in time, pulling her back towards the shelter and away from the trees, and though I covered her eyes to make sure she couldn’t watch, I saw it — Eric’s head sinking slowly into the earth, the whites of his eyes looking right at us.
 
