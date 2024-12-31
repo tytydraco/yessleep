@@ -181,7 +181,7 @@ Eric was outside now as well, shouting into the forest, and Hannah was standing 
 
 “You don’t think…” I managed to utter to her, “that…that she…”
 
-“No.” Hannah grabbed my arm assuringly. “Aaron *no*. She’s going to be fine okay? We’ll find her…we just have to-“
+“No.” Hannah grabbed my arm assuringly. “Aaron *no*. She’ll be fine okay? We’ll find her…we just have to-“
 
 “Ah!”, yelled Eric suddenly, “What the fuck?!” He had now stopped shouting for Courtney, and instead appeared to be struggling with something over at the edge of the wood.
 
@@ -203,9 +203,9 @@ Shaking, I once again tried to hoist him up around the waste, but nothing was wo
 
 “What is this?!”, he asked, his voice quivering. “What’s happening?!!”
 
-“I don’t know. It’s…” I had him wrapped around the torso, pushing against the ground with all my might. “It’ll be fine…”
+“I don’t know. It’s…” I had him wrapped around the torso, pushing against the ground with all my strength. “It’ll be fine…”
 
-“Get him out of there!!” Hannah yelled. Tears were streaming down her face now. “Aaron please get him out of th-“
+“Get him out of there!”, Hannah yelled. “Aaron please get him out of th-“
 
 *CRACK.*
 
