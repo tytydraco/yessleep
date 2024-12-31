@@ -30,23 +30,23 @@ Its glowing eyes followed her retreat, then shifted back to me.
 
 Whenever the weather was nice, I’d make sure the cat was on the fridge before slipping outside. The ravine behind Tina’s house felt safer than the kitchen.
 
-That day, the ravine was too quiet. The air hung thick and damp, laced with the scent of rotting leaves and stagnant water. Bare tree branches clawed at the gray sky like skeletal hands.
+That day was overcast, and it was even darker in the ravine beneath its canopy of overgrown foliage and twisted branches. The air was damp, clammy, and laced with the scent of rotting leaves, stagnant water, and maybe a hint of sewage. To me, it seemed like a jungle, and I was an explorer. Maybe that’s why I wandered a bit further than usual, my footsteps crunching pleasantly on leaves and twigs and sinking slightly into the ground.
 
-I wandered further than I should have, my footsteps crunching softly on the muddy ground.
+I was looking down at my shoes and imagining how Tina would react if I tracked mud into her kitchen when a flash of something silver and bright blue caught my eye. It was a dog collar, frayed on one side, with a silver tag on it. I bent down, picked it up, and examined it. The collar was still in a loop, and the buckle and dog tag were bent out of shape. I looked closer at the tag, trying to read it.
 
 “What are you doing down here?”
 
-The voice cut through the stillness like a knife.
+I just about jumped out of my skin and swung around, my hands out in front of me defensively. One of them was holding the collar.
 
-I spun around to see a man step out from the shadows. He was tall and wiry, his face red and weathered, his eyes bright, his expression angry.
+A man stepped out from the shadows. It was Tina’s neighbor, Mr. Karp. He’d seemed like a nice enough man when I’d occasionally seen him in his yard or walking his dog, but down here in the woods, he was too close, too tall. And the expression that crossed his face when he saw what was in my hand looked insane.
 
-“You know something about my dog, don’t you?” he asked, his tone low, almost accusatory.
+“What—what did you do to my dog?” he demanded, his voice rising in pitch with every word.
 
-“No,” I whispered, stepping back.
+“Nothing!” I squeaked, cringing in fear, my eyes starting to well up. Without thinking, I began to turn slightly—unconsciously preparing to run.
 
-The man grabbed my arm, his grip iron. “Tell me the truth!”
+The man grabbed my upper arm, his grip painfully tight and digging deep into my skin. “Tell me the truth!” he screamed, lifting his other hand to slap me.
 
-The bushes behind us rustled, and then a dark, rippling mass slammed into the man, knocking him away from me, and both of us to the ground. The cat landed between us, its jaw unhinged, gaping impossibly wide. Its black tongue coiled out like a python, looping around the man’s ankles, thighs, and waist. And then, just as the man started to scream, the cat swallowed him whole.
+Suddenly, a dark, gray mass slammed into the man, knocking him away from me, and both of us to the ground. The cat landed between us, its jaw unhinged, gaping impossibly wide. Its black tongue coiled out like a python, looping around the man’s ankles, thighs, and waist. And then, just as the man started to scream, the cat swallowed him whole.
 
 The wet snap of its jaws echoed through the ravine, and for a moment, I thought I heard the faint muffled sound of the man still screaming.
 
@@ -54,9 +54,9 @@ The cat stood there, licking its lips. Its tail swished delicately, then its glo
 
 It padded toward me slowly, its paws silent on the damp earth.
 
-When it reached me, it leaned in close. Its breath was hot and rancid against my skin. Then it rubbed its cold, wet nose against my cheek, purring.
+When it reached me, it leaned in close. Its breath was hot—rancid. Horrible. Then it rubbed its cold, wet nose against my cheek, purring.
 
-That was forty years ago. I never told anyone what happened. Who would believe me? What would I even say? Tina never mentioned her neighbor again, but as his grass grew longer and people asked questions, I think she knew.
+That was forty years ago. I never told anyone what happened. Who would believe me? What would I even say? Tina never mentioned her neighbor again, but as his grass grew longer and people started asking questions, I think she knew.
 
 When my aunt died, I went to her funeral. She was family, after all. No one talked about the huge cat she had all those years ago. Obviously, I wasn’t about to bring it up.
 
@@ -78,7 +78,7 @@ I don’t lock the doors anymore.
 
 Sometimes, late at night, I fall asleep to the sound of its claws clicking on the floorboards. And I wake in the morning to the pressure of the cat’s weight on my chest.
 
-Its eyes burn into mine, and I can feel its claws through the comforter.
+Its eyes burn into mine, I feel its claws through my comforter. Its breath is still hot—rancid. Horrible.
 
 I scratch its chin.
 

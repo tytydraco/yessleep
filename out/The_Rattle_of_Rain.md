@@ -205,11 +205,11 @@ Shaking, I once again tried to hoist him up around the waste, but nothing was wo
 
 “I don’t know. It’s…” I had him wrapped around the torso, pushing against the ground with all my strength. “It’ll be fine…”
 
-“Get him out of there!”, Hannah yelled. “Aaron please get him out of th-“
+“Get him out of there!”, Hannah yelled, horror-struck. “Aaron please get him out of th-“
 
 *CRACK.*
 
-“AHHHHHHH!” Eric let out a terrible anguished scream, and I looked down to see that his lower leg was now bent up at a harsh angle. His shin had been snapped completely in half and his foot was sticking out of the mud right next to him. It was twisting in on itself, attached to the rest of his body now by nothing but splintered bones and loose tangled skin. He was shouting out in pain. “AHHH! FUCK!! HELP ME!!”
+“AHHHHHHH!” Eric let out a terrible anguished scream, and I looked down to see that his lower leg was now bent up at a harsh angle. His shin had been snapped completely in half and his foot was sticking out of the mud right next to him. It was twisting in on itself, attached to the rest of his body now by nothing but splintered bones and loose tangled skin. He was shouting out in pain. “FUCK!! HELP ME!!”
 
 But the tips of the roots that had circled his leg were now slithering towards me, and instinct took over.
 

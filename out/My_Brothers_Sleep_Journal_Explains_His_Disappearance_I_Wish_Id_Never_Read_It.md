@@ -98,7 +98,7 @@ I couldn’t even tell if the Redditor was a man or a woman. Their username was 
 
 Then I asked Vee. Her response didn’t help much.
 
->*\[7:38 PM, 05/11/2024\] Vee Vee: Interesting... I’ve heard of the occurrence myself. Especially the sweet perfume turning putrid.* 
+>*\[7:38 PM, 05/11/2024\] Vee Vee: Interesting... I’ve heard of the occurrence myself. Especially the sweet perfume turning putrid.*
 
 >*\[7:41 PM, 05/11/2024\] Vee Vee: I can’t find it right off the bat, but it reminds me of tales people have told about demons and how they try to trick humans by way of their senses. Usually, I’ve heard about it mostly occurring with demons trying to impersonate children.*
 
@@ -184,7 +184,7 @@ Did I mention the entities? I don't remember. There's a lot I don't remember any
 
 The stench woke me first. It was overwhelming, suffocating, like the room itself was rotting from the inside out.
 
-I couldn't open my eyes. I didn't dare. But I knew it was there. 
+I couldn't open my eyes. I didn't dare. But I knew it was there.
 
 The air around me felt wrong, heavy and alive. Just like it felt each time I wrote about it in these pages. Each entry making it stronger, more present. God, how did I not see it before? Every word I put down was like a brushstroke, painting it into existence.
 
@@ -234,4 +234,4 @@ We remember reading it.
 
 *\*Edit 2: I've started smelling perfume in my apartment too. I live on the seventh floor.*
 
-*\*Final Update: I should have burned this journal when I had the chance. The pen feels strange in my hand now. Heavy. Each stroke deliberate, guided and I'm running out of paper too.*
+*\*Final Update: I should have burned this journal when I had the chance. The pen feels strange in my hand now. Heavy. Each stroke deliberate, guided and I'm running out of paper*[ too.](https://www.instagram.com/the._undying/)
