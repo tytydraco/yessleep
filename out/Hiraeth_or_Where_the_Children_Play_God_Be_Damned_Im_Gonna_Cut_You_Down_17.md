@@ -1,4 +1,4 @@
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hnpuzo/hiraeth_or_where_the_children_play_it_dont_rain/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hnpuzo/hiraeth_or_where_the_children_play_it_dont_rain/)/[Next](https://www.reddit.com/r/nosleep/comments/1hq6kk7/hiraeth_or_where_the_children_play_execution_day/)
 
 The knife slid across the old man’s face, caught in the cheekbone—I jammed my body weight into the blade to force it—the knife glided into Harold’s eye, and he did not stir too much in his bed; a single energetic spasm came over his legs while he gargled on spit and then he was nothing. I yanked the knife free and wiped it against my pant leg and the new corpse lay still there in his bed.
 
@@ -156,4 +156,5 @@ Dirt twisted under my footfalls as I came to the foot of the stairs that led to 
 
 I staggered up the stairs and they each moved from their position, weapons half-readied, and I lifted the shotgun to the one on the left; the bead lined up with his chest and I squeezed the trigger then pivoted right to aim again.
 
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hnpuzo/hiraeth_or_where_the_children_play_it_dont_rain/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hnpuzo/hiraeth_or_where_the_children_play_it_dont_rain/)/[Next](https://www.reddit.com/r/nosleep/comments/1hq6kk7/hiraeth_or_where_the_children_play_execution_day/)
+

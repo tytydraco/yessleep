@@ -8,7 +8,7 @@ To that end, I'm posting the two most damning pieces of classified information I
 
 **Number One:** The Bureau's memo regarding their investigation into the disappearance of Tributary and its people in March of 1992. Published in December of 1998.
 
-**Number Two:** Personal journal entries from the person/celestial entity that inadvertently *caused* those disappearances, recovered from the site in the early 2000s. Her name was Arora Sevitts. But post-ascension, she was more commonly referred to as "Infinity's Daughter".
+**Number Two:** Personal journal entries from the person/celestial entity that inadvertently *caused* those disappearances, recovered from the site in the early 2000s. Her name was Arora Sevitts. But post-ascension, she was more commonly referred to as "Infinity's Daughter" or “The Prism”
 
 God willing, I'll be alive long enough to follow up on all this. If not, at least I went out with a bang, not a whimper.
 
