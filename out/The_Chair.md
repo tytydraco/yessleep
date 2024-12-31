@@ -2,7 +2,7 @@ I am still not sure how I ended up in this situation. I remember dropping the ki
 
 As I turned to go back it happened. Not sure what mind you. I woke up with an instense headache. It was pitch black. The first thing I noticed was my feet were on a concrete floor and it was freezing cold. 
 
-Wait what happens to my shoes??
+Wait what happened to my shoes??
 
 What Why can’t I lift my legs??
 
@@ -136,7 +136,7 @@ What was in that lasagna??
 
 Suddenly I am back, still alone in the dark in a chair that has become my prison.
 
-I am not sure how long I was in that chair. I just know the Giant, as I affectionally  called him brought me 3 more meals of lasagna. Each time I would drift off afterwards and dream. Each time in my dream that same woman in a black dress would be in there and she would smile at me. One time I saw my sons upcoming baseball tournament and she was there. I began to look forward to seeing her friendly face. As odd as that may sound.
+I am not sure how long I was in that chair. I just know the Giant, as I  affectionately  called him brought me 3 more meals of lasagna. Each time I would drift off afterwards and dream. Each time in my dream that same woman in a black dress would be in there and she would smile at me. One time I saw my sons upcoming baseball tournament and she was there. I began to look forward to seeing her friendly face. As odd as that may sound.
 
 He hadn’t spoken to me much. 
 
