@@ -1,0 +1,35 @@
+I genuinely don't know if my writing this will make any difference, but it pains me to see the world in such a panic, and no government can or is willing to offer a satisfactory explanation. I don't know if my clarification of current events will satisfy the panicked urges of the masses, and satiate them into some sort of melancholic acceptance, or multiply the fear response and cause chaos the world over.
+
+I am also writing this for the historical record, in the very unlikely event a historical record continues in any way past the next two or three years.
+
+Two years ago, scientists noticed the moon seemed to become dimmer in the night sky, reflecting less sunlight. It didn't take long for observers to see that there seemed to be dark patches forming, that weren't there years before. The familiar craters and shadows of the surface were becoming blemished by dark spots that reflected very little light. Over the next few months, the dark patches were observed getting slowly but consistently larger, and soon entirely new dark spots began to form.
+
+Many theories were proposed, including that there was water beneath the moon's surface that was somehow being drawn out. While the public really latched on to that, it didn't take astronomers long to debunk that theory. Water would be far more reflective than whatever the dark stains were.
+
+It was incredible how quickly a new manned mission to the moon was conceived, engineered, and executed. It took just over a year from the first observation to send the new Saturn VI rocket to deploy four astronauts to the moon. By this time, the majority of the moon's surface was nearly dark, leaving every night looking like it was a new moon. In just a matter of days, the astronauts returned with samples of the dark material from the surface.
+
+The dark material was not a powder like the familiar gray dust the surface normally consisted of. It was solid, and had a similar consistency to obsidian, though obsidian is very shiny and this material seemed to absorb more light than it reflected. The astronauts had to chip pieces off with tools to get samples to bring back.
+
+All the public knows at this point is that Florida is quarantined. The American government never said the real reason why, publicly. They blamed a new pandemic, but wouldn't share information with any other world governments. What disease could be so contagious, and so profoundly deadly, that detonating a nuclear weapon at Merritt Island seemed to be the best option. Epidemiologists the world over demanded samples of the pathogen, but it never came. And it didn't explain why it seemed to originate from a black glassy material on the moon.
+
+The unfortunate truth is that it is not a disease, whether terrestrial or extraterrestrial in nature. Most people I imagine may be relieved the hear it isn't a disease, but it's far worse.
+
+The material, which physicists at CERN theorize could be strange matter, appears to propagate indefinitely. Anything touched by even an atom of the material converts to the material. It didn't take long after the astronauts landed to see that their suits and tools were quickly becoming black glass. The fascination quickly turned to worry when the quarantined astronauts displayed parts of their bodies being converted to the glass. A sample was nearly sent to the CDC headquarters in Atlanta before it was quickly decided this was out of their wheelhouse.
+
+Medical procedures were immediately conducted, surgically removing the glass. It wasn't growing on or in them, but instead that part of their body was turned into the glass, replaced entirely. It was quickly discerned that the only way to prevent the glass from spreading was a full amputation of the converted body part at a point well away from the glass. However, this turned out not to matter, as blood cells that had made contact with the glass spread it to other parts of the victims' bodies, and the conversion continued. The patients were painlessly euthanized when the hopelessness of the situation was realized.
+
+It didn't take long for the surgical instruments to be observed converting. No matter how well washed or sterilized they were, they became glass. Whatever surface they were laid on became glass. The surgeons' hands began to turn to glass.
+
+It was obvious by this point that anything at all that had contact with the glass would turn into it. Everyone was immediately isolated, and an unprecedented quarantine was set in motion. We begged the president not to authorize a nuclear strike, as it would only accelerate the conversion, but he caved to public pressure. Their mistake of identifying the issue as a disease lead to the perception that a thermonuclear explosion could burn up the virus.
+
+This scattered vaporized particles of the black glass into the air, scattering it God only knows where, and planting microscopic seeds for the glass to begin spreading from. We first thought we had up to a decade before the planet was entirely converted, possibly giving us enough time to figure out how to leave.
+
+Now, the nuclear strike sent the suspected strange matter into our atmosphere, landing anywhere, colliding with molecules of air and water vapor, which will collide with more molecules, and every molecule touched converts to strange matter. Because the spread is exponential, the scattering of particles has likely accelerated the spread, and we believe we have at most three years. I doubt we can engineer and execute a mass evacuation to a new space colony in three years, when we never even landed on Mars. I don't see much hope.
+
+If this is the strange matter that the physicists believe it is, a particle the size of an atom could've collided with dark side of the moon decades ago, and we didn't notice the spread until recently. We should've left it up there. Or not let the astronauts re-enter the atmosphere. Some people said we should've shot down the shuttle before it landed, but you can't destroy matter with a missile, not at the atomic level. It would've scattered the black glass anyway. At least this way we have a few years to hold our loved ones and wait.
+
+I've seen the classified photos of houses, animals, plants, even people, all converted into black glass perfectly in the shape of what it used to be. It's a bizarre phenomenon to witness. It's almost beautiful, like a piece of artwork carved by the most skilled sculptor in the world. It isn't actually destroying anything, simply converting it. It's all still there, but gone all the same.
+
+Maybe the particle of black glass was launched out of a neutron star when it collided with another, hundreds of millions of years ago, and sealed our fate before we even evolved as a species. We can never know, just theorize. But at this point the origin doesn't really matter. We have at most three years, three years before we are all statues on the surface of a dead planet. I am so sorry to tell you like this, but personally I'd rather know the futility and live my last years on this planet to the fullest. At least, to try.
+
+Goodnight, Godspeed, and goodbye.
