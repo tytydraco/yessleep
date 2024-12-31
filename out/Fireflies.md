@@ -1,14 +1,16 @@
 What is the secret word for all the goodness in the world?
 
-You can find it if you know where to look in a churchyard near the Potomac River for a word bottled into three sounds inside a glass jar wrapped by a label with eight letters, like a spinning waltz in 3:8 time. 
+You can find it if you know where to look, in a churchyard near the Potomac River. 
+
+There you’ll discover it bottled into three sounds inside a glass jar wrapped by a label with eight letters, like a spinning waltz in 3:8 time, like a buried chest of pirate gold.
 
 Each letter holds a clue to the warm glow of summer lightning bugs housed inside.
 
-But to experience gentle summer nights, you must first know the chill of spring and autumn. Because as Tolkien, who loved riddles, said, “What lies beyond stars and under hills, comes first and follows after” is darkness. 
+But to experience the warmth of gentle summer nights, you need to first know the chill of spring and autumn. Because as Tolkien, who loved riddles, said, “What lies beyond stars and under hills, comes first and follows after” is darkness. 
 
 I write these words in the darkness of a cold hospital room with two books left here by others who didn’t know me, now my only company on Christmas Eve: The Hobbit and the Bible. So their words meander with mine.
 
-The glass bottle knew darkness too, but not in the dramatic way of martyrs like Job or Jesus. Hers was in an understated Bilbo Baggins way that appreciates the little things. Because my vanquisher of sadness, my breaker of night, was not a grey wizard with the Staff of Moses. Instead she was a unassuming little dirty-blond girl, reluctant and unexpected as heroes always are, the hero of my journey there and back again, through Mirkwood, over the Misty Mountains, into the fiery cauldron of Mordor, and on to the Shire. 
+The secret word knew darkness too, but not in the dramatic way of martyrs like Job or Jesus. Hers was in an understated Bilbo Baggins way that appreciates the little things. Because my vanquisher of sadness, my breaker of night, was not a grey wizard with the Staff of Moses. Instead she was a unassuming little dirty-blond girl, reluctant and unexpected as heroes always are, the glowing ember to my journey there and back again, through Mirkwood, over the Misty Mountains, into the fiery cauldron of Mordor, and on to the Shire. 
 
 Nobody loved a cozy Hobbit hole more than this hobbit of green pastures, along with her elf dog, Sparkly Wigglebutt.
 
@@ -158,12 +160,14 @@ This is the letter of those memories, an eternal summer, where the little guy is
 
 This is the letter of hard times, good times, and most all, the times I held that bottle in my hand. 
 
-So can you spell out the label now? If your Indiana Jones you can. 
+Can you spell out the label now? 
 
-But this is a burn after reading hieroglyphic, like Indiana Jones finding the lost ark, only to have the temple walls collapse around him. Uncovering the name of this eight-lettered jar of fireflies opens its lid and sets all the lightning bugs free. Because you only hold true goodness long enough to feel it’s glow and know what that part of life means, before turning those living embers back to the summer night, so that bedside lights can be turned out, the air conditioning turned up, old Sparkly Wigglebutt can curl up at the foot of the bed, and the stars above can shine in a world where all is still well. I've dreamed of going back to that world every waking hour since January, to feel the goodness bottled up one more time as who I was before I became broken. Maybe I will know it again in the afterlife.
+If you’re Indiana Jones you can. If you’re Bilbo Baggins you can. If you’re Moses you can.
 
-But even now, at the end of this broken world, her ember is the last glowing thing I have with certainty in my life. All others have betrayed me or faded away, one by one, from view, retreating from a life already partially invisible through my exhausting search for the lost ring of sleep, worn down by the attrition of the hardest year in the life of anyone I’ve ever known — but in spite of which, the truth of Bilbo's riddle rings stronger now than ever in my mind and my heart — that before her, without her, and after her, all returns to darkness.
+But this burn-after-reading Egyptian hieroglyphic is like Indiana finding the lost ark, only to have the temple walls collapse around him. Uncovering the name of this eight-lettered jar of fireflies opens its lid and sets all the lightning bugs free. Because you only hold true goodness long enough to feel it’s glow and know what that part of life means, before turning those living embers back to the summer night, so that bedside lights can be turned out, the air conditioning turned up, old Sparkly Wigglebutt can curl up at the foot of the bed, and the stars above can shine in a world where all is still well. I've dreamed of going back to that world every waking hour since January, just to feel the goodness bottled up one more time as who I was before I became broken. Maybe I will know that feeling again in the next life.
+
+Yet even now, at the end of this broken one, her ember is the last glowing thing I have with certainty around me. All other lights have betrayed me or faded away, one by one, retreating from a life already partially invisible through my exhausting search for the lost ring of sleep, worn down by the attrition of the hardest year in the life of anyone I’ve ever known — but in spite of which, the truth of Bilbo's riddle rings stronger now than ever in my mind and my heart — that before her, without her, and after her, all returns to darkness.
 
 Because hers is the goodness of fireflies on a summer night filled with the laughter of two brothers chasing flashes across the sky. 
 
-You can still find lightening bugs in that churchyard off Georgetown Pike, glowing in the darkness, dancing to the faint echos of two lvoices long since gone but never forgotten.
+You can still find lightening bugs in that churchyard off Georgetown Pike, glowing in the darkness, dancing to the faint echos of little voices long gone but never forgotten.

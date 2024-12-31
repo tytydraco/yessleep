@@ -46,7 +46,7 @@ Hannah knelt down and began to pat Jazz on the head. “There we go…it’s alr
 
 “I have no idea”, Eric replied, staring at the eye-carving, but I could tell that he wasn’t being entirely truthful. He looked to be shaken by something.
 
-After Jazz finally calmed down and we were able to return to the campsite, the others were ready to hear the end of Eric’s story, but he clearly didn’t want to tell it anymore. Courtney and Hannah protested for a while, but I didn’t say a word. I thought I could tell where the story was heading anyway and I didn’t want to think about that.
+After Jazz finally calmed down and we were able to return to the campsite, the others were ready to hear the end of Eric’s story, but he clearly didn’t want to tell it anymore. Courtney and Hannah protested for a while, but I didn’t say a word. I thought I could tell where the story was heading anyway, and I didn’t want to think about that.
 
 The next day passed by rather uneventfully, that is until something happened that Eric said hadn’t happened at Ahote National Park for decades: it began to pour. This seemed to have some type of euphoric effect on other hikers in the area, who all appeared to be moving through the trees in the same direction — laughing and drinking and singing.
 
