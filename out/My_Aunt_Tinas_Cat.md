@@ -28,7 +28,9 @@ Tina smiled faintly. “Yeah. But I don’t miss it.” she said, then turned an
 
 Its glowing eyes followed her retreat, then shifted back to me.
 
-Whenever the weather was nice, I’d make sure the cat was on the fridge before slipping outside. The ravine behind Tina’s house felt safer than the kitchen.
+Whenever the weather was nice, I’d make sure the cat was on the fridge before slipping outside. The ravine behind Tina’s house, as creepy as it was, still felt safer than the kitchen.
+
+It was in the ravine where I solved the mystery of the missing pets.
 
 That day was overcast, and it was even darker in the ravine beneath its canopy of overgrown foliage and twisted branches. The air was damp, clammy, and laced with the scent of rotting leaves, stagnant water, and maybe a hint of sewage. To me, it seemed like a jungle, and I was an explorer. Maybe that’s why I wandered a bit further than usual, my footsteps crunching pleasantly on leaves and twigs and sinking slightly into the ground.
 

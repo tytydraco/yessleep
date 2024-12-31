@@ -6,7 +6,7 @@ Four months into therapy, and there hadn't been much of an improvement. I had tr
 
 I wondered if I should set an ultimatum - if her family still doesn't show up to participate in therapy with her, I'd have to terminate our sessions. 
 
-I wasn't getting anywhere working with just Lucy. didn't understand her parents, and her older sister. They claimed to care, to love her and want the best for her. Yet, no matter how much I emphasised the importance of their participation in treating her eating disorder, especially since she was still a teenager, they never showed up for therapy. I had only seen them twice, when they had stopped by to pick her up and drop her off. On those occasions, I had pounced on the startled parents and herded them to my office, ignoring their startled annoyance and comments about being tight on time. I had drilled in the importance of family involvement in eating disorder interventions, or thought I did, and extracted promises from them to join in future sessions. But that never materialised. I had never seen her older sister in person, save for her modelling pictures that Lucy had shown me, when asked her what "good enough" looked like to her. 
+I wasn't getting anywhere working with just Lucy. I didn't understand her parents, and her older sister. They claimed to care, to love her and want the best for her. Yet, no matter how much I emphasised the importance of their participation in treating her eating disorder, especially since she was still a teenager, they never showed up for therapy. I had only seen them twice, when they had stopped by to pick her up and drop her off. On those occasions, I had pounced on the startled parents and herded them to my office, ignoring their startled annoyance and comments about being tight on time. I had drilled in the importance of family involvement in eating disorder interventions, or thought I did, and extracted promises from them to join in future sessions. But that never materialised. I had never seen her older sister in person, save for her modelling pictures that Lucy had shown me, when asked what "good enough" looked like to her. 
 
 "It must be really painful, to see yourself in the mirror and think such harsh, critical thoughts about yourself," I said. 
 
@@ -122,7 +122,7 @@ Her eyebrows shot up, and her jaw slackened. 
 
 She scurried over to the mirror. "But here, I... I look... This isn't me," she said pointing at her reflection. 
 
-The thrill continued coursing through my body. Most clients with eating disorders saw the same warped view in the mirror, in reality, and in photographs. The fact that Lucy didn't see the weight issues she thought she had in her photographs, could mean a wonderful breakthrough. Finally. 
+Thrill continued coursing through my body. Most clients with eating disorders saw the same warped view in the mirror, in reality, and in photographs. The fact that Lucy didn't see the weight issues she thought she had in her photographs, could mean a wonderful breakthrough. Finally. 
 
 "Look," I said, turning to her reflection, while also holding up the photo for her to see. "This is how you really look," I said, waving the phone a little. "Your reflection should reflect that..." I trailed off, as my voice caught in my suddenly dry throat. 
 
