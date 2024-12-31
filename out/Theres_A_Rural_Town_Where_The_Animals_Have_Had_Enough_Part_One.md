@@ -237,3 +237,5 @@ I thought several times of making a break from them, maybe running back into the
 All the while, the deer who kicked me stole many glances at me. The looks it gave me were horribly amused, as if it was looking forwards to doing something to me. Somehow, this made it seem both monstrous and humanoid at the same time.
 
 I have no clue how long the journey was, but to me it felt like the longest walk of my life.
+
+Part Two: [https://www.reddit.com/r/nosleep/comments/1hqkjtx/theres\_a\_rural\_town\_where\_the\_animals\_have\_had/](https://www.reddit.com/r/nosleep/comments/1hqkjtx/theres_a_rural_town_where_the_animals_have_had/)
