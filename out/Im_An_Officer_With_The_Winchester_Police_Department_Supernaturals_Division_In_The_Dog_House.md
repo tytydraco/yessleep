@@ -1,4 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/) | [Previous](https://www.reddit.com/r/nosleep/comments/1h4990t/im_no_longer_a_rookie_with_the_winchester_police/?share_id=kCVl-OLUKz9ulyxfLjxl9&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1)
+[First](https://www.reddit.com/r/nosleep/comments/1gfkkpn/im_a_rookie_with_the_winchester_police_department/) | [Previous](https://www.reddit.com/r/nosleep/comments/1h4990t/im_no_longer_a_rookie_with_the_winchester_police/?share_id=kCVl-OLUKz9ulyxfLjxl9&utm_content=2&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1) | [Next](https://www.reddit.com/r/nosleep/s/loy5LtafcG)
 
 \*\*\*
 
