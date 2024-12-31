@@ -238,4 +238,4 @@ All the while, the deer who kicked me stole many glances at me. The looks it gav
 
 I have no clue how long the journey was, but to me it felt like the longest walk of my life.
 
-Part Two: [https://www.reddit.com/r/nosleep/comments/1hqkjtx/theres\_a\_rural\_town\_where\_the\_animals\_have\_had/](https://www.reddit.com/r/nosleep/comments/1hqkjtx/theres_a_rural_town_where_the_animals_have_had/)
+Part Two: [https://www.reddit.com/r/nosleep/comments/1hqlez7/theres\_a\_rural\_town\_where\_the\_animals\_have\_had/](https://www.reddit.com/r/nosleep/comments/1hqlez7/theres_a_rural_town_where_the_animals_have_had/)
