@@ -86,7 +86,7 @@ It had become night.
 
 The absence of natural light transformed Jim into a messy human puddle on the kitchen floor.
 
-I tiptoed over to my husband, doing my best to ignore the pangs of terror vibrating in my spine. He had simply crumbled where he stood when the sun set, knelling unnaturally with his chest and torso leaning against the wall below our kitchen window.
+I tiptoed over to my husband, doing my best to ignore the pangs of terror vibrating in my spine. He had simply crumbled where he stood when the sun set, kneeling unnaturally with his chest and torso leaning against the wall below our kitchen window.
 
 Despite knowing he wasn’t, I asked if he was okay a handful of times, receiving no reply.
 
