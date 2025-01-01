@@ -80,7 +80,7 @@ I don’t lock the doors anymore.
 
 Sometimes, late at night, I fall asleep to the sound of its claws clicking on the floorboards. And I wake in the morning to the pressure of the cat’s weight on my chest.
 
-Its eyes burn into mine, I feel its claws through my comforter. Its breath is still hot—rancid. Horrible.
+Its amber eyes burn into mine, I feel its claws through my comforter. Its breath is still hot—rancid. Horrible.
 
 I scratch its chin.
 
