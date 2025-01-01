@@ -20,7 +20,7 @@ No matter what Jim did or said, Henry remained locked in an impenetrable trance.
 
 He gave up on catching Henry’s attention by the time he had made it three quarters of the way up. As Jim started to walk back, I kept watching. Henry, the sleepwalker, never changed his pace. Each identical movement was eerily slow and deliberate. After reaching the apex, he positioned himself to face our home, extended both arms palms up in front of his chest, and became impossibly still. An unblinking gargoyle baking in the early morning summer sun.
 
-At least, I thought he stationary.
+At least, I thought he was stationary.
 
 When I checked on him an hour later through the telescope, however, he had spun his torso about thirty degrees west. Arms still extended, eyes still open, but his body had turned. Concerned and captivated in equal measure, I began observing him continuously.
 
@@ -84,7 +84,7 @@ I’m not sure how long I lingered there, catatonic. The blood-chilling wails of
 
 It had become night.
 
-The absence of natural light had made Jim into a messy human puddle on the kitchen floor.
+The absence of natural light transformed Jim into a messy human puddle on the kitchen floor.
 
 I tiptoed over to my husband, doing my best to ignore the pangs of terror vibrating in my spine. He had simply crumbled where he stood when the sun set, knelling unnaturally with his chest and torso leaning against the wall below our kitchen window.
 
@@ -104,17 +104,15 @@ Through the telescope, I could see my husband perched on a pine tree of his own,
 
 My current theory is as follows: Henry must have accidentally unearthed something old and terrible digging holes in his backyard. A parasitic fungus lying dormant under the soil, infecting everyone who went near with inhaled spores once it was exposed.
 
-I’m going to make it outside today. I'll grab a shovel from the garage, and I'll fill every single hole Henry made with layers of soil. Maybe I’ll survive uninfected, but I suspect I will succumb to whatever this thing is as well.
+I’m going to make it outside today. I'll grab a shovel from the garage, and I'll fill every single hole Henry made with layers of dirt. Maybe I’ll survive uninfected, but I suspect I will succumb to whatever this thing is as well.
 
-But it’s the least I can do to honor Jim’s memory.
+It’s the least I can do to honor Jim’s memory.
 
 I’m taking the time to document and post this for two reasons.
 
 First and foremost, don’t end up like me. I hid from the world because it felt safer. But it wasn’t safer, it was just easier, and I wasted precious time.
 
-Secondly, if you see anyone perched on a tree, eyes following the trajectory of the sun, burn the tree down or run. Whatever you do, cover your mouth.
-
-Because that robin ate some of the fungus that grew from Henry, and may disseminate the spores as far as it can fly.
+Secondly, if you see anyone perched on a tree, eyes following the trajectory of the sun, burn the tree down or run. Whatever you do, cover your mouth, because that robin ingested some of the fungus that grew from Henry, and may disseminate the spores as far as it can fly.
 
 The start of its life cycle? It’s unclear, and I think that, unfortunately, the world may have an answer to that question in a few days.
 
