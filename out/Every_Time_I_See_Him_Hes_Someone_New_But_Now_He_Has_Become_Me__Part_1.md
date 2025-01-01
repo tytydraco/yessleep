@@ -1,6 +1,8 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1hr1l5k/every_time_i_see_him_hes_someone_new_but_now_he/)
+
 It all started like any other morning. My routine is the definition of mundane: wake up, make breakfast, brush my teeth, pick out a decent outfit, and double-check my pockets before leaving. Nothing special, nothing unusual. I locked the door behind me and headed to my favorite café, a place where I can sit quietly for 30 precious minutes before work consumes me.
 
-At 8 a.m. sharp, I arrived. My usual spot was waiting for me, a small table by the window where the sunlight barely reached. I lit a cigarette and leaned back, ready to enjoy my caramel macchiato.
+At 8 a.m. sharp, I arrived. My usual spot was waiting for me—a small table by the window where the sunlight barely reached. I lit a cigarette and leaned back, ready to enjoy my caramel macchiato.
 
 Then the new waiter approached.
 
@@ -14,7 +16,7 @@ Something about him unsettled me, though I couldn’t put my finger on it. He wa
 
 He brought my macchiato, and I nodded my thanks, watching him blend into the rush of the morning crowd.
 
-The day went on as usual, work was busy and predictable, a blur of monotony. By the end of my shift, I was drained. Tim, my chatty coworker, asked for a ride to work the next day, and though I hesitated, I agreed. He always talks too much, but I didn’t have the energy to say no.
+The day went on as usual—work was busy and predictable, a blur of monotony. By the end of my shift, I was drained. Tim, my chatty coworker, asked for a ride to work the next day, and though I hesitated, I agreed. He always talks too much, but I didn’t have the energy to say no.
 
 On my way home, I stopped by the Mexican restaurant my wife and I love to pick up some takeout. As I handed over my payment, I froze.
 
@@ -32,7 +34,7 @@ That night, my wife and I shared a quiet evening with our food and old movies. I
 
 But the next morning shattered that illusion.
 
-My routine was the same, wake up, brush my teeth, and head out to pick up Tim. He was already waiting when I pulled up, leaning casually against the curb.
+My routine was the same—wake up, brush my teeth, and head out to pick up Tim. He was already waiting when I pulled up, leaning casually against the curb.
 
 Except it wasn’t Tim.
 
@@ -70,11 +72,11 @@ His brow furrowed with concern. “Do you want me to call security?”
 
 He hesitated before nodding. “Take the day off. Get some rest.”
 
-I fled the office without another word, drove straight home, and locked the door behind me. The house was empty, my wife was still at work. I went to the bedroom, slammed the door shut, and collapsed onto the bed. My heart pounded in my ears, drowning out every other sound.
+I fled the office without another word, drove straight home, and locked the door behind me. The house was empty—my wife was still at work. I went to the bedroom, slammed the door shut, and collapsed onto the bed. My heart pounded in my ears, drowning out every other sound.
 
 I lay there, trembling, trying to calm the storm inside me. Minutes stretched into hours. Finally, exhaustion overtook me, and I fell asleep.
 
-When I woke, the alarm clock told me it was morning. I sighed in relief. It had to have been a dream, a long, twisted nightmare brought on by stress.
+When I woke, the alarm clock told me it was morning. I sighed in relief. It had to have been a dream—a long, twisted nightmare brought on by stress.
 
 My wife’s arm wrapped around me, soft and familiar. I turned to kiss her good morning, and my blood turned to ice.
 
