@@ -1,0 +1,13 @@
+This took place in the summer of 2023. To give you some context, I live with my parents and grandad in a relatively quiet neighborhood. Our house isn’t particularly old or creepy though. I’ve always felt safe at home, especially in my own room. It’s my personal space where I spend most of my time studying, reading, scrolling through my phone or doing stupid shit in general. That’s why what happened that night felt so disturbing.
+
+It was a warm night. I had left my windows slightly open to let in some air, and the sound of crickets chirping outside was soothing. I had gone to bed at my usual time, around 11 p.m., after finishing a long day of studying. Exhausted, I fell asleep almost immediately. I sleep alone in my room, but the presence of my family in the house has always given me a sense of comfort and security.
+
+At some point in the middle of the night, I woke up suddenly. It wasn’t a gradual waking, like when you stir because of a noise or discomfort. No, this felt different, like something had compelled me to open my eyes. The clock on my bedside table read 1 a.m., and the dim light from the lamp next to me cast a soft glow across the room. As I adjusted to being awake, I noticed something out of place.
+
+Standing next to my bed, mere inches from where I lay, was a figure. At first, I thought my tired mind was playing tricks on me, but as my vision cleared, I realized it was real, or at least it looked real. The figure was small, almost like a toddler, but really slender. Its skin had an odd, almost black quality. It had no mouth, but its eyes, fuck those eyes still haunt me. They were disproportionately large, each as big as the palm of my hand, and they stared at me unblinking. It didn’t move at all, but its gaze was enough to freeze me in place.
+
+Panic surged through me, and I screamed, instinctively pulling the thin blanket over me as if it could somehow protect me from whatever this thing was. My heart was thumping in my chest, each beat echoing in my ears. Within seconds, I heard the familiar sound of hurried footsteps as my parents rushed into my room. They turned on the main light, and the figure was gone—vanished as though it had never been there.
+
+Even with my parents standing beside me, reassuring me that everything was fine, I couldn’t shake the feeling of its presence. I didn't sleep the rest of the night, my eyes darting around the room at every shadow and flicker of light.
+
+The next morning, I mustered the courage to tell my parents what had happened. They dismissed it as a bad dream, suggesting that my imagination had gotten the better of me. But I know what I saw. It wasn’t a dream. It was something else entirely.
