@@ -1,5 +1,5 @@
 
-I’m a police officer and have been for 3 years so in no way am I a rookie, I say this because even though it’s been five years the other officers have never seen me as an equal, maybe due to them all being over 40 and having known each other for years so they usually don’t listen to me and I’ve even heard them mocking me behind my back.
+I’m a police officer and have been for 3 years so in no way am I a rookie, I say this because the other officers have never seen me as an equal, maybe due to them all being over 40 and having known each other for years so they usually don’t listen to me and I’ve even heard them mocking me behind my back.
 
 For the past 6 months an elderly lady has come down to the station every week sometimes multiple times a week to deliver us home baked donuts, the first time she came in with the donuts she was very kind and soft spoken but easy to talk to, despite this, everyone down at the station was suspicious, with good reason, and we thoroughly analyzed the treats for any signs of contamination, all analises came out clean and there was enough for most of the officers to enjoy, I’m allergic to gluten to I never tried them.
 
