@@ -2,7 +2,7 @@ When Henry perched himself atop that pine tree, I thought he’d just lost his d
 
 Never returned alive, at least.
 
-He’d always been an eccentric. It wasn’t easy living next-door to Henry, but it certainly wasn’t dull, either. Between the small city of birdhouses he maintained around the perimeter of his two-story house, the free homebrewed mead that appeared on our doorstep the first of every month, and the early morning French Horn recitals, he was a handful.
+He’d always been an eccentric. It wasn’t easy living next-door to Henry, but it certainly wasn’t dull, either. Between the small city of birdhouses he maintained around the perimeter of his two-story home, the free homebrewed mead that appeared on our doorstep the first of every month, and the early morning French Horn recitals, he was a handful.
 
 I rather liked the ongoing spectacle, all things considered. Jim never really saw the humor in Henry’s mania. That said, crippling agoraphobia has prevented me from leaving the house for almost a year now, so my threshold for what qualifies as entertainment is quite a low bar to clear.
 
@@ -70,7 +70,7 @@ The possessed men were scaling their own trees, each equidistant from Henry’s.
 
 In a state of detached shock, I moved a shaky hand to my notebook to jot down one last detail I had noticed about Henry.
 
-Tiny mushrooms had sprouted from his eye sockets, palms and his open mouth. A robin rested on his forehead, nibbling at the growing fungus.
+Tiny mushrooms had sprouted from his eye sockets, palms, and his open mouth. A robin rested on his forehead, nibbling at the growing fungus.
 
 A wave of primal terror washed over me, and I sprinted from the chair to my front door, pausing as my hand twisted the knob.
 
