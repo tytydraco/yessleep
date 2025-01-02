@@ -32,7 +32,7 @@ The station master was initially tight-lipped but became helpful after a few dri
 
 A librarian pointed me to the city plans. I drew a map to navigate the tunnels. There was the subway, intersecting rail lines I had to avoid, and the concert hall.
 
-I left an hour before dark, plenty of time to make my journey, set up the recording equipment and finally document the symphony. The tunnels were dark, even darker beside the light of my torch. The curved walls were marked by graffiti and blackened by soot, distant moving trains shook the earth and sounded like thunder. When I reached the intersecting rail lines, I waited for one to pass before crossing the tracks.
+The tunnels were dark, even darker beside the light of my torch. The curved walls were marked by graffiti and blackened by soot, distant moving trains shook the earth and sounded like thunder. When I reached the intersecting rail lines, I waited for one to pass before crossing the tracks.
 
 At the end of the tunnel an iron door stood in the wall. Behind it I found a set of steps leading to another, wooden, door. Through the gaps between the door and frame, a warm orange light spilled out. I was there.
 
