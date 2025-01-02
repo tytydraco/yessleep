@@ -36,7 +36,7 @@ For years, man, I’d just replay that night. The race, the wind in my ears, tha
 
 Even back then, I’d get this image in my head on Blacktop Road. This dark shape standing in the trees, just watching, just at the edge of the light. Never really saw it, not clearly, just my stupid imagination, I told myself. But after Kevin… I’d catch myself staring into the woods, especially when the sun started to go down, thinking I’d see it. That silent figure waiting in the shadows. Waiting.
 
-Thirty-one years, man. Thirty-one years and he’s still gone. The “what ifs” still get me sometimes, late at night, when everything’s quiet. What if I’d slowed down? What if I hadn’t been so focused on winning for once? Sometimes, in my dreams, I do slow down. I turn back. And I see him there, but then the dream just… cuts out. There’s just a sound. Like a snap, yeah, or maybe… maybe it’s just the silence rushing in to fill the space where he used to be.
+Thirty-one years, man. Thirty-one years and he’s still gone. The “what ifs” still get me sometimes, late at night, when everything’s quiet. What if I’d slowed down? What if I hadn’t been so focused on winning for once? Sometimes, in my dreams, I *do* slow down. I turn back. And I see him there, but then the dream just… cuts out. There’s just a sound. Like a snap, yeah, or maybe… maybe it’s just the silence rushing in to fill the space where he used to be.
 
 When I drive back home now, for holidays, for whatever, I always slow down when I get to that stretch of 300 South. Blacktop Road. The trees are taller now, the shadows darker, longer, and they seem to creep further across the road. And even now, after all this time, there’s that little flicker of fear, that cold spot deep in my chest.
 

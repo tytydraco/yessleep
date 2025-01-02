@@ -1,3 +1,9 @@
+[My Little Sister's a Copycat : r/nosleep](https://www.reddit.com/r/nosleep/comments/1hkrhhu/my_little_sisters_a_copycat/)
+
+[My Little Sister's a Copycat Part 2 : r/nosleep](https://www.reddit.com/r/nosleep/comments/1hmw12g/my_little_sisters_a_copycat_part_2/)
+
+[My "Little Sister" is a Copycat Part 3 : r/nosleep](https://www.reddit.com/r/nosleep/comments/1hp2054/my_little_sister_is_a_copycat_part_3/)
+
 It's over, Reddit. It's finally over.
 
 I did something so incredibly stupid, but it had to happen. I went to my house for C's birthday (without a plan, mind you), and I still can't process what went down. I wish I could say it ended in a dramatic show or a spectacle beyond words, but it was a quiet, mostly bloodless affair. I also will apologize for the change in writing style, but I don't think I can write it the way I have been.
