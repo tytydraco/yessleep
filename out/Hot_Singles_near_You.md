@@ -22,7 +22,7 @@ I felt a chill roll through me. “We”? There were multiple figures in the bac
 
 “We’re right here. 10 meters.”
 
-My heart thudded. Ten meters is practically my front yard. I jumped from my chair and ran to the window, ripping the curtain aside. Again, nothing. Just my silent street. But the atmosphere felt heavier. Like something was watching from just beyond the glow of the lamp.
+My heart thudded. Ten meters is practically my front door. I jumped from my chair and ran to the window, ripping the curtain aside. Again, nothing. Just my silent street. But the atmosphere felt heavier. Like something was watching from just beyond the glow of the lamp.
 
 When I stumbled back to my laptop, the ad had changed once more:
 
