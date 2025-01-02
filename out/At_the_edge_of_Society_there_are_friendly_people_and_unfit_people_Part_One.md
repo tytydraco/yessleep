@@ -28,7 +28,7 @@ It did. A little pinprick light in its hollow sockets focused on him, and Cullen
 
 The creature was let in through the gate a little ways down to the left. He watched on a side monitor as it walked up to the big steel doors, and heard the creak as they slid open. The viewpoint changed to a different camera, and he saw the guards receiving it. They were always pretty stiff, since they had to do all the normal processing things you did with regular people other places, except you were patting down a whatever-the-hell and not a human.
 
-He turned his eyes back to the window. He almost picked up his book again, only to groan as another light went on. He didn’t look at the labels and the monitors this time, just watched the woods. He realized a few minutes later he probably should have, when Ron Bigsby’s voice, the sectional border communications officer, gruffly spoke over the intercom.
+He turned his eyes back to the window. He almost picked up his book again, only to groan as another light went on. He didn’t look at the labels and the monitors this time, just watched the woods. He realized a few minutes later he probably should have, when Ron’s voice, the sectional border communications officer, gruffly spoke over the intercom.
 
 “Can’t see its eyes, or its hands. Caution advised.”
 
@@ -74,7 +74,7 @@ Cullen took a moment to force the tremble out of his shoulders and let the tensi
 
 He wasn’t in trouble, so he resumed his rain watching. He almost thought he could see specks of dust floating down with the droplets. Right when time was about to move on to the seventh hour of his shift, he got a different kind of alert. No one else, and nothing else, had approached his little security station.
 
-He checked one of the monitors. Bigsby’s smoke-withered voice came over the intercom again. “Friendly in distress.” Cullen’s slice of wall was called up, and so he readied his sidearm, dressed up in his sleek green-black hazard suit, and got in the buggy he’d been graciously assigned to roam the Outside with when duty called him into its twisting, patient depths. He took the teeth with him. Fresh boons were better, and he did not feel like trusting stale trinkets tonight.
+He checked one of the monitors. Ron’s smoke-withered voice came over the intercom again. “Friendly in distress.” Cullen’s slice of wall was called up, and so he readied his sidearm, dressed up in his sleek green-black hazard suit, and got in the buggy he’d been graciously assigned to roam the Outside with when duty called him into its twisting, patient depths. He took the teeth with him. Fresh boons were better, and he did not feel like trusting stale trinkets tonight.
 
 There were no roads, not in this neck of the Outside at least, outside the suburbs. More specifically, there were no consistent, logical, complete pathways that were guaranteed to bring you where you thought they went. Cullen drove off the path, and wished he had a jeep. When he’d asked about being sent out into the wild in a buggy of all things, he’d just been told it was ‘considered impolite to hide in shells’. When he’d asked for a translation into normal speech, they’d told him the strangers do not like those who hide in moving shelters.
 
@@ -138,7 +138,7 @@ He stood up, jolting, and turned towards the window. The man was now bashing his
 
 He watched the glass, in the same way it’d developed patterns earlier as rain dripped gently down its smooth frame, cry out with pitched crunches as veins of impending shattering began to bloom out from where it was struck. The man worked like a drum, eyes never on Cullen, but on the wall on the other side of the room, where the door that brought Cullen to his work space also could bring him back into civilization. Into proper, structured Society.
 
-Cullen hit a button. An alarm went off. Bigsby’s voice called in security. Cullen himself did not unsheathe his firearm, having no idea if it could protect him or if it’d just make matters exponentially worse. By the time he drew it, the man had begun to shatter his skull inwards, his forehead a bloody pulp, cuts running healthy typical red down his jaws. Only when he was about to break through did he finally look Cullen in the eye, since by then it didn’t matter.
+Cullen hit a button. An alarm went off. Ron’s voice called in security. Cullen himself did not unsheathe his firearm, having no idea if it could protect him or if it’d just make matters exponentially worse. By the time he drew it, the man had begun to shatter his skull inwards, his forehead a bloody pulp, cuts running healthy typical red down his jaws. Only when he was about to break through did he finally look Cullen in the eye, since by then it didn’t matter.
 
 He smiled his perfectly flawed smile. He reared his head back, Cullen’s heart pounding, ready to shatter the most important formality he subscribed to: the concept of barriers.
 
@@ -149,4 +149,3 @@ As the man disappeared into the forest, returning to its depths, he stared at Cu
 Cullen stared into his mug, not wanting to return the stranger’s look. He tried not to look at the bloody smear on the glass, to notice how spider-webbed the spot it’d been struck now was. He did his best to not think of the next solo shift, and the woman, or to realize why the maps showing the borders of Society and the Outside, those jigsaw maps, were always slowly changing.
 
 Most of all, he tried not to forget why he’d taken the marker to his mug, and crossed out that precious little word.
-
