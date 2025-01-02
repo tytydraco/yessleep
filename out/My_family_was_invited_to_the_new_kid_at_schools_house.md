@@ -16,11 +16,11 @@ My parents went off with the Colliers to see the house, leaving my sister and I 
 I couldn’t wait to leave. I couldn’t imagine what this boy did outside of school. I tried hard - to picture him having fun with his family, playing video games, sneaking a cigarette. I couldn’t, just a void - just alone in a void until required to go out in the world.
 
 
-In his bedroom - bedroom is a stretch - Keeping with the rest of the house, there were no pictures, or toys, or anything showing a young boy lived here. He said they hadn’t gotten around to unpacking all his things since the move. I had a hard time believing him.
+In his bedroom - bedroom being a stretch - Kept with the rest of the house, there were no pictures, or toys, or anything showing a young boy lived here. He said they hadn’t gotten around to unpacking all his things since the move. I had a hard time believing him.
 
 
 Still early in the day, I watched in relative silence alongside my sister and Lucas as our parents drilled through every interest of theirs to try and find common ground. My parents owned a fish and chip shop off the beach. Neither were prepared to connect with two scientists and their beliefs. 
-Ms Collier poured a round of drinks, loosen everyone up maybe, and put the glass bottle back into the oddly empty fridge. 
+Ms Collier poured a round of drinks, to loosen everyone up maybe, and put the glass bottle back into the oddly empty fridge. 
 
 
 She brought my sister and me a glass. She told us she didn’t mind, and wouldn’t tell our parents. My sister downed the glass straight away, I followed her lead. Over the day, Ms Collier fed us glass after glass as I dodged any interaction with her son. Later I stumbled, breaking a glass. My mother joked that I’d had too much. Did she know? It felt like a joke. I got a brief moment with my parents, huddling to talk. My dad joked, mentioning he was going on a hunt to figure out who these people were, joking about a dungeon or something.
@@ -35,10 +35,10 @@ Getting onto his feet again and again. I watched him trip, landing a heavy hand 
 We spent the afternoon by the pool, a bit shocked and a bit drunk. I took my phone out to take a photo of the mountain range. Through the house, I could see my mother and Ms Collier floating between rooms, looking like they were almost yelling. They could be laughing maybe, hands flying about. Before I could press the button, I was underwater. It took a few moments to get myself up for air, the alcohol tearing away my coordination. 
 
 
-Wiping my eyes, I saw Lucas standing at the edge. This asshole had shoulder charged me into the pool. As a joke? He had a grin, forced. I pulled myself out and pulled off my wet clothes. Ms Collier appeared at the door without my mother. She scolded Lucas who stormed off. My phone was soaked through, rapidly clicking the button showed nothing but black.
+Wiping my eyes, I saw Lucas standing at the edge. This asshole had shoulder charged me into the pool. As a joke? He had a grin, forced. I pulled myself out and pulled off my wet clothes. Ms Collier appeared at the door without my mother. She scolded Lucas who stormed off. My phone was soaked through, rapidly clicking the button showing nothing but black.
 
 
-Ms Collier was chuckling, downplaying the situation. She asked my sister to help her find some towels. I pulled myself up out of the water. The sun felt sharper, hotter than before. I hadn’t eaten or drank water in hours, my guts feeling twister in a knot. I waddled on wet, shaky legs towards the house, the back door drifting to the corners of my vision again and again.
+Ms Collier was chuckling, downplaying the situation. She asked my sister to help her find some towels while I pulled myself up out of the water. The sun felt sharper, hotter than before. I hadn’t eaten or drank water in hours, my guts feeling twisted in a knot. I waddled on wet, shaky legs towards the house, the back door drifting to the corners of my vision again and again.
 
 
 Behind some empty containers in the pantry, I found a small bag of rice. I took a small tub, filled it with rice and threw my phone in. The house was quiet. I held the tub under my arm. Standing still, I focused as hard as I could to still my heart. I tiptoed around the house, steadying myself against the cool walls.
@@ -59,7 +59,7 @@ The sober part of my brain, wherever it was working away, yanked the digital clo
 I found Mr Collier in the cupboard, feet sticking out of the doorway. I cleared my throat and he jolted up, knocking his head against a shelf. He was back? I didn’t hear them come in. My father was in hospital getting fixed up, he will get a lift back later from a doctor friend of his, Mr Collier told me. Nothing to worry about. He brushed some rice off his hands as he stood up. He said my mother was having a lay down, just a rest before dinner. He asked where Lucas was. I didn’t answer and stumbled to the bathroom. I heard him ask louder from the hallway but I was gone.
 
 
-Slamming the door shut, I closed the toilet seat lid, stood on the tips of my toes and pushed in the light fixture. Sliding the ends of my fingers into the hole, I pulled at the corner of a box and slid it out. Falling into the hands, I pulled my phone out of the box of rice. I held in the power button. The screen lit up. I let out a heavy breath of relief.
+Slamming the door shut, I closed the toilet seat lid, stood on the tips of my toes and pushed in the light fixture. Sliding the ends of my fingers into the hole, I pulled at the corner of a box and slid it out. Falling into the hands, I pulled my phone out of the box of rice. I held down the power button. The screen lit up. I let out a heavy breath of relief.
 
 
 I pushed through the bathroom window and crawled out. In the backyard, I found my mothers number and pressed the call button. It rang. Not disconnected. No answer either. After it rang out, I scrolled and found my fathers. It rang as well. I could hear the ringing. I could hear the “buzz” of the vibration. Could I hear it? I could “feel” it. I lifted each of my feet up off the grass. I could feel it through the dirt. I slowly got down onto all fours. My phone is still ringing in my hand. I pressed my head slowly down onto the grass. The vibration now shook my ear. I could hear it vibrating up through the dirt.
@@ -92,7 +92,7 @@ She whispered in my ear as she tied my arms down, hoping I could be their vessel
 She held the tip of the needle close to my skin. The end started to shake. Was she nervous? My chair was shaking. The whole room seemed to be shaking. They both leaned back. I watched the picture frames above the fireplace drop, one by one, onto the hard floor. A bright blue light flooded in the windows, lighting up the room. Plates flew off the dining table, shattering. I saw Ms Colliers’s eyes widen. She whispered something to her husband, I couldn’t make it out clearly. It sounded like she said they were early. He looked perplexed? Not stunned from a sudden earthquake, but like this wasn’t happening how he expected it to.
 
 
-I could hear the walls and windows fighting to stay upright. Then we all heard the muffled screams. Turning around, I saw my sister in the doorway. She stood still against the shaking walls. She was taking long, painful looking breathes. Letting go of his neck, Lucas dropped in a heap at her feet. His eyes winced, but the ability to move or speak had been broken. 
+I could hear the walls and windows fighting to stay upright. Then we all heard the muffled screams. Turning around, I saw my sister in the doorway. She stood still against the shaking walls. She was taking long, painful looking breaths. Letting go of his neck, Lucas dropped in a heap at her feet. His eyes winced, but the ability to move or speak had been broken. 
 
 
 Mr Collier stood up and in one motion, rushed towards her with his hands raised. Paternal instinct. I watched them scuffle. Even at half his height and weight, she put up a loose but even fight. I saw her arm snap under his weight. I saw his shock as she kept moving, swinging the arm like a mace, no pain or fear. I saw her eyes then. Black. Glassy. She dug her teeth hard into his arm, tearing a chunk off and spitting it out. 
@@ -113,7 +113,7 @@ My sister knelt down to her level. She put a hand under the mothers chin and lif
 It was my sister's voice but she sounded like she had never spoken before. Like she was forcing her throat and face muscles together for the first time. It was guttural. Filthy. I finally heard the mother. I could hear her pleading about something, saying she could fix it, that she believed. My sister had her hand wrapped around her throat now, tightening. Over the struggling breaths, I could hear Ms Collier clearer, apologising had turned to begging. Eventually she stopped. I heard a crack, like stepping on a branch. The mother dropped down, back into her grovelling heap. 
 
 
-Standing up, my sister looked at me again. She slowly walked over. Leaning down I saw into her eyes. Nothing. All I saw was myself, staring back. I finally saw how I looked. I have never seen that face before. I looked empty, drained of all fear. She placed the point of the plate shard against my neck. Slowly, she dragged it down my neck, over my shoulder and down my arm. Without taking her eyes off me, she slid the shard under the restraint and cut them open.
+Standing up, my sister looked at me again. She slowly walked over. Leaning down, I saw into her eyes. Nothing. All I saw was myself, staring back. I finally saw how I looked. I have never seen that face before. I looked empty, drained of all fear. She placed the point of the plate shard against my neck. Slowly, she dragged it down my neck, over my shoulder and down my arm. Without taking her eyes off me, she slid the shard under the restraint and cut them open.
 
 
 She dropped the shard. Staring at me, the black of her eyes faded. It wasn’t my sister's eyes looking back. No blue or green. Just a wash of grey. She wasn’t there. Nothing was there. She stood upright, her legs gave way, and she crashed backwards onto the ground. 
