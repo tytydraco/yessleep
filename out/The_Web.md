@@ -27,7 +27,7 @@ The words sent a chill down my spine. I knew that tone, that sense of urgency. S
 
 The next few minutes were a blur of radio chatter, the sound of sirens piercing the night air, and the rustling of papers as I grabbed my notes and headed out the door. I didn't need to be called; I was already on my way.
 
-As I arrived at the scene, a sense of dread settled over me. The house on Ocean Avenue was bathed in the faint glow of police lights, casting an otherworldly aura over the surrounding homes. The forensics team was already on site, their white suits a stark contrast to the darkness that seemed to seep from every pore of the house.
+As I arrived at the scene, a sense of dread settled over me. The house on [Redacted] Avenue was bathed in the faint glow of police lights, casting an otherworldly aura over the surrounding homes. The forensics team was already on site, their white suits a stark contrast to the darkness that seemed to seep from every pore of the house.
 
 I met up with Locke and Johnson, their faces grim and determined. "Officer Johnson and Locke, can you interview surrounding bystanders if they witnessed anything?" I asked, my voice firm but controlled.
 
@@ -63,7 +63,7 @@ After Jen left, Clark Santana entered the room, his demeanor calm and collected.
 
 "I'm okay," he replied, his eyes narrowing slightly. "Why am I here, though?"
 
-I leaned back in my chair, my eyes locked on his. "Just need you to answer a few questions. Johnson said you were on Hanson Lane, the connecting street to Ocean Avenue, at approximately 9:25 pm. Is this correct?"
+I leaned back in my chair, my eyes locked on his. "Just need you to answer a few questions. Johnson said you were on [Redacted] Lane, the connecting street to [Redacted] Avenue, at approximately 9:25 pm. Is this correct?"
 
 He hesitated, his eyes darting around the room. "Uh, yeah, I think so."
 
@@ -87,7 +87,7 @@ I thanked Clark and sent him on his way, my mind reeling with the implications o
 
 —————————————————
 
-On September 12th, 1994. Monday, I responded to a call from a patrol officer called to do a welfare check. Officer Jennings, badge number 1123 informed me he saw an open door, approached, and discovered the body of Janice Smith, we knew because she had her purse on her with her ID. Arrival on scene: 9:52 pm.
+On September 12th, 1994. Monday, I responded to a call from a patrol officer called to do a welfare check. Location at [Redacted] Avenue, Officer Jennings, badge number 1123 informed me he saw an open door, approached, and discovered the body of Janice Smith, we knew because she had her purse on her with her ID. Arrival on scene: 9:52 pm.
 
 The front door was closed because of officer Jennings mistake, but there was a left a trail of blood leading from the entrance to the middle of the hallway, implying the murderer entered the front. In the middle of the hallway is where Ms. Smith's body lay. A bloody handprint on the wall, presumably Ms. Smith's. The victim's body was positioned facing the ceiling, defensive wounds on her hands and arms. She had six (6) cuts on her right arm, and three (3) cuts on her left arm, two (2) cuts on her right hand and one (1) on the left. She had twelve (12) stab wounds, the stab wounds were on the left side of her body, meaning if the suspect was in front of her he is most likely right handed. 
 
