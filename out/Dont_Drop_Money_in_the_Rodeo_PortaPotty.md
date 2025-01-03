@@ -1,4 +1,4 @@
-I don’t have many childhood memories of my father, but I’ll never forget the time he took me to a rodeo. I was about eight years old, wide-eyed and overwhelmed, as if we’d stepped into another world. Cowboys on horseback, bulls snorting in their pens, clowns doing cartwheels, and the air filled with the sound of cheering crowds—it was chaos and magic all rolled into one.
+I don’t have many childhood memories of my father, but I’ll never forget the time he took me to a rodeo. I was about eight years old, wide-eyed and overwhelmed, as if we’d stepped into another world. Cowboys on horseback, bulls snorting in their pens, clowns doing cartwheels, and the air filled with the sound of cheering crowds—it was chaos, adventure, and magic, all rolled into one.
 
 The smells, though, were something else entirely. The sharp tang of manure, sweat, and beer mingled with the sweetness of fried food. It all made my head spin. I had my first funnel cake that day. That’s another thing I’ll never forget. The powdered sugar dusting my hands and face like snow. It was delicious—for about ten minutes. Then came the stomach cramps.
 

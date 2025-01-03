@@ -1,8 +1,4 @@
-
-
 Hello, reddit. My name’s Adam. I’m 18 and a senior in high school. I already knew there was something off about Hallowville. There's been about five disappearances over the past year. Anyway, my Aunt Brandi is somewhat estranged. She left right after some accident during her summer before college. I met her one time growing up, at my grandma's funeral. She didn't talk. We never really had a relationship, so I was a bit confused when a letter from her appeared in an envelope addressed from Vanderbilt. I am posting this here because I don’t know where else to go. I’m not sure what this means for my family or friends, but as soon as I get my diploma, I’m leaving this town.
-
-
 
 (the letter starts below)
 
@@ -42,7 +38,9 @@ He shrugged as I made my way around to the passenger’s seat. “Like.. an hour
 
 I buckled myself in, letting out a breath I didn’t know I was holding. “We should be home with enough time to get dressed and set the table if Angie hasn’t yet. Is the ice in the trunk or did you drop it off at my house?”
 
-Matty spared me a sheepish smile. “I may or may not have forgotten.”	“Matty!” I scolded, looking over my shoulder to check if he was joking or not. “You had an hour of nap time to get it!”
+Matty spared me a sheepish smile. “I may or may not have forgotten.”
+
+“Matty!” I scolded, looking over my shoulder to check if he was joking or not. “You had an hour of nap time to get it!”
 
 “I’m sorry, I had to get.. something ready and it slipped my mind,” he put his hand on mine. “Really, I’m sorry, Brandi.”
 
@@ -156,7 +154,7 @@ Then the hand of Death reached out for me. Pale, boney, and welcoming. I accepte
 
 “Mr. Rinefer,” I cheered, though it probably came out as a rasp. 
 
-My throat was still burning. I reached my hand up to put pressure on the pain, realizing there was a large gash through it. The blood wasn’t Mr. Rinefer sat beside me on the ground as the police officers spoke to me, the EMTs readying the gurney. I couldn’t speak, only communicating through nods and head shakes. When we got to the hospital, Sheriff Shaw was waiting in my room. Or maybe he got there after I woke up. I think they stitched up my neck before we first spoke, but I swear I remember him before that.
+My throat was still burning. I reached my hand up to put pressure on the pain, realizing there was a large gash through it. The blood beginning to scab, but every breath was fire. Mr. Rinefer sat beside me on the ground as the police officers spoke to me, the EMTs readying the gurney. I couldn’t speak, only communicating through nods and head shakes. When we got to the hospital, Sheriff Shaw was waiting in my room. Or maybe he got there after I woke up. I think they stitched up my neck before we first spoke, but I swear I remember him before that.
 
 “So you were walking in the woods and found the well, correct?” Shaw had asked. I tried to answer, unable to speak because of the swelling in my vocal chords. “Then you slipped and hit your head.” 
 
@@ -187,4 +185,3 @@ I felt my heart drop as I stirred awake, opening my eyes. Better to fess up now 
 I couldn’t control myself. No amount of physical pain I endured that day compared to how tightly my heart twisted at the mention of Matty’s death. I leaned over the bed and threw up onto the ground beside me, tears streaming down my face. I never did speak again, not to the police, not to Mom, not to your mother. I didn’t end up going to law school, instead settling for being a stenographer. 
 
 I’m writing to you because I don’t know who else to trust. Adam, it’s happening again. I know you’ve had peers go missing, I’ve read it online. I don’t know exactly what Shaw was covering up, but I can’t let you become his next victim. Your mother.. I love Angela, but I think Mom shared a little more with her. Something that has to do with the Surgeon. It may not be the same person, but it’s happening again. Keep your eyes open and your friends close. Remember, as soon as you graduate, you have an open invitation to Massachusetts with me. Don’t tell anyone, not until your plane has landed. Good luck, Adam.
-

@@ -363,3 +363,9 @@ There comes a point where intent no longer matters. And you know what they say a
 Your’s Truly
 
 Demi
+
+
+For anyone that missed the doll
+
+https://www.reddit.com/r/nosleep/s/QgvjxWkznT
+
