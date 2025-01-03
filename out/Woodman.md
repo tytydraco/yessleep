@@ -1,6 +1,6 @@
 I've never really used reddit, even though I made an account four or five years ago. I uncovered some old photos of mine recently and reckoned I'd share a story of mine on here.
 
-I live in a small town called Woodton. A small place of just under two thousand people. It's not a very attractive place. The only appealing feature that it has, in my opinion, is the 'Gorge', running through the Mountain range just west of the town with a river flowing through the bottom of it. A road was built on one side of the Gorge that spanned its length. It closed in 2017 after a series of large landslides that caused the District Council to render the road irreparably damaged. 
+I live in a small town called Woodton. A small place of just under two thousand people. It's not a very attractive area. The only appealing feature that it has, in my opinion, is the 'Gorge', running through the Mountain range just west of the town with a river flowing through the bottom of it. A road was built on one side of the Gorge that spanned its length. It closed in 2017 after a series of large landslides that caused the District Council to render the road irreparably damaged. 
 
 Above the Gorge Road, on top of the ranges, there is a fairly short hike. About eleven kilometers, and only a one or two hour walk. It's a nice area, with a couple good lookout spots above the road, but it's not really anything special. 
 
