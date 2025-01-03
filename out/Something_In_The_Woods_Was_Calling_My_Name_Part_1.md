@@ -80,7 +80,7 @@ There were three elk heads mounted in the center, at least I thought they were a
 
 Pappy was holding up a rifle, a shit eating grin on his face. He was standing defiantly on the body of a hulking beat. Its fur was mangey and spotted, and it had antlers not unlike the ones hanging from the walls. 
 
-"That was a good hunt." Pappy poked his finger towards the photo. " Me, Georgie Walker and Rodeny O'Hara took that photo in the Washinton state national park in 75." Pappy beamed. "Was Georgie's first hunt of any kind really. Took a while for me and Rod to show him the ropes but we taught him well. "I mulled over what Pappy was conveying to me here, and then it hit me like a sack of bricks.
+"That was a good hunt." Pappy poked his finger towards the photo. " Me, Georgie W and Rodeny O took that photo in the Washinton state national park in 75." Pappy beamed. "Was Georgie's first hunt of any kind really. Took a while for me and Rod to show him the ropes but we taught him well. "I mulled over what Pappy was conveying to me here, and then it hit me like a sack of bricks.
 
 "Pappy are you some kind of mons-" I started before I felt the sharp pain of Pappy's Cain stabbing me in the knee.
 
