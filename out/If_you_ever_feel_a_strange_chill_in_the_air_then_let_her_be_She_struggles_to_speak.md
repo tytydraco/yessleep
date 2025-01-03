@@ -175,3 +175,5 @@ I exhaled and leaned against the tree, afraid that my legs would give way.
 She did not appear that night again, and I wonder why the Burglar scared her so, though I remember her cold more fondly now.
 
 I hope I can tell her my name one day, though that is still wistful thinking.
+
+[Part 3.](https://www.reddit.com/r/nosleep/comments/1hsn064/if_you_ever_feel_a_chilly_presence_in_the_air/)
