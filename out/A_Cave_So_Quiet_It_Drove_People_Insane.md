@@ -6,7 +6,7 @@ Part 1 – The Call to Silence
 
 The office of The Liminal Society wasn’t much more than a cluttered spare room in the back of an old diner. A mix of dim light bulbs and a crooked poster reading, “Fear is just misplaced curiosity,” gave the room its only semblance of personality. TJ sat cross-legged on a folding chair, spinning a pen between his fingers as he scrolled through emails on their well-used laptop.
 
-“Another haunted church,” TJ muttered. “Apparently, the pews move on their own. Or the priest just didn’t read the IKEA instructions.” He leaned back dramatically, nearly tipping the chair. “Where’s the ambition?”
+“Another haunted church,” TJ muttered. “Apparently, the pews move on their own. Or the priest just didn’t read the IKEA instructions.” He leaned back dramatically, nearly tipping the chair. “Shouldn't a priest be the one handing out eviction notices to ghosts?”
 
 “Maybe people are scared of ghosts,” Mike replied from behind the counter, munching on a bag of chips. “Crazy, right? I mean, imagine being scared of spirits when you can just call two amateurs and a professor.”
 
