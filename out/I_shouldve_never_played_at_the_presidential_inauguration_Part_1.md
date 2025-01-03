@@ -33,3 +33,5 @@ Me and the other kids were freaked out and were disturbed by that letter, but Mr
 But the rest of the band was too scared to play, they held their instruments in fear. So Mr. John just furiously announced that the inauguration was coming soon and he passed out permission slips for the D.C trip. Then the bell rang and we left. 
 
 Days after days we preformed worse. Even though I practiced over break I still couldn’t seem to play without making mistakes. And so did the rest of the band. Sometimes the trumpets couldn’t make a sound from their instrument, sometimes the saxes and clarinets would chip their reeds, but it seemed to chip randomly. And everyone else was just hitting wrong notes, it felt like dark magic was stopping us from actually being able to play. And sooner but later it was the final class before the inauguration. And Mr. John made us rehearse, a ton. But for once we actually sounded good. Mr. John seemed happy, as we were now headed to D.C. But on the bus, I still hear those screams, those screams emerging from the depths of the bus
+
+Part 2: https://www.reddit.com/r/nosleep/s/q20MbIAer4
