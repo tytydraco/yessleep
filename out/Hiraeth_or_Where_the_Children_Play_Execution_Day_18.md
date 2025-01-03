@@ -1,4 +1,4 @@
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hom55x/hiraeth_or_where_the_children_play_god_be_damned/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hom55x/hiraeth_or_where_the_children_play_god_be_damned/)/[Next](https://www.reddit.com/r/nosleep/comments/1hsgzfz/hiraeth_or_where_the_children_play_more_and_more/)
 
 “How’d you think that was going to go?” asked a voice from the other side of the door.
 
@@ -152,4 +152,4 @@ The crowd grew more enamored with escape; there’s no good way to say it—bloo
 
 Some poor child—a lean, bony-faced boy—fell in the rush and before I had a moment to reach out, he was gone. Whether he lived or not, I did not stop to know. The crunch of bones as more people spilled into the narrow stretch indicated the worst.
 
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hom55x/hiraeth_or_where_the_children_play_god_be_damned/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hom55x/hiraeth_or_where_the_children_play_god_be_damned/)/[Next](https://www.reddit.com/r/nosleep/comments/1hsgzfz/hiraeth_or_where_the_children_play_more_and_more/)
