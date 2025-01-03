@@ -66,7 +66,7 @@ She flipped through the book, her face growing more unsettled as she read. In th
 
 It wasn’t just those books. To Kill a Mockingbird ended with the town succumbing to its worst instincts, Atticus ostracized, Scout left alone in a place consumed by hate. Each book we read carried the same unnerving thread: familiar stories twisted into something dark and hopeless.
 
-We couldn’t explain it. The books looked authentic, and the writing matched the authors' voices, but the content… wasn’t right. Desperate for answers, we took a few of the books to a local bookstore. The owner was intrigued but skeptical, her raised brow suggesting she thought we were playing a prank. It didn’t matter;; this was the late '80s, and there was no internet to search for answers.
+We couldn’t explain it. The books looked authentic, and the writing matched the authors' voices, but the content… wasn’t right. Desperate for answers, we took a few of the books to a local bookstore. The owner was intrigued but skeptical, her raised brow suggesting she thought we were playing a prank. It didn’t matter; this was the late '80s, and there was no internet to search for answers.
 
 As days turned into weeks, the pale blue door became part of our lives. We’d visit the study often, reading the altered books late into the night, our conversations circling back to our differences. The strangeness of it all became our new normal until, one day, the house offered something new.
 

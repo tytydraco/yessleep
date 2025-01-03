@@ -232,7 +232,7 @@ The crying stopped instantly.
 
 She tilted her head back upright, her unblinking eyes boring into mine with venomous intensity.
 
-“Don’t you get it, Seth?” she whispered, her voice dripping with malice. \*\*“\*\*You’re not leaving. You’re never going to leave.”
+“Don’t you get it, Seth?” she whispered, her voice dripping with malice. "You’re not leaving. You’re never going to leave.”
 
 Her body collapsed like a ragdoll, crumpling to the floor as though every bone inside her had vanished. The light around her flared in a blinding burst of white.
 
