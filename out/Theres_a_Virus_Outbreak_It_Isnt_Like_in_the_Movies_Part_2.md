@@ -1,4 +1,9 @@
+  
+ \[ [Part 1](https://www.reddit.com/r/nosleep/comments/1hrjb1w/theres_a_virus_outbreak_it_isnt_like_in_the/) \]
+
 The decision to leave the church was inevitable. Martin and I had spent countless nights sitting in the dim glow of our candlelight, discussing the growing dangers outside. The infected weren’t the only threat anymore. Supplies were running low, and the barricades we had built felt more fragile with every passing day. The church, once a beacon of hope, now felt like a tomb waiting to be sealed.
+
+
 
 “We can’t stay here forever,” Martin said one evening, his voice cutting through the oppressive silence. “The infected are getting bolder. It’s only a matter of time before they break through.”
 
@@ -12,8 +17,7 @@ I laughed bitterly. “And where exactly is that? The whole world’s gone to he
 
 “Okay, let’s say we find a vehicle. Where do we even start looking? Most of the cars around here are stripped or useless.”
 
-Martin’s eyes met mine, a spark of resolve igniting in his gaze. “The quarantine outpost.”  
-
+Martin’s eyes met mine, a spark of resolve igniting in his gaze. “The quarantine outpost.”
 
 I stared at him, incredulous. “You’re joking, right? That place is crawling with soldiers. They’d shoot us on sight if we got too close.”
 
@@ -42,8 +46,6 @@ The weight of the plan settled heavily between us, but there was no turning back
 I nodded, a mixture of fear and determination swirling in my chest. “Tomorrow.”
 
 As I lay on the cold, hard floor of the church that night, I couldn’t help but think about everything that had led us to this point. The world was unrecognizable, a nightmare brought to life. But for the first time in a long time, I felt a glimmer of hope. It was faint and fragile, but it was enough to keep me going.
-
-
 
 The first day was about finding a safe spot. After hours of carefully navigating through back alleys and overgrown streets, we discovered an abandoned factory with a partially intact second floor that offered a clear view of the quarantine zone's perimeter. From there, we could see the tall fences topped with barbed wire, the floodlights that bathed the area in harsh brightness, and the soldiers patrolling the gates.
 
@@ -113,8 +115,6 @@ Martin nodded, his expression was grim. "We don’t have a choice."
 
 As we silently approached the quarantine zone through the shadows, I could feel my heart pounding. The plan was simple but dangerous: set the shed on fire, use the chaos to slip through the western blind spot, and make our way to the vehicle lot. But even the best-laid plans could go horribly wrong, I've seen it too many times in movies.
 
-
-
 Everything started smoothly. We crept through the tall grass, just like we had planned. The shift change happened exactly on schedule, and the distraction worked like a charm.
 
 As the soldiers hurried toward the shed, Martin and I made our move, slipping through the shadows toward the vehicles. Once the area cleared enough, Martin rushed for the vehicles, while I headed for the small guardhouse. The keys had to be inside.
@@ -129,19 +129,13 @@ Before I could react, I saw Martin strike the soldier down, his axe burying itse
 
 Realizing the gravity of the situation, Martin and I ran for one of the vehicles. But my wound slowed me down, it hurt so much. I lagged behind, and the soldiers quickly closed the gap, opening fire, making escape impossible. Martin fired back, but it was clear we were outgunned and outnumbered. The soldiers kept advancing. I remember Martin looking at me as I frantically tried to patch up my leg.
 
-
-
 "Hey, kid."
 
 "Survive."
 
-
-
 With that, Martin turned and sprinted away from the vehicle, using the last of his ammunition to fight back. Soldiers chased after him, but some stayed behind, aware of my position.
 
 I quickly climbed into the vehicle and started the engine. With the opening Martin had given me, I couldn’t afford to hesitate. Slamming the pedal to the floor, I drove forward, forcing soldiers to leap out of the way. I smashed through the gates, barely making it, and sped off into the distance, tears streaming down my face.
-
-
 
 The road stretched endlessly before me, a ribbon of cracked asphalt cutting through a landscape of desolation. I didn't dare to look back; the rearview mirror reflected only darkness and the faint glow of the quarantine zone receding behind me. My hands were trembling as they gripped the wheel, and every bump in the road sent a fresh jolt of pain through my injured leg. Blood soaked the makeshift bandage I'd wrapped around it, just a torn strip of my shirt and the coppery smell filled the air inside the vehicle.
 
@@ -171,8 +165,7 @@ As dawn broke, painting the sky in hues of lavender and gold, I forced myself to
 
 I slung my backpack over my shoulder and began walking again, using the sun to guide me east. The wheat field stretched on for miles, and the quiet was almost maddening. But as I walked through the stalks, I couldn’t shake the feeling that I wasn’t alone. Every so often, I’d stop and listen, straining to hear anything over the sound of my own labored breathing. But there was nothing. Just the wind and the whisper of the wheat.
 
-It wasn’t until I reached the edge of the field that I realized how wrong I’d been. There, in the distance, was a figure. Not shuffling like the infected, but standing still, watching me. My grip tightened on the knife as I froze, my heart hammering in my chest.  
-
+It wasn’t until I reached the edge of the field that I realized how wrong I’d been. There, in the distance, was a figure. Not shuffling like the infected, but standing still, watching me. My grip tightened on the knife as I froze, my heart hammering in my chest.
 
 “Hello?” I called out, my voice cracking with a mix of fear and hope.
 
@@ -242,11 +235,7 @@ Emma didn’t press me. Instead, she looked out the window, her expression sombe
 
 We drove in silence for a while after that, the conversation hanging heavy between us. But as the sun climbed higher, warming the world around us, the mood began to shift. Emma started pointing out little things, a hawk circling in the distance, a cluster of wildflowers growing along the roadside. It was the first time in weeks that I noticed anything other than the constant threat of death.
 
-
-
 Hours later, my phone buzzed.
-
-
 
 The sound startled me so much I nearly slammed on the brakes. I pulled the phone from my pocket, staring at the screen in disbelief. Notifications. Dozens of them. I had a signal.
 
@@ -335,8 +324,6 @@ Her expression grew distant, like she was hiding something.
 I didn't blame her.
 
 Emma shrugged, poking at her soup with a spoon. "I wanted a normal life, I guess. Funny how that worked out."
-
-
 
 The next morning, we decided to move again. The rest stop was safe for now, but it was too exposed. Too close to the road. We needed somewhere more secluded, somewhere we could stay loger without constantly looking over our shoulders.
 
