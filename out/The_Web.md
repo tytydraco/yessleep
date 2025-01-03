@@ -171,43 +171,7 @@ I took out my notepad, this was our biggest lead yet. “What do you mean?”
 
 Me and Johnson exchanged another look, this changed everything. “Right. Thank you Jeremy you’ve been a great help. If you remember anything else that might be important let us know.” I said as me and Johnson headed out. 
 
-“You think he could be lying?” Johnson said. 
-
-“Huh? No of course not, this actually paints a pretty sensible picture, there’s no motive for Janice Smith, now we have one, Janice was never supposed to be the target.” 
-
-“We just want to help Mr. Smith.” Johnson said as she held her hand out but Mr. Smith smacked it away and turned his head.
-
-“I don’t believe ya!”
-
-“Mr. Smith! Apologise to Ms. Johnson, that’s no way to act towards a woman.”
-
-He looked feebly at me then at my partner, “I’m sorry ma’am.”
-
-She didn’t say anything, instead looked at me like I had done something wrong. So I took a page out of her book and tried to connect with the man. “Look, sir. The reason I became a detective is because my mother was brutally murdered. We could never find the killer..Even after I tried myself. So I promise you, I have Janice’s best interest in heart, I will find her murderer and put him behind bars.”
-
-Mr. Smith sighed and looked up at us, for the first time I saw a genuine man who was hurt and confused, not a strange, old, angry man. “Rachel. That kid’s been getting Janice into trouble since she was born.”
-
-I took out my notepad, this was our biggest lead yet. “What do you mean?”
-
-“She been a trouble maker! She was stealing from stores, getting banned from restaurants for dining and dashing, shit when Janice tried to get her to clean her act up she got fired from her job for stealing money out the register!”
-
-“Where did you hear all this?”
-
-“Where do you think? Janice of course. She would call me crying, saying she didn’t know what to do to get her to straighten up. She sent her to live with me but I couldn’t handle the damn girl, she started stealing my beer and money, kicked her out when I came home to her smoking meth in her bedroom.”
-
-“Excuse me, not that we don’t believe you but we spoke with Rachel, while she did seem distressed she doesn’t seem like the type to, I don’t know, steal or indulge in drug use.”
-
-“Well she’s a lot better at hiding it than she was when she was a teenager, her mom was trying to get her off the drugs again. That’s why they were going to have dinner at Rachel’s place, she was going to have a one on one intervention.”
-
-“I’m sorry, did you say they were supposed to have dinner at Rachel’s home?” 
-
-“Yup, Janice said she wanted her to feel comfortable and it be in a public place, but when Rachel kept pushing for The Cove Janice gave in, she was goin’ to do it after dinner.”
-
-Me and Johnson exchanged another look, this changed everything. “Right. Thank you Jeremy you’ve been a great help. If you remember anything else that might be important let us know.” I said as me and Johnson headed out. 
-
 That's when the picture started coming into focus. Through Jeremy's bitter words, a different Rachel emerged — not the polished woman we'd met, but a troubled soul with a history of theft, drugs, and burning bridges. The kind of history people try to bury.
-
-But it was one detail that made everything click: The dinner was supposed to be at Rachel's house. Not The Cove. A last-ditch intervention disguised as a mother-daughter dinner, derailed by Rachel's insistence on public ground.
 
 Johnson wasn't convinced. "Jeremy's not exactly a sterling witness."
 
