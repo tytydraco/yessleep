@@ -44,7 +44,7 @@ We easily decided to merge into one big group. I mean, the more people the bette
 
 So after we woke up after going to sleep and packed up, we devised the plan.
 
-Our plan was to first find civilization and buy navigational equipment and maybe a map. The bandy kids had a ton of money, as their parents were all rich and let them spend a lot. So money wasn’t an issue for us. Now we couldn’t buy a plane ticket, as the bandy kids weren’t THAT rich, but we could walk. So we’ve decided to painstakingly walk back to North Dakota, in the city of Bismarck. As that’s where our high school was at. 
+Our plan was to first find civilization and buy navigational equipment and maybe a map. The bandy kids had a ton of money, as their parents were all rich and let them spend a lot. So money wasn’t an issue for us. Now we couldn’t buy a plane ticket, as the bandy kids weren’t THAT rich, but we could walk. So we’ve decided to painstakingly walk back to North Dakota. As that’s where our high school was at. 
 
 So we’re off!
 

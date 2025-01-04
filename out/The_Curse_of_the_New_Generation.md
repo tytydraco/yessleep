@@ -1,97 +1,93 @@
-I’ve heard it said before that every house has its own traditions and that every family is its own culture. My Aunt Tina’s house and family perfectly illustrated that truism by their drink of choice—Pepsi.
+The fridge at my Aunt Tina’s house was alive. Bottles of soda seemed to leap into hands, their cold bodies glistening like forbidden treasures. But not for me.
 
-When my mom needed someone to watch me after school, she usually dropped me off at my Aunt Tina’s house. And at her house, they drank Pepsi like it was water. They always had a fridge packed full of tall, frosted bottles that seemed to glisten with condensation, their coolness radiating from across the room. Everyone always seemed to have one in their hands or sitting on a nearby countertop. On hot days, I half-expected them to water the lawn with it.
+When my mom needed someone to watch me after school, she usually dropped me off at Aunt Tina’s house. And at her house, soda wasn’t just a drink—it was a lifestyle.
 
-The fridge seemed to have a magical quality, opening whenever a family member strolled by. Bottles of Pepsi would practically leap into their hands, carried on a misty cloud of chilled air. They leapt into everyone’s hands but mine, that is.
+Their fridge was always packed with tall, frosted bottles, their coolness radiating across the kitchen. On hot days, I half-expected them to water the lawn with it. Everyone had a bottle in hand or perched on a nearby countertop, the condensation leaving sticky rings on every surface.
 
-But—and here’s the rub—Tina wouldn’t let me have a Pepsi.
+The fridge door opened like clockwork whenever a family member walked by. Soda bottles practically leapt in their hands. Everyone’s hands but mine, that is.
 
-It made sense to me that since everyone else in the house had as much Pepsi as they wanted, I should get at least one bottle. But Tina had an ironclad rule: you could only have a Pepsi if you didn’t ask for a Pepsi.
+But—and here’s the part that still baffles me—Tina wouldn’t let me have a soda.
 
-It was very zen. A baffling conundrum. It was also a rule that only applied to me.
+It didn’t make sense. Everyone else could drink as much as they wanted, but Tina had a strict rule: you could only have soda if you didn’t ask for soda.
 
-I tried everything. Mentioning I was thirsty just got me a warm, cloudy glass of water that smelled vaguely of old pipes. Saying I wanted something sweet disqualified me entirely.
+It was maddening. A zen riddle designed specifically to torment me.
 
-So I got creative.
+I tried to follow the rule, but no matter what I did, I always seemed to fail. Mentioning I was thirsty got me a warm glass of water that smelled vaguely of rusted pipes. Saying I wanted something sweet disqualified me entirely.
 
-I’d stare fixedly at the fridge, where the Pepsi waited, its icy promise shimmering behind the glass. When Tina came into the kitchen, I’d try to catch her eye and jerk my gaze toward the fridge. When that didn’t work, I added dramatic gestures, twitching my head and shoulders as if my body were being magnetically pulled toward the fridge.
+I got desperate.
 
-Still nothing.
+I stared longingly at the fridge, trying to will it open with my mind. When Tina walked in, I’d shoot meaningful glances at the fridge, adding dramatic sighs for effect. Nothing.
 
-I resorted to art. I drew Pepsi bottles with loving detail—the curves, the bold logo, the sparkling fizz. Once, I even drew Tina offering me a Pepsi and showed it to her. She squinted at it, frowned, and asked why I hadn’t drawn any breasts on the woman in the picture.
+I tried art. I drew soda bottles in excruciating detail—the curves, the bold logos, the sparkling fizz. Once, I even sketched Tina handing me a bottle and showed it to her. She squinted at it, frowned, and asked why I hadn’t drawn any breasts on the woman.
 
 That was a dead end.
 
-I tried other tricks. I’d straighten the fridge magnets, sending silent telepathic waves of longing. I clasped my hands and prayed, mouthing the word “Pepsi” as often and as clearly as possible. Tina, frustratingly, never seemed to notice—or worse, she noticed but didn’t care.
+I resorted to silent telepathy. I’d straighten the fridge magnets, clasp my hands in prayer, and mouth the word soda like a prayer. Tina didn’t seem to notice—or worse, she noticed but didn’t care.
 
-By this point, Tina’s blank stares and twitching mouth suggested she might be holding back laughter. Meanwhile, I was practically vibrating with desperation.
+By this point, her blank stares and twitching mouth suggested she was holding back laughter. Meanwhile, I was practically vibrating with frustration.
 
-One day, having exhausted all other options, I decided to try something more drastic.
+Finally, in a moment of desperation, I decided to try something drastic.
 
-I whispered my plea, directing it to… well, the other guy. “Whoever’s out there on the… other side, if you’re listening, no matter what it takes, I just want Pepsi. Please.”
+One afternoon, when Tina wasn’t looking, I knelt in the middle of the kitchen and whispered my plea to the unknown: “Whoever’s out there… on the other side… if you’re listening, no matter what it takes, I just want soda. Please.”
 
-For a moment, nothing happened. The kitchen was still, the hum of the fridge the only sound. I sighed, figuring I’d reached a new low: begging the devil for soda. Then, with a sharp click, the humming stopped. For a moment, there was total and complete silence.
+The kitchen held its breath.
 
-Then, with a sucking sound, the fridge door opened.
+The fridge hummed faintly, the sound worming its way under my skin. Then it stopped. Silence fell, heavy and absolute.
 
-I froze, staring as a single frosted bottle of Pepsi slid forward from the perfectly packed rows, glinting in the dim kitchen light. Slowly, Tina walked in, as if in a trance, pulled the bottle free, and placed it in front of me without a word.
+Just as I turned away, the hum returned, louder—a low, guttural growl. The fridge door creaked open, releasing a wet, sucking sound like lips smacking together. A single frosted bottle slid forward, shimmering in the dim light.
 
-“Uh… thanks?” I said, my voice trembling.
+Slowly, Tina entered the room. She moved stiffly, her eyes glassy, and pulled the bottle free. Without a word, she placed it in front of me and shuffled out of the kitchen.
 
-Tina said nothing. Her eyes didn’t quite meet mine as she shuffled back out of the room.
+I stared at the bottle, my hands trembling. “Uh… thanks?”
 
-I drank the Pepsi greedily. I was cold, sweet, and delicious. Then Tina came back and handed me another bottle! Then another. By the time my mom arrived, I was working on my third and starting to feel a little nauseous.
+Tina didn’t reply.
 
-When my mom pulled into the driveway, she opened the trunk with a flourish.
+I drank greedily. The soda was cold, sweet, and overwhelming. Then Tina returned and handed me another bottle. And another. By the time my mom arrived, I was working on my third and starting to feel sick.
 
-“Guess what? I got us a great deal on Pepsi!”
+“Guess what?” my mom said as I climbed into the car. “I got us a great deal on soda!”
 
-The trunk was packed to the brim with bottles of Pepsi, gleaming blackly. Their bodies seemed strangely wasp-like in the dusk.
+The trunk was full of bottles, their black-and-red labels gleaming in the dusk. They looked strangely alive, their curves insect-like.
 
-After that, it seemed like Pepsi was everywhere.
+After that, soda was everywhere.
 
-The school installed a free vending machine in the cafeteria. The machine hummed softly, a single, hypnotic note. Its glowing buttons blinked faintly, like a row of heavy-lidded, flickering eyes. My classmates, one by one, abandoned their usual drinks for Pepsi. By midmorning, they were jittery, their laughter sharp and frantic. By afternoon, their movements grew sluggish, their faces pale and slack.
+The school installed free vending machines in the cafeteria. They hummed with a hypnotic tone, their glowing buttons blinking like half-lidded eyes. My classmates abandoned their usual drinks, one by one. By midmorning, they were jittery, their laughter sharp and frantic. By afternoon, they moved sluggishly, their faces pale and slack.
 
-At home, my mom switched to drinking nothing but Pepsi. Bottles crowded the fridge. Cases filled the closet floors. Empty cans spilled out of the trash and clattered to the floor in every room. The cloying, sugary scent of spilled Pepsi seeped into the carpet and the furniture, filling the air with a sticky sweetness that made me nauseous.
+At home, my mom drank nothing but soda. Bottles crowded the fridge and filled the closets. Empty cans spilled out of the trash, rolling across the floors. The sugary scent seeped into the carpet and furniture, clinging to everything.
 
-They disconnected the water fountains at school because of lack of use. At first, people laughed about it. By the second week, no one even commented. It was as if water had never existed at all.
+They disconnected the water fountains at school, claiming lack of use. No one even complained. It was as if water had never existed.
 
 The dreams started soon after.
 
-I was standing in Tina’s kitchen, staring at the fridge. The door creaked open, releasing a sickly yellow glow. Black, bubbling liquid spilled out, flooding the floor. It crawled toward me, its tendrils fizzing and snaking toward my feet, moving in fits and starts, like some stop-motion nightmare. It fizzed against the linoleum, the sound sharp and insistent. I woke up screaming, drenched in something sticky. My mom thought I’d wet the bed, but I recognized the stains, the smell—it was Pepsi. Somehow, it had crossed over, spilling into the real world.
+In my dreams, I stood in Tina’s kitchen. The fridge door creaked open, spilling black, bubbling liquid across the floor. It crawled toward me, tendrils snaking over the linoleum. It smelled of sweetness and rot, fizzing softly as it crept closer. I woke up screaming, drenched in something sticky. My mom thought I’d wet the bed, but I recognized the smell. It was soda. Somehow, it had crossed over.
 
-Avoiding Pepsi became impossible. The logo was everywhere—seemingly plastered on every billboard, every bus, every screen. It wasn’t just a logo; it was a presence. A heavy-lidded eye, pulsing with malevolence, and seeming to follow me everywhere I went.
+Avoiding soda became impossible. Its logo appeared on every billboard, every bus, every screen. But it wasn’t just a logo—it was alive. A heavy-lidded eye, following me everywhere.
 
-It tormented me for years.
+“Join the soda society,” my friends said, smiling faintly, their teeth decaying and their eyes dull.
 
-Socially, I became a pariah. Friends drifted away, confused by my disgust and my inability to participate in what had become the lifeblood of their routines. “Join the Pepsi people,” they’d say, smiling faintly, their decaying teeth exposed, their eyes glassy. When I refused, their smiles would falter, as if I’d betrayed some unspoken pact.
+Even at work, soda was unavoidable. When I refused to stock the breakroom fridge, my boss fired me.
 
-At work, my boss fired me when I refused to stock Pepsi in the breakroom fridge.
+“You’re not a team player,” he said. “Soda’s got a lot to give, and you’ve got a lot to lose.”
 
-“You’re just… not a team player,” he said. “Come on, you’ve got a lot to live, and Pepsi’s got a lot to give!”
+The world crumbled as soda consumed everything.
 
-I retreated further into myself, becoming a recluse. But even in solitude, I couldn’t escape. The woodgrain of my desk seemed to ripple into the faint outline of the Pepsi logo. Books I tried to read blurred into nonsense, the words rearranging themselves into slogans: Live for now. The joy of Pepsi-Cola.
+Landfills overflowed with plastic bottles. The oceans became graveyards of microplastics. “Every generation refreshes the world,” the ads claimed, oblivious to the ruin.
 
-Meanwhile, the world outside crumbled.
+Children waddled into school, their thermoses sloshing with soda. Dentists reported epidemic levels of tooth decay. And still, the commercials chirped, “Be bold, stay young, and drown in soda!”
 
-Landfills overflowed with empty bottles and cans, their plastic and aluminum corpses choking the landscape. The oceans became graveyards of microplastics. “Every generation refreshes the world,” the ads still claimed, oblivious to the ruin they had caused.
+And then there were the health complications. Studies speculated about the effects of consuming massive quantities of caffeinated beverages, linking them to headaches, fatigue, and neurological strain. My mom, perpetually clutching her frosted glass bottle, began complaining of constant headaches and numbness in her hands. When I begged her to stop drinking it, she just smiled faintly and said, “Why would I stop? It’s the taste of this generation.”
 
-Obesity rates soared. Children waddled into school clutching Pepsi-filled thermoses, their faces red and round. Dentists reported tooth decay at epidemic levels, the enamel of countless children’s teeth eroded by acid. “Be young, have fun, drink Pepsi,” the commercials chirped, as if mocking us.
+Eventually, unable to bear watching my family and friends poison themselves, I drifted west, hoping to escape. I took back roads to avoid the billboards, averting my eyes to avoid the soda displays at gas stations. I hoped the ocean, vast and eternal, might wash away the madness. Instead, it became the final straw.
 
-And then there were the health complications. Studies linked aluminum from the cans to neurological disorders. My mom, perpetually clutching her frosted glass bottle, began complaining of constant headaches and numbness in her hands. When I begged her to stop drinking it, she just smiled faintly and said, “Why would I stop? It’s the choice of a new generation.”
-
-Eventually, unable to bear watching my family and friends poison themselves, I drifted west, hoping to escape. I took back roads to avoid the billboards, averting my eyes to avoid the Pepsi displays at gas stations. I hoped the ocean, vast and eternal, might wash away the madness. Instead, it became the final straw.
-
-The ocean looked wrong—black, glossy, and churning unnaturally. As I watched, a wave rolled in, hissing and fizzing at the edges. It crashed at my feet, leaving empty plastic bottles and streaks of brown stains behind.
+The ocean looked wrong—black, glossy, and churning unnaturally. As I watched, a wave rolled in, hissing and fizzing at the edges. It crashed at my feet, leaving empty plastic bottles and brown stains behind.
 
 Further out in the water, enormous bubbles rose and popped, releasing sprays of carbonation, plastic bottles, and sticky black liquid. The black water crept closer, eroding the sand and shore.
 
-Unable to bear it, I turned away. Suddenly the ocean surged up. Before I could move, I was underwater. The ocean roared in my ears, and in the roar, I could hear a voice. It was deep, sickly sweet, and oozing satisfaction.
+Unable to bear it, I turned away. Suddenly, the ocean surged up. Before I could move, I was underwater. The ocean roared in my ears, and in the roar, I could hear a voice. It was deep, sickly sweet, and oozing satisfaction.
 
-“Your generation chose this. The new generation is mine,” it said, stretching out the last letter into an endless hiss of escaping carbonation.
+“Your generation chose this. The next generation belongs to me,” it said, stretching out the last word into an endless high pitched hiss of escaping carbonation.
 
 The last thing I felt was my throat and nose burning as the black tide pulled me under.
 
 I woke up on the shore, surrounded by empty plastic bottles and tangled six-pack rings. A sticky film clung to my skin and hair. My lungs and eyes still burned, my body felt heavy, and the faint hiss of carbonation still rang in my ears.
 
-There’s a horrible taste in my mouth. Sour. The sickly sweet chemical taste of the black water. Even now, as I tell you this, I can still feel it inside me—burning, bubbling, and threatening to come up. And I know the ocean of dark carbonated water, filled with chemicals and plastic, is out there too. Rising up to drown us all.
+There’s a horrible taste in my mouth. Sour. That sickly sweet chemical taste of the black water. Even now, as I tell you this, I can still feel it inside me—burning, bubbling, and threatening to come up. And I know the ocean of dark rising water, filled with chemicals and plastic, is out there too. Rising up to drown us all.
