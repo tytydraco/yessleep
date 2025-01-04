@@ -1,4 +1,4 @@
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hq6kk7/hiraeth_or_where_the_children_play_execution_day/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hq6kk7/hiraeth_or_where_the_children_play_execution_day/)/[Next](https://www.reddit.com/r/nosleep/comments/1ht9pfn/hiraeth_or_where_the_children_play_verminlike_20/)
 
 Since I knew there was a time before, I’ve wanted it, but that was child’s hope; even as a boy I wanted a dream. I wanted some divine being to enter from heaven and tell us all how it should be, but that wasn’t something I could ever count on—of course. Is there a god? I think so. I’ve seen those things and if they exist, then surely there’s a maker on the other end of it—god made both the light and the dark if the word’s to be believed and all we can hope for is a glimpse of the former. Even for a second.
 
@@ -104,4 +104,4 @@ With the aid of the pistol, I was given space, and nothing was said. I mentally 
 
 With the ringing going and sound returning, the drumming on the door returned, as well as the quiet weeps of the woman; she crawled to the wayside of the hall, pressed her back against the wall and rested her chin on her knees with her arms around her shins. She didn’t rock to or fro and hardly made any noise at all. But the small and quiet sobs remained faintly there.
 
-[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hq6kk7/hiraeth_or_where_the_children_play_execution_day/)
+[First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hq6kk7/hiraeth_or_where_the_children_play_execution_day/)/[Next](https://www.reddit.com/r/nosleep/comments/1ht9pfn/hiraeth_or_where_the_children_play_verminlike_20/)
