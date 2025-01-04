@@ -1,6 +1,6 @@
 Virat was from a wealthy family. He lived in a scenic and upscale residential area in South Delhi, India. He was 27 yeas old and had no goal in his life. He had no work experience and no love life. He spent all his time watching Netflix or playing video game or partying with his college friends. When AJ one of his college friends told him to come with him to visit his village for a week, Virat agreed. Virat thought it would be fun to experience rural life for a week.
 
-They took a flight from Delhi to Bhubaneswar, capital of Odisha an eastern Indian state on the Bay of Bengal, known for its tribal cultures. They booked a cab from Bhubaneswar and started their journey to the village where AJ was born. AJ's village had a total population of 1,092 peoples. The village was near dense forest and the village had no electricity. 
+They took a flight from Delhi to Bhubaneswar, capital of Odisha an eastern Indian state on the Bay of Bengal, known for its tribal cultures. They booked a cab from Bhubaneswar and started their journey to the village where AJ was born. AJ's village had a total population of 1,092 peoples. The village was near dense forest.
 
 They reached the village at dusk AJ took Virat to his house which was a mud house(a dwelling made from mud and soil). Virat took some pictures of the surrounding and they ate roti with sabji which was prepared by AJ's family. Then they went to sleep.
 
