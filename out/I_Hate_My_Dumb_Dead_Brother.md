@@ -16,7 +16,7 @@ After every predictable failure: "That was not how Toby would've done it."
 
 I wouldn't say my family was abusive, even mentally or emotionally, but I would overhear them referring to me as "Not Toby" in conversations they thought I didn't know about. I could write an entire novella about the various complexes that gave me back then, and to this very day, but this probably isn't the right place for that.
 
-Dad worked in finance, I think - I never understood it and just never really cared to learn what he did. Mom was a seamstress, mostly for child beauty pageants. More often than not, I had to serve as the dressmaking dummy until I grew out of size range.
+Dad works in finance, I think - I never understood it and just never really cared to learn what he did. Mom is a seamstress, mostly for child beauty pageants. More often than not, I had to serve as the dressmaking dummy until I grew out of size range.
 
 Plenty of complexes.
 
@@ -74,7 +74,7 @@ I think I referred to myself as his sister, there, but you have to understand th
 
 "Well shit!" Toby cried out, a huge, square-toothed grin on his face.
 
-Before I knew what was happening, he had me in a bear hug with my arms pinned at my sides. He struck my back a few times and I could hear the wind being knocked out of my lungs like the beating of a base drum. I think I went out-of-body for a moment as I asphyxiated, because I remember looking down and seeing my ragdoll body getting hugged and struck as my sock-clad feet swung back and forth off of the ground.
+Before I knew what was happening, he had me in a bear hug with my arms pinned at my sides. He struck my back a few times and I could hear the wind being knocked out of my lungs like the beating of a bass drum. I think I went out-of-body for a moment as I asphyxiated, because I remember looking down and seeing my ragdoll body getting hugged and struck as my sock-clad feet swung back and forth off of the ground.
 
 The cataclysmic freak-out that occurred mere moments earlier was replaced by an eerie silence as the four of us sat at the small wooden table in the kitchen. Sure that Toby must be starving from whatever strange journey had been on for the past 18 years, mom and dad offered him any meal he wanted. He could've asked for any absurd thing, from long pig to dragon haunches, and somehow they would've bent heaven and earth just to serve it to him.
 
@@ -412,7 +412,7 @@ Turning to see him there, I noticed a healthy amount of what looked like black o
 
 Toby lead me behind the counter, his hand on my shoulder as he almost pushed me forward with each shaking, uneasy step. We passed the first girls he had shot, black liquid pooling around the bullet holes in their heads. I know it's not my imagination - they were still smirking.
 
-To say these girls were brutally massacred would not do justice to the level of deranged carnage that laid before me. Limbs gone. Innards spilled. Bones protruding. There's probably some sort of poetic justice in turning a fast food restaurant into a slaughterhouse, but I'm still too sick over the sight to make light of it.
+To say the other girls were brutally massacred would not do justice to the level of deranged carnage that laid before me. Limbs gone. Innards spilled. Bones protruding. There's probably some sort of poetic justice in turning a fast food restaurant into a slaughterhouse, but I'm still too sick over the sight to make light of it.
 
 We walked past motionless body after motionless body, including one draped over the beeping deep fryer, her head sizzling in the oil.
 
