@@ -225,9 +225,9 @@ Back at the station, I typed up my report, the keys clicking like dominoes falli
 
 Chief Brown's office felt smaller than usual as he read my warrant request, his forehead furrowed.
 
-—————————————————
+——————————————————
 
-On November 13th, 1994, Tuesday. 3 Interviews were conducted, one with Rachel Smith, Janice Smiths daughter, Jeremy Smith, Janice Smiths older brother, and Amy Shue, Rachel’s friend.
+On September 13th, 1994, Tuesday. 3 Interviews were conducted, one with Rachel Smith, Janice Smiths daughter, Jeremy Smith, Janice Smiths older brother, and Amy Shue, Rachel’s friend.
 
 Based off me and detective Johnson’s findings, it is my belief that Janice Smith was not the intended target of this brutal attack, instead it was meant for Rachel Smith, the victims daughter. After conducting an interview with Jeremy Smith, after Rachel Smiths initial interview, it is my belief that Rachel has not be truthful about her character, or about this situation. It is also my belief that the suspect is likely her drug dealer or someone affiliated with said person. 
 
