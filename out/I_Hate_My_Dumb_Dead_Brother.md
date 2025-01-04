@@ -36,7 +36,7 @@ When I fell to my knees on the grass just beyond, it wasn't an accident - it was
 
 A huge white pick-up truck with extended cab, blacked out windows, and a weird impossible knot icon on the side, had stopped in the middle of the yard, fresh muddy tire grooves trailing behind it. The back of the truck was covered with a blue tarp, several large, identical shapes deforming the surface.
 
-Next to the truck were my mom and dad, also collapse on the grass out of sheer shock and grasping the pant legs of a man who stood improbably tall over them. He was wearing denim jeans and a black shirt beneath a camo jacket with an unreasonable amount of pockets.
+Next to the truck were my mom and dad, also collapsed on the grass out of sheer shock and grasping the pant legs of a man who stood improbably tall over them. He was wearing denim jeans and a black shirt beneath a camo jacket with an unreasonable amount of pockets.
 
 A man with hair as golden as Cap'n Crunch, and eyes as blue as blue Crunchberries.
 
@@ -118,7 +118,7 @@ Toby didn't say anything and kept driving.
 
 "Burger Load has fruit-flavored syrup in a deep-fried shit-pouch." I snapped back without a second thought.
 
-For the first time since I'd met him, which isn't very impressive since I'd just met him, Toby let out hearty belly-laugh.
+For the first time since I'd met him, which isn't very impressive since I'd just met him, Toby let out a hearty belly-laugh.
 
 "We're not going for the food."
 
@@ -206,7 +206,7 @@ I wasn't interested in the tree.
 
 "How? What... what? What demon? When was this? Why?"
 
-Toby let out a tired sighed as if it would just take too much time and energy to explain.
+Toby let out a tired sigh as if it would just take too much time and energy to explain.
 
 "Not, there are three types of people," He explained, "People who hear stories... people who tell stories... and people who live stories. I'm not type one or two."
 
@@ -240,7 +240,7 @@ Understanding that the tree thing wasn't a random event brought me no closer to 
 
 "Quiet." he quietly snapped back.
 
-Toby marched methodically to the counter, where a girl with stringy black hair and a wide frown stood waiting at a register. He uniform, a cursed brown and pea-green set of slacks, polo shirt, and ball cap, seemed crusty and worn. As she spoke, however, what was most present in my mind was that it looked she could've probably fit her fist in her mouth.
+Toby marched methodically to the counter, where a girl with stringy black hair and a wide frown stood waiting at a register. Her uniform, a cursed brown and pea-green set of slacks, polo shirt, and ball cap, seemed crusty and worn. As she spoke, however, what was most present in my mind was that it looked like she could've probably fit her fist in her mouth.
 
 "Welcome! You've hit the Burger Load! How can I service you?" she croaked.
 
@@ -256,7 +256,7 @@ A small, sly smirk played on the cashier's face.
 
 "Shake machine's broken."
 
-My shoulders dropped and, for some reason, I was legitimate disappointed even though I hadn't intended to even be there that day.
+My shoulders dropped and, for some reason, I was legitimately disappointed even though I hadn't intended to even be there that day.
 
 "Aw, that's... damn. So you don't have any shakes at all?" I asked in a defeated tone that even I could hear.
 
@@ -302,7 +302,7 @@ The fry carton was under-filled despite already being a small. A few of the frie
 
 "Funny. What's the toy?"
 
-I didn't want to admit it, but I was kinda jazzed to see what the toy was. At this point it should come as no surprise to you that I am a man-child. Less than a year beforehand, I had bought the entire line-up of Zombionix toys on eBay because I there was no Chick-N-Beef location within driving distance and I "had to" have the complete collection.
+I didn't want to admit it, but I was kinda jazzed to see what the toy was. At this point it should come as no surprise to you that I am a man-child. Less than a year beforehand, I had bought the entire line-up of Zombionix toys on eBay because there was no Chick-N-Beef location within driving distance and I "had to" have the complete collection.
 
 My breath was heavy as I opened the plastic containing the toy item. Not because I was hoping for something cool, which I was, but because Toby had made this whole process seem deathly important.
 
@@ -324,7 +324,7 @@ If I could've shit myself in fear, I would have, but in that moment I think my a
 
 "See, if you just said to calm down, maybe that'd work," I stammered, "b-but then you threw 'the fuck' in there and that concerns me."
 
-Toby placed the gun on the table and, after a quick glance to see if it had been noticed by the staff, he leaned in a spoke quietly.
+Toby placed the gun on the table and, after a quick glance to see if it had been noticed by the staff, he leaned in and spoke quietly.
 
 "Not. Have you ever heard of The CRP Institute?"
 
@@ -344,7 +344,7 @@ Toby frowned and, breathing in through his nose in the most "I don't have time f
 
 "Under the water?"
 
-"Under the ice and the water. I wouldn't call what I did 'screaming' because there was no air in my lungs, but I was there for a Hell of a long time. Unable to die no matter how much I wanted to. Hell of a think, wanting to die at nine."
+"Under the ice and the water. I wouldn't call what I did 'screaming' because there was no air in my lungs, but I was there for a Hell of a long time. Unable to die no matter how much I wanted to. Hell of a thing, wanting to die at nine."
 
 Toby picked the gun up again and clicked what I assume to be the safety.
 
@@ -374,17 +374,17 @@ Hearing those words, I instead strongly considered unlocking the front doors and
 
 Instead of being shaken or reacting with any sort of fear, the cashier rolled her eyes back again, smiled, and quivered at his words.
 
-"Daestitus." Toby turned to look back and me, "Disappointment Demon."
+"Daestitus." Toby turned to look back at me, "Disappointment Demon."
 
 He said this as if I would know what the fuck.
 
-With one sweep if his arm, Toby grabbed the girl by her neck, lifted her in the air, slid her across the counter with an audible squeak, and threw her into the dining area, where her small body toppled a series of chairs like a bowling ball before log-rolling under a table.
+With one sweep of his arm, Toby grabbed the girl by her neck, lifted her in the air, slid her across the counter with an audible squeak, and threw her into the dining area, where her small body toppled a series of chairs like a bowling ball before log-rolling under a table.
 
 I watched her spin off into the distance, then looked back to see Toby already hopping the counter.
 
 "Demon-fuckers!" he shouted in a blind rage.
 
-Two employees moved to stop him in a pincer formation, one at each side. They grabbed his arms to restrain him, but two diminutive emo girls weren't much of a match for full-size G.I. Joe. Just as soon as they grabbed onto him, he swing his arms together, bashing their heads together. All the while, the employees never lost their blank, blissful expressions.
+Two employees moved to stop him in a pincer formation, one at each side. They grabbed his arms to restrain him, but two diminutive emo girls weren't much of a match for life-size G.I. Joe. Just as soon as they grabbed onto him, he swung his arms together, bashing their heads together. All the while, the employees never lost their blank, blissful expressions.
 
 As they crumpled to the floor, I watched, paralyzed with dread and horror as he put a bullet in each of them.
 
@@ -420,9 +420,9 @@ We walked past motionless body after motionless body, including one draped over 
 
 We stopped at the freezer.
 
-"What's in there?" I asked, already seeing where this was going, "Or do I not what to know? No... I want to know what's in there."
+"What's in there?" I asked, already seeing where this was going, "Or do I not want to know? No... I want to know what's in there."
 
-"Easy answer? The demon. Once they're on our plane of existence, they seek out cold. It's like finally putting salve on a third degree burn you've had since the dawn of time."
+"Easy answer? The demon. Once they're on our plane of existence, they seek out cold. It's like finally putting a salve on a third degree burn you've had since the dawn of time."
 
 Toby pulled open the freezer door as a frosty cloud of mist spilled out.
 
@@ -436,7 +436,7 @@ The lights flickered, then died, leaving us in a pitch darkness.
 
 Personally, I was about to burst into tears.
 
-A single light came to life within the freezer, nearly blinding us before our eyes adjusted. A secondary, red light, for emergency lighting, I suppose, gave is a barely visible glimpse of what was inside.
+A single light came to life within the freezer, nearly blinding us before our eyes adjusted. A secondary, red light, for emergency lighting, I suppose, gave us a barely-visible glimpse of what was inside.
 
 Sitting in the center of the freezer, on a throne of burger patty boxes, was a grizzled old miner in a burger helmet with a head lamp - one that was now shining directly on us.
 
@@ -462,7 +462,7 @@ Toby still had his hand on my shoulder. His grip firmed as he no doubt knew I wa
 
 "Well, I'm not gonna lie..."
 
-I started the sentence, and halfway through, I saw Toby turn to me, his expression dropping from self-assured to pure concern."
+I started the sentence, and halfway through, I saw Toby turn to me, his expression dropping from self-assured to pure concern.
 
 "... that's incredibly disappointing."
 
@@ -470,7 +470,7 @@ Laughter rumbled through the building as darkness fell once again, and when the 
 
 "Ask about... joining... the Burger Load... family... today..."
 
-It seized Toby and me by our throats, and all at once I could feel my windpipe closing. Struggle as I might, all I could do was frantically claw pieces of musty, dead flesh form Picky Pete's forearms with my fingernails.
+It seized Toby and me by our throats, and all at once I could feel my windpipe closing. Struggle as I might, all I could do was frantically claw pieces of musty, dead flesh from Picky Pete's forearms with my fingernails.
 
 "I can't believe you fed him!" Toby managed to get the words out as he choked.
 
@@ -518,7 +518,7 @@ I sat up, shivering and numb - either from my surroundings or from regaining con
 
 Toby seemed relieved as he stood over me, wiping red drool from his mouth and chin. I turned my head slightly to see Picky Pete lying on the icy floor, his head obliterated and slowly melting in a splatter of demon-blood spew. In my hazy state of mind, the demon's skull reminded me of a server of cherry-flavored shaved ice that had been dropped on a hot sidewalk.
 
-Toby helped my to my feet for the second time that day.
+Toby helped me to my feet for the second time that day.
 
 I should've been thankful, but I wasn't.
 
@@ -554,7 +554,7 @@ I guess I'm not the only one who ended up with a complex or two.
 
 Back outside, the world seemed like it had been put on pause while we were gone. There was no traffic due to the closed roads, and in looking around the empty parking lot, I realized that there had never been any cars for the employees to get to and from work. Things were eerily peaceful, especially in comparison to what I had just witnessed.
 
-Toby marched he way to his truck and pulled the tarp off of the back. Very few things would've surprised me in that moment, and the explosive barrels weren't one of them. I watched him roll the barrels into the restaurant, one after the other after the other. At no point did I offer to help, out of both self-preservation and resentment in equal measure.
+Toby marched his way to his truck and pulled the tarp off of the back. Very few things would've surprised me in that moment, and the explosive barrels weren't one of them. I watched him roll the barrels into the restaurant, one after the other after the other. At no point did I offer to help, out of both self-preservation and resentment in equal measure.
 
 "Time to get out of range and light it up." Toby held a remote detonation device in his hand as he got back into the driver's seat.
 
@@ -600,7 +600,7 @@ Toby took one hand off the wheel, pulled the detonator out of his cup holder, an
 
 When we pulled into the neighborhood, Toby began to drive slowly. This was unusual for him.
 
-We passed by a Inter-Ship delivery truck. Then another. And so on. As we slow-rolled the block, it seemed as if most every resident had a deliver from an Inter-Ship truck at that very moment. Most were parked in driveways. Some were on the side of the road. If I hadn't noticed Toby giving each single one the stink-eye, I probably would've looked right past the ridiculous amount of delivery trucks.
+We passed by an Inter-Ship delivery truck. Then another. And so on. As we slow-rolled the block, it seemed as if most every resident had a delivery from an Inter-Ship truck at that very moment. Most were parked in driveways. Some were on the side of the road. If I hadn't noticed Toby giving each single one the stink-eye, I probably would've looked right past the ridiculous amount of delivery trucks.
 
 As if he knew what I was going to ask, Toby spoke up.
 
@@ -612,7 +612,7 @@ He pulled into a fenced-in yard and kept the truck idling.
 
 I did as I was told immediately. If there was one thing I had learned thus far, it was that I was 100% not ready to handle anything he handled on a regular basis.
 
-In the back of the truck, under the tarp, I took a second look at the cashier. Luckily, she was still out light a light, but her eyelids were fluttering, so it probably wasn't going to be long before she woke up and screeched and ran away or whatever thralls do. I could see now that her eyes were blank, soulless orbs. The teeth hidden behind black-stained lips were razor-sharp points. All of them. For some reason, I didn't feel any more safe under that tarp than outside of it.
+In the back of the truck, under the tarp, I took a second look at the cashier. Luckily, she was still out like a light, but her eyelids were fluttering, so it probably wasn't going to be long before she woke up and screeched and ran away or whatever thralls do. I could see now that her eyes were blank, soulless orbs. The teeth hidden behind black-stained lips were razor-sharp points. All of them. For some reason, I didn't feel any more safe under that tarp than outside of it.
 
 The truck rolled to a stop. I have no idea where.
 
@@ -620,7 +620,7 @@ The truck rolled to a stop. I have no idea where.
 
 "What're you guys doing here?"
 
-"Bad boy. Thought we could trust you. Many years. Going rogue? Going off the grid?"
+"Bad boy. Thought we could trust you. Many years. Going rogue? Off the grid?"
 
 "I visited my parents."
 
@@ -638,17 +638,17 @@ My heart raced. Cleaning them? My parents? What did that mean? Killing them?
 
 "Bitch I will come out of this truck and put a piece of you in every garbage can on the end of every driveway in front of every house in this idyllic little fucking community."
 
-I relaxed a bit. Cleaning their memories... that was at least not as extreme or final.
-
-"Violent threat. Lost your cool. You lose the debate."
+"Violent threat. Lost your cool. I win the debate."
 
 "Fucking fine."
+
+I relaxed a bit. Cleaning their memories... that was at least not as extreme or final.
 
 Toby drove off again... and again, we came to a stop.
 
 "C'mon out."
 
-I slowly lifted the tarp and slid up over the side of the truck bed, falling onto the ground on my back. Toby had drive up beside my house, in a spot concealed by fences and trees.
+I slowly lifted the tarp and slid up over the side of the truck bed, falling onto the ground on my back. Toby had driven up beside my house, in a spot concealed by fences and trees.
 
 "Go home. Mom and dad won't remember anything that happened in the past 24 to 72 hours."
 
