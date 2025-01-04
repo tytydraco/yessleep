@@ -1,16 +1,16 @@
-"Roger Wilson disappeared without a trace, his car still in the driveway, and not a single thing taken from the house," Harold Whittaker said in a gruff voice. The weight of his words lingered in the air like a distant echo of something forgotten.
+"Roger disappeared without a trace, his car still in the driveway, and not a single thing taken from the house," Mr. Whittaker said in a gruff voice. The weight of his words lingered in the air like a distant echo of something forgotten.
 
 My wife Elara and I had just moved into a new house in a quiet town, nestled in a new state far from the suffocating grip of our hyper-religious parents. They hated the idea of us living together unmarried, and their disapproval had turned crazy, leaking our phone number and address to their church members, who bombarded us with calls and letters day and night. It became too much. We scraped together every dollar we could and found what seemed like a miracle: a house for sale at an unbelievable price. The young couple selling it had been unusually pushy, eager to close the deal, but we couldn’t pass it up. A fresh start away from everything we’d left behind felt like the lifeline we desperately needed.
 
-Now, here we were, having dinner with Harold and Marian Whittaker, an older couple who had lived in the neighborhood for decades. They’d invited us over as a gesture of welcome, and we were glad to have someone familiar in this unfamiliar place.
+Now, here we were, having dinner with Mr. and Mrs. Whittaker, an older couple who had lived in the neighborhood for decades. They’d invited us over as a gesture of welcome, and we were glad to have someone familiar in this unfamiliar place.
 
-"He was the owner before the young couple you bought from," Harold continued, swirling his wine. "They got it cheap, probably because the bank didn't know what to do with it. Roger Wilson was gone, just like that. Funny, though, those kids only lasted about a year before they left, too. But, I don’t judge or pry." He took a long sip of wine, his eyes flicking briefly toward Marian.
+"He was the owner before the young couple you bought from," Mr. Whittaker continued, swirling his wine. "They got it cheap, probably because the bank didn't know what to do with it. Roger was gone, just like that. Funny, though, those kids only lasted about a year before they left, too. But, I don’t judge or pry." He took a long sip of wine, his eyes flicking briefly toward Mrs. Whittaker.
 
 Elara reached for my hand under the table, her grip tightening slightly. "Did they ever find out what happened to him?" she asked, her voice tinged with hesitation.
 
-Harold shook his head slowly. "Nah. Never. It was as if he just… stopped existing one day." The room felt heavier. Marian, sensing our unease, spoke up with a soft smile, her tone gentle, as though trying to smooth over the cracks Harold had widened. "Oh, love, don’t let Harold scare you. Roger was a strange man, always kept to himself. It’s a big world out there. He probably just went back to his hometown or started over somewhere else. Nothing ever happens here. It’s a beautiful, quiet town."
+He shook his head slowly. "Nah. Never. It was as if he just… stopped existing one day." The room felt heavier. Mrs. Whittaker, sensing our unease, spoke up with a soft smile, her tone gentle, as though trying to smooth over the cracks Mr. Whittaker had widened. "Oh, love, don’t let Him scare you. Roger was a strange man, always kept to himself. It’s a big world out there. He probably just went back to his hometown or started over somewhere else. Nothing ever happens here. It’s a beautiful, quiet town."
 
-Their words stayed with us long after we left that evening, even as we thanked them for their hospitality. It was comforting to know someone nearby, but Harold’s story lingered in my mind. As the days passed, we settled further into the house, falling deeper in love with its quirks and the freedom it represented. It was the clean slate we had dreamed of.
+Their words stayed with us long after we left that evening, even as we thanked them for their hospitality. It was comforting to know someone nearby, but the story lingered in my mind. As the days passed, we settled further into the house, falling deeper in love with its quirks and the freedom it represented. It was the clean slate we had dreamed of.
 
 Three months passed, and life felt… easy. Refreshing, even. But then, one evening, everything changed.
 
@@ -82,7 +82,7 @@ Elara stared at me with wide eyes as I jotted the words down on a scrap of paper
 
 "I don’t know," I admitted. "I don’t know what any of this means. Do you think we should tell someone?"
 
-She hesitated, then suggested, "Harold and Marian? Maybe they’ll believe us. Or at least see it with their own eyes."
+She hesitated, then suggested, "The Whittakers? Maybe they’ll believe us. Or at least see it with their own eyes."
 
 It was a good idea. The following weekend, we invited the Whittakers over for dinner. After a pleasant meal, we gave them a tour of the house, steering them toward the hallway where the door was. Elara and I exchanged a nervous glance as we approached. But when we turned the corner, we froze.
 
