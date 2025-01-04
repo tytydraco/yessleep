@@ -262,11 +262,11 @@ My shoulders dropped and, for some reason, I was legitimately disappointed even 
 
 The girl's eyes rolled back a bit and her trembling smirk squirmed its way into a smile.
 
-I looked to the rest of the kitchen workers, some on the back, one at the drive-thru window, and another standing at a second register. They were all ladies around the same age as the one we had been talking to, all the dark and brooding trailer trash type. For whatever reason, each one of them seemed to go a bit slack with some sort of perverse pleasure at hearing what I had said.
+I looked to the rest of the kitchen workers, some in the back, one at the drive-thru window, and another standing at a second register. They were all ladies around the same age as the one we had been talking to, all the dark and brooding trailer trash type. For whatever reason, each one of them seemed to go a bit slack with some sort of perverse pleasure at hearing what I had said.
 
 "Get him a Minor Meal." Toby barked.
 
-He seemed angry at the girl, and I wanted to believe it was in some way a form of defending me. However, the fact he had ordered me a children's item didn't match up with that premise. Especially since I'm pretty sure he called in a "Minor" Meal when the trademarked term is "Miner" Meal.
+He seemed angry at the girl, and I wanted to believe it was in some way a form of defending me. However, the fact he had ordered me a children's item didn't match up with that premise. Especially since I'm pretty sure he called it a "Minor" Meal when the trademarked term is "Miner" Meal.
 
 I can't explain it, but it felt that way.
 
@@ -286,7 +286,7 @@ A flat cheeseburger, a tiny carton of fries, and a plastic baggie with a toy ins
 
 "What's on the cheeseburger?" Toby further pried.
 
-Groaning and shaking my head with annoyance, I unwrapped the burger pulled off the bun, and showed it to him with a flippantly disrespectful flourish. Torn and stale bun. Single burger patty. One dot of ketchup, one dot of mustard, a single half-pickle-slice, and, to top it all off, no cheese.
+Groaning and shaking my head with annoyance, I unwrapped the burger, pulled off the bun, and showed it to him with a flippantly disrespectful flourish. Torn and stale bun. Single burger patty. One dot of ketchup, one dot of mustard, a single half-pickle-slice, and, to top it all off, no cheese.
 
 "Right, that lines up." Toby nodded, "The fries?"
 
@@ -298,7 +298,7 @@ The fry carton was under-filled despite already being a small. A few of the frie
 
 "You're crazy, then." Toby noted.
 
-"Like you fuckin' know, demon-eater."
+"Like you fuckin' know, devil-eater."
 
 "Funny. What's the toy?"
 
@@ -516,7 +516,7 @@ Sound started to filter back through my ears. First, a ringing, then the dull hu
 
 I sat up, shivering and numb - either from my surroundings or from regaining consciousness in waves.
 
-Toby seemed relieved as he stood over me, wiping red drool from his mouth and chin. I turned my head slightly to see Picky Pete lying on the icy floor, his head obliterated and slowly melting in a splatter of demon-blood spew. In my hazy state of mind, the demon's skull reminded me of a server of cherry-flavored shaved ice that had been dropped on a hot sidewalk.
+Toby seemed relieved as he stood over me, wiping red drool from his mouth and chin. I turned my head slightly to see Picky Pete lying on the icy floor, his head obliterated and slowly melting in a splatter of demon-blood spew. In my hazy state of mind, the demon's skull reminded me of a serving of cherry-flavored shaved ice that had been dropped on a hot sidewalk.
 
 Toby helped me to my feet for the second time that day.
 

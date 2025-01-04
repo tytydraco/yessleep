@@ -24,3 +24,4 @@ But when we got on the bus, the driver was just sitting in a pool of blood, with
 
 Even though I could’ve sworn it was noon when we entered, it now seemed like it was midnight, as the sun was gone. But it was a blur after that. I heard my classmates get horrifically murdered, while me, my friend Jake, Mr. John, and the person who Jake was dating, Emily, ran away with the monster chasing us. We ran for what seemed like hours, until we finally managed to lose the monster in the woods. But we long forgot the way back. So here we are, In the middle of the woods in Virginia with basically nothing, hiding from a monster. 
 
+Part 3: https://www.reddit.com/r/nosleep/s/P4mPsqfPB7
