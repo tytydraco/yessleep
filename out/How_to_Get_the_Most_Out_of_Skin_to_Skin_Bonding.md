@@ -30,8 +30,6 @@ I saw an ad the other night. “How to get the most out of skin to skin contact,
 
 She was looking at me. Smiling. Her teeth so fucking white and straight I wanted to tear them from her gums. 
 
-She was looking at me. Smiling. Her teeth so fucking white and straight I wanted to tear them from her gums. 
-
 They were selling a box that included  an instruction manual that guaranteed that the contents would break whatever curse or barrier existed between mother and child. That within, there was a guarantee of peace. Of love. I remember scoffing when I read that. 
 
 I bought it anyway.
@@ -41,18 +39,13 @@ I found the box on my doorstep this morning. The packaging was simple. It was a 
 I took it inside, and almost immediately Annie’s cries erupted through the house. They were shrill, piercing pitches that punctured my skull. The ringing swelled alongside it- I couldn’t hear myself ripping the package open. 
 
 Inside was a velvet pillow with four  items.
-A spool of black twine, a needle, and a scalpel. 
+A spool of black twine, a needle, a scalpel and an instruction manual.
 
-And an instruction manual. I’ll put it here in case anyone wants to try this at home, since I don’t remember what the website was called. I’m sure searching up “skin to skin bonding with babies” or something like that will bring up something though.
+I’ll put it here in case anyone wants to try this at home, since I don’t remember what the website was called. I’m sure searching up “skin to skin bonding with babies” or something like that will bring up something though.
 
 Annie, of course, was crying for a large part of the process. I’ll admit, I was too. I don’t have any experience with stitching, my mother died when I was born, and it’s hard to work with something that squirms so much. She was going to love me. She didn’t have a choice. I don’t care if the parts of her that were Mason cursed me in hell, I carved them out and threw them away. I kept every part that was mine.
 
 She doesn’t cry anymore. She lays peacefully in her bed, occasionally making a sound similar to a gurgle when she needs something. I have started to bottle feed her since she can’t latch on anymore- she had Mason’s mouth. She is much happier now, I can tell. I’ll raise her right, and she will be perfect. 
 
 Even if she does look like a wad of chewed up gum.
-
-
-
-
-
 
