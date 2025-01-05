@@ -45,7 +45,7 @@ Afraid and wanting to put an end to this bizarre situation, I tried to intervene
 - [GENERATING IMAGE…]
 
 When the image loaded, I felt my throat tighten. The damn AI had just designed the house I asked for... but there were unusual things, I hadn't noticed right away due to the quality, which was in 240p.
-As the image worked to become sharper at 720p, the more I was focusing my iris to understand the image. 
+As the image worked to be sharper at 720p, the more I was focusing my iris to understand the image. 
 
 
 The bluish color of the house's exterior wall..., the beige front door, the no parking sign in front of the house..., the window that gave access to the kitchen... THAT WAS MY HOUSE!
@@ -66,8 +66,8 @@ I didn't understand, I felt like I was going crazy, I CLEARLY see a damn man in 
 With a horrible imagination taking over me, I ran to the kitchen window, ready to notice the omen that the AI ​​could, in some way, have made about my house.
 
 
-But when he had glanced quickly toward the outside, through the window. I... didn't see anyone. There was no man or any other person outside the house. 
-Not knowing whether to be relieved or with more suspicion in my mind. I ran to my cell phone, and continued talking to the AI. But before I came back, I realized that it was already getting dark, I didn't know how long I had been there talking to that shit DrawingGlove. I had only started talking to her because I was bored on a Friday and to help even more, when I had started talking to her, the weather had been cold all day, with snow taking over around the neighborhood. 
+But when he had glanced quickly towards the outside, through the window. I... didn't see anyone. There was no man or any other person outside the house. 
+Not knowing if I should be relieved or with more suspicion in my mind. I ran to my cell phone, and continued talking to the AI. But before I came back, I realized that it was already getting dark, I didn't know how long I had been there talking to that shit DrawingGlove. I had only started talking to her because I was bored on a Friday and to help even more, when I had started talking to her, the weather had been cold all day, with snow taking over around the neighborhood. 
 
 I could have simply tried to go to sleep, but even that wasn't working. Seemingly all things led me to try and talk to this strange AI. 
 
@@ -75,8 +75,8 @@ I could have simply tried to go to sleep, but even that wasn't working. Seemingl
 Returning to the cell phone, I saw something more disturbing than anything I had ever seen with those drawings. DrawingGlove hadn't sent me a realistic drawing... But rather a photo, taken a few moments ago, it was a photo of me, with my back to the photo angle, with me looking at the kitchen window, trying to look outside the house. 
 
 
-I opened my eyes wide, I felt my paranoia taking over me more and more. With my adrenal glands producing more and more adrenaline, my heart rate increasing, and my body tingling with despair, 
-I started calling the police. Fuck that, surely some hacker must have broken into my house and placed hidden cameras and maybe was also monitoring everything with them. There must have been some explanation, so I dialed the Military Police number 190. A police officer had attended to me.
+I opened my eyes wide, I felt my paranoia taking over me more and more. How was it possible for a fucking AI to take this photo of me like that? 
+With my adrenal glands producing more and more adrenaline, my heart rate increasing, and my body tingling with desperation, I started calling the police. Fuck that, surely some hacker must have broken into my house and placed hidden cameras and maybe was also monitoring everything with them. There must have been some explanation, so I dialed the Military Police number 190. A police officer had attended to me.
 
 - Hello? 
 — Hello, Military Police Call. My name is David, who am I talking to? Tell me what's going on calmly, if possible.
@@ -119,18 +119,18 @@ And then, my cell phone vibrated during the call. And the tranquility had collap
 I had just received a photo from the AI, the photo was in first person, it was a photo in which the upper part of it only showed a crack of the 1st door after the stairs. In the central part of the photo there was a predominance of the white staircase that had just been climbed a few moments ago, while the left corner of the image showed the white handrail, with a hand that was being placed on it, a hand that was wearing a black glove. .
 
 
-—David, PLEASE COME SOON, I CAN HEAR HIM GOING UP THE FUCKING STAIRS.-I whispered as lightly as loudly as I could.-
+—David, PLEASE COME SOON, I CAN HEAR HIM GOING UP THE FUCKING STAIRS.-I whispered as lightly as loud as I could.-
 
 —David, HOW LONGER ARE YOU GOING TO TAKE!?
 
 —Wait Lucca, please don't make any sudden noise, he may not know your position, we're already arriving, we'll be there in 3 minutes.
 
-—-5 minutes later—-
+                  —-5 minutes later—-
 
 -Hello? Lucca, are you still there? can you hear me? We are outside your residence. Can you hear the sirens? We're out here, let's break down the door. 
 
 ———————————————
-~DAVID~
+                            ~DAVID~
 
 When I had finally arrived at Lucca's house, along with my rescue team. We tried and managed to break down the door and enter his house. When we entered, two people were apparently sitting on the couch. They were facing the TV, which I assume was their mother and father. Both were staring at the TV. Finding such calmness strange, given the circumstances, I asked them if they were okay. 
 
