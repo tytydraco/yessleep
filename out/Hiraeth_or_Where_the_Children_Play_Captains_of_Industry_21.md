@@ -108,7 +108,7 @@ I intended on this sooner rather than later regardless of how anyone felt about 
 
 The boy—William—kept to my heels no matter how I distanced, and I gave up quickly on losing him amongst the crowd.
 
-Golgotha, being as large as it was, was densely packed and although I never counted the heads of those I passed (I’m sure Boss Frank did so), the ones that were left were a sad few; only a bit more than one-hundred-and-fifty by a guess. That was what remained. How sad. I wished to dive into the theatrics, the dramatics of it. I wished to bring myself to ruin over the lost lives—yet there was some rotten core in me that believed it was deserved. Oppressed existed only because they allowed it. What should I have felt? I felt nothing too much.
+Golgotha, being as large as it was, was densely packed and although I never counted the heads of those I passed (I’m sure Boss Frank did so), the ones that were left were a sad few; only a bit more than one-hundred-and-fifty by a guess. That was what remained. How sad. I wished to dive into the theatrics, the dramatics of it. I wished to bring myself to ruin over the lost lives—yet there was some rotten core in me that believed it was deserved. Oppression existed only because they allowed it. What should I have felt? I felt nothing too much.
 
 There was the hope of Suzanne—I’d cook for Suzanne and Gemma both and maybe I’d find a stick for Trouble, and I’d never feel misery again; this was a dream, I knew it then too. Misery was me and whether it was so by Mephisto or I put it there was irrelevant.
 
@@ -118,7 +118,7 @@ I pilfered clothes, medicine, a satchel, foodstuffs, and hoped to go away quickl
 
 In the wet basement there was dust and rubble and ascending the stairway to the kitchen of that place once known as the hall of Bosses, I smelled something like rain. It was only earlier than midday by a smidge and I propelled myself from the place, down the front steps of the hall, into the awful state of Golgotha.
 
-The sky was red, and the walls were streaked with brown dried blood and the bodies—pieces and flayed—were putrid in the sun like putty dolls. Smoldering black spots swelted heat at random checkpoints and warped or torn metal glowed as silver where they threw the sun like blinding orbs. Water spurted from pipes which fed the hydro towers most of all and the ground ran muddy and scabs of congealed viscera the size of paper sheets rafted along in puddles that culminated in places where I walked.
+The sky was red, and the walls were streaked with brown dried blood and the bodies—pieces and flayed—were putrid in the sun like putty dolls. Smoldering black spots swelted heat at random checkpoints and warped or torn metal glowed as silver where sun was thrown like blinding orbs. Water spurted from pipes which fed the hydro towers most of all and the ground ran muddy and scabs of congealed viscera the size of paper sheets rafted along in puddles that culminated in places where I walked.
 
 I moved through the streets that were no longer and peered across and in my beleaguered visage I saw the exterior walls, the thick bulwark against the wastes, had been punched through in places. Leviathan again.
 
