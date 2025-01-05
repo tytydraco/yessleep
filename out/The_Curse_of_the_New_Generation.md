@@ -1,4 +1,4 @@
-The fridge at my Aunt Tina’s house was alive. Bottles of soda seemed to leap into hands, their cold bodies glistening like forbidden treasures. But not for me.
+The fridge at my Aunt Tina’s house was alive, opening whenever a family member strolled by. Bottles of soda would practically leap into their hands, carried on a misty cloud of chilled air, and glistening like forbidden treasures. But not for me.
 
 When my mom needed someone to watch me after school, she usually dropped me off at Aunt Tina’s house. And at her house, soda wasn’t just a drink—it was a lifestyle.
 

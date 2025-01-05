@@ -1,5 +1,3 @@
-Part 1: https://www.reddit.com/r/nosleep/s/xYgJp0VFqt
-
 Part 2: https://www.reddit.com/r/nosleep/s/1EEwGtcE3H
 
 I opened a cabin door, trembling in fear, it’s been four hours since we ran from the bus, and we’ve been scared to return, otherwise we might run into that monster. We had no food or water. All of our stuff was back on the bus, the only thing I brought was my phone, but there’s no signal and it’s on 5 percent. Remember we have no resources, let alone a charger. Even if we did, we wouldn’t find an outlet. This was the reason why I’m searching this abandoned cabin, to find something useful, like a flashlight.
@@ -62,3 +60,4 @@ But those monsters weren’t harmed by those bullets at all. They just continued
 
 I. Am. Fucked…
 
+Part 4: https://www.reddit.com/r/nosleep/s/h0MDggyomu

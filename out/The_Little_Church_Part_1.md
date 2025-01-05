@@ -96,3 +96,4 @@ The young woman looked up, with a worried look in her eye.
 
 “I don’t know.”
 
+[Part 2](https://www.reddit.com/r/nosleep/s/T7qmbnXC7n)

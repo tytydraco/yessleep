@@ -238,7 +238,7 @@ Her call was the catalyst to a series of epiphanies.
 
 *I assumed the sacs inside of my wife were a stomach and a heart. But she has no blood, so maybe she doesn’t need a heart.*
 
-*Maybe it’s a stomach and a uterus. My mom has been utterly obsessed with obtaining a grandchild.*
+*Maybe it’s a stomach and a uterus. My mom has been obsessed with receiving a grandchild.*
 
 When I answered the call, I shouted my initial query before she could wind herself up.
 
