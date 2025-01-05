@@ -60,7 +60,9 @@ The dreams started soon after.
 
 In my dreams, I stood in Tina’s kitchen. The fridge door creaked open, spilling black, bubbling liquid across the floor. It crawled toward me, tendrils snaking over the linoleum. It smelled of sweetness and rot, fizzing softly as it crept closer. I woke up screaming, drenched in something sticky. My mom thought I’d wet the bed, but I recognized the smell. It was soda. Somehow, it had crossed over.
 
-Avoiding soda became impossible. Its logo appeared on every billboard, every bus, every screen. But it wasn’t just a logo—it was alive. A heavy-lidded eye, following me everywhere.
+The reoccurring dream continued to haunt me.
+
+In the waking world, avoiding soda became impossible as well. Its brand names and logos seem to appear on every billboard, every bus, every screen. A malevolent presence, following me everywhere.
 
 “Join the soda society,” my friends said, smiling faintly, their teeth decaying and their eyes dull.
 
@@ -68,15 +70,17 @@ Even at work, soda was unavoidable. When I refused to stock the breakroom fridge
 
 “You’re not a team player,” he said. “Soda’s got a lot to give, and you’ve got a lot to lose.”
 
-The world crumbled as soda consumed everything.
+Around me, it seemed as though soda was everywhere, poisoning everything.
 
-Landfills overflowed with plastic bottles. The oceans became graveyards of microplastics. “Every generation refreshes the world,” the ads claimed, oblivious to the ruin.
+Landfills overflowed with plastic bottles. The oceans became graveyards of bobbing plastic bottles, straws, and microplastics. “Every generation refreshes the world,” the ads claimed, oblivious to the ruin.
 
-Children waddled into school, their thermoses sloshing with soda. Dentists reported epidemic levels of tooth decay. And still, the commercials chirped, “Be bold, stay young, and drown in soda!”
+Children waddled into school, gripping 32 ounce plastic bottles in their hands. Dentists reported epidemic levels of tooth decay. And still, the commercials chirped, “Be bold, stay young, and drown in soda!”
 
 And then there were the health complications. Studies speculated about the effects of consuming massive quantities of caffeinated beverages, linking them to headaches, fatigue, and neurological strain. My mom, perpetually clutching her frosted glass bottle, began complaining of constant headaches and numbness in her hands. When I begged her to stop drinking it, she just smiled faintly and said, “Why would I stop? It’s the taste of this generation.”
 
-Eventually, unable to bear watching my family and friends poison themselves, I drifted west, hoping to escape. I took back roads to avoid the billboards, averting my eyes to avoid the soda displays at gas stations. I hoped the ocean, vast and eternal, might wash away the madness. Instead, it became the final straw.
+Diabetes rates surged silently, like a shadow spreading over the population. The signs were everywhere: sluggish movements, shaking hands, and the dull haze in people’s eyes as they reached for yet another bottle of soda.
+
+Eventually, unable to bear watching my family and friends poison themselves, I drifted west, hoping to escape. I took back roads to avoid the billboards, averting my eyes to avoid the soda displays at every gas stations. I hoped the ocean, vast and eternal, might wash away the madness. Instead, it became the final straw.
 
 The ocean looked wrong—black, glossy, and churning unnaturally. As I watched, a wave rolled in, hissing and fizzing at the edges. It crashed at my feet, leaving empty plastic bottles and brown stains behind.
 
