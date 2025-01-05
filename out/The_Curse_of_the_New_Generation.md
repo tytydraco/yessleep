@@ -2,7 +2,7 @@ The fridge at my Aunt Tina’s house was alive, opening whenever a family member
 
 When my mom needed someone to watch me after school, she usually dropped me off at Aunt Tina’s house. And at her house, soda wasn’t just a drink—it was a lifestyle.
 
-Their fridge was always packed with tall, frosted bottles, their coolness radiating across the kitchen. On hot days, I half-expected them to water the lawn with it. Everyone had a bottle in hand or perched on a nearby countertop, the condensation leaving sticky rings on every surface.
+Their fridge was always packed with tall, frosted bottles, their coolness radiating across the kitchen. Everyone had a bottle in hand or perched on a nearby countertop, the condensation leaving sticky rings on every surface. On hot days, I half-expected them to water the lawn with it.
 
 The fridge door opened like clockwork whenever a family member walked by. Soda bottles practically leapt in their hands. Everyone’s hands but mine, that is.
 
