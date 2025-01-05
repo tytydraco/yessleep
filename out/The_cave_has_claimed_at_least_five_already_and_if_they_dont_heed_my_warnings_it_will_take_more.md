@@ -150,7 +150,7 @@ He used to always say that he felt a sort of special connection with the place. 
 
 Regardless of my inability to understand its magnificence in the same way, I had to admit that there was something if not inherently impressive, at least curiously strange about it.
 
-There was the mystery of Christopher Shields to consider, and the odd phenomena of forgetfulness within. Brandon told me that even no matter how many times he made the attempt, he still had difficulty finding the way out.
+There was the mystery of Christopher Shields to consider, and the odd phenomena of forgetfulness within. Brandon told me that no matter how many times he made the attempt, he still had difficulty finding the way out.
 
 That was what he loved the most about it—the never-ending battle—him versus the Earth itself—a true test of determination and mental fortitude.
 
