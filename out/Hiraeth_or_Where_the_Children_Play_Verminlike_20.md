@@ -1,4 +1,4 @@
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hsgzfz/hiraeth_or_where_the_children_play_more_and_more/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hsgzfz/hiraeth_or_where_the_children_play_more_and_more/)/[Next](https://www.reddit.com/r/nosleep/comments/1hu5beg/hiraeth_or_where_the_children_play_captains_of/)
 
 
 Thuds on the door came more erratic and screams and yet more gunfire—automatic spits.
@@ -127,4 +127,4 @@ Mal closed the door and latched it, and the ground shook again and a few of the 
 
 It was longer than a minute, and I was fully unconscious, upright, and hunkered against the wall with the pipe hanging from the corner of my mouth. I was dead on my feet.
 
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hsgzfz/hiraeth_or_where_the_children_play_more_and_more/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1hsgzfz/hiraeth_or_where_the_children_play_more_and_more/)/[Next](https://www.reddit.com/r/nosleep/comments/1hu5beg/hiraeth_or_where_the_children_play_captains_of/)
