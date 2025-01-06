@@ -4,8 +4,6 @@ When my mom needed someone to watch me after school, she usually dropped me off 
 
 Their fridge was always packed with tall, frosted bottles, their coolness radiating across the kitchen. Everyone had a bottle in hand or perched on a nearby countertop, the condensation leaving sticky rings on every surface. On hot days, I half-expected them to water the lawn with it.
 
-The fridge door opened like clockwork whenever a family member walked by. Soda bottles practically leapt in their hands. Everyone’s hands but mine, that is.
-
 But—and here’s the part that still baffles me—Tina wouldn’t let me have a soda.
 
 It didn’t make sense. Everyone else could drink as much as they wanted, but Tina had a strict rule: you could only have soda if you didn’t ask for soda.

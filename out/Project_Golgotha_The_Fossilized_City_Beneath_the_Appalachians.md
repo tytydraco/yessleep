@@ -1,3 +1,7 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1hultkt/project_golgotha_the_fossilized_city_beneath_the/)
+
+\---
+
 I write this account not for publication, nor for the curiosity of some faceless committee. This is for you—whoever *you* are—tasked with sorting through the wreckage of **Project Golgotha** and determining what went wrong. You’ll find my name scattered through the files, attached to reports and assessments, but this is the truth of what happened in **Aeternum Fossilis**. It is all I can offer before whatever is inside me takes hold completely.
 
 Even now, I’m not sure what compels me to write. Fear, perhaps. Guilt, most certainly. But there is something deeper, a kind of pull—like the city itself is still alive inside me, its influence working through my hands. If that sounds absurd, you’ll come to understand. By the time you finish reading this, you’ll believe me, or you’ll wish you didn’t.
@@ -458,6 +462,4 @@ When I opened them, the patterns were still there, shifting and flowing like liq
 
 \---
 
-What happened next will be posted around this time tomorrow.
-
-After tomorrow, this memoir is over.
+[Part 2](https://www.reddit.com/r/nosleep/comments/1hultkt/project_golgotha_the_fossilized_city_beneath_the/)
