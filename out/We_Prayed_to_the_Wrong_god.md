@@ -1,5 +1,3 @@
-Part 1
-
 I present these journals to you as a warning. There are churches that are indistinguishable from your Christian churches. Well, until you get to the inner circle. They pray to neither Yahweh nor Jesus even though they say they do. They pray to someone whose name I can never write. A god who loves to make himself known but because of forces even beyond him it is quite difficult for him to do so. A god who can give those he loves whatever he wants but only those he loves.
 
 This isn’t a conspiracy of how elites secretly serve him or how he sits in the background dictating every move. This is an account of how he’s ruined my life.
@@ -22,7 +20,7 @@ I’ll give you a list of churches in the back of this book and you can either a
 
 Now let me tell you about my god and my girl because they’re intertwined in this religion of mine.
 
-When I was thirteen, about four years ago, we had a special ceremony with our youth group. All of our youth group were driven by van to one of the temples. The churches are easy to find but the temples -where the real power is- they’re hard to find. This one was out in a cornfield, isolated and alone. It was not a grand thing and was closer in appearance to a shack in the woods than a grand cathedral.
+When I was thirteen, about four years ago, we had a special ceremony with our youth group. All of our youth group were driven by van to one of the temples. The churches are easy to find but the temples -where the real power is- they’re hard to find. This one was out in a cornfield, isolated and alone. It was not a grand thing and was closer in appearance to a shack in the woods than a grand cathedral. Cows grazed in the grass in front of it. Oh, cows those poor, poor cows. I’ll never look at them the same again.
 
 We exited the bus to go to the temple in a silent single file line; talking without permission was an offense that resulted in physical punishment. We shivered in the rough wind and the cold drizzle of rain. Most of us kept our heads down to avoid the gaze of the high cornstalks. Silence was demanded but fear was allowed so our single-file scurried and shook all the way to the temple.
 
@@ -58,9 +56,9 @@ Sharon did not mind it. She walked forward. Her heels did not clack against the 
 
 “Oh no, no, no,” I thought but didn’t dare say. The kid was the food. I know the kid was drugged. He had to be. Anyone with any survival instincts would have ran from her. She strode forward with confidence. Perhaps, this is why she wanted to work with kids. Perhaps this was her reward. She got to feel all of our god’s presence and not want to shrivel away like we wanted to. 
 
-All I could think was, ‘No, no, no,’ the closer they got. I didn’t want to watch this but I didn’t want to be next. So, I had to sit there and I was suppossed to keep my eyes open but I couldn’t manage that.
+All I could think was, ‘No, no, no,’ the closer they got. I didn’t want to watch this but I didn’t want to be next. So, I had to sit there and I was supposed to keep my eyes open but I couldn’t manage that.
 
-I’m sorry I’m a coward but I covered my eyes. It didn’t feel right to see. That wasn’t enough though. My eyes couldn’t close tight enough, bright orange light creeped in them.  I squeezed with every muscle in my body and they couldn’t go tighter. Pain swarmed in the middle of my head because of the effort. Then came his screams once he was in the fire.
+I’m sorry I’m a coward but I covered my eyes. It didn’t feel right to see. That wasn’t enough though. My eyes couldn’t close tight enough, bright orange light crept in them.  I squeezed with every muscle in my body and they couldn’t go tighter. Pain swarmed in the middle of my head because of the effort. Then came his screams once he was in the fire.
 
 He was so confused. I heard a ‘what’ in there and so many cries for help. I opened my eyes to see if she would. She kicked him with her heel and he was pushed back into the flames. Then she laughed. Then they all laughed. And I felt sick because I didn’t know what was funny.
 
@@ -80,12 +78,87 @@ As Sharon walked now the world felt the weight of her steps. I felt it again. Ag
 
 That girl was Kay McKenzie and that’s the moment I knew I loved her. I grew numb because of this world we lived in.  She didn’t. I fell in love with the girl because she cared even when she wasn’t supposed to.
 
-Sharon delivered her punishment with malice. A swift smack to the face. You all hide your punishments on parts of the body that could be hidden. Our leaders punish us on our faces so we can be shamed. Sharon's mission was not to stop until Kay’s face was swollen and purple and Kay’s tears ceased.
-
-Now I had never done this and I don’t think I could do it again but I made myself cry to get Sharon’s attention off of Kay. A loud wail. So, Sharon had to click-clack her heels to me, smack me once, and then go back to Kay and keep going. Which to me is funny in a way. If you don’t laugh you cry right? Eventually, Sharon grew too tired and none of our faces became purple, just red.
-
-Every strike from Sharon was worth it because Kay and I became friends after. She is a small girl and her two front teeth are big, like mine.  And she talks too much ( in the opinion of everyone but me) and they say the same about me. And she gets depressed sometimes but won’t tell anybody because (like me) that’s not her role in life. We’re here to make people laugh and we would never burden anyone else with what makes us sad.
+ Kay is a small girl and her two front teeth are big, like mine.  And she talks too much ( in the opinion of everyone but me) and they say the same about me. And she gets depressed sometimes but won’t tell anybody because (like me) that’s not her role in life. We’re here to make people laugh and we would never burden anyone else with what makes us sad.
 
 Like me she has a hard time expressing herself to people she’s not close to. Which is the saddest of tragedies for them and my saving grace because if she did they’d be hopelessly in love with her like me. 
 
-That is the wonderful heart of Kay McKenzie. The girl I will start dating tomorrow and then marry within the year. That’s her that’s the girl I’d go to Hell for. We will leave this god together and I’ll give her a life of peace where her empathy won’t be punished.
+That is the wonderful heart of Kay McKenzie.
+
+“Shut up!” Sharon said and her hand groped at her side as if she prepared to give a wicked strike. This wouldn’t be that strange for us, our parents signed a permission slip that said we could be disciplined as they saw fit.
+
+Sharon didn’t strike Kay though. Sharon held back.
+
+*Drip. Drip. Drip.*
+
+My eyes left Kay and went up to the ceiling where a strange salty liquid dripped from the church. It crashed to the floor filling the room with the smell of salt.
+
+“Stop crying!” Sharon said.
+
+Kay scrunched up her face and still tears escaped her.
+
+*Plop. Plop. Plop.*
+
+The saltwater expanded and fell from the church in head-sized drops bursting, spreading, shooting out like BB-gun bullets. We took cover behind the pews to avoid the stinging of the water.
+
+"Please," Sharon said—no, begged. Something I'd never heard her do.
+
+Kay couldn't stop.
+
+The dripping from the sky stopped, sort of.
+
+*Floosh!*
+
+Behind me, an evil miracle happened: a waterfall fell from the church onto a girl named Monica Peters. Monica collapsed under the weight of the water. Her body was bombarded by an impossible force, but her face remained untouched.
+
+I ran to help her.
+
+Sputtering and crying, she crawled forward in my direction to escape it.
+
+Dropping to the floor, I reached out my hand to help her, careful not to let the water hit me.
+
+As the saying goes, miracles happen once in a while when you believe, but this miracle wouldn't let Monica Peters leave.
+
+
+
+Doubling force, then tripling, water from hell fell from above and ripped away her skin, then flesh, then meat from her bones, until I watched her life leave her eyes. Perhaps her spirit journeyed wherever the water came from.
+
+All eyes fell on Kay. Hoping she was done crying and blaming her for Monica's death.
+
+But who could stop crying under the weight of all that guilt?
+
+"Please, forgive me," she said, damning us with her tears the whole time.
+
+*Moooo*
+
+Cows?
+
+*Moooooooo*
+
+Have you ever heard a cow screech? It is not a pleasant sound.
+
+*Crack. Crack. Crack.*
+
+Outside something was breaking—maybe sticks, maybe bones—we didn't know. We stood statue-still, preparing to run if we needed to.
+
+The door from the back of the church burst open. Piling in were cows crying and stretched into impossible positions by our god's will. They ran like humans and cried like only animals can cry—a perfect innocence born from being punished for a reason beyond their comprehension.
+
+
+
+Us kids were a lot like animals then, punished for something, by something that went beyond our reason. Hooves hit heads in the chaos. Blood painted the church. The trampling of bodies sent my classmates to meet Monica in the afterlife. Kay stood there, maybe her guilt wanted her to die. My childish crush wanted her to live. I tackled her and pushed her under the pews.
+
+
+
+Moos and "I want my mommy's" choired through the church, and I hoped our god was happy with it, his evil praise, because I promised if I lived I would never worship him.
+
+
+
+Silence fell. Fresh grass and blood mixed in the musty smell of the church. I rose from my hiding place to see the chaos. Dead. All of my classmates and even the cows lay dead and broken for no good reason except a god got upset a girl had empathy.
+
+
+
+Only Sharon, myself, and Kay lived from that horrible day.
+
+
+
+That was years ago. Kay and I will start dating tomorrow and then marry within the year. That's her—that's the girl I'd go to Hell for. We will leave this god together, and I'll give her a life of peace where her empathy won't be punished.
+
