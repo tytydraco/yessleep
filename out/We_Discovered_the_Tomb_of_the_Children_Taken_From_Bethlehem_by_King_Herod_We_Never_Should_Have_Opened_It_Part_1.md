@@ -26,7 +26,7 @@ Clearly, if excavations had just begun, the only evidence Naeem had of this bein
 
 I was startled by an unexpected hesitancy in his tone as he spoke it to me: 
 
- *Salome, Toparch of Jamnia, Azotus, and Phasaelis, Daughter of Antipater of Idumea, has commissioned this to honour her brother, Herod ben Antipater, King of Judea, who is imprisoned within. To who it be that look upon this monument, do no more than read that which is inscribed on these walls. Let the Kings torment remain contained.*
+*Salome, Toparch of Jamnia, Azotus, and Phasaelis, Daughter of Antipater of Idumea, has commissioned this to honour her brother, Herod ben Antipater, King of Judea, who is imprisoned within. To who it be that look upon this monument, do no more than read that which is inscribed on these walls. Let the Kings torment remain contained.*
 
 A chill ran down my spine.
 
@@ -178,4 +178,4 @@ That evening I sat on the bed in my accommodation - a basic amenity demountable 
 
 My fingers trembled.
 
-Heart slamming against my chest, and feeling the urge to shit my pants, I read it...
+Heart slamming against my chest, and feeling the urge to shit my pants, I read it[...](https://www.reddit.com/r/jaymicafella/)
