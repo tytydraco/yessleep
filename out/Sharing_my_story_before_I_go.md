@@ -1,0 +1,27 @@
+For as long as I can remember, I’ve been terrified of aliens. When you were growing up, you might have asked your parents to check under the bed for monsters, but I made my parents check for aliens. I’m not sure where my fear of extraterrestrial intelligence came from, but as I grew older, that fear turned to curiosity. I wanted to learn everything I could about the stars and other worlds. 
+
+When my boyfriend and I first moved in together and I shared this interest with him, he suggested I download a star map app on my phone. “Whenever you’re curious about a constellation or star, the app will tell you what you’re looking at,” he explained. Living in a two-bedroom apartment on the third floor of our building, we didn’t exactly have space for a telescope, so we figured this was a happy medium! Our bedroom window offered a stunning view of the grassy field below and, while we could never see that many stars because of light pollution from the neighboring city, the few celestial bodies we could see were enough to entertain me before falling asleep each night.
+
+"Jack!”, I’d say, my eyes focused on the sky outside. “Look at that light up in the sky! Is that a UFO?!” When you’re fascinated/ scared of aliens, every foreign light in the sky is a UFO until proven otherwise.
+
+“Probably,” Jack would joke. “What does your star app say?”
+
+I’d sit up to throw my legs over the side of the bed, stretching my arms towards the window, my phone pointed outside. “Oh, it’s just Mars”, I’d respond, somewhat relieved. Jack would smile, kiss my forehead and settle back into his corner of the bed. This continued throughout the years, and the app really was useful every time there was a strange light in the sky. 
+
+But this past month, I noticed a new light in our atmosphere. Jack always had an explanation for me, “it’s a planet” or “it’s just a star”, but this didn’t explain the fact that every night it was much brighter than anything else in the sky. It always changed location, too. Some nights it would be closer to the horizon, right in front of us, and other nights it would be further off into the distance, almost on the other side of the sky. My star app was never able to identify the mysterious glow. 
+
+Finally, I earned Jack’s interest. “Jack! Look! That light in the sky, it’s flashing now!” I shouted to him. He sat up in bed and rubbed his eyes to look at the bright, blinking body.
+
+“You’re right. What is that?” he replied, getting out of bed to get a closer look. Meekly, we both snuck over to the window, staring at the mysterious, flickering object that was now darting quickly through the darkness. Its movements were erratic, moving vertically as well as horizontally in space, but I looked at Jack, his eyes wide in alarm, and realized he had come to the same conclusion: the light in the sky looked as though it was searching for something. 
+
+“Should we close the curtains?” I whispered; my eyes once again glued to the glimmer on the other side of the thin pane of glass. “Yes,” Jack replied curtly as he let go of my hand to grab the drapes. That small movement was enough to gain the attention of the floating object in the sky. Its focus immediately turned to us, its blinding light shining directly into our apartment. My mouth fell open as I stared into the beam, frozen in fear. A resounding silence flooded the air as I held my breath, and I realized that the windowpane – it was gone. I could feel the biting night air on my naked face. 
+
+With a gust of air and in the blink of an eye, the glowing object was upon us. I screamed.
+
+My instincts kicked in and I bolted for the door, falling over my own feet on my way to the exit. “Jack!” I shrieked, tears stinging my cheeks. “Jack!” I screamed again as I spun around to find him still at the window, seemingly in a trance that nothing could break. The light flooding our room was so bright, I could barely see. “JACK!” I pleaded once more. He didn’t move, his body illuminated by the devastating radiance. The glow become so overwhelming that I had to close my eyes. When I finally opened them, the brilliance of the entity was replaced by the glow of the morning sun, which shone through the now-intact window of our bedroom. 
+
+I gasped, finding myself in our bed, shaking awake from the nightmare. I rolled over to grab Jack, only to realize that he wasn’t there. Tears welled up in my eyes as I rushed to grab my phone. I had 27 missed calls from various family members. Only then did I realize that eight days had passed since Jack and I had last retired to bed. I don’t know what happened to me during those days I’ve lost, and I’m not sure that I want to know. What I did know was that it was pointless to look for Jack. I would never see him again, and I knew this as fact - somehow. The understanding was like an immense weight on my chest, once again making it difficult to breathe. With trembling hands, I turned my phone off and fell back asleep, not yet ready to face reality.
+ 
+……..
+
+That was four days ago. This morning I turned my phone back on. Friends and family continue to call, but I don’t know what I would tell them. Jack is gone and soon, I will be too. Somehow, I know they’ll come back for me. I can feel it in my bones, the way an old man’s joints ache right before a storm. Each night I sit at the edge of my bed, waiting for the flashing light to return. I am not afraid anymore. I know now that this is the way it was always supposed to be. 
