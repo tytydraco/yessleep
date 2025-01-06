@@ -51,17 +51,17 @@ My words caught in my throat as my mind began to process what I just said out lo
 . . .
 
 **Family Of Seven Dies In An Apartment Fire**  
-*December 28, 2001 • By Aidan Kellen*
+*December 28, 2001 • By Aidan K.*
 
-In the early morning of December, a family of seven tragically succumbed to an apartment fire in Richmond, Virginia. Down in the (XXXX) District, on (XXXX) Lane, the Crestview Commons apartment flat was engulfed in flames, caused by an undetected gas leak discovered during the investigation.
+In the early morning of December, a family of seven tragically succumbed to an apartment fire in Richmond, Virginia. A flat in Crestview Commons was engulfed in flames, caused by an undetected gas leak discovered during the investigation.
 
-Authorities uncovered the remains of the Gonzales family; Hector Gonzales (36), Josephine Gonzales (35), and Nico Gonzales (15). The remains of four Gonzales children—Mila (13), Andrew (9), Jenny (5), and Joseph (1)—could not be conclusively identified amidst the aftermath but were ultimately presumed deceased.
+Authorities uncovered the remains of the Gonzales; two adults, and a 15 year-old-boy was found. The remains of four Gonzales children; one 13 year-old-girl, two children below the age of 10, and a toddler could not be conclusively identified amidst the aftermath but were ultimately presumed deceased.
 
 Residents reported hearing a loud explosion around 2:30 a.m., followed by flames rapidly spreading through the apartment complex not long after. Emergency responders arrived at the scene around 2:47 A.M. but fire had already consumed much of the apartment flat. Luckily first responders were able to extinguish the flames before causing more damage by spreading further onto other flats.
 
 Despite their efforts, the family—two parents, and five children—was unable to escape in time.
 
-*"At Elmwood, we take the safety and security of our residences very seriously, our team of professionals take regular inspections with great caution for the comfort of our residents. We are heartbroken by the tragic loss of the Gonzales family and will waive rent for all residents of Crestview Commons this month as a gesture of solidarity. We send our love and condolences to the grieving families of the affected during this tough time." —* ***Sam Drover, Elmwood Properties.***
+*"At Elmwood, we take the safety and security of our residences very seriously, our team of professionals take regular inspections with great caution for the comfort of our residents. We are heartbroken by the tragic loss of the Gonzales family and will waive rent for all residents of Crestview Commons this month as a gesture of solidarity. We send our love and condolences to the grieving families of the affected during this tough time." —* ***Samuel D. / Elmwood Properties.***
 
 Crestview's residents are left reeling, with many expressing concerns about the building's aging infrastructure and other issues with individual apartments. The management company, Elmwood Properties, declined any further statements, in regard to questions about the building's maintenance.
 
@@ -109,7 +109,7 @@ We shifted the conversation to her findings—instances of previous tenants and 
 
 *"I know... this all looks crazy."*
 
-Brushing her hair back with her fingers, she looked around the mess she's caused on her dad's dining table. *"But growing up, I've seen what people in power would do to those that are weaker than them. My Mom fought for the truth, she... she fought for the Gonzales' family all those years ago, she knew Josephine Gonzales—they were friends. My parents lived in this apartment for years. I told my father to move out years ago, especially after Mom had passed, but he... he just couldn't let go. Not of the apartment—but of her."*
+Brushing her hair back with her fingers, she looked around the mess she's caused on her dad's dining table. *"But growing up, I've seen what people in power would do to those that are weaker than them. My Mom fought for the truth, she... she fought for the Gonzales' family all those years ago, she knew Josephine—they were friends. My parents lived in this apartment for years. I told my father to move out years ago, especially after Mom had passed, but he... he just couldn't let go. Not of the apartment—but of her."*
 
 A sad sigh escaped her lips as she sank into a dining chair, avoiding my gaze. She seemed deep in thought, silently wrestling with emotions she hadn't fully processed.
 
@@ -191,7 +191,7 @@ By the time I formed a coherent through, the girl stood before me with her index
 
 *"This is Elmwood Headquarters; it's not too far of a drive."* She said, and I looked confused.
 
-*"We have to talk to Samuel Drover, I want to know more about what we're dealing with, even if I have to press for more answers... even if it gets us in trouble."* She had a look of determination once more, a reflection of the fact that she's been simmering in this investigation for a long time, unraveling each clue and information piece by piece for the past year or so.
+*"We have to talk to Drover, I want to know more about what we're dealing with, even if I have to press for more answers... even if it gets us in trouble."* She had a look of determination once more, a reflection of the fact that she's been simmering in this investigation for a long time, unraveling each clue and information piece by piece for the past year or so.
 
 She was far more ready than I ever would be to face what was on the other side of it all, but I was still willing to make the jump if it meant uncovering the truth.
 
@@ -209,7 +209,7 @@ The secretary behind the desk spoke, her blonde hair neatly prompted up in a bun
 
 *"I'll see what I can do, but for now please... sit."* The secretary's murmured voice permeated our ears. Her words brought Cindy a sense of ease—compliant for now as she turned to take a seat at one of the black plush leather couches nearby.
 
-With Cindy settled on the couch, my eyes averted to where she had stood earlier. A photo etched onto the brochure displayed on the desk was Mayor Kingsley—his face was familiar, and practically hard to forget due to his campaign posters being plastered around town every election season—even if the man has been mayor since the trilobites. Beside him stood a younger Samuel Drover, as the pair stood together with their hands clasped together in unity.
+With Cindy settled on the couch, my eyes averted to where she had stood earlier. A photo etched onto the brochure displayed on the desk was Mayor Kingsley—his face was familiar, and practically hard to forget due to his campaign posters being plastered around town every election season—even if the man has been mayor since the trilobites. Beside him stood a younger Samuel, as the pair stood together with their hands clasped together in unity.
 
 ***"Trust the Flow, Build the Future with Elmwood."*** 
 
@@ -233,11 +233,7 @@ The secretary paused before her eyes trailed to where Cindy and I sat.
 
 *"What are your names?"* She asked.
 
-*"Cindy Jobert."*
-
-*"Joshua Colewell."*
-
-A long pause permeated the reception area after she repeated our names to the other line of the phone. Cindy and I looked at the woman behind the counter as her face contorted to a solemn expression. Nodding with the occasional hums of acknowledgment, she would turn her gaze towards me and Cindy before briefly looking down at her desk.
+We briefly introduced our names before a long pause permeated the reception area after she repeated our them on the other line of the phone. Cindy and I looked at the woman behind the counter as her face contorted to a solemn expression. Nodding with the occasional hums of acknowledgment, she would turn her gaze towards me and Cindy before briefly looking down at her desk.
 
 *"Understood sir,"* she spoke, before typing briefly as she brought the phone back down.
 
@@ -305,11 +301,11 @@ Before I could continue to read further, Cindy turned the laptop back toward her
 
 She scrolled down the page, pausing to let me glimpse at another photo embedded in the article—Elmwood's model homes surrounded by smiling people, families with happy and healthy grins, and children being held by their parents. A picture-perfect image of what Elmwood wanted the public to see—of what they wanted to portray.
 
-*"They funneled taxpayer money into the project, jacked up rent prices the next year, and pushed out the people who couldn't pay anymore."* Cindy muttered bitterly, folding her arms, *"Bottomline is... it's pretty clear the Drovers and the Mayor go way back."* She spoke, glancing back at the screen once more with a piercing stare.
+*"They funneled taxpayer money into the project, jacked up rent prices the next year, and pushed out the people who couldn't pay anymore."* Cindy muttered bitterly, folding her arms, *"Bottomline is... it's pretty clear Elmwood and the Mayor go way back."* She spoke, glancing back at the screen once more with a piercing stare.
 
 *"Samuel was their poster boy in the 2000s it seems... most of the articles about Elmwood back then had his face all over."* Cindy scrolled and typed once more, as I stood from behind her, getting a better look at the previous articles she's had prompted up.
 
-*"Can you search for more articles or news blocks about the Gonzales case?"* I asked.
+*"Can you search for more articles or news blocks about the family’s case?"* I asked.
 
 She sighed shrugging as she clicked off of a page. *"There's little to none, I've tried months ago. It feels like a dead-end."* Cindy sounded defeated, I felt bad for even asking as it would make sense she would've tried that long ago, especially when the case was still new to her.
 
@@ -337,11 +333,11 @@ Her finger pointed at a link to a video. "Sister of Elmwood fire pleas for justi
 
 . . .
 
-A woman in her late 20s prompted the camera to her face, standing outside what seemed to be a parking lot along with a group of individuals all aligned with posters and signs. Written within the signs were; ***"Justice for The Gonzales Family"***, ***"We know the truth!"*** and ***"Stop the lies!"***. Those were the ones visible in the video, but it's pretty obvious there were more signs, as people at the back held up theirs before the camera shifted its focus back on to the young woman.
+A woman in her late 20s prompted the camera to her face, standing outside what seemed to be a parking lot along with a group of individuals all aligned with posters and signs. Written within the signs were; ***"Justice for The Deceased"***, ***"We know the truth!"*** and ***"Stop the lies!"***. Those were the ones visible in the video, but it's pretty obvious there were more signs, as people at the back held up theirs before the camera shifted its focus back on to the young woman.
 
-*"My name is Tina Perez. I am the sister of the late Josephine Gonzales."* She spoke with a look of determination in her eyes, though tiredness was evident. I felt a chill down my spine as she spoke with a rasping animosity in her voice.
+*"My name is Tina. I am the sister of the late Josephine."* She spoke with a look of determination in her eyes, though tiredness was evident. I felt a chill down my spine as she spoke with a rasping animosity in her voice.
 
-*"My sister, along with her family was killed in the fire. I have no doubts about that. Today I, along with family and friends of the Gonzales are gathered to protest outside of Elmwood Headquarters to voice out the truth."* The camera panned around showing the groups of people in protest, and the familiar towering building, Cindy and I found ourselves not too long ago. Though without the renovations current in the present, it looked just as dreadful as it did 20 years ago.
+*"My sister, along with her family was killed in the fire. I have no doubts about that. Today I, along with family and friends of the deceased are gathered to protest outside of Elmwood Headquarters to voice out the truth."* The camera panned around showing the groups of people in protest, and the familiar towering building, Cindy and I found ourselves not too long ago. Though without the renovations current in the present, it looked just as dreadful as it did 20 years ago.
 
 *"They know the truth, I know the truth, and I'm sure as hell Elmwood knows it too. It's time the public finds out as well. What really happened to my sister—"* She paused glancing away from the camera as her expression turned from determination to anger.
 
