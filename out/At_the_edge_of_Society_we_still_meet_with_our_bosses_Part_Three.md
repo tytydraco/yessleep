@@ -189,4 +189,7 @@ Only Cullen was there. And, if he looked, he could see people who he had never m
 
 He liked it even less when he compared it to the apartment complex photo, from when he'd moved into the place he lived now, and noticed most of the other people who lived with him were still in it, except one specific individual. He’d seen him disappear on the monitor, into that closet, but he’d only seen his hand then. Cullen wondered if he was alone, wherever he was, and also wondered if that was good or bad. Part of him, selfishly, hoped he never found out. If he found out, he might also discover, for certain, that he was the reason he was gone.
 
-He looked at Lupe again. He wanted to ask what she was afraid of. Almost opened his mouth and said the words. Then he decided he did not want to know. Instead, he wanted to make sure none of them found out.
+He looked at Lupe again. He wanted to ask what she was afraid of. Almost opened his mouth and said the words. Then he decided he did not want to know. Instead, he wanted to make sure none of them found out.  
+\-
+
+[Relevant Posts - See #1 Border Watcher](https://www.reddit.com/user/PattableGreeb/comments/1hspca3/outside_of_society_belong_or_be_forgotten_master/)

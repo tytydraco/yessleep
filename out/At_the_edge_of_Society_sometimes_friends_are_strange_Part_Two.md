@@ -32,8 +32,8 @@ Tommy glanced at him. He was still observing.
 
 “Vaguely.”
 
-“Imagine that, but we take out ‘gain something’ and replace it with ‘lose something’. Same reason they give us things, but that’s gaining.” Tommy looked at Cullen for a bit, measured him. He dropped the chipper, casual to-the-point tone for something else. “Anything go missing? Like, at home, or here.”  
-  
+“Imagine that, but we take out ‘gain something’ and replace it with ‘lose something’. Same reason they give us things, but that’s gaining.” Tommy looked at Cullen for a bit, measured him. He dropped the chipper, casual to-the-point tone for something else. “Anything go missing? Like, at home, or here.”
+
 “Every single coffee mug is gone.” Cullen looked at his mug. “Whole collection, except that one.”
 
 Tommy blinked. He almost snorted, but composed himself. “Must not’ve run over anything important, then. I’m sure the big bosses wouldn’t send you back out if someone was going to pull your teeth out through the window or something.” Cullen’s face must’ve gone pale at that, since Tommy went quiet and returned to observing.
@@ -110,5 +110,7 @@ He unfurled it. It read:
 
 *Everything will be in Order, by your Eighth span. I have granted a Boon. The Dignitary will arrive, and find Cleanliness, Organization, Health, and Offering, else the reminder will be repeated.*
 
-A pit formed in Cullen’s gut. His palms sweated. He chewed his lip. There was a photo attached, but what wasn’t in it was far more important than what was.
+A pit formed in Cullen’s gut. His palms sweated. He chewed his lip. There was a photo attached, but what wasn’t in it was far more important than what was.  
+\-
 
+[Relevant Posts - See #1 Border Watcher](https://www.reddit.com/user/PattableGreeb/comments/1hspca3/outside_of_society_belong_or_be_forgotten_master/)

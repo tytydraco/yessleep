@@ -36,21 +36,21 @@ Opening my car door, I was floored by the cold night air. I didn’t pack anythi
 
 That had to be the funniest thing he’s heard in years as he almost died from laughing. He had that loud, exaggerated laugh like somebody’s favorite uncle.
 
-“Work here? I own it! Auggie McFalls, pleasure to meet you!” he laughed, clasping my hand with both of his palms in a soft and oily handshake. The stink of alcohol and scented oils clung to his shabby clothing; my eyes began to water as the scent somehow grew stronger.
+“Work here? I own it! Auggie, pleasure to meet you!” he laughed, clasping my hand with both of his palms in a soft and oily handshake. The stink of alcohol and scented oils clung to his shabby clothing; my eyes began to water as the scent somehow grew stronger.
 
-“Well, nice to meet you Mr. McFalls.” 
+“Well, nice to meet you Auggie.” 
 
-“Mr. McFalls? That makes me feel old! Please call me Auggie! The Garden is my baby, me and my sister Amelia really shaped this place up! Oh, it was so tragic before we got here… You should have seen it! Well, I always loved a fixer upper…” he chimed, eyeing me up like I was something miraculous and unknown.
+“Please call me Auggie! The Garden is my baby, me and my sister Amelia really shaped this place up! Oh, it was so tragic before we got here… You should have seen it! Well, I always loved a fixer upper…” he chimed, eyeing me up like I was something miraculous and unknown.
 
 “To be honest, I almost thought your sign was mistaken. It just looks so much like a-“ I was quickly cut off by Auggie’s obnoxious chuckle.
 
 “A church? Keen-eye, buddy! Well it was, funnily enough… Millpoint Ministries was its name… Real shame, the pastor was a sour character and just decided to abandon it. A lot of false prophets out there. Oh what was his name, Donny, Danny- well it doesn’t matter. It died soon after. I couldn’t help myself when I saw such a pretty little building in ruin.” He droned on, gently running his hand across the patchy wallpaper.
 
-“It's definitely an interesting spot. Never can say I’ve slept in an old church before. Well, it's been a long drive so a room would be great. As long as you don’t expect me to get up early for a sermon.” I joked, only for Auggie’s smile to die for a second. Auggie McFalls was a man who looked like he wasn’t built for a frown, an unnatural labored expression twisted his face before twitching slowly back into a smile.
+“It's definitely an interesting spot. Never can say I’ve slept in an old church before. Well, it's been a long drive so a room would be great. As long as you don’t expect me to get up early for a sermon.” I joked, only for Auggie’s smile to die for a second. Auggie was a man who looked like he wasn’t built for a frown, an unnatural labored expression twisted his face before twitching slowly back into a smile.
 
-Auggie put a clammy hand on my shoulder. “You know friend, I used to preach a bit at the Eternal Jubilee… It's a church a few miles from here… Me and its pastor, Lysander Sinclair, go way back… Long, ancient history. I was one of his first followers in fact. Though I left the congregation over some… differences… We have an arrangement of sorts… I would love to set you on the right path, though. Salvation comes at its own pace. After all, we are in the home of miracles.” he smiled, gesturing to his bracelet.
+Auggie put a clammy hand on my shoulder. “You know friend, I used to preach a bit at the Eternal Jubilee… It's a church a few miles from here… Me and its pastor, Mr. Sinclair, go way back… Long, ancient history. I was one of his first followers in fact. Though I left the congregation over some… differences… Me and Lysander have an arrangement of sorts… I would love to set you on the right path, though. Salvation comes at its own pace. After all, we are in the home of miracles.” he smiled, gesturing to his bracelet.
 
-“Lysander Sinclair? Like the rockstar? I thought he died of an overdose decades ago… That or beat a prostitute to death I can’t remember…” I may have sounded rude, but why would Auggie McFalls of Town No Name have connections to a Top 40-er. An especially controversial Top 40-er I may add. Holy Harem was more of my dad’s thing but I’ve heard about the scandals… Lysander Sinclair, Rico St. Wilde, Randy Raine, and Adam Swift were ousted from the spotlight, their reputations never recovered and before long nobody really remembered they existed. Not sure if the rumors were true but they should definitely stay under whatever rock they crawled under. 
+“Lysander? Like the rockstar? I thought he died of an overdose decades ago… That or beat a prostitute to death I can’t remember…” I may have sounded rude, but why would Auggie McFalls of Town No Name have connections to a Top 40-er. An especially controversial Top 40-er I may add. Holy Harem was more of my dad’s thing but I’ve heard about the scandals… Not sure if the rumors were true but they should definitely stay under whatever rock they crawled under. 
 
 “The very same! Tabloids do love their exaggeration… He’s still kicking but he prefers the seclusion of this town…  I started off as his roadie back in the day, oh enough about me! I’ve taken enough of your time. You will be staying in the first room down that left hallway, don’t worry about payment. We will sort that out when you decide to leave, feel free to stay as long as you see fit! If you’d like some warm spiced wine, just let me know… Amelia makes it just right.” 
 
@@ -98,7 +98,7 @@ Loud, muffled music echoed deep from the main hallway. Holy Harem, of course… 
 ”TASTE YOUR VENOM, BABY TAKE CONTROL.”
 
 
-The element of surprise may have been lost, but I quietly slinked down the hallway. I’m not the strongest man out there, but I could definitely take Auggie McFalls… My best chance would be to quickly overpower him, I have reach and youth on my side… Though, if he was armed, that’s an entirely different story. I just have to find him.
+The element of surprise may have been lost, but I quietly slinked down the hallway. I’m not the strongest man out there, but I could definitely take Auggie… My best chance would be to quickly overpower him, I have reach and youth on my side… Though, if he was armed, that’s an entirely different story. I just have to find him.
 
 Passing several different rooms, an escape was nowhere in sight. The music was growing louder and louder, until it led me to the source. A set of large double doors were slightly cracked, revealing a dim glow of light… The sanctuary… Keeping the mirror shard extended in front of me, I peered through to make sure he wasn’t lurking in a dark corner. Shaking, I entered through the gates of hell.
 

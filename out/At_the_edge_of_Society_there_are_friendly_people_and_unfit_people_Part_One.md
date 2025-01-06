@@ -148,4 +148,7 @@ As the man disappeared into the forest, returning to its depths, he stared at Cu
 
 Cullen stared into his mug, not wanting to return the stranger’s look. He tried not to look at the bloody smear on the glass, to notice how spider-webbed the spot it’d been struck now was. He did his best to not think of the next solo shift, and the woman, or to realize why the maps showing the borders of Society and the Outside, those jigsaw maps, were always slowly changing.
 
-Most of all, he tried not to forget why he’d taken the marker to his mug, and crossed out that precious little word.
+Most of all, he tried not to forget why he’d taken the marker to his mug, and crossed out that precious little word.  
+\-
+
+[Relevant Posts - See #1 Border Watcher](https://www.reddit.com/user/PattableGreeb/comments/1hspca3/outside_of_society_belong_or_be_forgotten_master/)

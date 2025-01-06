@@ -22,8 +22,8 @@ Oh, someone’s walking up.
 
 Okay, so, I was told I need to paint good pictures. With my voice. Right now, I’m at a bus stop. It’s kind of misty. All white and cold and running up the trees like spider webs. If I look out into the woods about me, I can kind of see people moving out there. Some animals. If I pay real close attention, adjust my glasses and give it a good squint, I can tell which animals are actually people folk. Nobody cares much if the animals break any of the fancy laws about this place, since they’re wild.
 
-The bus stop itself is just a row of six benches, some wide, some tall. There’s one with steps up to it, and another with a ramp. Some people have long legs, but they still want to sit with other folk. They always make me smile, the little ingenuities that tell me people are trying to be kind. There’s a sign with my bus rules on it, and there’s a few pictures of cars you’re supposed to watch for. Big old warning in red text that says ‘if you see a vehicle being driven by a non-designated driver, exercise caution: they might be unfit’.  
-  
+The bus stop itself is just a row of six benches, some wide, some tall. There’s one with steps up to it, and another with a ramp. Some people have long legs, but they still want to sit with other folk. They always make me smile, the little ingenuities that tell me people are trying to be kind. There’s a sign with my bus rules on it, and there’s a few pictures of cars you’re supposed to watch for. Big old warning in red text that says ‘if you see a vehicle being driven by a non-designated driver, exercise caution: they might be unfit’.
+
 I always double check the sign. There’s a bunch of postings on the old weathered pole it sits on. There’s a big green circle around a photo of me and my bus, a real nice one where I’m looking right at you and smiling my best smile, tipping my old blue hat that says ‘Bus Driver’ on a gold plate. There’s a red X on a van of some kind, some others, a few more green circles. I appreciate the diligence, it tells me who to shout out as being up to no good and when to make reports.
 
 Oh, I think I rambled a bit. Sorry. So, there’s this fellow coming up to the bus. He gets on the road fine. He’s wearing this big old yellow jacket, with a little yellow hat, like he’s expecting it to rain. He asks me if I’ve got room, sounding kind of uncertain, so I tip my hat and smile, and I say yes sir. So he puts a little red ball in my pay box, and I think that’s real swell.
@@ -108,4 +108,7 @@ I’m gonna hit the stop button now. I was told not to be alarmed if I got littl
 
 I don’t know what it means. All I know is someone’s supposed to get a copy of this out somewhere, though I don’t know how or where it’s going, or why. But, could you do me a favor? I didn’t do good today, I think. I’m getting too old. But I think I want to be remembered, now. I want to be a good driver, and get people where they need to go. If I stop recording, I apologize in advance. But I’ve got to retire eventually, and I don’t know when that’ll happen, or if I’ll be doing it on purpose.
 
-Someone has to drive the bus. For now, that’s me.
+Someone has to drive the bus. For now, that’s me.  
+\-
+
+[Relevant Posts - See Driver's Logs](https://www.reddit.com/user/PattableGreeb/comments/1hspca3/outside_of_society_belong_or_be_forgotten_master/)

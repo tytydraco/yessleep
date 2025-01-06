@@ -1,5 +1,5 @@
-When I woke up this morning, I thought it’d be a good day. I know, yesterday was pretty feather-ruffling, but I’d be lying if I said I hadn’t been shaken plenty of times before. But I always had to push past that shake-up, put my hat on, clean my glasses so I could see the road.   
-  
+When I woke up this morning, I thought it’d be a good day. I know, yesterday was pretty feather-ruffling, but I’d be lying if I said I hadn’t been shaken plenty of times before. But I always had to push past that shake-up, put my hat on, clean my glasses so I could see the road.
+
 I always start the day by looking through the payment I’ve gotten from the box. There’s a reason it counts, no matter what it is. I don’t use money, at least, not regularly. I don’t really know what to use it for half the time if someone gives it to me, and it’s not always consistent what I can and cannot get with it, except at the gates.
 
 It counts because I care about my passengers. My job is quite frightening sometimes. Other times, it’s uncomfortable. There’s even been moments where it’s been utterly hopeless. Where I just keep driving, and driving, and for a while it doesn’t seem like enough people are getting where they need to go. Where it feels like-
@@ -210,16 +210,16 @@ Eventually, I went off the bus, stumbled like I was drunk on the job. He’d tos
 
 I didn’t know where the coat or the hat could possibly go. I wondered if, maybe, I’d seen a second body in the cop car. There was a little red ball on the ground, near the coat. I tried to put together some puzzle pieces in my head. The deer? Had they maybe taken it? Had someone gotten on the bus, or had the one passenger gotten off it, when I wasn’t looking?
 
-But I stopped. I pried in the first place, and it got me a black mark on my record I couldn’t erase. The only question still on my mind is the string-up notes.  
-  
+But I stopped. I pried in the first place, and it got me a black mark on my record I couldn’t erase. The only question still on my mind is the string-up notes.
+
 The deer were crowding around me, all curious. I looked around, realized I was in the same spot where things had gone cross yesterday. I laughed, a little snapping mad chuckle, then choked it down. I don’t know what they were thinking. Maybe they were sorry for whatever role they might’ve had in it, had come to apologize. Maybe they were just wandering, wondering if I was easy prey. Maybe they just wanted to find out what the noises were all about. Maybe they just wanted my hat.
 
 They didn’t seem so scary anymore. You can do a lot worse than eat someone’s tires.
 
 I went back onto the bus. Took some breaths, gathered myself. I had some bread, so I tossed a few to the deer. Like you do with ducks. Not sure it’s the same with deer, but I don’t think they follow the logic of other deer. I drove the suiter to the gate, as I was obliged to. Muttered something to the youngster at the booth about the deer and the Policeman, asked if I needed to write some sort of report.
 
-When I hunkered down for the night, I wrote my rules down on paper, and put them on the glove box with some tape. So I won't forget.   
-  
+When I hunkered down for the night, I wrote my rules down on paper, and put them on the glove box with some tape. So I won't forget.
+
 I thought about it for a bit, then attached a return clip, whatever you’d call it, asking who was addressing me to the one that said “I’m sorry I killed them”. Didn’t know if I’d get a response, if it was even okay to ask. I’d wanted to know, and I’d been leaning into the idea it was coming from somewhere over the wall, or it being anonymous, meant nothing could go poorly off it.
 
 The response was straightforward. Faster than expected. Maybe I should’ve done it earlier, but I’d skipped that one. Wasn’t sure what would happen if I replied, or if I’d even get any. “I took their place”, it read.
@@ -234,5 +234,7 @@ I still have to drive the bus. Nobody is lining up to take my place, so I still 
 
 Was that a flash? I think… I think I just heard a click. If it wasn’t him, or her...
 
-I have to stop here. I’ll try to get back, if anyone’s listening. I might need help. I don’t know if I have the right to ask for it, but I think I just saw something… Something I didn’t like.
+I have to stop here. I’ll try to get back, if anyone’s listening. I might need help. I don’t know if I have the right to ask for it, but I think I just saw something… Something I didn’t like.  
+\-
 
+[Relevant Posts - See Driver's Logs](https://www.reddit.com/user/PattableGreeb/comments/1hspca3/outside_of_society_belong_or_be_forgotten_master/)
