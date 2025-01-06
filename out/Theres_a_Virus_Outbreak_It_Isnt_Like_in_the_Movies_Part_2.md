@@ -1,9 +1,9 @@
-  
  \[ [Part 1](https://www.reddit.com/r/nosleep/comments/1hrjb1w/theres_a_virus_outbreak_it_isnt_like_in_the/) \]
 
+ \[ [Part 3](https://www.reddit.com/r/nosleep/comments/1huxcdc/theres_a_virus_outbreak_it_isnt_like_in_the/) \]
+
+  
 The decision to leave the church was inevitable. Martin and I had spent countless nights sitting in the dim glow of our candlelight, discussing the growing dangers outside. The infected weren’t the only threat anymore. Supplies were running low, and the barricades we had built felt more fragile with every passing day. The church, once a beacon of hope, now felt like a tomb waiting to be sealed.
-
-
 
 “We can’t stay here forever,” Martin said one evening, his voice cutting through the oppressive silence. “The infected are getting bolder. It’s only a matter of time before they break through.”
 

@@ -1,4 +1,4 @@
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1ht9pfn/hiraeth_or_where_the_children_play_verminlike_20/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1ht9pfn/hiraeth_or_where_the_children_play_verminlike_20/)/[Next](https://www.reddit.com/r/nosleep/comments/1hux8p9/hiraeth_or_where_the_children_play_am_i_my/)
 
 On waking, I found I’d undone my jacket and placed it over myself as a makeshift blanket; Mal, glaze-eyed looked on from where she’d posted across from me in the hall—she hadn’t slept. All the hours stolen from me by the jailor in the Golgotha cell seemingly caught up to me and if it had not been for that, I’d likely not slept at all.
 
@@ -132,4 +132,4 @@ A rattle of strangulation signaled someone ahead and in the harsh sunlight they 
 
 “No,” I said.
 
- [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1ht9pfn/hiraeth_or_where_the_children_play_verminlike_20/)
+ [First](https://www.reddit.com/r/nosleep/comments/1ha4beq/hiraeth_or_where_the_children_play/)/[Previous](https://www.reddit.com/r/nosleep/comments/1ht9pfn/hiraeth_or_where_the_children_play_verminlike_20/)/[Next](https://www.reddit.com/r/nosleep/comments/1hux8p9/hiraeth_or_where_the_children_play_am_i_my/)
