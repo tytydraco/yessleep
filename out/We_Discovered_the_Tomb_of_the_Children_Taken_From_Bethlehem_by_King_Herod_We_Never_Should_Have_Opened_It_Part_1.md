@@ -1,3 +1,7 @@
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1huvzb9/we_discovered_the_tomb_of_the_children_taken_from/)
+
+
+
 Growing up, I was always fascinated by the Herodian dynasty. Salome, the briefly mentioned younger sister of King Herod, was the member who had always stood out to me. I knew she would have lived quite an extraordinary life, and I felt sorry that ancient historians only deemed minimal moments of her life worthy to be recorded. My admiration was so great that I made her a prominent character in a historical fiction series I wrote as a little side gig.
 
 I would later complete a doctorate in Classical Near-Eastern Antiquity, where I chose to do my research paper on the life and brief reign of Herod’s sister. I would eventually graduate, and start working as a Historian at a Museum in Rome.
