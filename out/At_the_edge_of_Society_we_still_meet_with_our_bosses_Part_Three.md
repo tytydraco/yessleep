@@ -1,22 +1,20 @@
-“What’s your name?” Ron Bigsby asked.
+The first thing Cullen was told, before even walking into Ron's office, was that he could only use nicknames. They even had him sign a short waiver that, more or less, said it was his responsibility if his real name got out and nobody in Society could be held liable for the consequences that would potentially occur Outside. He found the little pictograph of someone being dragged off into a dark alley after writing a full name, middle initials included, to be quite... Illustrative.
 
-“It’s-”
-
-“No it’s not. It’s Cullen.” Ron Bigsby sipped fruit juice from his coffee mug, loudly and somehow pointedly.
+He almost slipped up despite it when he introduced himself, when he went to meet with the communications officer of this section of the wall. Far as he knew, communication was important enough out here they, more or less, were the gods of diplomacy between the in and out. Ron sipped fruit juice from his coffee mug, loudly and somehow pointedly, as a way of cutting Cullen off mid-sentence. He came up with Cullen on the spot. He'd heard it meant 'wolfhound', or something similar, so it felt appropriate enough.
 
 The office was cramped, but not because it was small. In fact, it was fairly large. It had to be, to accommodate the many, many lights, buzzers, switches, buttons, and monitors that loomed over him and whoever was on the other side of his desk at all times. It was like the cold, unfeeling eye of the government was in the room with you, waiting for mistakes. But it wasn’t you they were watching, it was all the things that weren’t inside their walls.
 
-“Why?” Cullen asked. “Doesn’t that mean dog or something?”
+“So... I see you guys like pictures."
 
-“Dunno. But it’s your name now, kid.” Ron was almost sixty years old. His skin was dark and weathered, and his eyes were invariably examining, like he didn’t need to know you to know you: he just needed a quick glance, and everything in your head was bared for his interpretation. He was of an older generation, and Cullen was told he’d had firsthand experience from the start of the Change.
+“Not everyone can read. Don't want anyone dying because they can't read.” Ron was at least twice his age. His skin was dark and weathered, and his eyes were invariably examining, like he didn’t need to know you to know you: he just needed a quick glance, and everything in your head was bared for his interpretation. He was of an older generation, and Cullen was told he’d had firsthand experience from the start of the Change.
 
-“Why?” Cullen repeated.
+“Is it really that dangerous?"
 
-“Names are personal around here. Nicknames only. If you have to give one, just your first. Let me make this clear right now, since you never know who’s listening: first names to guide the lost. Nicknames to be addressed. Full, if you want someone else to own it. Understood?” He sounded like he ate nails, his voice was so scarred, or smoked the whole pack when he got cigarettes.
+“Names have power, kid. People can find you, and things that aren't quite people, pretty quickly if they have your full name. It's why authors are legally required to have pennames now." He sounded like he ate nails, his voice was so scarred, or smoked the whole pack when he got cigarettes.
 
-“Yeah, got it. But why do I get to know yours?”
+“I'll keep that in mind if I ever write a book."
 
-“I have to play god. You got to call god’s real name to talk to him, don’t you?”
+“And when you do paperwork. I must stress I am absolutely not kidding."
 
 Cullen just stared at him. And Ron just moved on.
 
@@ -28,7 +26,7 @@ Cullen just stared at him. And Ron just moved on.
 
 Cullen sighed. “Okay. My… Friends. Friendly friends. Fits. I want to make sure everyone gets through alright.”
 
-“And?” Ron Bigsby waited. Waited just long enough, sipping fruit juice out of his coffee mug like it was his god given mission to defy its intended use, that Cullen grudged out an answer.
+“And?” Ron waited. Waited just long enough, sipping fruit juice out of his coffee mug like it was his god given mission to defy its intended use, that Cullen grudged out an answer.
 
 “My dad.”
 
@@ -58,7 +56,7 @@ He cleared his throat, turned back to Ron’s patient gaze. “I’ve heard a lo
 
 Cullen didn’t answer right away. But he did, and he did it honestly. “I do. But I don’t want to know where I’ll go, if I don’t come back.”
 
-Ron Bigsby studied him. Cullen felt like he was thinking about something more than just professional interview etiquette and job safety. Cullen watched him turn his thoughtful blue eyes towards the Outside. He leaned back in his big black arm chair, all dark leather and comfort. Cullen wondered if he got the good chair because he was important here, or if he’d just brought it up here and nobody cared enough to question it.
+Ron studied him. Cullen felt like he was thinking about something more than just professional interview etiquette and job safety. Cullen watched him turn his thoughtful blue eyes towards the Outside. He leaned back in his big black arm chair, all dark leather and comfort. Cullen wondered if he got the good chair because he was important here, or if he’d just brought it up here and nobody cared enough to question it.
 
 “I gotta ask some really specific questions. They might be off-putting, but again, honest answers.”
 
@@ -133,7 +131,7 @@ Cullen was asked another series of questions. He was asked if he was comfortable
 He said yes.  
 \---
 
-When Ron returned from his authorized vacation days, Cullen did not ask to be let into Ron’s office. He did not ask for permission to put the note from the tube on his desk, sit down, and ask him what the hell it meant.
+When Ron returned from his authorized vacation days, Cullen did not ask to be let into Ron’s office. He did not ask for permission to put the note and the photo from the tube on his desk, sit down, and ask him what the hell it meant.
 
 “It means we’re getting an inspection.” Ron answered, smoothly despite his half-burnt tone.
 
@@ -141,7 +139,7 @@ When Ron returned from his authorized vacation days, Cullen did not ask to be le
 
 “I don’t know. But be on your best behavior.”
 
-“Excuse me?” Cullen’s muscles tensed as he felt himself quickly losing his cool. He took a deep breath, looked Ron in the eye as he was about to say something, then tossed the photo onto his desk. Ron Bigsby stared at it. He blinked, briefly off-balanced, before fully focusing his attention on Cullen. Facing him in full now.
+“Excuse me?” Cullen’s muscles tensed as he felt himself quickly losing his cool. He took a deep breath, looked Ron in the eye as he was about to say something, then tossed the photo onto his desk. Ron stared at it. He blinked, briefly off-balanced, before fully focusing his attention on Cullen. Facing him in full now.
 
 “Do you remember when I said I don’t know what’s on the other side?” Ron didn’t wait to follow up. He started to pull out a cigarette, paused, and put the pack back. The gesture was enough to get Cullen to hold off for a moment. “I think I used to. I’m pretty sure I used to remember what the actual name of the place we walled up was, too. I’m pretty sure I could place a name on every town out in that hellscape-” And he flicked his eyes to the Outside. “But I can’t now.”
 
@@ -189,6 +187,6 @@ Ron was supposed to be there. So was Tommy, and Lupe, in all her strangeness, he
 
 Only Cullen was there. And, if he looked, he could see people who he had never met, who did not look quite right, in the shadows between the trees. Cullen was slightly distorted in the photo, and he had no idea if that was an omen or not. This was a copy, the original was still in a scrapbook type folder somewhere, so could’ve just been a shitty print that got edited. But what he knew, for certain fact, was that he did not like that he was alone in it.
 
-He liked it even less when he compared it to the apartment complex photo, and noticed most of the other people who lived with him were still in it, except one specific individual. He’d seen him disappear on the monitor, into that closet, but he’d only seen his hand then. Cullen wondered if he was alone, wherever he was, and also wondered if that was good or bad. Part of him, selfishly, hoped he never found out. If he found out, he might also discover, for certain, that he was the reason he was gone.
+He liked it even less when he compared it to the apartment complex photo, from when he'd moved into the place he lived now, and noticed most of the other people who lived with him were still in it, except one specific individual. He’d seen him disappear on the monitor, into that closet, but he’d only seen his hand then. Cullen wondered if he was alone, wherever he was, and also wondered if that was good or bad. Part of him, selfishly, hoped he never found out. If he found out, he might also discover, for certain, that he was the reason he was gone.
 
 He looked at Lupe again. He wanted to ask what she was afraid of. Almost opened his mouth and said the words. Then he decided he did not want to know. Instead, he wanted to make sure none of them found out.
