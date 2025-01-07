@@ -34,7 +34,7 @@ Then an image pops up on the chat. I open it to see a photo of my front yard. Ne
 
 I glance out the cab window. There are still maybe twenty minutes until I get home. Damn it.
 
-I respond, telling them I’ll cooperate and there’s no need to escalate things.
+I respond, explaining I’ll cooperate and there’s no need to escalate things.
 
 What is this person talking about? If it’s Jane’s stolen identity, maybe it’s about the day we met?
 
@@ -60,7 +60,7 @@ I type in my answer. The phone buzzes again.
 
 The cab pulls up, but I leap out before it even stops, running toward the house. The driver yells after me, demanding I pay.
 
-On that same day, something else happened.
+*On that same day, something else happened.*
 
 I burst through the door, frantic. My wife isn’t in the living room. I shout for her.
 
@@ -74,7 +74,7 @@ Before I can answer, my phone buzzes. Another text.
 
 The doorbell rings.
 
-“Who is it?” my wife asks, moving toward the door, but I stop her.
+“Who is it?” my wife asks, moving toward the door.
 
 “I’ll get it,” I say, stepping in front of her.
 
