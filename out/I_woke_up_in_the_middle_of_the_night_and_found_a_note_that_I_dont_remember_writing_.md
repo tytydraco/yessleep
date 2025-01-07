@@ -2,7 +2,7 @@ The alarm clock hadn't gone off yet when I woke up. he was scheduled to blow the
 
 “Don’t go back to your room, wait until he sends THE MESSAGE”
 
-“What the hell does that mean? WHO IS HE?? NO It makes sense, besides, this handwriting is not mine”-I thought-
+“What the hell does that mean? WHO IS HE?? NO It makes sense, besides, that handwriting isn’t mine”-I thought-
 
 The text seemed more like a hotel service notice for a guest than something I would write down and leave on the counter.
 
@@ -14,7 +14,7 @@ I was trying to understand what I had just read and wondering if it made any sen
 
 When I calmed down, I slowly went towards the hallway, walking and trying only to find my pillow. Until, suddenly, my alarm clock in my room rang, it was the 4:00 alarm that always went off to remind me to take my anxiety medication. I was scared at the time, but the scare that would follow would be much worse.
 
-Less than 10 seconds after hearing the 4 o'clock alarm go off... I heard it being unmuted... by someone who wasn't me. I started to shake, panicking. Scared, I quickly went back to the kitchen and opened my cell phone to call the police. And then I received an anonymous email.
+Less than 10 seconds after hearing the 4 o'clock alarm go off... I heard it being unmuted... by someone who wasn't me. I started to shake, panicked. Scared, I quickly went back to the kitchen and opened my cell phone to call the police. And then I received an anonymous email.
 
 [DO NOT MAKE ANY NOISE. DO NOT GO BACK TO YOUR ROOM AND WAIT FOR DAWN. If you disobey this WARNING, YOU WILL ACTIVATE A SESSION, AND YOU WILL HAVE TO IDENTIFY ALL ANOMALIES EACH TIME YOU OPEN THE DOOR]
 
@@ -30,6 +30,6 @@ With anxiety taking over, I went to the kitchen, grabbed a knife, holding the kn
 
 What made me freeze was not the fact that the closet door was open, nor the fact that the alarm clock was lying on the floor, much less the fact that there was a strong smell of something rotten in the room. Such details seemed irrelevant when I noticed that the figure wearing my clothes was lying on my bed, standing still, looking up, with an expressionless and pale face. And then I understood. The person lying on the bed was… me?
 
-I was the one lying in bed, I was facing a figure that was exactly like me, the only thing that differentiated myself from the figure that was before me was the fact that the figure was dead. A walkie talk that was next to the figure's body was emitting a sound, when I focused on understanding the message that was being transmitted, I heard:
+I was the one lying in bed, I was facing a figure that was exactly like me, the only thing that differentiated myself from the figure that was before me was the fact that, the figure… was dead. A walkie talk that was next to the figure's body was emitting a sound, when I focused on understanding the message that was being transmitted, I heard:
 
 —[Session 1/5 started, you have 5 minutes to find them all]

@@ -1,0 +1,23 @@
+It’s Hiroshi Nakamura again. My last post was two days ago, but it feels like an eternity. I’ve lost count of the days since the soldiers came. Time has folded in on itself, a meaningless cycle of darkness and desperation. Writing has become harder; my thoughts scatter like leaves in the wind, fleeting and incoherent. But I keep writing, because I need to hold on to something anything even if it’s just my own voice.
+
+The food is almost gone. Two cans left, both dented and rusting. The rain hasn’t come in over a week, and the water in my pots is nearly empty. I’ve been rationing what little I have, but it’s not enough. My stomach aches constantly, gnawing at me like a second, quieter presence. It’s not the hunger that scares me most, though. It’s the thirst. My throat feels like sandpaper, and every breath is a reminder of how fragile I’ve become.
+
+The thought of leaving terrifies me. The world outside is no longer a place I recognize. It’s silent during the day, unnaturally so. At night, though, the sounds return dragging, scratching, the occasional distant scream. Once, I thought I heard my wife’s voice calling my name from the hallway. It wasn’t her. I know it wasn’t, but I’ve been alone long enough that I almost opened the door anyway.
+
+I miss her. God, I miss her so much. I miss the way she used to smile when she caught me watching her, the way her laughter could fill a room and make me forget everything else. I miss the small things the way she’d hum while making tea, the way her fingers would brush against mine when we walked side by side. I even miss the sound of her scolding me when I left my shoes in the wrong place.
+
+She’s gone, and I don’t know how to exist without her. It’s like someone reached inside me and tore out a piece of my soul, leaving this gaping, hollow wound that nothing can fill. Every corner of this apartment is a reminder of her. The empty chair by the window, the tea cups she loved but never got to use again, the faint smell of her perfume that still lingers in the bedroom. It’s unbearable. And yet, I’m terrified to leave because it’s all I have left of her.
+
+Two weeks ago, I watched her die. Or maybe she was already gone by then. The soldiers didn’t see her the way I did. To them, she was just another infected. But to me… to me, she was my world. And when they dragged her body away, I didn’t just lose her. I lost everything.
+
+I’ve been thinking about ending it. I don’t want to admit that, even to myself, but the thought is there, whispering to me in the quiet hours of the night. What’s the point of going on? What am I fighting for? The world is falling apart, and I’m just a single thread in a tapestry that’s unraveling faster than I can hold it together. Sometimes, I wonder if it would be easier to let go. To step into the water and let it take me like it took her.
+
+But then I think about her. Not the thing she became, but the woman she was. Her strength, her kindness, her determination. She fought so hard, even when she knew the odds were against her. I can’t let her down. I can’t let her memory fade. I owe it to her to keep going, even if it’s just for one more day.
+
+The internet is still working, though barely. I’ve been clinging to it like a lifeline, refreshing forums and searching for anything that might help me understand what’s happening or what I should do next. I found a forum post yesterday, someone claiming to have seen a military convoy near Chiba. They said the soldiers were rounding up survivors, taking them somewhere. A quarantine zone, maybe? Or something worse? I don’t know if I believe it, but it’s enough to plant a seed of doubt. Enough to make me consider leaving.
+
+I’ve started preparing. What little food and water I have, a flashlight, some batteries. I found a rusted kitchen knife in the drawer not much, but it’s better than nothing. I don’t even know where I would go. Chiba is too far, and I’m too weak. But I can’t stay here. Not anymore. The walls feel like they’re closing in, the air is heavier, and the sounds outside are getting closer. Last night, I heard something scratching at the door. It wasn’t human.
+
+I don’t know what to do. The last two days have been unbearable. Should I stay here and let the walls become my grave, or should I leave and risk facing something worse out there? I’ve read so many desperate posts from others, and no one seems to have answers. Everyone is lost. Just like me. I’m so tired, so scared. But I can’t let this be the end. Not like this. Please, if anyone is out there, tell me what to do. Tell me there’s still hope. Tell me I’m not alone.
+
+The longest night is almost over. Tomorrow, I’ll make my decision. Stay or leave. Fight or surrender. Live or die.

@@ -1,379 +1,101 @@
-Hello. It’s 20th March 2023 as I write this. The reception combined with my current mental state may mean that this post takes longer to go through.
+It all started with a crack. It always starts with a crack. A minor imperfection that catches your attention during those brief moments on autopilot. For me, it happened while I was putting away laundry. 
 
-I am definitely not of sound mind or body any longer.
+I was going through the house. Upstairs to downstairs, kitchen to bedroom to bathroom to basement with folded clothes and towels in hand. That's when I noticed it. 
 
-My name is Fred East, I’m 25 years old with short, spiky blond hair with blue eyes and am a resident in a small town with a population of around 5, 000.
+At first, I thought it was a trick of the light. Shadows messing with my vision. I continued towards the stairs but stopped short, curious for an answer. 
 
-I live with my three sisters - 18, 16 and 12. Our parents died in a car crash five years ago. My eldest sister has recently joined me in supporting our other siblings. I am a court judge. Yes, I am young for that occupation, but my parent’s tragic death caused me to have a hunger for justice, and a mentoring program greatly helped that.
+It's that feeling, you know. The one when something is off. Lying in bed at night, trying to remember if you locked all the doors or turned off the stove burners. Sitting in your car after work, wondering who you forgot to call. A word you just can't place. A memory you have the faintest recollection of. An itch needing to be scratched. 
 
-My best friend, who is referred to by his last name, Jones, and I decided to do a bit of exploration in one of the few places that bring a measly amount of tourists here. My Fiancée works as a tour guide at our destination.
+So, I turned around and retreated down the hall. At the end, there's a light switch and mirror. Old antique thing my wife inherited from her grandfather, or maybe a distant cousin. Hard to say. Just something to fill the space. To make our house look a little less empty. 
 
-When I say measly, I mean measly. No-one really visits or moves here, and I’ve only known a handful of residents leave.
+The space between the mirror and the light switch had a piece of chipped paint. A small fleck of plaster had somehow come undone. Nothing crazy, I know. Happens all the time, especially in a house as old as ours. But it bugged me. 
 
-I’m digressing a little.
+I tried to laugh it off. Wave it away and return to my chores before my wife got home, but I couldn't forget about it. I walked two or three steps, and I could just feel the back of my head burning. An itch needing to be scratched. 
 
-Back to exploring.
+So, I went back to the wall and placed my fingernail against the jagged edge of chipped paint. Gently, I flexed my finger up and down, rubbing at the rim, slowly peeling it away. But you know how these things go. 
 
-Jones and I approached the building, it was night, of course, and very remote, so there were some creep factors at play.
+Little-by-little, I started picking and pulling and prizing the paint away from the wall. A tedious task that I made faster with a flat-edge pizza cutter from the kitchen. I'm not much of a handyman, to my wife's chagrin, and I quickly realized I'd picked the wrong tool for the job. 
 
-I won’t name the place for reasons that should become clear later. It's an abandoned prison that's fairly small and closed 140 years ago. No-one was really sure why it had closed, but everyone has theories.
+I went back to the kitchen and exchanged my pizza cutter for a knife. The process picked up some. I was peeling away entire strips of eggshell white paint. The more I peeled, the more jagged edges I found. The more I cut away, the more bubbles formed in the paint. I came to the conclusion that I would just have to do away with it all and re-paint the wall later on the weekend. 
 
-Makes a tourist attraction scarier, right?
+But the tedious process was killing me. Figuratively speaking. 
 
-The last time I had been here was when I was about 15, on a field trip, which is when I met my fiancée, who was on one too.
+In the basement, with all the tools I'd amassed over the years from friends and family, I found a metal scraper. I went back upstairs and dug in until most of the back wall was without paint 
 
-On the way to the entry door, Jones teased me with stories of ghosts, tales of experimentation and abuse on prisoners. Also of guards against other guards.
+There was a great deal of satisfaction there, I must admit, but as soon as I put my scraper down, I realized that there was a small crack in the drywall beneath. Same place as before, directly centered between the mirror and light switch. 
 
-You know, the usual shit people try to scare you with as you walk up to a "scary" attraction.
+I thought about filling it with plaster or glue, or hell, maybe even enough latex paint would fill the gaps. But the very idea of that made my skin crawl. It wasn't right. It seemed insufficient, indecent, distasteful. No, it too had to be done away with. 
 
-I shrugged it off, laughing.
+Backtracking downstairs, I went into my wife's studio and retrieved a small chisel from one of the dresser drawers. Like Andy Dufraine, I started etching and carving and digging my way through. 
 
-We opened the massive, metal door with a creak.
+Small chunks of plaster fell to the floor. Pockets of dust wafted with every stab, every incision. My eyes were starting to sting, but I couldn't pull myself away from my work long enough to grab a pair of goggles. I just kept chiseling, squinting against the debris. Much like before, my patience got the best of me. I couldn't stand how tedious it was, the amount of time it required. 
 
-As I said, it is a small prison, the height of four stories, width/length of around ¼ an acre.
+From under the kitchen sink, I grabbed a hammer. The drywall crumbled and collapsed with a number of swings. This too was, in its own way, satisfying. But still, a few pieces remained nailed to the studs. I ripped them off and tossed them aside. 
 
-Typical generic old school prison film architecture, cells and generally a 'grey' and depressing atmosphere.
+Stepping back, I admired my work. I could see the internal wires and pipes. The insulation in between each stud. Could smell the musty dew that reminded of my father's truck. He was a farmer, never had time to clean his truck, and within a few years, it was less of a truck and more of an ecosystem for pests. Mice especially 
 
-Two rows of cells, spanning the building. Two levels, one set of stairs about halfway down.
+You could always hear them rattling around in between the metal panels whenever Dad got the engine going over forty-five. Squeaking in panic as their entire world shook apart. 
 
-Anyway, talking about this any more would be boring. I prefer the history of a place, not how much damp it has. Doesn't make enough money to fix everything, but it is one of our only historical landmarks, so it continues to stand.
+My satisfaction from a job well-done was short-lived. When my wife came home...well, to put it simply, she wasn't happy. We had a very long discussion about my actions. There were accusations of being drunk or high or having lost my mind. 
 
-I sniffed the air as we entered, scrunching my face up,
+I knew without a shadow of a doubt that at least two of those were not plausible possibilities. I only drink on the weekends, and I've never done any drugs other than smoking some weed back in college. 
 
-"Smells of piss and shit in here."
+My mind, my sanity to put it more appropriately, was a questionable matter. One that, realistically, I could not make a determination about without expressing some sort of noticeable bias. 
 
-Jones shrugged,
+In the end, my wife was willing to chalk up the situation to a "heat of the moment" kind of thing. Impulsive thinking. Irrational behavior that occurs at odd intervals, a problem plenty of people experience on a daily basis. To put it in simpler terms: "a dumbass being a jackass." 
 
-"I don't smell anything. Maybe they got some inspiration from that thing in London and went a bit more realistic this year."
+She helped me sweep up the mess and take out the garbage. I called a local carpenter and booked a time for them to come out and fix the wall. My wife made dinner while I showered. We ate in silence, her disbelief somewhere between concerned and amused. After, I washed dishes while she dried. Regular night in spite of what had happened. 
 
-He might have been correct. They were desperate to get profit from this place, and the light theming may not be working.
+After that, we went downstairs and sat on the couch to watch TV. But if I'm to be honest, I couldn't focus on any of the shows. Couldn't tell you what we talked about, or if we even talked at all. 
 
-We split up in order to explore properly, flashlights at the ready. The cells were identical; Old and rusted bed frames with springs sticking out, a sink with a broken mirror above it and papers and dust littering the floor. There was also a closed, locked up gift shop. Of course.
+I was too busy thinking about the chipped paint, the crack in the drywall, the grooves in the floorboards and the spaces in between. About the indents of our textured ceiling. A tacky popcorn look of jagged ridges and bumps. I keot thinking about the small squeak of the second step on the stairs. The hollow moan of the draft in the bedroom. The sound of the mice in my father's truck, rattling against the loose panels. 
 
-I walked up the stairs and examined the cells a little more closely. Some had props in them for the tourists, like fake skeletons in grey and black pyjamas leaning on the bars, or mannequins of guards in uniform "walking" in the middle of the walkway. One cell even had a prisoner using a spoon to dig the wall.
+But I couldn't tell my wife about it. At least, not in a way that would make sense. 
 
-I walked into one particular cell, despite the very strong smell of bodily excrement and urine giving me a headache. No. not just a headache. A sudden, onset migraine, so much so that I had to take a breath, closing my eyes and leaning on the sink.
+Honestly, I was getting worked up. I could literally feel my skin crawling about it. As if there were maggots in the narrow space between bone and flesh, interspersed with my muscles and tissue. Worms wriggling beneath the surface. 
 
-This was when I heard a clink and Jones laughing behind me. I turned around to see him dropping the key outside the cell and smiling at me,
+I snapped out of my fit when my wife turned off the TV and asked if I was ready for bed. I almost laughed because how the hell was I supposed to go to bed? This wasn't the kind of issue where you just count sheep or clear your mind or listen to rain sounds on YouTube. It felt permanent, detrimental. But I had no plausible excuses, no rational explanations. So, I nodded my head and followed her upstairs. 
 
-"Don't worry, your honour. I'll be back to take you to your bachelor party later. Just need you out of the way for a few hours!" He then made some typical "bro" barking sound before leaving.
+For about an hour or so, I lied in bed beside my wife, listening to her snore. Feeling the gentle rhythmic motion of her chest raising and lowering with every breath. Occasionally, the heat kicked on to help dispense the silence. But still, I could hear it. I could hear the quiet, the soft buzz of nothing in my ears. That flurry of emptiness like a light snowfall in the dark of night. 
 
-*What the fuck?*
+Sighing, I climbed out of bed and stepped into the hall. To resist the urge to look at the wall was perhaps the hardest thing in my entire life. I was a child trying not to admit their mistake, hoping that if maybe I ignored it long enough, it would suddenly disappear. 
 
-OK, so for a while I was impressed. I failed to reach the key and, while I appreciated the creativity and sentiment, I did not appreciate the delivery of the idea nor the lack of provisions I was afforded. Oh well, I had just had a burger.
+I walked into the bathroom and closed the door behind me. I used the toilet, washed my hands thoroughly, but it still felt like there was some residue on them. So, I washed them again, applying an extra lather of soap. 
 
-As if on cue, the migraine returned. I clutched my head and shut my eyes, suddenly feeling pretty tired. I fell asleep, but it was one of those flash sleeps, so I slept but felt like it was only a second passing, as you do when you have been under anaesthetic.
+Then, I just stared at myself in the mirror. I was almost afraid to go back out into the hall because I knew that if I glimpsed the wall, I wouldn't be able to walk away again. Wouldn't be able to ignore it. I was just biding my time, trying to build up a tolerance of sorts. Psyching myself up for possibly the most mundane battle in existence. 
 
-Not only that, but I began keeping notes on my phone to stave off boredom. Though they were pretty boring notes.
+Just as I was about to leave, I noticed something in my reflection. A small dot on my forehead. 
 
-I started to feel an itch on my head, like something was biting it. Did this place have bugs? Probably. This itch ever so nicely coincided with every time I felt hungry.
+At first, I thought it was a mosquitoe bite or a spider bite, but as leaned in closer to inspect, I recognized it as a pimple. Hadn't seen many of those since my college days. Let me tell you, it was not a sight I missed. 
 
-Jones hadn't returned by the time my torch had run out of battery. Probably wasn't charged before we set off. I thought about using my phone, but then again I found myself really wanting to conserve battery, so didn't.
+I positioned my index fingers, one on either side, and pushed them together. A small spot of white pus came slithering out and I wiped it onto a piece of tissue paper, tossing it into the bin. But for some reason, I wasn't convinced I'd gotten it all. Pimples always had a way of producing more fluid. 
 
-I slept, using my clothes as a blanket.
+So, I repeated the process, putting a finger on opposite sides and squeezing. More ous came followed by a yellowish transparent fluid. I applied more pressure until it hurt. This time, a small dot of blood came out instead. 
 
-Furthermore, I pissed out of the cell bars, as I didn't want to contribute to the smell. Luckily, I didn't have to shit.
+Finally, I thought with a hint of relief. 
 
-I don't know how long passed. The light coming into the building didn't give me much help, as I slept so much I was unsure if I had skipped days.
+I turned on the tap, wetted my fingers, and wipe the blood away. Then, I opened the medicine cabinet and grabbed a small bandage. Peeling away the disposable paper, I glanced into the mirror again. Instantly, my eyes went to that small bump on my forehead. Flushed red with blood beneath the skin. Somehow bugger than before. Swollen by my interference. 
 
-My battery is pretty good, I had a push on battery with me, so I used that, but now it is depleted.
+Ugly little thing. 
 
-This cell doesn't even have a mirror.
+Just ignore it, I told myself. 
 
-The FUCKING MIGRAINES AND THE ITCH, THE ITCHING, I SCRATCH UNTIL MY FINGERS ARE RAW, I EVEN DRAG MY TEETH ALONG MY SKIN SOMETIMES. IT FEELS, GOOD. THIS. THIS CELL. EXQUISITE. FUCK, IT IS ALL OVER MY BODY NOW AND I CANNOT STAND IT.
+But it was there. That gnawing at the back of my mind. Unfinished business. An itch needing to be scratched. 
 
-I CAN NOT SLEEP. I CAN NOT REST.
+My mother used to tell me never to pop my pimples or pick at my scars. She would've been disappointed then because thats exactly what I did. I started picking at it with my fingernails, digging a small gouge in my forehead. But it wasn't enough. My tools were insufficient. I grabbed a tweezers from the cabinet and pushed the metal tips beneath the skin, scraping away the stringy bits underneath. The remnants of pus and hair and oil and blood and all that built-up grime. 
 
-NOW THEY HAVE ADDED EXTRA SENSATIONS;
+When my patience had run thin, I snuck downstairs into the garage for a piece of sandpaper. I rubbed the skin raw, ignored the pain that ensued. Because more than that stinging sensation was an overwhelming dissatisfaction. A possessive feeling that slowly consumed me whole. But even it was paltry in comparison to the itch at the back of my mind. 
 
-THERE'S A SCRATCHING SOUND WHENEVER I MOVE MY EYES.
+In the end, when my piece of sandpaper was worn dull, I returned upstairs and grabbed the cheese grater from the kitchen. Then, I locked myself in the bathroom. 
 
-THERE'S A PIERCING BUZZING IN MY EARS THAT I CAN NOT DROWN OUT. I CAN NOT HEAR ANYTHING EXCEPT THIS NOW.
+The pimple had become a vulgar mess of blood and raw skin. A hole in my flesh about the diameter of a golf ball. 
 
-I CAN JUST WAIT. FOR DEATH OR JONES.
+Putting the cheese grater to my forehead, I took a deep breath and exhaled. The itch needed to be scratched. And while I was cognizant of my actions, of the irrationality behind them, I just couldn't stop myself. Couldn't help myself from continuing this little conquest. 
 
-NETHER COME.
+My wife started knocking on the door, and when I didn't respond, she began pounding her fists against the wood. Rattling the door in its frame, making the hinges jiggle and squeal. Sort of like those mice in my father's truck. 
 
-IN ONE LAST EFFORT, I REACH FOR THE KEY, PUSHING MY SHOULD INTO THE METAL BARS.
+She called my name over and over. I had no words, no answers, no explanations. There was just the sound of the cheese grater scraping against my skull. Tearing away the skin in attempt to inravek what laid beneath. 
 
-I GRAB IT, BUT FREEZE IN PLACE.
+It's a dangerous thing, focusing on the imperfections in life. To think about an itch. Once you start thinking about it, once you realize it's presence, it just doesn't want to go away. And any mention of it has this neurological reaction that makes you have this incessant urge to scratch. 
 
-That is when I heard my stomach grumble.
-
-I heard it.
-
-I opened my eyes and the scratching was gone. I was sat on the floor against the wall, opposite the cell door, swung open. The migraine, buzzing, itching and, well, just all of it had gone.
-
-There was no key.
-
-That's when I remembered.
-
-I grinned, coming to terms with my new self.
-
-The truth is, I could have got help at any time.
-
-I could have left at any time.
-
-But I didn’t.
-
-I didn’t want to in the end.
-
-That's when I noticed that the skeleton is real.
-
-Don't come here.
-
-I was the one who locked the cell. I am not sure why. Why have I done these things?
-
-This is my confession.
-
-Jones. We had a fight. He never shut me in here. He never left the building.
-
-I don't remember what started it. But, I feel blood both on my lips and, as I feel my head, there is also blood on it.
-
-I remember now.
-
-He punched me, and the both dull and echoing thud of my head smacking on the sink caused me to have a bad migraine. I staggered onto my feet, as he apologised and went to help me. I felt rage, inexplicable sudden rage. I am normally mild-mannered, but this did not feel like me.
-
-Burning. Rage.
-
-Summoning all the energy I could, given that my skull felt like it had been crushed, I leapt onto him, wrapping my hands around his neck. Despite the fact that he is normally stronger than me, he could not push me off. I saw the veins bulge in my arms, froth dripping onto Jones from my mouth, my eyes felt like they were burning. BURNING.
-
-Then came the....
-
-CRACK.
-
-Jones was dead. I had killed him.
-
-The rage dispersed, taken over by a numbness, a chill in my very bones. I took my hands off of his neck and, in my panic, dragged his body until it was a crumpled heap in a dark corner of the cell.
-
-I sat in this cell, hyperventilating, while my mind played the 'simulation' I have written above to me, it was also trying to think what to do. I guess it did that because of the shock.
-
-That's when my stomach rumbled and I got an idea. A terrible idea which would doom me.
-
-I had nothing to dismember with, so just ate straight off the bone.
-
-I started with a finger. I cried when I ate the first few pieces, especially when my teeth would scrape on bone. Threw some up. But he was gone and I was not. If I could hold on. I only ate when I could not stand the hunger pains.
-
-At least, that's how it started. I began to enjoy it.
-
-I did not have the strength to walk. My strength grows weaker. I sit next to Jones in a puddle of piss, shit and gore currently.
-
-His ears were chewy, I didn’t much care for them. But, a very small amount of nourishment was better than none.
-
-I may have infected myself with bacteria from eating human flesh. But, it won't matter now.
-
-But, the outside scares me now. I'm sorry, Baby, but I am sure I will be punished for what I have done. This post will be all that is left.
-
-This seems like a good place to tell you that my notes also kept track of the days.
-
-I have been here for two days.
-
-It took TWO DAYS for my mind and body to destabilize to this point due to...something? I can only think it is the smell. It made me think that it had been weeks, or even a month. 
-
-The skeleton.... I can see it now.
-
-I never ate his face. It's still there.
-
-Staring at me in terror. In judgement.
-
-I hope that whatever triggered my behaviour has fully gone by that time.
-
-But then, maybe it simply unlocked my true nature.
-
-This is my confession and I plead guilty.
-
-My vision is blurry and I can barely type any more.
-
-There will be two skeletons in this cell on the next tour.
-
-At least you will see me again.
-
-Hello. It’s 14th March 2023 as I write this. The reception combined with my current mental state may mean that this post takes longer to go through.
-
-I am definitely not of sound mind or body any longer.
-
-My name is Fred East, I’m 25 years old with short, spiky blond hair with blue eyes and am a resident in a small town with a population of around 5, 000.
-
-I live with my three sisters - 18, 16 and 12. Our parents died in a car crash five years ago. My eldest sister has recently joined me in supporting our other siblings. I am a court judge. Yes, I am young for that occupation, but my parent’s tragic death caused me to have a hunger for justice, and a mentoring program greatly helped that.
-
-My best friend, who is referred to by his last name, Jones, and I decided to do a bit of exploration in one of the few places that bring a measly amount of tourists here. My Fiancée works as a tour guide at our destination.
-
-When I say measly, I mean measly. No-one really visits or moves here, and I’ve only known a handful of residents leave.
-
-I’m digressing a little.
-
-Back to exploring.
-
-Jones and I approached the building, it was night, of course, and very remote, so there were some creep factors at play.
-
-I won’t name the place for reasons that should become clear later. It's an abandoned prison that's fairly small and closed 140 years ago. No-one was really sure why it had closed, but everyone has theories.
-
-Makes a tourist attraction scarier, right?
-
-The last time I had been here was when I was about 15, on a field trip, which is when I met my fiancée, who was on one too.
-
-On the way to the entry door, Jones teased me with stories of ghosts, tales of experimentation and abuse on prisoners. Also of guards against other guards.
-
-You know, the usual shit people try to scare you with as you walk up to a "scary" attraction.
-
-I shrugged it off, laughing.
-
-We opened the massive, wooden door with a creak.
-
-As I said, it is a small prison, the height of four stories, width/length of around ¼ an acre.
-
-Typical generic old school prison film architecture, cells and generally a 'grey' and depressing atmosphere.
-
-Two rows of cells, spanning the building. Two levels, one set of stairs about halfway down.
-
-Anyway, talking about this any more would be boring. I prefer the history of a place, not how much damp it has. Doesn't make enough money to fix everything, but it is only of our only historical landmarks, so it continues to stand.
-
-I sniffed the air as we entered, scrunching my face up,
-
-"Smells of piss and shit in here."
-
-Jones shrugged,
-
-"I don't smell anything. Maybe they got some inspiration from that thing in London and went a bit more realistic this year."
-
-He might have been correct. They were desperate to get profit from this place, and the light theming may not be working.
-
-We split up in order to explore properly, flashlights at the ready. The cells were identical; Old and rusted bed frames with springs sticking out, a sink with a broken mirror above it and papers and dust littering the floor. There was also a closed, locked up gift shop. Of course.
-
-I walked up the stairs and examined the cells a little more closely. Some had props in them for the tourists, like fake skeletons in grey and black pyjamas leaning on the bars, or mannequins of guards in uniform "walking" in the middle of the walkway. One cell even had a prisoner using a spoon to dig the wall.
-
-I walked into one particular cell, despite the very strong smell of bodily excrement and urine giving me a headache. Not, not just a headache. A sudden, onset migraine, so much so that I had to take a breath, closing my eyes and leaning on the sink.
-
-This was when I heard a clink and Jones laughing behind me. I turned around to see him dropping the key outside the cell and smiling at me,
-
-"Don't worry, your honour. I'll be back to take you to your bachelor party later. Just need you out of the way for a few hours!" He then made some typical "bro" barking sound before leaving.
-
-What the fuck?
-
-OK, so for a while I was impressed. I failed to reach the key and, while I appreciated the creativity and sentiment, I did not appreciate the delivery of the idea nor the lack of provisions I was afforded. Oh well, I had just had a burger.
-
-As if on cue, the migraine returned. I clutched my head and shut my eyes, suddenly feeling pretty tired. I fell asleep, but it was one of those flash sleeps, so I slept but felt like it was only a second passing, as you do when you have been under anaesthetic.
-
-Not only that, but I began keeping notes on my phone to stave off boredom. Though they were pretty boring notes.
-
-I started to feel an itch on my head, like something was biting it. Did this place have bugs? Probably. This itch ever so nicely coincided with every time I felt hungry.
-
-Jones hadn't returned by the time my torch had run out of battery. Probably wasn't charged before we set off. I thought about using my phone, but then again I found myself really wanting to conserve battery, so didn't.
-
-I slept, using my clothes as a blanket.
-
-Furthermore, I pissed out of the cell bars, as I didn't want to contribute to the smell. Luckily, I didn't have to shit.
-
-I don't know how long passed. The light coming into the building didn't give me much help, as I slept so much I was unsure if I had skipped days.
-
-My battery is pretty good, I had a push on battery with me, so I used that, but now it is depleted.
-
-This cell doesn't even have a mirror.
-
-The FUCKING MIGRAINES AND THE ITCH, THE ITCHING, I SCRATCH UNTIL MY FINGERS ARE RAW, I EVEN DRAG MY TEETH ALONG MY SKIN SOMETIMES. IT FEELS, GOOD. THIS. THIS CELL. EXQUISITE. FUCK, IT IS ALL OVER MY BODY NOW AND I CANNOT STAND IT.
-
-I CAN NOT SLEEP. I CAN NOT REST.
-
-NOW THEY HAVE ADDED EXTRA SENSATIONS;
-
-THERE'S A SCRATCHING SOUND WHENEVER I MOVE MY EYES.
-
-THERE'S A PIERCING BUZZING IN MY EARS THAT I CAN NOT DROWN OUT. I CAN NOT HEAR ANYTHING EXCEPT THIS NOW.
-
-I CAN JUST WAIT. FOR DEATH OR JONES.
-
-NETHER COME.
-
-IN ONE LAST EFFORT, I REACH FOR THE KEY, PUSHING MY SHOULD INTO THE METAL BARS.
-
-I GRAB IT, BUT FREEZE IN PLACE.
-
-That is when I heard my stomach grumble.
-
-I heard it.
-
-I opened my eyes and the scratching was gone. I was sat on the floor against the wall, opposite the cell door, swung open. The migraine, buzzing, itching and, well, just all of it had gone.
-
-There was no key.
-
-That's when I remembered.
-
-I grinned, coming to terms with my new self.
-
-The truth is, I could have got help at any time.
-
-I could have left at any time.
-
-But I didn’t.
-
-I didn’t want to in the end.
-
-That's when I noticed that the skeleton is real.
-
-Don't come here.
-
-I was the one who locked the cell. I am not sure why. Why have I done these things?
-
-This is my confession.
-
-Jones. We had a fight. He never shut me in here. He never left the building.
-
-I don't remember what started it. But, I feel blood both on my lips and, as I feel my head, there is also blood on it.
-
-I remember now.
-
-He punched me, and the both dull and echoing thud of my head smacking on the sink caused me to have a bad migraine. I staggered onto my feet, as he apologised and went to help me. I felt rage, inexplicable sudden rage. I am normally mild-mannered, but this did not feel like me.
-
-Burning. Rage.
-
-Summoning all the energy I could, given that my skull felt like it had been crushed, I leapt onto him, wrapping my hands around his neck. Despite the fact that he is normally stronger than me, he could not push me off. I saw the veins bulge in my arms, froth dripping onto Jones from my mouth, my eyes felt like they were burning. BURNING.
-
-Then came the....
-
-CRACK.
-
-Jones was dead. I had killed him.
-
-The rage dispersed, taken over by a numbness, a chill in my very bones. I took my hands off of his neck and, in my panic, dragged his body until it was a crumpled heap in a dark corner of the cell.
-
-I sat in this cell, hyperventilating, while my mind played the 'simulation' I have written above to me, it was also trying to think what to do. I guess it did that because of the shock.
-
-That's when my stomach rumbled and I got an idea. A terrible idea which would doom me.
-
-I had nothing to dismember with, so just ate straight off the bone.
-
-I started with a finger. I cried when I ate the first few pieces, especially when my teeth would scrape on bone. Threw some up. But he was gone and I was not. If I could hold on. I only ate when I could not stand the hunger pains.
-
-At least, that's how it started. I began to enjoy it.
-
-I did not have the strength to walk. My strength grows weaker. I sit next to Jones in a puddle of piss, shit and gore currently.
-
-His ears were chewy, I didn’t much care for them. But, a very small amount of nourishment was better than none.
-
-I may have infected myself with bacteria from eating human flesh. But, it won't matter now.
-
-But, the outside scares me now. I'm sorry, Baby, but I am sure I will be punished for what I have done. This post will be all that is left.
-
-This seems like a good place to tell you that my notes also kept track of the days.
-
-I have been here for two days.
-
-It took TWO DAYS for my mind and body to destabilize to this point due to...something? I can only think it is the smell. It made me think that it had been weeks, or even a month. 
-
-The skeleton.... I can see it now.
-
-I never ate his face. It's still there.
-
-Staring at me in terror. In judgement.
-
-I hope that whatever triggered my behaviour has fully gone by that time.
-
-But then, maybe it simply unlocked my true nature.
-
-This is my confession and I plead guilty.
-
-My vision is blurry and I can barely type any more.
-
-There will be two skeletons in this cell on the next tour.
-
-At least you will see me again.
+But I intend to get rid of my itch, and I won't stop scratching until it's gone.
