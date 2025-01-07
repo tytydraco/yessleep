@@ -19,3 +19,7 @@ I don’t know. Maybe it’s just a coincidence, but three patients in two days?
 I’m not jumping to conclusions here—I’m not the kind of person who believes in “aliens” or whatever. I’m a nurse, and I like to think I’m a pretty grounded person. But I can’t help feeling like I’m missing something, and it’s starting to keep me up at night.
 
 Has anyone ever seen or heard of something like this? I don’t know if I’m looking for answers or just trying to get it out of my head, but I’d really appreciate any thoughts.
+
+\*I took a snap of the wound to show the ER doctor that treated the young man and to upload to his medical record as part of my documentation. For some reason I forgot to delete it from my phone. I wanted to share the pic here but was not sure how. I did Google how to post it and hopefully the link below will work. 
+
+[https://imgur.com/a/bNZdM6o](https://imgur.com/a/bNZdM6o)
