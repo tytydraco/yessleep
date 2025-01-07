@@ -64,9 +64,9 @@ The cab pulls up, but I leap out before it even stops, running toward the house.
 
 I burst through the door, frantic. My wife isn’t in the living room. I shout for her.
 
-She calls back from the kitchen. I find her there, startled by my panic.
+She calls back from the kitchen and I find her there, startled by my panic.
 
-I grab her and pull her into a hug. Relief floods through me. She’s safe. She just stares at me, confused, and asks what’s going on.
+I pull her into a hug. Relief floods through me. She’s safe and just stares at me, confused, questioning what’s going on.
 
 Before I can answer, my phone buzzes. Another text.
 
