@@ -1,4 +1,4 @@
-Back in 2015, the company I worked for expanded to a new office in Rochester, Minnesota. I stayed there for about a week to overview their recruitment process and to sign off on a couple of larger purchases. It was all standard procedure. I’d done this before at an affiliate branch, but it was my first time doing it on my own. It was a lot of responsibility.
+Back in 2015, the company I worked for expanded to a new office in Rochester. I stayed there for about a week to overview their recruitment process and to sign off on a couple of larger purchases. It was all standard procedure. I’d done this before at an affiliate branch, but it was my first time doing it on my own. It was a lot of responsibility.
 
 I got a room at a small hotel called the Silver Sands Hotel. I think the place closed in 2021; I can’t see it online anymore. It was just down the road from Silver Lake, hence the name. It didn’t have a lot of visitors, so the rooms were cheap and surprisingly fresh.
 
