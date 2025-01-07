@@ -1,3 +1,5 @@
+[Next](https://www.reddit.com/r/nosleep/comments/1hsxzwk/i_sold_myself_to_a_monster_part_2/)
+
 I was fired from my fulltime job. I’m not exaggerating but this may be the end of the road for me.   
 
 I’ve worked as an engineer for a certain car factory, designing the machines that make parts of the frames. I knew one of the machines that would make the render rail was going to Mexico, but I assumed I would transfer my knowledge to somewhere else in the factory.  

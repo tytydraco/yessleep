@@ -1,5 +1,7 @@
 [First](https://www.reddit.com/r/nosleep/comments/1hqmicn/i_sold_myself_to_a_monster_part_1/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1hw3p5l/i_sold_myself_to_a_monster_part_3/)
+
 Overnight, an old-fashioned outlet and a phone charger appeared in my room. To my shock, they worked. I had internet, but I couldn’t call anyone. That was fine. I didn’t have anyone to call. I had only been in The Duke’s mansion for a short while; however, I was getting lonely. The beast that brought me here had no interest in hanging out. It was impossible to find him unless he wanted to be found.  
 
 The deliveries had been delayed for one more day because of a massive storm. I found an old history book to keep me occupied for the day. When I got too bored, I walked around the mansion trying to map a mental map of the second floor. This place was so large I didn’t think I could explore it in a single day. I walked down the main stairway when the front door opened. After the vampire incident, I was scared another creature was after my blood.  
