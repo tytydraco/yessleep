@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1husn01/the_stars_are_disappearing_and_i_know_why_part_1/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1hvllie/the_stars_are_disappearing_and_i_know_why_part_2/)
+
 The night sky was clear above the McPherson Observatory, a canopy of stars stretching infinitely across the darkness. But I no longer found comfort in the familiar constellations. My name is Dr. Timothy Cole, senior astronomer, and I once considered myself lucky to spend my life peering into the mysteries of the cosmos. But that was before I found it — the thing that waits in the void, consuming all light, all hope.
 
 I record this log not for posterity, but as a warning. If you hear it, then what we found is no longer confined to the darkness between the stars. It has found its way here, and you must understand what that means.
