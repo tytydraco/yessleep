@@ -36,7 +36,7 @@ I glance out the cab window. There are still maybe twenty minutes until I get ho
 
 I respond, explaining I’ll cooperate and there’s no need to escalate things.
 
-What is this person talking about? If it’s Jane’s stolen identity, maybe it’s about the day we met?
+But I don't understand what the question means. If it’s Jane’s stolen identity, maybe it’s about the day we met?
 
 Jane and I met at the Hilton during a work event. Back then, I still had a long dark hair that touched my neck. A young, ambitious sales manager. She was an even younger accountant. Married for three years at the time, I found something intoxicating in her shy laugh.
 
