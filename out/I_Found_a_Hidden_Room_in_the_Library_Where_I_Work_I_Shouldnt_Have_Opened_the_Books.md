@@ -33,3 +33,5 @@ The worst part? A few days ago, I found another book from that hidden room. Not 
 I went back to the hidden room the next night. I told myself it was to put the book back, but I couldn’t resist opening another one. This one was thinner, its cover marked with a spiral. Inside were instructions for something called “The Listening Ritual.”
 
 I know it sounds stupid, but maybe by performing this Ritual I can banish whatever I summon with the last one. What do you guys think I should do?
+
+update - [https://www.reddit.com/r/nosleep/comments/1hvmqx4/i\_found\_a\_hidden\_room\_in\_the\_library\_where\_i\_work/](https://www.reddit.com/r/nosleep/comments/1hvmqx4/i_found_a_hidden_room_in_the_library_where_i_work/)
