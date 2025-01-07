@@ -2,7 +2,7 @@ Someone once said that beauty is pain, and I have to think that they too were on
 
 Back in the early aughts, I was fresh out of college and in debt, taking on odd jobs to supplement the meager income my roommate brought in.  This story happened around the time I’d started a job putting up flyers for whoever commissioned the business.  It was pretty standard stuff:  missing dog posters, impromptu poetry slam nights, grand openings or closeout sales of sundry grocery stores, you name it.
 
-But there was one particular stack of flyers that caught my attention, one foggy day in mid-May.  The design was simple, yet effective.  In an elegant white font on a black background, it read “Madame Blanc’s Inferno Gallery”, and had an address and a phone number at the bottom.  Normally I’m not a stuffy art person, but one small line at the bottom of the flyer caught my attention:  “Admission free to the public”.  
+But there was one particular stack of flyers that caught my attention, one foggy day in mid-May.  The design was simple, yet effective.  In an elegant white font on a black background, it read “Madame Blanc’s Inferno Gallery”, and had an address and a phone number at the bottom.  Normally I’m not a stuffy art person, but one small line at the bottom of the flyer caught my attention:  “Admission free to the public”. 
 
 I was already intrigued.  My roommate was going to be out with her girlfriend that weekend and I was planning to pig out on crappy pizza and a romance movie, so having something constructive to look forward to that night would be great.  As if I didn’t need more convincing,  I checked out the back of the flyer.  Most people don’t put things on the backs of flyers that are supposed to be posted on bulletin boards and other places, but the client had asked for these flyers to be handed to people directly, so it made sense.
 
@@ -24,7 +24,7 @@ As much as I was a little put-off by the pretentiousness of the names, I had to 
 
 Back during my college days, before I found out just how hard it was for a person to get a job with an English degree, I was a bright-eyed nineteen-year-old trying to glean any inspiration I could from all the unconventional art students, the counter-culture junkies, the 21st-century beatniks.  They were pieces of sea-glass in the middle of grains of sand, and I wanted to know everything about them.  And one of those beautiful nonconformists was Victor Levchenko.
 
-Out of all the weirdo art punks on campus, Victor was definitely the least approachable.  He was tall and imposing, with whiskey-colored eyes, messy dark brown hair, and a vaguely Slavic accent that nobody knew the origin of.  Victor barely spoke to anyone on campus except this one freckle-faced photography major with bright green eyes, so it was a shock to me when he agreed to an interview for a blog I was running as part of a class project.  
+Out of all the weirdo art punks on campus, Victor was definitely the least approachable.  He was tall and imposing, with whiskey-colored eyes, messy dark brown hair, and a vaguely Slavic accent that nobody knew the origin of.  Victor barely spoke to anyone on campus except this one freckle-faced photography major with bright green eyes, so it was a shock to me when he agreed to an interview for a blog I was running as part of a class project. 
 
 The two of us became somewhat close until he graduated, after which I lost track of him…at least until now.  I couldn’t deny the way my heart did a somersault when I read his name on the list.  I had to see him.  There was no way he’d remember me, of course, but I at least wanted to know how he was doing.
 
@@ -90,7 +90,7 @@ Daisy was by far the most colorful of the group, and also the most mysterious. 
 
 “Pulitzer material, this one,” Victor interjected, patting my shoulder.  I looked up at him, confused.  Victor didn’t *do* compliments; in fact, you’d be lucky to get anything more than a “not bad” out of him.  It almost seemed like he was proud to know me, which was nice…even if totally out of character.  It also made me realize I was super out of practice with my writing.  Maybe I ought to start up that journal again, I thought.
 
-When I got home that night, my roommate wasn’t home.  She must have spent the night with her girlfriend.  Not wanting to go to bed just yet, I decided to flop on the couch and channel-surf for a while, snagging some leftover Traverse City Fudge from the freezer on the way.  
+When I got home that night, my roommate wasn’t home.  She must have spent the night with her girlfriend.  Not wanting to go to bed just yet, I decided to flop on the couch and channel-surf for a while, snagging some leftover Traverse City Fudge from the freezer on the way. 
 
 There wasn’t much on TV, just some cop show reruns, *Dateline* and one of those skeezy reality shows involving scantily-clad women, so I ended up settling for a few episodes of *Columbo.*  I didn’t always like the show’s format of showing the killer right away, but I could definitely respect a man who was so completely in love with his wife that he mentioned her every episode.  I was a romantic back then.  Maybe some part of me still is.
 
@@ -134,3 +134,16 @@ Friday night came with pouring rain and fog that rolled off the asphalt in thick
 
 There would indeed be a next time.  And a third time.  And a fourth time.  The fifth time I had dinner with Victor, we went back to his place together, and I learned exactly what those sculptor's hands of his were capable of.  The next morning, he made me breakfast and I spent the day in his studio, watching him work on some new pieces before he drove me home late in the evening.  Life was good, and for the most part it still is, but after our fifth date, things started happening that I will never be able to forget.
 
+\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~\~
+
+Series Masterlist
+
+Part 1
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1hviusg/vityas_effigy_part_2/)
+
+Part 3
+
+Part 4
+
+Part 5
