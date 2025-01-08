@@ -180,7 +180,7 @@ At first, I didn’t think it was actually Camila on the other line. The voice w
 
 *“And what she’s thinking is bad for both of us.”*
 
-I couldn’t focus on understanding what Camila was trying to tell me. Instead, I remained preoccupied by the strangeness of what was supposedly my wife’s voice. Although the tone was finally correct, the quality of her voice was still slightly off - frayed and hollow, like it was coming from a megaphone. Before Camila could say anything else, there was a male voice yelling something in the call's background.
+I couldn’t focus on understanding what Camila was trying to tell me. Instead, I remained preoccupied by the strangeness of what was supposedly my wife’s voice. Although the tone was finally correct, the quality of her voice was horribly wrong - frayed and hollow, like it was coming from a megaphone. Before Camila could say anything else, there was a male voice yelling something in the call's background.
 
 There was a scream, a few gunshots, and then there was silence.
 
