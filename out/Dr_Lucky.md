@@ -1,5 +1,3 @@
-
-
 Prudence was five minutes late to her doctor’s appointment. It was Saturday morning, and she hadn’t wanted to go to the doctor anyway – and she didn’t want to leave her house. She wasn’t a fan of doctors, and didn’t like appointments. But, her prescription for her thyroid medication would not be filled, the nurse had told her, unless she came in for a yearly physical (it had been two years, but they were not going to be lenient any longer). Prudence knew she needed it; her brain fog was coming back, and she was getting forgetful. She felt sluggish, and her clothes weren’t really fitting. Thyroid, menopause – whatever it was. It sucked. But, so is life, she thought, as she walked to her car. Her moment of reflection was jarred by the incessant barking of the neighbor’s dog, Kip. Kip liked to yip, they said home. Kip barked constantly, and was always outside. She knew her neighbors were at home, but she imagined they had soundproof glass – so Kip stayed outside for the world to hear, while they got respite in their home.
 
 Also, Prudence had been up late last night at “book club.” Air quotes intentional – they did talk about books, for about 15 minutes. Usually, right before they dispersed for the night. Most of the evening was spent lamenting the day to day of a bunch of middle aged ladies. While there were always laughs, and always some good gossip, these evenings didn’t make Prudence as recharged as they used to. Instead, she began to fret about what they would do to her sleep cycle, and how she’d tackle her ever growing to-do list the next morning. 
@@ -51,8 +49,6 @@ They exchanged their goodbyes, and Prudence left the room, setting her appointme
 “Oh, didn’t he mention it? The new meds we got. I started this week, and let me  tell you. Everything doesn’t suck anymore! Isn’t that amazing? Like, I feel better, lost ten pounds. I don’t yell at my husband, I don’t mind making lunches or doing laundry. Everything is just easy. And, for the first time in a long time, I actually feel good.” Tera looked up expectantly. 
 
 “Yeah, medicine isn’t really my thing. And, you know I don’t like doctor visits. I’m good.”
-
-
 
 \*\*\*
 
@@ -186,6 +182,4 @@ When Prudence got home from Dr. Lucky’s, she began dinner and a load of laundr
 
 As she lay in bed, she grabbed her phone, and texted her book club group chat.
 
-**“Hey there, girlies! It’s been a while. Just checking in. I’ve been reflecting a lot lately—about how hectic life gets, especially now. But something's... shifted for me. It’s like this quiet clarity settled in. Everything feels lighter, easier, like a fog lifting. It’s strange to explain, but I feel** ***aligned*****, you know? Things just... fit now. No struggle, no noise. I can finally breathe without feeling the weight of it all. There’s this place—Dr. Lucky’s new space. It’s serene, almost surreal. No waiting, no fuss. Feels like stepping into something** ***right*****. Be reasonable. Treat yourself. You deserve it.”**
-
-  
+**Hey there, girlies! It’s been a while. Just checking in. I’ve been reflecting a lot lately—about how hectic life gets, especially now. But something's... shifted for me. It’s like this quiet clarity settled in. Everything feels lighter, easier, like a fog lifting. It’s strange to explain, but I feel** ***aligned*****, you know? Things just... fit now. No struggle, no noise. I can finally breathe without feeling the weight of it all. There’s this place—Dr. Lucky’s new space. It’s serene, almost surreal. No waiting, no fuss. Feels like stepping into something** ***right*****. Be reasonable. Treat yourself. You deserve it.**

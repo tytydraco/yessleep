@@ -1,0 +1,26 @@
+
+[Pt1 https://www.reddit.com/r/nosleep/s/jbOEDrOSbb
+
+[Pt2 https://www.reddit.com/r/nosleep/s/dbd04rJ01f 
+
+
+Disembodied stairs. 
+
+
+Walks in the forest was a common occurrence all my life. Even when the family fully transitioned from New York to Ohio. Ohio had a different feel to it, mystical all the same but more chilling and strange. Sometimes the forests of Ohio felt like staring into a deep foreign green impossible dream. A den of mystic witches, ghosts, but most frightening those creatures which origin can no longer be found. Ancient creatures who stare back from the green mossy black hole. Ohio was built different than New York, with our area having carved out stretches of mystic black holes. 
+
+
+There was a lot all the neighborhood kids played at for a while…until that one summer day when blood covered the pavement. My cousins and I were outside in the front yard playing, I remember the sun was warm and everything felt fine. That was until the erratic white car came now the road. The area, especially the neighborhood was caught between gang wars and dark activity. Another typical American small town beaten under the heavy arms of capitalism. The death of a typical mining industry era town. It just so happened that the erratic white beast, like the horseman of death, came to a screeching holt just in front of the side of the yard. 
+
+
+I don’t remember the noise but there must have been noise. A shot ringing out at least which alerted the adults. All I remember is the heavy thud of flesh as he thrust the woman off of the beast, onto the grey-black pavement of the road where she rolled with an awful flop. The yard was raised up you see, almost on a hill above the road so the view was clear. Soft chocolate skin, peppered in violent splatters of black and blue and red. The grey-black pavement beat under the sun, the hissing waves of summer heat spread the smell of splattered copper through the slight breeze of the wind. For what felt like too long we were all frozen. Eyes wide, mouths agape, nostrils filled with copper summer heat. Something took over my body, I ushered the little ones inside quickly just as the adults met us at the door. And that’s is where my memory of the copper summer end. 
+That is when we stopped meeting at the in between lot. 
+
+
+My uncle, who often took us out, started to take us out more. Mostly to the college campus which served as a religious space as well but also to the graveyard across town. The graveyard had vast stretches of mossy void but unlike the campus was more controlled and more flat ground. It was there when we began to discover the disembodied stone structures and it all began with a set of stairs. It was beyond the graveyard, deep into the mossy void where we first fell upon them. A set of grey and tan colored stones similar to the stones found in local old buildings such as the church and its adjacent property. 
+
+
+The steps were along side a deer trail which myself and my team of cousins ventured upon to find ancient treasures and strange artifacts. The little always enjoyed my affinity with animals as well and wanted to see wild deer and the likes which often came to find me and greet me. The steps seemed in perfect condition, lingering only feet from the path. They were in perfect condition, perhaps 7 or 8 feet tall and held together as if they were still attached to some structure before ending appropriately at the top. When approached they held a strange but fascinating aura but none dared to touch them for fear of compromising the ancient structure. The further we walked the more strange disembodied structured we found. A fireplace, a stove, a door and its frame and lastly the walls of a home. All were disembodied and all were held together by seemingly nothingness. They were captured by the mossy green void, taken over by forest ground, leaves, vines and strange moss. It wasn’t until the walls of the home that things became troubling. 
+
+
+Upon entered the structure and marveling at its strange appearance I became over taken with worry and the brimming vision of why this structure would realistically exist. It struct me that due to the history of the Appalachian nature of these lands that these homes were simply a left over of the people who used to walk these lands. Settlers, natives, miners…all the same, they were ancestral peoples. I stepped out the structure and ushered in the children, explaining that it was time to move on. Still, foolishly we only stepped deeper into the dark green. We traveled for about 10 maybe 15 minutes before ahead of the path perhaps 12 feet away was a large dark brown figure. As soon as my eyes met it I knew it was a bear. I stopped short in my tracks and the children persisted until I shushed them sharply. The bear began to charge before I could think and the first thing that came out of me was a blood curdling scream. The bear stopped short and let out a loud bellow before both of us took off running in the opposite direction. The strangeness of all this day was not taken seriously by the adults, however, some time later it would be told on the news that a bear was captured in the same area and taken down for disturbing the peoples. 
