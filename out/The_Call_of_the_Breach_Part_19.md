@@ -1,5 +1,7 @@
 [\[Part 18\]](https://www.reddit.com/user/RandomAppalachian468/comments/1ho0pvq/the_call_of_the_breach_part_18/)
 
+[\[Part 20\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hws6h5/the_call_of_the_breach_part_20/)
+
 The hospital ward teemed with activity when I walked in; nurses evacuated patients on stretchers, still more were brought in from the front to be treated, and workers moved back and forth to shuttle supply boxes to the waiting trucks. Long shadows clawed at what windows remained in the building, the red sun low in the early winter sky, the day’s end nearing. A light snowfall had begun over the shattered ruins of Black Oak, an otherworldly contrast with the visible sunset that approached, curtains of fine silver flakes tumbling from the sky to kiss the charred earth. Rifle fire still crackled in the distance, accompanied by the dull *thud-thud* of mortar and howitzer shells finding their marks. Acrid diesel exhaust lay heavy on the back of my tongue, the scent coming in from the parking lot outside as our forces gathered like storm clouds before the rain. Our push to encircle the Organs would begin soon, but I dreaded this almost as much, hated the awful moment required of me, and yet knew I could not escape.
 
 *You have to, Hannah.*
