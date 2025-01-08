@@ -4,7 +4,7 @@
 
 **Mission Date: ???**
 
-**Engineer Kale Torres**
+**Engineer Kale**
 
 I don’t know the date.
 
@@ -22,7 +22,7 @@ Kale sat cross-legged on the floor of the engine room, his back against the bulk
 
 The AI’s voice chimed in his ear, smooth and calm.
 
-“Your vitals indicate heightened stress levels, Engineer Torres. Would you like me to recommend a relaxation protocol?”
+“Your vitals indicate heightened stress levels, Engineer Kale. Would you like me to recommend a relaxation protocol?”
 
 Kale barked a laugh, the sound sharp and humorless. “Relaxation? That’s your solution? We’re trapped in a nightmare, and you want me to do breathing exercises?”
 
@@ -40,7 +40,7 @@ The figure stood in the corner, barely visible. Its form was hazy, indistinct, l
 
 “No,” he whispered, shaking his head. “You’re not real. You’re not real!”
 
-The AI's voice cut through his panic. “Engineer Torres, your stress levels are critical. Please remain calm.”
+The AI's voice cut through his panic. “Engineer Kale, your stress levels are critical. Please remain calm.”
 
 The figure began to dissolve, fading into the wall like ink soaking into paper. The clicking stopped. Kale curled into himself, his hands clutching his head. The AI continued to speak, its tone soothing but meaningless. He didn’t listen.
 
@@ -50,7 +50,7 @@ Because he knew the figure would come back.
 
 **Mission Date: ???**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 I made a decision today—if today even exists anymore.
 
@@ -98,7 +98,7 @@ Elias squinted, a chill running down his spine. “What is that?”
 
 **Mission Date: ???**
 
-**Lieutenant Rena Malik**
+**Lieutenant Rena**
 
 Kale’s discovery is weird but if it's true it changes everything.
 
@@ -152,7 +152,7 @@ Elias didn’t answer. He couldn’t.
 
 **Mission Date: ???**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 We shouldn’t have engaged with the signal.
 
@@ -208,7 +208,7 @@ For a single, unbearable moment, the ship was silent.
 
 **Mission Date: ???**
 
-**Lieutenant Rena Malik**
+**Lieutenant Rena**
 
 I’m starting to think there is no “present.”
 
@@ -260,7 +260,7 @@ Her breath hitched. She didn’t respond. Because she wasn’t sure if she was s
 
 **Mission Date: ???**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 The ripple’s grip is tightening.
 
@@ -304,7 +304,7 @@ Elias clenched his fists. “We need to get out of this.” Rena didn’t respon
 
 **Mission Date: ???**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 We’re not giving up. Rena and Kale are convinced the ripple is inside us—warping our thoughts, rewriting our reality—but I refuse to let it win.
 
@@ -346,7 +346,7 @@ Rena didn’t respond. She didn’t need to. Her silence was louder than any arg
 
 **Mission Date: ???**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 The ripple isn’t invincible. It wants us to believe we’re trapped, but there’s always a way out. I can feel it—if we can disrupt its control, sever its connection to the ship, we might break free.
 
@@ -392,7 +392,7 @@ And then—
 
 **Mission Date: 2837.14.01**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 This is the Helios. Mission date: 2837.14.01. Entering the anomaly now.
 
