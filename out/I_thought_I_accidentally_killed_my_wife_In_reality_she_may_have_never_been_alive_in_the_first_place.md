@@ -250,4 +250,6 @@ I could hear her breathing on the other line, but seconds later, she still had s
 
 Mom may be a chatterbox, but she’s a terrible poker player.
 
-She’s only truly silent when she’s manufacturing a lie. 
+She’s only truly silent when she’s manufacturing a lie.
+
+EDIT: See here for [update](https://www.reddit.com/r/nosleep/comments/1hw3x4e/i_thought_i_accidentally_killed_my_wife_in/)
