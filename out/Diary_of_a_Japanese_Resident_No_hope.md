@@ -1,3 +1,8 @@
+[First](https://www.reddit.com/r/nosleep/comments/1gw4h8q/diary_of_a_japanese_resident_the_last_day_in/)  
+
+
+[Previous](https://www.reddit.com/r/nosleep/comments/1gxf819/diary_of_a_japanese_resident_its_hiroshi_again/)  
+  
 Hey, it’s me again, Hiroshi Nakamura. I’m not sure why I’m even writing this anymore. Maybe it’s a way to keep myself sane. It’s been over a month since my last post. Back then, I thought things couldn’t get worse, but I was wrong. I’ve seen too much, and the person I was before all this is gone. Writing these words feels like throwing a message into the ocean, hoping someone will find it before the tide takes it away.
 
 The power and internet came back a few days ago. At first, I felt relief, a glimmer of normalcy in this nightmare. But it’s not normal. The connection flickers, unstable, and every time I open a website, I’m met with the same message: “The situation is under control. Remain calm. Stay indoors and await further instructions.” It’s a lie. I know it’s a lie because I’ve seen what’s outside. The streets are empty, the buildings abandoned, and at night, the air is filled with distant screams and gunfire. Whatever control they claim to have, it’s slipping away.

@@ -38,7 +38,7 @@ I have to admit, even at that point, my dad and I were “weirded out”. Englan
 
 All this made us more intrigued than ever, though. Maybe the place had been totally covered in trees until very recently - and some recent logging work had revealed it for the first time in decades? That seemed like a reasonable explanation, and we decided we’d head back the following weekend with my wife, sister and brother-in-law. We all like history and the outdoors and the others would, we sure, be fascinated by the place.
 
-So - we want back. Parked the car in the same place as before, retraced our steps as precisely as we could and -
+So - we went back. Parked the car in the same place as before, retraced our steps as precisely as we could and -
 
 The tower wasn’t there. 
 

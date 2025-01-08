@@ -39,3 +39,5 @@ Tilly is swamped. Eight customers in her line, and she's literally falling apart
 I finished all the stocking I needed to do by the time 9:00 PM arrived. Took me three tries, but the water had been filled. I walked over to the time clock and punched my number in, only to be faced with the harsh words of,
 
 *Employee #0164 is not currently clocked in. Would you like to clock in now?*
+
+[TUESDAY](https://www.reddit.com/r/nosleep/s/VVekLYShhb)
