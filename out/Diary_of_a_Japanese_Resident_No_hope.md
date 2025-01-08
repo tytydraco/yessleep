@@ -1,8 +1,7 @@
-[First](https://www.reddit.com/r/nosleep/comments/1gw4h8q/diary_of_a_japanese_resident_the_last_day_in/)  
+[First](https://www.reddit.com/r/nosleep/comments/1gw4h8q/diary_of_a_japanese_resident_the_last_day_in/)
 
+[Previous](https://www.reddit.com/r/nosleep/comments/1gxf819/diary_of_a_japanese_resident_its_hiroshi_again/)
 
-[Previous](https://www.reddit.com/r/nosleep/comments/1gxf819/diary_of_a_japanese_resident_its_hiroshi_again/)  
-  
 Hey, it’s me again, Hiroshi Nakamura. I’m not sure why I’m even writing this anymore. Maybe it’s a way to keep myself sane. It’s been over a month since my last post. Back then, I thought things couldn’t get worse, but I was wrong. I’ve seen too much, and the person I was before all this is gone. Writing these words feels like throwing a message into the ocean, hoping someone will find it before the tide takes it away.
 
 The power and internet came back a few days ago. At first, I felt relief, a glimmer of normalcy in this nightmare. But it’s not normal. The connection flickers, unstable, and every time I open a website, I’m met with the same message: “The situation is under control. Remain calm. Stay indoors and await further instructions.” It’s a lie. I know it’s a lie because I’ve seen what’s outside. The streets are empty, the buildings abandoned, and at night, the air is filled with distant screams and gunfire. Whatever control they claim to have, it’s slipping away.
@@ -28,3 +27,5 @@ I keep wondering if I’ve already been exposed. What if it’s inside me, waiti
 Tonight, the lights flickered again. The internet cut out for a moment, then came back. I’m writing this while I still can. If this is my last entry, then let it be a warning. Stay away from the water. Don’t trust it. Don’t trust anyone who’s been near it.
 
 And if it’s already too late for you, I’m sorry. I don’t think any of us will make it out of this.
+
+[Next](https://www.reddit.com/r/nosleep/comments/1hwqo6s/the_diary_of_a_japanese_resident_part_4/)

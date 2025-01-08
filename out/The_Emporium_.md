@@ -40,4 +40,4 @@ I finished all the stocking I needed to do by the time 9:00 PM arrived. Took me 
 
 *Employee #0164 is not currently clocked in. Would you like to clock in now?*
 
-[TUESDAY](https://www.reddit.com/r/nosleep/s/VVekLYShhb)
+See what happens [tomorrow.](https://www.reddit.com/r/nosleep/s/zYA1khekqu)
