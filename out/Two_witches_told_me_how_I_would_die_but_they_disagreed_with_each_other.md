@@ -43,4 +43,4 @@ I stood rooted in place. The young woman’s words from earlier played through m
 *Today’s the end for you,*  
 *shot on a stage of blue.*
 
-I work as a stage technician.
+I work as a stage technician. [Update](https://www.reddit.com/r/nosleep/comments/1hwx8de/two_witches_told_me_how_i_would_die_but_i_managed/)
