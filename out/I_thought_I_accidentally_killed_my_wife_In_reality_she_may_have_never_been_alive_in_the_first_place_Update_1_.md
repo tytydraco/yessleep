@@ -222,7 +222,7 @@ All the documents, except one, are records of a deep-sea mining operation that o
 
 Stapled to the bottom of the box, there is a torn page from what I’m assuming is an old book of poetry.
 
-The title of the poem is *De onde Lúcifer pousou, brotou um Fio de Deus.* From English to Portuguese, it reads:
+The title of the poem is *De onde Lúcifer pousou, brotou um Fio de Deus.* Portuguese to English, it reads:
 
 *“From where Lucifer landed, God Thread sprouted”*
 
