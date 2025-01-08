@@ -200,4 +200,4 @@ The voice in my head spoke one last time, its tone final and unyielding: You bel
 
 The fire surged forward, engulfing me entirely. My body didn’t burn, but the heat consumed everything else. The locket disintegrated in my hand, its ashes swirling in the air before disappearing completely. My mind fractured, breaking apart piece by piece, until nothing remained but the voice. It was everywhere, surrounding me, filling every thought, every breath.
 
-Flames flared all around the room, encircling the desk. With my feet planted on her charred, spongy remains, I was stuck, helpless, watching my mother burn and scream in never-ending [misery](https://youtu.be/E9l02HlC3gE?si=cUKG7jHxvsZwvKQY).
+Flames flared all around the room, encircling the desk. With my feet planted on her charred, spongy remains, I was stuck, helpless, watching my mother burn and scream in never-ending misery.
