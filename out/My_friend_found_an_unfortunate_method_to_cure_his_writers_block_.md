@@ -340,7 +340,7 @@ He slammed down a binder and several notebooks onto the table in front of us. He
 
 
 
-“Thomas,” I said as I was met with a glair for interrupting. “Slow down, have you slept since you got in that car accident?” He blinked at me slowly and glanced around as if he was just coming out of a coma. 
+“Thomas,” I said as I was met with a glare for interrupting. “Slow down, have you slept since you got in that car accident?” He blinked at me slowly and glanced around as if he was just coming out of a coma. 
 
 
 
