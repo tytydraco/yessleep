@@ -1,85 +1,112 @@
-Part 5 [here](https://www.reddit.com/u/Screwlost/s/DCHR2hhVkY)
+***Sorry, this is Part 7***
 
-I woke up with blood on my hands and no memory of the night before. Not an unusual occurrence lately, except this time the blood wasn't mine. And there were fragments of something soft caught under my fingernails.
-
-"You were sleepwalking again," Maria said, her voice carefully neutral as she helped me clean up. "We found you at the ward boundaries. You were... eating something."
-
-The taste in my mouth confirmed my worst fears. Sweet. Fresh. Young.
-
-"Did I..."
-
-"No children are missing from the village," she assured me quickly. "We think it was a cat. Or at least, we hope it was a cat."
-
-The transformations were getting harder to control. Despite Lola Rosa's herbs, despite the protective amulets, despite my own desperate will to resist, the monster was winning. Last week, I'd caught myself crafting a lure from hair and blood – an aswang hunting charm. Yesterday, Maria found me teaching a young patient how to split his tongue.
-
-"Your body remembers what it almost became," Lola Rosa said, forcing more bitter herbs down my throat. "And Susannah's family... they're doing something. Getting stronger. The barriers between human and monster are thinning."
-
-She was right. The attacks had changed. No longer content with isolated feedings, the aswang were transforming entire families. Children would go to school normal and come home with hollow bones. Parents would wake up with their organs rearranged, their tongues already forked.
-
-Father Santiago reported seven infant disappearances in one night. "They're not eating them anymore," he said, his face grey. "They're... changing them. Keeping them alive. Building an army."
-
-The partially transformed boy we'd tried to save escaped our care. We found him two days later, leading other children into the forest at sunset. His tongue had fully split, and when he smiled, his teeth went all the way back into his throat.
-
-"Big sister Susannah says it's time," he told us in that horrible double-voice. "The old ways are ending. A new hunger is rising."
-
-That night, I dreamed of flying. Not the usual nightmare of transformation, but something worse – a memory. I was with Susannah, high above the clouds, our wings brushing. Below us, a village slept.
-
-"Watch," she whispered, her beautiful face shifting into something ancient and terrible. "I'll teach you how to make them ripen."
-
-I watched as she cast something down – a charm made of bone and hair, eerily similar to the one I'd caught myself crafting. Where it landed, children began to cry. Parents thrashed in their sleep. Something dark took root in their dreams.
-
-"Fear makes the meat sweeter," she explained. "But terror... terror makes them transform better."
-
-I woke screaming, my tongue fully extended, tasting the air for prey. Maria found me trying to crawl out the window, my back split halfway open, embryonic wings pushing through the skin.
-
-"It's getting worse," she said as she helped Lola Rosa force-feed me purifying herbs. "They're doing something to accelerate the change. Not just in you, but in everyone they've tainted."
-
-The evidence was everywhere. Our healing house was overwhelmed with victims, their transformations more aggressive than anything we'd seen before. They arrived human and turned within hours, their bodies twisting into new horrors.
-
-A mother brought in her twin infants, both already showing signs of the change. As Lola Rosa examined them, one baby's tongue shot out, wrapped around its sibling's throat. The other baby laughed – a sound no infant should make.
-
-"You can't save them all," Susannah's voice called that night as wings darkened the sky above our house. "You can barely save yourself. I can smell your hunger, love. Smell the changes you're trying so hard to fight."
-
-She was right. The hunger was constant now, maddening. I caught myself watching Maria when she slept, imagining how easy it would be to split her open, to taste her mortality. Sometimes I woke up with my teeth in my own flesh, trying to feed on myself.
-
-The worst part was how good it felt when I gave in even slightly. Every small surrender brought a rush of pleasure, a sense of rightness. The monster in my blood sang with joy each time I slipped.
-
-"It's normal," said our newest patient – a middle-aged man fighting his own transformation. "The hunger... it feels like coming home."
-
-I recognized him from Mrs. Reyes's descriptions of recent attacks. He'd been one of Susannah's latest victims. But something was different about his transformation.
-
-"She's learned new tricks," he told us, his skin rippling with partial changes. "New ways to spread the curse. It's not just about feeding anymore. They want to transform everyone. Make a world where they don't have to hide."
-
-That night, Maria showed me more of her grandfather's journals. The latest entries, written just before his death, spoke of an ancient prophecy.
-
-"When the old blood finds new ways to spread, when the hungry ones walk in daylight, when children birth monsters and monsters birth worlds... then comes the time of choosing. Then comes the war that ends all wars."
-
-"What does it mean?" I asked.
-
-"It means they're not just hunting anymore. They're evolving. Transforming not just bodies, but reality itself." She turned to a page filled with sketches of anatomically impossible creatures. "These were his last drawings. The things he saw them becoming."
-
-I recognized some of the forms. They'd been appearing in my dreams. In my own partial transformations.
-
-The next day, three more children disappeared from the village school. We found them at sunset, standing in a circle in the town square. Their bodies were changing, but not into any form we'd seen before. They were becoming something new. Something that shouldn't exist.
-
-Above them, Susannah perched on the church spire, her own form shifted into something that hurt my eyes to look at. Wings sprouted from wings. Mouths opened within mouths. Reality bent around her like a fever dream.
-
-"The old ways are dying," she called down to me. "The world is hungry for change. Join us willingly, or watch everyone you try to save become something glorious and terrible."
-
-That night, as I helped Lola Rosa tend to our increasingly monstrous patients, I felt something crack inside me. Not my bones this time, but something deeper. My reflection in the window showed my eyes changing – not just the color, but the shape. The number.
-
-"We're running out of time," Maria said, watching me struggle to maintain my human form. "They're planning something big. Something soon."
-
-In the distance, wings blotted out the moon. But they weren't normal wings anymore. They were something new, something that existed in more dimensions than our world was meant to hold.
-
-The war was coming. But it wouldn't be the war we'd trained for.
-
-This would be a war for reality itself.
-
-And I was still transforming, still hungry, still dreaming of Susannah's kiss.
-
-Still wondering if fighting the change was the right choice after all.
+Part 6 [here](https://www.reddit.com/r/nosleep/s/siIxcXebHZ)
 
 
 
-Part 7 [here](https://www.reddit.com/r/nosleep/s/ltEwFgAmhU)
+The children attacked at dawn.
+
+Not sunset, when we expected danger. Not midnight, when aswang power peaked. But dawn – when our guard was lowest, when Lola Rosa's wards were weakest, when the night's horrors should have been retreating.
+
+They came through the windows of our healing house, their small bodies twisted into impossible shapes, their tongues weaponized into barbed whips. The patients we'd been trying to save turned on us, their transformations accelerating at the sight of their transformed siblings.
+
+"Don't kill them!" Maria shouted as I raised the stingray tail. "They're still children!"
+
+But were they? The thing that had once been a six-year-old girl lunged at me, her ribcage opening like a flower made of teeth. Inside, where her heart should have been, dozens of tiny mouths whispered Susannah's name.
+
+We lost three patients that morning. Not to death – to transformation. By the time we drove the children back, half our healing house had turned, breaking free to join the growing army of monsters outside.
+
+"It's starting," Lola Rosa said, treating the acid burns left by transformed children's saliva. "The final push. They're done playing."
+
+She was right. The attacks came in waves after that. Coordinated. Strategic. The aswang had never hunted like this before, had never worked together with such terrible purpose.
+
+Monday: They poisoned the town's water supply with something that made people's organs try to escape through their skin.
+
+Tuesday: Every pet in the village transformed simultaneously, turning on their owners with too many teeth and impossible anatomies.
+
+Wednesday: All the pregnant women in three neighboring villages went into labor at once, birthing things that slithered away into the darkness.
+
+"They're changing their tactics," Maria observed as we fortified the healing house. "Before, they hunted to feed. Now they're hunting to transform. To recruit."
+
+But it was worse than that. They weren't just spreading their curse – they were rewriting the rules of reality itself. Each new transformation was stranger than the last, defying not just biology but physics. Space warped around their victims. Time moved wrong in transformed areas.
+
+I found myself both horrified and fascinated. The monster in my blood recognized the pattern, understood the terrible beauty of what they were creating. Sometimes I caught myself admiring the elegant brutality of their attacks, the artistry of their corruption.
+
+"Focus," Maria would snap when she caught me staring too long at the transformations. "Remember what they really are."
+
+But what they really were was changing too.
+
+Then came the night we thought we'd won.
+
+It started with a breakthrough – Lola Rosa found a way to strengthen her protective wards using the essence of partially transformed victims who'd successfully turned back. My blood, purified through weeks of suffering, became a key ingredient.
+
+The new wards worked better than we'd dreamed. When Susannah's family attacked that night, they couldn't break through. More than that – the wards hurt them. Really hurt them.
+
+For the first time, we heard aswang scream in pain rather than pleasure.
+
+"We can fight back," Maria said, her eyes shining as she watched them retreat. "We can hurt them now."
+
+Watching Susannah writhe against the barrier, her impossible form trying to find a way through, I felt a surge of triumph. Of hope. The monster in my blood went quiet, cowed by the power of our protection.
+
+We fortified the entire village by morning. More villages requested our help. For one brilliant week, it seemed like we'd found the answer. The aswang couldn't breach our walls. Couldn't take any more victims. Couldn't spread their corruption.
+
+I should have known it was too easy.
+
+The truth came from one of our youngest patients – a four-year-old boy we thought we'd successfully turned back. He was almost completely human again, his transformation reversed, when he looked at me with suddenly ancient eyes.
+
+"Big sister Susannah says thank you," he whispered. "The wards are exactly what she needed."
+
+Too late, I understood. We'd created a network of powered barriers throughout the region, all of them containing traces of my transformed blood. Blood that was still connected to Susannah, still sang with her corruption.
+
+We'd built them a web. A circuit. A way to channel power like they'd never had before.
+
+The wards exploded at midnight. Not just at our healing house, but everywhere we'd placed them. The blast transformed everyone within a hundred-foot radius instantly. The lucky ones died. The rest... the rest became something new.
+
+I watched in horror as reality tore open, as people I'd tried to help morphed into geometric impossibilities. Saw Maria's face as she realized what we'd done – what I'd done. My blood. My corruption. Our arrogance.
+
+"You helped us create something beautiful," Susannah's voice echoed from everywhere and nowhere. Her new form stepped through a tear in space-time, more magnificent and terrible than ever. "You helped us reshape the world."
+
+I tried to fight as she approached, but my body recognized its maker. My blood sang to her. The monster inside me rejoiced at her touch.
+
+"Look," she commanded, turning my face toward the village.
+
+I looked. God help me, I looked.
+
+The world was transforming. Reality buckled and shifted. Humans became monsters became abstract concepts became hungry gods. Children walked on ceilings, their bodies bent backward, their laughing mouths full of universes. The sky had teeth. The ground had wings.
+
+I'd helped cause this. My blood had made it possible.
+
+"The old world is ending," Susannah purred. "And you're going to help us birth the new one."
+
+I broke. Ran. Kept running until I collapsed in the ruins of the church, where Father Santiago's body was busy turning itself inside out.
+
+That's where Maria found me, hours later. She was bleeding from wounds that didn't obey physical laws, but she was alive. Still human.
+
+"Lola Rosa," I managed to ask.
+
+"Alive. Badly hurt. But she knows what we did wrong." Maria knelt beside me, her eyes fierce despite her injuries. "More importantly, she knows how to fix it."
+
+"How? The world is literally falling apart. Reality is-"
+
+"Breaking. Yes. But that means all the rules are breaking." She grabbed my shoulders. "Including the rules that make aswang what they are."
+
+Hope. Tiny, fragile, but real.
+
+"There's more," she said. "We found my grandfather's last journal. The one they thought they'd destroyed. It tells us exactly what they are. What they're becoming. How to stop them."
+
+Above us, the toothed sky gnawed on the moon. Around us, the transformed village screamed with new and hungry voices. Inside me, the monster stirred, eager to join the chaos.
+
+But for the first time since the wards broke, I felt something else.
+
+Purpose.
+
+"Tell me what we need to do," I said.
+
+The world was ending. Reality was breaking.
+
+But maybe that meant we could reshape it too.
+
+
+
+
+***Conclusion [here](https://www.reddit.com/r/nosleep/s/9MbsRtK6ks)***
