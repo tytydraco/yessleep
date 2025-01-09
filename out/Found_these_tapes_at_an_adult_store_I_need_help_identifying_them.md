@@ -10,3 +10,5 @@ We didn’t have a VHS player at work so I knew I wouldn’t be able to share th
 
 
 The video seemed to be the first episode of a series (series of horrors, if you ask me). I knew I needed to find out more about them and where they came from after seeing that. What was the  purpose of this? Is it real? So many questions left unanswered.  This is why I’ve decided to share my story with you today. I've tried typing keywords into different sites and looking through hundreds of videos to find them, no need to suggest it. I haven’t found anything relating to these two girls anywhere. I plan on uploading the videos to my reddit account so that hopefully someone can help me. In the meantime, if you know anything please send me a DM. Any help is appreciated, thanks.
+
+*Update (01/09/24): I’ve posted some screenshots from the first video to my account and will post some from the other videos as I’m digitizing them.  Please check them out and let me know if they look familiar.  Thanks.*
