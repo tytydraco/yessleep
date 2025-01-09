@@ -1,0 +1,25 @@
+My grandmother told my father of a story that she experienced when she was a child, who later passed the story down to me when I was a kid. It is a stretch of road just off the freeway west of Bartlesville in northern Oklahoma where locals talk of dark myths of everything from a demon called 'Catman' that lingers at night to a weird phenomenon called Gravity Hill. But these horrifying myths don't compare to what my grandmother swears is a very real, and very tragic, story that she experienced growing up. 
+
+My grandmother was around 8 or 9 years old during the 1950s when one day her and her three friends left the house to go explore and play in the woodlands in Ochelata, OK which was about a ten minute drive to a hidden stretch of dirt road at the time called Gap Road. Probably no more than a couple of miles, this piece of road has had an extremely haunting past.
+
+During the 1920s, one of Oklahoma's worst incidents took place which many would know as the Tulsa Race Riots where innocent black Americans were murdered. These riots spilled over into the neighboring town of Bartlesville, where many victims were kidnapped and taken to a large ominous tree just off the bend of the main freeway where they were lynched. The official death count my grandmother told my dad was around 16, but she said it could've been as high as 40.
+
+While they were playing, they'd worked their way up along the road all the while blissfully unaware that the road would take them to the sight of the massacre. They stopped at the tree where it took place because it stood out from all the others. It was in the middle of the summer, yet there wasn't a single leave on it. It loomed ominously taller than the other trees and gave off a very negative vibe.
+
+One of my grandmother's friends then spotted what looked like a sharpened stick as if someone had tossed it up towards the tree and it got caught between the branches. He climbed up and tossed it down and the four looked it over before coming to the conclusion that it was probably used to poke the victims as they were strangled to death to see if they were still alive. And when they all died, they tossed it up into the tree only for it to be discovered by them.
+
+They made jokes about it, either out of racism or to make light of a dark situation. My grandmother would never tell me which is which when I asked her as a grown man other than her not wanting to think about it. However she did tell me one thing led to another and they all suggested she take it home with her. She agreed, maybe to appear cool in front of her friends.
+
+She took it back with her later that night and sat it in her bedroom and went about business as usual until it was time to go to bed. That was when she said the real horror started.
+
+She awoke almost past 11PM when she heard the sounds of knocking on her window that came at quick succession three times. \*Tunk-tunk-tunk\*. She'd pulled the sheets up over her head because she was afraid to look out the window. She peeked lightly just to see the spear where she'd left it leaning against the corner by her bedroom door when she pulled the covers back over. \*Tunk-tunk-tunk\*. The knocks slightly louder than the last.
+
+She got the courage to lower the blanket past her eyes, only to feel her skin grow pale and a pit in her stomach formed. She swore to me, a woman now in her mid to late 70s, that the spear went from leaning against the corner of the room, to being on the floor next to her bed with the sharpened end pointing at the window. She didn't even know it moved, almost as if it'd floated when she wasn't looking was how she described it.
+
+That whole night she told me that the sounds on the window continued, and periodically the spear would end up somewhere else in her bedroom, and she blamed herself feeling cold mainly on her being very scared but I wondered later if the haunted and tormented souls were attached to that spear that were still suffering decades later.
+
+When the morning came, she told me she didn't wait to get breakfast and raced into town as quick as she could to a payphone in town where she'd call her friends frantically to come to her house and get the spear. When they arrived confused, she didn't bother explaining to them why she wanted it gone. She'd doubt they'd believe her anyways, so she told them to take it and throw it into the Caney River. The fear on my grandma's face was enough for them to comply.
+
+They took the spear from her bedroom and walked a little further into the woods where the Caney River was, and threw the spear in it. Watching it float on down, they left to tell my grandmother that it was gone. She didn't experience anything else like that growing up, but it's a story she told me that made her believe there was something more beyond our realm that made her the superstitious woman she is today.
+
+[Red box approximate location of the spear's location, blue box the Caney River](https://i.imgur.com/Kzi5vFK.jpeg)

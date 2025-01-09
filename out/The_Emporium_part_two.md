@@ -53,4 +53,5 @@ I'd forgotten I even sent him on that mission.
 
 I head up to the front of the store, and apparently Adam had an episode that no one alerted me to. The openers will be pissed, but I don't care. I am *not* cleaning up all this. Besides, they'll blame it on Lenny. 
 
-As I approach the time clock, eager to get home and be done with this night, I hear a squish. I lift up my foot, and it's the fucking Turd Slug, feasting on a half eaten mouse. I kick it across the floor and punch my numbers in. Maybe tomorrow will be better.
+As I approach the time clock, eager to get home and be done with this night, I hear a squish. I lift up my foot, and it's the fucking Turd Slug, feasting on a half eaten mouse. I kick it across the floor and punch my numbers in. Maybe [tomorrow](https://www.reddit.com/r/nosleep/s/tTdlukgDE9) will be better.
+

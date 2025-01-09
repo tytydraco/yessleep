@@ -28,13 +28,13 @@ Tray’s idea made sense, but I couldn’t shake the creeping feeling I had abou
 
 I pulled up the menu and tried clicking the “Kick” option beside the mystery player’s name. The moment I pressed the button, the game froze. My screen flickered to black, and I could hear my monitor crackling like old tv static.
 
-The monitor remained dark for a few seconds, until an unexpected pop-up window appeared. It was an ad for a taxi service, featuring a pixelated photo of an outdated Crown Victoria taxi, with bold, bright yellow text that read: “Best service! Pickup and drop-off, available 24/7!” The timing felt eerily strange, and completely out of place. I hesitated, staring at the ad for a moment, before hovering my mouse over the “X” to close the window. It seemed too coincidental to ignore.
+The monitor remained dark for a few seconds, until an unexpected pop-up window appeared. It was an ad for a taxi service, with a pixelated photo of an outdated Crown Victoria taxi, and bold, bright yellow text that read: “Best service! Pickup and drop-off, available 24/7!” The timing felt eerily strange, and completely out of place. I hesitated, staring at the ad for a moment, before hovering my mouse over the “X” to close the window. It seemed too coincidental to ignore.
 
 As soon as I closed the window, the game’s loading screen appeared, and I waited for the spinning icon to vanish. When the game finally reloaded, Cabman was still there, standing in the same spot as if he were waiting for us. This wasn’t normal, but I didn’t know what to do.
 
 “No good,” I told the others, “Cabman is still in the game. I can’t kick him for some reason.”
 
-Zoe tried to stay calm. "Maybe we have to finish the match. Let’s just play and see if it will take us back to the lobby after."
+Zoey tried to maintain her composure. "Maybe we have to finish the match. Let’s just play and see if it will take us back to the lobby after."
 
 Tray seemed annoyed, but none of us knew what else to do, so Zoey and I started our run with Cabman. It became obvious that he wasn’t just any player. As the match continued, strange things began happening.
 
@@ -83,3 +83,6 @@ Behind the wheel sat the ghostly figure of Cabman, with his glowing eyes piercin
 “I don’t think we have much of a choice, Zoey. If we don’t get in the car, we’re dead,” I exclaimed, my voice trembling with dread.
 
 “I hate that you’re right,” Zoey replied reluctantly, her hesitation evident. “Let’s just hope he’s actually going to help us...”
+
+  
+[Part 2](https://www.reddit.com/user/dstodart/comments/1hxmhfl/the_cabmans_code_part_2/)
