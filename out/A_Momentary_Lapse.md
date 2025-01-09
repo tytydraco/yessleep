@@ -45,3 +45,5 @@ For the first time, I felt a flicker of hope. Alice wasn’t backing down. She w
 And then, amidst my helplessness, something shifted. A faint tingle in my right arm. Was the entity so preoccupied with Alice that it was losing its grip on me? Tentatively, I focused on my hand, willed my fingers to move. To my astonishment, they obeyed. My hand trembled, weak and sluggish, but it was mine. The realization hit me like a lightning strike: I had a chance. I could fight back.
 
 Summoning every ounce of courage, I reached for the knife it had set down moments ago. My movements were sluggish, like pushing through water, but I managed to grab the blade. With a silent, desperate resolve, I plunged it into my left arm. Pain seared through my body, but the entity screamed—an otherworldly, guttural sound that reverberated in my skull. For the first time, it faltered.
+
+[Part 4 - Out of Thin Air](https://www.reddit.com/r/nosleep/comments/1hxhxbc/out_of_thin_air/)
