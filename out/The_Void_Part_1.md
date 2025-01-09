@@ -2,7 +2,7 @@
 
 **Mission Date: 2837.14.01**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 We’ve entered the void—an uncharted stretch of space spanning roughly two light-years across, according to initial scans. It’s unlike anything we’ve encountered before. No stars. No debris. No radiation. Just a perfect, cold vacuum.
 
@@ -46,7 +46,7 @@ For a long time, he simply stood there, staring out the viewport. It didn’t ma
 
 **Mission Date: 2837.14.02**
 
-**Lieutenant Rena Malik**
+**Lieutenant Rena**
 
 I’ve never seen anything like this.
 
@@ -84,7 +84,7 @@ The ship felt colder now, the air heavier. He could feel his pulse pounding in h
 
 “Kale,” he said aloud, forcing the sound of his own name to ground him. “You’re just jumpy. Pipes and coolant flow. Nothing else.”
 
-But deep down, he wasn’t sure. 
+But deep down, he wasn’t sure.
 
 The clicking noise didn’t return, but as Kale left the room, the hum seemed to follow him, growing fainter with every step.
 
@@ -92,7 +92,7 @@ The clicking noise didn’t return, but as Kale left the room, the hum seemed to
 
 **Mission Date: 2837.14.03**
 
-**Engineer Kale Torres**
+**Engineer Kale** 
 
 I don’t know how to explain this without sounding insane, but I swear I saw space move. Not a ship, not a meteor—space itself. It was like watching a wave ripple across water, except there’s no air, no light to carry a wave. It was subtle, almost imperceptible, but I know what I saw.
 
@@ -128,7 +128,7 @@ Kale muttered something under his breath, too quiet for anyone to hear, and push
 
 **Mission Date: 2837.14.04**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 The anomaly is growing.
 
@@ -154,7 +154,7 @@ He pressed his feet into the cold grating of the floor now, grounding himself in
 
 **Mission Date: 2837.14.05**
 
-**Lieutenant Rena Malik**
+**Lieutenant Rena**
 
 The distortion is no longer just making us jumpy and paranoid. It’s affecting the ship.
 
@@ -190,7 +190,7 @@ It read: Mission Date: 2837.14.04. Kale stared at the numbers, his heart poundin
 
 **Mission Date: 2837.14.06**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 We’ve lost our course.
 
@@ -246,13 +246,13 @@ She held the tablet out to him. The logs were there, neatly timestamped—but th
 
 “I don’t know,” Rena said. “But I think it’s getting worse.”
 
-Elias looked back at the ripple. It pulsed steadily, as if it was alive. He didn’t say it aloud, but the thought gnawed at him: What if we’re already too late? 
+Elias looked back at the ripple. It pulsed steadily, as if it was alive. He didn’t say it aloud, but the thought gnawed at him: What if we’re already too late?
 
 **Log Entry 7**
 
 **Mission Date: 2837.14.06**
 
-**Lieutenant Rena Malik**
+**Lieutenant Rena**
 
 The distortion’s growth rate has accelerated. I could’ve sworn we measured it yesterday and calculated two days until it would envelop us, but now it’s as if we’ve lost time.
 
@@ -296,7 +296,7 @@ Rena nodded reluctantly, though her eyes lingered on the distorted chart. Kale, 
 
 **Mission Date: 2837.14.04**
 
-**Engineer Kale Torres**
+**Engineer Kale** 
 
 I’m starting to think Rena’s right. About the time, I mean. Yesterday—if it was yesterday—I ran a diagnostic on the engines. Everything checked out. Today, I ran it again, and the logs said it hadn’t been done in three days.
 
@@ -326,7 +326,7 @@ Kale’s breath caught as the figure paused, shifting slightly as if watching hi
 
 **Mission Date: 2837.14.02**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 Something is wrong with the logs.
 
@@ -364,7 +364,7 @@ Elias didn’t reply. He couldn’t. Because deep down, he suspected she was rig
 
 **Mission Date: 2837.14.09**
 
-**Commander Elias Vos**
+**Commander Elias**
 
 We’re unraveling.
 
