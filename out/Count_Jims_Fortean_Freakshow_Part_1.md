@@ -106,3 +106,5 @@ I went outside and stood on my porch under the now inky black of a Texan sky as 
 
 
 I will be ready. And if the worst happens, hopefully whoever finds this journal can do something.
+
+Part 2 here: https://www.reddit.com/r/nosleep/comments/1hwzrrv/count_jims_fortean_freakshow_part_2/
