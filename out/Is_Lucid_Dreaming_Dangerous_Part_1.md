@@ -70,11 +70,7 @@ Because of reddits character limit, I have to spread out the entries over a few 
 
 I will also include his very first entry because it has some useful info for a lot of the things he talks about in his other entries.
 
-
-
 \*\*\*
-
-
 
 **10/28/24 Entry #0 - Why I Want to Learn How to Lucid Dream**
 
@@ -116,7 +112,7 @@ I want to visit her in a dream where I’m aware and conscious, and if lucid dre
 
 But yeah, that’s mainly it for this intro, I just wanted to write about my new discoveries. I’m super excited to get started tonight!
 
-**10/29/24 Entry#1 - MILD fail(update)**
+**10/29/24 Entry#1 - MILD fail** **(update)**
 
 Last night I tried MILD for the first time, and it didn’t work at all. I just went to sleep and had a dream like normal.
 
@@ -134,7 +130,7 @@ WILD stands for “Wake Induced Lucid Dreaming” and what you have to do is clo
 
 You literally just have to lay there and not move a single muscle, and after like a half hour, a dream will start but your brain will still be wide awake. It sounds easy, but it’s actually really hard. I failed 2 times before I could get it to work.
 
-After like 5 minutes of laying there, I started to get really itchy. The video I watched said that your body will do that to test to see if you’re still awake, but if you ignore the itch, you pass the test. But I didn’t JUST get super itchy, I also started getting these weird urges to flex certain muscles. Idk how to describe it, it was just like my body did not want to sit still.
+After like 5 minutes of lying there, I started to get really itchy. The video I watched said that your body will do that to test to see if you’re still awake, but if you ignore the itch, you pass the test. But I didn’t JUST get super itchy, I also started getting these weird urges to flex certain muscles. Idk how to describe it, it was just like my body did not want to sit still.
 
 2 times I gave in and itched myself. Since last night was a Friday, and I could sleep in, I could afford to stay up late until I got it. And on my 3rd attempt, it worked. I wish I would’ve just given up because last night was the most scared I’ve felt in years.
 
@@ -242,11 +238,11 @@ I was determined to stay completely silent until I suddenly felt hair brushing a
 
 I absolutely lost it.
 
-I couldn’t hold it anymore, I screamed with everything I had in me. I squeezed my eyes tighter and screamed and screamed, it was all I could do.
+I couldn’t hold it anymore; I screamed with everything I had in me. I squeezed my eyes tighter and screamed and screamed, it was all I could do.
 
 I felt a firm grip on my shoulders shake me, it was trying to silence me. I felt feeling enter my body again, and I thrashed around screaming louder now that I could finally hear myself.
 
-In between one of my yells, I heard my dads voice. I opened my eyes and saw that he was the one holding my shoulders.
+In between one of my yells, I heard my dad's voice. I opened my eyes and saw that he was the one holding my shoulders.
 
 It took me a moment to believe it, but once I did, my body finally relaxed.
 
