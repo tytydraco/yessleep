@@ -1,0 +1,62 @@
+I am Amanda Willis. I live in a small town in the northern part of Michigan in a small cabin in the woods. Living in the woods in a secluded area is tough and often leaves people feeling lonely. As a result, I decided to go to my local shelter and adopt a dog. I figured I lived in a secluded area with lots of land and forest for the dog to run around. I also worked, mostly, from home giving me the free time needed to take care of a dog. 
+
+
+
+At the local shelter, I noticed nothing odd. It was the normal barks and whimpers of dogs, wagging their tails excitedly to leave their kennels. I’ll be honest, I always hated going to Animal Shelters. Seeing all the animals, some cowering, and some begging to be let out always filled my heart with sorrow. I was sick of the loneliness though, and to be completely honest I am not the biggest people person. So a dog it was. I had always wanted a dog as a kid and loved every dog I was allowed to pet. My parents could never afford one and I never got around to getting one as an adult. 
+
+
+
+I was most interested in getting a larger dog, one who would enjoy running around my land and perhaps even go on long walks with me. Most of the dogs just didn’t appeal to me until I came across a large scrawny black and white mutt. I’m not the greatest with dog breeds but I had guessed possibly border collie, greyhound, and perhaps a little bit of Pitbull. The shelter labeled the dog as a border collie mix. The dog had a longer snout, blockier head, long thin legs, and a leaner build. He had half-pricked ears, one slightly floppier than the other. His eyes were a icy shade of blue but one had brown mixed in. He was stunning. I knelt beside the cage and he wagged his tail and hesitantly got up and approached. His movements were… off. It was like that of a creature not quite used to walking on four legs. Like a human trying to walk on four legs. 
+
+
+
+“Who’s this guy?” I had asked the worker who had accompanied me into the kennel room.
+
+
+
+“Oh him…” She had said, nervously, “He’s a dog we recently took in, found by some stranger on the side of the street. No sign of a microchip and no one has taken him in. But…” The lady had trailed off, clearly uncertain whether to say something.
+
+
+
+“What about him?” I had asked.
+
+
+
+“He acts a little weird. Doesn’t play with the other dogs, heck the other dogs seem scared of him. Whenever he approaches even the friendliest dogs we have at the shelter he sends them running away barking and snarling, hackles raised, and trembling. He’s been returned five times in the month we have had him. All without notice. The owners always return looking nervous and never give us a clear answer.” The shelter worker stuttered out her reply. At that moment I felt bad for the poor boy. It wasn’t his fault but I guess I should’ve heeded the warnings. I adopted him and took him home that day and things got weirder each day. 
+
+
+
+On the way home, I took him to the local pet store, a small family-owned business, on a leash. Every dog that came across him lunged and barked, cowering behind their owners. Every dog no matter the breed or size. Even a guide dog I had frequently met when I went into town had lost it. That dog was the most stable ever, never barking or showing a speck of fear or aggression to anyone. It was odd but I just figured it was nothing. Perhaps the normal. I had never owned a dog before so I didn’t question it. I had, jokingly at the time, named him Cujo after the rabid St. Bernard in Pet Semetary. Now I’m afraid that it isn’t a joke anymore. 
+
+
+
+The first odd behavior I noticed was the way he seemed to stare deep into nothingness. I had taken him to the vet, concerned about some brain problem, but there was nothing. He was, as the vet said, healthy as a horse. I awoke some nights to him on top of the bed, his icy blue eyes staring deep into my soul. His eyes, some days, were too human-looking. They weren’t the normal eyes of a dog, even for the ones that have blue eyes. 
+
+
+
+Everything went silent when we entered the woods together. Birds flew away, crickets stopped chirping, not a single snap of the twig in the distance, just complete dead silence. His eyes appeared to glow in the dark, a piercing blue through the dark of night. 
+
+
+
+The experience that confirmed my theory was after a month of owning Cujo, the name had stuck. I awoke at night to a strange silence that had fallen across the house. I got up, my throat dry, to get a drink of water. The house was dead silent, not even the house settling was heard. My heart hammered in my chest as I headed for the kitchen. A *crunch, snap, crack* was heard from the direction of the kitchen.
+
+
+
+“Cujo…?” I called out, hesitantly and the noises stopped. I entered the kitchen to see Cujo standing on his back legs, his arms positioned weirdly and the worst part about it, his head was turned around so he was staring at him. His back facing me but his head was swiveled around. His mouth was partially open, drool dripping from his mouth. I let out a scream and sprinted to my room.
+
+
+
+The next morning when I crept out, Cujo came to me with a wagging tail, holding something in his mouth. He dropped it at my feet and I nearly gagged as the body of a dismembered squirrel landed at my feet, its intestines leaking from his body. I found many more of those that day of many different animals. Even a deer, he had somehow brought into the house. The smell of blood and decay was evident even after I scrubbed the house from head to toe. At that point, I didn’t know what to do. I was terrified of him but I didn’t want to return him. What would I even tell them? Plus he wasn’t a bad companion outside of those incidents. 
+
+
+
+The worst experience of all was when I awoke, facing the ceiling. I didn’t open my eyes right away but I felt something dripping onto my face. I groaned and wiped the liquid away. I opened my eyes and let out a scream. Cujo was on the ceiling, his jaw stretched out so wide it looked to be dislocated. He was perched on the ceiling, his body twisted in ways that shouldn’t have been possible. His eyes were glowing not a faint glow but a full-blown glow that illuminated the whole room, a light blue glow. His teeth were sharper and his nails were gnarled claws, digging into the ceiling. Bits of plaster fell onto my face, I froze and couldn’t move. I was so terrified I was frozen out of fear. The creature above came to change, its face fading from one of a dog’s into one that is almost human, its fur and flesh fell away turning into the skin, hair sprouting from its head. The creature looked like me… Except it was wrong. Some things weren’t right. Its eyes were slightly too close, nails a little too sharp, and nose the wrong shape. To the blind eye, it was me though. It took one of its bony arms and hit me as hard as he could. 
+
+
+
+I awoke with chains connecting me to the wall. No matter how hard I tugged or shifted them I couldn’t figure out a way to unlock them. It was like the creature welded them to my legs, I could hardly even move.
+
+
+
+I’m typing this out on the last of my phone battery. No one is picking up my calls and I’m afraid of what is to come. I came with a warning. There is someone out there pretending to be me. If you meet someone with long brown hair with green eyes that seem a little too close claiming to be Amanda Willis that is not me. I am locked in a basement, chains welded to my legs. I fear I may die down here and that thing is going to take my place. I’m afraid it has already hurt people. If you adopt a dog from a local shelter and he displays any unusual behavior or appears wrong in any way return the dog, and get rid of it as soon as you can. That is not a dog. 
+
