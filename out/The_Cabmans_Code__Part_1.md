@@ -84,5 +84,4 @@ Behind the wheel sat the ghostly figure of Cabman, with his glowing eyes piercin
 
 “I hate that you’re right,” Zoey replied reluctantly, her hesitation evident. “Let’s just hope he’s actually going to help us...”
 
-  
-[Part 2](https://www.reddit.com/user/dstodart/comments/1hxmhfl/the_cabmans_code_part_2/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1hxo8kk/the_cabmans_code_part_2/)
