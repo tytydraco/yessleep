@@ -1,0 +1,23 @@
+Saturday mornings always had a particular flavor, a mix of calm and routine. As usual, I woke up a little later, savoring the luxury of sleeping in. Outside, the weather was freezing, a fine drizzle falling against the windows, making the city even quieter than usual.
+
+I got ready quickly, throwing on a thick coat and my favorite scarf before heading out. I needed to stop by the office to pick up some documents. A chore, but necessary. The streets were deserted, which was strange, even for a Saturday morning. Not a sound, not a single car. I reassured myself, thinking that the freezing weather must have kept everyone indoors. But as I walked, I couldn’t shake off an uneasy feeling, you know, like the one you get when you feel someone’s eyes on you but can’t figure out where it’s coming from.
+
+I quickened my pace, refusing to look back. It was ridiculous, of course. I was alone. When I arrived at the office, everything went as usual. A few colleagues were there, chatting around the coffee machine. Nothing out of the ordinary. The day passed quickly, filled with the usual tasks.
+
+On my way out, I stopped at the bakery to grab some bread. Once inside, as I reached for my wallet to prepare the change, I clumsily dropped my bag. Bending down to pick it up, I felt someone brush past me quickly. A silhouette I hadn’t noticed before, leaving the bakery. The scent of their perfume was eerily familiar, identical to mine. They were also wearing clothes similar to mine: a gray top, a long black coat, and boots just like mine. But I didn’t pay much attention to it, too busy gathering my things. After buying the bread, I headed home.
+
+But that feeling of being watched came back, stronger this time. As I walked down the street leading to my house, my eyes were drawn to a window in the building across the street. Someone was there, standing behind the glass. A still figure that seemed to be staring at me, eerily dressed in a way that was very similar to how I was dressed. I stopped, uneasy, and as soon as our eyes met, the figure stepped back, disappearing into the shadows of the room. A cold shiver ran down my spine.
+
+In the days that followed, things got worse. I started seeing that figure more and more often. Always from a distance, always at the same distance, always motionless. But every time I tried to approach, it disappeared. Then I began to notice troubling details. That person… they looked like me. Not just a little. It was me. But their gaze… that was what chilled me the most. Empty eyes and a smile… that smile was too wide, too rigid, as if it had been carved into their face.
+
+One evening, as I was heading home, I saw them standing at the far end of the street. They didn’t move, didn’t make a sound. They just stared at me. I ran to my house, slammed the door behind me, and locked all the bolts. Out of breath, I spent the evening watching through the window. They weren’t there anymore. But I knew they would come back.
+
+Then came that night. I was lying on the couch, casually watching an episode of Game of Thrones with a tub of Cookie Dough ice cream in hand (the best, no debate), when the power went out. The house was plunged into total darkness. I stayed still for a moment, listening to the silence, until I gathered the courage to head down to the garage and reset the circuit breaker. Once there, the garage door was slightly ajar. I knew I had closed it.
+
+Across the street, under the flickering light of a streetlamp, I saw them. Motionless. But this time, something was different. They were… taller. Terribly tall. Their arms and legs seemed unnaturally elongated, their thin and emaciated body casting a grotesque shadow on the ground. I froze, unable to look away.
+
+When I finally reset the breaker, the lights came back on, illuminating the street. They were closer now. Only a few meters away. I could see every detail: their face was identical to mine, but their eye sockets were empty, oozing a dark red liquid that looked like blood. Their smile had stretched far beyond the limits of what was humanly possible, revealing too many teeth, sharp and unnatural.
+
+They didn’t move, but their gaze seemed to pierce through me. I dropped the flashlight and ran, without looking back, all the way to my apartment. There, I hid under my bed, trembling, my heart pounding wildly.
+
+I don’t know how long I stayed there, but I heard them. Slow, dragging footsteps echoing through my house. Then a breath, long and cold, just on the other side of the door.
