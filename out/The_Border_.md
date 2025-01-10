@@ -1,0 +1,35 @@
+I live on a farm in rural Alberta. It’s quaint here, not much to do other than tend to the wheat fields and go into the nearest town for groceries here and there. I like it that way. 
+
+That morning started off like any other, made myself some coffee, sat down and read the news on my phone, which was connected to my starlink satellite. 
+
+
+
+I only realized something was off when I went out back to feed my horses. The hay bales I rolled up all over the field seemed to be closer to the house than I had put them. I thought nothing of it and gave the horses their feed, then went about my day as usual. The next day I got up to feed the horses, and noticed, again, that the bales were moved closer than the day before. I was starting to suspect some local kids from the nearest town were at fault, trying to mess with “the crazy reclusive farmer and make him question his sanity”. I had enough at this point so I moved those bales back to where I originally rolled them a couple days ago. It took me damn near until 5 pm that night, but I finally put all 30 of them back to where they originally were. “Thank god I had my tractor or this would have taken days”, I thought to myself. The next morning I didn't wake up on my own. Instead I woke up to a stench so bad that I thought someone had dumped a rotting body on my porch, turns out, I wasn't that far off. 
+
+
+
+I investigate where the smell is originating from and as I step out from the back porch, I see that all 3 of my horses were brutally decapitated, still in their stables. I hold back both vomit and tears as I try to think of who would do this. Then, it flashed in my mind like a grenade: Those damn kids. “I’m gonna kill ‘em” I angrily mutter to myself, so I devise a plan. I take my shotgun for scaring off critters out of the basement, and sit myself on the front porch, coffee pot on the side table, I’m gonna need that if I’m ever thinking of catching them in the act. As 7 pm rolls over the Alberta prairies, the last shafts of light duck behind the trees and cast long shadows over everything. At this point I’ve been sitting in the same spot waiting for those damn kids to come and try whatever they were going to do again, for 4 hours. It was getting dark, not too dark, but just enough to see out to the edge of my property. Just as my eyes were beginning to shut, I caught a glimpse of movement from the 10 acres of woods to the left. All the coffee I drank earlier began to race through me. “It’s finally time to catch these kids”. I sit incredibly still, trying not to make any sounds. The movement out by the forest became more apparent, and louder. I held my breath, squinting, trying to see who was coming through my wheat fields. What I saw shook me to my core. 
+
+From a glance, it looked like a person. But when I looked closer, it was most certainly not. It was all hunched over and almost looked like it was sneaking in the way a cartoon character from Scooby Doo would, if it was in the right setting it would look comical. But it was anything but. The figure was at least 10 feet tall, even with it hunched over and sneaking like that. I could tell from the very last shafts of dying light that it had gigantic, boney antlers, a skinny, but strong appearance and piercing eyes. I watched in shock and awe as the thing gently and easily picked up a hay bale and moved it 4 feet or so towards my house in the centre of the field. I watched it do that to all 30 of the bales and, finally, when it was done. It looked up from its work, almost admiring the field, turning its head from side to side. I could swear those eyes swept over me as its head scanned its handywork. Then quickly and quietly, darted back into the woods. I sat there for an hour before I had even a drop of courage to move. I couldn't believe what I saw. That… thing was not a kid. It wasn't even a human. That… thing killed my horses. Needless to say, I didn’t sleep at all that night. 
+
+
+
+
+
+The next morning, I had the difficult task of cleaning up my poor horse's bodies. It took me all day to bury them, the strangest thing, though, is that I couldn't find their heads. Anywhere. When I finally finished, I walked around to the front of the house and noticed something off. There were 2 bales of hay that looked oddly uniformly placed. I immediately thought back to the night before and remembered what the thing had done with the bales. I ran around my property and finally figured out a pattern. That thing, it made a ring around my house. Each bale was around half a kilometer from the house and 10 feet apart going all around. I slept unsoundly that night. For about a week, the bales seemed to not move at all, and I thought that was the end of it. Until I got a delivery of soil to the farm a couple days later.  
+
+
+
+
+
+I saw the pickup truck carrying the bags of soil in the truck bed, coming up the long drive. I walk out to the porch, ready to greet the man in the truck when he arrives. That’s when the truck driver passed the two bales of hay on the side of the driveway that acted as part of the ring around the house. The second he did, I heard a loud crash. I saw it’s antlers first, poking out of the tall wheat field. It was fast. So fast in fact that it took seconds for the thing to come from the woods, to the truck. The driver had no chance, no idea. The second the tires hit the bale border the ting launched itself from the wheat fields onto the truck. His screams are what I heard first, then the metal crunch of the truck’s body being stripped. I could see it clearly now. It was indeed at least 15 feet tall if it would stand fully upright. Its body almost looked like it was made of pure bone, and it had claws that resembled a wolverine. The thing was quite literally peeling off the layers of metal and smashing glass, trying to get to the man in the truck. I watched in absolute horror as it smashed through the windshield, and grabbed the man with as much ease as one would have picking up a baseball. Then, it crushed his skull like a grape in it’s fist. After dropping the body of the driver onto the broken wreck of the truck, the engine still sputtering, it looked directly at me, and I back at it. Then, it ran with as much speed as a Formula One car, into the woods yet again. 
+
+I couldn't believe that just happened. I stood there in complete shock. It was clear now what that thing did to my horses a week back, and now this poor man: They were both warnings. And today, it made clear what happens if anyone, including myself, steps foot outside the border. I am it’s captive
+
+
+
+So, I sit here now, writing this down in my room, trying to make sense of what happened. Call me crazy, I don’t care much of what anyone thinks, but I’ve been making a plan, and it’s simple: I’m going to run for it. 
+
+
+
+I can’t take it much longer. Every night that thing comes and makes sure I'm still here. It doesn't want me to leave. I guess you can call this a suicide note of sorts, because you and me both know damn well I’m not making it out of my property alive.
