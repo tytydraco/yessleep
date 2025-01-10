@@ -214,7 +214,7 @@ I make eye contact. I freeze, then the sting on my hand, the moment it starts, p
 
 “I don’t. Know.” The woman’s voice croaks. “It. Hurts.”
 
-The radio doesn’t ding or sound any bells, or pop any streamers. Someone’s voice comms over the comm, telling me and Tommy to vacate the premises. Something compels me, for a moment, to reach up and put my hand where the woman’s is. I don’t know if it’s me, or something else making me do it. I think, maybe, it’s a bit of both.
+The radio doesn’t ding or sound any bells, or pop any streamers. Someone’s voice comes over the comm, telling me and Tommy to vacate the premises. Something compels me, for a moment, to reach up and put my hand where the woman’s is. I don’t know if it’s me, or something else making me do it. I think, maybe, it’s a bit of both.
 
 Tommy pulls me away when my fingers start to bleed from the nail. The last thing I hear is the radio as I force my legs to carry me out of the room. “They’re out there. They still love you. And they’re waiting.” It sounds defeated. And I don’t know who he’s talking to. I pass Lupe, who came to meet us, and I see her stop and listen to it for a moment before making a strangled noise.
 
