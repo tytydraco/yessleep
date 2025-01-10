@@ -108,7 +108,4 @@ I’m gonna hit the stop button now. I was told not to be alarmed if I got littl
 
 I don’t know what it means. All I know is someone’s supposed to get a copy of this out somewhere, though I don’t know how or where it’s going, or why. But, could you do me a favor? I didn’t do good today, I think. I’m getting too old. But I think I want to be remembered, now. I want to be a good driver, and get people where they need to go. If I stop recording, I apologize in advance. But I’ve got to retire eventually, and I don’t know when that’ll happen, or if I’ll be doing it on purpose.
 
-Someone has to drive the bus. For now, that’s me.  
-\-
-
-[Relevant Posts - See Driver's Logs](https://www.reddit.com/user/PattableGreeb/comments/1hspca3/outside_of_society_belong_or_be_forgotten_master/)
+Someone has to drive the bus. For now, [that's](https://www.reddit.com/user/PattableGreeb/comments/1hspca3/outside_of_society_belong_or_be_forgotten_master/) [me](https://www.reddit.com/r/nosleep/comments/1hs7ztc/i_drive_a_bus_along_special_roads_i_dont_remember/).

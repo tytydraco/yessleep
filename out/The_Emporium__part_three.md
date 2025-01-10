@@ -49,3 +49,5 @@ I head over to the break room before The Hum even starts up. I'd packed myself a
 We spent the rest of the night separating the 'one flesh'. Gerold had told us if we weren't more careful about it this time, we'd be fired. We didn't care about losing our jobs, he meant that literally. Emma wanted to help too, of course. But, once again, I'm pretty sure she had ulterior motives... because I noticed by the end of the ordeal, Ruby was missing the tip off one of her pinkies. 
 
 Finally, it was time to clock out. I slapped one of Gerold's mouth roaches out of my hair, wiped the Lenny goo off of my shoes, and made my way to the front. Tilly stopped me and asked if I could help her carry the body out to her car for her, so I did that first. I come back inside, walk up to the time clock, and get blasted in the face by The Fart Cloud.
+
+[Thursday](https://www.reddit.com/r/nosleep/s/p5GdBu5gEb)
