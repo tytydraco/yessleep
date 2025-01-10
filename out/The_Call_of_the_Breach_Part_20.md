@@ -1,5 +1,7 @@
 [\[Part 19\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hp7xzt/the_call_of_the_breach_part_19/)
 
+[\[Part 21\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hxux37/the_call_of_the_breach_part_21/)
+
 I dove to the cold steel of the catwalk beside Charlie, and not a second later, a wave of machine gun bullets tore through the building.
 
 Broken shards of glass rained down around me from the windows, and sparks flew as high-speed lead projectiles ricochetted off the nearby metal beams. Three of our soldiers who didn’t crouch in time were hit and crumpled in a fit of agonized shrieks as their blood dripped down to the factory floor below. The entire structure trembled from a mortar impact on the rooftop, and bits of cement filled the air as the incoming rifle fire chewed away at the walls around us. If the fight for the depot had been rough, and the outpost in the square intense, this was a slaughter of brutal proportions, bullets and rockets sailing in from all angles. It seemed there was no end to the enemy fire, no pause for so much as a reload, and explosions rocked the ground beneath us to reverberated up the iron skeleton of the walkways in colossal shivers. Everything was swallowed in the titanic roar of battle, a fight so fierce that even the garbled cries from my headset barely made it to my eardrums.
