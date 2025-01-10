@@ -50,4 +50,4 @@ We spent the rest of the night separating the 'one flesh'. Gerold had told us if
 
 Finally, it was time to clock out. I slapped one of Gerold's mouth roaches out of my hair, wiped the Lenny goo off of my shoes, and made my way to the front. Tilly stopped me and asked if I could help her carry the body out to her car for her, so I did that first. I come back inside, walk up to the time clock, and get blasted in the face by The Fart Cloud.
 
-[Thursday](https://www.reddit.com/r/nosleep/s/p5GdBu5gEb)
+[Thursday](https://www.reddit.com/r/nosleep/s/otR1fTamQP)

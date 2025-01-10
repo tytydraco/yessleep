@@ -2,7 +2,7 @@ Looking to buy a home is its own special kind of Hell.
 
 Between a fairly limited (tiny) budget, predatory real estate companies, and a healthy amount of flat out lies on website listings, you can imagine me and my fiance, Hailey’s, surprise when we came across a listing that was, by most metrics, a dream home.
 
-It was a two story home near downtown Athens, Georgia. It was within walking distance to grocery stores, gas stations, restaurants and bars. It was almost perfectly in-between both of our jobs, and within 15 minutes of each to boot. We shouldn't have even been allowed to set eyes on a house like this, but it was well within our pitiful price range.
+It was a two story home near downtown. It was within walking distance to grocery stores, gas stations, restaurants and bars. It was almost perfectly in-between both of our jobs, and within 15 minutes of each to boot. We shouldn't have even been allowed to set eyes on a house like this, but it was well within our pitiful price range.
 
 We met with an agent who showed us the home. For a house built over a century ago, it was in remarkable shape. It was decorated with antiques, the walls were lined with paintings, portraits, and photographs of the original owners.
 
