@@ -2,11 +2,11 @@ One night 5 or 6 years ago I woke up in a fever after an odd dream. I came downs
 
 
 
-"My dream was set in Cracker Barrel where Tori had worked. I was sitting down in a chair at a table in the middle of the room eating and seeing Tori waiting at other tables. After an hour a man sat down two tables from me. He was wearing a black suit and a very flat black fedora. A waitress had served him water then passed her duties to Tori. Tori made her way to the table he had sat at getting him a refill of water. He the began to speak in tongues and she looked up from the water she was pouring to look at his face. She had tensed up like an animal backed into a corner. Dropping the glass then running off to the bathroom I was confused. The man had started to turn where I could see his large deep yellow eyes staring at me to the ground with a huge smile on his face like he enjoyed his undoubtedly wicked presence. I then woke up."
+"My dream was set in Cracker Barrel where Tori had worked. I was sitting down in a chair at a table in the middle of the room eating and seeing Tori waiting at other tables. After an hour a man sat down two tables from me. He was wearing a black suit and a very flat black fedora. A waitress had served him water then passed her duties to Tori. Tori made her way to the table he had sat at getting him a refill of water. He the began to speak in tongues and she looked up from the water she was pouring to look at his face. She had tensed up like an animal backed into a corner. Dropping the glass then running off to the bathroom I was confused. The man had started to turn where I could see his large deep yellow eyes staring me down with a huge smile on his face like he enjoyed his undoubtedly wicked presence. I then woke up."
 
 Halfway through this story Tori had gotten a weird expression on her face.
 
-The said "Ok I need to wake mom"
+Then said "Ok I need to wake mom"
 
 She ran to Mom and Dad's room knocking loud.
 
