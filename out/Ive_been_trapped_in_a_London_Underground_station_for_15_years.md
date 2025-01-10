@@ -1,3 +1,5 @@
+Part I - [Part II](https://www.reddit.com/r/nosleep/comments/1hybncp/ive_been_trapped_in_a_london_underground_station/)
+
 I was a university student on her way to a biology lecture. There wasn’t, and still isn’t, anything extraordinary about me. I don’t know why this happened to me. Why does anything bad ever happen to anyone?
 
 Like every other early-morning commuter in that underground station, I let the escalator carry me up to the lobby above ground. I dozily eyed the inclining row of posters to my left, advertising whatever was current back in 2010. I was tired, and likely hungover, which was why I thought little of the feathery lightness in my skull as my mechanical step neared the top.
@@ -235,3 +237,5 @@ I stumbled across this subreddit today, and I’m reaching out to you for help. 
 Perhaps you’ll remember, one day; perhaps you’ll all remember the things you’ve forgotten about me when the spell is broken. I’m just afraid that it’ll only be broken once that thing finds me.
 
 Once I find myself standing beside [Peter](https://www.reddit.com/r/dominiceagle).
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/1hybncp/ive_been_trapped_in_a_london_underground_station/)
