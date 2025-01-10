@@ -8,13 +8,13 @@ The text seemed more like a hotel service notice for a guest than something I wo
 
 Then, I found myself with a conflicting thought: “Why shouldn’t I go back?”
 
-I was trying to understand what I had just read and wondering if it made any sense. Would someone have visited me and forgotten a reminder at my house? No, I hadn't invited anyone the day before, I would remember for sure. And it definitely couldn't be Luccas who would have left something in my kitchen. I saw him last Friday and we had gone out together, he didn't even step foot in my house. I noticed that I had been there for 10 minutes, before my anxiety attack started to spread, I controlled myself, took a deep breath and tried not to freak out, I drank another glass of coconut water. I knew it couldn't be anything more.
+I was trying to understand what I had just read and wondering if it made any sense. Would someone have visited me and forgotten a reminder at my house? No, I hadn't invited anyone the day before, I would remember for sure. And it definitely couldn't be Luccas who would have left something in my kitchen. I saw him last Friday and we had gone out together, he didn't even step foot in my house. I noticed that I had been there for 10 minutes, before my anxiety attack started to spread, I controlled myself, took a deep breath and tried not to freak out, I drank another glass of coconut water. I knew it couldn't be a big deal.
 
 “I had probably written this note, maybe I was writing down a line from a character in the book that I was writing at the time and I ended up writing it down so I wouldn't forget, maybe I wrote the note at a time when I was sleepy and that would explain my handwriting unrecognizable on the ticket” -I thought.-
 
-When I calmed down, I slowly went towards the hallway, walking and trying only to find myself with my pillow. Until, suddenly, my alarm clock in my room rang, it was the 4:00 alarm that always went off to remind me to take my anxiety medication. I was scared at the time, but the scare that would follow would be much worse.
+When I calmed down, I slowly went towards the hallway, walking and trying only to find my pillow. Until, suddenly, my alarm clock in my room rang, it was the 4:00 alarm that always went off to remind me to take my anxiety medication. I was scared at the time, but the scare that would follow would be much worse.
 
-Less than 10 seconds after hearing the 4 o'clock alarm go off... I heard it being unmuted... by someone who wasn't me. I started to shake, panicking. Scared, I quickly returned to the kitchen and opened my cell phone to call the police. And then I received an anonymous email.
+Less than 10 seconds after hearing the 4 o'clock alarm go off... I heard it being unmuted... by someone who wasn't me. I started to shake, panicked. Scared, I quickly returned to the kitchen and opened my cell phone to call the police. And then I received an anonymous email.
 
 [DO NOT MAKE ANY NOISE. DO NOT GO BACK TO YOUR ROOM AND WAIT FOR DAWN. If you disobey this WARNING, YOU WILL ACTIVATE A SESSION, AND YOU WILL HAVE TO IDENTIFY ALL ANOMALIES EACH TIME YOU OPEN THE DOOR]
 
@@ -22,7 +22,7 @@ I couldn't take it anymore, what the fuck was that email I had just received? Wh
 
 “SOMEONE IS IN MY FUCKING HOUSE” I screamed to myself in my head
 
-I needed to do something, I wasn't just scared anymore, I also didn't understand a damn thing about what was going on anymore but I needed to do something and quickly. Firstly, I couldn't turn on the light, otherwise it wouldn't show where I was.  But I also couldn't stand still and do nothing, it was inevitable to show some sign of movement, the most important thing was that the movements were subtle.
+I needed to do something, I wasn't just scared anymore, I didn't understand a damn thing about what was going on anymore, but I needed to do something and quickly. Firstly, I couldn't turn on the light, otherwise it wouldn't show where I was.  But I also couldn't stand still and do nothing, it was inevitable to show some sign of movement, the most important thing was that the movements were subtle.
 
 There was a lot of confusion, what anomalies? A person in my house? what email was that? what port did the email refer to?
 
