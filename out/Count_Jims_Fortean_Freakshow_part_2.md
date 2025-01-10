@@ -71,3 +71,6 @@ The pills are helping, right? They have to be. The sweating, the twitching… it
 Next Saturday. Time to freak out the squares. Because something is coming, and they need to know. Even if I don't know everything about it.
 
 Gah. I usually write better than this. My mind is foggy... disjointed. But.. screw it... I'm not tearing any more pages out of this journal to start over again. This is the best you'll get out of me today.
+
+  
+Part 3 here: [https://www.reddit.com/r/nosleep/comments/1hxtgtm/count\_jims\_fortean\_freakshow\_part\_3/](https://www.reddit.com/r/nosleep/comments/1hxtgtm/count_jims_fortean_freakshow_part_3/)

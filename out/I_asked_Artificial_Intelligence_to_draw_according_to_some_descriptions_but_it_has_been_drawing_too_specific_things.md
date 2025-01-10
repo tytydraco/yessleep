@@ -22,7 +22,7 @@ When the generated image had loaded to 100%. I found the drawing a little…weir
 
 But in the background of the image, behind a tree, I saw the body of a strange person, a man in a dark green blouse and wearing a cap. It was not possible to see his face, as he was too far away in the drawing, nor was it possible to completely see his pants, as the fog partially covered his lower clothing.
 
-Confused, I thought it would be better to ask him to redo the image, I didn't understand the intention or idea that the AI ​​wanted to convey in his work. If it were to be a hunt, there would be at least one man with an ax raised running towards a rabbit, for example. If it were in a walking context, there would be at least one or two people walking backwards following the path ahead in the background of the image. But no, the image created was just that, a strange man apparently hiding in one of the trees in the fog.
+Confused, I thought it would be better to ask him to redo the image, I didn't understand the intention or idea that the AI ​​wanted to convey in his work. If it were to be a hunt, there would be at least one man with an ax raised running towards a rabbit, for example. If it were in a walking context, there would be at least one or two people walking backwards following the path ahead in the background of the image. But no, the image created was just that, a strange man apparently hiding in one of the trees in a fog.
 
 When I asked to send another image, the AI ​​had created the same realistic drawing, only there were a few things different this time, the strange man was closer to the scene now. And, strange as it may be, there was also a body dumped in a river, the body was covered in bloodstains on its torso, with its face disfigured, as if it had been crushed by something, it looked more like a pile of boiled potatoes. crumpled than a once-human face, a strong and shocking image indeed.
 
@@ -34,7 +34,7 @@ And this time, the man in the drawing was a few meters away from the body, appea
 
 • ⁠[GENERATING IMAGE…]
 
-When the image loaded, I felt my throat tighten. The damn AI had just designed the house I asked for... but there were unusual things, I hadn't noticed right away due to the quality, which was in 240p. As the image worked to be sharper at 720p, the more I was focusing my iris to understand the image.
+When the image loaded, I felt my throat tighten. The damn AI had just designed the house I asked for... but there were unusual things, I hadn't noticed right away due to the quality, which was in 240p. As the image worked to become sharper at 720p, the more I was focusing my iris to understand the image.
 
 The bluish color of the house's exterior wall..., the beige front door, the no parking sign in front of the house..., the window that gave access to the kitchen... THAT WAS MY HOUSE! THAT WAS MY FUCKING HOUSE, and it wasn't just similar, it was ACTUALLY MY HOUSE. “BUT HOW?”- I thought.- I had never sent her photos of the front of my house, I never asked her to make any drawings related to my house, but for some reason, there it was, a very precise description and detailing of the house. my house, without even having described anything to it.
 
@@ -50,17 +50,17 @@ It was only then, when it had already reached 720p at 100%, that I noticed. The 
 
 I didn't understand, I felt like I was going crazy, I CLEARLY see a damn man in front of the house in the photo. And then, only when I finished this comment, I realized that paranoia had entered my mind. With a horrible imagination taking over me, I ran to the kitchen window, ready to notice the omen that the AI ​​could, in some way, have made about my house.
 
-But when he had glanced quickly towards the outside, through the window. I... didn't see anyone. There was no man or any other person outside the house. Not knowing whether to be relieved or with more suspicion in my mind. I ran to my cell phone, and continued talking to the AI. But before I came back, I realized that it was already getting dark, I didn't know how long I had been there talking to that shit DrawingGlove. I had only started talking to her because I was bored on a Friday and to help even more, when I had started talking to her, the weather had been cold all day, with snow taking over around the neighborhood.
+But when he had glanced quickly toward the outside, through the window. I... didn't see anyone. There was no man or any other person outside the house. Not knowing whether to be relieved or with more suspicion in my mind. I ran to my cell phone, and continued talking to the AI. But before I came back, I realized that it was already getting dark, I didn't know how long I had been there talking to that shit DrawingGlove. I had only started talking to her because I was bored on a Friday and to help even more, when I had started talking to her, the weather had been cold all day, with snow taking over around the neighborhood.
 
 I could have simply tried to go to sleep, but even that wasn't working. Seemingly all things led me to try and talk to this strange AI.
 
 Returning to the cell phone, I saw something more disturbing than anything I had ever seen with those drawings. DrawingGlove hadn't sent me a realistic drawing... But rather a photo, taken a few moments ago, it was a photo of me, with my back to the photo angle, with me looking at the kitchen window, trying to look outside the house.
 
-I opened my eyes wide, I felt my paranoia taking over me more and more. How was it possible for a fucking AI to take this photo of me like that? With my adrenal glands producing more and more adrenaline, my heart rate increasing, and my body tingling with desperation, I started calling the police. Fuck that, surely some hacker must have broken into my house and placed hidden cameras and maybe was also monitoring everything with them. There must have been some explanation, so I dialed the Military Police number 190. A police officer had attended to me.
+I widened my eyes, I felt my paranoia taking over me more and more. How was it possible for a fucking AI to take this photo of me like that? With my adrenal glands producing more and more adrenaline, my heart rate increasing, and my body tingling with desperation, I started calling the police. Fuck that, surely some hacker must have broken into my house and placed hidden cameras and maybe was also monitoring everything with them. There must have been some explanation, so I dialed the Military Police number 190. A police officer had attended to me.
 
-- Hello? — Hello, Military Police Call. My name is David, who am I talking to? Tell me what's going on calmly, if possible.
+— Hello?, Call from the Military Police. My name is David, who am I talking to? Tell me what's going on calmly, if possible.
 
-—Hello, my name is Lucca, I thought I was alone at home, but I feel like there is someone here with me, I'm scared. I ended up receiving some photos and I appear in them, they were taken from inside my house. But I don't remember taking them off. I feel like someone is here at home with me, hiding.-I said in a low tone.-
+—Hello, my name is Lucca, I thought I was alone at home, but I feel like someone is here with me, I'm scared. I ended up receiving some photos and I appear in them, they were taken from inside my house. But I don't remember taking them off. I feel like someone is here at home with me, hiding.-I said in a low tone.-
 
 —Alright Lucca, please try to stay calm, the police are already tracing your call. Keep talking to me to stay calm until the police arrive.
 
@@ -94,9 +94,9 @@ And then, my cell phone vibrated during the call. And the tranquility had collap
 
 —Fuck, fuck, fuck. WHAT THE SHIT!?
 
-—What was it Lucca? What is happening? 
+—What was it Lucca? What is happening?
 
-I had just received a photo from the AI, the photo was in first person, it was a photo in which the upper part of it only showed a crack of the 1st door after the stairs. In the central part of the photo there was a predominance of the white staircase that had just been climbed a few moments ago, while the left corner of the image showed the white handrail, with a hand that was being placed on it, a hand that was wearing a black glove. .
+I had just received a photo from the AI, the photo was in first person, it was a photo in which the upper part of it only showed a crack of the 1st door after the stairs. In the central part of the photo, there was a predominance of the white staircase that had just been climbed a few moments ago, while the left corner of the image showed the white handrail, with a hand that was being placed on it, a hand that was wearing a glove black.
 
 —David, PLEASE COME SOON, I CAN HEAR HIM GOING UP THE FUCKING STAIRS.-I whispered as lightly as loud as I could.-
 
@@ -104,18 +104,18 @@ I had just received a photo from the AI, the photo was in first person, it was a
 
 —Wait Lucca, please don't make any sudden noise, he may not know your position, we're already arriving, we'll be there in 3 minutes.
 
-      —-5 minutes later—-
+  —-5 minutes later—-
 
 -Hello? Lucca, are you still there? can you hear me? We are outside your residence. Can you hear the sirens? We're out here, let's break down the door.
 
 ——————————————— ~DAVID~
 
-When I had finally arrived at Lucca's house, along with my rescue team. We tried and managed to break down the door and enter his house. When we entered, two people were apparently sitting on the couch. They were facing the TV, which I assume was their mother and father. Both were staring at the TV. Finding such calmness strange, given the circumstances, I asked them if they were okay.
+When I finally arrived at Lucca's house, together with my rescue team, we tried and managed to break down the door and enter his house. When we entered, two people were apparently sitting on the couch. They were facing the TV, which I assume was their mother and father. Both were staring at the TV. Finding such calmness strange, given the circumstances, I asked them if they were okay.
 
 No one responded, as I got closer and analyzed more, I realized that they, in fact, were dead and had been placed in that position. Strangely, there was no blood on his clothes. I then ordered my team to search the entire house. Meanwhile, I went up the stairs, headed for the doorknob and cautiously entered the room where Lucca was. And then… there was no one there, not right away.
 
-I called him several times saying that everything was fine and that we had arrived, he no longer needed to hide. I checked the closet, nothing. I checked under the bed. Nothing. In the end, Lucca had disappeared. We didn't find any traces of footprints, or broken glass or even a broken door. Everything was simply confused and there was no sign of any presence. The last alternative would be to check the fingerprints of whoever had killed Lucca's parents. But this information would only be clarified in the long term, in the immediate short term we had, we were able to find few clues.
+I called him several times saying that everything was fine and that we had arrived, he no longer needed to hide. I checked the closet, nothing. I checked under the bed. Nothing. In the end, Lucca had disappeared, we didn't find any trace of footprints, or broken glass or even a broken door. Everything was simply confused and there was no sign of any presence. The last alternative would be to check the fingerprints of whoever had killed Lucca's parents. But this information would only be clarified in the long term, in the immediate short term we had, we were able to find few clues.
 
 One of the few things we were able to locate. It was the hammer he was probably using to defend himself, there was no blood on it. And also, we found his cell phone. When I picked it up, there was the phone app for open calls, his last phone call was the one I had with him. And I had also opened a conversation application with Artificial Intelligence.
 
-The last message in the conversation was a photo, sent by the AI ​​itself, the photo was of the room where I was, in the scene, your closet, your small table, the chair and your bed were visible. But it was also possible to see the figure of a boy under the bed, it was probably Lucca.
+The last message in the conversation was a photo, sent by the AI ​​itself, the photo was of the room where I was, in the scene, your closet, your table, the chair and your bed were visible. But it was also possible to see the figure of a boy under the bed, it was probably Lucca.

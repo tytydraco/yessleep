@@ -2,7 +2,7 @@ The alarm clock hadn't gone off yet when I woke up. he was scheduled to blow the
 
 “Don’t go back to your room, wait until he sends THE MESSAGE”
 
-“What the hell does that mean? WHO IS HE?? NO It makes sense, besides, that handwriting isn’t mine”-I thought-
+“What the hell does that mean? WHO IS HE?? NO It makes sense, besides, this handwriting is not mine”-I thought-
 
 The text seemed more like a hotel service notice for a guest than something I would write down and leave on the counter.
 
@@ -12,9 +12,9 @@ I was trying to understand what I had just read and wondering if it made any sen
 
 “I had probably written this note, maybe I was writing down a line from a character in the book that I was writing at the time and I ended up writing it down so I wouldn't forget, maybe I wrote the note at a time when I was sleepy and that would explain my handwriting unrecognizable on the ticket” -I thought.-
 
-When I calmed down, I slowly went towards the hallway, walking and trying only to find my pillow. Until, suddenly, my alarm clock in my room rang, it was the 4:00 alarm that always went off to remind me to take my anxiety medication. I was scared at the time, but the scare that would follow would be much worse.
+When I calmed down, I slowly went towards the hallway, walking and trying only to find myself with my pillow. Until, suddenly, my alarm clock in my room rang, it was the 4:00 alarm that always went off to remind me to take my anxiety medication. I was scared at the time, but the scare that would follow would be much worse.
 
-Less than 10 seconds after hearing the 4 o'clock alarm go off... I heard it being unmuted... by someone who wasn't me. I started to shake, panicked. Scared, I quickly returned to the kitchen and opened my cell phone to call the police. And then I received an anonymous email.
+Less than 10 seconds after hearing the 4 o'clock alarm go off... I heard it being unmuted... by someone who wasn't me. I started to shake, panicking. Scared, I quickly returned to the kitchen and opened my cell phone to call the police. And then I received an anonymous email.
 
 [DO NOT MAKE ANY NOISE. DO NOT GO BACK TO YOUR ROOM AND WAIT FOR DAWN. If you disobey this WARNING, YOU WILL ACTIVATE A SESSION, AND YOU WILL HAVE TO IDENTIFY ALL ANOMALIES EACH TIME YOU OPEN THE DOOR]
 
