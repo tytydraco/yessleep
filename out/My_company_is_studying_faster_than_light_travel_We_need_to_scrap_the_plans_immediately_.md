@@ -314,4 +314,4 @@ Through the whole process, even outside of his being cloaked in darkness, someth
 
 They took him away and transferred Captain Peters to their custody. I’m sure Puller is going to jump down my throat when he hears about this, but at this point… he can kiss my ass. The agents that were here gave me a number to call, said they may have some work for me in their aerospace division. I don’t know that I’m going to call them though.
 
-After all that, I think it’s time I retire. Someplace sunny sounds nice. Perhaps I’ll move between the poles. Chase the midnight sun, as it were. Anything to ensure my shadow stays behind me.
+After all that, I think it’s time I retire. Someplace sunny sounds nice. Perhaps I’ll move between the poles. Chase the midnight sun, as it were. Anything to ensure my shadow stays behind [me](https://www.reddit.com/u/googlyeyes93/s/RrNIhwm1sm).
