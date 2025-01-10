@@ -1,30 +1,38 @@
-The cold was biting, the kind that sneaks through your coat and wraps its claws around your bones. I was driving home late that night, the roads eerily quiet, blanketed in a sheen of ice that reflected the pale glow of the moon. The weather report had warned about black ice, but I thought I’d be fine—I'd driven these roads countless times before.
+I remember it vividly. The cold seeped into my bones as the gray sky pressed down on the world. The highway stretched ahead of me like a long, endless ribbon, flanked by trees sagging under the weight of winter's wrath. It had been snowing earlier, but now the storm had passed, leaving behind a deadly calm.
 
-My hands gripped the steering wheel tighter than usual, and my headlights barely cut through the fog rolling across the road. The heater was blasting, but my fingers were still numb, trembling slightly from both the cold and a gnawing sense of unease.
+I was driving home after a late shift, my car’s heater doing little to combat the chill creeping in through the cracks. The clock on the dashboard read 11:37 PM. The road was nearly deserted, save for a few taillights blinking in the distance. I should have been paying closer attention, but I was tired, my mind wandering as the tires hummed beneath me.
 
-Then, it happened.
+The first warning came in the form of a faint, almost imperceptible shimmer on the asphalt. Black ice. I knew I should slow down, but the realization hit me a split second too late. My tires lost traction. The car began to drift, the steering wheel suddenly feeling useless in my hands.
 
-At first, it was subtle—a slight shift in the car's traction. The wheels didn't seem to grip the road. My heart skipped a beat, and I instinctively tapped the brakes. That was my mistake. The car lurched violently, spinning out as if it had a mind of its own. Everything slowed down, but my heart raced, pounding like a war drum in my chest.
+Panic surged through me like a jolt of electricity. I turned the wheel to counter the slide, but the car spun instead, skidding sideways. The world became a blur of headlights and shadows, the trees on the roadside looming like skeletal sentinels.
 
-The world outside became a blur of headlights, icy darkness, and skeletal tree branches. The car twisted and slid toward the shoulder, and my mind screamed for control, but I had none. My attempts to steer only made it worse.
+Then came the impact. A sickening crunch of metal against metal as I collided with the guardrail. The force of it snapped my head forward, the seatbelt cutting into my shoulder. The car shuddered to a stop, but not before the passenger-side tires dipped off the edge of the icy shoulder. I realized with growing dread that the guardrail had given way. My car teetered precariously, the abyss of a steep embankment yawning beneath me.
 
-Then I saw it: a hulking shadow ahead, illuminated briefly by my spiraling headlights. A massive oak tree loomed, its gnarled branches stretching toward me like claws. Time snapped back to reality. The crunching, grinding noise of metal against ice filled my ears as the car collided with the tree. The impact was jarring, the force slamming me forward into my seatbelt. My breath left me in a sharp, agonized gasp.
+My breathing was shallow and rapid as I reached for my phone with trembling hands. The screen lit up, but there was no signal. I cursed under my breath, the silence of the night now oppressive. I could hear the groan of the metal beneath the car as it shifted ever so slightly. I had to get out before it tipped over completely.
 
-The silence afterward was deafening. My head throbbed, and my vision blurred. Steam hissed from the crumpled hood, rising into the frigid air. The shattered windshield looked like a spiderweb, tiny shards of glass glistening under the faint light. I reached up to touch my face and winced as I felt the sticky warmth of blood trickling down from a gash on my forehead.
+Unclipping the seatbelt, I moved slowly, terrified that the slightest motion would send the car tumbling. My heart was hammering so loudly I thought it might drown out my thoughts. The door was stuck, the crumpled frame refusing to budge. Desperation took over as I shoved at it with all my strength, and finally, it gave way with a screech.
 
-As I tried to steady my breathing, I became aware of another sound—soft, almost imperceptible. At first, I thought it was the wind whistling through the broken glass. But no. It was something else. A low, guttural moan.
+I stepped out onto the icy shoulder, slipping and catching myself on the crumpled hood. I barely had time to breathe a sigh of relief before a sound froze me in place.
 
-I froze, every muscle locking into place. The sound was coming from outside the car. My eyes darted toward the passenger-side window, where the darkness seemed to shift and swell. A shadow moved—a silhouette, tall and gaunt, its movements unnatural, jerky. It was coming closer.
+Crunch.
 
-My pulse thundered in my ears as the figure reached the car, its face obscured by the foggy night. I couldn’t look away. My mind screamed at me to move, to run, but my body refused to obey.
+It wasn’t the car. It wasn’t the ice under my boots. It came from the woods, just beyond the highway. A slow, deliberate crunch, like footsteps on frozen ground. My breath caught in my throat as I strained to see into the darkness.
 
-Then it pressed its hand—if you could call it a hand—against the shattered glass. Long, bony fingers, ending in sharp, cracked nails, dragged slowly across the surface, making a sound like nails on a chalkboard. My breath hitched, visible in short, panicked puffs.
+“Hello?” I called, my voice barely audible over the wind.
 
-I closed my eyes, praying it would go away. When I opened them, the thing was gone. But the moaning hadn’t stopped. It was closer now, right by my ear.
+Nothing.
 
-I screamed, fumbling with the seatbelt, wrenching it free. I threw the door open and stumbled out into the biting cold, my boots slipping on the icy ground. I looked around, desperate to find the source of the sound, but there was nothing—only the twisted wreck of my car and the looming trees.
+Then, again—crunch. Closer this time. My pulse quickened, my body instinctively moving back toward the car. The embankment behind me was a steep, black void, and the highway ahead stretched into nothingness. I was trapped.
 
-And then I saw it. In the distance, among the shadows, those same bony fingers curling around a tree trunk, the figure watching me with glowing, hollow eyes.
+And then I saw it. A figure emerging from the treeline, its silhouette stark against the snow. It was tall, impossibly tall, and its movements were jerky, unnatural. My legs felt like lead as it drew closer, the dim light from my car’s broken headlights illuminating its pale, featureless face.
 
-I ran.
+I stumbled backward, my foot slipping on the ice. I fell hard, the breath knocked out of me as the figure loomed over me. It didn’t speak, didn’t move, just stared down with empty sockets where eyes should have been.
+
+I scrambled to my feet, my mind racing. The car was still perched precariously on the edge, but it was my only refuge. I threw myself into the driver’s seat, slamming the door shut and locking it. The figure didn’t follow. It just stood there, motionless, as I sat trembling inside the car.
+
+And then the car began to shift. The weight of my frantic movements had been too much. I felt the sickening lurch as it tipped forward, the ground vanishing beneath me. My scream was swallowed by the night as the car plummeted into the darkness below.
+
+I don’t remember hitting the bottom. All I remember is waking up to silence, the world upside down and shattered glass all around me. The figure was gone, but I could still feel its presence, lingering just out of sight. Watching. Waiting.
+
+And every now and then, when I drive that stretch of highway, I swear I see it standing in the trees, its empty face turned toward me.
 
