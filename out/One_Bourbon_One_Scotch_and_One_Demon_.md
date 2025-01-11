@@ -86,7 +86,7 @@ After 2 gulps the entity continued its conversation.
 
  
 
-*“That night you picked up a paint set lying around your room, you found a dead rat close to it, and knowing the red paint was missing from that set you made no delay in finding a replacement.  It was at that moment I saw the artist in you.  You were raw talent born in sin and negligence, a born bastard out of wedlock God would have casted you to me anyway.”*
+*“That night you picked up a paint set lying around your room, you found a dead rat close to it, and knowing the red paint was missing from that set you made no delay in finding a replacement.  It was at that moment I saw the artist in you.  You were raw talent born in sin and negligence, a born bastard out of wedlock, God would have casted you to me anyway like a gift.”*
 
  
 
