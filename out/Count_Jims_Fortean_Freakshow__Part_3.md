@@ -91,3 +91,4 @@ I figured I deserved a small break. I got the prep work for Saturday's show take
 After all, I'm not the world saving type.
 
   
+Part 4 here [Count Jim's Fortean Freakshow Part 4 : r/nosleep](https://www.reddit.com/r/nosleep/comments/1hymefi/count_jims_fortean_freakshow_part_4/)
