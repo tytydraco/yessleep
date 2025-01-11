@@ -1,3 +1,5 @@
+Part 2: [Link](https://www.reddit.com/r/nosleep/comments/1hyq4xl/is_lucid_dreaming_dangerous_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 Hello Reddit,
 
 I'm putting this out there for anyone who knows anything about lucid dreaming, sleep paralysis, comas, or the subconscious mind.
