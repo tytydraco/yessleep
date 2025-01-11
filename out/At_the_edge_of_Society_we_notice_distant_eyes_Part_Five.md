@@ -182,7 +182,7 @@ The radio crackles to life again. It plays a snippet from three songs. *Life on 
 
 “No. She’ll outpace me. Call-”
 
-“Congratulations! Tonight, you’re our lucky caller!” A crackled, staticky voice came out of the radio, like if you gave radio waves a particular kind of coherence. “Now, same rules as always. If you can’t answer a few questions correctly, we’ll give you a helping hand if you need one, a special prize if you don’t.”
+“Congratulations! Tonight, you’re our lucky caller!” A crackled, staticky voice came out of the radio, like if you gave radio waves a particular kind of coherence. “Now, same rules as always. If you can answer a few questions correctly, we’ll give you a helping hand if you need one, a special prize if you don’t.”
 
 I almost say something, but just purse my lips instead. I hear Lupe get up. Hear her footsteps trail away. She doesn’t go through the door, though, out into the field.
 
