@@ -1,3 +1,5 @@
+Part 1
+
 Last week I noticed something strange, when I woke up from an abnormally long sleep my house wasn’t where it was supposed to be. I live in the suburbs of salt lake city Utah in a house that’s pretty old but for some reason when I woke up that day my house was in a field.
 
 A wheat field that seemed to stretch endlessly to the horizon. I couldn’t tell if I was dreaming or not so I just got in bed and closed my eyes. The next thing I knew my house was back where it was supposed to be.
@@ -81,4 +83,3 @@ I’m losing my mind.
 I have decided to just go to sleep and figure things out in the morning.
 
 I woke up around 3 ish in the morning I was cold so I got up to turn on the heater but when I looked outside I saw a forest I ran to every window in the house to be met with the same sight. A pitch black forest, one of those it eats you alive forests. I couldn’t believe what my eyes were seeing I decided to go back to sleep and pray that this was just some weird dream but as I was getting in bed I saw a not on my nightstand it read “*don’t talk to them, don’t listen to them, don't look at them and never leave the house.”*
-
