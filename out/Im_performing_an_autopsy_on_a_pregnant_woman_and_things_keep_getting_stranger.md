@@ -56,4 +56,4 @@ I closed up and got into my car, then drove home in silence. I live alone, so me
 
 After doing my night routine and going to bed, I found myself twisting and turning, strange dreams pressing onto me, like the ones you have when you have a fever. I thought I heard a cry at one point, until I realized it had been my own.
 
-I opened my eyes after what seemed like minutes, to discover it was a little over 6AM. In the soft glow of the morning, my window had fogged up a bit, and I couldn't help but stare, perplexed, at the fresh print of a child's hand on inside of the glass.
+I opened my eyes after what seemed like minutes, to discover it was a little over 6AM. In the soft glow of the morning, my window had fogged up a bit, and I couldn't help but stare, perplexed, at the fresh print of a child's hand on the inside of the [glass.](https://www.reddit.com/r/nosleep/comments/1hyiiro/im_performing_an_autopsy_on_a_pregnant_woman_and/)
