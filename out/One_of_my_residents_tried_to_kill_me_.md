@@ -1,0 +1,15 @@
+Hey, so, I know I kind of dropped off the face of the Earth for a while there, but as you can see from the title of this report, there was a very good reason for that. Just like the title says, one of my residents tried to kill me. As such, I’ve been in the hospital for the last while to recover, it was that bad, but I’m back now and I want to let you all in on what happened. 
+
+So, it happened on New Year’s Eve. As you know, sometimes parties for the new year can get pretty over the top and as such can cause problems if they aren’t handled appropriately. This was the situation I found myself in, needing to go to a resident’s apartment around 11:45pm because they were being too loud and causing problems for the surrounding residents that needed sleep. I was annoyed myself because I didn’t want to spend my New Year’s Eve dealing with a possibly intoxicated resident that could end in a physical fight, but I had to do my job regardless. 
+
+Unfortunately for me, this resident was one of my inhuman residents, which meant things were going to be… difficult, to say the least. This particular resident has been told time and time again to go easy on alcohol because their saliva becomes incredibly venomous when they consume it. Usually it’s not too bad when they have one or two drinks, but I could SMELL the alcohol when I got close to their apartment door. 
+
+Anyway, I do the usual routine. I knock on the door, wait, realize they can’t hear me over the music they’re blaring and instead pound on the door. Did this for about five minutes before they finally answered. When I tell you the smell of the alcohol hit me like a isekai anime truck I’m not kidding, so I knew I had to be careful since this meant that I could be in serious danger here. 
+
+I tell them they need to turn the music down, it’s disturbing the other residents, and they’re reluctant and annoyed but agree. Now here is where I fucked up; I turned around to leave BEFORE this resident closed their door. Next thing I knew, I’m grabbed and shoved against a wall, clawed hand pressing against my face to keep my head crushed against the wall, before feeling this seering pain in my shoulder. In less than a minute, I feel every part of my body go cold and everything goes dark. 
+
+Thankfully, from what I was told when I woke up in the hospital, some of the other residents heard the commotion and came outside. Two subdued the intoxicated resident while one brought me directly to the hospital (gotta love a teleporter resident). According to the doctors I was lucky to still be alive, but other than the venom that took them almost 25 vials of antivenom to clear my system of, I also sustained damage to my right eye, so… I’m missing an eye now. 
+
+Needless to say that resident doesn’t live here anymore and the three residents that helped me have their rent covered for the next three months as a thank you for helping me. I won’t lie, this is the closest I’ve come to actual death at this job, but I also know that it could very well happen again if I’m not careful. But anyway, that’s where I’ve been. 
+
+[Part 1](https://www.reddit.com/r/nosleep/s/rT7nmx5RXf)
