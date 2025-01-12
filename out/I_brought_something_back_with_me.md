@@ -1,0 +1,37 @@
+After my mom died, I was devastated.  It felt like one of those old underground nuclear test-videos in slow-motion, where the ground explodes upwards, then slowly falls back into its old place, before collapsing into a crater.  But I had to be strong, I had to handle family, the funeral, her estate, and everything else.  Once I had a second to breather, I extended my leave at work, packed a bag, hopped in my car and just drove.
+
+I wound up in Texas before deciding it was time to make my way back to Philly.  I planned out the next leg of my trip, figured I'd spend a few nights at a "5-star" hotel in New Orleans, then a few nights in a cabin in the middle of Georgia, before redeyeing it back to the city.
+
+For my journey, I had packed an ounce of OG kush, 10 hits of Sunshine-equivalent acid, and a fuckload of liquor.   Along the way I had been partaking here and there, but when I got to New Orleans, I decided "fuck it" and took 7 hits of the acid, smoked at least a half-ounce of weed, and finished an entire bottle of Jack.  To say I had an "experience" would be an understatement.
+
+In the haze of it all, I'm pretty sure I broke through something I shouldn't have.  I remember being "seen" by something much bigger...not "God"...something different.  I felt it judge me negatively, not just that I wasn't "ready", but that I was "unclean", and I felt immense shame.  I felt like it gave me a cosmic-bitchslap of sorts and sent me back to reality...to lucidity of sorts.
+
+Standing in the hotel room, suddenly feeling like I was back in my own body...in my own head...I felt a presence.  2 of them actually.  There was some...mind, that taunted me...mocked me.  But there was another mind, one that stayed quiet and seethed with rage...hate...for me.  To say I felt I was in danger is an understatement.
+
+In that moment some deep part of me knew what to do...I began to see my own body as a sort of translucent thing...a shell.  Inside were these swirling balls of light at different points from the top of my head down to the base of my spine.  As I breathed in, the began to spin more fiercely, and I felt light building up inside of me.  More and more and more light.  Suddenly a lightning bolt of sorts crashed down upon me through my head to the base of my spine and the light exploded into the room.  I knew it was toxic to those other minds...those beings, and I immediately felt their presence dissipate.
+
+I wish I could say everything was fine after that.  Unfortunately, things got much worse.  A twisting/coiling sensation overtook me...rising up from the base of my spine.  I felt like I was twisting through different worlds...different realities.  I decided then to smoke another joint to calm down...and it helped.  I still felt "unclean" and figured a shower would make sense.  But as I took this shower, I had something telling me I was "purifying" myself, I was washing myself clean of the filth that earned me that cosmic bitchslap.
+
+When I emerged, I felt GOOD.  I felt on top of the world, like I had just grown somehow and was about to enter a new chapter.  After dressing I decided to take a walk.  And of course, since I was an alcoholic and it was 3AM, this meant to the liquor store.   I bought another pint, to get myself to sleep.  As I was walking back to the hotel, this woman noticed me.
+
+She looked at me, that's all...but immediately I could see her entire life.   She was a different kind of addict...harder drugs.  A prostitute.  And a killer.
+
+She began to follow me, at a distance.  I didn't look back for  a long while, but knew she was there...knew she had bad intentions.  I got to the hotel and as I walked through the revolving door, I saw her stop and stare, before choosing another victim.
+
+Once I stepped foot back in the room, chaos resumed.  I kept "freezing".  I would take a step, then it felt like time would stop and I'd be stuck motionless.  Frame by frame, I worked my way to the bed, tore off my clothes, and buried myself under the covers.
+
+As I lay there, I could hear vacuuming in the hallway, then at my door, then in my room.  I felt a presence, demanding that I open my eyes, that I see it.  I could tell it wasn't exactly benevolent...though it wasn't quite malicious...and I knew deep down that if I obliged, it would take me over and wear my skin like a mask.  The vacuum was suddenly over my bed, over my sheets and blankets, and the pull to open my eyes was near irresistible, though I tried my best.  At one point, my lids barely opened, before I forced them shut again...but it was enough for him to get in.
+
+I awoke the next day in the same room.  Things were different though.  I had a message from my ex, Kate.  She sounded friendly and apologized for not meeting me in New Orleans.  We had no such plans...we hadn't been friendly in a while even.  Nevermind though, I packed my things and left NOLA for Elijay, GA.
+
+Once at the cabin, the TV simply didn't work.  Fine.  I wasn't here for TV anyway.  I spent a day recharging, but everything still felt off.   I began to hear a sort of voice in my head...asking me permission to take over...making promises about how it would help me and do no harm and so on.  But I refused.  The day I packed up to leave, the TV that had only shown static suddenly burst to life, showing local news.
+
+As I was driving back to Philly, I got a call from Tim...an old friend I hadn't talked to in a year or two.   Odd, but I agreed to get together after  I got home.  The rest of the ride was uneventful, aside from this voice pestering me for control.
+
+Once I was settled at home and back to work, I noticed some other strangeness began to occur.  Every red light I'd approach would suddenly turn green.  If I tried doing drive-thru, static would overtake the ordering systems.  Lights would flicker around me.  Generally strange happenings, and it got old fast.
+
+My job had me visit many different sites across the city.  One of those is a sort of retirement home/convent for old nuns.   Before I go in, I'm sitting in my car demanding this thing leave me...threatening that, if it doesn't, I'll arrange to have an exorcism done.
+
+The entryway I use involves a door with an electronic lock.  I usually hit the doorbell, explain who I am over the intercom to the receptionist, and she buzzes me in.  The door usually opens without issue, nice and smoothly.  Today was different.  I hit the bell, explain who I am, and hear the familiar buzz and click as the locks disengage...but when I pull on the door, it won't move.  I talk to the receptionist and she keeps trying to buzz me in.  She even comes up and is trying to push the door open from the other side as I pull...but no luck.  A few minutes of this go by before the door suddenly pops open like nothing had happened.  Behind the door I see the receptionist, and a very old nun who stares at me like I am the devil.  I smile at the nun, who watches me like a hawk as I walk over to reception to sign in.  I ask the receptionist if anything like this has ever happened and she confirms it has not.  I ask her how they got the door open...and apparently it popped open the second the nun touched it.
+
+There's more...I'll post another time if anyone wants to hear.
