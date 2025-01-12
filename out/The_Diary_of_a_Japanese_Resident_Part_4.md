@@ -1,5 +1,3 @@
-
-
 [First](https://www.reddit.com/r/nosleep/comments/1gw4h8q/diary_of_a_japanese_resident_the_last_day_in/)
 
 [Previous](https://www.reddit.com/r/nosleep/comments/1httfw2/diary_of_a_japanese_resident_no_hope/)
@@ -27,3 +25,5 @@ And then came the footsteps. Slow, deliberate, impossibly heavy. They circled th
 I’m writing this now because I don’t know if I’ll survive another night. Each sound, each shadow feels like the prelude to something I can’t face. Tomorrow, I’ll have to make a decision. Stay or leave. But as I write, the sounds outside are getting louder. Scraping, dragging, something wet slapping against the walls. It’s closer than ever before. I can’t tell if it’s the building settling or something trying to get in.
 
 I feel trapped, and I don’t know what to do…
+
+[Next](https://www.reddit.com/r/nosleep/comments/1hz8xsw/the_diary_of_a_japanese_resident_part_5/)

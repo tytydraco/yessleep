@@ -4,13 +4,13 @@ I don't think you can avoid becoming one if your name is "Ralph". His parents cu
 
 I've been the butt of his jokes more times than I can remember. Store-bought gags, elaborate hoaxes, borderline scams... Water balloons, never just full of water.
 
-It's weird - Everybody liked Ralph in a group, but nobody like him one on one.
+It's weird - Everybody liked Ralph in a group, but nobody liked him one on one.
 
 I don't know who invited him to Roger and Penelope's housewarming. It was a bad match - a dude who compulsively makes a mess of things just to see people's reactions, in an incredibly expensive, brand new home owned by two rich tight-asses.
 
-I mean, really. While we're talking about the curse of names... Penelope? Really? Did her mother really, really want to make sure no one would ever take her seriously? She was  a natural beauty, never wore much make-up and never made a fuss about her outfits, real low-maintenance.
+While we're talking about the curse of names... Penelope? Really? Did her mother really, really want to make sure no one would ever take her seriously? She was a natural beauty, never wore much make-up and never made a fuss about her outfits, real low-maintenance. The name, though? Swing and a miss.
 
-The party was a small affair, too.
+The party was a small affair.
 
 Just the homeowners and a few houseguests.
 
@@ -18,9 +18,9 @@ Tim was Roger's brother, and of course Penelope's brother-in-law. I have to ment
 
 Tim's kids, Layla and Erin, were sixteen and thirteen respectively. Just old enough to come to an adult function without completely ruining it - but still young enough to put a major damper on how crazy everyone could get. Their mother went on a corporate retreat, one trust exercise lead to another, and she left to shack up with the head of human resources.
 
-Layla was an artsy kid that fed on attention like a patience parasite. Erin was less demanding of time and would sit in a corner and listen to crime podcasts. If you're wondering which one was older, you're probably picturing the wrong one.
+Layla was an artsy kid that fed on attention like a patience parasite. Erin was less demanding of time and would sit in a corner and listen to crime podcasts. If you're thinking about which one was older, you're probably picturing the wrong one.
 
-Paul was a screenwriter, at least in name since nothing he sold had ever been produced. Every time you met Paul, every conversation that kicked off, he had a new project that was about to take off. "It's Golden Girls meets Breaking Bad", "It's Nightmare on Elm Street meets The Matrix", "It's Jurassic Park meets Diving Miss Daisy". No one ever asked what happened to each previous endeavor, since it was obvious everything he touched was condemned to development Hell.
+Paul was a screenwriter, at least in name, since nothing he sold had ever been produced. Every time you met Paul, every conversation that kicked off, he had a new project that was about to blow up. "It's Golden Girls meets Breaking Bad", "It's Nightmare on Elm Street meets The Matrix", "It's Jurassic Park meets Diving Miss Daisy". No one ever asked what happened to each previous endeavor, since it was obvious everything he touched was condemned to development Hell.
 
 Brent owned a high-end restaurant in the city, and despite the fact he never said a word about it, we all knew he was about to start a chain. He had been spending a lot of time in mysterious meetings, lately, and a few loose-lipped staffers got the gossip going well enough for the idea to spread to his friends and associates. He knew Roger in high school, and the restaurant was actually where he took Penelope on their first date. She was no-doubt impressed, not realizing Brent would never charge him.
 
@@ -30,25 +30,25 @@ If I had to guess, I would say Paul probably invited Ralph, hoping something wil
 
 It wasn't long into the party when the prank was revealed. Probably one of a couple he had planned.
 
-The doorbell rang, despite all the guests being present. Everyone was confused for a moment, other than Erin who was by the fireplace listening to the details of a triple homicide.
+The doorbell rang, despite all the guests being present. Everyone was confused for a moment, other than Erin who was by the fireplace listening to the details of a quadruple homicide.
 
 Ralph's previously stone-faced demeanor broke immediately, a shit-eating grin uncontrollably bursting free.
 
 "Ralph... what is it?" Roger asked in his usual dry tone.
 
-"Why would I know?" Roger asked through the biggest Cheshire smile you can imagine, "You guys are so suspicious. Who hurt you?"
+"Why would I know?" Ralph asked through the biggest Cheshire smile you can imagine, "You guys are so suspicious. Who hurt you?"
 
 "You." Roger replied just as flatly, "You hurt us."
 
-Roger shrugged and back out of the room, on his way to answer the door.
+Ralph shrugged and back out of the room, on his way to answer the door.
 
 "What? I thought the party could use a stripper!"
 
 Tim's grip on his whisky glass visibly tightened as he drew in a sharp breath and looked toward his daughters. Erin was still ignoring the world around her while Layla shot up from her seat and let out an excited gasp.
 
-"Sex work in real work. We should support women in whatever societal role they choose." Layla nodded emphatically, as if admonishing Tim for something he hadn't even said yet.
+"Sex work is real work. We should support women in whatever societal role they choose." Layla nodded emphatically, as if admonishing Tim for something he hadn't even said yet.
 
-"That's not gonna turn out good." Brent quietly remarked as he and Tim locked glares.
+"That thinking's not gonna turn out good." Brent quietly remarked as he and Tim locked glares.
 
 "I'm handling it." Tim snapped.
 
@@ -124,7 +124,7 @@ As I joined the line-up, I saw the reason for the scream.
 
 Mr. Muffins stood in the center of the living room, wobbling on unsteady legs, blood pouring from an open gash along the top of his bald head. His miniature derby hat had fallen off and was floating like a paper boat in the growing red pool collecting at his feet.
 
-Mr. Muffins was holding his head with his gloved hands, now stained bright scarlet, and it looked like he could've been holding his own head together.
+Mr. Muffins was holding his temples with his gloved hands, now stained bright scarlet, and it looked like he could've been holding his own head together.
 
 "I tell ya..." Mr. Muffins groaned, "I got a splittin' headache..."
 
@@ -150,9 +150,9 @@ I dialed 911 and we all sat around, waiting for help to arrive. Tim pinned a duv
 
 "That's not true." Penelope chimed in, all but in tears, "It's just not! Someone could have... someone could have broken in... or maybe he did it himself."
 
-"He bashed his own brains in with an iron rod." Erin smirked, oozing sarcasm, "What a show-stopper."
+"He bashed his own brains in with an iron rod." Erin smirked, oozing sarcasm, "A show-stopping trick... but he can only do it once."
 
-"The funniest people are the most depressed." Paul helpfully explained, taking a sip from a drink held with two shaking hands.
+"He might've. The funniest people are the most depressed." Paul helpfully explained, taking a sip from a drink held with two shaking hands.
 
 I expected to hear sirens at that point, but instead a musical tune filled the night just outside. It sounded like it was being played through a broken, rattling speaker.
 
@@ -176,7 +176,7 @@ His uniform was a deep purple, but otherwise it seemed to strictly adhere to reg
 
 Everyone put their hands down in unison.
 
-"Alright, what seems to be the problem," The clown cop boomed in a gruff voice, "I hear there's a clown down."
+"Alright, what seems to be the problem," the clown cop boomed in a gruff voice, "I hear there's a clown down."
 
 "Oh my God," Brent sat back in his seat and let out a hot breath, "You had us so scared. Ralph, you're insane. This is too much,"
 
@@ -188,9 +188,9 @@ Ralph looked to Brent, then to the clown cop, then to me for some reason, then b
 
 "This is absurd..," Penelope folded her arms and made a skeptical face.
 
-The clown cop slowly walked to the duvet doorway and, pulling the cloth aside, peered into the kitchen. With his back to us, I could see the very prominent "KICK ME" sign taped to his back.
+The clown cop slowly walked to the duvet doorway and, pulling the cloth aside, peered into the kitchen. With his back to us, I could see the very prominent "KICK ME" sign taped between his shoulder blades.
 
-"This is absurd?" he didn't even turn to face us, "A dead clown, a murder victim, is absurd to you?"
+"Absurd?" he didn't even turn to face us, "A dead clown, a murder victim, is absurd to you?"
 
 Erin turned to Tim and, with a steely and unflappable tone, gave him a lesson in clown-based murder lore.
 
@@ -212,7 +212,7 @@ The clown cop stroked his chin and furrowed his brow at Brent.
 
 Brent lifted his arm to about chest height and stopped.
 
-"Spinal injury. When I was at chef collage, a stack of pans fell on me. Haven't been able to lift my arms over my head ever since. No way I could've lifted the weapon high enough to bash that clown on the head."
+"Spinal injury. When I was at chef collage, a stack of pans fell on me. Haven't been able to lift my arms over my head ever since. No way I could've raised the weapon high enough to bash that clown on the head."
 
 The clown cop reached deep into his pants, drew out a red-and-white striped baton, and walked up to Brent, clearly skeptical. He put the baton to each of Brent's elbows, one after the other, and pushed upward a bit. Still, Brent's arms didn't raise any higher than they had been.
 
@@ -280,7 +280,7 @@ Layla looked confused.
 
 "Shh." Tim fussed with her hair nervously, "He saw where we hid, honey. It must not have been a good spot, we can admit it."
 
-"Tim took the girls up in the attic." I finished, turning back to look at the three of them. "Right?"
+"Tim took the girls up in the attic." I repeated, turning back to look at the three of them. "Right?"
 
 "Yeah." Tim nodded deeply, over-selling the lie, "The girls and I hid in the attic."
 
@@ -294,13 +294,13 @@ I'm sure every last one of us was thinking of running, but given the impossible 
 
 I pulled Tim aside as we all left the living room, Occifer watching over us like a hawk.
 
-"There's a window in the attic. Leads to some lattice. When we're hiding, take your kids and go." I sternly whispered.
+"There's a window in the attic. Leads to some lattice. When we're hiding, take your kids and go." I whispered as quickly as I could manage.
 
 "Yeah, no shit I will." Time whispered back, "You know I didn't do it, right?"
 
 "I don't care." I growled, "If you did it, good. Fuck that clown. Fuck all clowns. Right about now, I wish I had done it."
 
-Officer Occifer was a chilling presence as he followed the group to each location.
+Officer Occifer was a chilling presence as he followed the group to the first hiding location.
 
 "So, I was under this table..." Roger said as he got on all fours with a groan, "In fact, I hit my head on the overhang. You can see here where I chipped it."
 
@@ -318,7 +318,7 @@ Paul and Ralph held her back as Roger looked up from his place on the floor, jus
 
 Penelope was a sobbing heap.
 
-Ralph reached for the handkerchief in her blouse pocket, I guess to wipe away the tears and snot running down her cheeks as she was inconsolably sobbing, but she batted his hand away.
+Ralph reached for the handkerchief in her blouse pocket, I guess to wipe away the tears and snot running down her cheeks as she was inconsolably weeping, but she batted his hand away.
 
 "Leave me be! Just leave me to die!" she screamed.
 
@@ -360,9 +360,9 @@ Paul stood, huffing and puffing, as I rushed behind him.
 
 "That'd be a very obvious and pedestrian clue. I'm a writer, I of all people would've thought not to do that if I were guilty."
 
-I yelled out in shock as Officer Occifer sat bolt upright. He got to his feet, pulled the umbrella out of his chest, and ripped open his shirt. Right there below the cloth was a thick, black square of body armor with yellow block letters that read "Umbrella-Proof Vest".
+I yelled out in surprise as Officer Occifer sat bolt upright. He got to his feet, pulled the umbrella out of his chest, and ripped open his shirt. Right there below the cloth was a thick, black square of body armor with yellow block letters that read, "Umbrella-Proof Vest".
 
-With a blindingly quick throw, Occifer launched the umbrella straight through Paul's neck, lodging it in his throat and stopping his death scream with a wet glug sound, replacing it with a spray of blood. The umbrella opened behind his head, and fell backward to the floor.
+With a blindingly quick throw, Occifer launched the umbrella straight through Paul's neck, lodging it in his throat and stopping his death scream with a wet 'glug' sound, releasing a spray of blood. The umbrella opened behind his head, and he fell backward to the floor.
 
 Officer Occifer gathered his wits and focused his attention back on me.
 
@@ -372,7 +372,7 @@ I looked around at the blood spatter marking the walls, the art around me, a por
 
 "No." I admitted.
 
-Occifer wasn't taken aback by my admission. He had no visible reaction whatsoever, and the colorful make-up on his face made it impossible to read his true emotions.
+Occifer wasn't taken aback by my admission. He had no visible reaction whatsoever, and the colorful make-up on his face made it impossible to read his true emotions... if there were any.
 
 "I want immunity." I clarified.
 
@@ -384,9 +384,9 @@ Occifer wasn't taken aback by my admission. He had no visible reaction whatsoeve
 
 I took a deep breath, fully feeling the weight of yet another life on my shoulders.
 
-"I'm innocent - but I think I just realized who killed Mr. Muffins."
+"I know who killed Mr. Muffins."
 
-Occifer reached into his pants again. I was cornered. He stood between me and the hall, and only a blank wall stood behind me.
+Occifer reached into his pants again. I was cornered. He stood between me and the hall, and a wall stood behind me.
 
 Before I could start begging for my life, he pulled out a tremendous stack of paperwork.
 
@@ -424,7 +424,7 @@ I had proven my point.
 
 "When Mr. Muffins showed up, you were surprised. Not becuase he was a clown, but because he was a clown you recognized. Sure, you're not wearing any make-up now, and you dress very modestly these days, so you thought maybe he wouldn't recognize you in turn. However, when he made your balloon animal... a giraffe... your favorite... you knew that he knew, and what's worse, he knew that you knew that he knew you knew."
 
-"It's true!" she fell to her knees, weeping as she clasped my shoe in one hand and Occiver's boot in the other, "He was my ex. I ran away from the big top just to get away from him! Oh, he was a beast! A monster! I tried to get a restraining order against him, but the courtroom was a circus! I changed my entire identity, but it still wasn't enough."
+"It's true!" she fell to her knees, clasping my shoe in one hand and Occifer's boot in the other, "He was my ex. I ran away from the big top just to get away from him! Oh, he was a beast! A monster! I tried to get a restraining order against him, but the courtroom was a circus! I changed my entire identity, but it still wasn't enough."
 
 "Sir, you don't want to be here for this." Occifer said, ushering me out of the room.
 
@@ -444,7 +444,7 @@ I explained everything that happened, but I think Ralph didn't believe most of i
 
 The lights dimmed for a moment.
 
-"Tim took got them out."
+"Tim got them out."
 
 "Well thank fuck for that, but the rest? Shit, man, we have to kill this freak of nature."
 
@@ -454,7 +454,7 @@ I stood on the sidelines as Officer Occifer came downstairs and marched into the
 
 As the first bottle sailed through the air, all I could think was that the light of the flame made he home feel more rustic and welcoming. Like a booze-scented candle, I guess.
 
-Occifer went up in flames instantly, engulfed from his flammable police hat to his flammable police boots. He didn't scream as the bottles continued to smash on and around him. Instead, he let out a series of comedic exclamations.
+Occifer went up in flames instantly, engulfed from his flammable police hat to his flammable police boots. He didn't scream as the bottles continued to smash on and around him. Instead, he let out a series of comedic exclamations as his burning silhouette flailed around the room.
 
 "Oh no, the sofa!" he shouted as he fell onto it, setting it aflame.
 
@@ -464,7 +464,7 @@ Occifer went up in flames instantly, engulfed from his flammable police hat to h
 
 "Let's go." I grabbed Ralph by the arm as he lifted yet another wholly unnecessary bottle in an attempt to light it. "I think you did it."
 
-On the front lawn, Ralph and I met up with Tim and the girls. The light of the raging fire that was overtaking the house lit the yard up like it was midday as we all started on in numb horror.
+On the front lawn, Ralph and I met up with Tim and the girls. The light of the raging fire that was overtaking the house lit the yard up like it was midday as we all stared on in numb horror.
 
 A siren rose in the distance, and before long a fire truck screeched to a halt nearby.
 
