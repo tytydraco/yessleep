@@ -52,4 +52,4 @@ At last, time to clock out and go home. Dennis' information hasn't been entered 
 
 I go back over to the time clock, and Lenny is there, dripping all over it. I use the sleeve of my jacket to hit the numbers, but when I turn around, I slip on his puddle of goo. I go flying backwards, and my head slams into the time clock, clocking me back in. Dennis bursts into laughter and says, 
 
-"Me next!"
+"Me [next](https://www.reddit.com/r/nosleep/s/VIOJoPmrmn)!"
