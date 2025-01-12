@@ -200,7 +200,7 @@ We pushed it open and spilled into the closet. I threw my body weight against th
 
 A sharp, searing pain shot through my shoulder as its claws tore into me, the heat behind the door unbearable now. Blood ran down my arm, soaking my shirt.
 
-“GO BACK TO HELL, YOU FUCKER!” Elara screamed, throwing herself against the door to help me. It became a brutal struggle, one side pulling, the other pushing, a horrific tug-of-war for control.
+“GO BACK TO HELL, YOU FUCKER!” Elara screamed, throwing herself against the door to help me. It became a brutal struggle, each side pushing in a horrific tug-of-war for control.
 
 The thing clawed at me again, deeper this time, and I screamed, a mix of pain, fear, and raw desperation. Its guttural, animalistic wails echoed through the door, and then, suddenly, the resistance stopped.
 
