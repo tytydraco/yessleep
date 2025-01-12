@@ -1,0 +1,25 @@
+I've never told anyone about what happened to my sister Sarah that summer, partly because I still struggle to make sense of it, but mostly because I'm afraid of what might happen if I do. Even now, twenty years later, when I find myself drifting back to those muggy August evenings in rural Vermont, my hands start to shake. The crickets would fall silent as sunset approached, and the fireflies would vanish from between the ancient maples that lined our grandmother's driveway, as if they knew to hide.
+
+We were staying with Gran after our parents' divorce, just until Mom could "get back on her feet," as she put it. Sarah was thirteen then, three years younger than me, and she'd always been the sensitive one. While I spent my days exploring the woods or helping Gran in her vegetable garden, Sarah would sit for hours in Gran's musty living room, arranged in that perfect stillness that made my skin crawl. She wasn't just grieving anymore – she was waiting for something.
+
+It started with the chair – Dad's old leather armchair that Gran had insisted on keeping after he moved out years ago. The first time I caught Sarah talking to it, she wasn't speaking English. The words that tumbled from her mouth were guttural, ancient-sounding things that made my teeth ache. When I asked her about it later, she had no memory of speaking at all.
+
+But then the conversations became more frequent, more disturbing. She would laugh at jokes I couldn't hear, but her laughter was all wrong – too high, too sharp, like breaking glass. She'd nod at stories that weren't being told, and sometimes scream in response to words that never reached my ears. The temperature would plummet whenever she was having these "conversations." Even in the thick of summer, frost would creep across the windows, and the air would fill with the smell of wet earth and decay.
+
+"It's Dad," she told me one evening, her eyes fever-bright and alien. "He comes to visit every day at sunset. He tells me about where he is now." Her fingers were blue at the tips, and I noticed with horror that her breath wasn't fogging in the cold air anymore.
+
+"Sarah," I said, trying to keep my voice steady, "Dad's not dead. He's in Arizona with Linda. We got a postcard last week, remember?"
+
+She smiled then, and I'll never forget how her teeth looked too sharp, too numerous. "Not that Dad," she said. "Our real Dad. The one from before. The one they buried wrong."
+
+That's when the cold feeling that had nothing to do with temperature settled into my stomach. When I confronted Gran later that night, she broke down and told me everything: how our biological father had died in a car accident when Sarah was just six months old, how they'd never found his whole body, how Mom had made everyone promise never to tell us, thinking it would be easier that way.
+
+The conversations continued through August, and Sarah began to change. Her skin grew pale and translucent, like tissue paper held up to light. She stopped eating, claiming she'd already had dinner "with him." At night, I'd wake to find her standing at the foot of my bed, having conversations with the empty air, her shadow on the wall somehow too tall, too twisted to be her own.
+
+I tried sitting in the chair once, when Sarah was helping Gran with dinner. The leather was cracked and worn, but it wasn't just old – it was hungry. The cold that seeped from it pulled at something deep inside me, and though I've never told anyone this part, I felt hands – too many hands – reach for me before I jumped up and ran from the room.
+
+We moved back in with Mom in September, once she'd found us a little house in town. Sarah begged to take the chair, but Gran insisted it had to stay. The day we left, I watched from the car as Sarah stood in front of it, black tears streaming down her face as she nodded at words I couldn't hear. She hugged the empty air, and for just a second – though I've spent years trying to convince myself it was just a trick of light – I saw the figure of a man embracing her, his body twisted and incomplete, his shadow spreading across the floor like spilled ink.
+
+Sarah never talked about it afterward, and she never mentioned our biological father again. Something had changed in her that summer, something fundamental. Her smile never quite reached her eyes anymore, and sometimes I catch her looking at old family photos with an expression I can't read, her fingers tracing faces in the pictures that I swear weren't there before.
+
+I've been back to Gran's house many times over the years, but I've never gone near that old leather armchair. Yet every time I visit, I notice how Sarah's children run to it immediately, climbing up and giggling at something just over their shoulders. I pretend not to notice how the room grows cold, or how their laughter sounds more and more like their mother's did that summer – too high, too sharp, like breaking glass. The Empty ChairAnd I try very, very hard not to think about how, in the right light, their shadows never quite match their bodies anymore.
