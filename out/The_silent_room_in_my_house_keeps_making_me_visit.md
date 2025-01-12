@@ -112,5 +112,3 @@ David took my hand and helped me to my feet. “Come on, Dad. Let’s get you so
 
 As we left the house, I glanced back at the guest room. The door was open, and inside, the rocking chair moved ever so slightly, creaking in the silence.
 
-The End.
-
