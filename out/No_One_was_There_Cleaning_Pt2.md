@@ -1,0 +1,53 @@
+   Welp, it's been a few days and a few people have asked about my work so I guess I'll tell you about my most mundane job just to let you see how the job usually is. I'll avoid the Kansas holocaust story until… forever. If I could go to therapy and knew I wouldn't get in trouble for this job, that scenario would definitely be the reason I'm in therapy and I don't want to put you all through that. Maybe I'll just tell you the one that sounds a bit like a conspiracy theory and considering the state of the world we're in right now I get the feeling we need a conspiracy. 
+
+   I'll back up a bit. My job is to clean up crime scenes before they get called in or found out; drug deals gone wrong, a senator strangled an underage prostitute to death in a motel room, a cult accidentally summoned the wrong deity and now said deity is hunting for its mate in Wisconsin. (By the way, Dupe’s Bar has the best cocktails after a long day of cryptid chasing. Great staff, ten outta ten.) anyway, my job is to go in, clean everything up to the best of my ability to make it look like nothing happened at any point, and get out of there before anyone finds out. My company doesn't technically have a name but I just call it "No One Was There Cleaning.” You’d think that with how long we've been around, we would have a name by now but names require trademarks and trademarks require paperwork and the last thing we need is paperwork that verifies that this thing exists. Anyway, on to the “conspiracy.”
+
+   Our current president isn't actually the president, the president has been dead for 2 years and the person in the White House running the country is a clone. I know this because two years ago, I was called to an apartment building in New York and I was told to clean up this apartment and make it look like nothing ever happened, as I'm supposed to do, and then forget anything that I saw in there. And do you want to know what I saw there? I saw our dead president with a very large stiletto heel sticking out of his skull. And I don't just mean the heel on this thing was like 6 inches, no I mean this shoe was a size 14. 
+
+   I'm in the breakroom one day, just drinking coffee, chatting with my co-worker, the auto guy, when all of a sudden, Bossman busts in through his door and almost completely shatters the hinges so the door falls off the frame. He mutters something about “getting that piece of shit fixed later,” grabbed by my shirt collar and pulls me to the garage without a single word to me. I wave goodbye to my co-worker, yelling out, “I bequeath all my earthly items to you” as a joke, and just wait for my early retirement to begin. 
+
+   He dragged me into the garage, slammed me into the side of a van and glared at me. “Here's the deal,” he growled, jabbing a finger into my chest. “We have a very important, high class call that you need to go on. Here's what's going to happen; you're going to go in, you're going to clean, you are going to get out, you are not going to ask questions, you are not going to look around, you are not going to take pictures. If you see anything that looks like something, no you do not. You are not allowed to speak, you are not allowed to breathe, you are not allowed to think, if at any point I find out you did anything that can risk our company with this job, I will reign hell fire on your ass. Do you understand?”
+
+   Obviously I was terrified, so I just nodded with my eyes as wide as they could get, biting my tongue so hard I'm pretty sure I could taste blood. He just grumbled again, grabbed my shirt, and pulled me out of the garage toward a waiting helicopter. I instantly recognized it as Air Force One but, again, I stayed as silent as I could. I know I wasn't allowed to speak, but all I could think was, The president has done something and he wants me to clean it up? What could the president have done that requires our company? Did something happen with Korea? Are we having a CEO situation? 
+
+   The flight was pretty long, as to be expected, and extremely silent. The secret service guy sitting next to me wasn't much for conversation, although since I was told not to speak I didn't really try. I just watched as the dark flyover states just flew below us until we touched down at a helipad in New York. From there I was carted into an SUV with extremely tinted windows and driven a couple of miles until we ended up at this very swanky apartment complex. Like I'm pretty sure this job would pay for a month's worth of rent at this apartment. There was a doorman, an elevator, a front gate with a keypad code; I felt like I was walking into Caesars Palace from The Hangover.
+
+   I dragged my gurney and caddy along with me as I was escorted to the elevator, and the five of us were hoisted up to the thirteenth floor. They strode down the hall in their black suits and ties, fancy shoes, dark sunglasses and earpieces, with me next to them in my white painter's suit and a red tool bag filled with hazardous chemicals meant to clean any stain you can think of, and quite a few you don't think of. We probably looked like quite a bunch. We stopped in front of apartment room 1313, with two more men standing in front of the door, as it stood slightly ajar. I heard what sounded like a man sniffling, regaling a traumatic story and, when they opened the door wilder to let me in, I saw a man in a short, red dress, his face smeared with makeup and tears rolling down his face.
+
+   He looked good in the dress, don't get me wrong, and I'm sure before the smearing, his makeup looked nice. When he looked up at me, fear and confusion in his eyes, I just gestured to the dress and gave him a thumbs up. He smirked, muttered a quiet, “Thanks,” in a feminine voice, and looked back at the man in the suit he… she?.. they were talking to. 
+
+   I was guided toward the deceased body of our current-of-two-years-later President and told, “Make it quick, we don't have a lot of time.”
+
+   This guy's got all the time in the world, I thought. But I shrugged and pulled at the shoe. It was lodged deep into his parietal lobe and I'll bet it was piercing his limbic lobe too, the heel was that long. It slid out pretty smoothly but I could feel the grey matter sucking it back against me. It released with a squishy pop and I started cleaning off the blood, bone shards, and brain matter, fully planning on offering it back to the red dressed person with no evidence of any sins it has committed.
+“Here,” their voice called and the other heel clattered next to me. “Get rid of them; I don't want to see them again.”
+
+   I shrugged, shoved the clean shoe in a white trash bag, put the other in a freezer bag and dropped it in too. An enzyme bath and these shoes will be back to selling shape.
+
+   The men in black took some gloves from my caddy, slipped them on and all worked together to lift the body onto their own waiting gurney.
+
+   “I, uh,” I stammered, getting their attention, their eyebrows all raised behind their dark glasses. “I know I'm not supposed to say anything but my company does offer disposal if-”
+
+   “We'll handle it,” one interrupted. “You just clean up.” They escorted the body away from the bloody scene, dressing up the wound like it was only an injury, and took it out the door. One stopped at the messed up red dress, nodded toward the door, and escorted them out with no shoes or words. I was left with one black suit, this one a blonde woman, stood by the front door and watched me work.
+
+   I just shrugged, slipped in one earbud and listened to a LITRPG audiobook while picking out pieces of brain and skull from the fibers of the carpet. Funny how a man with so much brain makes such poor decisions in life, I thought, saturating the carpet with a rather pungent mixture. I worked in the chemicals with a brush, watching the red liquid fade pink, dusted it with an unlabeled powder, and started working the powder in, the pink fading to white again. It was an enormous stain, like a serving platter, so that method worked on like a three inch circle at a time until the whole stain was finally lifted and the carpet was white again.
+
+   “I could use a bit of that,” the woman in the suit finally spoke while I blotted the wet carpet with a towel. I looked up to see her facing forward, but her eyes were looking in my direction. “Ya know, lady things.”
+
+   I chuckled, roughing the fibers. “You can probably just make it at home,” I offered and started spraying an enzyme eater on the whole carpet to seep down, removing any evidence that blood was ever there. “It's just peroxide and vinegar.”
+
+   “And that works?” she asked, keeping her voice low.
+“You just saw it,” I chuckled. I grabbed a spray bottle of the mixture and a washcloth and started on the splatter on the wall. The walls were about eight feet but somehow the blood splatter was only six feet up. Our conversation ended as soon as it started and I continued cleaning up. 
+
+   After a few hours, I turned back to the woman to see a man standing next to her, another suit with dark glasses. “All done,” I announced and gathered my supplies back into my caddy. I was brought back to the SUV, drove back to the helicopter, and flown back to my worksite.
+
+   I quickly forgot about that job until a few days ago when Bossman turned on the TV in the breakroom. The new kid, auto guy, Bossman and I were all sitting around having a coffee when I looked up and screamed, “Who the hell is that!?”
+
+   Bossman looked at me funny and answered, “That's the president, Soft-Man.”
+
+   I grumped at the play on my surname and responded, “No, it's not cause I cleaned up that guy's DEAD BODY two years ago.”
+
+   “Impossible,” Auto Guy snickered. “That would mean the last two years, the country's been run by a dead guy.”
+
+   “We've had worse presidents,” Bossman laughed. 
+
+Thanks to everyone who commented interest in my work and stories. Also thanks to the people who messaged offering work. Unfortunately I can't just stop by and clean, Bossman checks my mileage on the work trucks so I can't sneak any extra jobs. I'll see if anything interesting comes up in the next week and maybe make a post on it. We haven't found a new guy to replace the last one yet so I'm kinda on my own right now. I'm used to it but jobs go by faster when someone else is there. I don't know, Bossman says he has a few interviews lined up but I don't think those'll go anywhere; he's kinda particular about employees.
