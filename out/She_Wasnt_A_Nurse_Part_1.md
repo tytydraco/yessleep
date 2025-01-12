@@ -104,8 +104,6 @@ They are bringing their nurse to me. I guess it is more convient. Well any metho
 
 “You too miss” as I took the phone away from my ear I was reminded of my fear of needles. I never had an easy time with foreign objects being inserted into me. I remember telling my highschool girlfriend that it was a good thing I wasn’t into men. I think statements like that is why she left; although she did manage to laugh them off in the beginning. I still think those same idiotic thoughts. I feel a kind of connection to my past as I laugh about it; just as she used to. I hang up the phone as the first snikker leaves my lips. Hope Michelle didn’t hear that. God I am such an awkward man.
 
-
-
 \----------------------------------
 
  
@@ -230,7 +228,7 @@ Laying the bag on my table, she then took a small vial out from her pocket.
 
  
 
-“Oh that’s; just, ffine.” Damn I was back on the defensive. She was taking the alcohol swap and the small needle with the three-necked nuzzle. I could already feel my nervous sweat erupting from my skin like molten lava. The heat of the droblets quickly turning my perfectly adequate body temperature into shivering cold from their evaporation.
+“Oh that’s; just, ffine.” Damn I was back on the defensive. She was taking the alcohol swap and the small needle with the three-necked nuzzle. I could already feel my nervous sweat erupting from my skin like molten lava. The evaporation of the droplets quickly turning my perfectly adequate body temperature into shivering cold.
 
  
 
