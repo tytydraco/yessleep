@@ -1,3 +1,5 @@
+[Part 2:](https://www.reddit.com/r/nosleep/s/WVNMtpzFCk) 
+
 Ethan had been acquainted with the darker corners of the internet. An afternoon university student and a good coder, by night he was an adventurer, deep-diving into forums, chat rooms, and the invisible parts of the web. For him, the dark web was not some hangout for criminals and black markets but a source of forbidden knowledge.
 
 And so, that night, browsing through the threads of a certain dark web forum, he came across a thread simply entitled "The Shadow's Domain." Whatever the post was, it was cryptic; in fragmented sentences, it was very full of warnings:
