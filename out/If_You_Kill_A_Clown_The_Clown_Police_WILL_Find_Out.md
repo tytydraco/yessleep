@@ -100,7 +100,7 @@ Hide 'N seek.
 
 "Cake has to cool," Brent noted, "We have more than enough time."
 
-Ralph slipped in, "Flaming cocktails after."
+Ralph slipped in, "Cocktails after."
 
 "Why not?" Roger added.
 
