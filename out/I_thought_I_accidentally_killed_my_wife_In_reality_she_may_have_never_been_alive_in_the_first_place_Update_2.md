@@ -20,7 +20,7 @@ At first, I was trying to review *all* of the stolen documents in chronologic 
 
 Last night, as I was drifting off to sleep, an epiphany hit me.
 
-What was the purpose of the poem, *From Where Lucifer Stood, God Thread Sprouted*? Even if it references “God Thread”, which seems to be the crux of all of this, what was the point of including it?
+What was the purpose of the poem, *From Where Lucifer Landed, God Thread Sprouted*? Even if it references “God Thread”, which seems to be the crux of all of this, what was the point of including it?
 
 As it would happen, the damn thing is a sort of map.
 
@@ -34,7 +34,7 @@ If you convert those letters to their representative numbers, i.e. their order i
 
 At first, I thought I was unearthing a phone number, but with three underlines per stanza, there were too many numbers. Then I thought it was a longitude and a latitude, but that didn’t explain why some of the numbers were underlined in red and some were underlined in blue. Always two blue underlines with one red underline.
 
-But then I looked at the first mining log in chronologic order. Specifically, the date: June 1999, or 06/99. One red underline for the month, two blue underlines for the year. (As an aside, some of the later stanzas underline a period at the end of sentence, rather than a letter. I’m taking that to mean “0”).
+But then I looked at the first mining log in chronologic order. Specifically, the date: June 1999, or 06/99. One red underline for the month, two blue underlines for the year. (As an aside, some of the later stanzas underline a period at the end of a sentence, rather than a letter. I’m taking that to mean “0”).
 
 With five total stanzas in the poem, that left me with five dates, and narrowed my focus to only five of the total one hundred and ninety-eight mining logs. Perhaps these five documents contain whatever intel Camila wanted me to locate. Or maybe they form a sort of message, I'm not sure.
 
