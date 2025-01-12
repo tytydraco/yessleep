@@ -429,3 +429,5 @@ As someone who’s been on the receiving end of a Huntsman’s unwanted affectio
 Oh shit, indeed. I invited him over to hang out and maybe get his mind off of things. He declined, but was grateful for the offer. Understandably, he wanted his solitude, though he swore to call me if he needed me. 
 
 In other news, I’m pleased to report that Christmas day was peaceful. Just a nice, wholesome dinner with my mom and Deirdre, though Mom did do me dirty by breaking out some old video tapes that she'd taken of me as a preteen. I refuse to say what was on them. Just know that they will be [destroyed.](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD)
+
+Update: [Wes chose violence. ](https://www.reddit.com/r/nosleep/s/jw5Ab6JXLw)
