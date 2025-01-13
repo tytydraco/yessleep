@@ -454,7 +454,7 @@ I stood on the sidelines as Officer Occifer came downstairs and marched into the
 
 Occifer surveyed the room slowly, then spotted us.
 
-"Alright, I have to take you clowntown to be debriefed. Don't worry, you'll get your briefs back."
+"Alright, I have to take you clowntown to be debriefed. Don't worry, you'll get your briefs back after."
 
 As the first bottle sailed through the air, all I could think was that the light of the flame made the home feel more rustic and welcoming. Like a booze-scented candle, I guess.
 

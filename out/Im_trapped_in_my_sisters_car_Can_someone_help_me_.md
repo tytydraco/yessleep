@@ -80,7 +80,7 @@ She stumbled, but we both let out sharp gasp of horror as the body of the deer b
 
 Grace locked the door once we dove inside. Despite a cracked windshield and bent car doors, it felt a lot safer to be in the car than face that deer head on outside. It tumbled and fell two more times as it tried to crawl towards us. 
 
-I don’t think the deer was alive anymore after we hit it. 
+I don’t think the deer was alive when we hit it. 
 
 Grace tried her phone to reach 911 but there was no service. My phone had even worse luck as it wouldn’t even ring. She tried multiple phone numbers on both our phones and couldn’t reach a soul. The roads are dark and there haven’t been any passing cars or lights the whole time I’ve been stuck here. 
 
