@@ -50,7 +50,7 @@ There was no response, just the oppressive silence in the inescapable darkness o
 
 It began to crackle with a faint electrical noise. Then, a shape started to pull itself out of the screen. At first, it was vague, just an indistinct outline, but as it took form, dread washed over me. I could feel my breathing increase as I realized, with mounting horror, that it was Cabman.
 
-There was no mistaking those glowing eyes as he pushed through the screen. The monitor had become like a window, its surface parting like mere curtains he lightly brushed aside to make his entrance. His grin stretched unnaturally wide as his smoldering, sunken eyes stared directly at me, feeling as though he were staring through me.
+There was no mistaking those glowing eyes as he pushed through the screen. The monitor had become like a window, its surface parting like mere curtains he lightly brushed aside to make his entrance. His grin stretched unnaturally wide, those sunken eyes piercing through me, as if staring into my very soul.
 
 “No… no, no, no!” I stuttered, scrambling backward as my chair tipped onto two legs after getting snagged on the worn-out carpet under me. It was useless, I couldn’t escape. His elongated arm stretched out from the screen, and I could see his cold, gray, bony fingers emerging from the sleeve of his tattered peacoat. His hand latching onto the side of my head, trapping me in his grasp.
 
