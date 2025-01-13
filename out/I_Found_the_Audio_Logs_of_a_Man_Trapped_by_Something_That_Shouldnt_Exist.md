@@ -1,3 +1,5 @@
+[Part one](https://www.reddit.com/r/nosleep/s/3OtJQNOD3A)
+
 I found these audio logs on a recorder left in an abandoned cabin. I don’t know who Nathan was, but… something followed me back after listening to them.
 
 Audio Log 006: The Pull
@@ -89,5 +91,3 @@ And the pull—it’s stronger. Like it’s crawling inside me. Like it wants me
 [The tape cuts off abruptly.]
 
 I’ve sealed the recorder in a box, but it doesn’t matter—I still hear the scratching every night, and I swear it’s getting closer.
-
-[Part One](https://www.reddit.com/r/nosleep/s/3OtJQNOD3A)
