@@ -24,4 +24,4 @@ Frank loves me too much to let me die and when I was alive the first time around
 
 If life force can be taken by accident then it stood to reason that it could be taken by force as well. I read through the book containing the spell that brought me back, a tome that my brother had willingly shared with me, and found a spell that could drain his entire lifeforce in one go. Without my brother, his original spell that constantly renewed my life force will instead be replaced with nothing more than the energy that I've stolen from him. As I have no intentions to go out and drain anybody else I doubt I'll even last the year. But that's okay.
 
-I only really need nine months.
+I only really need [nine months.](https://www.reddit.com/r/Leavesandink/)
