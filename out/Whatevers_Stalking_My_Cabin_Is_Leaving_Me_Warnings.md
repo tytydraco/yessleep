@@ -74,3 +74,4 @@ I found something by the door. It wasn’t there an hour ago. A… bone. Looks l
 
 [Click.]
 
+[Part Two](https://www.reddit.com/r/nosleep/s/XJZ1lYtoLS)
