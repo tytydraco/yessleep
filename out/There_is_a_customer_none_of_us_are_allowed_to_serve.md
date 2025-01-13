@@ -348,4 +348,4 @@ The worst thing about being trapped at a diner, in the middle of nowhere, is tha
 
 Every single part of our planet is blanketed by stars, by open sky.
 
-Someone could drop in anytime.
+Someone could drop in [anytime](https://www.reddit.com/user/WorldAwayTweedy/).

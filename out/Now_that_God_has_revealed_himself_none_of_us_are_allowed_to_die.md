@@ -42,7 +42,7 @@ I remember just how *odd* the moment felt. Life had been tinged with a certain u
 
 I was seventeen at the time. My brother was twenty. We both asked Dad if we should follow her. He told us to stay home—that he’d accompany her and figure out what was going on. 
 
-He didn’t return until the next evening. We rushed downstairs when we heard the front door open, hoping we’d catch both parents entering. Instead, it was just him**,** disheveled, weary, a a muted expression on his face.
+He didn’t return until the next evening. We rushed downstairs when we heard the front door open, hoping we’d catch both parents entering. Instead, it was just him\*\*,\*\* disheveled, weary, a a muted expression on his face.
 
 I’ll never forget the way he looked at us. 
 
@@ -121,7 +121,7 @@ But no one was really gone. Mom hadn’t *left*. Worship would be over soon, it 
 
 “Commandment 4” became common knowledge a year later.
 
-The amount of folks called to worship had steadily gone up during this time. This was global, of course, so anyone curious could at any time look up a livestream of the designated “worship areas” around the world to see people standing uniformly, frozen, perfectly spaced**,** in parks, beaches, city squares, you name it. Every town, every city had its *place.*
+The amount of folks called to worship had steadily gone up during this time. This was global, of course, so anyone curious could at any time look up a livestream of the designated “worship areas” around the world to see people standing uniformly, frozen, perfectly spaced\*\*,\*\* in parks, beaches, city squares, you name it. Every town, every city had its *place.*
 
 My place, I supposed, would be the same field where Mom was, unless it filled up by the time it was my turn, in which case it could very well have been somewhere completely random and unknown. 
 
@@ -361,7 +361,7 @@ There was blood on the seat.
 
 It took him a second to respond—to register. “Ah, yeah, *yes.* Rev. Lucien. *Sure.*”
 
-“Uh—” I continued, “I haven’t really done this… *confessional* thing before but I guess, are you supposed to ask me to confess*… something?*”
+“Uh—” I continued, “I haven’t really done this… *confessional* thing before but I guess, are you supposed to ask me to confess\*… something?\*”
 
 “Yes! Please confess whatever is on your mind.”
 
@@ -415,4 +415,4 @@ I felt my head lower involuntarily. My eyes acclimated to the final shot—mysel
 
 And then it all went black.
 
-*A miracle.*
+*A* [*miracle.*](https://www.reddit.com/user/WorldAwayTweedy/)
