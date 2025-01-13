@@ -321,3 +321,6 @@ Out of my peripheral red caught my eye. I was looking at the bag full of what wa
  
 
 She left. I felt at home again. The sun was still shining. I threw out the trash under the couch. And updated my dating profile.
+
+  
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1i0pndf/she_wasnt_a_nurse_part_2/)

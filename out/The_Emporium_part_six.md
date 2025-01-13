@@ -50,4 +50,4 @@ Before I know it, I hear the closing announcement come through on the intercom. 
 
 *Twenty-four hours have been deducted from your time, due to time theft. Have a nice day!*
 
-Fucking hypocrite. Oh well, only one more day to go.
+Fucking hypocrite. Oh well, only one more [day](https://www.reddit.com/r/nosleep/s/wVbQ3br4Zj) to go.

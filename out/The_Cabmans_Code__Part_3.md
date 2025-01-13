@@ -2,7 +2,7 @@
 
 “Yeah… I’m here. I’m just trying to make sense of what you’re saying.” I responded, reluctantly.
 
-"Yeah, this all sounds crazy… we were just playing a game. What’s the worst part?" Zoey asked, her voice trembling with a mix of fear and disbelief.
+"He's right, this all sounds crazy… we were just playing a game. What’s the worst part?" Zoey asked, her voice trembling with a mix of fear and disbelief.
 
 “Well, right after I read that message… I heard a knock at my door.” Tray said apprehensively.
 
