@@ -69,3 +69,6 @@ The risk was significant, but sometimes you have to throw caution to the wind in
 I tossed the phone back onto its cradle. The faint glow of the sunrise was beginning to creep through the cracks of my window curtains.
 
 "Me Time" is over. Time to get to work.
+
+  
+Part 5 here [https://www.reddit.com/r/nosleep/comments/1i07hjv/count\_jims\_fortean\_freakshow\_part\_5/](https://www.reddit.com/r/nosleep/comments/1i07hjv/count_jims_fortean_freakshow_part_5/)
