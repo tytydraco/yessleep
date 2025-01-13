@@ -392,13 +392,13 @@ Before I could start begging for my life, he pulled out a tremendous stack of pa
 
 "Sign this." he said, handing me a suspiciously warm pen.
 
-I did as I was told. There was no way I could go over everything, there were hundreds of pages, so I don't even start reading. As I scribbled out my name, Occifer spoke.
+I did as I was told. There was no way I could go over everything, there were hundreds of pages, so I didn't even start reading. As I scribbled out my name, Occifer spoke.
 
 "I am prepared to offer immunity to yourself and the remaining innocent parties should you in fact provide information leading to the brutal slaughter of the perpetrator in this case."
 
 I lead the way as we proceeded into yet another of the many rooms of the house.
 
-"Come out." I said coldly. My brain told me I was doing the right thing, but my stomach told me I was disgusting traitor who should be throwing up.
+"Come out." I said coldly. My brain told me I was doing the right thing, but my stomach told me I was a disgusting traitor who should be throwing up.
 
 Penelope slid out from under the bed.
 
@@ -452,7 +452,11 @@ I watched passively as Ralph unpinned the duvet and made the flaming shots he ha
 
 I stood on the sidelines as Officer Occifer came downstairs and marched into the room. Ralph was behind the center island in the kitchen, like a soldier taking cover.
 
-As the first bottle sailed through the air, all I could think was that the light of the flame made he home feel more rustic and welcoming. Like a booze-scented candle, I guess.
+Occifer surveyed the room slowly, then spotted us.
+
+"Alright, I have to take you clowntown to be debriefed. Don't worry, you'll get your briefs back."
+
+As the first bottle sailed through the air, all I could think was that the light of the flame made the home feel more rustic and welcoming. Like a booze-scented candle, I guess.
 
 Occifer went up in flames instantly, engulfed from his flammable police hat to his flammable police boots. He didn't scream as the bottles continued to smash on and around him. Instead, he let out a series of comedic exclamations as his burning silhouette flailed around the room.
 
