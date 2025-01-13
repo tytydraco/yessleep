@@ -6,7 +6,7 @@ I learnt of this hidden world when I woke from 13 days of sleep. At first, I tho
 
 Besides, my friend saw something too.
 
-To secure this world record, I studied the approach of a UK hypnotist, Peter Powers, who achieved 8 consecutive days of hypnotic sleep. Following several failed attempts, I managed to surpass his feat by quite a sizeable margin. I fell asleep on December 20^(th), 2024, then I woke in a brand new year on the misty, wintry afternoon of January 2^(nd), 2025.
+To secure this world record, I studied the approach of a UK hypnotist, Mr Powers, who achieved 8 consecutive days of hypnotic sleep. Following several failed attempts, I managed to surpass his feat by quite a sizeable margin. I fell asleep on December 20^(th), 2024, then I woke in a brand new year on the misty, wintry afternoon of January 2^(nd), 2025.
 
 I fell asleep. I woke up. Gee, that makes it all sound rather routine, doesn’t it? Let me tell you, waking on that bitter, snowy morning did *not* feel anything like waking from an 8-hour sleep. It didn’t even feel like waking from a long, unconscious slumber after a night of heavy drinking. In fact, the flu once conked me out for a little under 24 hours; this 13-day sleep wasn’t even like *that*.
 
@@ -32,7 +32,7 @@ And we did, but I was chastised by the professionals who attended to me. I’d s
 
 As the hospital workers ran blood tests, I felt nauseated and agonised beyond measure—well, beyond the NHS 0-3 assessment scale. I’ve felt ‘severe pain’ before, but this was more than a 3. The pain in my body and mind had something to do with that blinding colour beyond the clouds. I could still see the red out of the hospital window, threatening to snag a subtle hole through the grey blanket in the sky.
 
-“Obviously, this is difficult for us, Mr Trenton,” the doctor told me. “I’ve dealt with patients hallucinating as the result of sleep deprivation. On the other hand, *oversleeping*—to this extent, at least—is, well, quite frankly, uncharted territory for me. I do remember that hypnotist back in the nineties who—”
+“Obviously, this is difficult for us, Quinn,” the doctor told me. “I’ve dealt with patients hallucinating as the result of sleep deprivation. On the other hand, *oversleeping*—to this extent, at least—is, well, quite frankly, uncharted territory for me. I do remember that hypnotist back in the nineties who—”
 
 “Yes, he’s the one whose record Quinn just broke,” Luke interjected. “Will he be okay?”
 
@@ -40,15 +40,15 @@ The doctor sighed, speaking to my friend as if I weren’t in the room. “Well,
 
 “Healthy? Look at him,” Becca whimpered, nodding at me as my eyes blinked rapidly. “He looks like he’s about to pass out. He was talking about the sky being red when we were—”
 
-“I share your concerns,” the doctor interrupted. “You were both right to bring your friend here. This has certainly taken a toll on his well-being, but not a permanent one—that is, at the end of the day, the best-case scenario. I really do think that things will look better tomorrow, once Mr Trenton has had a normal night’s sleep. He needs to allow his body to reset. He needs to acclimate back to reality, essentially.”
+“I share your concerns,” the doctor interrupted. “You were both right to bring your friend here. This has certainly taken a toll on his well-being, but not a permanent one—that is, at the end of the day, the best-case scenario. I really do think that things will look better tomorrow, once Quinn has had a normal night’s sleep. He needs to allow his body to reset. He needs to acclimate back to reality, essentially.”
 
 “And the hallucinations will stop?” I slurred in a fragile mumble.
 
-The doctor threw up his hands in exasperation. “As I told you, Mr Trenton, this is new territory for me. Believe it or not, we don’t get many patients who experiment with hypnotic sleep.”
+The doctor threw up his hands in exasperation. “As I told you, Quinn, this is new territory for me. Believe it or not, we don’t get many patients who experiment with hypnotic sleep.”
 
 “All right, there’s no need for that tone!” Becca snapped. “We just want our friend to get better.”
 
-“Go to bed at a sensible time tonight, Mr Trenton,” the doctor said. “And, most importantly, *wake up* at a normal time. You just need a normal eight hours of sleep. That’s my professional opinion.”
+“Go to bed at a sensible time tonight,” the doctor said. “And, most importantly, *wake up* at a normal time. You just need a normal eight hours of sleep. That’s my professional opinion.”
 
 As we walked out of the hospital, my friends ranted and raved about the rudeness of the doctor who scolded me. I was barely tuned into their conversation; instead, I focused on the oddities of my surroundings. Even within those four walls, far from the red sky above, things looked and sounded ever-so-slightly wrong to me.
 
