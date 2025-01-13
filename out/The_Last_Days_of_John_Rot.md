@@ -98,7 +98,7 @@ The next day, I drove over to Dr. Leitner’s office on the other end of town. 
 
 “Do you have an appointment?” she asked, eyeing me up and down.
 
-“No, I'm not a patient here.  He's an old friend, I wanted to consult him about one of my own patients.”  The receptionist chewed on the end of her own for a moment.
+“No, I'm not a patient here.  He's an old friend, I wanted to consult him about one of my own patients.”  The receptionist chewed on the end of her pen for a moment.
 
 “What's your name?”
 
