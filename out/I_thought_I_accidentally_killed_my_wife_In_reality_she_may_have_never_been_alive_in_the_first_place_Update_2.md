@@ -28,7 +28,7 @@ If you're interested, here is the[ full poem with the translation included.](ht
 
 On my copy, some letters/punctuation marks are faintly underlined in blue or red ink.
 
-For example, in the first stanza three total letters are underlined. The “i” in radiante (radiant), the “i” in Filho (son), and the “f” in Filho. The “i”s are underlined in blue rink, and the “f” is underlined in red ink.
+For example, in the first stanza three letters are underlined. The “i” in radiante (radiant), the “i” in Filho (son), and the “f” in Filho. The “i”s are underlined in blue rink, and the “f” is underlined in red ink.
 
 If you convert those letters to their representative numbers, i.e. their order in the alphabet, they become 699.
 

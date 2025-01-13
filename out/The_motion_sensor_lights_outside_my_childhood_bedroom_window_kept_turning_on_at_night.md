@@ -84,3 +84,4 @@ What I saw is something that I truly cannot explain. However, despite all logic 
 
 Like some sort of wild animal, she crawled backwards into the forest until the darkness covered her once more.
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/1i005ev/the_doors_in_my_childhood_home_wouldnt_stay_shut/)
