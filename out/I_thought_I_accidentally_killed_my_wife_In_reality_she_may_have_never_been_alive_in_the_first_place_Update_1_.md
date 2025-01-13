@@ -231,3 +231,6 @@ The title of the deep-sea mining operation is listed as *Diosfibras III*, which
 Working on transcribing and uploading them now.
 
 \-Jack
+
+  
+EDIT: [Link to Update 2](https://www.reddit.com/r/nosleep/comments/1hzy75p/i_thought_i_accidentally_killed_my_wife_in/)
