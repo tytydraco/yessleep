@@ -12,7 +12,7 @@ What happened next was likely what you would’ve expected.
 
 The world became kinder—more compassionate. Not by virtue of an intrinsic force of goodness overtaking us, but rather, the fear of retribution. You didn’t want to fight, didn’t want to insult, didn’t want to judge, because you didn’t know what would happen when you did. *A safe life,* with the recent supernatural developments, was one that contained a bit more charity, a bit more turning the other cheek, and a bit more feigned grace. *Fake it ‘til you make it,* after all. 
 
-I watched for signs of what would change next. We were all under the watchful eye, but it least *felt*—incorrectly, we would realize—that the almighty’s interventions had been minimal so far.
+I watched for signs of what would change next. We were all under the watchful eye, but it at least *felt*—incorrectly, we would realize—that the almighty’s interventions had been minimal so far.
 
 Everyone found out at their own pace that death had become a thing of the past.
 
