@@ -26,7 +26,7 @@ He never let us get anywhere near his study let alone the documents that he was 
 
 This nervous wreck of a man had replaced my dad.
 
-I mean, dad's whole personality changed, he wasn't outgoing or bubbly or excitable or even passionate, but.... Nervous. Secluded. Anti-social. He barely even spoke to my mum and I could tell it was starting to wear her thin, she'd even confided in me a couple of times about it after a couple of glasses of red one night, asking me if he'd spoken to me much or at all. Sadly, she was way more in the dark about it all than I'd realized.
+I mean, dad's whole personality changed, he wasn't outgoing or bubbly or excitable or even passionate, but.... Nervous. Secluded. Anti-social. He barely even spoke to my mum and I could tell it was starting to wear her thin, she'd even confided in me about it after a couple of glasses of red one night, asking me if he'd spoken to me much or at all. Sadly, she was way more in the dark about it all than I'd realized.
 
 What the hell happened up there? What was he typing? Did he see something? What was the mission?These are all questions that burned in my mind and it got to the point that, against my better judgement, I would begin to investigate this for myself, to try and snoop around his study and get an idea of what the hell was going on. At this point It wasn't even about the excitement of getting a scoop of details regarding the mission (although that *would* be awesome) but about finding a way to help my dad be himself again.
 
