@@ -341,3 +341,5 @@ It had a QR code for us to scan with our phones and some text beneath.
 We were in Hell. 
 
 And we weren’t leaving any time soon.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1i1hrm7/i_have_been_in_this_corn_maze_so_long_part_2/?)

@@ -38,7 +38,7 @@ Alright, I’m going to stop my ramblings about what I’ve been through. If any
 
 THE COFFIN
 Earth Designation- 38994
-Case File of Jeremiah West
+Case File of Jeremiah [REDACTED]
 
 12/13/1981
 
@@ -64,7 +64,7 @@ Going forward, there is a moratorium on the study of lightspeed or faster than l
 
 Thank you for your understanding,
 
-Jeremiah West.
+Jeremiah.
 
 12/16/1981
 

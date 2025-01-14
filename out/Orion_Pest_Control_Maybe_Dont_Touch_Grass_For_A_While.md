@@ -1,4 +1,4 @@
-[Previous case](https://www.reddit.com/r/nosleep/s/THiNWhebbK) 
+[Previous case](https://www.reddit.com/r/nosleep/s/5twzX7YInQ) 
 
 The Hunger Grass situation had gotten far worse before it had gotten better. And it's still not entirely resolved. 
 
