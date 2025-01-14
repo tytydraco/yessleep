@@ -43,7 +43,7 @@ I opened the dusty cabinet and began to dig through its contents. Once I got to 
 Startled, I took a couple steps back but was stopped when I bumped into one of the many stacks of boxes in the corner of the cellar. The towers of cardboard shook, and a few boxes fell to the ground, spilling their contents as they toppled. Not that I could see anything. The dark was all-encompassing and all-consuming. 
 
 
-*Five*, I counted in my head as I tried to steady myself and slow my breathing. I took a small step forward, in the direction of the lightbulb. I heard the boxes behind me shift.             
+*Five*, I counted in my head as I tried to steady myself and slow my breathing. I took a small step forward in the direction of the lightbulb. I heard the boxes behind me shift.             
          
 
 *Four*. I felt a gentle tug on the sleeve of my shirt. It was almost imperceptible with how slight it was. I probably wouldn’t have noticed, but with all of my nerves on high alert, I felt everything.

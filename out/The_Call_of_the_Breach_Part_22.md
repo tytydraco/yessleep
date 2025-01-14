@@ -1,5 +1,7 @@
 [\[Part 21\]](https://www.reddit.com/user/RandomAppalachian468/comments/1hxux37/the_call_of_the_breach_part_21/)
 
+[\[Part 23\]](https://www.reddit.com/user/RandomAppalachian468/comments/1i0s11k/the_call_of_the_breach_part_23/)
+
 *“Well done, brandi-badass.”*
 
 I rolled my eyes, and clicked the talk button on the special radio Sandra had made, gazing out the window at the overcast winter sky. “It’s not over yet; Chris is out checking on the northern border today, and he says the fighting will likely continue into winter. But we stand a better chance now, at least with all the walls. There’s talk of elections.”
