@@ -2,6 +2,8 @@
 
 [Previous ](https://www.reddit.com/r/nosleep/comments/1hs4i6v/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1hxq41o/im_a_contract_worker_for_a_secret_corporation/)
+
 Some work came my way, just small jobs here and there. Dr. Fillow needed to look at my leg soon. Lately, I’ve been feeling a dull pain coming from it. The last time he was here he just re-wrapped the bandages saying it was fine. We both knew this leg was temporary. Unlike supernatural creatures, attaching a new limb wasn’t easy for humans. I was lucky the current one lasted as long as it did. We often chatted a little whole he was here. I think the main reason why I was avoiding him was because I didn’t want to explain my failing relationship. Dr. Fillow could be a bit nosy.  
 
 Was it even a relationship? We never made that clear. Ito still replied to my messages and we sometimes called each other after his jobs but we hadn’t seen each other in a while. Was he really that busy with work? 
@@ -318,7 +320,7 @@ She took a few minutes to respond and collect her words.  
 
 I listened to her speak then offered my hand for her to take. Tears came to her eyes that she tried to hide by pressing her face into her knees.  
 
-“If died sooner he wouldn’t have to go through all this. Or if I wasn’t born in the first place... I screamed at him to let me die on that mountain with everyone else. Why didn’t he listen to what I wanted for once in his stupid life?”   
+“If died sooner he wouldn’t have to go through all this. Or if I wasn’t born in the first place... I screamed at him to let me die on that mountain with everyone else. Why didn’t he listen to what I wanted for once in his stupid life?”  
 
 This had been what tore them apart after their family had been killed. April saw what August went through and she blamed herself. Deep down she didn’t think she deserved to be saved so she went so far as to say he was dead to her. Creating distance between them had been easier than facing her feelings.  
 

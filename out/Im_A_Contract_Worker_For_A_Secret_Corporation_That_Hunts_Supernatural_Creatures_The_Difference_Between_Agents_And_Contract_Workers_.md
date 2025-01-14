@@ -2,6 +2,8 @@
 
 [Previous:](https://www.reddit.com/r/nosleep/comments/1h9ru3w/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1hwxkdi/im_a_contract_worker_for_a_secret_corporation/)
+
 For once, I picked up a job that had no risk of getting eaten. It was a task no one wanted; therefore, it took a few days to complete. I spent nearly a week going through reports and paperwork in the office because I had a basic enough grasp of the common language supernatural creatures used to read the nonsense reports they filed. A great deal of outdated and useless reports were burned that week.   
 
 I’ll admit, I did waste some time texting Ito and April instead of working as hard as I should have. Ito was fairly busy with real jobs so I couldn’t talk to him as much as I wanted. I was committed to properly asking him out. It needed to be in person though. My stomach sank when he asked if we could talk about something important the next time, we saw each other. My brain swam with what that could possibly mean. Not a lot of those ideas were overly positive.  
@@ -241,4 +243,3 @@ Deep down I knew that. And yet I wasn’t sure if I could forgive myself for som
 Al was already curled up inside his wagon asleep. He was so small and yet he worked hard every day against the same thoughts I struggled with. I wanted to be able to keep things together as well as he did.  
 
 Right now, getting some rest is the most important thing I could do. I couldn’t help others if I kept pushing myself. A dull pain came from my hip again. It was hard to sleep no matter how much I wanted to. I’ll have to get it looked at shortly.  No matter how much I wanted to call Ito, I held back. He needed some distance if I had any hope of having a real relationship with him in the future.  
-

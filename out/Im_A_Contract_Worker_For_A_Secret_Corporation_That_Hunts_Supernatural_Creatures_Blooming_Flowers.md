@@ -2,6 +2,8 @@
 
 [Previous ](https://www.reddit.com/r/nosleep/comments/1hwxkdi/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1i1betf/im_a_contract_worker_for_a_secret_corporation/)
+
 A week went by without a single job. Not even an email about medical plant collection or a lost supernatural creature job. Nothing.
 
 August took some time off to recover. I didn’t want to go over and bother him. I spent most of my days picking up trash in the neighborhood. Allie had already moved on. He didn’t like staying in one spot for too long. He promised we would see each other again at some point.
