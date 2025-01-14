@@ -256,7 +256,7 @@ She leaned in and grabbed my forearm. Her hands where soft. I closed my eyes as 
 
  
 
-“2” If I looked I would watch as my body became scared, and blood became scarcer.
+“2” If I looked I would watch as my body became scarred, and blood became scarcer.
 
  
 
@@ -268,7 +268,7 @@ I blinked. And kept my eyes closed.
 
  
 
-I felt an exponentially rising pressure on my skin. Then my cartilage gave in, it collapsed with a snap as the needle broke through my armor. When it settled within me, the vein bounced back up like a spring enclosing the foreign object. As it scraped upon the needle I felt me toes cringe. I let out a small puff of air, and opened my eyes.
+I felt an exponentially rising pressure on my skin. Then my cartilage gave in, it collapsed with a snap as the needle broke through my armor. When it settled within me, the vein bounced back up like a spring enclosing the foreign object. As it scraped upon the needle I felt my toes cringe. I let out a small puff of air, and opened my eyes.
 
  
 
@@ -322,5 +322,4 @@ Out of my peripheral red caught my eye. I was looking at the bag full of what wa
 
 She left. I felt at home again. The sun was still shining. I threw out the trash under the couch. And updated my dating profile.
 
-  
 [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1i0pndf/she_wasnt_a_nurse_part_2/)

@@ -4,7 +4,7 @@ Part 4 here: [Count Jim's Fortean Freakshow Part 4 : r/nosleep](https://www.red
 
 Journal of Frater XII of the Esoteric Order of the Other
 
-October 26th, 1993
+October 21st, 1993
 
 The hum of the Rust Bucket's engine is a constant, grating buzz against the drumming in my ears. This isn't the usual low thrum of road trip anticipation; it's the high-pitched whine of anxiety, a sound that's become far too familiar these past few days. The meds help, or are supposed to, but lately it's like trying to quell a forest fire with a garden hose.
 
