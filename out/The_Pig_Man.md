@@ -52,7 +52,7 @@ I glanced over my shoulder as a woman carrying a tote bag from The Black Dog sto
 
 I knocked on the outside of the  metal door before realizing where the buzzer and intercom system was; as I pressed the lone button, Zack muttered, “I can’t believe you think a Pig Man is your daddy…”  I snarled as the voice of a late-middle-aged woman answered: “YES?”
 
-“It’s Miguel Boyd. I-”
+“It’s Miguel. I-”
 
 Before I could say anything more, I heard a buzz and an unlatching of the door. I opened the door to a dimly lit hallway lined with torn sculpted carpeting. Despite the building being multi-leveled, the staircase wasn’t accessible from this side. There were only three rooms and a Mr. Pibb machine at the end of the hallway that looked like it hadn’t been working for years. The first two rooms were unnumbered. The last door numbered “1C” in faded black script, was left cracked a few inches, the TV glow flickering through its crevice. I hesitantly opened the door. Zack, who was checking something on his phone, followed.
 
@@ -62,7 +62,7 @@ Before I could say anything more, I heard a buzz and an unlatching of the door. 
 
 We took the two lone chairs at the far end of the table. The three of them stared blankly at us. The glow from the old, boxy television was the only source of light in the room, which felt quite crowded with the large sectional and half-kitchen intersecting it.
 
-“My name’s Donna Michaelson. Next to me is Devin, and across from me is Mae. Like you, we all received the same note.”
+“My name’s Donna. Next to me is Devin, and across from me is Mae. Like you, we all received the same note.”
 
 They subtly waved at us as Donna lay the notes on the table. Each note had a similar style of lettering, but Donna’s had blood-smeared hoof prints across the body.
 
