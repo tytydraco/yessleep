@@ -1,8 +1,8 @@
 Hey I’m new here. My name is Josiah but most people call me Joe. Recently, I have been having reoccurring nightmares. And I was thinking that maybe I should write them down. So the dream starts like this.
 
-I was out in a town that I used to live in. Walking down the Main Street sidewalk of a small town in the middle of nowhere when I saw something odd. I saw this man, standing in the middle of the intersection. I couldn’t see his face but everything just felt off. Suddenly it gets really cloudy and it starts pouring rain and there’s this thick fog that descends on the town.
+I was out in a town that I used to live in. Walking down the Main Street sidewalk when I saw something odd. I saw this man, standing in the middle of the intersection. I couldn’t see his face but everything just felt off. Suddenly it gets really cloudy and it starts pouring rain and there’s this thick fog that descends on the 
 
-Then i realize the town is actually a ghost town. But why is there a man standing in the center of an intersection. Against my better judgment i approached the man and ask where i was.
+Against my better judgment i approached the man and ask where i was.
 
 “You are in my paradise. And you better get ready boy, you better run and hide.”
 
@@ -30,11 +30,11 @@ I turn to start walking away when he speaks again.
 
 “Try it boy. You can’t escape from your demise.”
 
-Traum starts walking towards me and instincts took over. Like a doe running from a wolf. I took off in the opposite direction. I run past the paradise city bank and saw more people but I kept running. I couldn’t risk speaking to them if they were like Traum, I would be dead. I pass a residential area and it was again a ghost town. And then I saw it.
+Traum starts walking towards me and instincts took over. Like a doe running from a wolf. I took off in the opposite direction. I run past the paradise city bank and saw more people but I kept running. I couldn’t risk speaking to them if they were like Traum, I would be dead. I pass a residential area and that had been stained with blood, then I saw it.
 
 The Church from my childhood. A safe place. At least that’s what i thought. When I opened the door to the church the smell of rot overcomes me. I walk to the altar head held low. I get to the front of the altar and turn to look to the doors i entered.
 
-Rotten corpses of the people who had gone to church. I turn to the cross behind me and realized who was on the cross. It wasn’t Jesus. It was my girlfriend Madison. My girlfriend was crucified! I didn’t notice the footsteps approaching till he was behind me.
+Rotten corpses of the people who had gone to church. All sitting in pews, some on the floor. I turn to the cross behind me and realized who was on the cross. It wasn’t Jesus. It was my girlfriend Madison. My girlfriend was crucified! I didn’t notice the footsteps approaching till he was behind me.
 
 “She was a fighter and this was my gift to her. Everyone else didn’t fight. Except your friends. You had good friends. But they were nothing. Now it’s your turn.
 

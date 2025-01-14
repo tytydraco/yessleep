@@ -52,7 +52,7 @@ Simultaneously alarmed and confused on how the furniture could be alive.
 
 “This way Josiah. Come see the kitchen.”
 
-The kitchen was behind a wall past the living room. At first glance the living room was normal. If you disregard the oven.
+The kitchen was behind a wall past the living room. At first glance the kitchen was normal. If you disregard the oven.
 
 “This here is Rosaline Rose. I made her into an oven because it’s where she spent most of her time.”
 
@@ -84,11 +84,11 @@ Past the living room was a hallway with 4 small bedrooms connected. To continue 
 
 As im walking out Traum says something to catch my attention.
 
-“You still have your family left. I can and will kill them if you don’t play along.”
+“You still have your family left. I can always kill them if you don’t play along.”
 
 “Traum your just a nightmare. You can’t hurt me!”
 
-“Have you checked Madison’s hands and feet. Next time you see her, look closely.”
+“Have you checked Madison’s hands. Next time you see her, look closely.”
 
 I make my way into the living room and the radio turns on. It was playing screams of the people Traum had killed. I walked a little quicker but slipped on the blood soaked floor.
 
@@ -102,7 +102,8 @@ Then I woke up. Madison had just gotten home and i immediately got out of bed.
 
 “Oh Josiah what happened?” 
 
-We both sit on the couch and she signals me to lay on her thighs. I tell her the nightmare and was getting to the end of the story when I remembered what Traum had said.
+We both sit on the couch and she signals me to
+Lay next to her. I tell her the nightmare and was getting to the end of the story when I remembered what Traum had said.
 
 “Next time you see her, look at her hands.”
 
