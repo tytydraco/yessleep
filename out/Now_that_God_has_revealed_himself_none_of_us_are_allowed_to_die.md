@@ -18,7 +18,7 @@ Everyone found out at their own pace that death had become a thing of the past.
 
 Some knew immediately—when their loved ones in hospice care saw remarkable turnarounds in health.
 
-Others missed the memo until mass consensus had been established, when scientists and statisticians alike revealed that by every known metric—natural disasters, car crashes, heart attacks—that the number of daily reported deaths had plummeted from an average of 160,000 to zero. 
+Others missed the memo until mass consensus had been established, when scientists and statisticians alike revealed that by every known metric—natural disasters, car crashes, heart attacks—the number of daily reported deaths had plummeted from an average of 160,000 to zero. 
 
 Life went on, and as it did, I started hearing whispers of what *worship* was. Depending on who you talked to, online or at the watercooler, you’d hear a different rumor, a different interpretation.
 
@@ -42,7 +42,7 @@ I remember just how *odd* the moment felt. Life had been tinged with a certain u
 
 I was seventeen at the time. My brother was twenty. We both asked Dad if we should follow her. He told us to stay home—that he’d accompany her and figure out what was going on. 
 
-He didn’t return until the next evening. We rushed downstairs when we heard the front door open, hoping we’d catch both parents entering. Instead, it was just him\*\*,\*\* disheveled, weary, a a muted expression on his face.
+He didn’t return until the next evening. We rushed downstairs when we heard the front door open, hoping we’d catch both parents entering. Instead, it was just him, disheveled, weary, a muted expression on his face.
 
 I’ll never forget the way he looked at us. 
 
@@ -56,8 +56,8 @@ During that time, we learned something more about God’s “interventions.”
 
 The “New Commandments” as I’d termed them in my brain, were panning out as the following:
 
-1. Thou Shalt Not Die (via disease, natural disasters, etc.)
-2. Thou Shalt Be Called to Worship at a Random Time 
+1. **Thou Shalt Not Die (via disease, natural disasters, etc.)**
+2. **Thou Shalt Be Called to Worship at a Random Time** 
 
 Now I’ll admit neither of those are as catchy as the OG Commandments. This is, after all, not the official word of the lord, merely just my reading of the tea leaves.
 
@@ -73,7 +73,7 @@ And then both of them just… walked. Single-file, empty expressions on their fa
 
 So:
 
-1. If Thou Attempt to Kill Another, Thou Shalt Immediately Be Summoned to Worship. 
+3. **If Thou Attempt to Kill Another, Thou Shalt Immediately Be Summoned to Worship.** 
 
 Was the takeaway.
 
@@ -113,15 +113,15 @@ I told her I loved her then departed through the gathering of worshippers, all o
 
 En route, I spotted a few other visitors. They looked more morose than I was. They whispered words of affirmation and love to their respective persons, *hearing responses sure* but said responses from the corner of their loved ones' mouths seeming light, quiet, curt, God-centric. Like they were standing at someone’s gravesite—albeit more a statue than a grave. A commemoration of someone long gone.
 
-But no one was really gone. Mom hadn’t *left*. Worship would be over soon, it had to **be**. Maybe another couple of weeks, couple months at most, and then she’d be home, and the lord would call someone else to take her place.
+But no one was really gone. Mom hadn’t *left*. Worship would be over soon, it had to be. Maybe another couple of weeks, couple months at most, and then she’d be home, and the lord would call someone else to take her place.
 
 \_\_\_\_\_\_\_
 
-1. When Thou Art in Worship, Thou Shalt Not Age.
+4. **When Thou Art in Worship, Thou Shalt Not Age.**
 
 “Commandment 4” became common knowledge a year later.
 
-The amount of folks called to worship had steadily gone up during this time. This was global, of course, so anyone curious could at any time look up a livestream of the designated “worship areas” around the world to see people standing uniformly, frozen, perfectly spaced\*\*,\*\* in parks, beaches, city squares, you name it. Every town, every city had its *place.*
+The amount of folks called to worship had steadily gone up during this time. This was global, of course, so anyone curious could at any time look up a livestream of the designated “worship areas” around the world to see people standing uniformly, frozen, perfectly spaced, in parks, beaches, city squares, you name it. Every town, every city had its *place.*
 
 My place, I supposed, would be the same field where Mom was, unless it filled up by the time it was my turn, in which case it could very well have been somewhere completely random and unknown. 
 
@@ -187,7 +187,7 @@ I walked him the whole way there—five hours—until he took his spot in the cl
 
 He didn’t say anything to me on the trek there, though to be fair, I didn’t say much to him either.
 
-1. If Thou Attempt to Take Thine Own Life—You Guessed It, Thou Salt Immediately Be Summoned to Worship.
+5. **If Thou Attempt to Take Thine Own Life—You Guessed It, Thou Shalt Immediately Be Summoned to Worship.**
 
 \_\_\_\_\_\_\_
 
@@ -207,7 +207,7 @@ Youtube videos and TikTok clips talking about a “surefire way to escape”—t
 
 There were two moments that stuck with me—moments that really captured the spirit of things.
 
-The first was the final video of that guy who was planning an elaborate, Rube-Goldberg-esque escape from his physical body. Doused himself and his room in gasoline, held a string tied to a blade suspended above his head, had a timer with an explosion counting down. I commended the hell out of his effort. The moment hit—he tossed a match from his seat to the corner. Flames ignited, he pulled the string, and then—-
+The first was the final video of that guy who was planning an elaborate, Rube-Goldberg-esque escape from his physical body. Doused himself and his room in gasoline, held a string tied to a blade suspended above his head, had a timer with an explosion counting down. I commended the hell out of his effort. The moment hit—he tossed a match from his seat to the corner. Flames ignited, he pulled the string, and then—
 
 The fire fizzled as soon as it reached him. The blade froze in mid-air. The explosion never happened (thank goodness, really, as the camera footage eventually discovered and uploaded was *gold*), and then our friend got up from his seat, still dripping and flammable, and walked out of frame. 
 
