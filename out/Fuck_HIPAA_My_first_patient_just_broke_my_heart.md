@@ -776,7 +776,9 @@ I didn’t even know how to answer. The bruises on my arm hurt worse than ever.
 
 
 
-“I would have liked to work with me.” With that, he went back into Charlie’s office.
+Finally he said, “I would have liked to work with you.” 
+
+With that, he went back into Charlie’s office.
 
 
 
