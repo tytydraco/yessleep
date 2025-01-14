@@ -1,5 +1,5 @@
-[Part Two](https://www.reddit.com/r/nosleep/comments/1him8aw/something_outside_the_kitchen_window_is_watching/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  
-  
+[Part Two](https://www.reddit.com/r/nosleep/comments/1him8aw/something_outside_the_kitchen_window_is_watching/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 \- - -
 
 What was I afraid of? I believe some part of me at that moment still held onto the thought that it was all in my head, that everything unfolding was just a figment of my imagination, albeit a viscerally real one; the only thing that kept it—that kept me from the reality of the situation was truly asking for help—from seeking help.
@@ -356,3 +356,7 @@ Tina was being dragged away, along with her fellow protestors as the policemen h
 \- - -
 
 End of **Part Three**
+
+\- - -
+
+[Part Four](https://www.reddit.com/r/nosleep/comments/1i183lv/something_outside_the_kitchen_window_is_watching/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
