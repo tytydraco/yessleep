@@ -102,7 +102,7 @@ The truck cab disappeared from view without a sound. For an instant, I wondered 
 My eyes were drawn back to the road. From the wrecked car, something was moving.
 
 A figure emerged from the driver's side, stepping out of the twisted remains of my vehicle as if nothing had happened. The man—unharmed, his suit still immaculate—turned to face me. His cold, dark eyes locked onto mine.
-Standing in a pool of moonlight beside the wreck, he raised his hand and held up one finger. He shook it once for emphasis. “Just one” I thought, understanding all at once- He’d taken the trucker in my place.
+Standing in a pool of moonlight beside the wreck, he raised his hand and held up one finger. He shook it once for emphasis. “Only one” I thought, understanding all at once- He’d taken the trucker in my place.
 
 He turned and stalked confidently into the woods, swallowed by the darkness. 
 
@@ -112,6 +112,6 @@ It was my fault. I should never have stopped on that lonely, dark road. I should
 
 Among all the things I might have done differently that night, one haunts me to this day. 
 
-“I only need one,” it had said. 
+“I only need one,” it said. 
 
 
