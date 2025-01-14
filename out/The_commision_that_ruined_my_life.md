@@ -1,6 +1,6 @@
 Being an artist is tough, musicians barely get paid on streaming platforms, filmmakers depend on contacts and luck to thrive on a very competitive industry, and painters like myself are being slowly but surely replaced by photographers and AI. They say desperation makes you reckless, and maybe that's true. When I first met the old man in the black suit I was three months behind on rent and eating plain rice for dinner. My paintings weren’t selling, and every day felt like I was teetering on the edge of something I couldn’t come back from. So, when he knocked on my door with his strange offer, I didn’t ask enough questions.
 
-“You’re Sophia Ramirez?” His voice was smooth, precise, like the kind of man who always got what he wanted.
+“You’re the painter Sophia?” His voice was smooth, precise, like the kind of man who always got what he wanted.
 
 “Yes, that’s me” I replied, gripping the doorframe. He didn’t look like someone who’d buy art, more like a lawyer or a banker. But when he opened a leather briefcase to reveal stacks of crisp bills, I didn’t care who he was.
 

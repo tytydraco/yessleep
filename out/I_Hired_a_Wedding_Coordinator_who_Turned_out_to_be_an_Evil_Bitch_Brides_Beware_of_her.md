@@ -36,11 +36,9 @@ There was only one month to go before the wedding, and everything was already bo
 
 So I went to the expo. I walked through the many isles, brushing shoulders with the newly engaged, and passed stall after stall of eager merchants keen for a new booking. All up, there were twenty five business’s present that had a Wedding coordinator included in their list of services, and sure enough, I had enquired with all of them.
 
-Dismayed, I left the building and trudged through the car park with slumped shoulders. I had just unlocked my car, when something caught my eye. Parked on the opposite end from where I was, was a glossy purple van. Printed on it’s sides in an elegant script was the words, “Forever Events.”
+Dismayed, I left the building and trudged through the car park with slumped shoulders. I had just unlocked my car, when something caught my eye. Parked on the opposite end from where I was, was a glossy purple van. Printed on it’s sides in elegant script were the words, "Jeanie, mistress of coordination,  who'll make your special day last forever.”
 
 My heart lurched as hope began to trickle into my veins.
-
-I decided to walk over to it, at least so I could read the smaller writing below the business name. It said, “Jeanie Lilly, Mistress of Coordination, who’ll make your special day last forever.”
 
 Butterflies fluttered in my stomach, driving me into a brisk walk towards that purple van. I halted just close enough to take a clear photo of the contact details written in small font at the bottom.
 
@@ -54,7 +52,7 @@ Now I swear on my life, I have always been loyal to Joe, and have always been at
 
 “Jeanie Lilly, at your service. And what shall I call this lovely young lady caught gawking at my van?”
 
-I swallowed with a great effort. “Sylvia Paulina.”
+I swallowed with a great effort. “Sylvia.”
 
 “Ah, such a beautiful name for a beautiful lady. So, you’re looking for a Wedding Coordinator are you?” Her voice had the purr of an experienced seductress.
 
@@ -132,7 +130,7 @@ She handed me my phone back, and told me that there was no need to see her again
 
 When I exited the van, and watched it immediately drive away - the thought not even occurring to me that someone else had been sitting in the drivers seat the whole time - I was satisfied and already feeling a tinge of the Euphoria that Jeanie was so adamant in bringing to the wedding.
 
-I wish with all my heart that I could go back in time and slap that stupid-bimbo-bride-to-be that I was. I’d scream in her face, demanding her to look up Forever Events on Google, to see that there was absolutely nothing mentioned of it online, not even a fucking advertisement on craigslist! Id tell her to get her shit together and cancel the booking with that Evil Bitch. When she’d inevitably argue, I’d tell her that 200 people were going to die if she did not.
+I wish with all my heart that I could go back in time and slap that stupid-bimbo-bride-to-be that I was. I’d scream in her face, demanding her to look up Jeanie’s business on Google, to see that there was absolutely nothing mentioned of it online, not even a fucking advertisement on craigslist! Id tell her to get her shit together and cancel the booking with that Evil Bitch. When she’d inevitably argue, I’d tell her that 200 people were going to die if she did not.
 
 Alas, time machines don’t exist and I am burdened to live with the consequences for my choices that day. If it’s possible, I hope they would forgive me for what happened to them, for I’ll never be able to grant forgiveness to myself for my stupidity.
 
@@ -314,9 +312,9 @@ With slumped shoulders the two men left.
 
 I did as I was told, her soothing voice no doubt playing a large part.
 
-The blonde pointed at her own chest. “I am detective Sonia Hay, and this is detective Rebecca Lyle.”
+The blonde pointed at her own chest. “I am detective Sonia, and this is detective Rebecca.”
 
-Rebecca the brunette continued, “We are going to jump straight to our own conclusions of what happened on your wedding night. You hired a dark haired woman dressed in grey to coordinate your wedding, didn’t you?”
+Rebecca, the brunette continued, “We are going to jump straight to our own conclusions of what happened on your wedding night. You hired a dark haired woman dressed in grey to coordinate your wedding, didn’t you?”
 
 I gulped hard, not liking where this was going. “Yes,” I croaked, my vocal chords rusty after nearly a week of disuse. “Her name is Jeanie Lilly.”
 
@@ -342,7 +340,7 @@ I cocked my head, not getting where this was going.
 
 Rebecca squeezed my shoulder gently. “She’s had many names over the years; Jeanie being the one she chose to ensnare you with. We call her the Jealous Bitch, for that is what she is. But her real name is Lilith.”
 
-My mind raced as I tried to recall where I had heard that name before. I remembered a popular Metal song I used to listen to as a teenager called Lilith Immaculate, and my heart jolted to a halt.
+My mind raced as I tried to recall where I had heard that name before. I remembered a popular Metal song I used to listen to as a teenager called Lilith the metal lass, and my heart jolted to a halt.
 
 It all made sense.
 

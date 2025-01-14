@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1i1i2ao/my_family_doesnt_remember_who_i_am_part_2_im_in_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 I've been stuck in my dorm all semester trying to keep my head above water, clawing at my face in the middle of the night as I struggle to keep my eyes glued to my computer. When finals week finished I was eager to get the hell out of there, but I didn't receive the homecoming I was expecting and the reality of my new situation is slowly killing me inside.
 
 I flew home the week after Christmas. Carry-on in hand I walked into the airport lobby expecting to see my family waiting for me, anxious to greet me after months away, but nobody was there. I stood there awkwardly scanning the crowd of travelers, hoping to catch a glimpse of a familiar face, but the more I searched the more disappointment built up in my chest. Clutching my phone, I stared at the screen awaiting a text, a call, any sign that would let me know someone was coming. That sign never came.
@@ -131,3 +133,5 @@ His beard was long, grey, and matted. The wrinkles on his face were deep, skin l
 The store clerk's reflection came into frame.
 
 "Sir, this is the women's bathroom. You can't be in here."
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1i1i2ao/my_family_doesnt_remember_who_i_am_part_2_im_in_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

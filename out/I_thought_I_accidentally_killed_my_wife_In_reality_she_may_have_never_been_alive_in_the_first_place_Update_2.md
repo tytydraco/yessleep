@@ -118,7 +118,7 @@ Afonso and I spent the rest of the evening confirming the functionality of our d
 
 I drew that mercury-adjacent symbol more times than I ever have before tonight. On notebook paper, on furniture, on my own skin. Typically, it surfaces from my subconscious four times a year. Today alone I’ve drawn it more than five times my annual quota. I stopped counting after thirty. If I’m not watching my extremities like a hawk, it just starts up again. My tight, involuntary grip on the writing utensils has cramped the muscles in my right hand to hell and back, as well as peeled a layer of skin off my palm. Whiskey, thankfully, seems to be calming the compulsion.
 
-I’m praying for a deep, dreamless sleep. An elusive sanctuary where I can hide from this symbol…this envoy bringing some unknown message from a place in-between the waking world and sleep. Through unexplainable extrasensory insight, however, I’m getting the impression that will not be the case.
+I’m praying for a deep, dreamless rest. An elusive sanctuary where I can hide from this symbol…this envoy bringing some unknown message from a place in-between the waking world and sleep. Through unexplainable extrasensory insight, however, I’m getting the impression that will not be the case.
 
 \---------------------
 

@@ -1,4 +1,4 @@
-For the past two years, I’ve been working as a mortician at a funeral home in the small town of Clearwater, Pennsylvania.
+For the past two years, I’ve been working as a mortician at a funeral home in a small town.
 
 I actually love it here. I listen to lots of audiobooks, my boss is great, and I don’t mind the company of the dead. They’re quiet and they’re not trying to sell me something, which is a lot more than I can say for most of the living. I also feel like preparing the bodies for burial is an act of respect, a service to the community, something that gives my life meaning.
 
@@ -14,7 +14,7 @@ But these bodies weren’t smiling slightly. No, they were full on *grins,* st
 
 They were grotesque.
 
-The first one came on a cold, rainy day. Her name was Amber Reese, and she was thirty-one years old. Much younger than the bodies I usually worked with. She’d died of a sudden blood clot.
+The first one came on a cold, rainy day. Her name was Amber, and she was thirty-one years old. Much younger than the bodies I usually worked with. She’d died of a sudden blood clot.
 
 As much as I liked my job, I hated dealing with the younger ones. Before I even unzipped the body bag, I was imagining the small children she may have left behind. The aging parents, grieving their daughter. The friends and family mourning a life gone too soon.
 
@@ -108,7 +108,7 @@ Suddenly, I felt dizzy. I couldn’t breathe, couldn’t get enough oxygen. My l
 
 I was on the verge of a panic attack.
 
-I stepped away from the body. Forced myself to take a deep breath. *Name five things you can see,* I told myself. *Cabinets, hand sanitizer, scissors, linens, and Amber Reese’s dead body…*
+I stepped away from the body. Forced myself to take a deep breath. *Name five things you can see,* I told myself. *Cabinets, hand sanitizer, scissors, linens, and Amber’s dead body…*
 
 This grounding technique wasn’t quite as effective when I was in the morgue room.
 
@@ -134,7 +134,7 @@ I grabbed them from the office, then hurried back to the morgue.
 
 I froze.
 
-Amber Reese was smiling again.
+Amber was smiling again.
 
 “Alan?” I shouted. “*Alan?!”*
 
@@ -150,9 +150,9 @@ I wished it was. With all my being, I wished this was some ridiculous prank, and
 
 Ben was the other mortician. He was considerably younger than me and Alan, only twenty-one, and heavily influenced by social media. He was always filming something or talking about some TikTok challenge he’d done. It was nauseating.
 
-“I don’t think so. He’s supposed to be getting Mr. Vanderbilt ready. But, we can check the security footage.”
+“I don’t think so. He’s supposed to be getting the other body ready. But, we can check the security footage.”
 
-Alan had installed security cameras in every room of the funeral home, after someone had broken in over the summer. I followed him down the hallway, feeling a little better with each step I put between myself and Amber Reese. He sat down at the desk and pulled up the security footage.
+Alan had installed security cameras in every room of the funeral home, after someone had broken in over the summer. I followed him down the hallway, feeling a little better with each step I put between myself and Amber. He sat down at the desk and pulled up the security footage.
 
 I held my breath as he hit PLAY.
 
@@ -174,13 +174,13 @@ Dead bodies move after death, on occasion. Twitching is common, caused by the re
 
 But this wasn’t decomposition, because she’d been (presumably) stored properly since her death. And this wasn’t a random twitch, either. It was a *grin.*
 
-I’d read somewhere, in some inspirational article somewhere, that it took only twelve muscles to smile (and many more to frown.) That meant all twelve of Amber Reese’s facial muscles were working in concert, making—and *holding—*a smile.
+I’d read somewhere, in some inspirational article somewhere, that it took only twelve muscles to smile (and many more to frown.) That meant all twelve of Amber’s facial muscles were working in concert, making—and \*holding—\*a smile.
 
 It made no sense.
 
 Alan rewound the footage, playing the footage over and over again, muttering to himself about rigor mortis and other medical jargon. But I couldn’t sit there and keep watching it. Each time I saw that grin yank up again, I felt like I might vomit. I left the office and hurried back to the morgue.
 
-I wanted Amber Reese gone. And she would be, tomorrow morning, when we drove her to the cemetery. Whatever this all was, it would be gone and over with by eleven AM tomorrow. All I had to do was set her face again, load her into one of the refrigerated cabinets, and my job was done.
+I wanted Amber gone. And she would be, tomorrow morning, when we drove her to the cemetery. Whatever this all was, it would be gone and over with by eleven AM tomorrow. All I had to do was set her face again, load her into one of the refrigerated cabinets, and my job was done.
 
 When I opened the door, I found Ben standing over Amber’s corpse.
 
@@ -218,4 +218,4 @@ Then I slid her into the cabinet. As soon as the door shut, relief flooded me.
 
 *I’m done.*
 
-Little did I know, Amber Reese was just the [beginning.](http://www.reddit.com/r/blairdaniels)
+Little did I know, Amber was just the [beginning.](http://www.reddit.com/r/blairdaniels)
