@@ -62,6 +62,7 @@ I didn't even acknowledge the snack after I looked at it and just met his eyes a
 
 It's a little after 02:30 as I finish writing this. I booked myself a room into the most crowded hotel I could find with the room closest to the stairs leading to the reception, shutting the blinds and locking the door twice. I'm afraid to go home, and I don't know who to talk to about this without sounding completely insane. I've heard nothing from the responding police officers yet and I don't know what to do about this tomorrow. Anyone reading this, please believe me, and even if you don't, can you please offer me some advise?
 
-  
 =EDIT=  
 I just woke up, it's 04:16. Five minutes ago two calls from someone with no caller ID woke me up, but I didn't pick up. I'm afraid for my safety.
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1i2aoxp/im_a_911_operator_yesterday_my_coworker_got_a/)
