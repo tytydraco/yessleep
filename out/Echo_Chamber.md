@@ -360,7 +360,7 @@ Sirens echo down the street and Sam's sobs evaporate. He bolts to the window. Dr
 
 Only when they trail off in the distance does Sam let go of his breath. He wipes his eyes on the back of his hand, accidentally smears lotion into them. The sting makes him hiss. His hands won’t stop shaking. So he balls them into fists and squeezes, squeezes, squeezes but he can’t do it hard enough so he screams. A throat-ripping, vein-popping scream. It just makes him angrier. He pistons his fist into the wall. Again. Again.
 
-His mom starts screaming her head off over in her room. An over-the-top, cartoon screech oozing mock emotion. She keeps going, loud enough to drown Sam out, until he finally shuts up.
+Then his mom starts screaming her head off over in her room. An over-the-top, cartoon screech oozing mock emotion. She keeps going, loud enough to drown Sam out, until he finally shuts up.
 
 “Finished already?” she asks. Her hoarse laughter slithers in under his bedroom door. Then it bleeds into a fit of machine gun coughing. Sam stands there, fuming, fists working open and closed. He’s gonna barge in and smash her fucking tv. See if she still wants to make fun of him then. As soon as the bitch catches her breath, he’s gonna do it.
 

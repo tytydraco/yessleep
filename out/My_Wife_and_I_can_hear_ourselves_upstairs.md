@@ -233,7 +233,7 @@ I opened my mouth to fire back when something stopped me.
 
 A voice crackled through the static, clearer and louder than anything we’d heard so far.
 
-“You think I’m the one making this harder than it has to be? You’re impossible to talk to, Claire.”
+~“You think I’m the one making this harder than it has to be? You’re impossible to talk to, Claire.”~
 
 I froze.
 
@@ -247,7 +247,9 @@ I hesitated, trying to process what I’d just heard. “It’s… it’s nothin
 
 “Jason, that was exactly what you said to me yesterday”
 
-The static broke again, like a scratched record, and the voice resumed, now faint but unmistakable: “Stop putting this all on me, Claire. You’re just imagining things, I didn’t go anywhere tonight.”
+The static broke again, like a scratched record, and the voice resumed, now faint but unmistakable: 
+
+~”Stop putting this all on me, Claire. You’re just imagining things, I didn’t go anywhere tonight.”~
 
 I took a step back, my stomach twisting. It wasn’t just the words—it was the cadence, the exact rhythm of my voice.
 
@@ -259,7 +261,8 @@ Claire’s hands trembled as she pressed them to her forehead. “It’s you, yo
 
 “I’m not controlling anything!”
 
-The static surged, loud enough to make my ears ring, and through it came another burst of words, this time in Claire’s voice: “You’re so damn selfish, Jason. You only care about fixing things on your terms.”
+The static surged, loud enough to make my ears ring, and through it came another burst of words, this time in Claire’s voice: 
+~”You’re so damn selfish, Jason. You only care about fixing things on your terms.””
 
 Her face crumpled as the words registered, and she looked at me like she’d been slapped.
 
@@ -267,7 +270,7 @@ Her face crumpled as the words registered, and she looked at me like she’d bee
 
 I opened my mouth to deny it, to tell her she was wrong, but then I heard it again—her voice, warped but unmistakable, repeating the exact words I’d heard her yell during that fight.
 
-“You want to fix everything, Jason? Why don’t you fix yourself first.”
+~“You want to fix everything, Jason? Why don’t you fix yourself first.”~
 
 It wasn’t just random.
 
@@ -283,7 +286,7 @@ I stood there, staring at the ceiling where the faint sound of static hummed ste
 
 It was faint, almost imperceptible, but it was enough to keep me rooted in place, staring up at the locked attic door, as Claire’s garbled voice echoed through the attic again.
 
-“I don’t know why I ever married you.”
+~“I don’t know why I ever married you.”~
 
 -
 
@@ -311,7 +314,7 @@ We trudged back to the cabin, fighting each step through the wind. My fingers ha
 
 And then I heard it. Claire’s voice upstairs, as usual, speaking words I wished I’d never have to hear. She sounded almost gentle, but her words were damning.
 
-“I’ll leave him soon,” she said, her tone calm and intimate. “He doesn’t have a clue.”
+~“I’ll leave him soon,”~ she said, her tone calm and intimate. ~“He doesn’t have a clue.”~
 
 My heart lurched.  Real or not, it felt like a blade twisting in my gut. I glanced at her. Her eyes were wide, tears threatening to spill, the betrayal fresh even though those words were her own. She looked at me, shook her head, and without speaking, retreated to the bedroom, shutting the door quietly behind her.
 
@@ -321,24 +324,24 @@ I stood there, snow melting on my boots, face stinging from the cold, and listen
 
 As the relentless static from the attic wore on, it seemed to scrape away at the edges of my sanity. The voices unearthed every bitter line, every whispered complaint we thought safely hidden. The cabin felt like a cage, trapping us with an auditory barrage that knew no bounds. Each new revelation, whether a conversation once held secret or a venomous whisper shared in confidence, added weight to an already unbearable tension.
 
-“You’re just too much, Jason. Always fixing, never listening.”
+~“You’re just too much, Jason. Always fixing, never listening.”~
 
 Exhausted and desperate, I found myself fixated on the attic. The padlock—an old, rusted relic—mocked me from the ceiling hatch, a barrier to whatever twisted machine perpetuated our torment. I needed to get it open, needed to find out what was happening, but every traditional method had failed. No amount of pleading with the unresponsive owner or searching for a misplaced key had yielded any results. It was just Claire and me, growing more estranged with each passing hour.
 
-“If you’re going to stay this distant forever, Claire, you might as well just leave.”
+~“If you’re going to stay this distant forever, Claire, you might as well just leave.”~
 
 Determined, I approached the hatch again, armed with nothing but a sense of determination. I grabbed a chair from the kitchen, positioning it under the attic’s pull-down string. The padlock dangled just out of reach, an enigmatic sentinel guarding our tormentor. Did I even want to find out what was up there? The need to stop the voices overpowered any hesitation.
 
 I fetched a small toolbox from under the kitchen sink—the one that barely saw use—and rummaged through it for anything that might help. I came up with a couple of old screwdrivers and a tarnished set of Allen keys. Not ideal, but it was all I had.
 
-“Why bother, Jason? It’s over, isn’t it?”
+~”Why bother, Jason? It’s over, isn’t it?”~
 
 I ignored the jibes, focusing on the padlock. I tried each tool systematically, twisting and prodding in a futile attempt to force the mechanism. I eventually gave up on trying to break open the lock, and in my desperation, resorted to trying any and every combination I could think of. My hands, raw from the metal and the cold that seeped into the cabin, worked mechanically. Time lost meaning as I moved from one combination to the next, fueled by a mix of fury and a desperate need for silence.
 
 Hours must have passed, the light outside dimming to the early twilight that predicted another long night. The numbers blurred before my eyes, each click a mockery as our voices cried from above.
 
-“She’s going to leave, you know. Can’t you tell?”  My brother’s voice seemed to boom down at me from above. I winced as I anticipated my next words.
-“Let her. I don’t need this hassle any longer.”
+~“She’s going to leave, you know. Can’t you tell?”~ My brother’s voice seemed to boom down at me from above. I winced as I anticipated my next words.
+~“Let her. I don’t need this hassle any longer.”~
 
 The frustration and shame built within me like a physical force, a crescendo that demanded release. As I furiously put in every four digit combination I could think of, the realization hit me like a brick. I stopped on a new combination; 1-2-3-1. Today’s date, but more importantly, our wedding anniversary. A detail that had slipped from my conscious mind but lay buried, a remnant of happier times.
 
@@ -350,7 +353,7 @@ I pulled the string, and the ladder creaked down, dust dancing in the air distur
 
 I hesitated, my hand on the ladder. The air felt charged, thick with the anticipation of what was yet to come. The static above us quieted for a moment, as if the attic itself held its breath.
 
-“What are you afraid of, Jason? You’re a coward! Just run away from it all, isn’t that what you always do?”
+~“What are you afraid of, Jason? You’re a coward! Just run away from it all, isn’t that what you always do?”~
 
 With a deep breath, I started to climb. The ladder groaned under my weight, each step a creak of old wood. Claire stayed below, her face upturned, watching me ascend into the darkness above.
 
@@ -372,23 +375,23 @@ The computer was clicking from clip to clip, playing a highlight reel of every t
 
 Claire joined me, her steps slow, almost reluctant. Her eyes widened in horror as she watched the screen. I looked back down at the laptop, only to realize that it had changed once again. I immediately recognized the fight- it was the most recent one before we’d left home.
 
-“Claire, would you listen to me? It’s two weeks, you’ll live. It’ll be nice and quiet.”
+~”Claire, would you listen to me? It’s two weeks, you’ll live. It’ll be nice and quiet.”
 
 “Who says I even want nice and quiet? I want to get back to real life, Jason. I haven’t worked in months, and you planning these ‘surprise trips’ to try to patch things isn’t helping me find a job”
 
 “So what? I cancel the booking? I already paid the deposit Claire, we can’t get that money back. Or did you forget I’m also working a dead-end job?”
 
-“If you want to book that stupid anniversary trip, go right ahead. You just bulldoze ahead like what you want is the only thing that matters.”
+“If you want to book that stupid anniversary trip, go right ahead. You just bulldoze ahead like what you want is the only thing that matters.”~
 
 I watched myself furrow my brow and then put my head in my hand.
 
-“Claire, I’m trying here. I really am. But I can never get through to you, can I? First it was you passing on the job offer when we needed that money, then it was that thing with your ex-“
+~“Claire, I’m trying here. I really am. But I can never get through to you, can I? First it was you passing on the job offer when we needed that money, then it was that thing with your ex-“
 
 “I TOLD you, nothing happened Jason. He just… he just stopped by for coffee, is all.”
 
 “Claire, I’m not stupid! You turned off the cameras but the audio was still recording, you idiot.”
 
-“Don’t you dare call me an idiot, after all I’ve done for you.”
+“Don’t you dare call me an idiot, after all I’ve done for you.”~
 
 I watched as Claire had stormed towards me, and our fight was about to escalate. She pounced at me, but I threw her off of me towards the kitchen. I watched her crack her head on the edge of the table and fall through it.
 
@@ -434,8 +437,12 @@ I crawled, sobbing, searching in the dark for the attic door that led me here, b
 
 As the roar of the frozen world outside began to muffle, snow piling against our artificial windows, her voice was the only sound, a relentless echo in the ghostly replica of our apartment. Her words didn’t stop for hours, and by the time she began to quiet, she had managed to stand up and loom over me, cold and pale, whispering accusations and curses at me in the dark.
 
-It has been weeks since the door to the outside vanished, leaving me trapped in my own home with the whispering thing that was once my wife. Claire, or the thing that used to be her, grows more gaunt by the day, her features sharpening, her eyes sinking deeper into her skull. She’s starting to smell, but she keeps whispering. She isn’t going to harm me—not physically. She can’t. Her body, crumbling and decaying, only has the energy to torment me with its gaze and with its words.
+It has been weeks since the door to the outside vanished, leaving me trapped in my own home with the whispering thing that was once my wife. Claire, or the thing that used to be her, grows more gaunt by the day, her features sharpening, her eyes sinking deeper into her skull. She’s starting to smell worse, but she keeps whispering. She isn’t going to harm me—not physically. She can’t. Her body, crumbling and decaying, only has the energy to torment me with its gaze and with its words.
 
 I’ve tried the front door, but I don’t think it’s any more than decoration in this mockery of my home. It doesn’t lead outside, it doesn’t even open. It’s just part of the wall. The storm outside has not abated; I can hear it sometimes, through the thick snow that covers my windows. If the snow ever subsides, the windows may be my only chance at escape.
 
 I’m typing this now as both a record and a plea. If you’re reading this, if this somehow finds its way to someone, anyone, do you know when the blizzard near Denver will let up? Is there any forecast about when the snow will start to melt? It’s cold in here, and I don’t think I can listen to her for much longer. 
+
+-
+
+Edit: formatting
