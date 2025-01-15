@@ -85,3 +85,5 @@ The rest of the day followed much the same, with others falling victim to their 
 The last broadcast that came through was from a station still holding out somehow. They were staying in shade, and they theorized that was able to camouflage them from their own shadows long enough to get the final moments of Earth on analog. The Night Emperor, still massive in the sky, floated ever closer to the sun, the center of all life, and simply… absorbed it. One moment it was there, the next it had been taken into the Night Emperor, plunging everything in the universe into eternal darkness. There was a brief cacophony of screams on the broadcast before the fluorescent lights in the studio revealed shadows coming in from every crack outside as frost began to quickly form everywhere.
 
 Earth 38994 has officially been deemed a lost cause as of 2000 hours Eastern standard time. It’s recommended that the moratorium on light speed and faster than light travel continue until further notice, barring any confirmation of the Night Emperor’s casket in our [universe](https://www.reddit.com/u/googlyeyes93/s/njM4ilFA71).
+
+[Update](https://www.reddit.com/r/nosleep/s/NRanxwHfPe)

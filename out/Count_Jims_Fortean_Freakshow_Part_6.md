@@ -2,7 +2,7 @@ Part 5 here [https://www.reddit.com/r/nosleep/comments/1i07hjv/count\_jims\_fort
 
 Journal of Frater XII of the Esoteric Order of the Other
 
-October 22nd, 1993 - Santa Fe, NM
+October 22nd, 1993 - Santa Fe
 
 The Woolworth's lunch counter in Santa Fe. A bastion of normalcy amidst the swirling chaos I've been subjected to. Or so one would hope. I took up a booth with a clear view of the entrance, ostensibly to observe any… fluctuations. Truthfully, it was to maintain an edge against the gnawing anxiety that had taken root since Siouxsie's (Like "And The Banshees", apparently. I been spelling it "Suzie" this entire time) frantic call to my show and her equally urgent followups on random payphones. I was still bewildered at how she managed to catch me when I was near them.
 
@@ -10,7 +10,7 @@ I nursed a lukewarm coffee, the taste not entirely dissimilar to burnt plastic, 
 
 I waited. Siouxsie was due any minute. This… child, though, was certainly making a statement. The way the tiny, fabric-covered hands expertly maneuvered a forkful of syrup-drenched waffle into the unseen maw beneath the hood was almost hypnotic. I found myself wondering if this was some new, remarkably efficient method of resource depletion I hadn't encountered. Perhaps a juvenile cryptid with an insatiable sweet tooth? The sheer volume was… noteworthy.
 
-A cough broke my reverie. A tall woman with tired eyes and a no-nonsense aura stood beside the booth. Dr. Eliza Vance. I straightened, a mild surprise flickering behind my spectacles. Before I could formulate a greeting, a small, fabric-draped hand tugged at Vance’s sleeve. The hooded figure from the counter.
+A cough broke my reverie. A tall woman with tired eyes and a no-nonsense aura stood beside the booth. Dr. [Redacted] Vance. I straightened, a mild surprise flickering behind my spectacles. Before I could formulate a greeting, a small, fabric-draped hand tugged at Vance’s sleeve. The hooded figure from the counter.
 
 “Count Jim?” a muffled voice emanated from beneath the black fabric. “Took you long enough. Though you’re be easy to spot in your getup.”
 
@@ -68,6 +68,6 @@ A decommissioned NAORC facility outside of Los Alamos became our next destinatio
 
 But that can wait till tomorrow. I was overdue for a nap and a shower. We headed to the crappy motel I booked.
 
-Later, while Siouxsie was boredly flipping throught he channels on the motel TV while demolishing an entire pizza, Vance was out getting supplies, and I was sound asleep in a chair, the satellite link on my laptop pinged and woke me up from my slumber. A text message from an anonymous Count Jim BBS user. The words were simple, chillingly so: \[The Red Inquisitioner knows\]. Inquisitor. It has to be the scary dude in the pointy hood.
+Later, while Siouxsie was boredly flipping throught he channels on the motel TV while demolishing an entire pizza, Vance was out getting supplies, and I was sound asleep in a chair, the satellite link on my laptop pinged and woke me up from my slumber. A text message from an anonymous Count Jim BBS user. The words were simple, chillingly so: [The Red Inquisitioner knows\]. Inquisitor. It has to be the scary dude in the pointy hood.
 
 The implications hung in the air, thick and suffocating. The hunt was on. And we were the prey.
