@@ -206,4 +206,4 @@ On today’s itinerary, we’re “turtling up.” Chief Grove and I recommended
 
 (The camera points down at Lin’s legs and shakes gently.)
 
-(END RECORDING.)
+[(END RECORDING.)](https://www.youtube.com/watch?v=BnlgnLD1PmU)
