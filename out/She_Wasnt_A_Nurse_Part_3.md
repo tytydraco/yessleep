@@ -6,8 +6,6 @@ My internal alarm didn’t go off until eleven. By then dad had already left. Le
 
 “Good morning sweetie.” Mom stood in the hallway looking like she was going to film a nature documentary. I scratched the skin underneath my bellybutton.
 
-
-
 “Good morning, I was just going to take a shower.” I gestured towards the bathroom on the other side of the hallway.
 
  
@@ -94,8 +92,7 @@ Mom had put some food on the kitchen table for me. I glanced out the patio door.
 
  
 
-I wanted to sound dominant. Show her I was an alpha that could protect her. I came up with some good stuff. I stood up in the living room and tried to act out the scenario. Trying to say the different openers out loud. None of it felt like me. I  
-realised that I would become nervous if I said stuff that wasn’t me. So all my sports talk openers where discarded. I found it much harder to write when I wasn’t playing a character. I slowly became anxious about the interaction. I had a lot riding on this. She already spoke to me. I just needed a little more and I was in there.
+I wanted to sound dominant. Show her I was an alpha that could protect her. I came up with some good stuff. I stood up in the living room and tried to act out the scenario. Trying to say the different openers out loud. None of it felt like me. I realised that I would become nervous if I said stuff that wasn’t me. So all my sports talk openers where discarded. I found it much harder to write when I wasn’t playing a character. I slowly became anxious about the interaction. I had a lot riding on this. She already spoke to me. I just needed a little more and I was in there.
 
  
 
@@ -166,7 +163,7 @@ Then she said the most useful thing she ever had.
 
  
 
-“Try something playful. How about Hey where did you think you *knew me from? Cause I don’t think I would ever forget someone like you.*” That line was perfect.
+“Try something playful. How about: *Hey where did you think you knew me from? Cause I don’t think I would ever forget someone like you.*” That line was perfect.
 
  
 
@@ -192,7 +189,7 @@ I would walk in there. She would see me. Just as she did last time. I would wink
 
  
 
-It was dark. My headlights illuminated the road and I felt unstoppable. I was the light of the world. I thought about how I would look from outside my car. Maybe I would be invisible in the dark. Maybe my feelings where reality, and my skin would be outshining even the headlights of my car, illuminating me as a beacon. Powered by the hope I felt brewing in my stomach.
+It was dark. My headlights illuminated the road and I felt unstoppable. I was the light of the world. I thought about how I would look from outside my car. Maybe I would be invisible in the dark. Maybe my feelings where reality, and my skin would be outshining even the headlights of my car, illuminating me as a beacon. A beacon powered by the hope I felt brewing in my stomach.
 
 Looking out over the forest in the darkness I didn’t think about hiking. Instead this time I thought about camping. How she and I would be curled up with each other. And how she in the dead of night would crawl into my sleeping bag. I sped up the car.
 
@@ -206,7 +203,7 @@ Stepping out the car I made sure to ready my body posture. Shoulders back, head 
 
  
 
-“Oh hey again.” This time she looked me directly in the eyes. This was it. This was my future made manifest. I waited, not saying anything until I was close enough to her, that I could say my winning line in at a normal volume.
+“Oh hey again.” This time she looked me directly in the eyes. This was it. This was my future made manifest. I waited, not saying anything until I was close enough to her, that I could say my winning line.
 
  
 
@@ -242,4 +239,4 @@ Putting my hands on the counter I made myself ready to lean in for the coming ki
 
  
 
-“LEAVE!” She half hissed half cried. I huffed at her. Turning around I thought of the idiots and rapists she would spread her whore legs too. I pushed over a rack of chocolate bars on my way out. Smearing the floor in loves edibles. 
+“LEAVE!” She half hissed half cried. I huffed at her. Turning around I thought of the idiots and rapists she would come too spread her whore legs for. I pushed over a rack of chocolate bars on my way out. Smearing the floor in loves edibles.
