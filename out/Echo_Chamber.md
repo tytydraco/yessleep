@@ -266,7 +266,7 @@ Sam steps forward and Derek puts a hand on his shoulder. Delilah scurries farthe
 
 “Alright, Derek says, “time for you to go.”
 
-The blood in Sam's ears sounds just like his father’s fists. Pounding, pounding. “Look,” he says, reaching out to her, “Delilah please, just give me a chance. I promise I’m better than that. I deserve a chance, don’t I?”
+The blood in Sam's ears sounds just like his father’s fists. Pounding, pounding away. “Look,” he says, reaching out to her, “Delilah please, just give me a chance. I promise I’m better than that. I deserve a chance, don’t I?”
 
 Delilah’s thin neck flutters as she swallows. She won’t meet his eyes.
 
