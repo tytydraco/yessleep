@@ -44,7 +44,7 @@ As Sam trudges across the store he comes upon a field of circle racks. Each one 
 
 Sam smirks, starts walking, then stumbles and bumps into the rack. On accident, as he can point out in any camera footage Linda might try to use. Not that she’d ever actually fire him. Sam carries the dairy department on his broad, broad shoulders. The jug hits the ground and spills its guts. He steps back and watches it bleed white onto the cheap red carpet.
 
-At the front of the store, his eyes scan up and down the checkout lines. They zero in on a short woman with black hair shot full of purple streaks, like shooting stars. Her nametag says “Delilah.” A red-eyed stoner chats her up as she bags his donuts. Black bags weigh down her eyes. Even her smile is exhausted. She’s the most beautiful, most real thing in the world.
+At the front of the store, his eyes scan up and down the checkout lines. They zero in on a short woman with black hair shot full of purple streaks, like shooting stars. Her nametag says 'Delilah.' A red-eyed stoner chats her up as she bags his donuts. Black bags weigh down her eyes. Even her smile is exhausted. She’s the most beautiful, most real thing in the world.
 
 Her chest heaves in that tight red shirt as she brushes the hair out of her eyes. Sam's pants twitch like a bloodhound’s nose catching a scent. He paws at the bulge as his eyes grope her. Finally manages to slip it up into his waistband. Someone behind him huffs. He turns and sees an old woman shaking her head as she hobbles away. Sam imagines hacking her apart with a machete and finding nothing inside. No blood. No guts. Just empty, wasted space.
 

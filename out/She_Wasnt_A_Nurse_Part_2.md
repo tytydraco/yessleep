@@ -330,8 +330,6 @@ I thought of the salesman.
 
 “I thought trauma surgeons always used universal blood..?” Moms questions left a silence in the air. I asked about the new trees in the front yard, and we finished eating.
 
-
-
  
 
 As mom brought out the plates, dad retuned to his recliner and I went to my old room.
@@ -349,3 +347,6 @@ As mom brought out the plates, dad retuned to his recliner and I went to my old 
 Making the bed I thought about how often I slept alone. And how lonely I felt doing it. How could such a necessary activity feel so shameful. I had many times wondered if people asked “did you sleep well?” Just too taunt me with the lack of women in my life.
 
 Laying down in that room I thought of my highschool girlfriend. And how we never ended up doing anything. I thought of my mothers endorsement of the gas station girl. Maybe she was an outdoorsy type, like she had suggested. Tomorrow I would drive by the same station on my way home.
+
+  
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1i25ewe/she_wasnt_a_nurse_part_3/)
