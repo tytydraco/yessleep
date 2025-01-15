@@ -4,7 +4,7 @@ On April 19, 2018 a 24 year old woman named Stacey Moore went missing in Springd
 In 2022, a vehicle fitting that description was spotted in the middle of a wooded area by hikers. Law enforcement was called to the scene and discovered that the vehicle appeared to be abandoned. Inside, the police found a few empty bottles of water, an empty box of saltine crackers, a small notebook and a pen. The following is what was written in the notebook.
 
 
-I'm writing this in a notebook I had in my purse in order to document what has happened to me.
+My name is Stacey Moore and I've been kidnapped. I'm writing this in a notebook I had in my purse in order to document what has happened to me.
 
 
 A short while ago, my friend Tara picked me up and we went to her apartment to hang out for a few hours. After leaving, I decided to take an Uber back to my place. At first, everything seemed fine. The Uber car pulled up next to me in the parking lot and I climbed into the backseat. The driver was friendly and asked me how my night was going before driving off in the direction of my destination. 
@@ -71,7 +71,7 @@ I'm terrified, but I've been in a constant state of fear for so long that I've b
 I've counted seven nights since I've been trapped here and I've just consumed the last of the water and crackers. So no matter what, If I stay in this car much longer I'm going to die. All I can do is wait to be rescued. Surely by now my friends and family have noticed that I’m missing. There’s probably a search party out there looking for me. I just have to stay awake until they find me.
 
 
-Update 8 - Another day has passed. I've managed to stay awake, but it's getting difficult to keep my eyes open. The people outside haven't moved, neither has the Uber driver. No matter what, I've got to keep my eyes open. I'm going to keep writing to try and keep myself awake. Oh God, please let someone find me. I want to go home. I want take a nice long shower and sleep in my nice warm bed. I miss my
+Update 8 - Another day has passed. I've managed to stay awake, but it's getting difficult to keep my eyes open. The people outside haven't moved, neither has the Uber driver. No matter what, I've got to keep my eyes open. I'm going to keep writing to try and keep myself awake. Oh God, please let someone find me. I want to go home. I want to take a nice long shower and sleep in my nice warm bed. I miss my
 
 
 Oh no, I almost fell asleep. I have to stay awake I have to stay awake I have to stay awake I have to stay awake I have to stay awake I have to stay awake I have to stay awake I have to stay awake I have to stay awake I have to stay awake I have to stay awake I have to stay awake I have to sta

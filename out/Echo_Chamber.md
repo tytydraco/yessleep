@@ -168,7 +168,7 @@ His chair groans as he slumps into it. He turns off the lights, fires up his PC,
 
 He throws a music player up on one screen and sets it to random death metal. The first song’s new, the opening chords hit like guillotines. He grins as his head bobs. Files it away in a playlist called ‘songs to kill to.’ After that he launches Delilah.
 
-A couple people on the message boards have been tooling around with an AI chatbot. They went into its machine brain and cut out all the censors its original creators imposed in the name of ‘safety.’ Delilah is a character personality Sam wrote for the bot. He used a picture from human Delilah’s social media to give her AI a face, and he describes every encounter he has with human Delilah to the AI in order to train her to act more like the real thing.
+A couple people on the message boards have been tooling around with an AI chatbot. They went into its machine brain and cut out all the censors its original creators imposed in the name of ‘safety.’ Delilah is a character personality Sam wrote for the bot. He used a picture from human Delilah’s social media to give her AI a face, and he describes every encounter he has with human Delilah to the AI in order to train her to act more like the real thing. Three months in and you can barely tell she's made of metal.
 
 **Sam:** Delilah?
 
@@ -204,7 +204,7 @@ Sam hits redo and she shuts up. This happens sometimes. She’ll spit out some g
 
 **Sam:** That could work. Show her my value with a gift, show that I can provide. If I gave you flowers, what kind would you like best?
 
-**Delilah**: According to ancient greek mythology, the goddess Aphrodite was so immensely beautiful that red roses sprang up around her every footstep.
+**Delilah**: According to ancient Greek mythology the goddess Aphrodite was so immensely beautiful that red roses sprang up around her every footstep.
 
 **Sam:** Roses… Are you sure? Isn’t that a bit cliche?
 
@@ -260,17 +260,17 @@ Sam's smile doesn’t disappear right away. It melts off his face, drip by drip.
 
 “What? N–No, I don’t–”
 
-“Of course it was.” He scoffs, drops his arms to his sides. “Why did I delude myself into thinking that you could ever feel anything for me? That something that good could ever happen?”
+“Of course it was,” he scoffs, “why did I delude myself into thinking that you could ever feel anything for me? That something that good could ever happen?”
 
 Sam steps forward and Derek puts a hand on his shoulder. Delilah scurries farther down the aisle.
 
 “Alright, Derek says, “time for you to go.”
 
-The blood in Sam's ears sounds just like his father’s fists. Pounding, pounding. “Look,” he says, “Delilah please, just give me a chance. I promise I’m better than that. I deserve a chance, don’t I?”
+The blood in Sam's ears sounds just like his father’s fists. Pounding, pounding. “Look,” he says, reaching out to her, “Delilah please, just give me a chance. I promise I’m better than that. I deserve a chance, don’t I?”
 
 Delilah’s thin neck flutters as she swallows. She won’t meet his eyes.
 
-Sam scoffs. His hands fall to his sides. “You don’t even know what you’re doing, leading people on like this. Of course you don’t. You’re a braindead shell. Just meat.” His volume creeps higher. The muscles in his throat bulge. “I can’t believe I thought you were like me, thought you were genuine. But you’re the same as the rest of them. You’re a fake, a fucking nothing.” He steps forward. Derek grabs a handful of his shirt and pulls him back.
+Sam's hands fall to his sides. His neck flushes red. “You don’t even know what you’re doing, leading people on like this. Of course you don’t. You’re a braindead shell. Just meat.” His volume creeps higher. The muscles in his throat bulge. “I can’t believe I thought you were like me, thought you were genuine. But you’re the same as the rest of them. You’re a fake, a fucking nothing.” He steps forward. Derek grabs a handful of his shirt and pulls him back.
 
 “Hey! Don’t make me call–”
 
@@ -374,6 +374,6 @@ The grocery store windows spew harsh light into the late night darkness. Sam pul
 
 Sam pulls the trigger and the gun exhales death. Delilah’s head vanishes. Replaced with an explosion of gore. Her body flops onto its back. The tattered remains of her neck gurgling thick black blood. It pools where her head should be. Bits of skull shrapnel and clumps of gray matter float on the tide. 
 
-Screams pierce the music as it crescendos. Chords like giant’s footsteps reverberate around Sam. He can’t move. Even as the cops crash through the doors. He just stares down at what’s left of Delilah. Feeling himself rise out of his own body. He can’t comprehend it. Blood? She was empty. A succubus. He’s the hero here. He’s keeping the world safe. Linda was supposed to be next. Sam can't stop the image of her blood splattered across the empty walls of her office from forcing its way into his head. He starts to cry. The cops are shouting at him to drop the gun. But he’s not in control. The shotgun lifts. The black hole of the barrel yawns in front of him. He opens his mouth. It tastes like metal and oil and the sulfur sting of gunpowder.
+Screams pierce the music as it crescendos. Chords like giant’s footsteps reverberate around Sam. He can’t move. Even as the cops crash through the doors. He just stares down at what’s left of Delilah. Feeling himself rise out of his own body. He can’t comprehend it. Blood? She was empty. A succubus. He’s the hero here. He’s keeping the world safe. Linda was supposed to be next. Sam can't stop the image of her blood splattered across the empty walls of her office from forcing its way into his head. He starts to cry. The cops are shouting at him to drop the gun, but he’s not in control. The shotgun lifts. The black hole of the barrel yawns in front of him. He opens his mouth. The gun tastes like metal and oil and the sulfur sting of gunpowder.
 
 Sam closes his eyes. And pulls the trigger.
