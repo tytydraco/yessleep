@@ -35,3 +35,6 @@ I was back in the Rust Bucket within minutes, the engine roaring as I tore out o
 It was well past sunset when I crossed the state line. The sign read: "Welcome to New Mexico, Land of Enchantment." But there was no enchantment here, only a chilling sense of foreboding. As I drove onwards into the vast expanse of the New Mexico dark, I glanced in the rearview mirror. There, for just a fleeting second, was a glimpse of something that made my blood run cold; a red figure, robed and indistinct, standing at the edge of the darkness behind me, its very presence an echo of the chilling image from my broadcast. I could feel its gaze on me, and it sent a shiver down my spine. It could just be a trick of the dim lighting, or the exhaustion of the long drive. But I knew one thing, without a shadow of a doubt; I wasn't alone.
 
 And whatever this 'thing' was, whatever its purpose, had followed me to New Mexico.
+
+  
+Part 6 here: [https://www.reddit.com/r/nosleep/comments/1i1me3z/count\_jims\_fortean\_freakshow\_part\_6/](https://www.reddit.com/r/nosleep/comments/1i1me3z/count_jims_fortean_freakshow_part_6/)

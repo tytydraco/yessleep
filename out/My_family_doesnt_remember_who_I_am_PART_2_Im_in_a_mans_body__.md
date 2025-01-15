@@ -120,7 +120,7 @@ My Mom and I always got along, but not like this. The imposter would say somethi
 
 The imposter pointed to a fixture on the wall, surely commenting on it. My mom turned, gazing into the painting's face. Not like I've ever been an art critic, so it all felt... off. But the more my doppelganger spoke the more mesmerized Mom looked with the picture until she was fully invested with each brush stroke. That was about the time the imposter's motive became clear.
 
-From the depths of her purse, she pulls out a tiny vile, white powder encapsulated within. While Mom still studied the painting she sprinkled some powder over her plate and did the same to Dad's. Mom turned and the doppelganger hid the vile under the table. I don't know what was in the vile but I knew it was nothing good, the hair on my neck was standing on end and I had a very bad premonition about what was about to happen.
+From the depths of her purse, she pulls out a tiny vail, white powder encapsulated within. While Mom still studied the painting she sprinkled some powder over her plate and did the same to Dad's. Mom turned and the doppelganger hid the vail under the table. I don't know what was in the vile but I knew it was nothing good, the hair on my neck was standing on end and I had a very bad premonition about what was about to happen.
 
 Dad wandered out of the bathroom and that was about the time I noticed the odd way he was walking. His steps were usually fluid, authoritative, but now he was dragging his feet, stepping lazily. There was a blank look in his eyes, a shell of his normal self.
 

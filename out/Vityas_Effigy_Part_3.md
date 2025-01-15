@@ -1,6 +1,6 @@
 Sandra’s funeral was small.  I hadn’t expected a whole bunch of people to show up, but there were only seven of us, not counting the priest.  Victor, Curly, Alice and I all rode together, while Daisy showed up later.  The other two people were an older couple, wrinkled and round, their faces etched with sorrow.  Curly told me they were Sandra’s parents.  It was a short service, but very sweet.  Mr. and Mrs. Gulley each giving a short eulogy for their daughter, highlighting how kind and creative and loving she had been.  I reminded myself to call my own mother once I got home.  
 
-The four of us went to lunch after the funeral, deciding to leave the gravesite proceedings to Sandra’s family.  Daisy said she wasn’t feeling well and went home early.  Victor didn’t let go of my hand the entire time we ate, constantly rubbing his thumb across my knuckles.  It was just as much a soothing behavior for him as it was comforting to me; he was never truly at rest unless his hands were occupied.  None of us really talked much, and by the time Victor and I got back to his house, he changed his clothes, went into his studio and didn’t come out the rest of the day, at least not until I went to tell him I’d made some food for us.  My mom had instilled cooking skills in me from a young age, so it wasn’t hard for me to whip up a batch of *bibimbap,* a traditional mixed rice dish, from whatever we had in the fridge.  I poked my head into the ground-floor studio, noticing him standing over a workbench with his back to me.
+The four of us went to lunch after the funeral, deciding to leave the gravesite proceedings to Sandra’s family.  Daisy said she wasn’t feeling well and went home early.  Victor didn’t let go of my hand the entire time we ate, constantly rubbing his thumb across my knuckles.  It was just as much a soothing behavior for him as it was comforting to me; he was never truly at rest unless his hands were occupied.  None of us really talked much, and by the time Victor and I got back to his house, he changed his clothes, went into his studio and didn’t come out the rest of the day, at least not until I went to tell him I’d made some food for us.  My mom had instilled cooking skills in me from a young age, so it wasn’t hard for me to whip up a batch of *bibimbap,* a traditional mixed rice dish, from whatever we had in the fridge.  I poked my head into the ground-floor studio, noticing him standing over a workbench with his back to me.
 
 “Vic?”  He didn’t respond, tinkering with something on the workbench.  There was a sort of trance state he got into when he was working that wasn’t easily broken, but I’d accidentally discovered an effective way of snapping him out of it.  “Hey, Vitya,” I called again, softer this time.  
 
@@ -38,7 +38,7 @@ The next couple of weeks were about as normal as I could get.  Work was plentif
 
 Seeing him in that room with it…I didn't know what to think.  Maybe I should have asked him about it sooner.  
 
-Daisy didn't show up that night.  Or the next Saturday night.  I didn't know what to do.  None of the others knew where she lived, and I didn't want to make a nuisance of myself by calling the cops on her when she was probably just taking time to grieve.  However, after the third weekend in a row that she didn't come to the gallery, I had to do *something.*  So I decided to call up another old college friend, Andrew B.  I'd hung out with him and his twin brother Austin (Victor's freckle-faced buddy) a lot during my sophomore year, though they'd graduated soon after and I had lost touch.  As far as I knew from social media, Andrew had become a cop within the last few years.  He might be able to help me.  
+Daisy didn't show up that night.  Or the next Saturday night.  I didn't know what to do.  None of the others knew where she lived, and I didn't want to make a nuisance of myself by calling the cops on her when she was probably just taking time to grieve.  However, after the third weekend in a row that she didn't come to the gallery, I had to do *something.*  So I decided to call up another old college friend, Andrew B.  I'd hung out with him and his twin brother Austin (Victor's freckle-faced buddy) a lot during my sophomore year, though they'd graduated soon after and I had lost touch.  As far as I knew from social media, Andrew had become a cop within the last few years.  He might be able to help me.  
 
 It took him a while to answer the phone.
 
@@ -54,7 +54,7 @@ It took him a while to answer the phone.
 
 “I um…I didn't actually call just to reminisce.  There's something I need your help with.  Professionally.” 
 
-*“Sure thing, whatcha need?”*  I knew I could count on Drew.  He'd always had a penchant for helping people.  Over the next hour or so, I gave him a summary of everything that happened.  I left out the part about the statue; Drew wasn't one to pooh-pooh the idea of the paranormal completely, but he was a certified skeptic.  He remained silent while I talked besides the occasional *“uh-huh”*  and “*yeah?”* to indicate he was still listening.  *“Ugh, yeah, the Gulley-Ransom case.  You didn't hear this from me, but I was one of the responding officers on that one.”*
+*“Sure thing, whatcha need?”*  I knew I could count on Drew.  He'd always had a penchant for helping people.  Over the next hour or so, I gave him a summary of everything that happened.  I left out the part about the statue; Drew wasn't one to pooh-pooh the idea of the paranormal completely, but he was a certified skeptic.  He remained silent while I talked besides the occasional *“uh-huh”*  and “*yeah?”* to indicate he was still listening.  *“Ugh, yeah, the Gulley-Ransom case.  You didn't hear this from me, but I was one of the responding officers on that one.”*
 
 “Really?” I asked.  
 
@@ -70,7 +70,7 @@ It took him a while to answer the phone.
 
 “I mean…I've been dating him for the last couple months, so…”
 
-*“You're* *dating* *him?”* Andrew asked, an incredulous tone to his voice.  *“Huh.  Always thought the dude had an angle grinder for a heart.  Anyway, listen, I gotta run, it's my fiancee's birthday and I promised to take her out to dinner, but I’ll take a look in the system.  I'll call you back if I find anything about your friend Daisy, okay?”*
+*“You're* *dating* *him?”* Andrew asked, an incredulous tone to his voice.  *“Huh.  Always thought the dude had an angle grinder for a heart.  Anyway, listen, I gotta run, it's my fiancee's birthday and I promised to take her out to dinner, but I’ll take a look in the system.  I'll call you back if I find anything about your friend Daisy, okay?”*
 
 “All right.  Thanks, Drew.  Tell Bridget I said hi and happy birthday, will you?”
 
@@ -78,7 +78,7 @@ It took him a while to answer the phone.
 
 “Who was that?” my roommate asked as she came out of the bathroom, swathed in towels and looking like the star of a shampoo commercial.
 
-“Old college friend.  We still on for the *Gilmore Girls* marathon?”  Kristen laughed, toweling off her hair.
+“Old college friend.  We still on for the *Gilmore Girls* marathon?”  Kristen laughed, toweling off her hair.
 
 “Honey, I will never pass up an opportunity to see baby-faced Jared.  Yes, we are still on.”
 
@@ -92,7 +92,7 @@ It took Andrew two days to get back to me.  He said what he’d found was serio
 
 “How bad?” I asked, my mind coming up with all sorts of horrible mental images.  He grimaced, taking a sip of his coffee.
 
-“You don’t wanna know, Livy.  The general consensus is that she overdosed and went into a manic state before finally collapsing, but no one does all of *that,* even in a manic state.”  I leaned forward in my chair.
+“You don’t wanna know, Livy.  The general consensus is that she overdosed and went into a manic state before finally collapsing, but no one does all of *that,* even in a manic state.”  I leaned forward in my chair.
 
 “So you think she was murdered–”
 
@@ -120,7 +120,7 @@ Coming back to where the twins were milling around, I found Austin staring at a 
 
 “What am I looking at here?” I asked, and both of the twins jumped, as if they’d quite forgotten I was there.  Austin ran a shaking hand through his hair before semi-calmly explaining that the picture in front of me was an autopsy photo, taken not even a few days ago.  
 
-“Daisy ********, thirty-six years old, cause of death…heroin overdose,” he muttered, unable to take his eyes off the photo.  So I’d been right; “Fay” wasn’t her legal surname.  “There was a ton of other shit that happened to her, but the coroner couldn’t figure out whether they happened pre- or post-mortem.”  I looked back at the photo, noticing strange tiny white lumps in the middle of the cut-open chest cavity.
+“Daisy \*\*\*\*\*\*\*\*, thirty-six years old, cause of death…heroin overdose,” he muttered, unable to take his eyes off the photo.  So I’d been right; “Fay” wasn’t her legal surname.  “There was a ton of other shit that happened to her, but the coroner couldn’t figure out whether they happened pre- or post-mortem.”  I looked back at the photo, noticing strange tiny white lumps in the middle of the cut-open chest cavity.
 
 “What are those?”  I couldn’t tell just from looking at them, or even what organ they appeared to be stuffed inside of.  Austin swallowed hard.  
 
@@ -134,7 +134,7 @@ Coming back to where the twins were milling around, I found Austin staring at a 
 
 “How do you mean?”  Now it was Andrew’s turn to fidget and look uncomfortable.  He stepped a bit closer to me and lowered his voice.
 
-“When we found Miss ******* in her home, she was um…listen, Livy, I’m not sure how PG I can be with this.”  I shook my head.
+“When we found Miss \*\*\*\*\*\*\* in her home, she was um…listen, Livy, I’m not sure how PG I can be with this.”  I shook my head.
 
 “Just tell me.  I’ve probably seen worse.”  He took a deep breath.
 
@@ -166,11 +166,11 @@ The discovery of an official autopsy photo was what finally got the gallery shut
 
 For a while, I thought that would be the end of it.  Now that he wasn’t constantly working on some new thing for the gallery every single week, I could finally manage to get Victor to take a break.  We went out for dinner more often, visited museums, went to a couple movies, and for at least a short period of time, we both went to bed at the same time each night.
 
-But then one day, we were sitting on the couch, sharing a bowl of popcorn as we watched *Mrs. Doubtfire.*  It was one of my favorites, and he’d never seen it before.  Right before the scene where  Mrs. Doubtfire absolutely beans the stepdad guy with a lime, Victor’s phone rang.  He picked it up with a deadpan expression, and I paused the movie.
+But then one day, we were sitting on the couch, sharing a bowl of popcorn as we watched *Mrs. Doubtfire.*  It was one of my favorites, and he’d never seen it before.  Right before the scene where Mrs. Doubtfire absolutely beans the stepdad guy with a lime, Victor’s phone rang.  He picked it up with a deadpan expression, and I paused the movie.
 
-“Hello?”  There was frantic speech I couldn’t make out on the other end.  “Curly, your Texas is showing, I understood exactly zero percent of what you just said.  Calm down.  No, don’t talk *louder,* talk *slower.*  Okay, I’m putting you on speakerphone, I’m with Livy right now.  Go take a drink of water, it will slow down your breathing.”  He put the phone on speaker, setting it on his knee.  “It’s Curly,” he said to me.  “He sounds upset.”
+“Hello?”  There was frantic speech I couldn’t make out on the other end.  “Curly, your Texas is showing, I understood exactly zero percent of what you just said.  Calm down.  No, don’t talk *louder,* talk *slower.*  Okay, I’m putting you on speakerphone, I’m with Livy right now.  Go take a drink of water, it will slow down your breathing.”  He put the phone on speaker, setting it on his knee.  “It’s Curly,” he said to me.  “He sounds upset.”
 
-“Darn it, I *am* upset!” Curly’s disgruntled voice came through the phone.  I heard a gulp; he must have taken Victor’s advice about the water.  “Listen, V, it’s Alice.  She ain’t answered her phone for three days now, and she never does that.  Like, you know the settings on the phone where you can see if somebody read the text?  She hasn’t read her texts!  That ain’t normal, not for Alice.”  I raised an eyebrow at Victor.  
+“Darn it, I *am* upset!” Curly’s disgruntled voice came through the phone.  I heard a gulp; he must have taken Victor’s advice about the water.  “Listen, V, it’s Alice.  She ain’t answered her phone for three days now, and she never does that.  Like, you know the settings on the phone where you can see if somebody read the text?  She hasn’t read her texts!  That ain’t normal, not for Alice.”  I raised an eyebrow at Victor.  
 
 “Have you considered going to her apartment?” he asked, sounding less annoyed and more concerned by the second.  
 
