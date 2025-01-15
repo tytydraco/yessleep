@@ -68,7 +68,6 @@ Walking into the gas station I made quick eye contact with the cashier. Her eyes
 
 “Sorry. I didn’t, it was only stereotypical you know.” She put back the drink on the counter.
 
-  
 “nono It’s fine.” I laid my card on the chip reader.
 
  
@@ -143,7 +142,7 @@ I walked towards the patio passing the door connecting kitchen and livingroom.
 
  
 
-“Did you eat as well?” The question had a slightly mechanical sound to it. Like she was gaging the betrayal of her cooking abilities.
+“Did you eat as well?” The question had a slightly mechanical sound to it. Like she was gaging my betrayal of her cooking abilities.
 
  
 
@@ -231,7 +230,7 @@ I walked towards the patio passing the door connecting kitchen and livingroom.
 
  
 
-As the food was brought in form the kitchen me and dad went to sit at the diner table. He was at the food before mom was even seated.
+As the food was brought in form the kitchen me and dad went to sit at the dinner table. He was at the food before mom was even seated.
 
  
 
@@ -289,7 +288,7 @@ I scoured my brain for something that wasn’t tv or video games. I thought of t
 
  
 
-“I did not!” She turned her attetion to the man she maried.
+“I did not!” She turned her attention to the man she married.
 
 “Actually you could learn a thing or two from him. When did you last do something selfless?”
 
@@ -321,7 +320,7 @@ I thought of the salesman.
 
  
 
-“If you afraid of getting into accidents you can always get some driving lessons from your old man.” He quipped. Laughing at his own joke.
+“If you're afraid of getting into accidents you can always get some driving lessons from your old man.” He quipped. Laughing at his own joke.
 
  
 
@@ -329,7 +328,9 @@ I thought of the salesman.
 
  
 
-“I thought trauma surgeons always used universal blood..?” Moms questions left a silence in the air. I changed the subject and we finished eating.
+“I thought trauma surgeons always used universal blood..?” Moms questions left a silence in the air. I asked about the new trees in the front yard, and we finished eating.
+
+
 
  
 

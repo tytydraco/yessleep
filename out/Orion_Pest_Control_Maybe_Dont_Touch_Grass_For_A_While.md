@@ -1,4 +1,4 @@
-[Previous case](https://www.reddit.com/r/nosleep/s/5twzX7YInQ) 
+[Previous case](https://www.reddit.com/r/nosleep/s/THiNWhebbK) 
 
 The Hunger Grass situation had gotten far worse before it had gotten better. And it's still not entirely resolved. 
 
@@ -461,7 +461,7 @@ I don't know what the outcome of that fight was yet. Reyna isn't answering her p
 
 I'm heading towards the office. Maybe one of them left a note or some sort of clue about where they could be going. I'll keep yinz [posted](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD). 
 
-
+Update: [The outcome. ](https://www.reddit.com/r/nosleep/s/ewNNxtAmex)
 
 
 

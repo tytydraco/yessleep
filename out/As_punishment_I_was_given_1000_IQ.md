@@ -42,7 +42,7 @@ It's like I had been given some kind of drug, only I didn't feel high. I felt mo
 
 It was overwhelming. I tried to focus on just thinking about the facts.
 
-*My name is Callum I had been born 34 years ago in Portland, Oregon and ever since seeing “Close Encounters of the 3rd Kind” as a kid I’ve always had an interest in aliens which is what made me get a camera at a young age to photograph the night sky which is what got me into photography and why I went to Art School and still owe $17,510 in student loans*—*which I will likely never be able to pay off because I spend the majority of my time getting high and playing videogames to stave off the void in my life from having never been in a meaningful relationship*—*which is a result of my overbearing nature from my ADHD and trust issues I developed when my mother left me with my ill-equipped father when I was four years old*—*hence why I gravitate toward mindless hobbies like video-recording UFO lights in the night because I feel that they give me some miniscule sense of purpose.* 
+*My name is Callum I had been born 34 years ago in XXXX, XXXX and ever since seeing “Close Encounters of the 3rd Kind” as a kid I’ve always had an interest in aliens which is what made me get a camera at a young age to photograph the night sky which is what got me into photography and why I went to Art School and still owe $17,510 in student loans*—*which I will likely never be able to pay off because I spend the majority of my time getting high and playing videogames to stave off the void in my life from having never been in a meaningful relationship*—*which is a result of my overbearing nature from my ADHD and trust issues I developed when my mother left me with my ill-equipped father when I was four years old*—*hence why I gravitate toward mindless hobbies like video-recording UFO lights in the night because I feel that they give me some miniscule sense of purpose.* 
 
 The psychic surgeon caressed the sides of my head with his plastic fingers. “Tell me about … purpose.” 
 
@@ -106,4 +106,4 @@ There’s a catchphrase in the ufologist community you have probably heard of: �
 
 Well, listen to me. Do not take this lightly.  *The truth IS out there.* I know for a fact that it is.
 
-[But you do not ever want to know it.](https://www.reddit.com/r/EclosionK2/comments/1g0837r/welcome/)
+But you do not ever want to know [it.](https://www.reddit.com/r/EclosionK2/comments/1g0837r/welcome/)
