@@ -1,261 +1,37 @@
-It started with little things.
+I should preface this by clarifying that this is a second hand story. It was told to me by my grandfather during one of his final few periods of lucidity before his mind, his body, and, ultimately, his life were lost to dementia. He has been gone a couple of months now and I’ve been missing him terribly. As such, I’ve been making an effort to collect and transcribe as many of his stories as I can, from both my own recollection and from those of other family members. Many of them are, undoubtedly, works of complete fiction. However, unlike so many of the tales he spun over the years, this one seems, if a bit uncanny, well within the realm of possibility. Moreover, having been witness to the telling, I can vouch for the solemnity of its delivery. My grandfather was many things, but he was not an actor, and, unless I am mistaken and his mental decay at the time was much further along than previously assumed, I am strongly inclined to suggest that this story, however unbelievable, is true. 
 
-​
+When my grandfather was quite young, his family owned a small cabin in one of Alaska’s most remote stretches of boreal forest. Though the area was largely separated from wider society, save for the single road by which provisions or emergency aid could be acquired, there were several other cabins in the same glade, and they formed a sort of community amongst themselves. This was particularly true in the winter months, when the area’s more seasonal occupants, like my grandfather’s group, would flock to the area to partake in its unrivaled opportunity for hunting, fishing, natural sightseeing, and general peace and quiet. 
 
-I didn’t remember putting my keys on the hook, even though that was where they were meant to go. But I’d been dead tired when I got home the night before, so I barely remembered anything anyway.
+Only one of the cabins was occupied year round. It was the largest of the group, and home to an elderly couple who had never managed to have children of their own. They had been the ones to build and sell the other cabins, in the hopes of establishing some form of companionship for themselves in their twilight years. Unlike the other cabins, theirs featured a large, fenced-in garden. Closest to the house, this space was utilized for the planting of root vegetables, herbs, and, so my grandfather had been told, spring and summer flower beds. Further out, however, it became a wide, flat lawn, broken up only by the few tall pine trees that had been spared the area’s initial deforestation. This region was home to the community’s most beautiful, fascinating, and, in some ways, controversial occupant.
 
-​
+The occupant in question was not a human, but, rather, a reindeer. At first glance, her white coat made her appear albino, but, upon closer inspection, her dark eyes and brownish coloration about the antlers revealed her to be leucistic. She was technically a wild animal, perfectly capable of leaping over the short fence that divided the yard from the wider forest if she so chose, but she never did. The elderly couple fed her, housed her, and protected her from predators. In return, she maintained a gentle, amiable disposition and was rendered, for all intents and purposes, somewhat domesticated. It was partly for this disposition that she was named, though, as something of a happy coincidence, the word also referred to delicate, multicolored flowers of which the couple was apparently very fond and which could, supposedly, be seen growing in their garden during the parts of the year when my grandfather was not around. Her name was Patience.
 
-The coffee wasn’t where I thought I’d left it. After 15 minutes of searching, I found it on top of the fridge. Odd.
+My grandfather, at that age, thought it a bit of a silly name. He was unfamiliar with the flowers in question and could not bear witness to any resemblance they might share to the animal. As to the dispositional aspect, he could attest that she was an exceptionally tolerant and placid creature. The elderly couple, without grandchildren of their own, often invited my grandfather and the young daughter of his immediate neighbors over to play in the garden, and they’d spent many happy days stroking Patience, splashing about in the snow around her, and even, when they were very small, riding on her back. However, he had met other deer in the course of his life, and, while he could agree that Patience was certainly less skittish, he could not say that she was necessarily more patient. In fact, he’d seen her be quite impatient at times, especially when being offered a treat from his hand. To him, the name made little sense. But it was what the elderly couple had chosen, and so it stuck. 
 
-​
+Most in the community were happy to live in harmony with Patience. All, in fact, except for the neighbor girl’s father. He was an avid hunter, and, the few times my grandfather was allowed in his cabin to play with his daughter, he had been unpleasantly confronted by the man’s extensive taxidermy collection. There were all manner of game birds, a moose, several foxes, a wolf, and even a standing bear mount near the fireplace that cast a grim shadow over the living room when the fire was lit. Some children might have liked this collection, thinking it interesting or exciting, but my grandfather found it horrifying. Wherever one went in the house, there was the persistent feeling of being watched by dozens of dull glass eyes, and it made him terribly nervous. 
 
-I’d searched everywhere for the pretzels for the kids' school snack only for them to be right where I’d thought they should have been when I opened the pantry the next day.
+Despite the vastness of his collection, one thing the neighbor did not have was a leucistic reindeer, and it was a reality that he was not content with. He had approached the couple many times asking to take the animal or buy her off them. This having failed, he threatened to simply shoot her over the fence. After all, he said, it’s not as though she was a pet. She was a wild animal, and she’d look so wonderful as a wall mount. The couple, however, would have none of it. They kept vigilant watch over the yard during the day, and, at night, Patience slept in a mostly enclosed stable area close to the house. If they ever caught him anywhere on their property, they said, there’d be hell to pay. Once she’d lived a good long reindeer life and died peacefully of old age, they’d be happy to surrender her to him to do as he pleased. Until that day, however, no harm was to come to her. 
 
-​
+This created considerable tension in the community for several years. The once peaceful atmosphere was now fraught with nerves, and all eyes were on the hunter, wondering whether he’d make good on his threats. He certainly could have. The old couple were slow, and there likely would have been little they could do to stop him from killing the creature in broad daylight even if they’d seen him approach from their window. But it seemed the man still had some semblance of decency in him. For all his grumbling, it seemed that the shame of slaughtering the couple’s beloved reindeer right in front of them would simply have been too great a burden for him.
 
-Honestly, all of those things could be attributed to stress or the insomnia or my general forgetfulness.
+One snowy night, however, tragedy struck. The husband of the couple had started to feel ill earlier that day and, come dusk, it was clear that he was in desperate need of significant medical attention. In her rush to find help for her partner, the wife had neglected to get Patience to her stable, and so, as night fell, the house was left deserted, and the reindeer still stood in the garden, her white silhouette against the darkness broken only by the snow that flurried around her. 
 
-​
+It was then that the hunter struck. He elected not to use a gun for fear of waking every cabin. Whatever was left of his dignity, it seemed, extended at least that far. But my grandfather woke nonetheless to several loud thumps and swears from across the glade. Looking out into the snow swept night from his bedroom window, he saw the man hoisting the limp, pale carcass back onto his shoulders from where it had fallen in the snow as he had stumbled over the fence and making his way back toward his own cabin. The scene sent a shiver through my grandfather and put a terrible ache into his chest. For the rest of that night, no sleep came to him.
 
-It was walking into my bedroom after dropping the kids off at school to find all of the laundry folded that really made me think. I had a mountain of laundry sitting on my bed when I had left, dumped there in an effort to find shorts my youngest was willing to wear and in hopes of finding two matching socks for my oldest. The pile of laundry was gone and in its place were neat little piles of shirts and pants. Socks were folded together with their mates.
+The next morning, the elderly woman returned alone. The help, it seemed, had come too late to save her husband. When she looked into her yard and saw no trace of her sweet Patience, it was immediately clear what had transpired, and the fresh red smears leading straight to the hunters door left no question as to the culprit. My grandfather expected there to be shouting, rage, and tears. But instead, the old woman looked over the scene just once with vacant, glassy eyes before retreating to her own house. They didn’t see much of her after that, and she died, some weeks later, completely alone. 
 
-​
+My grandfather’s family only visited the glade one more time in his childhood, and he remembers little of it. Without the couple, and without the reindeer, the sense of community was gone, and the forest that had once been cold but happy was now just cold. He did go over, just once, to see the neighbor’s daughter. The taxidermy collection was far more unsettling now than ever before. The pieces which had already been there seemed even more malicious, and the addition of the white reindeer shoulder mount in the living room made the atmosphere nearly unbearable. She had been placed just above a full length mirror, presumably so that the hunter could perceive himself and his conquest all at once. Her eyes, far more so than any of the others in his collection, were incredibly lifelike. She looked much as she had that night in the garden and, if he could not see the clear absence of a body behind her, she’d have looked for all the world like she would turn to him at any moment. Her gaze had lost all of the gentleness it possessed in life, but he knew, without a doubt, that there was still a soul behind that glassy stare. Perhaps, he thought, there might even be more than one. 
 
-My chest felt tight as I surveyed the scene. My legs shaking as my mind went back and forth. Was it better to shut myself in the bedroom or to run down the hallway, down the stairs to the first floor, and out the door to call the police.
+It was not until many years later that my grandfather returned to the cabin. He was now in his twenties, and, after the sudden and unexpected death of his father, he decided to spend one last winter at the place to fix it up to sell. The funeral expenses had not been cheap, and his father had been the only one with any desire to hang on to the place. Upon arrival, he discovered two facts in fairly quick succession. The first was that nobody had moved into the old couple’s home since their deaths. The windows were dark, the roof in disrepair, and the garden badly overgrown. He understood it, of course. The place was certainly haunted. 
 
-​
+The second of his discoveries was that the hunter’s family was also at the cabins. The daughter, whom he had played with in the old couple’s garden all those years ago, was getting married. A winter wedding. It was set for just a few days ahead, and the girl was terribly excited. The family invited him over for a celebratory dinner, but he declined the invitation. He had no desire to go in that house ever again. As an apology for his absence, he went into town the next day to purchase a wedding gift for the bride-to-be. It seemed that, after marriage, she was to be the new owner of the cabin, and he more than anyone would agree that it needed something of a redecoration. Having perused the shops, he settled on an intricate painting of a seaside kestrel. 
 
-Would the police think I was crazy?
+He was nearly ready to begin the journey back when something else caught his eye. The next shop over was a nursery and, though the season rendered the available merchandise somewhat limited, there was a short rack near the front of the shop advertising seeds for sale. Perhaps it would be nice, he thought, to get her something with which to start her garden in the spring. Flipping through the slender paper packets, one in particular caught his eye. The front bore an image of delicate, multicolored petals, and the name was one he recognized. The same cold shiver that had run through him all those years ago rocked him again. For just a moment, he wondered whether it might be a bad omen to get them for her. But the next, he found himself out the door, clutching the seed packet in his hand alongside several others. Before he handed the gifts to her outside her cabin that night, he tucked the packets away in an envelope, as if hoping that the thin white cardstock would be enough to dispel whatever curse might be attached to its contents.
 
-​
+Whether the events the following morning were of his doing he could not say. He was inclined to believe that they would have happened anyway, though he did still wonder whether his gift may have acted as some sort of impetus. Whatever the case, he woke the next morning to calamity in the next cabin.
 
-‘Officer, someone broke in to fold my laundry.’
+It was not until some time later that he got the full story. Apparently, the daughter had, in a fit of nuptial excitement, thrown herself into her wedding dress in the early hours of the morning. Moved by her desire to behold herself in all her bridal glory, she had moved into the living room to gaze upon herself in the full length mirror. Just at that moment, as she had drawn close to the mirror in a haze of admiration, the mount, which had previously been firmly nailed into the wall, came loose all at once and toppled towards her. Whatever she may have done to try and escape it was in vain. The reindeer’s antler pierced her eye and entered her brain. In an instant, she was gone. Her father was the one to discover her and, upon doing so, immediately collapsed dead of a heart attack. It seemed he could not handle the shock. 
 
-​
+My grandfather watched out his window when people arrived to take the bodies away. Three things struck him as he saw his old friend, the hunter’s daughter, get carried off. The first was that her blood, so startlingly red against the white of her wedding gown, reminded him distinctly of those telltale red smears that had stained the snow so many years ago. The second was that Patience, who was carried out alongside the body for examination, no longer held that uncanny lifelike gleam in her eyes that had so frightened him when he’d first seen them. Perhaps it was a feature of his maturation, or perhaps it was the change of light, but the eyes he saw now were clearly and distinctly glass and nothing more. As the grief-stricken party moved away, his final epiphany slithered, icy and sharp, up his spine. That wall mount had hung in the cabin for over a decade before this day. He could not, would not believe that the accident had been anything but natural in its origins. Such beliefs could drive a person to madness. But, if by some unthinkable, unutterable, impossible means the alternative explanation had any merit, then Patience, it seemed, was a far more fitting name than he’d realized. 
 
-I heard the squeak the top step made whenever pressure was placed on it.
-
-​
-
-I had my bedroom door shut, locked, and barricaded before I realized I had left my phone sitting on the kitchen counter.
-
-​
-
-I couldn’t call for help.
-
-​
-
-“Sandy! There you are, I was wondering when you would be home!” called a voice through the door.
-
-​
-
-A voice I knew well.
-
-​
-
-My mother.
-
-​
-
-My overbearing mother. Who I hadn’t seen in years. Because we didn’t talk after the woman told me I should leave the kids with their grandma right after my husband passed away.
-
-​
-
-“I hope you don’t mind I let myself in while you were out. You still keep the spare key in the same place we kept ours when you were a kid!”
-
-​
-
-The planter my brother had made in high school. Painted bright and cheerful blues and purples. Gifted to me on my 10th birthday.
-
-​
-
-Betrayed by my childhood sentimentality.
-
-​
-
-On the bright side, my mother had folded the laundry so there was that little peace offering.
-
-​
-
-“I wish you would have waited. Or called before coming over. It's been a while.”
-
-​
-
-I tried to move the dresser I had pulled in front of the door in my panic back out of the way as quietly as possible. No reason to let my mother know how frightened I had been.
-
-​
-
-My legs continued to shake. Either an after shock of my body’s adrenaline or a brand new rush from my mother’s presence.
-
-​
-
-“You’re right, I should have called. I didn’t think you would answer and I wanted to see you. And the kids. They must be so big now.”
-
-​
-
-I felt nauseous at my mother’s mention of the kids. My kids. The kids my mother had suggested live at grandma’s permanently.
-
-​
-
-“The kids are fine.”
-
-​
-
-“I never said they weren’t dear. Are you ok in there? Will you come out?”
-
-​
-
-I wiped some sweat from her forehead. I must look a wreck. But there wasn’t a mirror in my bedroom so I’d just have to live with it.
-
-​
-
-I unlocked and opened the door.
-
-​
-
-My mother looked older. Noticeably so. Her hair had been a rich brown before and now was fully gray. I wondered if the woman been dying it before we stopped talking. The lines on her face had developed into full wrinkles.
-
-​
-
-But still, the woman looked strong. Healthy. An anxiety that I hadn’t known I carried was released.
-
-​
-
-“You look good mom.”
-
-​
-
-“I wish I could say the same dear but you look tired! Let me make you some tea.”
-
-​
-
-“That would be great actually.”
-
-​
-
-When I was younger, my mom had always made me tea when I was anxious. Or when I was running myself too hard with sports and after school clubs in high school. The tea and the conversation had always relaxed me.
-
-​
-
-We made our way back down the stairs and I picked up my phone as my mom started the tea. 20% battery.
-
-​
-
-“I’ll be right back mom, I need to grab my phone charger out of the car.”
-
-​
-
-“Ok sweetie! I’ll have your tea ready by the time you’re back.”
-
-​
-
-It only took a few minutes but, sure enough, by the time I was back and seated at the kitchen table my mom had a steaming cup of tea in front of me.
-
-​
-
-“Now let it sit for a minute before you take a sip. You know it needs to steep.”
-
-​
-
-I nodded idly, setting the cup back down.
-
-​
-
-“Thank you for folding my laundry too mom, but you didn’t have to do that.”
-
-​
-
-My mom’s eyebrows bunched together in confusion.
-
-​
-
-“I didn’t fold any laundry, sweetie. I came in, went to the bathroom, and then you were back.”
-
-​
-
-The ice returned to my veins.
-
-​
-
-My phone dinged and I glanced down.
-
-​
-
-A number I didn’t recognize.
-
-​
-
-*‘Don’t drink the tea. She drugged it. She put tarp and rope in the bathroom.’*
-
-​
-
-I couldn’t breathe.
-
-​
-
-“Are you ok love?”
-
-​
-
-“Fine.”
-
-​
-
-It came out a bit too loudly.
-
-​
-
-Ding!
-
-​
-
-*‘Tell her you need to go pick up the kids. Say someone’s sick.’*
-
-​
-
-My mother stood and took a step towards me.
-
-​
-
-I looked up and met eyes and the gentle glow of a phone in the vent at the top of the wall.
-
-​
-
-I looked down at the tea I had already started to drink.
-
-​
-
-I couldn’t breathe.
-
-​
-
-My vision was blurry.
-
-​
-
-“Help,” I croaked out.
-
-​
-
-The phone clattered to the floor.
-
-​
-
-I should have remembered to let the tea steep.
-
-​
-
-When I woke up it was with a pounding headache and a voice I struggled to understand. Someone asked what had happened. They explained that I was at the hospital. After I explained what I knew, they let me know that someone had called the police anonymously. When they arrived, I was alone in the house.
-
-​
-
-After my story, the police did search my house. I'd told them their was no need, but they had disagreed. They found evidence that someone had been living in a back closet in my attic. They moved through the house in my vents. Candy wrappers and empty chip bags had been found in both the closet and the vents. A large pile had been next to the vent that overlooked me room. As if someone had sat there and watched.
-
-​
-
-My mother was officially in the wind. They haven't been able to find her or her car. The tarp and ropes my attic guest mentioned were nowhere to be found. Neither my dad now my brother have heard from her. My dad let me know she had moved out earlier this year, into a three bedroom apartment. She was living alone but the other rooms are filled with toys and clothes. Clothes that would have fit my children. There were locks on the outside of the bedroom doors.
-
-​
-
-I've tried texting the number I received the warning from but haven't gotten any response. If you're reading this, thank you. You saved my life and you saved me family. You will always have a home in my house.
+That night, as he drifted through the cabin ensuring that everything was locked up, he paused by the kitchen window. Looking out into the darkness, he saw, for just a moment, three figures against the dark and distant forest. Two were barely visible, only illuminated by their proximity to the third, which somehow, even in the faint moonlight, gleamed far whiter than the snow at its feet. In the next second, though, the figures were gone, lost forever amidst the towering, frozen pines. 
