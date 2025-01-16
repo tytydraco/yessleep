@@ -1,4 +1,4 @@
-[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1hzll1a/she_wasnt_a_nurse_part_1/)
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1hzll1a/she_wasnt_a_nurse_part_1/) (Is down explanation in comments)
 
 Weeks later I went to visit my parents. They lived at the other side of the country. I chose to drive. It’s very scenic, and I love the freedom it gives me.
 
@@ -348,5 +348,4 @@ Making the bed I thought about how often I slept alone. And how lonely I felt do
 
 Laying down in that room I thought of my highschool girlfriend. And how we never ended up doing anything. I thought of my mothers endorsement of the gas station girl. Maybe she was an outdoorsy type, like she had suggested. Tomorrow I would drive by the same station on my way home.
 
-  
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1i25ewe/she_wasnt_a_nurse_part_3/)
