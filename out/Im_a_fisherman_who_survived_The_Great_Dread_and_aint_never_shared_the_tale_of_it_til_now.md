@@ -4,7 +4,7 @@ The wrath of the heavens pummelin' down and clashin' with the hells, sparks of l
 
 I were used to the waters but not the way it was then, the violence of it felt biblical and stronger than what mortal men could endure, and though I should not have been, to my surprise I were demanded to abandon my post and head inside with the crew and wait out the storm.
 
-I remember the words sittin' strangely with me, for all 48 hours prior there were strict shifts of workin' and not a lot of breaks between, but I suppose the risk were high then. I'd not had much of a chance to talk to my fellow seamen much, the weather was often moody and left no room for speakin' atop the winds and water hissin' at us. 
+I remember the words sittin' strangely with me, for all 48 hours prior there were strict shifts of workin' and not a lot of breaks between, but I suppose the risk were high then. I'd not had much of a chance to talk to my fellow seamen much, the weather was often moody and left no room for speakin' atop the winds and water hissin' at us.
 
 I'd sat myself in the dining area under the heat lamps and once I was warmed I surrendered to the cabins for shut eye, I never was one for conversin' or talkin' much with others.
 
@@ -14,7 +14,7 @@ A sound unlike anything I'd heard, similar to a foghorn but more... alive someho
 
 The weather was ragin' still but calmer than it was, enough to be able to see in-front of ye for the most part, as we approached the direction it came from that's when we saw him.
 
-A lad stood by the railing, grippin' it so tight the crimson was pooled beneath him, diluted by the rains but rich in its color still, his rain-coats hood was on and he was as stiff as a corpse. 
+A lad stood by the railing, grippin' it so tight the crimson was pooled beneath him, diluted by the rains but rich in its color still, his rain-coats hood was on and he was as stiff as a corpse.
 
 Lightnings got 'im, I thought, was out here doin' god knows what and held the rail when he was struck. A terrible way to go, I thought - but it weren't no lightnin' that had him.
 
@@ -22,7 +22,7 @@ As I approached the lad I began to see the details and it were unholy what met m
 
 "Return me, I. Return, me. I. Return, me" is all i could hear.
 
- Rambles of lunacy it was, and before I could stop him he tore his hands off the railing, the skin from his palms stuck to it like settled cheese, he shrieked and flailed, his blood and skin flyin' and flappin' as the winds screamed and laughed, i'd never seen anythin' like it- he threw himself overboard 'fore we could even blink.
+Rambles of lunacy it was, and before I could stop him he tore his hands off the railing, the skin from his palms stuck to it like settled cheese, he shrieked and flailed, his blood and skin flyin' and flappin' as the winds screamed and laughed, i'd never seen anythin' like it- he threw himself overboard 'fore we could even blink.
 
 It was the briefing that night only 2 hours after where I was made aware of it,
 
@@ -34,13 +34,13 @@ It were a rare occurrence where the anomalies we came to find were not in the fi
 
 He was only the first to go, but he certainly weren't the last, the dread never left the area.
 
-That night weren't nearly as easy to shut eye and return to me dreams, t'were a cabin full of nervous sailors starin' at the ceiling in silence, it were one thing for the fish to be disfigured, were one thing for the weather to scold us, but to have one of the young men who ye trainin' with, who shared feasts with ye, to die in such a way was somethin' none of us were ready for. 
+That night weren't nearly as easy to shut eye and return to me dreams, t'were a cabin full of nervous sailors starin' at the ceiling in silence, it were one thing for the fish to be disfigured, were one thing for the weather to scold us, but to have one of the young men who ye trainin' with, who shared feasts with ye, to die in such a way was somethin' none of us were ready for.
 
 The following moons were uneventful, we isolated in the ship in fears of the source of it comin' from the waters or the air around us, the part that really scared us were that the management had no idea as to what the great dread was, or where it came from. They just knew the effect it had, and that if the dread reared its head, then the job was all but over. The risk outweighed the research. Makes ye wonder why there weren't no mention of it at all from our superiors.
 
-The storm came and went, came and went, came and went, as soon as we'd begin to strategize the trip back to land it would come back, like Neptune himself mockin' us, toyin' with us the way predators play with their food. 
+The storm came and went, came and went, came and went, as soon as we'd begin to strategize the trip back to land it would come back, like Neptune himself mockin' us, toyin' with us the way predators play with their food.
 
-We were stuck in the dread for days, isolating ourselves in the ship, not a lot of work for most of us to do, leavin' many workin' men without distraction, the thoughts and devils inside us began festerin' and feedin' on us with no time to waste and the madness began to boil. 
+We were stuck in the dread for days, isolating ourselves in the ship, not a lot of work for most of us to do, leavin' many workin' men without distraction, the thoughts and devils inside us began festerin' and feedin' on us with no time to waste and the madness began to boil.
 
 Many men died by suicide, one stabbed another in the neck during dinner, and another simply locked themselves away downstairs in the supply room, the screams and screechin' that could be heard from him were enough to send any man to insanity in the best of circumstances, but it were what we saw when we found him that had us abandon the mission all together, regardless of the risk of capsizin' from the storm.
 
@@ -50,21 +50,21 @@ We barely made it back to land, hell, most of us didn't, it were me and 3 other 
 
 When we left the vessel and returned to our homes, me superior, he who I shall not name, had us sign additional wavers for secrecy, a secrecy that I'd held to until today.
 
- I write today not to rebel or to cause harm, but because The Great Dread has followed me home.
+I write today not to rebel or to cause harm, but because The Great Dread has followed me home.
 
 It's been years since then, but a week ago it started.
 
-My wife Helena was expectin' you see, had been all year, it took a long time for the intimacy 'tween us to grow back and this child felt like life was finally harmonizing again. 
+My wife Helena was expectin' you see, had been all year, it took a long time for the intimacy 'tween us to grow back and this child felt like life was finally harmonizing again.
 
-I was distant and broken for the whole year I'd come back, nothin' could erase what I'd seen, what I'd felt, and I weren't able to talk about it much at all, despite nobody in my tiny island commune a risky to share the details with, and I'm sure ye can imagine, a piece of paper didn't hold much over folk like me, but our word of honor did, but, really, the truth is.... it felt as if tellin' the tales of it would cause it to come back.
+I was distant and broken for the whole year I'd come back, nothin' could erase what I'd seen, what I'd felt, and I weren't able to talk about it much at all, despite nobody in my tiny island commune a risk to share the details with, and I'm sure ye can imagine, a piece of paper didn't hold much over folk like me, but our word of honor did, but, really, the truth is.... it felt as if tellin' the tales of it would cause it to come back.
 
-I'd die before I did anything to bring the Dread home, but, turns out, that weren't no choice of mine. 
+I'd die before I did anything to bring the Dread home, but, turns out, that weren't no choice of mine.
 
-Helena began to become distant much like I had been, I thought not much of it, women's hormones were as turbulent as the waters around us in this time, but it was when the others were the same that the panic started to sprout. 
+Helena began to become distant much like I had been, I thought not much of it, women's hormones were as turbulent as the waters around us in this time, but it was when the others were the same that the panic started to sprout.
 
 Started with me brother, took his own life for no reasons we could see, and only I truly upset. Everybody were dead in the eyes.
 
-Then me mother, me father, all the same ways, diggin' into their own necks and throats with fishin' hooks, Thomas down the ways butchered 'is family then himself, and over time everybody were maimin' and killin' each other at night time in their cabins. 
+Then me mother, me father, all the same ways, diggin' into their own necks and throats with fishin' hooks, Thomas down the ways butchered 'is family then himself, and over time everybody were maimin' and killin' each other at night time in their cabins.
 
 I'd barely realized how few were left 'til they were all gones for good, some already startin' to stink and rot.
 

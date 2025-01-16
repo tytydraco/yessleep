@@ -1,5 +1,5 @@
-[Part One](https://www.reddit.com/r/nosleep/comments/1i1jchd/im_a_911_operator_earlier_this_night_i_got_a_call/)  
-  
+[Part One](https://www.reddit.com/r/nosleep/comments/1i1jchd/im_a_911_operator_earlier_this_night_i_got_a_call/)
+
 I sat on the cushioned armchair in the hotel room Marielle had rented after running off inexplicably from her shift last night. I called her earlier this morning after finishing work without even going to sleep, she's always been level-headed and her acting like this made me feel concerned, I couldn't just let it go. And now here I was, listening to how she apparently spoke to herself last night on the phone.
 
 "Marielle, are you sure these night shifts aren't a bit too much for you?" Though I wanted to trust her, what she was describing to me sounded straight out of a book or a movie, and the lack of sleep really takes a toll too big for you to even comprehend. "I'm not saying you're making this up but, maybe just... you remember it wrong?"
@@ -78,4 +78,4 @@ When I opened my eyes I found myself back in the attic, but this time I could he
 
 I allowed her to drive and she kept asking me questions in the meantime, but I was too exhausted and in pain to respond coherently. We arrived at the parking lot and she turned to face me, looking me in the eyes and saying something I did not even register at that point. I was too caught up in a small detail that I knew I would have noticed for all the time I've known her.
 
-"Marielle, since when are your eyes two different colors?"
+"Marielle... since when are your eyes two different colors?"
