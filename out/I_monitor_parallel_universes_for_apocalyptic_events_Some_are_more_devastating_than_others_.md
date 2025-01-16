@@ -171,3 +171,5 @@ Some governments attempted to fight the newfound enemy. It went about as well as
 I thought they were going to be the worst of it, but then the trumpets began. These massive beings appeared in the sky two days ago, each holding a long, golden trumpet. Some were holding bowls, others giant scrolls. Look, I may have been bored as all get out in Sunday School as a kid, but the book of Revelations had always kept my interest in a morbid way. I knew what these things were. The Hosts of Heaven.
 
 I don’t need to see any further, this world is lost. Agatha has said she’ll be keeping watch just to make sure all the data is recorded, but I think she’s just too morbidly curious for her own good. Until it’s over, I told her she could keep an eye on it. I’m only to be alerted if the big man himself [shows up](https://www.reddit.com/u/googlyeyes93/s/UeiOLNmWWB).
+
+[Final update](https://www.reddit.com/r/nosleep/s/nafnQFO77B)
