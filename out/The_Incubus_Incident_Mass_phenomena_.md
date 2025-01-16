@@ -55,7 +55,7 @@ But as I came to find out. I didn’t need to know what was happening for it to 
 I even gained an allergy to sage, which I only found out about due to being at an up-cycling convention where someone happened to be burning it, my temperature plummeted, my stomach felt empty and my head felt like it was filled with static, it got so bad that I passed out and missed the events end, a fact that disappointed me at the time.
 
 What was going on? had I been assaulted in my sleep? The thought of such a possibility terrified me more than the possibility of being pregnant. 
-But after the aforementioned convention, the symptoms disappeared and I breathed a sigh of relief, waving it off as a fluke. just a combination of stress and the flu. but during this time I attended an event, I don’t really want to give much detail about this part. Honestly I don’t remember as much as I’d like too. This time was so horrifying that I blanked out for most of it. I remember feeling sick most days.
+But after the aforementioned convention, the symptoms disappeared and I breathed a sigh of relief, waving it off as a fluke. just a combination of stress and the flu. I don’t really want to give much detail about my being sick. Honestly I don’t remember as much as I’d like too. This time was so horrifying that I blanked out for most of it. I remember feeling nauseous and not completely there most days.
 
 when I finally seemed to start getting better, and when the sickness finally faded. 
 The attacks started up again.
