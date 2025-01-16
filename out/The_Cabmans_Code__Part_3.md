@@ -52,7 +52,7 @@ It began to crackle with a faint electrical noise. Then, a shape started to pull
 
 There was no mistaking those glowing eyes as he pushed through the screen. The monitor had become like a window, its surface parting like mere curtains he lightly brushed aside to make his entrance. His grin stretched unnaturally wide, those sunken eyes piercing through me, as if staring into my very soul.
 
-“No… no, no, no!” I stuttered, scrambling backward as my chair tipped onto two legs after getting snagged on the worn-out carpet under me. It was useless, I couldn’t escape. His elongated arm stretched out from the screen, and I could see his cold, gray, bony fingers emerging from the sleeve of his tattered peacoat. His hand latching onto the side of my head, trapping me in his grasp.
+“No… no, no, no!” I stuttered, scrambling backward as my chair tipped onto two legs after getting snagged on the worn-out carpet under me. It was useless, I couldn’t escape. His elongated arm stretched out from the screen, and I could see his callused, bony fingers emerging from the sleeve of his tattered peacoat. His skin was dry with cracked ridges that scraped against my face as his hand latched onto the side of my head, trapping me in his grasp.
 
 I tried to scream, but the sound was little more than a hoarse whisper, so quiet it faded the moment it left my lips. His fingers pressed against my temples, curling like the tendrils of a spider, before sliding down to my eyes. “Look,” he commanded, his voice was gruff and thick with malice. “All I needed was an opening. A moment of weakness, the faint crack so tiny you didn’t even notice. Now, see with my eyes. Witness what I am.”
 
