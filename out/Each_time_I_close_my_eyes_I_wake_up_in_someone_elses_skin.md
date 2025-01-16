@@ -1,33 +1,49 @@
-It’s never peaceful. Never quiet. Their screams rip through me, echoing in the places where my voice used to live. 
+It’s never peaceful. Never quiet. 
 
-Their fear bleeds into my thoughts, seeping like poison, until I can’t tell where they end, and I begin.
+I can’t tell where they end, and I begin. 
 
-The bodies I wake in—*no, the bodies I steal*—are never the same.
+The bodies I wake in—no, the bodies I steal—are never the same.
 
-Once, I woke as a 20-year-old woman, her hands clutching the hilt of a knife buried deep in her throat. Blood cascaded down her chest, painting the walls in red arcs from the first, desperate slash. Her memories hit me like a tidal wave: the cold-eyed men who’d taken everything from her—her body, her dignity, her soul—and left her hollow. She had tried to crawl out of the pit, but the world just kicked her back down. No money. No way out. Just a cheap motel and an old blade. I felt her despair wrap itself around me like barbed wire.
+Once, I woke as a man mid-sneeze in the middle of a drive-thru. One moment, he’s ordering a triple bacon cheeseburger with extra pickles; the next, he jerks violently, launching a glob of mucus onto the cashier’s outstretched hand. She screamed. He screamed. I screamed. His shame was palpable, his thoughts scrambling for an apology, but I was already gone—laughing and horrified.
 
-Once, I woke as a frail old man, his joints grinding with each shallow breath, each pitiful movement. The sound was sickening, the scraping of bone on bone like nails dragging across my sanity. His body reeked of decay, his skin paper-thin and spotted with the bruises of neglect. I could feel his desperation, his terror as his mind unraveled, clinging to fleeting memories of a family long gone. His loneliness was a physical weight, that made me wish for an end he could never find.
+Once, I woke in the body of a taxidermist, hunched over a squirrel, or what had once been one. Its glass eyes stared back at me, unblinking, as I realized his—my—hands were stitching human hair onto the lifeless creature. The workshop—a twisted gallery of unfinished horrors: a deer with baby teeth, a fox with a human ear sewn to its neck. He—I—was giggling. The hysterical laughter made my skin crawl, even though it was my own voice.
 
-Once, I woke in the body of a child. A boy, no older than six. His lungs burned as he sobbed, his tiny chest heaving. His hands were trembling as he gripped the handle of a hammer, staring up into the face of his father. The man’s face was.. monstrous—a sneer of hate and cruelty. I could feel the boy’s terror as the hammer was raised. I didn’t just see the swing—I *felt* it. The sickening crunch as the metal struck soft bone. The spray of warmth. The way the world dimmed, even as the body I inhabited twitched and crumpled with each next strike. 
+Once, I woke in the body of a man buried alive. The air thick with dirt and rot. Fingers clawed at the coffin’s lid, splintering nails, blood smearing the wood. Memories surged: an unforgiving debt and pitiless faces of those who had nailed him in. Every breath a battle, every second a descent into darkness. 
 
-I’ve stopped trying to make sense of it. There’s no pattern, no logic. Just pain. Endless, unrelenting pain.
+I’ve stopped trying to make sense of it. There’s no pattern, no logic. Sometimes there is only pain.
 
-But last night… last night, I woke up in my son’s body.
+But last night… 
 
-I knew it the moment I opened my eyes. His room was dark, save for the faint glow of the crescent-moon nightlight he loved. His posters—the ones I helped him hang—were right where they’d always been. The air was heavy with the sharp citrus tang of the cologne I’d given him on his last birthday. His mattress cradled me.
+Last night, I woke up in my son’s body.
 
-And his voice was still there.
+I knew it the moment I opened my eyes. His room was dark. Posters—the ones I helped him hang—were right where they’d always been. The air was heavy with the sharp citrus tang of the cologne I’d given him on his last birthday. His mattress cradled me. And his voice was still there. 
 
-It didn’t fade like the others.
+It didn’t fade.
 
-It screamed.
+„Dad? What’s happening? Why can’t I move?”
 
-*"Dad? Dad, what’s happening? Why can’t I move?"*
+I bolted upright, my hands—his hands—scraping. I lunged for the mirror. There he was, staring back. My breath caught in his throat, and the scream that tore wasn’t mine. It was his. 
 
-I bolted upright, my hands—*his hands*—scraping at my face, the feel of his unscarred skin foreign and wrong. My legs stumbled beneath me as I lunged for the mirror. There he was, staring back at me—his wide, terrified eyes. My breath caught in his throat, in his chest, and the scream that tore free wasn’t mine. It was his. 
+And then I saw it.
 
-I lowered my eyelids.
+His desk was empty, except for a single object: a bottle of pills. Beside it, a hastily scrawled note read, 
 
-And then, from somewhere deep inside, I heard him sob.
+“I’m sorry” 
 
-*"Please, don’t close your eyes again. Don’t leave me here…"*
+My vision blurred, the acrid taste of something bitter coating my tongue. Throat convulsed, his chest heaving, and I felt the nauseating wave of chemicals surging through his veins—through mine. My son’s voice wailed inside, a keening cry of fear and regret.
+
+„Dad, I don’t want it! It was a mistake! Help me!”
+
+I tried to claw my way out, to get to his room, and call for an ambulance.. but the force that bound me here wouldn’t let go this time. 
+
+Limbs twitched, as his—our—heartbeat slowed, every pulse weaker than the last. My screams joined his, a cacophony trapped in the vessel of my only child. The darkness crept in, suffocating and final. 
+
+I realized the cruelest truth: the force that threw me from body to body had never been mine. 
+
+It was feeding. 
+
+On us. 
+
+On me. 
+
+And it wasn’t done yet.
