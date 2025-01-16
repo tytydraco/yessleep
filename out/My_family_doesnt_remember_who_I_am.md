@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/1i1i2ao/my_family_doesnt_remember_who_i_am_part_2_im_in_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+Now (I) - [Next (II) ](https://www.reddit.com/r/nosleep/comments/1i1i2ao/my_family_doesnt_remember_who_i_am_part_2_im_in_a/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)\- [Then (III)](https://www.reddit.com/r/nosleep/comments/1i2y2mq/im_stalking_this_cute_little_blond/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \-
 
 I've been stuck in my dorm all semester trying to keep my head above water, clawing at my face in the middle of the night as I struggle to keep my eyes glued to my computer. When finals week finished I was eager to get the hell out of there, but I didn't receive the homecoming I was expecting and the reality of my new situation is slowly killing me inside.
 

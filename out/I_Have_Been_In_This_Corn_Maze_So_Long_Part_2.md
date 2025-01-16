@@ -253,3 +253,5 @@ I drank the contents of the bottle in a single gulp, not caring to ration it. I 
 I woke up, still in the darkness of course. It took me some time to adjust enough to take in what was around me. At first, it just looked like a black void. Eventually, though, I managed to distinguish the shapes in the darkness. 
 
 It was the farmhouse. I had left the corn maze.
+
+[Final Part](https://www.reddit.com/r/nosleep/comments/1i2xi6v/i_have_been_in_this_corn_maze_for_so_very_long/?)
