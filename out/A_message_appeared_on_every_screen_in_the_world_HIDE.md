@@ -104,7 +104,7 @@ The flicker in her eyes more than meant that she’d sided with the lightbulb in
 
 “But the fucking *thing,*” she motioned to the TV, then to her own phone, “says *hide.* Maybe it’s *that* literal.” She continued scouting, finally settling on the sliding closet in Ravi’s room—the best she could come up with in his 600 square foot quarters. “I’ll do here unless you think there’s better.”
 
-“*Evelyn****,”*** Ravi stressed.
+“*Evelyn*,” Ravi stressed.
 
 She shuffled in, past hung garments, scooching to the end to make space. “I’m gonna close the door soon, and if you’re all *really* my friends, you’ll join me.” 
 

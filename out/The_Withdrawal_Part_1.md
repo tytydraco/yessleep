@@ -1,30 +1,51 @@
 I think it's safe to say that 2020 was a year most people would rather forget for reasons that I'm sure I don't even need to go into, and really the context of it all isn't that important to this story but what is important was the effect - the lockdowns, the mandatory isolation.
 
-What could be better than being cooped up with your family and nowhere to escape except the maddening enclosure that was your room? I was 15 at the time and honestly I don't think I could have conjured up a worse scenario for me to be stuck in, I was at the age where I wanted to be out of the house and smoking weed with my pals and drinking whiskey in parks until the sun came up - my very own stereotypical high-school movie experience, I was in the middle of my turn at getting to have some silly, lived in fantasy's of party's and girls and everything else, and right where I felt as if I was approaching a golden era of my life the pandemic happened.
+What could be better than being cooped up with your family and nowhere to escape except the maddening enclosure that was your room?
+
+ I was 15 at the time and honestly I don't think I could have conjured up a worse scenario for me to be stuck in, I was at the age where I wanted to be out of the house and smoking weed with my pals and drinking whiskey in parks until the sun came up. 
+
+My very own stereotypical high-school movie experience, I was in the middle of my turn at getting to have some silly, lived in fantasy's of party's and girls and everything else, and right where I felt as if I was approaching a golden era of my life the pandemic happened.
 
 It was a weird time, it almost felt like a surreal day dream that everyone was in on, the sudden surge of user activity on the internet, the barren and desolate city centers, all mixed with the news constantly showing us the evolving horrors of it all. It felt apocalyptic.
 
 With all that said, there was no global crisis that could even come close to contending with the trauma inflicted on me from what I'd come to learn and discover in my house during that year.
 
-Things that just shouldn't happen. The kind of stuff you'd think only happens in horror films or true crime documentaries.
-
 It all began when my sister Amy started showing signs of drug withdrawals.
 
-The thing is, Amy has always been kind of reclusive in her personality, and that's not to say she's anti-social or rude, quite the opposite, but there is an air of method to her. Everything she says goes through what seems like a pretty intensive process before she commits, which can create some awkward silences and flows in conversation that can feel a touch too gradual, but she simply has to pick the 'right' thing to say. This attitude and internal make-up can be applied to most areas of her life, she doesn't do things on a whim or in the moment, she is the furthest possible distance away from being a spontaneous and free-spirit. Amy is calculated. Everything in order. Ducks lined up with deliberation and pretense.
+The thing is, Amy has always been kind of reclusive in her personality, and that's not to say she's anti-social or rude, quite the opposite, but there is an air of method to her. 
+
+Everything she says goes through what seems like a pretty intensive internal process before she commits, which can create some awkward silences and flows in conversation that can feel a touch too gradual, but she simply has to pick the 'right' thing to say. 
+
+This attitude and internal make-up can be applied to most areas of her life, she doesn't do things on a whim or in the moment, she is the furthest possible distance away from being a spontaneous and free-spirited person
+
+Amy is calculated. Everything in specific order. Ducks lined up with deliberation and pretense.
 
 As I'm sure you can imagine, the isolation was basically torture for her.
 
-At first that's what I thought it was, cabin fever; she was moody and snappy and erratic and tense and at times , she looked downright sickly. It was when the mental symptoms started to manifest into physical ailments that I really started to notice and worry, my parents naturally *freaked the fuck out* at first; made her isolate in her room, forced swab tests on her, but she was clean.
+At first that's what I thought it was, cabin fever; she was moody and snappy and erratic and tense and at times , she looked downright sickly. It was when the mental symptoms started to manifest Into physical responses, like fever and sweats and what not that I really started to notice and worry.  
+
+My parents naturally *freaked the fuck out* at first; made her isolate in her room, forced swab tests on her, but she was clean.
 
 No identifiable illness, no contagions, yet the symptoms persisted.
 
-Another thing that's important to know about Amy is that she's *never* and I mean *never, ever* done illicit drugs, that was more my cup of brandy whereas hers was light roasted coffee if she felt especially dangerous. I wouldn't say she was straight as an arrow or anything, but the idea of her being addicted to something like Oxy or Xanax was so beyond out of character that it was teetering on being comical - so why did she look like she was?
+Another thing that's important to know about Amy is that she's *never* and I mean *never, ever* done illicit drugs, that was more my cup of brandy whereas hers was light roasted coffee if she felt especially dangerous.
 
-Why was she so worn down, and unwell? It worried all of us, our parents especially, I mean she would barely even talk to us. Just sat in her room on her PC doing whatever it was she did, usually indulging one of her many dorky hobby's like programming and something-something data- something-or-other, I don't know. She's smart, I'm not. But I was worried about her.
+ I wouldn't say she was straight as an arrow or anything, but the idea of her being addicted to something like Oxy or Xanax was so beyond out of character that it was teetering on being comical - so why did she look like she was?
 
-Regardless of what I may have told you 5 years ago as a snotty 15 year old, I've always loved and looked up to Amy. She is my older sister, granted, so there's a natural kinship there where I model some of the things I do based off her example even if I didn't quite realize it, but her lack of regard for how others saw her, what they thought of her, the way it had no impact on how she carried herself was pretty awe-inspiring to me growing up. She really just didn't give a fuck.
+Why was she so worn down and sick?
 
-I, on the other hand, could barely contain myself and was grossly seeking approval from other people. Amy set what seemed like a healthy example of self-assuredness, confidence, and innate trust in who you are
+ It worried all of us, our parents especially, I mean she would barely even talk to us. 
+
+Just sat in her room on her PC doing whatever it was she did, usually indulging one of her many hobby's like programming and something-something data- something-or-other, I don't know. She's smart, I'm not. 
+
+I was worried about her.
+
+Regardless of what I may have told you 5 years ago as a snotty 15 year old, I've always loved and looked up to Amy.
+
+She is my older sister, granted, so there's a natural kinship there where I model some of the things I do based off her example even if I didn't quite realize it, but her lack of regard for how others saw her, what they thought of her, the way it had no impact on how she carried herself was pretty awe-inspiring to me growing up. She really just didn't give a fuck.
+
+I, on the other hand, could barely contain myself and was grossly seeking approval from other people. 
+Amy set what seemed like a healthy example of self-assuredness, confidence, and innate trust in who you are
 
 Unfortunately, there was much more to it.
 
@@ -163,10 +184,10 @@ I hurried out of her room as silently as possible as to not stir the hive and in
 
 Who was that? Who is she? Do I know my own sister? Because the way she spoke, looked, held herself.... that wasn't the Amy I grew up with. Like an imposter wearing Amy's skin. I couldn't believe how scared she'd made me feel. *Amy*, scaring me?
 
-It was so much to process, and then like a light switch or a terrible miracle,
+It was so much to process, and then like a light switch or a terrible miracle, something registered.
 
-*I remembered it.*
+Something I saw when she came in as I analysed her head to toe looking for any signs of what was going on,
 
-*The first detail that would spark the end of my childhood.*
+Her hair. Her frizzled bangs that hung just above her eyes.
 
-*The little drops of blood that decorated her fringe.*
+They were decorated with tiny drops of blood.
