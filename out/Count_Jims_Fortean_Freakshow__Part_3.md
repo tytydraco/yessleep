@@ -2,7 +2,7 @@ Part 2 here: [https://www.reddit.com/r/nosleep/comments/1hwzrrv/count\_jims\_for
 
 Journal of Frater XII of the Esoteric Order of the Other
 
-October 20th, 1993 - Anson, TX
+October 20th, 1993 - Anson
 
 The chill of October in Scrimbus always settled deep, a clammy hand on my throat. This day was no different, except for the added knot of anxiety twisting in my gut, though diminished to a slightly manageable level through my meds and awareness exercises. It wasn't the usual hum of my GAD, the ever-present static of worry; this was sharp, insistent, like a tuning fork struck too hard. It had started with the phone call.
 
@@ -50,7 +50,7 @@ Manny took the card with a wide grin. “Will do, Count! You take care now, and 
 
 I nodded curtly and finally managed to reach The Rust Bucket’s door, getting in and slamming it shut. I leaned my forehead on the steering wheel, taking a deep breath, a desperate attempt to regain control over my thoughts. Albino chupacabra? For real, Dude? This day… this entire week, is a mess. It was time to head back to EOTO headquarters, where I hoped the archivists had made some progress on analyzing my show. Maybe, just maybe, they’ve found something that can shed some light on the bizarre events unfolding around me.
 
-Two hours later - Abilene, TX
+Two hours later - Abilene
 
 The flickering fluorescent lights of the EOTO archives hummed, a discordant symphony to the turmoil churning in my gut. The weight of my nerves felt like a lead apron. I adjusted my spectacles, the world momentarily shifting from sharp focus to a blurry red haze, a necessary barrier against the world-at-large.
 
@@ -90,5 +90,4 @@ I figured I deserved a small break. I got the prep work for Saturday's show take
 
 After all, I'm not the world saving type.
 
-  
 Part 4 here [Count Jim's Fortean Freakshow Part 4 : r/nosleep](https://www.reddit.com/r/nosleep/comments/1hymefi/count_jims_fortean_freakshow_part_4/)

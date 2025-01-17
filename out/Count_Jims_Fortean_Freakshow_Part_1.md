@@ -1,6 +1,6 @@
 Journal of Frater XII of the Esoteric Order of the Other
 
-October 17th, 1993 - Scrimbus, TX
+October 17th, 1993 - Scrimbus
 
 The static hum of the old kinescope still rings in my ears, even hours after the show. Tonight was… different. Not the usual parade of bewildered yokels calling in about ghost lights or the juvenile antics of former high school classmates calling to mock me with the hated nickname "Sasquatch Fucker". Something has shifted, like a tectonic plate groaning beneath the surface.
 

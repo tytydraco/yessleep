@@ -2,7 +2,7 @@ Part 1 here: [https://www.reddit.com/r/nosleep/comments/1hvuzzu/count\_jims\_for
 
 Journal of Frater XII of the Esoteric Order of the Other
 
-October 19th, 1993 - Scrimbus, TX
+October 19th, 1993 - Scrimbus
 
 I can't think or even write straight these past two days. This is the third attempt at writing this... My mind is a jumbled stream of consciousness. Please forgive my less than poetic writing today. Generalized anxiety disorder is a bitch sometimes... and the panacea of Prozac and Alprazolam aren't helping much.
 
@@ -72,5 +72,4 @@ Next Saturday. Time to freak out the squares. Because something is coming, and t
 
 Gah. I usually write better than this. My mind is foggy... disjointed. But.. screw it... I'm not tearing any more pages out of this journal to start over again. This is the best you'll get out of me today.
 
-  
 Part 3 here: [https://www.reddit.com/r/nosleep/comments/1hxtgtm/count\_jims\_fortean\_freakshow\_part\_3/](https://www.reddit.com/r/nosleep/comments/1hxtgtm/count_jims_fortean_freakshow_part_3/)

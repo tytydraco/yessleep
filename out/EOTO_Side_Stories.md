@@ -4,7 +4,7 @@
 
 **The Monster Girl**
 
-July 14th, 2016 – Sweetwater, TX
+July 14th, 2016 – Sweetwater
 
 OMG, Diary, this is NOT a drill. Like, seriously, *not*. I got invited to join a *secret society*. A real-life, *actual* secret society. And it’s all because of my, shall we say, *unique* tastes.
 
