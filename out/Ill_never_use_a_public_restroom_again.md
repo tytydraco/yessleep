@@ -1,0 +1,55 @@
+There I was. Waiting in line for the ladies room for probably the millionth time in my life. The rumblings of conversation from around me tickling my ears and begging me to listen in. Women of all shapes, sizes, and walks of life surrounding me in a malformed cocoon of social anxiety. I nervously fiddled with the bottom of my band tee, trying not to look anyone in the eye. Pairs of shoes stared up at me judging my introverted nature.
+
+A woman in a biker jacket and tattered skirt that just barely kissed the bottom of her asscheeks shuffled backward into me causing my gaze to shift upward as I rambled an apology for existing behind her. Her piercing aquamarine eyes sharpened by eyeliner wings gave a quick flash of something like disgust before averting themselves and focusing back on her friend. 
+
+That’s when I saw it.
+
+The room was empty of life. From where I was standing I could see its walls were painted a dull hospital green, the floors lined with bright white linoleum that hadn’t appeared to have seen the trodding of feet ever in its life. And stalls. Dozens and dozens of stalls cut off like cubicles so that if one were to sit, you might see their head poking up above the sanitized walls. But it was a bathroom, it had to be, and I was already shifting in place trying my best to hold onto control of my bladder. And I was losing it quickly.
+
+I pondered a moment on whether or not it was worth going in. Why hadn’t anyone else? Maybe it wasn’t open? Maybe it was a mens room? My bladder protested. Who cares?? Do you want to piss yourself in front of all of these people? Walk back to the party covered in urine?
+
+No. No I really didn’t. 
+
+So I squeezed out of line and gently prodded the door open further. The motion sensing lights kicked on and I could see that it was definitely a restroom. There were sinks lining the wall facing the cubicles, a giant window peered over the room with its beige curtains shut tight like it didn’t want to be caught peeking. 
+
+I weaved my way through the cubicles, trying to find the one farthest from sight in case someone else wandered in. The toilets themselves were odd. Not really toilets but more of a bench that several people could sit on with holes perforating the gentle slope to the drain. Weird. But the steadily increasing pressure in my bladder begged me not to think too hard on it. 
+
+As I closed in on the very corner stall, I was greeted by the sounds of the conversation taking place outside in the line bursting into the room. They must have seen me walk in and decided to investigate themselves rather than wait eons for the other restroom to open up. The ladies spread out like a swarm of flies looking for a place to land and the stalls quickly filled up, including the one I was planning on using. So much for that idea, I thought. The biker girl and her friend took the spot I had set out for and before I knew it, every single stall was full. The benches were shared by two to three women, engaging in conversation like it was completely normal to do so while you used the bathroom with your friends. 
+
+I looked around for an open spot. It was hopeless, I didn’t know any of these women and despite being on the verge of wetting myself, I wasn’t about to mix my pee with a strangers. As I weaved in and out of cubicles to get to the door, keeping my head down and avoiding eye contact at all costs, a loud mechanical clunking caught my attention. 
+
+The curtains to the large window were opening, sliding back into the walls like a second eyelid. What laid beyond them was not the dreary dark cityscape that waited outside the building but what could only be described as the most brilliantly blinding light known to man. As the eye of the window opened, I looked around to see everyone had turned their heads to gaze into it. Their expressions once vibrant with laughter and conversation, now drooping and void of any life. I waved my hand in front of the girl closest to me. No response. Not even a blink. 
+
+I had the feeling that if I turned and gave that light a longer gaze that it would swallow me whole and I would be transformed into a mindless husk like everyone else there. So instead I looked around, unsure of what to do. I was terrified. I couldn’t leave them like this but what was this? How could I even help? I noticed that beneath every single person there was dark fluid leaking out. Like oil seeping out of a leaky engine. The room began to smell. It reminded of the deer carcass in the woods my father and I had stumbled upon once when I was a kid. A thick stench that invaded my nostrils with putrid rot. This only increased my fear. I was no longer worried about having to piss as a warm patch had blossomed in the crotch of my jeans. 
+
+I began to sprint toward the door. I was going to call for help, but I was stopped in my tracks as I reached for the door handle by a shadow rising up from the floor and slithering its way toward the ceiling. 
+
+Something had risen and was blocking that unholy light. I turned around to see one of the women held in the air like a limp rag doll. Her pants pooled around her ankles and her limbs dangled lifelessly from her. I couldn’t see her eyes but I knew they were still staring blankly into the light. As I watched she began to writhe and squirm, a low groan emitting from her mouth. Her stomach began to bubble and shift beneath her blouse like something was inside trying desperately to escape. 
+
+She began to turn slowly in the air until she was facing the rest of us. Her eyes were white and her mouth began to widen, the groan growing louder and more forceful. Her stomach had swelled so much that she almost looked pregnant. Whatever was inside pushing the boundaries of how far her skin would stretch. 
+
+I took a sharp breath inward and at that same moment she began to spew a dark, viscous liquid all over the girls sitting nearest to her. She looked as though she were deflating, the skin on her belly starting to wrinkle as it lost shape. The women before her stay still in their stupor, not the least bit phased. Their faces became coated in the bile until it dripped from their chins in thick globs. It clotted like blood against their skin. The goo was in their open eyes and their mouths and the stench that was already filling the room reached its peak. I struggled not to heave up my dinner, plastered in place with fear and fascination. The scene unfolding before me was disgusting but I couldn’t bring myself to turn away.
+
+I came to my senses when those that had been covered in her thick bile started to bloat and spew their own viscous liquid onto the next wave of people and they in turn did the same until the whole room was covered in that foul smelling fluid. I turned back to the door and tried the handle. It wouldn’t turn. 
+
+“This can’t be happening, this can’t be happening” I whispered. 
+
+The rasping groan had returned and it was growing. It echoed off the walls and became almost too loud to bear. I fought against the door, praying it would bust off of its hinges and let me go but it wouldn’t budge. I kept hoping someone might hear me as I slammed against it but the hallway on the other side was quiet. I was faced with two options. Either stay facing the door that blocked my only escape or turn and face the horror behind me. 
+
+I peeked over my shoulder to see what was happening and caught a glimpse of a girl in a skin-tight sequined dress shaking violently. There were chunks of bile flying off of her and the sequins on her dress danced in her frenzy. I could see her mouth starting to foam, saliva mixing with the dark clotted fluid that was in her mouth. 
+
+I felt a scream threaten to burst from my mouth but caught it just in time to watch her contort. Her joints looked unnatural and loose, spinning freely, making her skin pucker and twist. She scrambled to her feet, her knees bending first in the wrong direction making her look like she would fall face first into the pooled stomach contents on the floor. The others were getting up too. I turned around and watched as every single one of them frantically got up and began to come toward me like a pack of hungry wolves. None of them could stay up, their limbs sliding around their failing joints. But they were determined. 
+
+The groaning was intolerable. The stench was unbearable. But I couldn’t stay standing there. I frantically looked around for some way to escape. They were coming but slowly, foam seeping from their open mouths and their soulless white eyes wide open. They kept falling over each other, but not once did they look anywhere else. Their gaze was fixed on me. I found a vent just large enough for me to squeeze into just above the sinks to my right. It was loose and probably my only option for escaping whatever the fuck was happening in the bathroom. 
+
+I quickly dashed to the sinks and climbed up. They were only a few feet away and I couldn’t afford to lose any time. I wrenched the vent open, splitting open my finger in the process and started to pull myself in. At the sight of the blood on my finger, the contorting mass went into a frenzy. They quickly closed the gap and I could feel one of them pulling at my feet. I lost my hold on the vent and crashed down onto the sink. 
+
+My leg was being held by a behemoth of a woman. Her once probably beautifully and meticulously curled blonde hair was matted and hanging limply from her skull. Thick foam spattered her lips as she opened her mouth wide, a terrible sound coming from deep in her throat. It was like the gurgling of a thick pasta sauce boiling. I could see her stomach filling, bubbling under her thin floral printed shirt. The seams of it looked like they were about to burst.
+
+I kicked at her face desperately. She was strong. Her fingers dug into my ankles. One of my kicks landed square on her jaw and it slid out of its socket leaving her already gaping mouth hanging open even farther. Her grip loosened and I wrenched myself back up onto the sink and up into the vent. 
+
+The duct was too narrow to move through. So I sat there sobbing for what felt like hours. When I dared to look out into the bathroom, they were still there. Surrounding the sinks with their blank stares aimed right up at the opening. The light from the open window casting shadows into their mouths that made them look endlessly deep. 
+
+I had no hope of moving farther into the vent and I sure as hell wasn’t going to go back the way I came. So I waited, hoping maybe the hoarde would move and I could find another way out. I was sliding into sleep when I heard the jingle of keys and a voice in the hallway.
+
+“I don’t know what you’re testing in here but can you make sure you clean up after yourself this time? It fuckin reeks and last time I got it on my clothes. Took weeks for that smell to come out” 

@@ -6,7 +6,7 @@ Ela, então, recriou a foto que eu havia enviado, transformando o cenário arbor
 
 O resultado não ficou estranho, como era de costume em outras IAs que se esforçavam tanto em transmitir uma ideia de realismo ao tentar desenhar um ser humano que, no final, se pareceria mais como uma aberração não natural. Depois disso, decidi explorar suas habilidades descritivas, do que mais será que ela era capaz ?-eu refleti.- Seu modelo tem sido muito discutido na internet devido à algumas polêmicas e problemas. Mas seu lançamento tinha sido uma febre mundial numa certa época.
 
-—DrawingGlove, crie uma imagem realista de uma pessoa de acordo com a seguinte descrição: Um rosto de um garoto de cabelo preto, pele lisa e branca, de 14 anos, com aspectos joviais, que usa brinco de um crucifixo na orelha direita, com um sorriso estampado e genuíno.
+—DrawingGlove, crie uma imagem realista de uma pessoa de acordo com a seguinte descrição: Um rosto de um garoto de cabelo preto, pele lisa e branca, de 19 anos, com aspectos joviais, que usa brinco de um crucifixo na orelha direita, com um sorriso estampado e genuíno.
 
 •	⁠[GERANDO IMAGEM…]
 
