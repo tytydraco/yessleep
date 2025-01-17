@@ -2,7 +2,7 @@ Part one [here](https://www.reddit.com/r/nosleep/comments/1htk3sm/the_lavender_r
 
 I had no idea how long it had been since I had started working at the Lavender room. What I did know however, was that I had been drinking far too much. The revelation came on a day when I hadn't taken a shot before leaving my room for my shift dealing cards to the regulars. Occasionally a new face would come through the doors and I would want to tell them to run, to put as much distance between them and the building and themselves as they could, but my throat seemed to seal up, and my lips would freeze in a professional smile.
 
-It didn't matter that my cheeks were tired and sore, the muscles of my face refused to relax. I also found that I was unable to say anything that was not related to whatever game I was working that night as long as I was on the clock. When iit was my day off, I seemed to have more free will but still found myself unable to say anything negative about the place. I also had no desire to leave. I began to wonder if everyone who lived and worked at the place had the same issues that I was having. I got an opportunity a few days later while I was sitting at my usual table after work.
+It didn't matter that my cheeks were tired and sore, the muscles of my face refused to relax. I also found that I was unable to say anything that was not related to whatever game I was working that night as long as I was on the clock. When it was my day off, I seemed to have more free will but still found myself unable to say anything negative about the place. I also had no desire to leave. I began to wonder if everyone who lived and worked at the place had the same issues that I was having. I got an opportunity a few days later while I was sitting at my usual table after work.
 
 I spotted one of my co-workers at the bar. She was a rather attractive middle-aged woman with red hair, named Nadine. Her voice still held a trace of her original Irish accent though it had definitely been weathered by her time in America.
 
@@ -26,7 +26,7 @@ I excused myself back to my own table and finally gave in to my thirst and hunge
 
 I made my usual order, and ate quickly. Starting for the door as soon as I finished. Employees ate for free so I didn't even have to stop at the counter in front of the place. As I stepped out the door, I heard someone call my name. I turned back, stepping aside.
 
-“Where are you going?” Mark, the slick haired manager I had met upon my first visit to this place enquired, hurrying down the hall toward me. His smile didn't match the urgency of his pace.
+“Where are you going?” Matt, the slick haired manager I had met upon my first visit to this place enquired, hurrying down the hall toward me. His smile didn't match the urgency of his pace.
 
 “I need to pick up some essentials. Is that a problem?” there was no malice behind the question, my voice calm and neutral.
 
@@ -126,6 +126,6 @@ The frustration I had been feeling for the previous week returned.
 
 I stood up and left without speaking again. I started to think about what he had said. The source. He had to have meant the other man I had met my first night there. The one who had claimed to be the owner. I tried to remember his face, but there was a blank spot where his features could have been. All I could mentally picture was his purple suit. Even his hair color escaped me. The more I thought about him, the more I began to feel ill again.
 
-I gave up, once again resigning myself to my fate. The desire to escape gnawed at the back of my mind like a hungry rat. 
+I gave up, once again resigning myself to my fate. The desire to escape gnawed at the back of my mind like a hungry rat.
 
 I had to get out.
