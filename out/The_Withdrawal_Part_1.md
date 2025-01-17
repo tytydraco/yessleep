@@ -59,7 +59,9 @@ Like.... *incredible*, scary good.
 
 The first night she snuck out I was flabbergasted, what the hell could be so important that she'd risk getting all of us sick? Potentially killing us? Sure, there wasn't many people lurking around the streets as *most* of them had that commonsense, but regardless, she was risking it. All of us. It was at this moment that I realized she must really be addicted to something. It was kind of mind blowing to think about.
 
-Amy, fuckin' *Amy Scott* was revolting against the common authorities to score some mystery substance? Huh? Maybe she was seeing someone? No... No that wouldn't make sense. But why? Why would she be out there?
+Amy, fuckin' *Amy Scott* was revolting against the common authorities to score some mystery substance? Huh? Maybe she was seeing someone? No... No that wouldn't make sense. She has never seeked boyfriends or just male approval in general, let alone taking a risk like that for a guy... which leaves me still wondering why...
+
+Why would she be out there?
 
 If she really was going out to score drugs, I made a solemn but sincere promise to myself that I'd kill the fucker who supplied her.
 
@@ -128,7 +130,7 @@ Why did she have so many tabs open?
 
 There were literally dozens and dozens of them, and they seemed to get worse the further down the line you went.
 
-Demented, disgusting ducklings all a part of some fucked up viewing experience Amy had curated.
+Demented, disgusting ducklings in this digital and perfect descenting line of depravity, all serving some fucked up viewing experience Amy had curated.
 
 My mind was a whirl-wind, my stomach a sink-hole, I must have been standing there for... god, I don't even know, my fight or flight response malfunctioned and I was frozen in place.
 
