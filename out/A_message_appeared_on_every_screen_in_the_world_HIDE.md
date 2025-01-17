@@ -60,7 +60,7 @@ A thought came over me.
 
 I walked to the balcony, slid the door open, stepped out onto it. Eye of Sauron’d the city from Ravi’s fourteenth floor apartment. 
 
-In the neighboring apartment towers, most of the units had blinds down, curtains closed. The few unshuttered however—*I felt like that guy from Rear Window—*contained strangers staring perplexed at their phones. At their computers. The sides of bolted-to-the-wall TVs, barely visible to me, displayed the same white background with text atop it. What I was seeing, everyone else was seeing.
+In the neighboring apartment towers, most of the units had blinds down, curtains closed. The few unshuttered however—*I felt like that guy from Rear Window*—contained strangers staring perplexed at their phones. At their computers. The sides of bolted-to-the-wall TVs, barely visible to me, displayed the same white background with text atop it. What I was seeing, everyone else was seeing.
 
 The others joined me on the balcony. 
 
@@ -104,7 +104,7 @@ The flicker in her eyes more than meant that she’d sided with the lightbulb in
 
 “But the fucking *thing,*” she motioned to the TV, then to her own phone, “says *hide.* Maybe it’s *that* literal.” She continued scouting, finally settling on the sliding closet in Ravi’s room—the best she could come up with in his 600 square foot quarters. “I’ll do here unless you think there’s better.”
 
-**“***Evelyn,****”*** Ravi stressed.
+“*Evelyn****,”*** Ravi stressed.
 
 She shuffled in, past hung garments, scooching to the end to make space. “I’m gonna close the door soon, and if you’re all *really* my friends, you’ll join me.” 
 
@@ -712,4 +712,4 @@ I tapped my Top Hat icon on each square until I landed on *Short Line Railroad*.
 
 I thought about it for too long. Finally—
 
-“Sure.”
+“[Sure.](https://www.reddit.com/user/WorldAwayTweedy/)”
