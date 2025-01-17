@@ -7,12 +7,12 @@ or
 
 At first people thought it was just a dumb trend, like Slender Man or Momo. But then, the stories started pouring in.
 
-wasn't until my roommate, Tony, started muttering in his sleep that I began to worry, I'e hear him tossing and turning, mumbling, "No, stop….. stop shaking it.." He'd wake up drenched in sweat, efusing to talk about what he'd seen.
+wasn't until my roommate, Tony, started muttering in his sleep that I began to worry, I'e hear him tossing and turning, mumbling, "No, stop….. stop shaking it.." He'd wake up drenched in sweat, refusing to talk about what he'd seen.
 But one night, he told me everything.
-"There was this.., this guy," Jake stammered, "I was in my room, but it wasn't my room, you know?
+"There was this.., this guy," Tony stammered, "I was in my room, but it wasn't my room, you know?
 Everything felt off I couldn’t move, like sleep paralysis. And then he came in. He didn't walk-he just jiggled his way through the door"
-Tony's voice cracked as he continued, "His face was all blurry, like static on an old TV. But his body... his body wouldn't stop moving, His hips, man. They shouldn't move like that. He got closer and closer, and I couldn't de anything but watch. Then he whispered.." Jake gulped, his eyes wide with terror.
-"What did he whisper?" | asked.
+Tony's voice cracked as he continued, "His face was all blurry, like static on an old TV. But his body... his body wouldn't stop moving, His hips, man. They shouldn't move like that. He got closer and closer, and I couldn't de anything but watch. Then he whispered.." Tony gulped, his eyes wide with terror.
+"What did he whisper?" I asked.
 Tony's voice dropped to a trembling whisper. "It’s jigglin" time..."
 
 I laughed it off. I thought Tony was messing with me-until it happened to me.
