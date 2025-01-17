@@ -10,7 +10,7 @@ I guess I’ll just start at the beginning:
 
 
 
-In 2016, a serial killer began to operate in Aleppo, Syria.
+In 2016, a serial killer began to operate in Aleppo.
 
 
 
