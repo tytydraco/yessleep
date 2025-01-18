@@ -207,3 +207,5 @@ Using the stolen marrow like paint, it drew the mercury-adjacent symbol on the w
 \-------------------------
 
 A car just parkd behind me,. Posting incomplete
+
+EDIT: [Link to Update 3 ](https://www.reddit.com/r/nosleep/comments/1i3wmzq/i_thought_i_accidentally_killed_my_wife_in/)
