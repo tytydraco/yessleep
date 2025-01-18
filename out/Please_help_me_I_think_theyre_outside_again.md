@@ -1,109 +1,108 @@
-Hey Reddit. Please, if anyone’s out there, if anyone’s seeing this—I need to know I’m not alone. Is anyone else experiencing this? Has anyone else seen the fog? Please, for the love of God, respond if you can.
+[part 1](https://www.reddit.com/r/nosleep/comments/1hm0v7m/please_help_me_i_think_theyre_outside_again/)
 
-My name’s Evan. I live alone in a small suburban neighborhood—the kind where every house looks the same, the lawns are perfectly trimmed, and nothing exciting ever happens. It’s one of those places where every street is like a mirror image of the last, with rows of houses painted in bland colors and identical mailboxes lined up like soldiers. It’s quiet here. The kind of quiet some people find peaceful, but I’ve always found unnerving—like the silence is just waiting for something to happen.
+Reddit I'm still alive! Is anybody still out there? I don’t even know how to start this without my hands shaking, but I need to keep documenting this. I spent the entire day huddled in my bed, trying to convince myself that maybe I’d wake up and find this was all some horrible dream. But it’s not. The fog’s still out there, and whatever’s inside it hasn’t left.
 
-Until today, nothing ever did.
+The silence has been unbearable—every small noise I make feels like a beacon. Every shift of the blankets, every creak of the mattress, even the sound of my own breath feels too loud. I’ve tried to keep as still as possible, wrapped in blankets, gripping my phone like a lifeline, refreshing the screen even though there’s no signal, no updates. Just the same blank notifications and a dwindling battery icon staring back at me.
 
-This morning, I woke up to the buzzing of my phone on the nightstand beside my bed. At first, I thought it was some spam call or maybe a notification about a package I’d forgotten I ordered. The sound was sharp and grating, cutting through the stillness of my room like a knife. I groggily reached out, squinting at the screen through sleep-blurred eyes, expecting to just dismiss it and roll over for a few more minutes of sleep.
+But as the day dragged on, the tension became suffocating, like the walls were pressing in tighter, the air heavier. My thoughts started looping, irrational and frayed. What if the fog seeps inside? What if it already has, and I just don’t know? By the time the sun began to set—at least I think it set; the fog makes it impossible to tell, the dim light just fading into deeper gray—I heard it.
 
-But when I saw the screen, I froze. It wasn’t showing the usual caller ID or some meaningless notification. No, it was an emergency alert, bold and impossible to ignore.
+Scratching.
 
-At first, I couldn’t make sense of it. My brain was still foggy from sleep, and the words seemed to blur together as my eyes tried to focus. Slowly, I sat up, my heart beginning to race as the reality of what I was reading sank in. I read it again, and again, like somehow the second or third time would make it less terrifying.
+It was faint at first, almost imperceptible, like claws lightly raking across the wooden boards of the back porch. I froze, every muscle locking up so suddenly that it felt like my body stopped working. My heart stopped too—or at least it felt that way, one sharp beat followed by silence. For a moment, I thought I imagined it. Maybe the fog was playing tricks on me again, warping the sound of nothing into something.
 
-My heart pounded harder as I swung my legs over the side of the bed and stood up. My knees felt shaky under me, like they might give out at any moment. The room felt unnaturally cold, the chill creeping into my skin. Something felt wrong, like I was already in the middle of something I didn’t fully understand. My breath quickened as I reached for the curtain, the tips of my fingers brushing the fabric before pulling it back just enough to peek outside.
+But then it came again. A slow, deliberate scraping, the kind that raises goosebumps even if you can’t quite place why. And then, just as I started to convince myself it would stop, it didn’t. A sharp tap-tap-tap against the glass of the back door sent ice down my spine.
 
-What I saw made my stomach twist. The street, which normally looked so ordinary, so predictable, was now blanketed in a thick, heavy fog. It wasn’t the kind of light, wispy mist you might see on a calm morning. This was different. It was dense, almost alive, clinging to everything around it. I could barely make out the shapes of the houses across the street, their familiar outlines distorted and hazy in the gloom.
+I couldn’t look. I couldn’t move. All I could do was sit there, my breathing shallow and my pulse pounding in my ears so hard it made me dizzy. I tried to focus, to stay perfectly still, even though every instinct in me screamed to run or to fight. But I knew—I knew—that whatever it was, it had found my house again.
 
-The silence outside was deafening. No birds. No cars passing by. The usual hum of distant traffic was completely gone. It was like the entire world had just stopped, swallowed up by the fog. The air itself looked thick, suffocating. I almost felt like it was pressing in on me, right through the window.
+I don’t even remember how I moved, how my legs carried me, but somehow, I slipped out of bed and into the hallway closet. My legs felt like jelly, barely holding me up as I fumbled to close the door behind me without making a sound. My hands were shaking so badly that I could barely grip the doorknob, and when it finally clicked shut, I held my breath like even the air might give me away.
 
-I stared into the eerie stillness, my heart pounding harder in my chest. My mind was racing with questions—What the hell was this fog? Where did it come from? And why did it feel so wrong? I pulled the curtain shut quickly, stepping away from the window as a cold sweat broke out on my forehead. I felt trapped, cornered in my own house by something I couldn’t explain.
+The darkness inside the closet was smothering, pressing in from every side, but I didn’t dare turn on my phone for light. I pressed myself against the wall, curling as small as I could, clutching the steak knife I’d grabbed from the kitchen earlier. My fingers hurt from how tightly I was holding it, but I couldn’t let go.
 
-My phone buzzed again in my hand, snapping me out of my thoughts. I fumbled to unlock it, my fingers shaking so badly it took me a few tries. The screen lit up again with that same emergency alert:
+The scratching grew louder.
 
->**URGENT WARNING:** Do not leave your home. Barricade all doors and windows. Keep food and water stock ready. Do not make noise. Stay silent. Stay inside. They are drawn to sound.
+I couldn’t tell where it was coming from anymore—every scrape felt like it was right outside, circling, closing in. My ears were straining so hard it hurt, trying to track the sound, but it kept moving. Stopping. Starting again. Every pause was worse than the noise, like it was giving me just enough time to imagine the worst. And then, I heard it—this horrible, wet sniffing, like something huge was searching for me.
 
-At first, I thought it was a glitch or some kind of prank. I checked the time: 7:42 AM. The green glow of the digital clock on my nightstand seemed sharper than usual in the dim light of the room. The house was unusually quiet, even for my neighborhood.
+Oh God, it was looking for me.
 
-The floorboards creaked softly under my weight. That small, familiar sound felt out of place in the silence. I rubbed my eyes, trying to shake off the grogginess, and made my way to the kitchen. The air inside the house felt strangely still, almost heavy, but I brushed it off.
+I clamped a hand over my mouth to keep from making a sound, but my breathing was so loud in my head I thought it would hear me anyway. My chest felt tight, like I couldn’t pull in enough air, but I didn’t dare gasp. I didn’t dare move.
 
-I reached for the coffee maker, grabbed the pot, and filled the reservoir with water. The sound of it splashing felt unnervingly loud in the quiet. I flicked the switch to start brewing and stood there for a moment, staring at the counter. I reached for my phone, scrolling through my contacts. First, I tried my parents—straight to voicemail. My sister—same. I frowned, trying a couple of friends, but the calls didn’t even go through. Just dead air.
+Then, the crash.
 
-I glanced at the corner of the screen. No signal. That didn’t make sense. I moved to the window, holding my phone higher, like that would somehow help. Still nothing. My Wi-Fi should’ve been working at least. I turned toward the living room, my footsteps echoing slightly as I walked.
+The sound of glass shattering was so sudden, so violent, that I almost screamed. My whole body jerked, and the knife slipped in my grip, nearly falling. I caught it just in time, but it didn’t matter. My hands were shaking so badly I couldn’t hold it steady anyway.
 
-The router’s lights were frozen, no blinking, no connection. I crouched down and unplugged it, waiting a few seconds before plugging it back in. The lights came back on, but they were still static, no change. No connection.
+It was inside.
 
-That was weird. Kind of unsettling, actually. I stood up, stretching my neck, and glanced around the room. My eyes landed on the living room window, and I froze.
+No. No, no, no. I could feel the panic clawing at me, my heart pounding so hard it felt like it might burst. I squeezed my eyes shut like that would somehow make it all go away, but the sounds kept coming.
 
-Outside, the thick gray fog still blanketed everything. I couldn’t see much beyond it—just a dense wall of mist. I turned on the TV, hoping for some kind of explanation, something to make sense of it. The screen flickered to life, a soft hiss of static filling the air, and then a single line of text began to scroll across every channel:
+Heavy footsteps thudded through the house, slow and deliberate, the kind of steps that let you know something is taking its time. Each one sent a fresh wave of terror crashing over me. Then came this awful dragging noise, like something being hauled along the floor. It was searching. It was looking for me.
 
->**WARNING:** Stay indoors. Do not go outside. Remain silent. They are listening.
+And the destruction—oh my God, the destruction. I could hear it ripping through everything, tearing my house apart like it was nothing. Cabinets were slammed open so hard I thought the doors would snap off. Glass shattered again and again, like a thousand tiny explosions echoing through the dark. Furniture scraped and groaned, heavy things being shoved aside like they weighed nothing.
 
-The message repeated, unchanging, as if locked in an infinite loop.
+Every sound made me jump, made my breath hitch, made my stomach twist into tighter knots. I pressed myself as far into the closet as I could, but it felt like no amount of walls or doors or darkness could keep me safe. The knife in my hand was slick with sweat, useless, shaking as badly as I was.
 
-I stared at the screen, my pulse pounding in my ears. The words felt oppressive, heavy with an urgency I couldn’t understand. My hands trembled slightly as I fumbled for the remote, trying another channel.
+It stopped right outside the closet door.
 
-The same message. Over and over.
+I don’t even know how I didn’t scream. My whole body locked up, every muscle frozen, but inside, I was shaking so hard it felt like I might fall apart. My chest burned as I tried not to breathe, not to make even the tiniest sound. I couldn’t see it, but I could feel it—this awful, heavy presence just on the other side of the thin wooden door.
 
-No explanation. No updates. Just that.
+For what felt like an eternity, it didn’t move. It just stood there, waiting. Listening. The doorknob rattled lightly, a tiny metallic jingle that sent a jolt of terror straight through me. My heart was beating so fast and so loud I was sure it could hear it, that any second now it would push the door open and… I don’t even know. I don’t want to know.
 
-I locked the front door, double-checked the bolt, and decided to take a look from upstairs. Maybe I’d spot something that made sense, or at least something familiar. The house felt off, but I couldn’t quite figure out why. I slowly made my way up the stairs, each step creaking underfoot as I went. The silence seemed to press in on me more the higher I got, and I felt a little colder with each step.
+And then, after what felt like hours, it moved away.
 
-When I reached the second-floor window, I couldn’t believe what I saw. The fog was worse up here, almost suffocating. It stretched out in every direction, thick and heavy, so dense I couldn’t even see the house across the street. Just a vast, gray nothing. The world outside felt like it had disappeared.
+The sound of its footsteps faded, but not far enough. I could still hear it rampaging through the house, smashing, ripping, destroying everything in its path. Each crash and thud made me flinch, clutching the knife so tight my hand started to cramp. I don’t know how long it went on—it felt endless. And then, just as suddenly, it stopped.
 
-I stared for a moment, hoping the fog would shift, maybe clear just enough for me to make sense of things. But it didn’t. The longer I stood there, the more unsettling it felt. It was like the whole world had just stopped.
+Silence.
 
-And then, I remembered Max. He sleeps in the backyard at night, usually tied to his chain because he’s a little too good at escaping. My stomach sank, suddenly full of dread. I rushed downstairs without even thinking, my heart beating faster. When I opened the back door, the first thing I noticed was the chain—it was broken. Snapped clean through, the metal bent and twisted like something had yanked it with unbelievable force.
+Not the kind of silence that feels calm or safe. This was the kind that stretches too long, that feels wrong, like the air itself is holding its breath, waiting for something terrible. I stayed in the closet, too scared to even shift my weight. Every creak of the house made me freeze, my ears straining for any sign that it was still there. My breathing was so shaky, so loud in my head, I was sure it would give me away.
 
-Max was gone.
+I don’t know how long I stayed like that. It felt like hours, but it could’ve been minutes. Time didn’t feel real anymore. Finally, when I couldn’t take it anymore, I moved. Slowly, so slowly, I reached for the door and cracked it open just enough to peek out.
 
-I called his name, my voice a little too loud in the dead silence. “Max! Max, come on, boy!” The words felt strange, like they didn’t belong. The silence around me swallowed them whole. No barking. No paw steps. Nothing.
+The house was a disaster.
 
-I called again, louder this time. “Max!” My stomach twisted as I stepped further out into the yard, hoping to see him running back, wagging his tail. But there was nothing. Just the cold, gray fog and the stillness. I stood there for a second, my chest tightening, not quite believing what I was seeing. This couldn’t be happening.
+Chairs were overturned, shelves ripped apart, books and shattered glass covering the floor. The TV was smashed into pieces, the screen nothing but jagged shards. My heart was still racing, but I forced myself to look—really look—because I had to know if it was gone.
 
-I quickly rushed back inside, slamming the door shut behind me. I locked it, bolted it, my hands shaking as I tried to make sure it was secure. The silence inside the house felt just as wrong as it did outside. I ran upstairs again, my legs almost moving on their own. I didn’t want to check the window, didn’t want to confirm what I already feared, but I had to.
+It was gone.
 
-I pulled the curtain back, half-expecting to see him standing there in the yard, shaking the fog off his fur. But the fog was still thick, swirling in every direction, and the yard was empty. No sign of him anywhere. Just that endless gray.
+I don’t know how I knew, but I did. That suffocating, crushing feeling of something being too close, too wrong—it wasn’t there anymore. For the first time, I could breathe, but the relief was short-lived. If it came back, it would find me.
 
-I stood there, staring out, feeling like the air was closing in around me. The world felt so far away, like it didn’t exist anymore.
+I knew I couldn’t stay.
 
-That’s when I saw it.
+My legs felt like jelly as I forced myself to move, every step feeling too loud, too risky. I made it to the basement and grabbed an old backpack, shoving whatever I could find inside with trembling hands. Bottled water, a few granola bars, a flashlight, extra clothes. The knife. God, my hands wouldn’t stop shaking—it took me so long just to zip the bag.
 
-Something was out there, in my backyard. At first, I thought I was seeing things—like my brain was still half asleep or something, but no. The shape was all wrong. Too long. Too thin. It was crawling on all fours, moving with this awful, jerky kind of motion, like its joints weren’t working properly—like a puppet with tangled strings.
+I thought about my phone charger, about grabbing it just in case, but then I remembered there was no point. No electricity. No signal. It was dead, just like the house. Just like I would be if I stayed.
 
-I felt this tightness in my chest, my breath coming faster, and I couldn’t stop watching it. It paused, sniffing the ground in a way that felt too deliberate, like it was looking for something. Oh god I hope that something wasn't me. I felt a cold sweat break out on my skin, and my legs went completely numb. I tried to stay still, to stay quiet, but it was like every part of me was screaming to move, to do anything to get away.
+I had to leave. I didn’t have a choice.  
+The fog outside was as thick as ever, a choking, smothering gray that swallowed everything beyond a few feet. It clung to me the moment I stepped out, damp and icy against my skin, but staying wasn’t an option. My heart was hammering so hard it felt like it might crack my ribs, and every instinct screamed at me to move, to keep moving.
 
-Then, it turned. Slowly. Too slowly. Its head snapped in my direction, and my heart slammed in my chest. I could barely hear anything over the sound of my own pulse, but I could still make out the scraping of its claws on the ground as it started moving toward the back door.
+I opened the basement’s back door as quietly as I could, cringing at every tiny creak of the hinges. The cold, wet air hit me like a wall, sharp and unforgiving. The silence out here was worse than inside—it wasn’t just quiet, it was *wrong*. The kind of silence where every little noise feels magnified. The faint rustling of the fog as it shifted made my skin crawl, like it was alive. Watching me.
 
-I held my breath.
+I didn’t have a plan. I couldn’t think beyond the next step. My feet moved on their own, fast and unsteady, every crunch of grass and dirt beneath them sending a spike of fear through me. I headed for the neighbor’s barn because it was the only thing I could think of. Somewhere high, somewhere enclosed. Somewhere I might be able to see what was happening.
 
-It crept up the patio steps, its limbs twisting in ways that didn’t look right—unnatural. Every scrape got louder, closer. And then it was there, pressed up against the door, its body flat against the wood. The scraping sound, now unmistakable, as it tested the handle. My stomach twisted in on itself, and I swear I could feel the blood drain from my face. I kept thinking, *Please, please hold. Please stay locked.* My fingers dug into the windowsill, knuckles aching, but I still couldn’t move.
+When it finally loomed out of the mist, I almost cried. The barn looked massive and eerie, the weathered wood dark and slick with moisture. It creaked softly in the faint breeze, the sound cutting through the fog like a warning, but I didn’t care. I had to keep going. I had to get inside.
 
-I couldn’t breathe.
+The climb up to the loft was agony. My legs felt like they might give out with every shaky step, the ladder groaning beneath me. I gripped the rungs so tightly my knuckles ached, every movement slow, deliberate, terrified I’d slip and fall or—worse—make too much noise.
 
-Then, after what felt like hours, the scraping stopped. The silence after was almost worse. It was just me, my pulse thundering in my ears, and the feeling that I was being watched. I didn’t know what to do. I was frozen in place, like my body was too terrified to obey me.
+When I finally reached the top, I collapsed onto the hay-covered floor, gasping for air. My throat burned, my lungs felt raw, but I couldn’t stop trembling. The barn was still and suffocatingly quiet, but at least I was off the ground. At least I could see the door. I pressed myself back against the wall, trying to calm down, trying to believe that maybe, finally, I was safe.
 
-Then it tilted its head, almost like it was listening. My breath caught in my throat.
+And then I heard it.
 
-And then… it scratched. Once. Twice.
+The faint crunch of gravel outside.
 
-It wasn’t trying to break in—not yet. But there was something so wrong about the way it did it, like it was curious, or maybe trying to figure something out. And the worst part? It wasn’t just trying to get inside—it was studying me. Watching me. Waiting.
+I peered over the edge of the loft, my stomach twisting itself into impossible knots. My hands were slick with sweat, gripping the wooden edge so tightly it felt like splinters might push into my skin. I forced myself to stay still, to barely even breathe. Through the gaps in the old planks, I could see it—or at least, the shadow of it.
 
-I backed away from the window, my legs shaking, but I couldn’t look away from the door. Every instinct in me screamed to run, to do something, but I was paralyzed by fear, stuck in place, like my body had given up on me.
+It was back.
 
-A loud bang echoed down the street—like a car door slamming or maybe a window shattering. The creature froze, its head snapping toward the noise. And then, without warning, it darted off into the fog, moving so fast it made my stomach drop. I’ve never seen anything move like that—human or animal. It was… unnatural. Like something out of a nightmare.
+The shape moved with a horrible, unnatural slowness, circling the barn like it had all the time in the world. My chest tightened with every scrape of its claws against the wooden walls. It wasn’t random. It wasn’t frantic. It was testing. Searching. Feeling its way for a weak spot.
 
-It was like it didn’t even need to think. One second, it was there, pressing against the door, and the next, it was just gone—vanishing into the fog like it was never even real. My heart was still racing as I tried to process what had just happened. My brain couldn’t keep up with the reality of it. I was stuck, frozen, not able to do anything but stare.
+Oh God, it was looking for a way in.
 
-And then the silence was shattered. The screams came. Blood-curdling, agonized screams that seemed to slice through the fog like a blade. At first, they sounded far away, almost like they weren’t real. But then, they grew louder, closer. And the dread—*that* dread—settled deep into my bones. It was like something was hunting, something out there was searching for… whatever it could find.
+I pressed myself flat against the hay-covered floor, my whole body trembling. I wanted to scream. I wanted to cry. But I couldn’t do anything except lay there, shaking so badly I thought the creaking floorboards might give me away.
 
-I could feel the panic rising in my chest, my body completely locked in place. I couldn’t move. I couldn’t even breathe properly. All I could do was listen as those screams grew closer. The fog seemed to be closing in with it, suffocating everything. It was like the entire street was alive with terror, pressing down on me. I wanted to run. I should’ve run. But I couldn’t. I was completely paralyzed.
+The loft felt smaller now, suffocating. The false sense of safety I’d clung to was slipping away. I could hear it pacing down below, the heavy thud of its steps sending vibrations up through the beams. It wasn’t in a rush. It didn’t need to be. It knew I was here. I could feel it in the way it moved, this slow, deliberate pacing, like it was waiting. Waiting for me to panic. Waiting for me to slip up.
 
-Now, I’m back in my room. I’ve barricaded the door with a dresser. I’ve started writing this. I’ve been huddled in my bed, shivering under the blankets, trying to stay as quiet as possible. I’ve been scrolling through my phone, checking if any apps work—just trying to do *something*. Reddit actually did load. It took a while, a good few minutes, but it finally popped up. I can’t even explain the relief I felt just seeing it. It’s the only sign of anything resembling normalcy I’ve had in hours. The rest of my phone is useless, but somehow, this worked. I don’t know if it’s a good sign or just another strange thing about all this, but for now, I’m holding onto it.. I don’t know what’s happening, or what’s out there, but I’m terrified. I can’t stop shaking.
+I don’t know what to do.
 
-And Max… God, Max. If you’re out there, I’m so sorry, buddy. I don’t think I can come for you. I wish I could. But everything feels so wrong now. I don’t even know if it’s safe to go outside anymore. Hell, I don’t even know if I’ll ever be able to again.
+Every option in my head feels worse than the last. Climbing down is suicide, but staying here—just sitting here while it stalks below—it’s unbearable. My breath keeps hitching in my throat, and I keep thinking I’ve made a noise too loud, that any second now I’ll hear the sound of it climbing, of it coming for me.
 
-Please, someone. Anyone. Please respond. Please, I can’t be the only one seeing this, stuck in this nightmare. There has to be someone else out there. Please. I need to know I’m not alone. Please.
+Please, if anyone sees this—anyone—tell me there’s something I can do. Call someone, anyone. Or if you’re nearby, if you can hear this somehow, please… maybe we could meet up? Being alone like this—it’s killing me.
 
-I’ll try to post an update if the fog clears or if help shows up. If you don’t hear from me, it means whatever that thing is came back and got in.
-
-[part 2](https://www.reddit.com/r/nosleep/comments/1hnd6hs/please_help_me_i_think_theyre_outside_again/)
+I don’t know how much longer I can last.

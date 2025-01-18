@@ -1,18 +1,62 @@
-Okay, it needs to be said. I am supposed to be dead. What has happened to me is not normal to any standard in our known universe, but I guess nothing’s impossible? 
+I still don’t know if I should tell anyone about that night. Who would believe me, anyway? But maybe if I write it down, I’ll start to make sense of it.
 
-I really don’t know where to begin with this but it’s been happening my entire life, I’ve only come to realize it once it happened again. 
-When I was born, I came out perfectly healthy. My grandma claims I was a beautiful little girl with no issues in sight. When my parents were finally able to take me home from the hospital we got into a horrible accident. 
+It started as a normal evening—five of us gathered at Olivia’s place for dinner. Her old Victorian house was the perfect spot for cozy get-togethers. The wood floors creaked just enough to feel charming, and the dim lighting from antique lamps gave the whole place a warm, amber glow. Olivia was a fantastic cook, so when she invited us over, I didn’t hesitate.
 
-My father was driving and my mother was in the back next to me. I obviously have no recollection of the events that took place but I have been told, we were hit by a semi that was running a stop light. My parents were killed instantly, the car was crushed, I was crushed. 
+When I arrived, the others were already there—Mark, Julia, and Emma. The table was set beautifully: heavy silverware, fine china, candles flickering in the center. Olivia had clearly gone all out. We laughed and caught up as we waited for dinner to finish cooking. The smell of roast chicken and garlic filled the air, mixing with the faint scent of burning wax.
 
-When they were removing our bodies from the car, I started to cry. Bystanders were terrified at the state of me. My mushy little brain was half way out of my head and I was screaming at the top of my little lungs. After about 8 minutes it was like time had reversed through my body, no injuries at all, a perfectly healthy baby. 
+But something felt…off. At first, I thought I was just imagining it. The way the shadows from the candles seemed a little too long. The way the floor creaked behind me even though no one was there. I chalked it up to my own nerves—I’d had a stressful week at work.
 
-This was just chalked up to be some freak thing that happened and inevitably I grew up. Now I could break my arm and I would have to wait those six weeks like anybody else, so I was never really seen as special or anything. But now I know that I am. I can’t die. I’m like Bruce Banner in this bitch, but it’s not that my body is resistant or I have an alter ego that brings me back, it’s like some time controlling force is keeping me alive. 
+Then Olivia brought out the food. Everything looked delicious, and the wine was flowing. We were in the middle of talking about some vacation Julia had planned when I noticed it. The chicken on my plate… it didn’t look right. I couldn’t put my finger on why. It wasn’t undercooked or spoiled, but it shimmered faintly under the light, like there was something alive under the skin.
 
-About 8 months ago was my 23rd birthday and I went out with some friends. We were drinking and having a good time when I noticed this guy staring at me from one of the tables. I instantly got the creeps, sure it’s normal for people to check you out at a bar but this guy just felt wrong. I asked my friends if we could leave and we did. We watched a few movies and had dinner at my place and it was over all a really good night. They were both drunk so I made them stay over, I have two guest beds so they didn’t argue. 
+“You okay?” Olivia asked, her eyes boring into me. I realized I’d been staring at my plate for too long.
 
-We’re all settled and sleeping, and I’m having some crazy dreams. I’m sitting at a long dinner table. In front of me is a dead deer with its innards exposed, I begin to eat it like a wild animal, tearing and digging at it as though I’ve never eaten before. It tastes good, it feels good, it’s like my whole body is experiencing a climax. Then the dream changes and I’m laying in shallow water. As soon as I go to sit up, the dream is over. 
+“Yeah,” I said quickly, forcing a laugh. “Just zoned out.”
 
-I’m back in my room and I had a strange urge to check on my friends, it was still dark but the atmosphere of my home felt wrong. I go into the first bedroom and she was everywhere, it was like she was torn apart by wolves. I scream and run to the second bedroom. It’s the same, only I see the body of a man. He looked as though he ate some sort of bomb, his stomach was blown wide open. 
+But as I picked up my fork and knife, the strangest thing happened. I swear I saw the chicken twitch. Not a lot, just a small shudder, like it was trying to move. I froze, staring at it, my breath caught in my throat.
 
-I haven’t been able to get those images out of my head since I ran. I wish I would’ve just stayed dead. I really am enjoying my new life though, I managed an escape with the help of my grandmother, who has been going through this since her birth in 1820. It’s funny how we stay young, I just wish everyone else did too.
+“What’s wrong?” Mark asked. Everyone was looking at me now.
+
+“Nothing,” I lied, trying to shake it off. Maybe I was just overtired. I took a small bite—just to prove to myself I was imagining things. The taste was fine, but there was something else… a faint metallic tang, almost like blood. I pushed my plate away.
+
+“You’re not eating,” Olivia said, her voice sharp.
+
+“I’m just not very hungry,” I said, avoiding her eyes. The room suddenly felt too warm, the air thick and heavy.
+
+Olivia’s smile didn’t reach her eyes. “I worked hard on this meal, you know.”
+
+“I know. It’s great, I just—”
+
+The lights flickered, cutting me off. For a second, everything plunged into darkness. When the lights came back, I swear the dining room had changed. The shadows on the walls were deeper, darker, and they seemed to ripple, like they were alive. The air felt colder now, and I could see my breath fogging up in front of me.
+
+Everyone else acted like nothing had happened. Julia was laughing at something Mark had said, and Olivia kept sipping her wine, her eyes fixed on me.
+
+Then I noticed Emma. She hadn’t said a word in a while, and when I glanced over at her, I realized why. She was staring straight ahead, her face blank, her eyes wide and unblinking. Her hand gripped her fork so tightly that her knuckles were white.
+
+“Emma?” I whispered.
+
+She didn’t respond. She just kept staring, her mouth slightly open. I followed her gaze and realized she wasn’t looking at anything in particular—just the wall behind Olivia. But when I turned to look, all I saw was the old wallpaper, peeling slightly at the edges.
+
+“Emma, are you okay?” Julia asked, her voice tinged with concern.
+
+Emma blinked, snapping out of it. She shook her head as if clearing a fog. “Yeah. I’m fine. Just zoned out.”
+
+But she wasn’t fine. None of us were.
+
+The rest of the evening passed in a blur. The wine tasted bitter, the candles burned lower, and the shadows in the room seemed to crawl closer. I kept glancing at the others, trying to gauge if they were feeling it too, but no one said anything. Olivia, especially, seemed perfectly calm. Too calm.
+
+By the time dessert was served, I couldn’t take it anymore. The tension in the room was suffocating. I pushed my chair back and stood up. “I think I should head out,” I said, trying to sound casual.
+
+“Already?” Olivia said, her voice sweet but with an edge that made my stomach twist.
+
+“Yeah, early morning tomorrow,” I mumbled, grabbing my coat.
+
+No one protested. In fact, they barely acknowledged me as I left. The cold night air hit me like a slap when I stepped outside, and I breathed deeply, trying to clear my head. I walked to my car and climbed in, gripping the steering wheel tightly.
+
+As I pulled away, I glanced back at the house. Olivia was standing at the window, watching me. But it wasn’t her face that I saw. It was her smile—wide, too wide, stretching unnaturally across her face. Her teeth were sharp, glinting in the faint light.
+
+I drove faster, not looking back again.
+
+That night, I didn’t sleep. I couldn’t. Every time I closed my eyes, I saw Olivia’s face, her smile, the way the shadows in her house had seemed alive. I haven’t spoken to any of them since. I’m too afraid of what they might say. Or what they might not.
+
+But every now and then, when I’m alone in my apartment, I hear it—a faint creak, like someone walking across a wooden floor. And I can’t help but wonder if I ever really left Olivia’s house. Or if some part of me stayed behind.
+
