@@ -22,7 +22,7 @@ A few hours later - Outside Los Alamos
 
 Hours later, the three of us arrived at the decommissioned North American Occult Research and Containment Coalition (NAORC) facility near Los Alamos. It was a desolate place, all crumbling concrete and rusting metal. Almost like the collider facility as it was depicted in that damned tape that started this all. The air hung heavy with the ghosts of experiments past. We split up, Dr. Vance to the administrative wing, me to the labs, and Siouxsie to… well, Siouxsie went where her instincts told her.
 
-I didn't find anything of note in the lab I was assigned to. Just some broken equipment, dusty shelves, and the lingering scent of formaldehyde. I decided to check up on Siouxsie. Her presence always seemed to ground me a bit. I hated the feeling, but my anxiety always seemed to ebb a little when she was near.
+I didn't find anything of note in the lab I was assigned to. Just some broken equipment, dusty shelves, and the lingering scent of formaldehyde. I decided to check up on Siouxsie. Her presence seemed to ground me a bit. I hated the feeling, but my anxiety always seemed to ebb a little when she was near.
 
 I found her in a small, long abandoned lab, standing stock-still in front of a large glass tank. The faded label on the tank read, "Subject 2448." Her small hoodie-clad form seemed almost swallowed by the shadows of the room.
 
@@ -62,7 +62,7 @@ She tapped her chin thoughtfully with the ebony claws capping her three fingered
 
 "There is," she continued. "We need to take a detour. Ugh... got any aspirin?"
 
-"Center console," I said. She began digging into the console and pulled out the small but powerful pistol I was offered last night, "Looks like the Doc left you a present."
+"Center console," I said. She began digging into the console and pulled out the small but powerful pistol I was offered this morning, "Looks like the Doc left you a present."
 
 "Leave it," I said curtly, "Where do you have in mind?"
 
