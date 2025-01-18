@@ -71,3 +71,5 @@ But that can wait till tomorrow. I was overdue for a nap and a shower. We headed
 Later, while Siouxsie was boredly flipping throught he channels on the motel TV while demolishing an entire pizza, Vance was out getting supplies, and I was sound asleep in a chair, the satellite link on my laptop pinged and woke me up from my slumber. A text message from an anonymous Count Jim BBS user. The words were simple, chillingly so: [The Red Inquisitioner knows\]. Inquisitor. It has to be the scary dude in the pointy hood.
 
 The implications hung in the air, thick and suffocating. The hunt was on. And we were the prey.
+
+Part 7 here https://www.reddit.com/r/nosleep/comments/1i439wd/count_jims_fortean_freakshow_part_7/
