@@ -159,11 +159,11 @@ Then she said the most useful thing she ever had.
 
  
 
-“If you want a one liner honey, you should keep it short. And make it something she would want to hear.” My hatred evaporated. Her helpfulness bringing me back from my mind fog.
+“If you want a one liner honey, you should keep it short. And make it playful, not too serious.” My hatred evaporated. Her helpfulness bringing me back from my mind fog.
 
  
 
-“Try something playful. How about: *Hey where did you think you knew me from? Cause I don’t think I would ever forget someone like you.*” That line was perfect.
+“Try something that plays with what she told you, like: *Hey where did you think you knew me from? Cause I don’t think I would ever forget someone like you.*” That line was perfect.
 
  
 

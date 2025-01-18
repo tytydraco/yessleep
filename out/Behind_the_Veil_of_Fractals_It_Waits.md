@@ -16,7 +16,7 @@ For me, that sometime came last Wednesday.
 
 My guy on the outside sent me a care package. I remember feeling elated, on top of the fucking moon as I looked down upon a sheet of what was supposed to be some of the hardest hitting LSD to ever exist.
 
-"It's pure, right from the source," he said. Whatever that meant, I didn't give a fuck. I wish I hadnpressed him for answers then and there.
+"It's pure, right from the source," he said. Whatever that meant, I didn't give a fuck. I wish I had pressed him for answers then and there.
 
 That night at about 10 p.m., I dropped ten hits of that acid. Hardly my largest dose, but after being dry for awhile, I expected to be hit pretty hard. I waited five minutes. Then ten, and twenty. 
 
