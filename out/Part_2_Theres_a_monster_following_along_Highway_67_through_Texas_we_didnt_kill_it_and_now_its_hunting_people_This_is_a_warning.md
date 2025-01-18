@@ -1,6 +1,6 @@
 Nothing else of note occurred throughout the week. Besides a few other spats (Joey and I, of course), we shortly settled into a routine. Two times a day I or Beatriz brought the cows in and the three of us worked to milk them. Joey eventually caved after day three and began to shovel shit (a job he was made for, I'll give him that). We gave the ladies a brief wellness check. Beatriz, with one of us helping, would fill the grain truck and bring it over to the herd. Amari followed us the entire time, supervising the crazy teenagers her parents let take care of the place to be sure they didn't get up to any crazy shit. Twice that week we all piled onto the feed truck and drove the perimeter of the property to look for fence breaks. Bob's enthusiasm and trust in us made me want to take good care of the place and I can confidently say we did that.
 
-We were still teenagers on the cusp of adulthood though, and rejoiced at the time away from our parents and responsibilities. We made the journey into Wynne several times and found the liquor store clerk, a handle-bar mustache, good ol' boy named Roger, didn't mind none of us were twenty-one and provided us all the booze our shitty wages could afford. Turns out I didn't need to fill my suitcase with cigarettes after all. When I pointed out the Marlboro's on the shelf behind him, Roger was just as glad to provide those as the booze.
+We were still teenagers on the cusp of adulthood though, and rejoiced at the time away from our parents and responsibilities. We made the journey into town several times and found the liquor store clerk, a handle-bar mustache, good ol' boy named Roger, didn't mind none of us were twenty-one and provided us all the booze our shitty wages could afford. Turns out I didn't need to fill my suitcase with cigarettes after all. When I pointed out the Marlboro's on the shelf behind him, Roger was just as glad to provide those as the booze.
 
 \*\*\*
 
@@ -48,7 +48,7 @@ When we next saw the cat, she was licking blood from her paws.
 
 \*\*\*
 
-It was the last night of the week before the Martinez's were set to return.
+It was the last night of the week before Bob and Maria were set to return.
 
 I was bringing the old girls in as dusk set over the property, coaxing them with a treat of sliced bananas and apples that they would get only the evening’s milking. It was still and quiet with nats bumping lazily against the lights. B and Sam would follow me out shortly, and I had decided to get an early start to breath in the cooling evening air, alone, for a moment. I also wanted a smoke, or two... maybe three.
 
@@ -116,7 +116,7 @@ While I got my bearings B continued, "Joey's decided to make chicken titties to 
 
 I shivered. I was still very, irrationally, scared. I may not know what happened to Dolly or what I was even scared of, but what I did know was that I did not want to go into that long, flat darkness outside the border provided by the lights. Not even for a short distance. Not even with my best friend by my side and a shotgun on my back.
 
-But I really, really didn't want to disappoint Mr. Martinez. He had entrusted his property to us. Besides, it's like I said earlier. Whether it was aliens or earthquakes, the cows were fed. The cows were taken care of. As farm kids to our very bones, I knew that B and I really had no choice.
+But I really, really didn't want to disappoint Bob. He had entrusted his property to us. Besides, it's like I said earlier. Whether it was aliens or earthquakes, the cows were fed. The cows were taken care of. As farm kids to our very bones, I knew that B and I really had no choice.
 
 So, I used the bucket to lead the cows into the barn, where B and I put them into the stalls to ensure they all remained safe. I clasped the strap of the shotgun nervously while B confidently strode back out the door.
 
