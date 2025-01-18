@@ -44,3 +44,5 @@ So that’s what we did, we didn’t tell anyone until I got to my first real as
 I haven’t talked to D since we graduated. But it does provide some comfort that I’m not crazy. 
 
 I’ll be posting more stories about things I’ve seen whenever I get the time. Thank you for coming to my TED talk. 
+
+Link to next post: https://www.reddit.com/r/nosleep/s/XLb0MOFvSd

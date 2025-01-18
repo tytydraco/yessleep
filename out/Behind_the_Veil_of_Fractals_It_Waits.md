@@ -106,7 +106,7 @@ The fragile psyche of human kind is only truly apparent once the veil has been l
 
 I leave this message as a warning, and a bid for forgiveness. I just put the rest of those cursed tablets in the water pumps below the prison, in an attempt to appease the Splintering Maw. 
 
-I only wish for mercy as I wait for the poison to work it's magical properties within my veins, freeing me from this horrible plane of existence. 
+I only wish for mercy as I wait for the poison to work it's magic within my veins, freeing me from this horrible plane of existence. 
 
 And the worst part? It was right. I brought myself here. We brought ourselves here.
 
