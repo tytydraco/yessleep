@@ -1,3 +1,7 @@
+Part 1: [https://www.reddit.com/r/nosleep/comments/1i2euu7/my\_bosses\_are\_acting\_strange\_and\_i\_need\_advice/](https://www.reddit.com/r/nosleep/comments/1i2euu7/my_bosses_are_acting_strange_and_i_need_advice/)
+
+
+
 I promised I’d update here if anything happened. It's been about 2 weeks since the incidents I mentioned in my last post about this, and things have been getting worse. 
 
 For a while, my managers ramped up their strange behavior. It got more and more frequent. At least twice per shift they’d come up to me to have an awkward conversation that dragged painfully on until I dismissed myself by saying something like, “Well, I guess I should get back to work now.” And they still wear those grins. It creeps me out. It’s like a plastic mask they’re wearing, and their overly friendly tone is just as fake. 
@@ -44,7 +48,7 @@ They turned to me simultaneously. Trevor brought his watch up to his field of vi
 
 “That's nice of you, but I already had my lunch.” 
 
-This was another thing that threw me off. I mentioned that Rich often buys food for himself during his shift. I've worked with him for almost 2 years and he's never bought anyone else food. 
+This was another thing that threw me off. I mentioned that Rich often buys food for himself during his shift. I've worked with him for almost 2 years and he's never bought anyone else food.
 
 Once again, his smile fell flat. He followed me in and we walked together to the front. But he took odd paths, walking up and down aisles that lead away from the front, taking as long as possible to reach the door. Finally, he unlocked the door and let me out. 
 
@@ -58,5 +62,4 @@ Speaking of, they've been very active. It's not unusual to see a rat every now a
 
 I saw on the last post you guys asked about quitting. I don't know if that's an option right now. The extra hours have really been helping and I don't think I can afford to stop working to look for another job right now. With my resume, there’s no guarantee I could find one that pays enough, anyway. And so far, even if it's been creepy, there are rational explanations for all of this. I can't put myself at financial risk over some weird run-ins with my coworkers and a bad smell. 
 
-For now, at least, I’ll keep my head down like I always do and hope things sort themselves out. Like last time, I’ll make sure to keep note if anything weird happens so I can make another update. 
-
+For now, at least, I’ll keep my head down like I always do and hope things sort themselves out. Like last time, I’ll make sure to keep note if anything weird happens so I can make another update.
