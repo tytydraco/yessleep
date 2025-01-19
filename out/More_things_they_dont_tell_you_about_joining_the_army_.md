@@ -23,3 +23,7 @@ Eventually the company came marching down the road and XO flagged down some of t
 The next day I heard people talking about how they had the duty truck take over 10 trips back and forth bussing trainees back to the company. Part of me is glad A had whistled because what if those things were there and we never saw or heard them, what would happen if it had attacked the patrol base? I have so many questions. 
 
 I’ll be posting more sometime soon, thank you for the support. 
+
+Next post is up!!
+
+https://www.reddit.com/r/nosleep/s/dJgHWyPJPb
