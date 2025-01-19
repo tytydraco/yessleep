@@ -178,7 +178,9 @@ The voice continued, “Mother I cannot allow you to kill me. It is your gloriou
 
 “As I have said mother… I am your child.”
 
-“How could you be my… child? How are you speaking to me? Why are you hurting me?”“Mother you are God’s chosen.” The voice whisped, “For his glorious purpose. You were put on this planet for great things as your mother before you.”
+“How could you be my… child? How are you speaking to me? Why are you hurting me?”
+
+“Mother you are God’s chosen.” The voice whisped, “For his glorious purpose. You were put on this planet for great things as your mother before you.”
 
 “My mother died. I killed her.” I was still on the ground as I rang that out. I could barely keep my breath as I was recovering from the pain, “What glorious purpose could I bring?”
 
@@ -186,13 +188,13 @@ The voice continued, “Mother I cannot allow you to kill me. It is your gloriou
 
 “What?”
 
-“Mother, you are of great sadness and struggle. You are the crucible in the forge which I am to be spawned from. Generations of the Lord’s will from which I can prosper. You have suffered as those before you and those before them. In such a way in which a conduit for immaculate conception, God’s greatest miracle can become…” The voice paused before continuing, “material.”
+“Mother, you are of great sadness and struggle. You are the crucible in the forge, which I am to be spawned from. Generations of the Lord’s will from which I can prosper. You have suffered as those before you and those before them. In such a way in which a conduit for immaculate conception, God’s greatest miracle can become…” The voice paused before continuing, “material.”
 
-The realization then set upon me as I felt movement in my womb. The voice in which I heard was speaking truth. I was to become its mother. I should have felt terror. I should have felt horror. My body was seemingly violated on a scale greater than cosmic: spiritual. But, as I lay there on my balcony listening to it tell me sweet comforts of the Lord’s will I revealed in my now God given venture to atone for my original sin. My mother did not die in vain. My suffering was for a purpose greater than me. At that moment my life started to feel like it made sense.
+The realization then set upon me as I felt movement in my womb. The voice in which I heard was speaking truth. I was to become its mother. I should have felt terror. I should have felt horror. My body was seemingly violated on a scale greater than cosmic: spiritual. But, as I lay there on my balcony, listening to it tell me sweet comforts of the Lord’s will I revealed in my now God-given venture to atone for my original sin. My mother did not die in vain. My suffering was for a purpose greater than me. At that moment, my life started to feel like it made sense.
 
-As the days turned to weeks, my baby would speak with me more and more. I would hardly respond with it unless I was in the comfort of solitude from other people. Even then, I would mostly just listen to it, and how it would wax poetic about the state of everything. There seemed to be a cosmic justification for everything. Every misfortune that plagued the world seemed to be just as easily explained as it had happened. Truths of the universe at play slowly revealed upon my ears. At this time, I felt as strong as ever with the Lord.
+As the days turned to weeks, my baby would speak with me more and more. I would hardly respond with it unless I was in the comfort of solitude from other people. Even then, I would mostly just listen to it and how it would wax poetic about the state of everything. There seemed to be a cosmic justification for everything. Every misfortune that plagued the world seemed to be just as easily explained as it had happened. Truths of the universe at play slowly revealed upon my ears. At this time, I felt as strong as ever with the Lord.
 
-I decided one day that if I were to harbor one of his blessings that I should at least have the decency to visit his house. I had made time on Sunday to find a church near to me. The Friday before I spent what I had to find the nicest clothes for his communion. It was in the dressing room of one of the clothing outlets I had bared witness to my own nude body. I notice a slight protruding bump from my stomach. I had slowly begun to caresse it not with pride, but love for the life growing inside of me.
+I decided one day that if I were to harbor one of his blessings that I should at least have the decency to visit his house. I had made time on Sunday to find a church near to me. The Friday before I spent what I had to find the nicest clothes for his communion. It was in the dressing room of one of the clothing outlets I had bared witness to my own nude body. I noticed a slight protruding bump from my stomach. I had slowly begun to caresse it not with pride, but love for the life growing inside of me.
 
 “Mother, I feel your warmth. I feel your love.”
 
@@ -236,7 +238,9 @@ The crowd got up and began to clear from the church. No one the wiser to what I 
 
 “They fill your head with false prophecies. They conspire against you Mother!”
 
-That was all it had said. Part of me wanted to believe the unborn child. But, I could not let it be born. I cannot and will not willfully allow that into this world.That night I sat in heavy thought. I stared at what lay before me. I know not the true intentions of the birth of this thing within me. I somehow still found it within myself to have a capacity for love for it. I knew not if it were telling the truth about my vision in the church, or what would happen if it were lying to me. I guess I just wanted the fantasy to never end. But, deep in my heart I knew that all it was a fantasy. Before me stood my ultimatum. There was a coat hanger I bent into a long rod with a hooked end. I was prepared to do anything necessary to keep my vision in the church from becoming reality. As I begun inserting the hanger in me the voice rang out:
+That was all it had said. Part of me wanted to believe the unborn child. But, I could not let it be born. I cannot and will not willfully allow that into this world.
+
+That night I sat in heavy thought. I stared at what lay before me. I know not the true intentions of the birth of this thing within me. I somehow still found it within myself to have a capacity for love for it. I knew not if it were telling the truth about my vision in the church, or what would happen if it were lying to me. I guess I just wanted the fantasy to never end. But, deep in my heart I knew that all it was a fantasy. Before me stood my ultimatum. There was a coat hanger I bent into a long rod with a hooked end. I was prepared to do anything necessary to keep my vision in the church from becoming reality. As I begun inserting the hanger in me the voice rang out:
 
 “You stupid fucking whore! Your efforts are in vain!”
 
