@@ -1,5 +1,5 @@
-[Part One](https://www.reddit.com/r/nosleep/comments/1i1jchd/im_a_911_operator_earlier_this_night_i_got_a_call/)  
-[Part Two](https://www.reddit.com/r/nosleep/comments/1i2aoxp/im_a_911_operator_yesterday_my_coworker_got_a/)
+[Part 1/4](https://www.reddit.com/r/nosleep/comments/1i1jchd/im_a_911_operator_earlier_this_night_i_got_a_call/)  
+[Part 2/4](https://www.reddit.com/r/nosleep/comments/1i2aoxp/im_a_911_operator_yesterday_my_coworker_got_a/)
 
 I could not find the key to the basement no matter where I looked in the bedroom, I don't remember misplacing it but with everything that's happened in the past twelve or so hours I wasn't about to question something as mundane as this. Afraid to go too far without Connor, I decided to wait by the ladder up to the attic for him to finish searching and maybe join him if he found something, but when I stopped to listen I could hear no footsteps or any noise coming from up there.
 
@@ -116,3 +116,5 @@ I showed the website to Connor and he browsed through it, finding something I ha
 I looked at my injured hand and gasped, then quickly lifted up the leg of my pants to see the same thing on my ankle. At the same time Connor lifted one side of his shirt enough to see where he'd been attacked.
 
 My hand, ankle, and that part of Connor's torso, were pitch black.
+
+[Part 4/4](https://www.reddit.com/r/nosleep/comments/1i4nbko/we_were_911_operators_i_dont_know_what_we_are/)

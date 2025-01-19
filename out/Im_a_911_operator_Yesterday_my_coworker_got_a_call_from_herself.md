@@ -1,4 +1,4 @@
-[Part One](https://www.reddit.com/r/nosleep/comments/1i1jchd/im_a_911_operator_earlier_this_night_i_got_a_call/)
+[Part 1/4](https://www.reddit.com/r/nosleep/comments/1i1jchd/im_a_911_operator_earlier_this_night_i_got_a_call/)
 
 I sat on the cushioned armchair in the hotel room Marielle had rented after running off inexplicably from her shift last night. I called her earlier this morning after finishing work without even going to sleep, she's always been level-headed and her acting like this made me feel concerned, I couldn't just let it go. And now here I was, listening to how she apparently spoke to herself last night on the phone.
 
@@ -80,4 +80,4 @@ I allowed her to drive and she kept asking me questions in the meantime, but I w
 
 "Marielle... since when are your eyes two different colors?"
 
-[Part Three](https://www.reddit.com/r/nosleep/comments/1i32afu/we_are_911_operators_something_is_trying_to/)
+[Part 3/4](https://www.reddit.com/r/nosleep/comments/1i32afu/we_are_911_operators_something_is_trying_to/)

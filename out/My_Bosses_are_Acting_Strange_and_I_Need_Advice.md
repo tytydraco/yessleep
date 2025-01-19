@@ -44,3 +44,6 @@ But, as much as I want to quit, now that I've been getting more hours, I don't t
 
 I'll keep updating if this goes on. 
 
+Part 2:
+
+https://www.reddit.com/r/nosleep/s/FoJIKItCqT

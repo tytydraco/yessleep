@@ -65,4 +65,4 @@ It's a little after 02:30 as I finish writing this. I booked myself a room into 
 =EDIT=  
 I just woke up, it's 04:16. Five minutes ago two calls from someone with no caller ID woke me up, but I didn't pick up. I'm afraid for my safety.
 
-[Part Two](https://www.reddit.com/r/nosleep/comments/1i2aoxp/im_a_911_operator_yesterday_my_coworker_got_a/)
+[Part 2/4](https://www.reddit.com/r/nosleep/comments/1i2aoxp/im_a_911_operator_yesterday_my_coworker_got_a/)
