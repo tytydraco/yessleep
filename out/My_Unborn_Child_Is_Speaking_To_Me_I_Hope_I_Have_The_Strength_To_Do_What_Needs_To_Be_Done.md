@@ -24,7 +24,9 @@ My uncle had decided to call me up one day.
 
 “How’re you doing kiddo? Things going well?”
 
-“Yeah, they’re pretty good. I got a new job to work on the weekends… I figure if I’m working in the warehouse during the week, and I just got this job as a cook on the weekends, I should be pulling about 55 hours a week. I think in about three months I should have enough to get a Mustang.” “You’re still thinking about getting one?” he asked reluctantly.
+“Yeah, they’re pretty good. I got a new job to work on the weekends… I figure if I’m working in the warehouse during the week, and I just got this job as a cook on the weekends, I should be pulling about 55 hours a week. I think in about three months I should have enough to get a Mustang.” 
+
+“You’re still thinking about getting one?” he asked reluctantly.
 
 “Yeah, well, um, Foxbody’s in this area are getting pretty reasonable. Even then, there is this guy at the warehouse who has this old ‘78 that he’s willing to sell–”
 
