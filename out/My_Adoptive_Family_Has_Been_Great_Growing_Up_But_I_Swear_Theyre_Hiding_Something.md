@@ -48,7 +48,7 @@ She hugged me tighter, then kissed me on the forehead.
 
 “Your mother just wanted you to live a good life. She didn’t want you to spend your childhood in a hassle, constantly struggling beside her. So please don’t resent her. She would’ve been a great mother if the circumstances were better.”
 
-I didn’t know how to feel at the moment. I didn’t resent my mother at all. I just wanted to see her face, and hug her like I was my step-mother at that moment.
+I didn’t know how to feel at the moment. I didn’t resent my mother at all. I just wanted to see her face, and hug her like I was my adoptive mother at that moment.
 
 “But the following morning I woke up and saw a note that’s been slid beneath the front door. It was from her. She said she was leaving the area for a while. But if we decide to keep you, she’ll be back to pay you a visit, or at least see if you’re still around. She didn’t say when, but she said she’ll eventually return for sure,” she finished.
 
@@ -224,7 +224,7 @@ Over the next month, we were deeper into the spring. The temperature outside was
 
 We still talked and laughed like always, but there were more awkward pauses. Sometimes Uncle Teddy zoned out and was so focused on his tasks that I swore he forgot I was there. But then it hit me. I thought about how him and my adoptive mother acted when they saw me come out of the basement with that book. I didn’t understand why they were being so funny about some pictures. I mean, I saw the pictures and there was nothing weird in them…so what was the big deal?
 
- There was even a subtle change in my adoptive mother. Her typical affection and emotional warmth started to not feel so genuine. More of her smiles and greetings came off as forced. To me it was like she was faking it, and now had to try hard to show me the step-mother she had on display all my life.
+ There was even a subtle change in my adoptive mother. Her typical affection and emotional warmth started to not feel so genuine. More of her smiles and greetings came off as forced. To me it was like she was faking it, and now had to try hard to show me the adoptive mother she had on display all my life.
 
 To make things even stranger, neither one of them said anything else about the photos until a few weeks after the incident. Uncle Teddy was the one to attempt to clarify things during one of our trips. We were by the lake fishing once again when he randomly brought it up. He told me that the memories I saw in the book was of him and my adoptive mother visiting another family member. The children I saw were their cousins - “Bonnie” and “Blake”.
 
@@ -284,7 +284,7 @@ I mean after so many years of yearning for her I was actually about to see her!
 
 “I told you she’ll get around to you eventually,” Uncle Teddy said, giving me a smirk.
 
-Both Uncle Teddy and my adoptive mother suggested that I visit the homeless shelter on the following day to see my mother. After talking to my stepmother for hours about this, I went to bed, barely able to sleep as I was too excited.
+Both Uncle Teddy and my adoptive mother suggested that I visit the homeless shelter on the following day to see my mother. After talking to my adoptive mother for hours about this, I went to bed, barely able to sleep as I was too excited.
 
 The following morning I was surprised to see that my adoptive mother and Uncle Teddy were already up, getting prepared to leave. Uncle Teddy was hauling some things from the basement out to his truck, while my adoptive mother was in the closet of her bedroom rummaging around for god knows what. I thought they were planning on going to the shelter with me but when I got dressed and told them I was ready when they were, I was surprised to find out they weren’t going - at least not right away.
 
