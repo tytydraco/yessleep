@@ -208,4 +208,4 @@ Has to be. People can't just replace you.
 
 =================
 
-This story was original conceived from a nightmare I had that I posted to r/Nightmares 8 years ago. It's called "Bags" if you want to look it up. I fleshed out the story a bit and changed the ending and then I used a few different AI programs to help me fix grammar and proofread it. I also used it to make several alterations and flesh out several scenes to be more descriptive though all of it was iterated upon numerous times and edited by me. I just want to be forth coming about the usage of AI in this story in case it matters to anyone.
+This story was originally conceived from a nightmare I had that I posted to r/Nightmares 8 years ago. It's called "Bags" if you want to look it up. I fleshed out the story a bit and changed the ending and then I used a few different AI programs to help me fix grammar and proofread it. I also used it to make several alterations and flesh out several scenes to be more descriptive though all of it was iterated upon numerous times and edited by me. I just want to be forth coming about the usage of AI in this story in case it matters to anyone.
