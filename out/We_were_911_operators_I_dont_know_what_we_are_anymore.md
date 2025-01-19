@@ -156,6 +156,6 @@ I raised my eyebrows and felt myself begin to tense. “That's impossible, he wa
 
 “Okay ma'am, okay. Just don't stress yourself out, please, you really need to rest and keep yourself steady. I'll be back in just a few moments.” He smiled and nodded at me before turning around and leaving the room, but I was too nervous for pleasantries right now.
 
-I started to wonder why Rebecca was in such a rush, and why she'd lie about Connor if he wasn't here. I'd remembered by now how she suddenly went missing while I was still inside that place, but I thought that just like how I'd suddenly returned to the real world after I killed the other me, the same thing must have happened to her... but there wasn't another her, right?
+I started to wonder why Rebecca was in such a rush, and why she'd lie about Connor if he wasn't here. I'd remembered by now how she suddenly went missing while I was still inside that place, but I thought that just like how I'd returned to the real world after I killed the other me, the same thing must have happened to her... but there wasn't another her, right?
 
 That's when I replayed our conversation over a few times in my head before she left, and I kept stopping at one detail in particular - was I misremembering it, or did she get the name of her dog wrong?
