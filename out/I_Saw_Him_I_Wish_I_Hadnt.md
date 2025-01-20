@@ -180,7 +180,7 @@ His grin widened, and for the first time, I saw something flicker behind his eye
 
 “Yes!” I shouted, my voice cracking. “It matters! What the hell are you?”
 
-He leaned in closer, his face inches from mine now, his eyes glowing brighter. “I’m something you’ve always wished to . And the best part? You’ll never know if I’m real or if you’re just losing your fucking mind.”
+He leaned in closer, his face inches from mine now, his eyes glowing brighter. “I’m something you’ve always wished to be. And the best part? You’ll never know if I’m real or if you’re just losing your fucking mind.”
 
 Before I could react, he stepped back, his smirk returning. “Anyway, I’ve got places to be. People to scare. But don’t worry, bud—I’ll be seeing you. You can count on that.”
 
