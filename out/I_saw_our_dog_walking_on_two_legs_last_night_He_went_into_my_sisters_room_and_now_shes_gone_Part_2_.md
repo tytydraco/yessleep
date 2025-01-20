@@ -78,9 +78,9 @@ Dad gripped the wheel, his knuckles white. He didn’t answer right away. A minu
 
 "To Elias," he replied.
 
-I hadn’t heard that name in a long time. Elias Moretti is one of the old inhabitants of Millbrook. He used to be the priest of the old church on the hill when I was little. Dad once told me that it was the Moretti family who built that church over a century ago. People used to believe back then, but a lot has changed since.
+I hadn’t heard that name in a long time. Elias is one of the old inhabitants of Millbrook. He used to be the priest of the old church on the hill when I was little. Dad once told me that it was Elias's family who built that church over a century ago. People used to believe back then, but a lot has changed since.
 
-Millbrook has produced philosophers, physicists, doctors—people who traveled the world and came back with different views. Over the last couple of decades, faith slowly left Millbrook. Father Elias tried to revive it, but he failed. There was a year when no one stepped foot in the Moretti church; not a single person in the entire year. That’s when Father Moretti left his family church and Millbrook. He now lives about forty miles outside town, in solitude.
+Millbrook has produced philosophers, physicists, doctors—people who traveled the world and came back with different views. Over the last couple of decades, faith slowly left Millbrook. Father Elias tried to revive it, but he failed. There was a year when no one stepped foot in his family church; not a single person in the entire year. That’s when Father Elias left the church and Millbrook. He now lives about forty miles outside town, in solitude.
 
 "Father Elias? Martin, are you sure?" Mum said to him.
 
@@ -88,4 +88,4 @@ Millbrook has produced philosophers, physicists, doctors—people who traveled t
 
 The truck lurched forward, Dad’s eyes went back to the road. And I couldn’t stop thinking about those words the creature said, *You should have believed.*
 
-\-Clara Hill
+\-Clara
