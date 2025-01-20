@@ -4,7 +4,7 @@ Molars, incisors, and every tooth in between. It had to be about forty pounds of
 
 I wish I had double-checked the contents at the airport, but I was so exhausted by my flight that I just wanted to get home. 
 
-And now all my clothes, toiletries and Hawaiian souvenirs are gone, replaced by a bag that belongs to either the tooth fairy or some psychopathic dentist.
+And now all my clothes, toiletries and Hawaiian souvenirs are gone, replaced by a bag that belongs to either the tooth fairy or some psychotic dentist.
 
 *Seriously, how the hell did this get through security?*
 
@@ -18,15 +18,15 @@ I was more confused than ever. Was the person who expected this bag seriously te
 
 Instinctively, I looked around my empty apartment, threatened by the message. But of course, the only movement was my own reflection on the balcony glass.
 
-Then my phone sent a picture of an open blue duffel bag. Inside was my red summer shorts, along with my surfboard keyring and tiki mask magnet. *They have my stuff.*
+Then my phone recieved a picture of an open blue duffel bag. Inside was my red summer shorts, along with my surfboard keyring and tiki mask magnet. *They have my stuff.*
 
 **‘You have our teeth. And we know who you are.’**
 
-I received a picture of a crumpled form I filled out to go scuba diving. It was left in the outer pocket of my duffel bag. My name was listed. My address. Even my phone number.
+There came another picture of a crumpled form I filled out to go scuba diving. It was left in the outer pocket of my duffel bag. My name was listed. My address. Even my phone number.
 
 *Oh shit.*
 
-Then I received a call from an unknown caller. I put the phone on the ground and let it ring out. Each ring sent a buzz through my hardwood floor, and a shiver up my neck.
+Then I received a call from an unknown caller. I put the phone on the ground and let it ring out. Each ring sent a buzz through my hardwood floor, and a shiver up to my neck.
 
 Another text: **‘We know where you live. Give us the teeth.’**
 
@@ -82,7 +82,7 @@ After considering it back and forth in the apartment, I left my front teeth alon
 
 At 9:53, the park emptied out and it started to get freezing. It was my cue to exit.
 
-I took one last drag, exhaled a large plume of smoke and I saw it contour around the edges of a … *strange, unseeable shape in front of me.* 
+I took one last drag, exhaled a large plume of smoke and I saw it contour around the edges of a … *strange, unseeable shape.*
 
 It was really odd. 
 

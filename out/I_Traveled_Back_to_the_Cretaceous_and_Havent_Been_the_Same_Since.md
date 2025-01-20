@@ -1,4 +1,6 @@
-I know that sounds insane, but there isn’t another way to phrase it. I went on a ‘study’ trip a month ago with a group of students and professors to Utah. The reason I say ‘Study Trip’ is because that is what everyone else thinks. But we didn’t just go to collect fossils…we went to collect live material. If I had known what would happen, I wouldn’t have gone in the first place. I should have said no. I should have taken a thesis opportunity in Wyoming, North Dakota, or Australia. But instead, I traveled back to the Cretaceous and haven’t been the same since.  
+I know that sounds insane, but there isn’t another way to phrase it. I went on a fossil collection trip a month ago with a group of students and professors to Utah—or that’s what everyone else thinks. 
+
+We didn’t just go to collect fossils…we went to collect live material. If I had known what would happen, I wouldn’t have gone in the first place. I should have said no. I should have taken a thesis opportunity in Wyoming, North Dakota, or Australia. But instead, I traveled back to the Cretaceous and haven’t been the same since.  
 
 It started when my professor, Dr. Jameson reached out to me. It was an email about a thesis opportunity. She remembered a recent conversation we had about the evolution of angiosperms and decline of gymnosperms in the late Cretaceous…I agreed to continue the conversation in person—only because she insisted on it. Said that email wasn’t safe.
 
