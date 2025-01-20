@@ -238,23 +238,23 @@ Some of the water to my right rippled—I looked over and saw something in the w
 
 “I’m grabbing my last canister—I’ll see you In a few moments.” His huffing dominated my speaker for a moment. I stood up and held up my canister with my tiny plant and turned around to wave for Cruz. That was my mistake.
 
-His head bobbed over the ferns and shrubs like a disembodied apparition. I waved my hand high so he could more easily locate me. As I did that I noticed the water splash in my rearview cam.
+His head bobbed over the ferns and shrubs like a disembodied apparition. I waved my hand high so he could more easily locate me. As I did that I noticed the water ripple in my rearview cam.
 
 It’s stupid, really, that we thought being in a swamp was a smart idea. What I saw in that grainy footage will haunt me to this day—even though I never saw it with my own eyes. 
 
-Over 15 feet of a rough, scaly spine rose up to the surface of the water. The splash was made by the tail, and I took a moment to process it. Was it that long? My body reacted before my mind could. 
+Over 20 feet of a rough, scaly spine rose up to the surface of the water—as silent as a library whisper. The ripple was made by the tail, and I took a moment to process as the whole length from snout to tail end filled my rear vision. My body reacted before my mind could. 
 
-It was like an electric shock that launched me over a yard forward—just as the water erupted and a 40-foot-long alligator sprung from the water. I couldn’t even scream as the giant mouth—God, as long as my body—snapped shut right where I had been a moment before. Two huge, yellow eyes perched on the top of the head blinked quickly before readjusting.
+It was like an electric shock that launched me forward—just as the water erupted and a 40-foot-long alligator sprung from the water. I couldn’t even scream as the giant mouth—*as big as I was*—snapped shut right where I had been a moment before. Two huge, yellow eyes perched on the top of the head blinked in succession before readjusting.
 
-I tore in a great breath and screamed at the top of my lungs before sprinting away. All breathing on the comms stopped. The ground trembled behind me. I held tight to the canister and threw the spade behind me without looking. One look in the rearview camera and all I saw was a maw and two huge, thick forelegs pinwheeling through the muck to get to me.
+I tore in a great breath and screamed at the top of my lungs before sprinting away. All breathing on the comms stopped. I held tight to the canister and threw the spade behind me without looking. One look in the rearview camera and all I saw was a maw and two huge, thick forelegs pinwheeling through the muck to get to me. The ground sympathetically vibrated with the creature’s bulk as it pursued me. 
 
-I think Dr. Jameson discussed it once in a lecture. A crocodilian large enough that it ate dinosaurs. 6-7 tons. Teeth marks had been found on dinosaur bones that matched—and that hissing monster was hot on my tail. 
+I think Dr. Jameson discussed it once in a lecture. How teeth marks had been found on dinosaur bones—and that hissing monster was hot on my tail. A crocodilian large enough that it ate dinosaurs. 6-7 tonnes. 
 
-I had a horrifying vision—the crocodile would leap forward with a tremendous hiss and the jaws would snap closed on a foot—then like all crocodilians it would drag me back to the water and spin around until my bone snapped, or even worse, swallow me whole.
+I had a horrifying vision—the crocodile would leap forward with a tremendous hiss and the jaws would snap closed on a foot—then like all crocodilians it would drag me back to the water and spin around until my bone snapped, or even worse, swallow me whole. I remembered the name Dr Jameson called it, and the pneumonic device that helped me remember. *Dino-sook-us* Deinosuchus. 
 
-“Deinosuchus!” I screamed.
+I sprinted into the brush, hoping that the increased cover would slow down the animal. I nearly ran into Cruz, whose eyes were wide with a mixture of delight and fear. “Run, stupid!” I slapped him on the back, and he sprinted after me. Branches snapped as the Deinosuchus barreled through the brush to us. Shrubbery and young trees were parted like the Red Sea, pushed aside as if by a mudslide.
 
-I sprinted into the brush, hoping that the increased cover would slow down the animal. I nearly ran into Cruz, whose eyes were wide with a mixture of delight and fear. “Run, stupid!” I slapped him on the back, and he sprinted after me. Branches snapped as the Deinosuchus barreled through the brush to us. Shrubbery and young trees were parted like the Red Sea, pushed aside as if by a mudslide. The radio was filled with chatter.
+I screamed the name over the comms. “*Deinosuchus! Deinosuchus in the water!*” The radio filled with chatter.
 
 “Deinosuchus?”
 
@@ -288,7 +288,7 @@ Cruz’s breathing clouded the comms channel, but we all heard the groans of Dr.
 
 The comms filled with a terrible hiss, which echoed less than 50 yards away. Dr. Potter began to scream.
 
-“No! Somebody—Ahh!! *Somebody please help me!*” We each made our way to the entrance to the pod and filed through, tripping over each other with as much eagerness as we had when we stepped into this scape. Dr. Potter’s screams continued.
+“No! Somebody—Ahh!! *Somebody please help me!*” We each made our way to the entrance of the shuttle and filed through, tripping over each other with as much eagerness as we had when we stepped outside. Dr. Potter’s screams continued.
 
 “*My leg! It’s got my leg! Dr. Chilto—*” a loud crack like a gunshot whipped through the air, along with a piercing scream that hovered on the border between human and inhuman. The ground began to tremble again, and our comms were filled with a huge splash, and the flurry of water bubbles on the glass of Dr. Potter’s helmet. The screams continued, all attempt at words gone for a few moments. We were all in the antechamber of the shuttle, frozen in place.
 
@@ -314,15 +314,23 @@ We all froze and looked at each other in stunned silence.
 
 A beat of silence. “…no. It got me. Please don’t leave.” Her voice jerked and she let out a low moan. “I don’t want to die alone.”
 
+A watery scraping sound echoed over the comms, and the ground began to vibrate again. Her breaths became louder and clearer, as did the vibration. The Deinosuchus was crawling back out of the water again. 
+
 “Oh my god.” Ben raised his hands to the sides of his helmet. “I think…I think she’s *inside it* right now.”
 
-A broken sob fluttered through the speakers. I felt suddenly nauseous and hugged my stomach. I we listened in horror as the same cracking I heard on the other side of the wall played over the comm. Her helmet was cracking under the pressure.
+A broken sob fluttered through the speakers, crystal clear. I felt suddenly nauseous and hugged my stomach. We listened in horror as a familiar played over the comm—the same cracking I heard on the trip here. 
 
-“Please, please don’t leave me.” Her voice turned to weak sobs and more cracking. Her breath hitched for a moment, and the cracking morphed into a splintering. “Please…please stay.” It became more intense for a moment, followed by the tight wheezing as some terrifying pressure contracted over her body. Then, with a sick grunt, her last word:
+Her helmet was giving way under the pressure of peristalsis. 
 
-“Eugh-”
+“Please, please don’t leave me.” Her voice turned to weak sobs and more cracking. Her breath hitched for a moment, and the cracking became accented by another new groan. What was it? Her skull? 
 
-The cracking stopped suddenly and was replaced with a low rumble. Both Texas and Ben twisted their helmets off and leaned to the side to vomit. I looked away as the retching filled my helmet. After a few moments, like a zombie, I began to fasten the buckles over my chest. After I was done I stared down at the small conifer in my hands.
+“Please…please stay.” The sounds became more intense for a moment, followed by the tight wheezing of Dr Potter’s chest compressing as some terrifying pressure contracted over her body. Then, with a sick grunt, her last word:
+
+“*Eugh-*”
+
+The cracking stopped suddenly and was replaced with a low, paralyzing crunch. To my left, just on the other side of the wall, the ground rumbled. 
+
+Both Texas and Ben twisted their helmets off and leaned to the side to vomit. I looked away as the retching filled my helmet. After a few moments, like a zombie, I began to fasten the buckles over my chest. After I was done I stared down at the small conifer in my hands. 
 
 I looked up again when Dr. Chilton asked us all if we were ready to leave. We all raised our hands. The comms cut off without another word. The trip back to the future was rough. The whole time I kept the plant close to my chest, and when I heard cracking on the other side of the wall, I blocked it out.
 

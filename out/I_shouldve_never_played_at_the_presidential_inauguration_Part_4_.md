@@ -31,3 +31,5 @@ But Tom bit Ethan’s arm off, I ran, and then I heard Ethan scream in pain, and
 I did find a map, and we went from sad to enthusiastic, the nearest city, Richmond, was only 6 miles away! We knew we could get there before the day was over, this could also be our first night where we didn’t have to sleep in an abandoned town or the woods! So me, Ernest, and Aiden embarked on the route to Richmond.
 
 Now, since the journey was long, it took hours of rest and walking to get there, and it got dark easily, but then I saw the city lights, those skyscrapers, life, cars, everything. I knew we finally achieved our first sign of progress. 
+
+Part 5: https://www.reddit.com/r/nosleep/s/tvShTkXrIF
