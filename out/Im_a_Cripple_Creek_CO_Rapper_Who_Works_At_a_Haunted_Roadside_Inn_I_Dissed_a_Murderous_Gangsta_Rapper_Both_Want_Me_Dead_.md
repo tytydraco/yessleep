@@ -326,13 +326,15 @@ Tonight, she had found herself a biker. The guy looked like he had been in a bar
 
 He threw some crumpled-up bills on the counter. “Room for the night.”
 
-Tina winked at me as they took the key.
+Tina winked at me.
 
 “You need anything, I’ll be in Room 9,” she said, popping her gum. “Like hell,” the biker grumbled, already leading her toward the stairs. I sighed, grabbed the key for Room 9, and tossed it over.
 
 “Enjoy your stay.”
 
 It wasn’t until later that Tina came back. She barged into the lobby, her mascara smudged, looking pale as hell. I frowned. “What now?”
+
+"Yo, there's a fuckin ghost out there!" 
 
 She jabbed a thumb toward the courtyard.
 
@@ -421,6 +423,7 @@ But suddenly, I was behind the front desk again, panting like I’d just run a m
 The radio was off.
 
 The motel was quiet.
+
 
 
 **Has anyone experienced anything like this before? If you know something about “the signals” or pirate radio stations, let me know. I swear this isn’t a joke...**
