@@ -1,3 +1,7 @@
+  
+part 1  
+  
+  
 The homeless people who come into the ER have no brains. I work in an ER near San Diego, and the homeless people who come in are not normal. Normally, if someone comes in, you'll sometimes see something unusual, like trench foot on someone. Other times, it's full-blown human mites or infected needle tracks that create giant buboes of pus.
 
 But in the last few days, homeless people have been coming in… without their brains. Not like their heads have been cut off or we’ve just received a body, but they walk in and sit down in the lobby until someone starts taking care of them. As soon as we get an X-ray, there's nothing there—just the remnants of a spinal cord that keeps them alive. No surgery marks. No signs of trauma to the head.
