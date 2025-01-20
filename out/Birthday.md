@@ -6,7 +6,7 @@ Wiping the tears from my face, I took a look around my immediate area, a dull pa
 
 My bones shook into action; my legs tugged against gravity’s pull, the blood engine in my chest firing on all cylinders. I ran frantic across the field without looking back, falling dust caressing my frightened skin as it whipped past.
 
-“Help!” Creped my exhausted pleading voice from across the dead field and into my ear, “Someone please help me.”
+“Help!” Crept my exhausted pleading voice from across the dead field and into my ear, “Someone please help me.”
 
 I dove over the fence at the edge of the field and tumbled into the treeline. Scrambling through the dust in a panic, I blindly reached for roots to brace my accent to my feet. A silent wince escaped my lungs, as my hand fell through the roots like they were made of sand; the dust billowed up as I stumbled, revealing the bones that hid beneath the dust. The musty damp smell of marrow perforated my sinuses, and reality collapsed in on me. I was running again, the snap and crunch of bone popping beneath my feet, meandering my way through the treeline between the fields. My desperate mangled screams were muffled by the distance, and all I knew was that I was heading for the hills, for the cottage perched atop them; the thought of four walls gave me peace.
 
