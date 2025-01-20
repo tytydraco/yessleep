@@ -160,4 +160,4 @@ Most importantly, I bought a custom built suitcase off the internet with zebra s
 
 If you're ever at the airport and you recognize my bag from this story, I give you permission to come up and say hi. I make it a point to try and meet friendly people, and move forward with my life.  Who knows, if you catch me in the right mood, I may even show you my removable teeth.
 
-As far as I know, I’m the only 27 year old with grandma [dentures.](https://www.reddit.com/r/EclosionK2/comments/1g0837r/welcome/)
+As far as I know, I’m the only 27 year old with full blown grandma [dentures.](https://www.reddit.com/r/EclosionK2/comments/1g0837r/welcome/)

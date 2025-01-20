@@ -314,15 +314,15 @@ We all froze and looked at each other in stunned silence.
 
 A beat of silence. “…no. It got me. Please don’t leave.” Her voice jerked and she let out a low moan. “I don’t want to die alone.”
 
-A watery scraping sound echoed over the comms, and the ground began to vibrate again. Her breaths became louder and clearer, as did the vibration. The Deinosuchus was crawling back out of the water again. 
+A watery scraping sound echoed over the comms, like hands on a freshly-washed window. The ground began to vibrate again. Her breaths became louder and clearer, as did the vibration. 
 
 “Oh my god.” Ben raised his hands to the sides of his helmet. “I think…I think she’s *inside it* right now.”
 
-A broken sob fluttered through the speakers, crystal clear. I felt suddenly nauseous and hugged my stomach. We listened in horror as a familiar played over the comm—the same cracking I heard on the trip here. 
+A crystal-clear, broken sob fluttered through the speakers. I felt suddenly nauseous and hugged my stomach. We listened in horror as a familiar noise played over the comm—the same cracking I heard on the trip here. 
 
 Her helmet was giving way under the pressure of peristalsis. 
 
-“Please, please don’t leave me.” Her voice turned to weak sobs and more cracking. Her breath hitched for a moment, and the cracking became accented by another new groan. What was it? Her skull? 
+“Please, please don’t leave me.” Her voice turned to weak sobs and more cracking. Her breath hitched for a moment, and the cracking became accented by another new groan.  
 
 “Please…please stay.” The sounds became more intense for a moment, followed by the tight wheezing of Dr Potter’s chest compressing as some terrifying pressure contracted over her body. Then, with a sick grunt, her last word:
 
