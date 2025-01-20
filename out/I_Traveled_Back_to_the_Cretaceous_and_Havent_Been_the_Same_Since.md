@@ -72,15 +72,13 @@ He began to stress that there was a set of rules that we needed to follow. Rules
 
 \-We can’t remove our suits. Just like an astronaut. Removal of suits means that there could be cross contamination of microbes.
 
-\-In case of an injury, like a sprained ankle or cut, everyone must return to the shuttle.
-
-\-All collected material must be kept in the material bags and under quarantine, and
+\-In case of an injury, like a sprained ankle or cut, everyone must return to the shuttle, and 
 
 \-If any of our suits are punctured, we must undergo quarantine until we are sure that there is no cross contamination to the present.
 
  
 
-I didn’t know there was so much dedicated to preventing cross contamination…but it made sense. After a long, long lecture about how the machine worked (why would we need to know that?) he finally closed the talking with “In each of your folders you have objectives, written by your mentors. That is your goal on this trip. Read as we walk to the next building.”
+After a long, long lecture about how the machine worked (why would we need to know that?) he finally closed the talking with “In each of your folders you have objectives, written by your mentors. That is your goal on this trip. Read as we walk to the next building.”
 
 In the folder I read my objectives from Dr. Jameson. The whole thing took up less than half a page:
 
@@ -96,9 +94,7 @@ We are travelling to the late Cretaceous, so there should be some angiosperms vi
 
  
 
-I swallowed and braced myself as we walked back outside. It was well into morning now. Our breath reminded me of a locomotive train—the way it billowed up and hung in the air like a noose over each of us. I shivered from the cold and reread my objectives. Pteridophyte is a spore-bearing plant. The obvious choice was a fern—those would be everywhere. Gymnosperms would be a conifer—so perhaps Metasequoia? My mind kept running through the probable plants we would encounter until I remembered the first line on the objective sheet: 
-
-It is likely that we will not recognize most of the plant species there.
+I swallowed and braced myself as we walked back outside. It was well into morning now. Our breath reminded me of a locomotive train—the way it billowed up and hung in the air like a noose over each of us. I shivered from the cold and reread my objectives.
 
 I forgot the particulars and resigned myself to three different things: one fern, one conifer, and whatever flowering plant I could find. I read through the sheet a few more times until we finally entered a new building. After a few moments Dr. Chilton separated us each by gender and someone led us to separate rooms. A group of people were there waiting for us.
 
@@ -148,15 +144,15 @@ I eased myself down into a seat and waited for Dr. Jameson to sit beside me. She
 
 Cruz sat to my right, and Texas further down. Ben sat directly in front of me, and Utah next to him. They were engaged in conversation over the comms—something about seatbelts. I looked over my shoulder and saw belts like on a car seat. We had to be strapped in for the trip. I wasn’t sure what I was thinking—maybe something more space-y, or even like the buckles found on airplanes. I followed suit, sure that they all connected properly into a buckle at the center of my chest.
 
-Dr. Meyers walked around and checked each of our restraints. Never mind, it felt like a carnival ride. Yeah, a carnival ride. And Dr. Meyers was checking to make sure that all of us were safe. He tugged and tightened the straps until each of us could barely move. When he got to me he pulled so tight on a strap that it felt difficult to breathe. I told him so, but he didn’t acknowledge me.
+Dr. Meyers walked around and checked each of our restraints. He tugged and tightened the straps until each of us could barely move. When he got to me he pulled so tight on a strap that it felt difficult to breathe. I told him so, but he didn’t acknowledge me.
 
-I took a deep breath and stealthily loosened the strap he pulled tight. When he was satisfied, we all sat down. No one was talking. Over the Comms I could hear someone breathing heavily. My legs started to bounce. It seemed like it took forever, but Dr. Meyers finally sat down in his chair and buckled himself in. Once he settled in, Dr. Chilton’s voice came over. It was cold.
+Over the Comms I could hear someone breathing heavily. My legs started to bounce. It seemed like it took forever, but Dr. Meyers finally sat down in his chair and buckled himself in. Once he settled in, Dr. Chilton’s voice came over. It was cold.
 
 “Here is what’s going to happen. I’m going to flip a few switches, press a few buttons. Nothing for you to worry about. You may feel queasy afterwards. If you need to vomit afterwards, be sure to do it in the bathroom.” He pointed at a curtained-off area in the corner.
 
 “During the trip you’ll feel yourself being tugged in multiple ways—almost like your rolling around in a box. Don’t worry about that—it is perfectly normal. Be sure to grit your teeth and don’t loosen your jaw—we’d all like to keep our tongues.” We all nervously chuckled.
 
-“Keep your arms close to your chest, and see those loops on the ground in front of you? Put your feet through those.” I struggled to see over the lip of my visor. There were black bands sticking out of the floor—I must have stepped on them on the way to the seat. I shimmied my feet into them and hugged my torso.
+“Keep your arms close to your chest.” I hugged my torso.
 
 “Lastly,” Dr. Chilton’s voice became flat. “We’re going to turn off the coms. Travelling messes with them, and it’s much better to have them off. It’ll be disconcerting but know that we’re all right here. By a show of hands, is everyone ready?”
 
@@ -168,11 +164,13 @@ I’d like to think we all watched as Dr. Chilton flipped a few switches, but I 
 
  
 
-I know what Dr. Chilton said, but I still wasn’t prepared for the violence of the movements the room made. Immediately we were pressed back into our seats like we were in a jet. A loud, pervasive hum started to fill the room. I gripped my sides and squeezed tight as I got squished more and more into the back of my chair, and suddenly we jerked to the left. Through the helmet I could hear a few of us cry out. Utah sounded particularly terrified. The hum became louder, so loud it reverberated up through the chair and made my head rattle. It was like I had my head on a bus window, but multiplied by 50.  We jerked a second time, and this time I saw Cruz’s arm fly into my field of vision. I closed my eyes and started to count.
+I know what Dr. Chilton said, but I still wasn’t prepared for the violence of the movements the room made. Immediately we were pressed back into our seats like we were in a jet. A loud, pervasive hum started to fill the room. I gripped my sides and squeezed tight as I got squished more and more into the back of my chair, and suddenly we jerked to the left. Through the helmet I could hear a few cry out. The hum became louder, so loud it reverberated up through the chair and made my head rattle. It was like I had my head on a bus window again, but multiplied by 50.  We jerked a second time, and this time I saw Cruz’s arm fly into my field of vision. I closed my eyes and started to count.
 
 It was a bad idea to close my eyes—I was overcome with an intense sense of vertigo. I opened them just as we spun into a barrel roll, like we were a drill tunneling through some dense strata. We jerked forward and rolled some more, then stopped abruptly. My head flung forward and crashed back into my headrest—cushioned, thankfully. I looked around, expecting it to be over. None of the Doctors moved.
 
-That was when I heard the cracking sound. It came from the wall to my left. I stopped breathing for a second to listen better. Yeah, a cracking sound. It sounded like glass cracking, on the verge of breaking under some tremendous weight.
+That was when I heard the cracking. 
+
+It came from the wall to my left. I stopped breathing for a second to listen better. Yeah, a cracking sound. It sounded like glass cracking, on the verge of breaking under some tremendous weight.
 
 Then I heard someone moaning on the other side.
 
