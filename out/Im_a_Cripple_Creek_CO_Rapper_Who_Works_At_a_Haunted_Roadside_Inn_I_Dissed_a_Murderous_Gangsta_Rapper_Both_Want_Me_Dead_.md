@@ -90,7 +90,7 @@ I rubbed my temples. “Ray, I don’t know what half those words mean in this c
 
 Big Ray leaned in, deadly serious. “That’s ‘cause you **AIN’T LIVIN’ ‘EM**.”
 
-I sighed. “I don’t have time for philosophy from a guy who once claimed he ***suplexed Bigfoot*****.**”
+I sighed. “I don’t have time for philosophy from a guy who once claimed he ***suplexed Bigfoot*****.
 
 Big Ray slammed a fist on the table. “**CLAIMED?! I DID SUPLEX BIGFOOT.**"
 
@@ -422,7 +422,6 @@ The radio was off.
 
 The motel was quiet.
 
-I just finished my shift, and I'm about to go home and attempt to get some sleep. *Which I doubt will be possible*, **so wish me luck.**
 
 **Has anyone experienced anything like this before? If you know something about “the signals” or pirate radio stations, let me know. I swear this isn’t a joke...**
 
