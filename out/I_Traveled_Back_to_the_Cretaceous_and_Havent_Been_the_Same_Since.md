@@ -228,7 +228,7 @@ It was on my third trip that things went wrong.
 
 I left the shuttle with the intent to dig up a small gymnosperm—maybe a prehistoric pine? I spotted a small sapling about 15 yards to the right on the bank of a stretch of water. I jogged over and fell to my knees once again before extracting the tiny tree—only a foot tall at most. I reached down into the soil with the spade and cut through the deepest root. After scooping a few bits of muddy soil up I dropped the plant into the canister.
 
-Some of the water to my right rippled—I looked over and saw something in the water. It was a tiny splash, barely a ripple.
+Some of the water to my right rippled—I looked over and saw something in the water. It was a tiny splash.
 
 “Hey Cruz?” I asked over the comms.
 
@@ -240,13 +240,17 @@ Some of the water to my right rippled—I looked over and saw something in the w
 
 His head bobbed over the ferns and shrubs like a disembodied apparition. I waved my hand high so he could more easily locate me. As I did that I noticed the water splash in my rearview cam.
 
-It’s stupid, really, that we thought being in a swamp was a smart idea. What I saw in that grainy footage will haunt me to this day.
+It’s stupid, really, that we thought being in a swamp was a smart idea. What I saw in that grainy footage will haunt me to this day—even though I never saw it with my own eyes. 
 
-Over 15 feet of a rough, scaly spine rose up to the surface of the water. The splash was made by the tail, and I took a moment to process it. The tail. Was it that long? My body reacted before my mind could. It was like an electric shock that launched me over a yard forward—just as the water erupted and a 40-foot-long alligator sprung from the water. I couldn’t even scream as the giant mouth—God, as long as my body—snapped shut right where I had been for a moment before. Two huge, yellow eyes perched on the top of the head blinked quickly before readjusting.
+Over 15 feet of a rough, scaly spine rose up to the surface of the water. The splash was made by the tail, and I took a moment to process it. Was it that long? My body reacted before my mind could. 
+
+It was like an electric shock that launched me over a yard forward—just as the water erupted and a 40-foot-long alligator sprung from the water. I couldn’t even scream as the giant mouth—God, as long as my body—snapped shut right where I had been a moment before. Two huge, yellow eyes perched on the top of the head blinked quickly before readjusting.
 
 I tore in a great breath and screamed at the top of my lungs before sprinting away. All breathing on the comms stopped. The ground trembled behind me. I held tight to the canister and threw the spade behind me without looking. One look in the rearview camera and all I saw was a maw and two huge, thick forelegs pinwheeling through the muck to get to me.
 
-I think Dr. Jameson discussed it once in a lecture. A crocodilian large enough that it ate dinosaurs. 6-7 tons. Teeth marks had been found on dinosaur bones that matched—and that hissing monster was hot on my tail. I couldn’t let it catch me. I had a horrifying vision—the crocodile would leap forward with a tremendous hiss and the jaws would snap closed on a foot—then like all crocodilians it would drag me back to the water and spin around until my bone snapped, or even worse, swallow me whole.
+I think Dr. Jameson discussed it once in a lecture. A crocodilian large enough that it ate dinosaurs. 6-7 tons. Teeth marks had been found on dinosaur bones that matched—and that hissing monster was hot on my tail. 
+
+I had a horrifying vision—the crocodile would leap forward with a tremendous hiss and the jaws would snap closed on a foot—then like all crocodilians it would drag me back to the water and spin around until my bone snapped, or even worse, swallow me whole.
 
 “Deinosuchus!” I screamed.
 
@@ -260,7 +264,9 @@ I sprinted into the brush, hoping that the increased cover would slow down the a
 
 “Why is the ground trembling?”
 
-Cruz ran to the left of the shuttle, and I instinctively ran to the right. A part of my eye trained on the rearview camera and felt relieved when I saw that the Deinosuchus paused before pursuing Cruz. I felt a stab of guilt—but I was alive. I kept running and adjusted my course to get to everyone else. I dropped the canister onto the spongy earth and Dr. Jameson ran towards me. The rumbling in the ground faded and then stilled. In the distance there was still the sound of branches snapping.
+Cruz ran to the left of the shuttle, and I instinctively ran to the right. I focused on the rearview camera and felt relieved when I saw that the Deinosuchus paused before pursuing Cruz. I felt a stab of guilt—but I was alive. I kept running and adjusted my course to get to everyone else. 
+
+I dropped the canister onto the spongy earth when Dr. Jameson ran towards me. The rumbling in the ground faded and then stilled. In the distance there was still the sound of branches snapping.
 
 “Are you ok? What happened?”
 
@@ -278,15 +284,15 @@ We all froze as a weak scream echoed over the intercom, and then the Deinosuchus
 
 Cruz’s breathing clouded the comms channel, but we all heard the groans of Dr. Potter. I still can't get them out of my head. Sometimes I find my mind wandering to what it must have been like, how she probably scrabbled backwards in the muck to get away.
 
-“No…no no no no!” Her petulant voice snagged on each breath she took as the ground rumbled again. “Cruz? Somebody?”
+“No…no no no no!” Her petulant voice snagged on each breath she took. “Cruz? Somebody?”
 
 The comms filled with a terrible hiss, which echoed less than 50 yards away. Dr. Potter began to scream.
 
-“No! Somebody—Ahh!! Somebody please help me!” The hiss became loud before it stopped abruptly. We each made our way to the entrance to the pod and filed through, tripping over each other with as much eagerness as we had when we stepped into this scape. Dr. Potter’s screams continued and were punctuated by ominous groaning and cracking.
+“No! Somebody—Ahh!! *Somebody please help me!*” We each made our way to the entrance to the pod and filed through, tripping over each other with as much eagerness as we had when we stepped into this scape. Dr. Potter’s screams continued.
 
-“My leg! It’s got my leg! Dr. Chilto—” a loud crack like a gunshot whipped through the air, along with a piercing scream that hovered on the border between human and inhuman. The ground began to tremble again, and our comms were filled with a huge splash, and the flurry of water bubbles on the glass of Dr. Potter’s helmet. The screams continued, all attempt at words gone for a few moments. We were all in the antechamber of the shuttle, frozen in place.
+“*My leg! It’s got my leg! Dr. Chilto—*” a loud crack like a gunshot whipped through the air, along with a piercing scream that hovered on the border between human and inhuman. The ground began to tremble again, and our comms were filled with a huge splash, and the flurry of water bubbles on the glass of Dr. Potter’s helmet. The screams continued, all attempt at words gone for a few moments. We were all in the antechamber of the shuttle, frozen in place.
 
-I gripped my canister tighter and closed my eyes. This didn’t help. A terrific rumbling filled our ears. The screams were fainter now, but we stared at each other in horror as they became jerky, like a kid cooing as its parent bounced it on their knee.
+I gripped my canister tighter and closed my eyes. A terrific rumbling filled our ears. The screams were fainter now, but we stared at each other in horror as they became jerky, like a kid cooing as its bounced on its parent’s knee.
 
 Cruz appeared in the door of the shuttle, prompting half of us to scramble away and the other half to scream. He ignored us and shambled past to collapse in his chair. Mud caked his boots and spattered the back of his legs. His breaths drowned out the near-mute groans of Dr. Potter.
 
@@ -298,19 +304,19 @@ I set my canister down in a stupor and fished for the handle to the door. Dr. Ja
 
 “No…please.” Dr. Potter said. It was fuzzy, but it was her. “Please don’t leave.”
 
-We all froze and looked at each other in stunned silence. She was alive!
+We all froze and looked at each other in stunned silence.
 
-“Dr. Potter, can you hear me?” Chilton said.
+“Potter, can you hear me?” Chilton said.
 
-“Yes.” A weak reply, but stronger, clearer. Utah put a hand over her heart and held back a sob.
+“Yes.” A weak reply, but the signal was stronger, clearer. Utah put a hand over her heart and held back a sob.
 
 “Can you make it to the door? Has the Deinosuchus left you alone?”
 
 A beat of silence. “…no. It got me. Please don’t leave.” Her voice jerked and she let out a low moan. “I don’t want to die alone.”
 
-“Oh my god.” Ben raised his hands to the sides of his helmet. “I think…I think she’s inside it right now.”
+“Oh my god.” Ben raised his hands to the sides of his helmet. “I think…I think she’s *inside it* right now.”
 
-A broken sob fluttered through the speakers. I felt suddenly nauseous and hugged my stomach. I listened in horror as the same cracking I heard on the other side of the wall played over the comm. Her helmet was cracking under the pressure.
+A broken sob fluttered through the speakers. I felt suddenly nauseous and hugged my stomach. I we listened in horror as the same cracking I heard on the other side of the wall played over the comm. Her helmet was cracking under the pressure.
 
 “Please, please don’t leave me.” Her voice turned to weak sobs and more cracking. Her breath hitched for a moment, and the cracking morphed into a splintering. “Please…please stay.” It became more intense for a moment, followed by the tight wheezing as some terrifying pressure contracted over her body. Then, with a sick grunt, her last word:
 
