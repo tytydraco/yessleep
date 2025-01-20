@@ -38,15 +38,7 @@ I nodded--it’s in Washington.
 
 A solid hand landed on his shoulder. He jumped slightly and looked back at Dr. Jameson. “No, let me.” She said cooly. His smile was weak in return.
 
-“And you are?”
-
-“Dr. Jameson. And you?”
-
-“Ben—f-from the magazine.”
-
-Her eyebrows raised. “Well, Ben from the magazine, I think I’ll introduce my candidate to everyone else. I appreciate your involvement.”
-
-She steered me towards the professors and away from ‘everyone else’. I didn’t think it was possible, but my hands got even clammier.
+Without another word she steered me towards the professors and away from ‘everyone else’. I didn’t think it was possible, but my hands got even clammier.
 
 “Grahm, this is Dr’s Chilton, Meyers, and Potter.” She motioned to the three people before us. They each shook my hand in turn. “Drs, this is my mentee, Grahm. He’s especially interested in the evolutionary lineage of vascular plants, and one of my brightest students. Ask him anything about evolutionary taxonomy and you won’t be able to shut him up!”
 
@@ -104,7 +96,9 @@ We are travelling to the late Cretaceous, so there should be some angiosperms vi
 
  
 
-I swallowed and braced myself as we walked back outside. It was well into morning now. Our breath reminded me of a locomotive train—the way it billowed up and hung in the air like a noose over each of us. I shivered from the cold and reread my objectives. Pteridophyte is a spore-bearing plant. The obvious choice was a fern—those would be everywhere. Gymnosperms would be a conifer—so perhaps Metasequoia? My mind kept running through the probable plants we would encounter until I remembered the first line on the objective sheet: It is likely that we will not recognize most of the plant species there.
+I swallowed and braced myself as we walked back outside. It was well into morning now. Our breath reminded me of a locomotive train—the way it billowed up and hung in the air like a noose over each of us. I shivered from the cold and reread my objectives. Pteridophyte is a spore-bearing plant. The obvious choice was a fern—those would be everywhere. Gymnosperms would be a conifer—so perhaps Metasequoia? My mind kept running through the probable plants we would encounter until I remembered the first line on the objective sheet: 
+
+It is likely that we will not recognize most of the plant species there.
 
 I forgot the particulars and resigned myself to three different things: one fern, one conifer, and whatever flowering plant I could find. I read through the sheet a few more times until we finally entered a new building. After a few moments Dr. Chilton separated us each by gender and someone led us to separate rooms. A group of people were there waiting for us.
 
