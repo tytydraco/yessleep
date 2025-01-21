@@ -1,3 +1,5 @@
+[Link to part two.](https://www.reddit.com/r/nosleep/s/YfadqQj6Te)
+
 I used to think the world was simple. You go to work, come home, binge a few shows, maybe grab a drink or two, and wake up to do it all over again. Life isn’t exciting, but it’s comfortable. Until you see something—or someone—that tears your concept of reality apart.
 
 I don’t know what I saw. I don’t know if he’s a man or a monster, but I saw him. And I think I was never supposed to live to tell anyone about it.
