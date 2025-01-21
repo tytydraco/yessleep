@@ -106,7 +106,7 @@ I had, suddenly, forgotten what it was I was afraid of. At this point, I was wel
 
 The bartender laughed, “Making up for lost time, are we?”
 
-I arched my brow in confusion. “Excuse me?” But he had already scurried off to make our drinks. I was trying to make sense of the bartender’s snide comment when Austin appeared next to me.
+I arched one brow. “Excuse me?” But he had already scurried off to make our drinks. I was trying to make sense of the bartender’s snide comment when Austin appeared next to me.
 
 “Did you order?”
 

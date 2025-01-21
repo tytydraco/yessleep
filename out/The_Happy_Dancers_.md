@@ -53,7 +53,7 @@ I didn't see them after that for years, but I always thought about them. I was j
 
 Every night, I replayed it and replayed it, painting shapes in my mind using their dancing movements as the brush, obsessing over the feeling of enticement I'd felt those two nights.
 
-By the time I was 11, I really began to wonder if I even saw anything at all.
+By the time I was approaching the age of 13, I really began to wonder if I even saw anything at all.
 
 That was before they began to appear everywhere in my teenage years, from my first year of highschool, like a multiplying infection that only I was able to see. 
 
