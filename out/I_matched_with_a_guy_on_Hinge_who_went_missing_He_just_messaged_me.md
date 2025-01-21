@@ -1,4 +1,4 @@
-Let me start this story off by saying I have NEVER been a fan of dating apps. Let me make that abundantly clear. They always felt forced. I thought relationships were supposed to come naturally. 
+Let me start this story off by saying I have NEVER been a fan of dating apps. I want to make that abundantly clear. They always felt forced. I thought relationships were supposed to come naturally. 
 
 People always say love comes when you least expect it or whatever but I’ve found that it truly does sneak up on you in a sense. I didn’t believe anyone could find love through seeking it out online, let alone with these swipes and likes- decisions based solely on where a person falls on their scale of attractiveness. 
 
@@ -8,7 +8,7 @@ And, boy, did it.
 
 I matched with Austin the second day after I had downloaded Hinge. I was lying in bed on a Sunday night, the usual existential dread of the work week ahead hitting me harder than usual.  I was searching for a distraction so I opened the app to see what it was all about. Honestly, at this point, I was still trying to figure out how it worked. I saw all these blurry images of men who had supposedly “sent me a like” but every time I attempted to tap on one, I got nothing. I eventually realized I had to start from the top of the list; liking and disliking each man one by one. 
 
-I was skeptical at first. It felt superficial. Sending likes out to men I found appealing while discarding others who were… less appealing. There were plenty of messages, too. “You cute,” “Huge fan of your parents' work,” and “What’s a gorgeous girl like you doing on this app?” were common. I attempted to read the prompts to see if the answers would provide me with more than a couple of pictures of a guy holding the same fish. But at the end of the day, I got bored of reading and it all boiled down to whether or not I’d take them to bed. 
+I was skeptical at first. It felt superficial: sending likes out to men I found appealing while discarding others who were… less appealing. There were plenty of messages, too. “You cute,” “Huge fan of your parents' work,” and “What’s a gorgeous girl like you doing on this app?” were common. I attempted to read the prompts to see if the answers would provide me with more than a couple of pictures of a guy holding the same fish. But at the end of the day, I got bored of reading and it all boiled down to whether or not I’d take them to bed. 
 
 After a handful of dislikes and a feeling of fleeting hope for humanity, I found him. Austin was handsome. The first picture displayed a muscular man with a crown of auburn hair and emerald eyes. Nuzzling his large arm was a Golden Retriever puppy. I’ve always had a soft spot for puppies + hot men so I was immediately enthralled. I scanned his pictures and read some of his prompts. One read, “We’d get along if: you also want to delete this app.” Upon reading that, I was sold. He was in my “likes you” list so all I had to do was send him a like back. The second I tapped the heart button signaling my mutual interest, I figured that was enough Hinge activity for the night. I turned off my phone and fell asleep.  
 
@@ -34,9 +34,9 @@ One new message from Hinge.
 
 I knew it was Austin. I began to sweat profusely, swiping at my brow. Before, a text from Austin gave me butterflies. But now, these butterflies had morphed into bats that were draining the blood from my intestines.  
 
-Now, believe me: I considered all the obvious options. I thought of contacting the police, contacting his family. Letting them know I was messaging Austin or at least informing them of his presence on social media.
+Believe me: I considered all the obvious options. I thought of contacting the police, contacting his family. Letting them know I was messaging Austin or at least informing them of his presence on social media.
 
-No, no, I was being dramatic, right? There had to be a rational explanation for this.  I had this tendency to downplay the gnawing feeling in my gut; the one you get when something doesn't feel right: intuition. This was courtesy of my ex, who instilled this self-doubt and depreciation into me throughout the past 8 years.
+But I was being dramatic, right? There had to be a rational explanation for this.  I had this tendency to downplay the gnawing feeling in my gut; the one you get when something doesn't feel right: intuition. This was courtesy of my ex, who instilled this self-doubt and depreciation into me throughout the past 8 years.
 
 At the time, I concluded that the person I was messaging was not Austin. It was the only explanation I could come up with. The smallest part of me was so curious about who was on the other side of my phone, who I had been communicating with all this time, that I decided to toy with the idea of playing along, at least for a little while longer. I mean, whoever this person was, we were really hitting it off! For all I knew, I was being catfished. There was no possibility, using all of the logical parts of my brain, that a missing man was messaging me. 
 
@@ -150,6 +150,6 @@ In the following days, I tried to contact him to no avail. The night after our d
 
 The screen displayed the same photo of Austin, Golden Retriever and all, as the reporter spoke:
 
-“Breaking news: The body of 27-year-old Austin Jackson has been found in the (redacted) canal along (redacted) street. Officials say they suspect the body has been in the canal since last Saturday night. Thought and prayers are with his family tonight as they mourn the tragic-”
+“Breaking news: The body of 27-year-old Austin Jackson has been found in the (redacted) canal along (redacted) street. Officials say they suspect the body has been in the canal since last Saturday night. Thoughts and prayers are with his family tonight as they mourn the tragic-”
 
 I turned off the TV. 
