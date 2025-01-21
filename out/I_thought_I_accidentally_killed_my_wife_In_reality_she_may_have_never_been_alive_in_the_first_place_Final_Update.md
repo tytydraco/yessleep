@@ -62,7 +62,7 @@ I knew ignoring the question was a surefire way to amplify her outrage, so I sim
 
 \*“\****JACK.*** *There is no* ***your*** *Camila. The thing you married was artificial intelligence crammed into the Alloy. It’s not human, it never was human. That was the whole point. You were* ***supposed*** *to bridge the gap. In a sense, you’ve been contractually obligated to bridge the gap. I needed you to conjure some humanity out of that fucking shell.”*
 
-Almost where I was a few minutes ago, she paused her diatribe to knock over an end table. The ceramic lamp it held didn't break when it the ground, but it sure as hell added to the cacophony, and I think that was her intent.
+Almost where I was a few minutes ago, she paused her diatribe to knock over an end table. The ceramic lamp it held didn't break when it the ground, but it definitely added to the cacophony, and I think that was her intent.
 
 “*Now, if you’re talking about the* ***version*** *of Camila that you married, that shit is long gone. Has been for weeks, now. Sure as hell went down swinging, turned one of our best security officers into rice pudding splattered all over your apartment. But we smelted down that Alloy, erased the consciousness on its Antihelix, too.*
 
