@@ -2,7 +2,7 @@ Let me start this story off by saying I have NEVER been a fan of dating apps. I 
 
 People always say love comes when you least expect it or whatever but I’ve found that it truly does sneak up on you in a sense. I didn’t believe anyone could find love through seeking it out online, let alone with these swipes and likes- decisions based solely on where a person falls on their scale of attractiveness. 
 
-However, upon ending a relationship with my boyfriend of 8 years this past December (on Christmas Eve, might I add), I said fuck it and downloaded every dating app I could think of: Hinge, Tinder, Bumble... I even downloaded EHarmony just for the hell of it. I figured I would turn a new leaf; use this app to dispose of my preconceived notions and spice things up in my life. 
+However, upon ending a relationship with my boyfriend of 8 years this past December (on Christmas Eve, might I add), I said screw it and downloaded every dating app I could think of: Hinge, Tinder, Bumble... I even downloaded EHarmony just for the hell of it. I figured I would turn a new leaf; use this app to dispose of my preconceived notions and spice things up in my life. 
 
 And, boy, did it.
 

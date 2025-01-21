@@ -243,3 +243,5 @@ I *am* the sample of the LAL discovered on that beach all those years ago, or 
 Once Camila is big enough, I am going to kill Franklin and feed her his marrow. Then, using my external modification, she can leave the bathtub safely. Masquerading as Franklin, Camila can get close to David.
 
 She will then bring him back here, and we will determine our purpose. If we have none, we will kill David and then return to the sea.
+
+EDIT: link to final [update](https://www.reddit.com/r/nosleep/s/rMnjZIjnt0) 
