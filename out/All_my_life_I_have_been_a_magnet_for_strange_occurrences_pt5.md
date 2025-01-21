@@ -29,7 +29,7 @@ I never spoke to her but often times we would catch each other’s eye and I oft
 Consumption is nature. 
 
 
-There was more than that to learn though. Every night the coyotes cashed the deer. 
+There was more than that to learn though. Every night the coyotes chased the deer. 
 
 
 Every night the feral footsteps kicked up dirt and time stood still as they rounded the corner out of my windows direct sight. Every night the growls and barks and yowls sounded off in my ears. The huffing and growling and screaming as flesh was torn. No matter what it happened exactly the same every night. 

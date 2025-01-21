@@ -44,7 +44,7 @@ Without another word she steered me towards the professors and away from ‘ever
 
 “Grahm, this is Dr’s Chilton, Meyers, and Potter.” She motioned to the three people before us. They each shook my hand in turn. “Drs, this is my mentee, Grahm. He’s especially interested in the evolutionary lineage of vascular plants, and one of my brightest students. Ask him anything about evolutionary taxonomy and you won’t be able to shut him up!”
 
-They each nodded and said different variances of “Ooh, that’s very nice.” I immediately got the feeling of inferiority, much like a child that brought up a scribbled drawing to a distant relative. Ooh, how nice! Very good.
+They each nodded and said different variances of “Ooh, that’s very nice.” I immediately got the feeling of inferiority, much like a child that brought up a scribbled drawing to a distant relative. *Ooh, how nice! Very good.*
 
 I was shackled to the conversation for a few more minutes before I found a comfortable outing, much to my satisfaction. I hastily walked with my hands plastered to my sides back to Ben. I think I can say now that I preferred his company over a bunch of middle-aged Doctors of Geology, Astrophysics, and Paleontology.
 
@@ -54,7 +54,7 @@ Ben was talking to the other three students—no, candidates--there. I stopped b
 
 My stomach decided to play musical chairs with my heart. “Really?”
 
-“Yeah, we’re trying to find out what school you’re from.” One of the other candidates said. For ease, I’ll just call them by their ‘university places’. Utah was a blonde woman with loose curls, Texas was a tall, dark man with a terrifying grip, and Cruz didn’t blink once. Like, at all.
+“Yeah, we’re trying to find out what school you’re from.” One of the other candidates said. For ease, I’ll just call them by their ‘university states/cities’. Utah was a blonde woman with loose curls, Texas a tall, dark man with a terrifying grip, and Cruz didn’t blink once. Like, at all.
 
 “I’m from Oregon. Go Ducks.” I pumped a pathetic fist in the air while everyone stared at me. I was suddenly filled with the urge to fling myself off the nearest building.
 
@@ -68,17 +68,9 @@ Dr. Jameson sat beside me and eyed my bouncing legs with a disproving look. I st
 
 Utah gathered some folders and handed them out to the rest of us. When I received mine I took a peek inside—there was my name. My name!
 
-“Now I’m sure that you all know why you’re here.” Dr. Chilton leaned back onto the podium behind him. “At this university we have had a breakthrough—our physics and engineering departments have collaborated on making a machine. You will see it shortly. With this machine, we will have the ability to go back in time. You each are here for a reason, whether it be collecting botanical material,” he motioned to me and Dr. Jameson, “Or monitoring the stars and progression of the asteroid. Some of you will be paying attention to animal life or collecting rock samples.”
+“Now I’m sure that you all know why you’re here.” Dr. Chilton leaned back onto the podium behind him. “At this university we have had a breakthrough—our physics and engineering departments have collaborated on making a machine. You will see it shortly. With this machine, we will have the ability to go back in time. They have graciously allowed us to use it to collect samples and data from 66 Million Years Ago. This will put us in the late Cretaceous. But you already know that." His eyes wandered to me. 
 
-He began to stress that there was a set of rules that we needed to follow. Rules that must be followed no matter what. These were the rules:
-
-\-We can’t remove our suits. Just like an astronaut. Removal of suits means that there could be cross contamination of microbes.
-
-\-In case of an injury, like a sprained ankle or cut, everyone must return to the shuttle, and 
-
-\-If any of our suits are punctured, we must undergo quarantine until we are sure that there is no cross contamination to the present.
-
- 
+"You each are here for a reason, whether it be collecting botanical material, or monitoring the stars and progression of the asteroid. Some of you will be paying attention to animal life or collecting rock samples. No matter our responsibilities, we have one rule. The only stipulation is that we *must* wear suits to prevent microbial contamination to the past. You cannot take these suits off if you are outside the shuttle. Understand?" Everyone nodded.
 
 After a long, long lecture about how the machine worked (why would we need to know that?) he finally closed the talking with “In each of your folders you have objectives, written by your mentors. That is your goal on this trip. Read as we walk to the next building.”
 
@@ -98,7 +90,7 @@ We are travelling to the late Cretaceous, so there should be some angiosperms vi
 
 I swallowed and braced myself as we walked back outside. It was well into morning now. Our breath reminded me of a locomotive train—the way it billowed up and hung in the air like a noose over each of us. I shivered from the cold and reread my objectives.
 
-I forgot the particulars and resigned myself to three different things: one fern, one conifer, and whatever flowering plant I could find. I read through the sheet a few more times until we finally entered a new building. After a few moments Dr. Chilton separated us each by gender and someone led us to separate rooms. A group of people were there waiting for us.
+I resigned myself to three different things: one fern, one conifer, and whatever flowering plant I could find. I read through the sheet a few more times until we finally entered a new building. After a few moments Dr. Chilton separated us each by gender and someone led us to separate rooms. A group of people were there waiting for us.
 
 I felt like a convict as we were each handed plain clothing that looked like winter thermals and told to get changed. I kept my eyes on the wall and did as was ordered. A man in scrubs came up and neatly folded my clothes before he set them on a bench. Then we went through what I can only imagine doctors probably experienced: people in scrubs swarmed each of us and dressed us carefully. The suits that they put on reminded me of an astronaut—but less bulky and dark green. I felt heavier as they put a small backpack on my back with a silver canister.
 
@@ -128,15 +120,15 @@ Cruz huffed. “That’s if I can see anything.” He muttered. “There are mor
 
 “Oof,” was Ben’s reply. Coming from the journalist, I was sure that stung.
 
-“What are you supposed to do?” Cruz asked.
+“What are *you* supposed to do?” Cruz asked.
 
 Ben raised his hands up and mimed holding a camera. “I’m here to document everything. Get pictures of you guys, take in the details. My usual job.”
 
 That sounded a lot less stressful than the rest of us.
 
-We walked in silence until we came to a large, silver door with a rotating wheel in the center. It seemed out of place—like it should be in a submarine. Two of the Doctors—Meyers and Chilton, I think—rotated the handle and pulled the door open. We walked in single file to a small hallway that opened into…another room. “Take your seats,” one of the doctors instructed. I looked around and saw seats positioned evenly through one side of the room, with two located at the far end. Texas turned, their suit creaking.
+We walked in silence until we came to a large, silver door with a rotating wheel in the center. It seemed out of place—like it should be in a submarine. Two of the Doctors—Meyers and Chilton, I think—rotated the handle and pulled the door open. We walked in single file to a small hallway that opened into…another room. “Take your seats,” one of the doctors instructed. I looked around and saw seats positioned evenly through one side of the room, with two located at the far end. Texas turned, his suit creaking.
 
-“Is this the shuttle?” she asked. There were no windows, just metal walls. There was a hiss of air as the door sealed itself on the other side of the small hallway…no, not a hallway. An antechamber.
+“Is this the shuttle?” he asked. There were no windows, just metal walls. There was a hiss of air as the door sealed itself on the other side of the small hallway…no, not a hallway. An antechamber.
 
 “Yes.” Dr. Jameson replied as they hauled shut another door with an identical spinning wheel. I began to hear my heartbeat in my ears. On a far wall there were what looked like multiple dressers, all away from the seats and divided by a low metal barrier.
 
@@ -144,15 +136,19 @@ I eased myself down into a seat and waited for Dr. Jameson to sit beside me. She
 
  The seat I had chosen was farthest away from the dressers, up against the wall. I relaxed into the armrests and felt the cold of the metal. I could imagine that I was an astronaut, ready for liftoff. At the time I only hoped that this would not be like the Challenger explosion.
 
-Cruz sat to my right, and Texas further down. Ben sat directly in front of me, and Utah next to him. They were engaged in conversation over the comms—something about seatbelts. I looked over my shoulder and saw belts like on a car seat. We had to be strapped in for the trip. I wasn’t sure what I was thinking—maybe something more space-y, or even like the buckles found on airplanes. I followed suit, sure that they all connected properly into a buckle at the center of my chest.
+Cruz sat to my right, and Texas further down. Ben sat directly in front of me, and Utah next to him. They were engaged in conversation over the comms—something about seatbelts. I looked over my shoulder and saw belts like a car seat. We had to be strapped in for the trip. 
+
+I wasn’t sure what I was expecting—maybe something more space-y, or even like the buckles found on airplanes. I wasn't even sure that I expected there to be seatbelts at all. I followed suit, sure that each of the metal bits connected properly into a buckle at the center of my chest.
 
 Dr. Meyers walked around and checked each of our restraints. He tugged and tightened the straps until each of us could barely move. When he got to me he pulled so tight on a strap that it felt difficult to breathe. I told him so, but he didn’t acknowledge me.
 
 Over the Comms I could hear someone breathing heavily. My legs started to bounce. It seemed like it took forever, but Dr. Meyers finally sat down in his chair and buckled himself in. Once he settled in, Dr. Chilton’s voice came over. It was cold.
 
-“Here is what’s going to happen. I’m going to flip a few switches, press a few buttons. Nothing for you to worry about. You may feel queasy afterwards. If you need to vomit afterwards, be sure to do it in the bathroom.” He pointed at a curtained-off area in the corner.
+“Here is what’s going to happen. I’m going to flip a few switches, press a few buttons. Nothing for you to worry about. You may feel queasy afterwards. If you need to vomit afterwards, be sure to do it in the bathroom.” He pointed at a curtained-off area in the corner."
 
-“During the trip you’ll feel yourself being tugged in multiple ways—almost like your rolling around in a box. Don’t worry about that—it is perfectly normal. Be sure to grit your teeth and don’t loosen your jaw—we’d all like to keep our tongues.” We all nervously chuckled.
+“During the trip you’ll feel yourself being tugged in multiple ways—almost like your rolling around in a box. Don’t worry about that—it is perfectly normal. Be sure to grit your teeth and don’t loosen your jaw—we’d all like to keep our tongues.” 
+
+We all nervously chuckled.
 
 “Keep your arms close to your chest.” I hugged my torso.
 
@@ -166,33 +162,27 @@ I’d like to think we all watched as Dr. Chilton flipped a few switches, but I 
 
  
 
-I know what Dr. Chilton said, but I still wasn’t prepared for the violence of the movements the room made. Immediately we were pressed back into our seats like we were in a jet. A loud, pervasive hum started to fill the room. I gripped my sides and squeezed tight as I got squished more and more into the back of my chair, and suddenly we jerked to the left. Through the helmet I could hear a few cry out. The hum became louder, so loud it reverberated up through the chair and made my head rattle. It was like I had my head on a bus window again, but multiplied by 50.  We jerked a second time, and this time I saw Cruz’s arm fly into my field of vision. I closed my eyes and started to count.
+I know what Dr. Chilton said, but I still wasn’t prepared for the violence of the movements the room made. Immediately we were pressed back into our seats like we were in a jet. A loud, pervasive hum started to fill the room. I gripped my sides and squeezed tight as I got squished more and more into the back of my chair, and suddenly we jerked to the left. Through the helmet I could hear a few cry out. The hum became louder, so loud it reverberated up through the chair and made my head rattle. We jerked a second time, and this time I saw Cruz’s arm fly into my field of vision. I closed my eyes and started to count.
 
 It was a bad idea to close my eyes—I was overcome with an intense sense of vertigo. I opened them just as we spun into a barrel roll, like we were a drill tunneling through some dense strata. We jerked forward and rolled some more, then stopped abruptly. My head flung forward and crashed back into my headrest—cushioned, thankfully. I looked around, expecting it to be over. None of the Doctors moved.
 
 That was when I heard the cracking. 
 
-It came from the wall to my left. I stopped breathing for a second to listen better. Yeah, a cracking sound. It sounded like glass cracking, on the verge of breaking under some tremendous weight.
+It came from the wall to my left. I stopped breathing for a second. Yeah, a cracking sound. It sounded like glass on the verge of breaking under some tremendous weight.
 
 Then I heard someone moaning on the other side.
 
 “Please, please stay…” were the words I heard—as if they were spoken from the other side of a sliding glass door. The voice was begging, no pleading with someone or something to stay.
 
-I peered at the wall, trying to ascertain the exact spot where it came from. Before I could, the vibrating took over again and we…slid. I’m not sure how to explain it. Have you ever been driving when there’s ice on the road, and hit the brakes? It had the same feeling of movement as sliding over a patch of long, extended ice. The sounds stopped as soon as we slid. The feeling continued for a few more seconds, then stopped entirely.
+I peered at the wall, trying to ascertain the exact spot where it came from. Before I could, the vibrating took over again and we…slid. I’m not sure how to explain it. Have you ever been driving when there’s ice on the road, and hit the brakes? It had the same feeling of movement as sliding over a patch of long, extended ice. The sounds stopped as soon as we slid. The feeling continued for a few more seconds, then we jerked to a stop.
 
 We sat for a moment before relaxing. I turned to Cruz. “Did you hear..?” I forked my thumb over at the wall.
 
-Cruz looked at me in confusion. “Hear what? Everyone shouting?”
+Cruz looked at me in confusion. “Huh?” His voice was distant without the comms. 
 
-“No…never mind. I think my brain got scrambled while we were being tossed around.”
+The comms crackled and Dr. Chilton’s voice came over. I forgot about the sounds I heard. “We’re lucky! That was a smooth ride!” 
 
-He shrugged. “I think all of us got scrambled. At least we didn’t break anything, right?”
-
-I smiled weakly. “At least.”
-
-The comms crackled and Dr. Chilton’s voice came over.
-
-“We’re lucky! That was a smooth ride!” I exchanged glances with Cruz.
+I exchanged glances with Cruz.
 
 “Can we unbuckle now?” Texas asked. “It’s hard to breathe.”
 
@@ -206,7 +196,7 @@ The comms crackled and Dr. Chilton’s voice came over.
 
 Dr. Chilton turned back to the antechamber and walked over to the door. “Viviene, can you help me?”
 
-Dr. Jameson hurried over and slowly pulled the door open to reveal the antechamber. I stayed behind as everyone (minus Ben) surged forward to the bottleneck. Through the helmets and heads, I could see two people grasping at the wheel.
+Dr. Jameson hurried over and slowly pulled the door open to reveal the antechamber. I stayed behind as everyone (sans Ben) surged forward to the bottleneck. Through the helmets and heads, I could see two people grasping at the wheel.
 
 “Say cheese!” Ben pointed the camera at me. I didn’t say cheese—I was too focused on the door. After a few repeated pulls, it started to turn. The intercom filled with a burst of excited chatter, and with a great, echoing *thud* the door unlatched and swung outward.
 
