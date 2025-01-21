@@ -34,7 +34,7 @@ I don’t respond, as if not to break the spell of this alchemist working uneart
 
 “I mean he is a runner, maybe he went full pelt over there” Chris smirks and looks for my validation.
 
-“That’s insane” I spit back, exasperated. “He can’t have gone that far. That’s fucking ridiculous. Did someone give him a lift?” I sense my sarcasm cutting at Chris so I reel it in and collect myself.
+“That’s insane” I spit back, exasperated. “He can’t have gone that far. That’s fucking ridiculous. Did someone give him a lift?” I sense my mocking tone cutting at Chris so I reel it in and collect myself.
 
 “How accurate are these? Is it still tracking him?”. Chris doesn’t respond, instead tilting the phone screen in my direction so I can verify it for myself.
 
