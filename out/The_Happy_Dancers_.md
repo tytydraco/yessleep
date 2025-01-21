@@ -33,7 +33,7 @@ The next time we were driving up there I was watching the roads like a hawk, my 
 
 The night was uneventful, truthfully I barely remembered what I even did because my mind was so locked in on the trip home, so locked in on the roads that brought us to and from, and it felt only moments had passed after arriving that the darkness of night was long past joining us, and my Mum telling me we were leaving. 
 
-I could barely contain my excitement but for some reason I didn't tell mum about it, I'd been sitting on it for two weeks which as an 8 year old was an eternity, and now I wanted it all for myself, as if it was a secret for me and me alone, one small thing that my mum couldn't control.
+I could barely contain my excitement but I didn't tell mum about it, I'd been sitting on it for two weeks which as an 8 year old was an eternity, and now I wanted it all for myself, as if it was a secret for me and me alone, one small thing that my mum couldn't control.
 
 The street lights were still out of order, something that seemed to really agitate my mum as she rambled about the dangers of the layout of the roads, the irresponsibility of the local council, and other equally valid concerns that completely flew over my head as I pierced through the window with uncompromising intensity.
 
