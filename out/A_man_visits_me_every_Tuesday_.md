@@ -1,0 +1,25 @@
+Every single Tuesday for the past 2 years, I have been visited by the same person at the same time, no matter where I am.
+
+I worked at a Walmart, so when I saw the same customer every Tuesday, I didn't think anything of it, besides his odd demeanor. A black trench coat, no shoes, messy hair under a bowler hat, his smile was wide, pulling at his cheeks like hooks in the corners of his mouth, and lifeless, decayed eyes. But who in Walmart doesn't look like that?
+
+Anyways, one day I had Tuesday off, so I took my dog for a walk in the park near my house, which is across town from the Walmart, and there he was. Again, I couldn't think too much of it besides how odd it is that my dog began barking at him, which he never does. Maybe he just so happens to live in the same neighborhood as I do, and maybe he smelled like another dog. Stupid excuses I would make up to comfort myself.
+
+Throughout last year he has shown up, same time, same day, no matter where I am. church of God, church of Satan, Republican rally, Democratic rally, hotel in Texas, on A FUCKING BOAT IN THE GOD DAMN OCEAN.
+
+He will somehow always be wherever I am in the world, every Tuesday, at 7:16 pm. I have tried to speak with him to ask him who he is and how he knows where I am, but every time I try to get close to him, he somehow runs away from me. disappears in a crowd, outruns my stamina; those are fine, but when he turns the corner and is gone, I can't comprehend it. Even in the ocean... his boat crashed; he was nowhere to be seen, and the next week he was still there, with a new boat but the same guy.
+
+This year I have still tried to hide from him, but he has been so consistent that some days I just feel defeated. Two weeks ago, I gave up; I waited for him in the park. Sitting on the bench, I felt anxiety pile within me, checking my clock until it finally hit 7:16 pm. Looking back up from the clock, he was sitting across the park, staring at me. No movement, not even a breath. I wasn't going to chase him any more or ignore him. I decided to sit and stare back. He twitched. I jumped. He started a very slow walk to me.
+
+The anxiety turned into a panic; I couldn't find out what he would do once he caught up to me. I started to back up. He picked up his speed. So did I. His arms began to assist his jogging as his smile seems to have grown wider. I looked away to begin running away. He did too, until I could hear the footsteps trailing mine with less than a second in between. and then nothing. 7:17 pm.
+
+Last week I decided I don't want to meet up with the strange man in the park like an idiot. instead I was going to sleep through the entire hour of 7 pm. I made sure to lock every door and window in the house before I headed to bed. I can never remember my dreams, but this nightmare has been replaying in my head since that night. It was hard to fall asleep, but I would say around 6:50 pm I finally drifted off. I didn't know what time it was within my dream, but at 7:16, whatever dream I was going through faded away entirely; there was nothing but him in the distance.
+
+In the dream, I squinted my eyes to try to see him better, and I didn't know who it was until I could recognize his smile. Once I did, he began to sprint at me, faster than any animal I have seen run. I couldn't move. I tried; my arms and legs flailed but had no friction to the floor. Looking back, he has cut the distance between us in half, his hands stained in blood, eyes, ears, and nose having streaks of blood falling from them. The struggle to run intensifies; the drum of my heartbeat is all I can hear. I look back as he is jumping in the air; I collapse as he stands above me, blood dripping on my face.
+
+His jaw began to unhinge itself as his cheeks tore to his ears, teeth growing in size, tongue retracting back to his throat, eyes rolling in the back of his head, joints cracking as his limbs shifted into impossible positions.
+
+Then I woke up. In an attempt to slow my hyperventilating, I coughed up a liquid matching the blood that covered my face. I checked the time to see 7:17 pm. Once I got a hold of myself, I noticed my door was off its hinges, same with my front door. My dog has disappeared, I'm hoping he ran away through the front door.
+
+It's currently noon, Tuesday, January 21st of 2025. I have locked myself in my basement with many bear traps between me and the front door, cameras set up in every single room, and enough food and water for the night. But I don't know what to do; I don't want to fall asleep and not have any defense. I brought a shotgun, but I don't know what all that would do. I can't tell the police; they wouldn't believe me. If anything, I would be in more danger with them; they restrain anyone who seems to be going through a psychological episode for "their own safety".
+
+I'm writing this as a last resort; maybe someone has met this man before or has any advice on what to do. Please help me or at least keep me company; I don't want to be alone if this is my last day.
