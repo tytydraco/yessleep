@@ -118,7 +118,7 @@ Maggie put out her dying cigarette, carelessly spilling embers onto the floor. S
 
 The moment her eyes were not on me, I spun around as quietly as I could, and gently inched a book out of the bottom shelf of the bookcase that stood behind Maggie’s desk, creating a small pocket of space. My hand reached into my coat pocket and produced the water bottle containing a sliver of God Thread, careful not to alert my mother by crinkling the plastic with my grasp. I uncapped the half-filled container, slid it over the book, and nestled it against the wood of the bookshelf. Finally, I pushed the book back in as far as I could, hopeful that its slight bulge wouldn’t raise any eyebrows.
 
-When I flipped back around, Maggie had just closed the doors with a soft thud. When she turned back around, she appeared none the wiser.
+When I flipped around, Maggie had just closed the doors with a soft thud. Turning back to me, she appeared none the wiser.
 
 Smiling, she offered her terms.
 
