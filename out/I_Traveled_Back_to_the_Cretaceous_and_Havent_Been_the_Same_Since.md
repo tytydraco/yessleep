@@ -1,6 +1,6 @@
-I went on a fossil collection trip a month ago with a group of students and professors to Utah—or that’s what everyone else thinks. 
+I went on a fossil collection trip to Utah a month ago with a group of students and professors—or that’s what everyone else thinks. 
 
-We didn’t just go to collect fossils…we went to collect live material. If I had known what would happen, I wouldn’t have gone in the first place. I should have said no. I should have taken a thesis opportunity in Wyoming, North Dakota, or Australia. But instead, I traveled back to the Cretaceous and haven’t been the same since.  
+We didn’t just go to collect fossils…we went to collect live specimens. If I had known what would happen, I wouldn’t have gone in the first place. I should have said no. I should have taken a thesis opportunity in Wyoming, North Dakota, or Australia. But instead, I traveled back to the Cretaceous and haven’t been the same since.  
 
 It started when my professor, Dr. Jameson reached out to me. It was an email about a thesis opportunity. She remembered a recent conversation we had about the evolution of angiosperms and decline of gymnosperms in the late Cretaceous…I agreed to continue the conversation in person—only because she insisted on it. Said that email wasn’t safe.
 
@@ -8,15 +8,15 @@ When I met with her, I didn’t believe her. I sat there as she told me what a g
 
 The day we left, we started at 4 am. On the drive to the university, I had déjà vu—my head was resting up against the window and my whole skull vibrated, like it did whenever I rode the bus as a kid. Dr. Jameson sat beside me, her back as straight and unmoving as usual.
 
-We finally pulled into a near-empty parking lot illuminated by sporadic, flickering sodium lights. I looked over to Dr.. Jameson, who didn’t return the courtesy. The driver of the car put it in park. I peered out the window again. A group of cars were parked in the cone of orange light before us.
+We finally pulled into a near-empty parking lot illuminated by sporadic, flickering sodium lights. I looked over to Dr. Jameson, who didn’t return the courtesy. I peered out the window again. A group of cars were parked in the cone of orange light before us.
 
-Dr. Jameson unbuckled her seatbelt and let it slither back up into the holster. I followed suit and caught up to her as she marched up the sidewalk to the side of a large, brick building. A glass door stood propped open by a brick.
+Dr. Jameson unbuckled her seatbelt and let it slither back up into the holster. I followed suit and caught up to her as she marched up the sidewalk to the side of a large, brick building. A glass door stood propped open.
 
 We both soon found ourselves in a small lecture hall lit by buzzing fluorescent lights. I stopped at the door as she continued further.
 
-It seemed that Dr. Jameson and I weren’t the only pair of professors and students. I recognized the logos of some of the hoodies other students were wearing—A university in Utah, one in Texas, another in Santa Cruz. I noted the last one in particular—they have an arboretum dedicated to plants in the Protea family. Everyone else was dressed in nondescript clothing. A group of 9 people total, including us.
+It seemed that Dr. Jameson and I weren’t the only pair of professors and students. I recognized the logos of some of the hoodies other students were wearing—A university in Utah, one in Texas, another in Santa Cruz. Everyone else was dressed in nondescript clothing. A group of 9 people total, including us.
 
-Everyone’s eyes naturally turned to us—the same way a full class would when you walked through the door of a lecture hall. I felt my face grow hot as a response. I was never good at meeting new people.
+Everyone’s eyes naturally turned to us—the same way a full class would when you walked through the door of a lecture hall. My face grew hot—I was never good at meeting new people.
 
 Dr. Jameson didn’t waste time marching over to some other professors and introducing herself. I stood in the doorframe, flexing my hands by my sides. Before I could do anything, one of the people dressed in non-university clothing stepped up to me and held out his hand. I frantically wiped my hand on my side before shaking his. It was an obnoxiously firm handshake.
 
@@ -24,9 +24,9 @@ Dr. Jameson didn’t waste time marching over to some other professors and intro
 
 I swallowed as he kept pumping my hand. “Grahm. Where are you from?”
 
-His eyes scrunched up in confusion. “Washington, I suppose. I grew up there.”
+His eyebrows scrunched. “Washington, I suppose. I grew up there.”
 
-“Oh.” I let out a huffed breath and wrested my hand from his grasp. “I mean, what university?” I motioned to the other people watching us from behind him.
+“Oh.” I let out a breath and wrested my hand from his grasp. “I mean, what university?” I motioned to the other people watching us from behind him.
 
 He laughed—a bit too loud for the time of day. A few people cringed. “I’m not a PhD candidate. I’m a journalist. Although I graduated from xxxxxxxxx—are you familiar?”
 
@@ -54,15 +54,13 @@ Ben was talking to the other three students—no, candidates--there. I stopped b
 
 My stomach decided to play musical chairs with my heart. “Really?”
 
-“Yeah, we’re trying to find out what school you’re from.” One of the other candidates said. For ease, I’ll just call them by their ‘university states/cities’. Utah was a blonde woman with loose curls, Texas a tall, dark man with a terrifying grip, and Cruz didn’t blink once. Like, at all.
+“Yeah, we’re trying to find out what school you’re from.” One of the other candidates said. (For anonymity, I’ll just call them by their ‘university states/cities’.) Utah was a blonde woman with loose curls, Texas a tall, dark man with a terrifying grip, and Cruz didn’t blink once. Like, at all.
 
 “I’m from Oregon. Go Ducks.” I pumped a pathetic fist in the air while everyone stared at me. I was suddenly filled with the urge to fling myself off the nearest building.
 
-We talked for a while, and I gleaned that Cruz was another paleontology candidate, while Utah and Texas were Astrophysics and Geology, respectively. It was another few minutes before the two circles became a massive huddle.
+We talked for a while, and I gleaned that Cruz was another paleontology candidate, while Utah and Texas were Astrophysics and Geology, respectively. It was another few minutes before the two circles became a massive huddle. Dr. Chilton took the lead.
 
-We all turned to listen to them speak. Dr. Chilton took the lead.
-
-“Sit, please.” He ordered. We all sat except for Utah, who walked up to stand beside Dr. Chilton. Once I sat in one of the cushioned chairs I started to bounce my legs. The only thing I was thinking about was: When would we go back?
+“Sit, please.” He ordered. We all sat except for Utah, who walked up to stand beside Dr. Chilton. Once I sat in one of the cushioned chairs I started to bounce my legs.
 
 Dr. Jameson sat beside me and eyed my bouncing legs with a disproving look. I stopped and put my hands underneath my thighs.
 
@@ -78,13 +76,13 @@ In the folder I read my objectives from Dr. Jameson. The whole thing took up les
 
  
 
-Grahm,
+*Grahm,
 
 It is likely that we will not recognize most of the plant species there. We should recognize some families, at least. Since you have shown such an interest in vascular plants, I would like you to collect, if possible:
 
 One pteridophyte, one gymnosperm sample, and one angiosperm sample.
 
-We are travelling to the late Cretaceous, so there should be some angiosperms visible. If not…just get the closest thing you can. In this situation, anything is gold. Just understand…whatever you pick up is whatever you’re going to study for the rest of your career. Choose wisely.
+We are travelling to the late Cretaceous, so there should be some angiosperms visible. If not…just get the closest thing you can. In this situation, anything is gold. Just understand…whatever you pick up is whatever you’re going to study for the rest of your career. Choose wisely.*
 
  
 
@@ -234,7 +232,7 @@ His head bobbed over the ferns and shrubs like a disembodied apparition. I waved
 
 It’s stupid, really, that we thought being in a swamp was a smart idea. What I saw in that grainy footage will haunt me to this day—even though I never saw it with my own eyes. 
 
-Over 20 feet of a rough, scaly spine rose up to the surface of the water—as silent as a library whisper. The ripple was made by the tail, and I took a moment to process as the whole length from snout to tail end filled my rear vision. My body reacted before my mind could. 
+Over 20 feet of a rough, scaly spine rose up to the surface of the water—as silent as a library whisper. The ripple was made by the tail, and I took a moment to process as the whole length from snout to tail. My body reacted before my mind could. 
 
 It was like an electric shock that launched me forward—just as the water erupted and a 40-foot-long alligator sprung from the water. I couldn’t even scream as the giant mouth—*as big as I was*—snapped shut right where I had been a moment before. Two huge, yellow eyes perched on the top of the head blinked in succession before readjusting.
 
