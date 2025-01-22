@@ -1,99 +1,134 @@
-I don’t celebrate my birthday. I don’t even let anyone know when it is. Not on Facebook, twitter, and certainly not in the real world. Because birthdays are powerful things. To know the date that a person took their first breath, the point in time that tethered their existence to this particular world, it’s almost like knowing a serial number or a registration plate. It gives people with certain kinds of knowledge a certain kind of power.
+It was 10 PM, and my birthday was almost over. Almost 22 hours had passed, and Luke still hadn’t contacted me. Three whole days of silence—not a single text, call, or explanation. Did he really have the nerve to let my birthday slip away like this?
 
-  
-And no, I’m not talking about identity theft. Not in the way you’re imagining it anyway. I’m talking about something much deeper. Much more primal.
+At first, I thought he might be planning a surprise. I told myself, "He’s just busy organizing something amazing." But the more time passed, the more that hope dimmed, leaving behind a suffocating mix of anger and sadness.
 
-  
-I hadn’t worked long at the firm, and I didn’t really know anyone yet. I knew the names of a couple of people around where I sat, since it was an open plan office and I pretty much looked right at them for most of the day, but beyond offering them a cup of tea a couple of times a week we hadn’t exactly bonded.
+As the hours ticked by, that hope turned into anger. By now, I’d given up. I picked up my phone and started typing, pouring my frustration into the words.
 
-  
-So I was very surprised when Vicky, the blonde one, asked me what I was doing for the weekend. It took me quite by surprise, and I’m fairly sure I jumped, shaken from my laptop by the unexpected question. She stared back at me impassively, her expression utterly disinterested.
+> If u even bother showing up 2morrow, don’t. We’re DONE.
 
-  
-‘Not a lot,’ I replied somewhat hesitantly, trying to strike the right tone. It obviously didn’t impress. Her eyes seemed to glaze over and she offered a pale, thin smile which was little more than a mouth-spasm as she turned back to her screen.
+The words sat heavy on the screen. My thumb hovering over the send button, resentment bubbling in my chest. 
 
-  
-‘It’s my birthday,’ I found myself blurting out, far too loudly. I sensed other heads across the large, silent office turn to glance in my direction. I steadfastly refused to look around and avoided their eyes – but unfortunately that also meant I was staring at Vicky with a peculiar, terrified intensity.
+Before I could press it, my phone buzzed.
 
-  
-To her credit, she seemed not to notice my discomfort. She smiled, genuinely this time, and turned to look at Max, sitting across from her. I caught his eye and he grinned, giving me a thumbs-up and standing up from his desk. As he came over I turned back to Vicky, my own smile wavering uncertainly.
+An unknown number flashed on the screen. My stomach tightened.
 
-  
-‘We love birthdays,’ she said with a coquettish laugh, patting my hand affectionately and leaning back to look at Max as he pulled a chair over. ‘Don’t we Max?’
+---
 
-  
-‘Oh we are all about birthdays in this team!’ Max beamed enthusiastically. ‘So you’re celebrating at the weekend? What are you up to?’
+> Unknown: hi, miss me? 😉
 
-  
-My mind raced, a little clogged with confusion. On the one hand, this was plainly a far too enthusiastic response to my birthday, but on the other hand...
+My breath hitched. It had to be Luke.
 
-  
-So I started explaining my incredibly lame plans.
+> Me: Luke? Where tf u been? U ignored me for DAYS!
 
-  
-Suddenly Max clicked his fingers like he’d had an amazing idea.
+> Unknown: chill babe, been working on smth special for u 😉
 
-  
-‘We should have a party!’ he cried. Vicky gasped, somewhat theatrically I thought at the time, like she already knew that was coming. The smile she turned on me was expectant, exultant even, and I found myself nodding and agreeing before I knew what I was doing. They told me that they always held parties for birthdays at a pub not far from the office.
+Special? After three days of silence? He was seriously playing this off?
 
-  
-‘It’ll just be us,’ Vicky assured me, ‘you’ll love it. We’ll do it on Monday.’
+> Me: u ghosted me. now u wanna act like it’s no big deal? smth special better b good.
 
-  
-I wasn’t about to argue. This was all a bit weird and sudden, but who throws away an opportunity to make new friends at work?
+> Unknown: just trust me. U wanted a surprise, right?
 
-  
-None of my colleagues were at work on the Monday. I arrived to a strangely empty office and an email from Max telling me where to be that evening. That should have been enough warning, but I ignored my instincts and went to the pub.
+My hands trembled as I typed. The audacity of him to act so casual after everything!
 
-  
-As I entered the empty pub, the barman looked at me. He was an older man, wiry grey hair standing out in clumps on his wrinkled head. His expression was fearful. I tried to smile, but an icy feeling was settling into my stomach as I made my way to the door by the side of the bar. I was about to head up the stairs beyond when the old man took my arm, startling me. I swung round, almost losing my balance, and only the man’s surprisingly firm grip on my arm kept me from falling. He said nothing, but switching his grip, he pressed something into my hand and closed my fist around it. Absurdly, I thanked him and backed up a step, watching him carefully in case he decided to lunge for my throat. When he did not, and merely stood watching me, I slid past him and made my way up the stairs, tucking the object into my pocket.
+> Me: surprise? it’s 10 PM, Luke. 2 hrs til my bday’s OVER. where r u?
 
-  
-Vicky stood in the doorway at the top of the stairs as I made my way up, and when she didn’t move I came to a stop on the final step, looking up at her.
+This time, there was a pause before his reply.
 
-  
-‘What have you come as?’ I asked her, peering at her odd white robe. She had a thin black circlet around her head, with what looked like gold lettering marching in finely written script all around it.  
-‘Princess Leia,’ she replied, glancing at my own outfit. She didn’t look like Princess Leia to me, for one thing her hair wasn’t in bunches, and no one had said anything about fancy dress.
+> Unknown: look outside.
 
-  
-‘Do you accept your role as the birthed one?’ she asked me, her face suddenly serious. I wracked my brains for a piece of Star Wars dialogue that might match that bizarre question, but couldn’t. It had been a while since I’d seen those films. I fell back on just being cheerful.
+I frowned, my stomach twisting. Slowly, I walked over to the window and peeked out.
 
-  
-‘Sure,’ I said, as lightly as I could despite my increasingly taut nerves, ‘it’s my birthday after all so I guess I’m the birthday boy.’
+There, under the faint glow of the streetlamp at the crossroads, stood a figure. The light casting long shadows across the pavement. A man in a dark hoodie and a mask that covered most of his face waved at me. 
+ 
+> Me: why tf u wearin a mask? u sick or smth?
 
-  
-She cocked her head for a moment, considering my face. Then abruptly she smiled a wide, almost frighteningly wide smile, and swept to the side beckoning me in. I stepped in and paused, suddenly fearful. Beyond were six other people in similar costumes to Vicky. Candles had been set around the room, their flickering light casting deep shadows into the large expanse of the sparsely-furnished function room. A single chair sat in the middle of the room, in a ring of peculiar designs that looked like they’d been hand-drawn.
+> Unknown: kinda. anyway, left ur gift outside ur door. go grab it 😊
 
-  
-I’m not an idiot. I knew something was seriously wrong. I just didn’t move fast enough. Something crashed into the side of my head and the world exploded into a million white stars against a deep black abyss.
+I glanced back at the crossroads, but the man was gone. My unease deepened. Why wouldn’t he just hand it to me? Why the mask?
 
-  
-When I came to I found myself crudely tied to the chair with what seemed to be sticky tape, and try as I might I couldn’t summon up the self-deception required to feel surprised. Some part of me had known something was wrong all along, and the sight of my colleagues cavorting around me, singing in peculiar words and smearing themselves with what I couldn’t convince myself was red paint, did nothing to change that.
+Still, curiosity won. I opened the front door cautiously, and there it was—a black box wrapped neatly with a red bow.
 
-  
-‘The birthing is upon us!’ shrieked Vicky from behind a disgusting mask resembling some kind of skinned animal, twirling and dancing with her blood-soaked robe clinging to her body. The other lunatics sang a groaning, adoring response and fell to their knees. I began to scream for help.
+I looked around the street one more time before bringing it inside.
 
-  
-‘Barman!’ I shouted hysterically, not knowing how else to attract the attention of the man downstairs. ‘Barman help me!’
+---
 
-  
-Vicky laughed cruelly, slinking towards me until the dripping flesh of the skinned animal mask hovered inches from my face.
+Back in my room, I locked the door. The box sat on my desk, its perfect wrapping almost mocking me. Slowly, I untied the ribbon and lifted the lid.
 
-‘There’s no barman, fool, there’s no one to hear you. Did you not think it strange that no one was here when you came in? No one’s been here for years.’ She laughed again and stood back, spreading her bloodstained hands wide and leaving me to blink stupidly at her. There had been a barman. He’d been real enough, and he’d given me something. My hands were taped to my legs, and I could feel the outline of the object in my pocket. As Vicky continued her mad benediction to whatever hideous gods these maniacs worshipped, I twisted and turned and eased my fingers into the pocket. It was a shape I remembered well from my childhood. A pen-knife. Too small to be dangerous, but sharp enough to cut tape.
+I gasped, stumbling back.
 
-  
-Vicky’s mad praying fell silent and she sank to her knees as the air turned icy cold. The candles on the outer edge of the room sputtered and died, almost as though a draft had blown through them. As I worked the little blade open under the tape, the designs written into the floor began to glow faintly; a small gleam, so small it could have been a trick of the light, but enough for me to feel a flash of horrified panic. Vicky was kneeling in a circle of the peculiar swirling writing, much like that I’d seen on the headdress she’d worn before, and as I watched, sawing at the tape like a madman, the circle beneath her glowed faintly and she moaned with a kind of hideous ecstasy.
+Inside the box was a head.
 
-  
-The blade finally poked through the tape, just a small hole, but enough for me to wriggle it further, tearing my bonds a little more. Vicky did not look up, and the glow seemed to flow from her circle, around the edge of the intricate design, to where Max knelt in a similar circle. My heart began to beat like a thing possessed, frantically slamming itself against my ribcage as though trying to alert me to move faster. The glow was moving into the second line of strange writing, into the circle just beyond that surrounding my chair. As it began to reach the edge, to make its laborious way towards me, the tape finally ripped apart with a resounding snap. 
+Luke’s head.
 
-Vicky’s head whipped up and she shrieked a terrible scream of anger and horror, like nothing I have ever heard from a human throat. She threw herself towards me just as I leapt from the chair, knocking it over and rolling aside, dragging it along with me by the dregs of the sticky tape. She landed on me and raised her hand in which, I realised with adrenaline-fueled horror, she held a wicked-looking knife. She screamed at me from behind her foul mask and took the blade in two hands, just as the circle surrounding where I’d sat glowed brightly and a deep, frustrated hiss of thwarted desire filled the air. Vicky froze at the sound, her back arching in what looked like pain, though her face was still hidden behind the foul animal mask. The knife fell from her hand with a clatter and just as all six cultists began to wail a high-pitched keening cry of soul-chilling horror, I blacked out again.
 
-  
-When I came around this time I was lying on a hard floor of dark, filthy wood. Moonlight shone down through huge holes in the twisted and ruined roof above me. The chair I’d been taped to was still nearby, attached to me by the remaining straggles of tape, and I ripped it away with a few savage kicks. The room was not as I remembered it. Warped wood and burned timber was everywhere, and the place looked as though it had been deserted for many, many years. I followed the stairs back down, noting with alarm the ominous creaking as they protested against my weight. The downstairs was the same. Old, abandoned, rotten and blackened, with boarded-up windows. The door squealed on rusted hinges as I pulled it open and emerged into the street. A few passers-by gave me a curious glance, obviously wondering what I’d been up to in a deserted pub at 8pm. I didn’t meet their eyes, merely walked away, trying to make sense of what had happened.
+It was disturbingly lifelike. His features were so perfect—his messy brown hair, the slight scar on his forehead. But the skin felt... off. My fingers brushed against the skin, and it felt rubbery, hollow. Like a doll stuffed with soft material. 
 
-  
-I never saw Max or Vicky, or any of the others again. No one ever knew what became of them.
+But the resemblance was so perfect it made my stomach churn.
 
-  
-And I have never celebrated another birthday [since.](http://sdjackson.blogspot.com/2023/05/the-shrouded-throne-available-now.html)
+I couldn’t look at it anymore. I turned the head to face the wall and stepped back, trying to breathe through the rising panic in my chest. My phone buzzed again, the same unknown number flashing on the screen.
+
+I answered, my voice shaking. “What the hell is wrong with you? Do you think this is funny?”
+
+His voice came through the line, calm and steady.
+
+“Do you like it?”
+
+“No, I don’t like it! Who in their right mind would think this is okay? After ignoring me for days, I thought you’d do something thoughtful—something that showed you cared. But this? This is disgusting!”
+
+His reply was colder now, his tone unsettling.
+
+“But you said you liked me. You said I was all you wanted. That nothing else mattered but us.”
+
+“That’s different! This is—”
+
+“You said you liked me. You said you liked me. YOU SAID YOU LIKED ME!”
+
+The line went dead.
+
+But the voice didn’t stop.
+
+It wasn’t coming from the phone anymore.
+
+It was in the room.
+
+I turned slowly toward the head. The desk trembled beneath it as the voice grew louder, more frantic.
+
+The head turned on its own.
+
+Its eyes snapped open, bloodshot and filled with fury. Its lips twisted into a grotesque snarl, repeating the words like a chant.
+
+“You said you liked me. YOU SAID YOU LIKED ME!”
+
+I screamed, backing away until my back hit the wall. My mind scrambled for answers, but nothing made sense.
+
+“Luke!” I cried out, tears streaming down my face. “If this is about Daniel—if this is because I kissed him—I’m sorry! It didn’t mean anything!”
+
+Daniel.
+
+It was a mistake. A stupid, impulsive mistake at a party last week. I’d kissed him—just for a moment—and regretted it instantly. I hadn’t told Luke. I hadn’t told anyone.
+
+But somehow, he knew.
+
+The head stopped. The voice shifted, low and mocking.
+
+“Oh, sweetie. It’s not about Daniel. He doesn’t matter. It’s always been just you and me.”
+
+I stared in horror as the base of the head began to twist and shift. Something pale and fleshy emerged from where his neck should have been.
+
+“You see, I made arrangements,” the head continued, its tone almost cheerful now. “A special doctor. Someone who could...preserve me. Clone me. But the process wasn’t finished in time. Only my head is ready. For now.”
+
+My stomach churned as the base of the head began to twist and shift. Something pale and fleshy sprouted from the neck.
+
+Feet.
+
+Small, childlike feet, growing longer with every passing second.
+
+“This is my gift to you,” the head said, its voice growing softer, almost tender. “Me. Forever. Now, nothing can separate us.”
+
+I pressed myself against the wall, shaking, as the impossible unfolded before my eyes. The head—Luke’s head—was growing a body.
+
+I turned to run, but his voice stopped me cold.
+
+“Happy birthday, baby.”
+
+
