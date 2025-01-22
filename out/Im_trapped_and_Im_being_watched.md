@@ -1,12 +1,12 @@
-It’s been four days I’ve been stuck here. 
+It’s been four days I’ve been stuck here. Stuck in a stupid town that I’ve stopped trying to figure out the actual location of.
 
 I’m not even sure if “days” is the right word. Time itself doesn’t even seem to have logic to it. My phone died on 86% and every last clock I’ve seen have some weird symbol that don’t even resemble numbers… 
 
-the sun rises and sets yes, but yesterday the sun was frozen in the sky for what felt like an eternity. Yesterday it up and down in what I assume was just a few minutes. Same with the moon too…
+The sun rises and sets yes, but yesterday the sun was frozen in the sky for what felt like an eternity. The day before it went up and down in what I assume was just a few minutes. Same with the moon too…
 
 I’m not even sure how I wound up here. The last thing I remember was sitting in the living room with my sister watching season two of Squid Game. My boyfriend called me and I stepped onto the balcony to talk to him. The next thing I knew I was standing in front of some random movie theater. No flashing light, no buzzing. Nothing. I blinked and I was here.
 
-Ran around like crazy at first, screaming for ANYONE. But every store I ran into was deserted. Every store looked just liked it should- the grocery store was fully stocked, the clothing stores had plenty on the racks, even the movie theater had what was clearly freshly popped popcorn. But there wasn’t anyone around. 
+After confirming I wasn’t hallucinating, I ran around like crazy at first, screaming for ANYONE. But every store I ran into was deserted. Every store looked just liked it should- the grocery store was fully stocked, the clothing stores had plenty on the racks, even the movie theater had what was clearly freshly popped popcorn. But there wasn’t anyone around. Every last thing a town needs is here- stores, restaurants, houses, a park. There’s even a school here which is even creepier than it sounds. 
 
 I tried calling 911 at least a hundred times before my phone died way before it should’ve. Not that it mattered- I didn’t have a single bar of signal. I got so desperate I settled on breaking into a car and hot wiring it, but I gave up after I drove for a solid hour and somehow got right back to the outskirts of the town. I broke into a house to stay for the night. I felt guilty at first, seeing all the family photos. I looked closer and they were more like the AI generated ones- like when you tell ChatGPT to make you an image of a person and it’s very nearly realistic, but definitely not it. I’ve slept here every night. The fridge is fully stocked and the trash is always gone when I wake up, even though I’ve never taken it out. I’ve been sleeping with the dresser barricaded against the door as a precaution. 
 
