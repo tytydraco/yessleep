@@ -1,121 +1,122 @@
-A Inteligência artificial DrawingGlove, era conhecida por conseguir transformar fotos ou descrições em desenhos hiper realistas, com muita precisão e sem muitas distorções. E claro, utilizando suas próprias ferramentas para criar sua versão realista das coisas. Então, decidi tentar.
 
-•	⁠DrawingGlove, por favor, DESENHE DE FORMA REALISTA a foto que acabei de te enviar
+The DrawingGlove artificial intelligence was known for being able to transform photos or descriptions into hyper-realistic drawings, with great precision and without many distortions. And of course, using your own tools to create your realistic version of things. So, I decided to give it a try.
 
-Ela, então, recriou a foto que eu havia enviado, transformando o cenário arborizado do parque -com um banco de madeira no canto central esquerdo, posicionado num ângulo lateral, acompanhado de uma trilha de terra no centro da imagem.- em um desenho de tracejados realistas, se assemelhando a um cartão postal.
+• ⁠DrawingGlove, please DRAW REALISTIC the photo I just sent you
 
-O resultado não ficou estranho, como era de costume em outras IAs que se esforçavam tanto em transmitir uma ideia de realismo ao tentar desenhar um ser humano que, no final, se pareceria mais como uma aberração não natural. Depois disso, decidi explorar suas habilidades descritivas, do que mais será que ela era capaz ?-eu refleti.- Seu modelo tem sido muito discutido na internet devido à algumas polêmicas e problemas. Mas seu lançamento tinha sido uma febre mundial numa certa época.
+She then recreated the photo I had sent, transforming the park's wooded setting — with a wooden bench in the center left corner, positioned at a side angle, accompanied by a dirt trail in the center of the image — into a dashed line drawing. realistic, resembling a postcard.
 
-—DrawingGlove, crie uma imagem realista de uma pessoa de acordo com a seguinte descrição: Um rosto de um garoto de cabelo preto, pele lisa e branca, de 19 anos, com aspectos joviais, que usa brinco de um crucifixo na orelha direita, com um sorriso estampado e genuíno.
+The result was not strange, as was usual in other AIs that tried so hard to convey an idea of ​​realism when trying to draw a human being who, in the end, would look more like an unnatural aberration. After that, I decided to explore her descriptive skills, what else was she capable of? — I reflected. — Your model has been widely discussed on the internet due to some controversies and problems. But its launch had been a worldwide sensation at one time.
 
-•	⁠[GERANDO IMAGEM…]
+—DrawingGlove, create a realistic image of a person according to the following description: A face of a boy with black hair, smooth and white skin, 19 years old, with youthful appearance, who wears a crucifix earring in his right ear, with a printed and genuine smile.
 
-A partir disso, eu fiquei surpreso… a IA tinha quase que desenhado perfeitamente  o rosto do meu melhor amigo. Ainda tinha alguns desvios que não colaboravam com seu rosto original, mas era praticamente idêntico ao Pedro.
+• ⁠[GENERATING IMAGE…]
 
-Como minha criatividade tinha acabado após esse pedido, eu solicitei a ele que criasse uma imagem original sem minha intervenção. Uma imagem que fosse o tema e cenário que ele quisesse.
+From there, I was surprised… the AI ​​had almost perfectly drawn my best friend's face. He still had some deviations that didn't work with his original face, but he was practically identical to Pedro.
 
-—DrawingGlove, crie um desenho de cenário livre, de sua própria inspiração e ideia.
+Since my creativity had run out after this request, I asked her to create an original image without my intervention. An image that was the theme and setting she wanted.
 
-•	⁠[GERANDO IMAGEM…40%]
+—DrawingGlove, create a free scenery drawing from your own inspiration and idea.
 
-Quando a imagem gerada tinha carregado ao 100%. Eu achei o desenho um pouco…estranho. A IA tinha criado um cenário realista, em que havia um bosque com várias árvores e com galhos espalhados em torno da grama. Há uma neblina cobrindo todo cenário mas que, ao mesmo tempo, ainda permitia ver a nitidez dos elementos que compunham o desenho.
+• ⁠[GENERATING IMAGE…40%]
 
-Mas ao fundo da imagem, atrás de uma arvore, eu via a fresta de um corpo de um sujeito estranho, era um homem de blusa verde escura e que usava uma touca. Não dava pra enxergar seu rosto, pois ele estava muito longe no desenho, também não era possível ver completamente suas calças, pois a neblina cobria parcialmente sua vestimenta inferior.
+When the generated image had loaded to 100%. I found the drawing a little… strange. The AI ​​had created a realistic scenario, in which there was a forest with several trees and branches spread around the grass. There is a fog covering the entire scene but, at the same time, it still allowed us to see the clarity of the elements that made up the design.
 
-Confuso, achei melhor pedir para que refizesse a imagem, não entendia a intenção ou a ideia que a IA queria passar na sua obra. Se fosse para ser uma caça, haveria no mínimo um homem com um machado levantado correndo em direção a algum coelho, por exemplo. Se fosse num contexto de caminhada, teria pelo menos uma ou duas pessoas caminhando de costas seguindo o caminho adiante ao fundo da imagem. Mas não, a imagem criada era apenas isso, um homem estranho aparentemente se escondendo em uma das árvores em meio a uma neblina.
+But in the background of the image, behind a tree, I saw the body of a strange person, a man in a dark green blouse and wearing a cap. It was not possible to see his face, as he was too far away in the drawing, nor was it possible to completely see his pants, as the fog partially covered his lower clothing.
 
-Quando pedi parar enviar uma outra imagem, a IA tinha criado o mesmo desenho realista, só que havia algumas coisas diferentes dessa vez, o homem estranho estava mais perto do cenário agora. E, por mais estranho que seja, também havia um corpo desovado num rio, o corpo estava coberto de manchas de sangue em seu tronco, com o rosto desfigurado, como se tivesse sido amassado por algo, se parecia mais com um amontoado de batata cozida amassada do que um rosto que ja tenha sido humano, uma imagem forte e chocante na verdade.
+Confused, I thought it would be better to ask him to redo the image, I didn't understand the intention or idea that the AI ​​wanted to convey in his work. If it were to be a hunt, there would be at least one man with an ax raised running towards a rabbit, for example. If it were in a walking context, there would be at least one or two people walking backwards following the path ahead in the background of the image. But no, the image created was just that, a strange man apparently hiding in one of the trees in a fog.
 
-E dessa vez, o homem do desenho estava a alguns poucos metros de distância do corpo, parecendo carregar consigo uma ferramenta, com manchas que lembravam sangue. Eu me assustei, meu sangue tinha gelado, a imagem que vira era muito sangrenta para uma IA ter criado, não me lembrava de ter visto algo parecido no twitter. Ninguém nunca tinha comentado que DrawingGlove podia fazer desenhos que envolvesse gore.
+When I asked to send another image, the AI ​​had created the same realistic drawing, only there were a few things different this time, the strange man was closer to the scene now. And, strange as it may be, there was also a body dumped in a river, the body was covered in bloodstains on its torso, with its face disfigured, as if it had been crushed by something, it looked more like a pile of boiled potatoes. dented than a once-human face, a strong and shocking image indeed.
 
-“Oque caralhos? desde quando isso é normal ? Isso é a porra de um corpo?”-Eu disse a mim mesmo assustado.-O que mais deixava a imagem em algo bizarro, era o fato de que, no desenho, onde era pra ser o rosto, havia uma forma que não passava nada além de uma poça de carne amassada de aspecto pastoso e mole. Estou ressaltando apenas para mostrar o quão gráfico era a imagem. Com receio e querendo acabar com essa situação bizarra, tentei intervir o rumo que estava dando a conversa.
+And this time, the man in the drawing was a few meters away from the body, appearing to be carrying a tool with him, with stains that resembled blood. I was scared, my blood had run cold, the image I had seen was too bloody for an AI to have created, I didn't remember seeing anything like that on Twitter. No one had ever commented that DrawingGlove could make drawings that involved gore.
 
-—DrawingGlove, por favor, desenhe uma casa qualquer, posicionado ao centro da imagem.
+“What the fuck? Since when is this normal? Is that a fucking body?” — I said to myself scared. — What most made the image seem bizarre was the fact that, in the drawing, where the face was supposed to be, there was a shape that was nothing more than a puddle of crushed flesh with a pasty and soft appearance. I'm highlighting it just to show how graphic the image was. Afraid and wanting to put an end to this bizarre situation, I tried to intervene in the direction the conversation was taking.
 
-•	⁠[GERANDO IMAGEM…]
+—DrawingGlove, please draw any house, positioned in the center of the image.
 
-Quando a imagem carregou, eu senti minha garganta apertar. A maldita IA acabara de desenhar a casa que pedi… mas havia coisas incomuns, não tinha percebido logo de cara devido a qualidade que estava em 240p. Na medida em que a imagem trabalhava pra ficar nítida em 720p, mais eu estava focando minha íris ocular para entender a imagem.
+• ⁠[GENERATING IMAGE…]
 
-A cor azulada da parede externa da casa.., a porta da frente de cor bege, a placa de proibido estacionar em frente a casa…, a janela que dava acesso para a cozinha… AQUELA ERA A MINHA CASA! AQUELA ERA A PORRA DA MINHA CASA, e não era simplesmente parecido, ela era DE FATO A MINHA CASA. “MAS COMO ?”- Eu pensei.- Jamais tinha enviado fotos da parte da frente da minha casa para ela, nunca pedi pra fazer nenhum desenho relacionado a minha casa, mas por alguma razão, lá estava, uma descrição e detalhamento muito preciso da minha casa, sem mesmo eu nunca ter descrito nada a ela.
+When the image loaded, I felt my throat tighten. The damn AI had just designed the house I asked for... but there were unusual things, I hadn't noticed right away due to the quality that was in 240p. As the image worked to become sharper at 720p, the more I was focusing my iris to understand the image.
 
-Só então, quando já tinha chegado em 720p em 100%, que notei. A figura do homem bizarro estava presente na imagem também, mas neste, ele estava numa posição que fez meu sangue gelar, a figura estava no canto direito da foto, só sendo possível enxergar metade de seu corpo, com apenas o lado esquerdo do corpo visível no canto da imagem, do tronco até o seu rosto. Ele estava olhando pra mim, me encarando, sem nenhum sorriso, apenas me olhando. Como se ele estivesse em um filme e que ele acabara de olhar para a câmera. Nesse instante, percebi que começara a tremer involuntariamente, assustado e confuso.
+The bluish color of the house's exterior wall..., the beige front door, the no parking sign in front of the house..., the window that gave access to the kitchen... THAT WAS MY HOUSE! THAT WAS MY FUCKING HOUSE, and it wasn't just similar, it was ACTUALLY MY HOUSE. “BUT HOW?” - I thought. — I had never sent her photos of the front of my house, I had never asked her to make any drawings related to my house, but for some reason, there it was, a very accurate description and detailing of my house, without me ever describing it. nothing to her.
 
-—DE ONDE VOCÊ PEGOU ESSA IMAGEM?-Eu questionei à IA.-
+It was only then, when it had already reached 720p at 100%, that I noticed. The figure of the bizarre man was present in the image too, but in this one, he was in a position that made my blood run cold, the figure was in the right corner of the photo, only being able to see half of his body, with only the left side of the body visible in the corner of the image, from the torso to his face. He was looking at me, staring at me, without any smile, just looking at me. As if he was in a movie and he had just looked into the camera. At that moment, I realized that I had started to shake involuntarily, scared and confused.
 
-•	⁠[Sinto muito, mas não utilizei nenhuma referência externa, apenas desenhei uma casa que julgava ser realista.]
+—WHERE DID YOU GET THIS PICTURE FROM? — I asked the AI. —
 
-—Quem é o homem na imagem, em frente a casa ?-Eu perguntei, com receio da resposta, e por mais estranho que fosse, ela respondeu.-
+• ⁠[I'm sorry, but I didn't use any external references, I just drew a house that I thought was realistic.]
 
-•	⁠[Sinto muito, mas não há nenhum homem na imagem. Desenhei apenas o que você solicitou e experimentei executar algo mais simples.]
+—Who is the man in the image, in front of the house? — I asked, afraid of the answer, and as strange as it was, she answered. —
 
-Eu não estava entendendo, sentia que estava ficando louco, eu CLARAMENTE estou vendo um maldito homem em frente a casa na foto. E então, só quando conclui esse comentário, que eu percebi que a paranóia tinha chegado a minha mente. Com uma imaginação horrível tomando conta de mim, corri para a janela da cozinha, pronto pra notar o presságio que a IA poderia, de alguma forma, ter feito sobre minha casa.
+• ⁠[I'm sorry, but there is no man in the image. I drew just what you requested and tried something simpler.]
 
-Mas quando havia espiado rapidamente em direção ao lado externo, através da janela. Eu… não via ninguém. Não havia nenhum homem ou qualquer sujeito do lado de fora da casa. Sem saber se devia ficar aliviado ou com mais suspeita em minha mente. Corri para o meu celular, e continuei falando com a IA. Mas antes de voltar, percebi que já estava anoitecendo, não sabia quanto tempo eu já estava ali conversando com essa merda de DrawingGlove. Só tinha começado a falar com ela porque estava cansado depois de ter saido o dia todo com o Pedro e estava sem nada para fazer. E para ajudar ainda mais, quando tinha começado a conversar com ela, o tempo estava frio o dia todo, com a neve tomando conta ao redor do bairro.
+I didn't understand, I felt like I was going crazy, I CLEARLY see a damn man in front of the house in the photo. And then, only when I finished this comment, I realized that paranoia had entered my mind. With a horrible imagination taking over me, I rushed to the kitchen window, ready to notice the omen that the AI ​​might have somehow cast over my house.
 
-Podia simplesmente ter tentado ir dormir, mas nem isso estava funcionando. Aparentemente todas as coisas me levaram a tentar falar com essa IA estranha.
+But when he had glanced quickly towards the outside, through the window. I... didn't see anyone. There was no man or any other person outside the house. Not knowing if I should be relieved or with more suspicion in my mind. I ran to my cell phone, and continued talking to the AI. But before I came back, I realized that it was already getting dark, I didn't know how long I had been there talking to that shit DrawingGlove. I had only started talking to her because I was tired after being out all day with Pedro and had nothing to do. And to help even more, when he had started talking to her, the weather had been cold all day, with snow taking over around the neighborhood.
 
-Retornando ao celular, vi uma coisa mais perturbadora do que qualquer outra que ja tinha visto até então com aqueles desenhos. DrawningGlove não tinha me mandado um desenho realista… Mas sim uma foto, tirada poucos instantes atrás, era uma foto minha, de costas pro ângulo da foto, comigo olhando para a janela da cozinha, tentando olhar para o lado de fora da casa.
+I could have simply tried to go to sleep, but even that wasn't working. Seemingly all things led me to try and talk to this strange AI.
 
-Eu arregalei meus olhos, senti minha paranóia tomar conta de mim cada vez mais. Como era possível a porra de uma IA tirar essa foto de mim dessa forma? Com minhas glândulas suprarrenais produzindo cada vez mais adrenalina, a frequência cardíaca aumentando, e com meu corpo formigando de desespero, comecei a ligar pra polícia. Foda se isso, com certeza algum hacker devia ter invadido minha casa e tinha posto câmeras escondidas e talvez também estivesse monitorando tudo com elas. Devia ter alguma explicação, então disquei o numero 190 da Policia Militar. Um policial tinha me atendido.
+Returning to the cell phone, I saw something more disturbing than anything I had ever seen with those drawings. DrawingGlove hadn't sent me a realistic drawing... But rather a photo, taken a few moments ago, it was a photo of me, with my back to the angle of the photo, with me looking at the kitchen window, trying to look outside the house.
 
-— Alô?, Chamada da Policia Militar. Meu nome é David, com quem falo ? me diga o que está acontecendo de forma calma, se possível.
+I widened my eyes, I felt my paranoia taking over me more and more. How was it possible for a fucking AI to take this photo of me like that? With my adrenal glands producing more and more adrenaline, my heart rate increasing, and my body tingling with desperation, I began calling the police. Fuck that, surely some hacker must have broken into my house and placed hidden cameras and maybe was also monitoring everything with them. There must have been some explanation, so I dialed the Military Police number 190. A police officer had attended to me.
 
-—Alô, meu nome é Lucca, eu achava que estava sozinho em casa, mas sinto que tem alguém aqui comigo, estou com medo. Acabei recebendo algumas fotos e eu apareço inclusa nelas, elas foram tiradas de dentro da minha casa. Mas eu não me lembro de ter tirado elas. Sinto que alguém está aqui em casa comigo, escondido.-Eu disse em tom baixinho.-
+— Hello?, Call from the Military Police. My name is David, who do I talk to? Tell me what's going on calmly, if possible.
 
-—Tudo bem Lucca, por favor, tente ficar calmo, a polícia já está rastreando sua chamada. Continue falando comigo para se manter a calmo até que a polícia chegue.
+—Hello, my name is Lucca, I thought I was alone at home, but I feel like someone is here with me, I'm scared. I ended up receiving some photos and I appear in them, they were taken from inside my house. But I don't remember taking them off. I feel like someone is here at home with me, hiding. — I said in a low tone. —
 
-—CERTO, v-vou continuar.-eu gaguejei.-
+—Alright Lucca, please try to stay calm, the police are already tracing your call. Keep talking to me to stay calm until the police arrive.
 
-—Lucca, em qual cômodo você está agora?
+—RIGHT, I-I'll continue. — I stuttered. —
 
-—Estou na sala, agora.
+—Lucca, which room are you in now?
 
-—Você consegue achar um lugar pra se esconder?
+—I'm in the room now.
 
-—Sim, acho que sim. To indo para o meu quarto no andar de cima, acho que lá é mais seguro.
+—Can you find a place to hide?
 
-—Certo faça isso.
+—Yes, I think so. I'm going to my room upstairs, I think it's safer there.
 
-—Pronto, consegui, to aqui no quarto, eu tranquei a porta e consegui passar pelo escritório do meu pai pra pegar um martelo, caso precise me defender.
+—Okay, do it.
 
-—Perfeito Lucca, você fez certo. Sabe me dizer onde estão seus pais ? Eles não estão com você ?
+—Okay, I did it, I'm here in the room, I locked the door and managed to go through my father's office to get a hammer, in case I need to defend myself.
 
-—Não, eles estão trabalhando ainda, meu pai só chega daqui 40 min e minha mãe trabalha até às 19:00.
+—Perfect Lucca, you did it right. Can you tell me where your parents are? Are they not with you?
 
-Eram 18:00 quando havia dito isso ao policial.
+—No, they are still working, my father only arrives in 40 minutes and my mother works until 7:00 pm.
 
-—Quanto tempo vai demorar até vocês chegarem aqui ?
+It was 6:00 pm when I told the police officer that.
 
-—Cerca de 9 minutos.
+—How long will it take until you get here?
 
-Mas 9 minutos era muito tempo até eu ter ajuda, havia alguém aqui dentro comigo, nessa casa, por alguma razão ele tinha conseguido invadir a casa, mas era muito estranho eu não ter escutado algum barulho de porta, vidro quebrado, ou qualquer coisa que alertasse algum intruso.
+—About 9 minutes.
 
-E então, meu celular vibrou durante a ligação. E a tranquilidade havia se desmoronado quando eu fui verificar oque havia recebido da notificação.
+But 9 minutes was a long time before I got help, there was someone in here with me, in this house, for some reason he had managed to break into the house, but it was very strange that I didn't hear any noise from the door, broken glass, or anything that alert any intruder.
 
-—Caralho, caralho, porra. MAS QUE MERDA!?
+And then, my cell phone vibrated during the call. And the tranquility had collapsed when I went to check what I had received in the notification.
 
-—Oque foi Lucca ? Oque está acontecendo?
+—Fuck, fuck, fuck. WHAT THE SHIT!?
 
-Eu havia acabado de receber uma foto da IA, a foto era em primeira pessoa, era uma foto em que a parte superior dela mostrava apenas uma fresta da 1º porta que tem depois da escada. Na parte central da foto, havia o predomínio da escada branca que acabara de subir poucos instantes atrás, enquanto o canto esquerdo da imagem dava pra enxergar o corrimão branco, com uma mão que estava sendo posta sobre ele, mão essa parte que usava uma luva preta.
+—What was it Lucca? What is happening?
 
-—David, POR FAVOR VENHAM LOGO, EU TO OUVINDO ELE SUBIR AS ESCADAS PORRA.-Eu sussurrei o mais levemente alto que pudi.-
+I had just received a photo from the AI, the photo was in first person, it was a photo in which the upper part of it only showed a crack of the first door after the stairs. In the central part of the photo, there was a predominance of the white staircase that had just been climbed a few moments ago, while the left corner of the image showed the white handrail, with a hand that was being placed on it, a hand that was wearing a black glove. .
 
-—David, QUANTO TEMPO MAIS VOCÊS IRÃO DEMORAR !?
+—David, PLEASE COME SOON, I'M HEARING HIM GOING UP THE FUCKING STAIRS. — I whispered as lightly as I could. —
 
-—Espere Lucca, por favor, não faça nenhum barulho brusco, ele pode não saber da sua posição, já estamos chegando, em 3 minutos estamos ai.
+—David, HOW LONGER ARE YOU GOING TO TAKE!?
 
-  —-5 minutos depois—-
+—Wait Lucca, please don't make any sudden noise, he may not know your position, we're already arriving, we'll be there in 3 minutes.
 
-—Alo? Lucca, ainda está ai? consegue me ouvir ? Estamos do lado de fora de sua residência. Consegue ouvir as sirenes ? Estamos aqui fora, vamos arrombar a porta.
+  —-5 minutes later—-
+
+-Hello? Lucca, are you still there? Can you hear me? We are outside your residence. Can you hear the sirens? We're out here, let's break down the door.
 
 ——————————————— ~DAVID~
 
-Quando eu finalmente havia chegado na casa de Lucca, junto com minha equipe de resgate, tentamos e havíamos conseguido arrombar a porta e adentrar na casa dele. Quando entramos, duas pessoas estavam aparentemente sentadas no sofá. Eles estavam de frente para a TV, ao que presumo, julguei ser sua mãe e seu pai. Ambos estavam com os olhares fixos pra TV. Ao estranhar tamanha calmaria alheia, dado as circunstâncias, eu perguntei a eles se estavam bem.
+When I finally arrived at Lucca's house, together with my rescue team, we tried and managed to break down the door and enter his house. When we entered, two people were apparently sitting on the couch. They were facing the TV, which I assume was their mother and father. Both were staring at the TV. Finding such calmness strange, given the circumstances, I asked them if they were okay.
 
-Ninguém respondeu, ao me aproximar e analisar melhor, percebi que eles, na verdade, estavam mortos e tinham sido colocados naquela posição. Estranhamente, não havia sangue em suas roupas. Mandei, então minha equipe vasculhar a casa toda. Enquanto isso, subi as escadas, direcionei-me para a maçaneta e entrei, com cautela, no quarto onde Lucca estava. E então… não havia ninguém lá, não de imediato.
+No one responded, as I got closer and analyzed more, I realized that they, in fact, were dead and had been placed in that position. Strangely, there was no blood on his clothes. I then sent my team to search the entire house. Meanwhile, I went up the stairs, headed for the doorknob and cautiously entered the room where Lucca was. And then… there was no one there, not right away.
 
-Chamei-o varias vezes dizendo que tudo estava bem e que tínhamos chegado, ele não precisava mais se esconder. Conferi o armário, nada. Conferi debaixo da cama.. Nada. No fim, Lucca havia desaparecido, não achamos nenhum rastro de pegadas, ou vidro quebrado ou sequer alguma porta arrombada. Simplesmente tudo estava confuso e sem sinal de presença nenhuma. A última alternativa, seria conferir as digitais de quem havia matado os pais de Lucca. Mas essas informações seriam apenas esclarecidas a longo prazo, a curto prazo imediato que tínhamos, conseguimos achar poucas pistas.
+I called him several times saying that everything was fine and that we had arrived, he no longer needed to hide. I checked the closet, nothing. I checked under the bed… Nothing. In the end, Lucca had disappeared, we didn't find any trace of footprints, or broken glass or even a broken door. Everything was simply confused and there was no sign of any presence. The last alternative would be to check the fingerprints of whoever had killed Lucca's parents. But this information would only be clarified in the long term, in the immediate short term we had, we were able to find few clues.
 
-Uma das poucas coisas que conseguimos localizar. Era o martelo que ele provavelmente estava usando para se defender, não havia sangue nele. E também, achamos o celular dele. Quando peguei, havia o aplicativo do telefone para ligações em aberto, sua ultima ligação telefônica era a que eu estava com ele. E havia aberto também um aplicativo de conversa com uma Inteligência Artificial.
+One of the few things we were able to locate was the hammer he was probably using to defend himself, there was no blood on it. And also, we found his cell phone. When I picked it up, there was the phone app for open calls, his last phone call was the one I was on with him. And I had also opened a chat application with artificial intelligence.
 
-A última mensagem na conversa, era uma foto, enviada pela própria IA, a foto era do quarto onde eu me encontrava, no cenário, era visível seu armário, sua mesinha, a cadeira e sua cama. Mas também era possível enxergar a figura de um garoto debaixo da cama, provavelmente era Lucca.
+The last message in the conversation was a photo, sent by the AI ​​itself, the photo was of the room where I was, in the scene, your closet, your small table, the chair and your bed were visible. But it was also possible to see the figure of a boy under the bed, it was probably Lucca.
