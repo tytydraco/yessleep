@@ -1,5 +1,7 @@
 [\[Part 24\]](https://www.reddit.com/user/RandomAppalachian468/comments/1i2jn0y/the_call_of_the_breach_part_24/)
 
+[\[Part 26\]](https://www.reddit.com/user/RandomAppalachian468/comments/1i75ds3/the_call_of_the_breach_part_26/)
+
 *I stood once again in the rain, surrounded by chanting voices, the smell of blood in my nose. I didn’t want to open my eyes, for I knew what waited for me, could almost feel the roots and vines twisting into the flesh of my friends, and hear their pained groans.*
 
 *Wake up, wake up, come on it’s just a dream, wake up . . .*
