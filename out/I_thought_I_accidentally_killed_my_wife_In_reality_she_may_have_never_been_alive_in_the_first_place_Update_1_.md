@@ -34,7 +34,7 @@ I loved her, and she was still Camila, whoever and whatever that was.
 
 *“She’s…she’s damaged, mom.”*
 
-My wife was currently laying lifelessly on our largest couch in the living room, positioned against the wall farthest from the stairs. Her toes were pointed upward and she held her arms at her sides, as if rehearsing for her own wake. I had affixed the motor from the airbed to her injured wrist, layers of scotch tape wrapping around the nozzle to decrease the amount of air leakage. The makeshift augmentation was a start, but it was imperfect. The mechanical draft opened Camila’s body, yes, but it didn’t fully pressurize her. Instead, the air rippled through her, waves of expansion and de-expansion washing over the surface of my wife like a tarp flapping in a strong wind. I described this all to Maggie, and when I was done, she did not need to pause before launching into her follow up questions.
+My wife was currently laying lifelessly on the largest couch in our living room, positioned against the wall farthest from the stairs. Her toes were pointed upward and she held her arms at her sides, as if rehearsing for her own wake. I had affixed the motor from the airbed to her injured wrist, layers of scotch tape wrapping around the nozzle to decrease the amount of air leakage. The makeshift augmentation was a start, but it was imperfect. The mechanical draft opened Camila’s body, yes, but it didn’t fully pressurize her. Instead, the air rippled through her, waves of expansion and de-expansion washing over the surface of my wife like a tarp flapping in a strong wind. I described this all to Maggie, and when I was done, she did not need to pause before launching into her follow up questions.
 
 A subtle undertow of fear now colored her speech, however.
 
@@ -56,7 +56,7 @@ It was all becoming too much.
 
 Numbly, I turned away from Camila and whispered something to Maggie, hoping the question would be inaudible to my wife under the loud vibrations of the motor.
 
-*“I’m safe, okay? But Mom…what is she? A replica…a machine…what?”*
+*“I’m safe, okay? But Mom…what is she? A replica of Camila…some kind of machine…what?”*
 
 I did not have to wait long for her response. She started speaking before I even made it up the small set of stairs that led to the front door.
 
@@ -80,7 +80,7 @@ My grandmother’s death, on the other hand, was an unambiguous blessing - for m
 
 After a pause, she continued.
 
-*“But she…it's on loan. It belongs to them. They own it, and the technology they put into it. They…they said the loan would continue if…”*
+*“But she…it's on loan. It belongs to them. They own the technology they put into it. They…they said the loan would continue if…”*
 
 Unable to finish her sentence, Maggie fell quiet, her words dissolving amidst some combination of fear, shame, and cowardice. Although it was nearly impossible, I said nothing in response, waiting for silence to pull the completed confession out of Maggie. Eventually, she relented, and her tone became alarmingly clinical.
 

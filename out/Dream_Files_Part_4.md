@@ -1,5 +1,6 @@
 https://www.reddit.com/r/nosleep/s/GZDYOABOAc
 
+
 Hey everyone it’s Josiah. I’m currently in the apartment with Madison and I’ve just waken up from the lucid dream process. I’m going to let the my story tell you how it went.
 
 I’m back in the Rose Residence where I last left off. I pick myself up off the floor. I’m now standing in the hallway looking around and see no signs of Traum. Jim Rose notices me and starts talking.
@@ -36,7 +37,7 @@ I said as I was walking away. I then wake up from the nightmare. Madison was asl
 
 I come back to it now at the river, the water itself was tainted and red. Bodies lined the shore and they were calling out. But need to find the next body of my friend. I continue along the shoreline and don’t see them.
 
-I then notice a body trying to get my attention. I approached the body and find out it was my carpentry teacher Mr Lanes. Lanes was trying to speak but it sounded like his lungs were filled with water.
+I then notice a body trying to get my attention. I approached the body and find out it was my carpentry teacher who was trying to speak but it sounded like his lungs were filled with water.
 
 “She…is…in…rive…in…bleh.”
 

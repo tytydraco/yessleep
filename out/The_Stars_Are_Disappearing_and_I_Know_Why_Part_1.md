@@ -1,12 +1,12 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1husn01/the_stars_are_disappearing_and_i_know_why_part_1/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1hvllie/the_stars_are_disappearing_and_i_know_why_part_2/)
 
-The night sky was clear above the McPherson Observatory, a canopy of stars stretching infinitely across the darkness. But I no longer found comfort in the familiar constellations. My name is Dr. Timothy Cole, senior astronomer, and I once considered myself lucky to spend my life peering into the mysteries of the cosmos. But that was before I found it — the thing that waits in the void, consuming all light, all hope.
+The night sky was clear above the McPherson Observatory, a canopy of stars stretching infinitely across the darkness. But I no longer found comfort in the familiar constellations. My name is Tim, and I'm a senior astronomer — and I once considered myself lucky to spend my life peering into the mysteries of the cosmos. But that was before I found it — the thing that waits in the void, consuming all light, all hope.
 
 I record this log not for posterity, but as a warning. If you hear it, then what we found is no longer confined to the darkness between the stars. It has found its way here, and you must understand what that means.
 
 We thought we were prepared. We thought the James Webb Space Telescope would expand our horizons, show us new worlds, and perhaps — just perhaps — offer a glimpse into the existence of other sentient life. I believed in those possibilities more than anyone. For decades, I’ve spent countless nights at the observatory, meticulously collecting data, hungrily analyzing the secrets each star held.
 
-And then, three weeks ago, we aimed the JWST at a distant point in the galaxy — a star labeled HD 1284. At first, it seemed unremarkable, just another pinprick of light hanging in the vast expanse. That is, until Sarah Brighton, my assistant, noticed something odd in the data.
+And then, three weeks ago, we aimed the JWST at a distant point in the galaxy — a star labeled HD 1284. At first, it seemed unremarkable, just another pinprick of light hanging in the vast expanse. That is, until Sarah, my assistant, noticed something odd in the data.
 
 “Sir,” she had said, voice tight with an edge of excitement, “there’s... an anomaly.”
 
@@ -80,17 +80,17 @@ We were the observed.
 
 A knock on my office door startled me from my thoughts. The sudden intrusion felt like a physical shock after so many hours of solitary focus. I turned, bleary-eyed, to see Sarah standing in the doorway, her face pale and tight with worry.
 
-“Timothy,” she whispered, glancing nervously over her shoulder, “they’re waiting for you in the conference room. Dr. Ramirez just arrived.”
+“Doctor,” she whispered, glancing nervously over her shoulder, “they’re waiting for you in the conference room. Elena just arrived.”
 
-I felt a jolt of adrenaline. I hadn’t expected Elena to get involved so soon. Dr. Elena Ramirez, the director of the JWST project, was a formidable presence — brilliant, ambitious, and known for her no-nonsense approach. If she was here, it meant this was no longer a research curiosity. It was an emergency.
+I felt a jolt of adrenaline. I hadn’t expected Elena to get involved so soon. Elena, the director of the JWST project, was a formidable presence — brilliant, ambitious, and known for her no-nonsense approach. If she was here, it meant this was no longer a research curiosity. It was an emergency.
 
 “Right,” I muttered, brushing my unkempt hair back and fumbling for my glasses. “Let’s go.”
 
 The walk to the conference room felt like traversing a dark, lonely chasm. The usual hum of activity in the observatory was gone, replaced by an uneasy silence. I could feel the tension simmering in the air, the weight of too many sleepless nights bearing down on everyone. Something had shifted since our discovery of the Feeder. It wasn’t just the data or the unsettling images — it was the feeling that we were peering into something that should have remained hidden.
 
-The room was small, with the blinds drawn tight, a single table surrounded by grim-faced scientists. Elena stood at the head, her arms crossed. Beside her, Dr. Michael Yates, the observatory’s chief physicist and my oldest friend, leaned back in his chair, staring thoughtfully at the blank screen in front of him. Opposite him was Dr. Ravi Singh, a cosmologist whose brilliance was matched only by his volatility.
+The room was small, with the blinds drawn tight, a single table surrounded by grim-faced scientists. Elena stood at the head, her arms crossed. Beside her, Dr. Yates, the observatory’s chief physicist and my oldest friend, leaned back in his chair, staring thoughtfully at the blank screen in front of him. Opposite him was Dr. Singh, a cosmologist whose brilliance was matched only by his volatility.
 
-“Timothy,” Elena said without preamble, fixing me with a sharp gaze as I took a seat. “Explain.”
+“Doctor,” Elena said without preamble, fixing me with a sharp gaze as I took a seat. “Explain.”
 
 I hesitated, glancing around the room. They were all waiting, their expressions a mix of curiosity and thinly veiled anxiety. I could feel Sarah’s presence at my side. We were standing on the precipice of something monumental, and I wasn’t sure if I could put it into words.
 
@@ -112,7 +112,7 @@ Elena narrowed her eyes. “What’s its size?”
 
 “The star’s outer layers,” Sarah said, speaking up for the first time. Her voice trembled slightly. “It’s like a… a parasitic organism, latching on and draining it. And it’s not just light it’s consuming. The gravitational field around the star is warping in response, almost as if the entity is absorbing space-time itself.”
 
-A heavy silence settled over the room. Ravi’s gaze flickered between me and Sarah, his mouth set in a grim line.
+A heavy silence settled over the room. Dr. Singh's gaze flickered between me and Sarah, his mouth set in a grim line.
 
 “Are you suggesting it’s a form of dark energy?” he asked.
 
@@ -122,13 +122,13 @@ Michael laughed, a dry, humorless sound. “A predator star? Come on, Tim. That�
 
 “Is it?” I shot back, more forcefully than I intended. “Think about it. We’ve always assumed life to be bound by biological principles, but what if that’s just a limitation of our perception? What if there are forms of life out there that don’t fit our definitions? Forms that can thrive in the vacuum of space, that consume on a cosmic scale?”
 
-“Enough!” Elena interrupted sharply. “We’re not here to speculate. I want concrete data, Timothy. What is this thing? What are its capabilities? And, most importantly, is it a threat?”
+“Enough!” Elena interrupted sharply. “We’re not here to speculate. I want concrete data. What is this thing? What are its capabilities? And, most importantly, is it a threat?”
 
 I hesitated. Was it a threat? My instincts screamed yes, but I had no evidence to back up that fear. The Feeder hadn’t shown any aggression — it was just… feeding. But there was something deeply unsettling in the way it moved, the way it reacted to the telescope’s gaze.
 
 “There’s more,” I said softly. “When we focused the JWST on it, we detected a faint signal — a low-frequency hum that doesn’t correspond to any known natural emissions.”
 
-Ravi sat up straighter, his eyes sharp. “A signal? You didn’t mention this before.”
+Dr. Singh sat up straighter, his eyes sharp. “A signal? You didn’t mention this before.”
 
 “I wasn’t sure what to make of it,” I admitted. “It’s almost imperceptible, buried in the background noise. But it’s rhythmic, structured. Almost like—”
 
@@ -140,7 +140,7 @@ Elena’s gaze hardened. “What do you mean?”
 
 I took a deep breath, forcing myself to continue. “What if this isn’t the first star it’s consumed? What if it moves from one stellar system to another, draining stars of their energy? And what if the signal we picked up is a… a beacon? A way to attract other sentient beings, like us, to come and investigate?”
 
-“And then it devours them, too,” Ravi finished quietly, his face pale.
+“And then it devours them, too,” Dr. Singh finished quietly, his face pale.
 
 “That’s insane,” Michael muttered, shaking his head. “Stars die all the time. Supernovae, black holes—”
 
@@ -170,7 +170,7 @@ The room exploded into chaos.
 
 \* \* \* \* \* \*
 
-My descent into obsession began that night. The chaos of the meeting quickly subsided, but the fear never left. We went our separate ways, each struggling to grasp what we had witnessed. Dr. Ramirez immediately ordered a lockdown on all research involving HD 1284, restricting access to the telescope and data files. No one was to discuss it, document it, or, God forbid, leak it to the public.
+My descent into obsession began that night. The chaos of the meeting quickly subsided, but the fear never left. We went our separate ways, each struggling to grasp what we had witnessed. Elena immediately ordered a lockdown on all research involving HD 1284, restricting access to the telescope and data files. No one was to discuss it, document it, or, God forbid, leak it to the public.
 
 But I couldn’t stay away.
 
@@ -208,15 +208,15 @@ The words sent a shiver through me. *Learning*. Mimicking. *Adapting*. What if i
 
 “We can’t stop now,” I said softly. “We’re too close. We need to keep watching, keep—”
 
-“No,” she interrupted, shaking her head violently. “We need to stop, Timothy. This… this thing is manipulating us. Can’t you feel it?” Her voice broke, and she grabbed my arm, fingers digging into my flesh. “Every time we look at it, every time we send a signal, it’s like… like it’s reaching out. Like it’s wrapping itself around us.”
+“No,” she interrupted, shaking her head violently. “We need to stop. This… this thing is manipulating us. Can’t you feel it?” Her voice broke, and she grabbed my arm, fingers digging into my flesh. “Every time we look at it, every time we send a signal, it’s like… like it’s reaching out. Like it’s wrapping itself around us.”
 
 I wrenched my arm free, anger and frustration bubbling up. “You’re overreacting! It’s a phenomenon — a discovery. This is what we do, Sarah. We study. We learn.”
 
-“Not this,” she murmured, stepping back, her face pale. “This isn’t science, Timothy. This is—” She trailed off, glancing around as if the shadows in the room were listening. “It’s *hungry*.”
+“Not this,” she murmured, stepping back, her face pale. “This isn’t science. This is—” She trailed off, glancing around as if the shadows in the room were listening. “It’s *hungry*.”
 
 The word echoed in the silence, hanging heavy in the air. *Hungry*. I wanted to laugh, to brush it off as paranoia, but something deep inside me recoiled. Was that what this was? Had we awakened something that shouldn’t have been disturbed? Something that was growing stronger the more we probed its secrets?
 
-“I’m going to talk to Dr. Ramirez,” she said suddenly, her voice wavering. “This needs to stop.”
+“I’m going to talk to Elena,” she said suddenly, her voice wavering. “This needs to stop.”
 
 I surged to my feet. “No! You can’t — she’ll shut it all down. We need more time, more—”
 
@@ -224,7 +224,7 @@ I surged to my feet. “No! You can’t — she’ll shut it all down. We need m
 
 “We’ll *what*?!” I snarled, fists clenched. “We’ll understand? We’ll finally see?”
 
-“Or we’ll go mad,” she whispered. The words were soft, barely audible, but they cut through me like a knife. “Please, Timothy. Let it go.”
+“Or we’ll go mad,” she whispered. The words were soft, barely audible, but they cut through me like a knife. “Please, let it go.”
 
 I stared at her, chest heaving, and for a moment — just a moment — I considered walking away. Letting the darkness swallow up the Feeder and forgetting we ever looked into the abyss. But then the signal pulsed again, throbbing through the room, and my resolve hardened.
 
