@@ -64,7 +64,7 @@ In a frenzied panic, I tried to pull my head back through the bars. They squeeze
 
 The more I moved and struggled, the tighter the metal bars became. As I swung my head left and right, I could see the other cells were all empty. I was alone, save for the fleshy demonic faces that were now peeling themselves from the walls with agonizing expressions permeating their now impossibly structured faces.
 
-The rotted fleshy substance that became the surface of the prison's inner chambers fought to keep the many shaplmbling forms from escaping, as if it understood that the sights unfolding before me were entirely unnatural to this realm.
+The rotted fleshy substance that became the surface of the prison's inner chambers fought to keep the many shambling forms from escaping, as if it understood that the sights unfolding before me were entirely unnatural to this realm.
 
 Frantically, uncontrollably, I shook my head from side to side, both searching for help and rejecting this new reality. If I could just get someone, anyone...
 
