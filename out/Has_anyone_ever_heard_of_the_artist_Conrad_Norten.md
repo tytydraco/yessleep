@@ -1,4 +1,4 @@
-I started looking for information on Conrad Norten because of a art history project. It's been 3 years since I finished that art project and I still need to know more.
+I started looking for information on Conrad Norten because of an art history project. It's been 3 years since I finished that art project and I finally have found my answers.
 
 Let me explain.
 
@@ -15,6 +15,4 @@ The research started half-heartedly, I didn't care much, I just needed to pass t
 His art was as if the world had a distorting filter on it. The colors never were in the lines, nor did they go together. Nothing looked real. Yet each one looked like a real place, a real photo, a real reality.
 
 Sorry Reddit it’s late and I have to work in the morning. I will share more of what I have discovered about Conrad as soon as I get the chance.
-
-Please reach out if you find ANY information on Conrad Nortmen.
 
