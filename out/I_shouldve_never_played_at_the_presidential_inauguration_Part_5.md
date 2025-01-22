@@ -38,3 +38,5 @@ But I was so tired I didn’t want to spend the hassle finding a new one, so I d
 When I woke up at around 3AM, I felt extremely thirsty, so I grabbed a bottle of water that I had, but instead of the taste of minerals and h20, I tasted blood. I spat it out, only to see it had something written on it.
 
 “Here’s a gift for buying at our restaurant, here’s more of Ethan’s blood!”
+
+Part 6: https://www.reddit.com/r/nosleep/s/11PPF89S3T
