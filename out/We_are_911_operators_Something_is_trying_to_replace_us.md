@@ -115,6 +115,6 @@ I showed the website to Connor and he browsed through it, finding something I ha
 
 I looked at my injured hand and gasped, then quickly lifted up the leg of my pants to see the same thing on my ankle. At the same time Connor lifted one side of his shirt enough to see where he'd been attacked.
 
-My hand, ankle, and that part of Connor's torso, were pitch black.
+My hand, ankle, and that part of Connor's torso, were [pitch black](https://www.reddit.com/user/fake_bruh/comments/1i7of68/story_compilation/).
 
 [Part 4/4](https://www.reddit.com/r/nosleep/comments/1i4nbko/we_were_911_operators_i_dont_know_what_we_are/)

@@ -244,4 +244,12 @@ Once Camila is big enough, I am going to kill Franklin and feed her his marrow. 
 
 She will then bring him back here, and we will determine our purpose. If we have none, we will kill David and then return to the sea.
 
-EDIT: link to final [update](https://www.reddit.com/r/nosleep/s/rMnjZIjnt0) 
+**One final note**: In my preparations, I have begun experiencing a sort of ominous familiarity. The sensation of having tread this path before, even if the finer details allude me. I'm forced to ask myself, have I been on this particular crusade before? Perhaps I have been made to forget, but, against all odds, managed to retain the slightest fragment of a memory. Some part of me that refused to be erased completely. 
+
+If I ever forget again, I need but revisit the story of my birth, as provided to me by Camila. 
+
+My history, as with most histories, exists between the lines. 
+
+\--------
+
+EDIT: link to final [update](https://www.reddit.com/r/nosleep/s/rMnjZIjnt0)

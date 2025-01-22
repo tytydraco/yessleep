@@ -378,7 +378,7 @@ When I finished, he closed the notebook and stared at me for a long moment. His 
 
 “Yes,” I said, though my voice wavered. “I know how it sounds, but… but you have to believe me. They’re coming. They’re—”
 
-“That will be all, Dr. Cole,” he interrupted, his tone flat. “We’ll take it from here.”
+“That will be all, Doctor,” he interrupted, his tone flat. “We’ll take it from here.”
 
 I wanted to argue, to plead, but I knew it wouldn’t make a difference. They didn’t want to understand what we were facing. And in the end, it didn’t matter. The Feeder and its kind would come, whether humanity was ready or not.
 
