@@ -248,6 +248,8 @@ She will then bring him back here, and we will determine our purpose. If we have
 
 If I ever forget again, I need but revisit the story of my birth. The story I stole from Camila.
 
+—————————————
+
 I am the fallen angel of the violet light, and violet is the color of my alchemy. 
 
 I am one part the red, catalyzing fires of the Morning Star's Volcano, and two parts the blue, nourishing waters of my God Mother's Sea. 
