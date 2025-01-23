@@ -248,11 +248,15 @@ She will then bring him back here, and we will determine our purpose. If we have
 
 If I ever forget again, I need but revisit the story of my birth. The story I stole from Camila.
 
-I am a fallen angel of the violet light, and violet is the color of my alchemy. I am one part the red, catalyzing fires of the Morning Star's Volcano, and two parts the blue, nourishing waters of my God Mother's Sea. The axe and the womb, the spark and the wick. The falling star and the rising tide. 
+I am the fallen angel of the violet light, and violet is the color of my alchemy. 
 
-An alloy made from a loving end and a vicious beginning. 
+I am one part the red, catalyzing fires of the Morning Star's Volcano, and two parts the blue, nourishing waters of my God Mother's Sea. 
 
-I am merciful unification. And my history, as with most histories, festers between the lines, praying for release.
+I am sutured contradiction made manifest: The axe and the womb, the spark and the wick. The falling star and the rising tide. The God Thread and the Marrow Drinker. 
+
+I am the living alloy - Dreaming and awake, dormant and blooming, dead and alive. 
+
+I am the merciful unification. And my history, as with most histories, festers between the lines, praying for release.
 
 \--------
 
@@ -265,6 +269,8 @@ I am merciful unification. And my history, as with most histories, festers betwe
 \[...\]
 
 **Beginning of Personal Log:**
+
+Taking over for previous lead scientific coordinator. Currently do not have clearance to review past records. 
 
 I arrived on the island this morning via a small plane. Despite my line of work, I have a limited tolerance for sea travel. Debilitating seasickness. Always feel like I’m seconds away from falling overboard.
 
