@@ -17,7 +17,6 @@ Pops huffed. "Active. Huh. That's a word for it. Maybe it's good for hunting up 
 I pictured a cadre of snow-crazed squirrels climbing up my legs and laying waste to my camo jacket. I chuckled. "I'll be on the ground, hunting hogs, so I'll have the AR-10. Twenty rounds of .308 as fast as I can pull the trigger. If the raccoons get testy, I'll give 'em the business."
 
 "Yeah. Well. If you do see snow, you blast any critter that so much as looks at you. I'm tellin' ya. I seen it once, when I was younger than you are." And with that, Pop-Pop was absorbed back into his TV program, a nature documentary about life in the oceans. I patted him on the shoulder and gave Mama another hug before I headed out to my truck.
----------------
 
 The drive north up 75 was uneventful; traffic was light in that direction. Plenty of folks headed south, though. Every third vehicle was either an RV, towing a camper, or was crusted in the cruddy salt film from roads far up north. Snowbirds fleeing the polar vortex. Towns became smaller and more sparse along the drive. Beyond Gainesville, even most of the farmland gave way to undeveloped woods and swamp.
 
