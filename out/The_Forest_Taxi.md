@@ -12,15 +12,15 @@ Don't.
 
 On January 6, 2025, just freshly two weeks after my divorce, I got out of home and went on my first solo trip since my wedding. The Redstream Woods: the place where I spent most of my childhood, home to my first kiss and eventually, my undoing. Let's not get too far ahead, though.
 
-It was the core of autumn - the leaves of the trees were showing off all the tan that they kept ever since summer ended, the sky, although looking like a grumpy old man, provided a pleasing sight for my eyes as all the grey clouds sat on the sun and almost all the annoying bugs were close to being gone.
+It was the core of autumn - the leaves of the trees were showing off all the tan that they kept ever since summer ended. The sky, although looking like a grumpy old man, provided a pleasing sight for my eyes as all the grey clouds sat on the sun and almost all the annoying bugs were close to being gone.
 
 A perfect imagery for a man looking for a distraction from the gravity of his life's problems.
 
-Nothing felt wrong at first. There weren't many tourists on the trail since it was off. The air felt clear. Not a single sign of rain or perhaps a thunderstom to be seen.
+Nothing felt wrong at first. There weren't many tourists on the trail since it was off season. The air felt clear. Not a single sign of rain or perhaps a thunderstom to be seen.
 
 I arrived to the top, took some pictures and selfies as I was a single man now. Needed some photos to put on Tinder.
 
-That's when I got AirDropped an image. I turned around, looking who could've sent it. Maybe a Tinder account wouldn't even be neccesary, perhaps I was lucky and caught somebody's interest here.
+That's when I got AirDropped an image. I turned around, looking for who could've sent it. Maybe a Tinder account wouldn't even be neccesary, perhaps I was lucky enough and caught somebody's interest here.
 
 There was no one to be seen anywhere close, though.
 
@@ -96,15 +96,15 @@ And what he did.
 
 If I understood correctly, if I made another person see the image he AirDropped me, the cabin would show up to them just like it did to me, and once they entered I'd be able to go back to... the world I came from.
 
-Back to the present, it's only been a day since I fell into the rabbit hole of this and I already feel like I'm going insane. I can't do this much longer.
+Back to the present, it's only been a day since I fell into the rabbit hole of this and I already feel like I'm going insane. I can't do this for much longer.
 
 I also don't want to sacrifice another person just so I can be free, so I came up with a plan. I ain't sure if it's going to work, I still don't understand how this all is happening, but it's worth a try. I need to do it before my phone runs out of battery.
 
 I still have the image the guy sent me. I need to post it online, but with a guarantee that a lot of people will see it. My social media are not even an option, because I don't, under any circumstances, want the people close to me to see it. I'm not putting them through this. I'll rather choose a million strangers.
 
-Now listen, technically, if thousands of people kept seeing it, it would mean that nobody would stay here long enough. If I'm correct, it would create a loop, and the people would just keep switching.
+Now listen, technically, if thousands of people kept seeing it, it would mean that nobody would stay here long enough. Right? If I'm correct, it would create a loop, and the people would just keep switching.
 
-I know exactly where to post it. I've already written it all down, so the people reading it will know what's going on once they get here. I added an image link of the spiral to the article- and cropped myself out so I won't end up being blamed by the internet.
+I know exactly where to post it. I'd already written it all down, so the people reading it will know what's going on once they get here. I added an image link of the spiral to the article- and cropped myself out so I won't end up being blamed by the internet.
 
 My data are turned on, connecting me to the internet and now, only one button is dividing me from freedom - "**Post to** r/nosleep".
 
