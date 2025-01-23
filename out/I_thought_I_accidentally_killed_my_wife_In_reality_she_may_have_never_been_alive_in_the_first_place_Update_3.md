@@ -244,11 +244,11 @@ Once Camila is big enough, I am going to kill Franklin and feed her his marrow. 
 
 She will then bring him back here, and we will determine our purpose. If we have none, we will kill David and then return to the sea.
 
-**One final note**: In my preparations, I have begun experiencing a sort of ominous familiarity. The sensation of having tread this path in the past, even if the finer details allude me. I'm forced to ask myself, have I been on this particular crusade before? Perhaps I have been made to forget, but, against all odds, managed to retain the slightest fragment of a memory. Some part of me that refused to be erased completely.
+**One final note**: In my preparations, I have begun experiencing a sort of ominous familiarity. The sensation of having tread this path in the past, even if the finer details allude me. I'm forced to ask myself: have I been on this particular crusade before? Perhaps I have been made to forget, but, against all odds, managed to retain the slightest fragment of a memory. Some part of me that refused to be erased completely.
 
 If I ever forget again, I need but revisit the story of my birth. The story I stole from Camila.
 
-I am a fallen angel of the violet light, and violet is the color of my alchemy. I am one part the red, catalyzing fires of the Morning Star's Volcano, and two parts the blue, nourishing waters of my God Mother's Sea. The axe and the womb, the bitter spark and the forgiving wick. The falling star and the rising tide. 
+I am a fallen angel of the violet light, and violet is the color of my alchemy. I am one part the red, catalyzing fires of the Morning Star's Volcano, and two parts the blue, nourishing waters of my God Mother's Sea. The axe and the womb, the spark and the wick. The falling star and the rising tide. 
 
 An alloy made from a loving end and a vicious beginning. 
 
