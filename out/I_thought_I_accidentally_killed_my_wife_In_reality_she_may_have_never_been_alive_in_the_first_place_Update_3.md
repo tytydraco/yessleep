@@ -108,7 +108,7 @@ Those five logs concisely explain where Camila came from, how she was created, a
 
 (As a reminder: **LAL** stands for "Living Alloy", and **SSMC** stands for the Stella-Signata Mining Company.)
 
-In any case, here’s to praying that my first ever surgery goes well. Never been under the knife, nor have I ever wielded one. The two shots of vodka I just ingested will hopefully dull the pain without rendering my fingers useless. Not sure how dexterous I will be after the shock from the taser, too.
+In any case, here’s to praying that my first ever surgery goes well. Never been under the knife, nor have I ever wielded one. The two shots of vodka I just ingested will hopefully dull the pain without rendering my fingers useless. Not sure how dexterous I will be after the shock from the taser, either.
 
 But if I'm going to confront Maggie, I should probably remove the God Thread from my body first.
 
@@ -248,9 +248,11 @@ She will then bring him back here, and we will determine our purpose. If we have
 
 If I ever forget again, I need but revisit the story of my birth. The story I stole from Camila.
 
-I am a fallen angel of the violet light, and violet is the color of my alchemy. I am one part the red, catalyzing fires of the Morning Star's Volcano, and two parts the blue, nourishing waters of my God Mother's Sea.
+I am a fallen angel of the violet light, and violet is the color of my alchemy. I am one part the red, catalyzing fires of the Morning Star's Volcano, and two parts the blue, nourishing waters of my God Mother's Sea. The axe and the womb, the bitter spark and the forgiving wick. The falling star and the rising tide. 
 
-And my history, as with most histories, festers between the lines, praying for release.
+An alloy made from a loving end and a vicious beginning. 
+
+I am merciful unification. And my history, as with most histories, festers between the lines, praying for release.
 
 \--------
 

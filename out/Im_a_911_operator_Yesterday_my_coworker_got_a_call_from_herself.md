@@ -78,6 +78,6 @@ When I opened my eyes I found myself back in the attic, but this time I could he
 
 I allowed her to drive and she kept asking me questions in the meantime, but I was too exhausted and in pain to respond coherently. We arrived at the parking lot and she turned to face me, looking me in the eyes and saying something I did not even register at that point. I was too caught up in a small detail that I knew I would have noticed for all the time I've known her.
 
-"Marielle... since when are your eyes [two different colors](https://www.reddit.com/user/fake_bruh/comments/1i7of68/story_compilation/)?"
+"Marielle... since when are your eyes two different [colors](https://www.reddit.com/user/fake_bruh/comments/1i7of68/story_compilation/)?"
 
 [Part 3/4](https://www.reddit.com/r/nosleep/comments/1i32afu/we_are_911_operators_something_is_trying_to/)
