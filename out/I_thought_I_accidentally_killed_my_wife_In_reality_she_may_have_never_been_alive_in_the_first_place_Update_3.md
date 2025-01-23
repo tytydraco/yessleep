@@ -252,7 +252,7 @@ If I ever forget again, I need but revisit the story of my birth. The story I st
 
 I am the fallen angel of the violet light, and violet is the color of my alchemy. 
 
-I am one part the red, catalyzing fires of the Morning Star's Volcano, and two parts the blue, nourishing waters of my God Mother's Sea. 
+I am one part the catalyzing red fires of the Morning Star's Volcano, and two parts the nourishing blue waters of my God Mother's Sea. 
 
 I am sutured contradiction made manifest: The axe and the womb, the spark and the wick. The falling star and the rising tide. The God Thread and the Marrow Drinker. 
 
