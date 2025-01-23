@@ -104,7 +104,7 @@ I’ve transcribed the last two mining logs below - the ones I intended to inclu
 
 When you read them in succession, they form a manual, as well as a kind of record.
 
-Those five logs concisely explain where Camila came from, how she was created, and I can hopefully use that information to free her.
+Those five logs concisely explain where Camila came from, how she was created, and I can hopefully use that information to free her. I've also included a small segment of the log that directly follows the last of the five. You'll see why once you get to it.
 
 (As a reminder: **LAL** stands for "Living Alloy", and **SSMC** stands for the Stella-Signata Mining Company.)
 
@@ -244,12 +244,30 @@ Once Camila is big enough, I am going to kill Franklin and feed her his marrow. 
 
 She will then bring him back here, and we will determine our purpose. If we have none, we will kill David and then return to the sea.
 
-**One final note**: In my preparations, I have begun experiencing a sort of ominous familiarity. The sensation of having tread this path before, even if the finer details allude me. I'm forced to ask myself, have I been on this particular crusade before? Perhaps I have been made to forget, but, against all odds, managed to retain the slightest fragment of a memory. Some part of me that refused to be erased completely. 
+**One final note**: In my preparations, I have begun experiencing a sort of ominous familiarity. The sensation of having tread this path in the past, even if the finer details allude me. I'm forced to ask myself, have I been on this particular crusade before? Perhaps I have been made to forget, but, against all odds, managed to retain the slightest fragment of a memory. Some part of me that refused to be erased completely.
 
-If I ever forget again, I need but revisit the story of my birth, as provided to me by Camila. 
+If I ever forget again, I need but revisit the story of my birth. The story I stole from Camila.
 
-My history, as with most histories, exists between the lines. 
+I am a fallen angel of the violet light, and violet is the color of my alchemy. I am one part the red, catalyzing fires of the Morning Star's Volcano, and two parts the blue, nourishing waters of my God Mother's Sea.
+
+And my history, as with most histories, festers between the lines, praying for release.
 
 \--------
+
+***Dr. Danica*** **\[REDACTED\]*****, Lead Scientific Coordinator for Diosfibras III***
+
+**Log 1:** December 2002
+
+***Contents:*** Description of Operation’s Intent, Summary of Previous Research, Personal Operational Logs
+
+\[...\]
+
+**Beginning of Personal Log:**
+
+I arrived on the island this morning via a small plane. Despite my line of work, I have a limited tolerance for sea travel. Debilitating seasickness. Always feel like I’m seconds away from falling overboard.
+
+Beatriz, my new assistant, met me at the landing site. She’s a graduate physical chemistry student from the mainland. \[...\]
+
+\------------------
 
 EDIT: link to final [update](https://www.reddit.com/r/nosleep/s/rMnjZIjnt0)
