@@ -46,4 +46,4 @@ I'll keep updating if this goes on.
 
 Part 2:
 
-https://www.reddit.com/r/nosleep/s/FoJIKItCqT
+https://www.reddit.com/r/DarkTales/comments/1i7wuy5/my_bosses_are_acting_strange_and_i_need_advice/
