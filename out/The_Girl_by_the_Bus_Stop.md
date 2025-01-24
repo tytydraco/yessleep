@@ -6,10 +6,10 @@ I blame my parents. Why did they have to take that stupid work trip? It’s not 
 
 I’ve spent most of the day watching my grandparents work on the farm. They wanted me to help, but I faked a stomachache from the trip. It worked, at least for now.
 
-By nightfall, I couldn’t sit still anymore. I decided to walk to the store, even though it’s ridiculously far from here.  
-  
-“Don’t stay out too long,” my grandfather warned. “The night gets dark fast around here.”  
-  
+By nightfall, I couldn’t sit still anymore. I decided to walk to the store, even though it’s ridiculously far from here.
+
+“Don’t stay out too long,” my grandfather warned. “The night gets dark fast around here.”
+
 I nodded just to get him off my back and left.
 
 It’s been over half an hour now, and I’m exhausted. Why do they have to live so far from the only store? I hate it here. In the distance, I spot a bus stop illuminated by a dim light. It looks inviting, so I decide to rest there for a moment.
@@ -34,8 +34,8 @@ Looking back, I realize it was disappointment. It reminded me of the way my mom 
 
 Eventually, I had to say goodbye to the girl. My parents decided it was time for me to move to the city. She seemed excited at first, telling me she wanted to go to the city someday too, but she couldn’t, not yet. We talked for hours that day at the bus stop.
 
-Then she asked me a question, “Now that you’re going to the city, I bet you’re going to do some great things, right?”  
-  
+Then she asked me a question, “Now that you’re going to the city, I bet you’re going to do some great things, right?”
+
 I gave her the same answer I always did. “I don’t know. Probably just sleep or whatever.”
 
 Her face went blank. Then she started crying. I didn’t know what to do. I tried to comfort her, but she grabbed my hand, her grip so tight it hurt. She stared at me with a mix of sadness and something I couldn’t quite place. Then she pushed me away and ran into the forest, toward where she said her family lived.
@@ -74,7 +74,7 @@ When summer break ends, my parents come to pick me up. As I sit in the car, I fe
 
 Back in the city, I throw myself into my studies. I meet new people, work harder than ever, and start building a life I never thought possible. People tell me I’ve changed, but I just smile and say I needed to expand my horizons.
 
-After high school, I get into a good university and land a great job. Years pass, and eventually, I return to the countryside. My grandparents are older now, and my parents decide to move in with them. They sell the farm and buy a cozy house in the suburbs.
+After high school, I get into a good university and land a great job. Years pass, and eventually, I return to the countryside. My grandparents are older now, and my parents decide to move in with them after they sell the farm and buy a cozy house in the suburbs.
 
 Even so, I find myself drawn back to the bus stop.
 
@@ -82,6 +82,6 @@ I walk to the clearing, where the tree still stands. It looks even worse now. Th
 
 Finally, I whisper, “I’m sorry”.
 
-A cruel smile creeps across my face, and I giggle softly, the sound lighter and more childlike than it should be. Without another word, I turn away and head back toward my grandparents’ house.
+A cruel smile creeps across my face, and I giggle softly, the sound lighter and more childlike than it should be. Without another word, I turn away and head back toward my grandparents’ house to help them move.
 
 The girl by the bus stop never truly left. And now, neither [have I.](https://www.reddit.com/r/QuietCornerTales/)
