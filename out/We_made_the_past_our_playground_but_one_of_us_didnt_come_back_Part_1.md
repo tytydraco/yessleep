@@ -315,3 +315,5 @@ Despite the terror I felt, I insisted on sending her through the window first. A
 “What the-” she started to say, and then it vanished entirely, right before our eyes.
 
 “We don't have time,” I urged her, and ushered her through the window. I followed, my head swimming as we passed through the threshold, and then we were in darkness. We had returned to the present.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1i8hwb9/we_made_the_past_our_playground_but_one_of_us/)
