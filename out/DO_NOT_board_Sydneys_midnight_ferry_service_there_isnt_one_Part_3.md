@@ -1,27 +1,18 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1i39fcl/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1i4td3k/do_not_board_sydneys_midnight_ferry_service_there/)
 
-*Knock knock knock knock knock…*  
+*Knock knock knock knock knock…*
 
-
-*3am…*  
-
+*3am…*
 
 *Knock knock knock knock knock…*
 
+*4am…*
 
-
-*4am…*  
-
-
-*Knock knock knock knock knock…*  
-
+*Knock knock knock knock knock…*
 
 *5am…*
 
-
-
-*6am…*  
-
+*6am…*
 
 *7am…*
 
@@ -89,11 +80,11 @@ Defeated, I made my way back inside, taking up residence in my row of seats as t
 
 This happened over and over. Every stop we made, what I knew to be reality was simply not there. As we pulled into Milson’s Point, the dock now blackened and covered in disgusting barnacles, I reluctantly forced myself to look over toward Luna Park. No more was the colourful, welcoming theme park. In place of the Mr Moon face, a set of huge, barbed wire gates twisting their way up skyward. Where the big top once stood, something that resembled a giant barn, rotting and decayed, more of these human resembling figures trudging their way out of its massive gates, some of them running toward the ferry and making their way on board. The ferris wheel? A monstrosity of a contraption, wiry arms sticking out from a dilapidating screeching metal centre grinding around in circles, people clinging onto the ends of these arms going round and round, screaming as they did so. I looked away, wanting to see no more. This was too much. The crushing reality that I had very much ended up in some rupture of time and space, trapped here, perhaps forever, diminishing any sense of hope that remained within me.
 
-All day this went on, the ferry slowly continuing to fill up with more and more of these strange depictions of human beings. Usually, they would board the ferry quietly, making their way to their seats and sitting down. But there was one notable exception to this rule. I would become painfully aware that night, that not all who board this vessel are harmless. I had just finished the second of my sandwiches, when I realised what was happening. Gradually, the ferry’s motions became more violent, the boat rocking back and forth in clearly harsher seas. Yes… we had once again made our way out of the harbour. The tall waves outside began to lash at the sides of the ship as I felt the captain swinging a hard right. I looked out the window. We were sailing south, the land clearly visible out the starboard side. I cringed as we passed Bondi Beach, dark, twisted figures flailing around in the waters as fog once again thickened around us, and the frigid night air settled in. I shivered and put my work shirt back on, making a mental note to ask Café guy for a bag tomorrow morning. If I made it through the night…
+All day this went on, the ferry slowly continuing to fill up with more and more of these strange depictions of human beings. Usually, they would board the ferry quietly, making their way to their seats and sitting down. But there was one notable exception to this rule. I would become painfully aware that night, that not all who board this vessel are harmless. I had just finished the second of my sandwiches, when I realised what was happening. Gradually, the ferry’s motions became more violent, the boat rocking back and forth in clearly harsher seas. Yes… we had once again made our way out of the harbour. The tall waves outside began to lash at the sides of the ship as I felt the captain swinging a hard right. I looked out the window. We were sailing south, the land clearly visible out the starboard side. I cringed as we passed Bondi Beach, dark, twisted figures flailing around in the waters as fog once again thickened around us, and the frigid night air settled in.
 
 The ferry drifted on down the coast, shaking from side to side in by far the worst conditions I’ve ever experienced. The waves were monstrous now, and we weren’t even that far out. Every so often I would shoot a glance out the other side of the ferry to see towering walls of water smashing up against us, water pouring through the windows and drenching the mindless drones in the seats beside them. The ferry was tipping violently from left to right, so dangerously close to capsizing I could see the surface of the ocean right outside my window before the vessel would swing back the other way. Yet somehow, we remained topside. I was almost ready to jump up and run to the safety of my bathroom again when the ferry swung another hard right, coinciding with a massive crack of thunder and a blinding flash of lightning so loud I cowered on the floor in terror, uselessly trying to protect myself from being fried to death by a stray bolt from the skies. By the time I pulled myself back up and looked out my window again… all was calm. No more violent waves, no more rough seas. Everything was still, and quiet. I stared out the window, the fog beginning to clear a little, and I noticed where we were. The ferry was sailing into Botany Bay.
 
-As the ferry slowed its pace, the engine reducing to a low drone, I saw things out the window that were just… impossible. I stumbled up the stairwell, making my way over to the Portside and sliding open the door to the upper deck. As we sailed along Prince Charles Parade, I looked up in absolute astonishment. I was staring at the 100 foot mast of a colonial era British Naval vessel, the Union Jack waving in the cold winds. As the ferry crept its way around this thing, I could see faces, peeking curiously over the deck at me, as if I were the out of place object in this situation. The size and the awe of this thing made me feel like little more than a mouse, but this was not the strangest thing I would see here. As we sailed slowly further down the coast, I saw men clad in formal military dress of an age gone by scurrying about the sands, shouting orders and waving their weapons in the air as people dressed in little more than rags trudged their way across the sands, their arms and legs chained. It had obviously dawned on me by this point, as unbelievable as it was to accept, I was somehow witnessing the landing of The First Fleet.
+As the ferry slowed its pace, the engine reducing to a low drone, I saw things out the window that were just… impossible. I stumbled up the stairwell, making my way over to the Portside and sliding open the door to the upper deck. As we sailed along Prince Charles Parade, I looked up in absolute astonishment. I was staring at the 100 foot mast of a colonial era British Naval vessel, the Union Jack waving in the cold winds. As the ferry crept its way around this thing, I could see faces, peeking curiously over the deck at me, as if I were the out of place object in this situation. The size and the awe of this thing made me feel like little more than a mouse, but this was not the strangest thing I would see here. As we sailed slowly further down the coast, I saw men clad in formal military dress of an age gone by scurrying about the sands, shouting orders and waving their weapons in the air as people dressed in little more than rags trudged their way across the sands, their arms and legs chained. It had obviously dawned on me by this point, as unbelievably impossible as it was to accept, I was somehow witnessing the landing of The First Fleet.
 
 Another towering navy ship up ahead dwarfed our tiny ferry, and feeling dizzy from the sheer enormity of it, I stumbled my way back inside, slumping down into my chair. I continued to watch out the window as this bizarre historical flashback unfolded before me. A little further down the bay, my stomach turned as I gazed upon the sickening sight of a group of prisoners on their knees, two soldiers standing before them, their weapons trained. I looked away, hiding my eyes and blocking my ears in anticipation of what this meant. I kept my senses as dulled as possible, as five distinct shots rang out through the night. I felt tears running through the cracks in my fingers as the reality of what had just happened echoed through my head. The frantic shouts of men snapped my attention back to the surreal happenings outside, and I saw one of them waving to the ferry, signalling it to stop, it would seem. I shuddered at the thought of this… surely there was no way we would pull in here after what had just happened. A familiar creak of straining metal proved that hope woefully wrong, as the ferry swung around and began slowing as it neared the shoreline. I sunk back into my seat, making myself as small as possible. Slowly and carefully, I peeked out the window as I felt the ferry jerk to one side, its anchor hitting the floor of the bay. There stood ramp guy. He gave the anchor a couple of firm tugs, before standing up and waving his arms in the air, as the men below wheeled a massive ramp of their own up along the shoreline, sliding its top edge over the deck of the ferry. I pulled my head away from the window again as I heard the sounds of chains making their way up the ramp, dragging across the deck, and eventually, a series of loud clangs as the chains fell free.
 
@@ -107,11 +98,7 @@ I did not look, for what I saw merely out of the peripherals of my vision was en
 
 Before walking away, the door to the Captain’s quarters slamming behind it. I broke down at this point, falling out of my chair and collapsing onto the floor. I stared at the ceiling, too exhausted to care about what was happening around me anymore. How in the hell was I here?! What in the hell was happening?! I curled up where I lay, watching out the upper rear doors as the ocean began to show its fury once again. I simply stared at the waves outside, mesmerised by their motion, wondering where on earth we were now, until I finally managed to succumb to sleep.
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 ***Bwoooooooooooooommmmmm!!!***
 
