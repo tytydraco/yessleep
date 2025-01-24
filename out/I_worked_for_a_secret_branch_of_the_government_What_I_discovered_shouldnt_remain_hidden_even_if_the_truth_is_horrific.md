@@ -63,3 +63,7 @@ I refused to die, and so I made a deal. I will help them. I will be a harvester 
 If you are reading this, I am so sorry for what is to come. Hold your loved ones tight and enjoy the time you have left. 
 
 We will find you. You cannot hide forever.
+
+...
+
+*Part II is now available* [*here*](https://medium.com/@mornevisagie/the-monolith-part-ii-360c4576e0b5)*.*
