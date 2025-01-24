@@ -116,4 +116,4 @@ There he stood. Right there just beyond the top of the stairs in the aisle… ju
 
 Jesus Christ! His voice was… awful! Deep and distorted, and his eyes full of sheer hatred. I stumbled back, almost toppling down the stairs. I grabbed at the rail, trying to keep my composure as I stepped backwards. As I did so, he took measured paces toward me, coming closer and closer. I turned, and I ran. Grabbing the side of the wall, I pivoted around the corner, making a beeline to the ferry’s lavatory. I could hear his footsteps, still coming down the stairs as I ripped open the bathroom door and hurled myself inside, locking the door behind me.
 
-And there I stayed. Listening to this thing, for a human being I was now convinced it was not, knocking on the door… all throughout the night.
+And there I stayed. Listening to this thing, for a human being I was now convinced it was not, knocking on the door… all throughout the [night.](https://www.reddit.com/user/Creepy__Oz/comments/1hc8ay2/my_stories_master_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
