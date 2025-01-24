@@ -34,7 +34,7 @@ She cackled. Later, I set my clarinet down on the steps and crouched beneath the
 
 She lifted her head, her gaze moving in a way that could’ve meant she was looking at me or at the neighbors’ car across the way. She was shredding a leaf, arranging the pieces into a careful mosaic. A little stick figure, a girl in a triangular skirt, pointillized flowers and clouds around her.
 
-That night, I looked up our address and found the names of the owners before us. Eric and Paulette Finneran. I opened another tab and Googled their names.
+That night, I looked up our address and found the names of the owners before us. Sean and Paulette Finneran. I opened another tab and Googled their names.
 
 A full page of news articles came up. The dad had caught the mom trying to leave with the kids, so he packed them all into the car, drove them to a motel, shot his wife and kids, and then turned the gun on himself. There was one survivor, the article said, a minor, who’d been at a friend’s house at the time. The article listed the siblings’ names. Alexander, age 12. Annalise, age 10. Augustin, age 4.
 
