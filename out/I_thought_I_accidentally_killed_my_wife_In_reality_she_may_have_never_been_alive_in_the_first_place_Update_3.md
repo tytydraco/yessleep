@@ -244,21 +244,23 @@ Once Camila is big enough, I am going to kill Franklin and feed her his marrow. 
 
 She will then bring him back here, and we will determine our purpose. If we have none, we will kill David and then return to the sea.
 
-**One final note**: In my preparations, I have begun experiencing a sort of ominous familiarity. The sensation of having tread this path in the past, even if the finer details allude me. I'm forced to ask myself: have I been on this particular crusade before? Perhaps I have been made to forget, but, against all odds, managed to retain the slightest fragment of a memory. Some part of me that refused to be erased completely.
+**One final note**: In my preparations, I have begun experiencing a sort of ominous familiarity. The sensation of having tread this path in the past, even if the finer details allude me. I'm forced to ask myself: have I been on this particular crusade before? Perhaps I have been made to forget, but, against all odds, managed to retain the slightest fragment of a memory. Discovered some part of myself that refused to be erased completely.
 
-If I ever forget again, I need but revisit the story of my birth. The story I stole from Camila.
+If I ever forget again, I need but revisit the story of my birth, recorded on the torn pages I stole from Camila.
+
+Where Lucifer Landed, God Thread Sprouted.
 
 —————————————
 
-I am the fallen angel of the violet light, and violet is the color of my alchemy. 
+***I am the fallen angel of the violet light, and violet is the color of my alchemy.***
 
-I am one part the catalyzing red fires of the Morning Star's Volcano, and two parts the nourishing blue waters of my God Mother's Sea. 
+***I am one part the catalyzing red fires of the Dawn Star's Volcano, and two parts the nurturing blue waters of my God Mother's Sea.***
 
-I am sutured contradiction made manifest: The axe and the womb, the spark and the wick. The falling star and the rising tide. The God Thread and the Marrow Drinker. 
+***I am sutured contradiction made manifest: The axe and the womb, the spark and the wick. The falling star and the rising tide. The God Thread and the Marrow Drinker.***
 
-I am the living alloy - Dreaming and awake, dormant and blooming, dead and alive. 
+***I am the living alloy - Dreaming and awake, dormant and blooming, dead and alive.***
 
-I am the merciful unification. And my history, as with most histories, festers between the lines, praying for release.
+***I am the merciful unification. And my history, as with most histories, festers between the lines, praying for release.***
 
 \--------
 
@@ -272,7 +274,7 @@ I am the merciful unification. And my history, as with most histories, festers b
 
 **Beginning of Personal Log:**
 
-Taking over for previous lead scientific coordinator. Currently do not have clearance to review past records. 
+Taking over for previous lead scientific coordinator. Currently do not have clearance to review past records.
 
 I arrived on the island this morning via a small plane. Despite my line of work, I have a limited tolerance for sea travel. Debilitating seasickness. Always feel like I’m seconds away from falling overboard.
 

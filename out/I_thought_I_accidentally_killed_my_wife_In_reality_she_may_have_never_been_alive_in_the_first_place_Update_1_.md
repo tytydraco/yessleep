@@ -24,7 +24,7 @@ I did, however, become lost in thought while I bided my time, forgetting she was
 
 Her voice, emerging unexpectedly from the silence like a monstrous claw from the fathomless depths of a pitch-black closet, was startling. The surprise weakened the hold I had on my emotions, allowing a tiny morsel of my total anger to break free from its tenuous detainment. A white-hot spark acting as an ambassador for the full, blooming inferno I was fighting to control.
 
-*“I…don’t even know where to fucking start, Maggie. I…Jesus, I’m going to let you figure that out. What the fuck is going on?”* I yelled.
+*“I…don’t even know where to fucking start, Maggie. Jesus, I’m going to let you figure that out. What the fuck is going on?”* I yelled.
 
 Reigning in the fury before it gained enough momentum to consume me, I closed my eyes and released a deep, cathartic exhale. Having almost lost control, I reminded myself why I was so devastated in the first place.
 
