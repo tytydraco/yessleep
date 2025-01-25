@@ -12,7 +12,7 @@ We arrived in Augusta a little after noon and turned from the main street to tow
 
 "Yes, thank you for having us miss Simmons... we're not sure who we can even turn to about this." Connor nodded and then brought his head down slightly as if admitting defeat.
 
-"Nobody, I hate to tell you. You're not the first to come to me about something like this, but you're probably the only ones to have..." She seemed hesitant to finish her sentence but did so after a brief pause. "...survive."
+"Nobody, I hate to tell you. You're not the first to come to me about something like this, but you're probably the only ones to have..." She seemed hesitant to finish her sentence but did so after a brief pause. "...survived."
 
 Connor and I turned to meet our eyes and Rebecca invited us in, apologizing for saying what she did and shut the door behind us once we'd entered. She went to make us coffee while we took our shoes and jackets off and made ourselves comfortable in her living room and I tried taking some of the stress off by petting her puppy, a French Bulldog that couldn't have been older than a few months.
 
