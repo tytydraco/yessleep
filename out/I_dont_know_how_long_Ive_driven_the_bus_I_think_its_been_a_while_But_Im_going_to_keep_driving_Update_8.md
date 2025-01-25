@@ -126,7 +126,7 @@ All of em’ wanted to go to Angelvale. Couldn’t help myself. I asked if there
 
 I think I’m going to find out soon. But this one ain’t for her. I’m not planning to have to remember her because she’s gone, but because I’m proud of her. 
 
-So when a new stop is made - you ever see a hoard of rabbits sorts go into a convenience store? All at once? - Anyway, I ask my trainee if this is the family she talked about. “Sort of.” She says, making this halfway wavey gesture. She’d put on this fancy dress she’d gotten way back in Fish - or from the mall, one of the two - and a little tiara. I’m pretty sure it’s a costume. It feels like she waited till they got off for her to get it on. She goes back down, changes back into uniform, comes back up, just sits there.
+So when a new stop is made - you ever see a hoard of rabbity sorts go into a convenience store? All at once? - Anyway, I ask my trainee if this is the family she talked about. “Sort of.” She says, making this halfway wavey gesture. She’d put on this fancy dress she’d gotten way back in Fish - or from the mall, one of the two - and a little tiara. I’m pretty sure it’s a costume. It feels like she waited till they got off for her to get it on. She goes back down, changes back into uniform, comes back up, just sits there.
 
 “So they’re… Good folk?”
 
@@ -178,7 +178,7 @@ They spliced things I’d said together. “They had my face. It didn’t take a
 
 I got off my feet, though it took some effort. My legs were trembling, and they wanted to freeze. My own voice kept talkin’ at me. “You. You drive the bus.” There was a pause. “I want to see the real ocean before it goes away.” Paraphrased words I’d spoken, repeated perfectly.
 
-I think it might’ve been trying to trade something with me. Like it had with Ori. I didn’t want to listen. So I scrambled towards the door, almost knocked over one of the lamps. I caught it on the way out, righted it, so I didn’t invite trouble. And I shut the door behind me. I had no idea if I was safe there or not. I hadn’t done anything wrong, yet, but when the world turns upside down something it’s hard to remember where you’re supposed to be.
+I think it might’ve been trying to trade something with me. Like it had with Ori. I didn’t want to listen. So I scrambled towards the door, almost knocked over one of the lamps. I caught it on the way out, righted it, so I didn’t invite trouble. And I shut the door behind me. I had no idea if I was safe there or not. I hadn’t done anything wrong, yet, but when the world turns upside down sometimes it’s hard to remember where you’re supposed to be.
 
 I looked up and down the hall, listened for a bit. I didn’t hear anything strange coming from behind me. My Trainee, though, she came up to me. Rather, she was standing outside my door, off to the side a bit. I jumped when she spoke. Her good ear was propped up, turned towards the wall my room was in.
 
