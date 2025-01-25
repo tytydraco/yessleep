@@ -54,11 +54,11 @@ Once you catch that faint outline, the quiet, gurgling sobs will begin. They’l
 
 Finally, if you succeed, you will witness him—those pallid, unblinking eyes and disturbingly neat teeth. You might feel a sudden chill in the room or sense a creeping weight beneath you. That’s the Weeping Man himself, drawing closer, testing the barrier you’ve just broken. And once he’s revealed to you, there’s no forgetting. You’ve given him a doorway back into your nights, so don’t be surprised if he returns at 3:00 A.M., when the silence is absolute, to remind you that some fears never really go away.
 
-I can imagine what you’re thinking: **why on Earth would anyone willingly subject themselves to this?** After all, we’ve evolved over millions of years to avoid the unknown, to keep the closet door shut at night, to dismiss strange noises as the house settling. The lure, though, lies in that morbid spark of curiosity we carry—a tiny, unextinguished candle of wonder that refuses to accept the world at face value.
+I can imagine what you’re thinking: why on Earth would anyone willingly subject themselves to this? After all, we’ve evolved over millions of years to avoid the unknown, to keep the closet door shut at night, to dismiss strange noises as the house settling. The lure, though, lies in that morbid spark of curiosity we carry—a tiny, unextinguished candle of wonder that refuses to accept the world at face value.
 
 It’s the same compulsion that draws some of us to abandoned asylums, haunted houses, or the darkest corners of the web. We’ve spent our adult lives telling ourselves the supernatural doesn’t exist, or that it can’t possibly **still** be lurking in the shadows where our childhood imaginations once thrived. But a hidden part of us yearns to know we were right about our oldest fears, that we weren’t just silly kids jumping at imaginary shapes in the dark.
 
-And here’s where I come in: I **need** to gather as many firsthand accounts as possible. The more of you who try these steps, the more data I can collect.
+And here’s where I come in: I need to gather as many firsthand accounts as possible. The more of you who try these steps, the more data I can collect.
 
 Maybe you’ll see him. Maybe you won’t. It takes a certain mind, a certain ability to hack down the walls of indelible adult logic we’ve built up over the years.
 
@@ -70,7 +70,7 @@ Or have you also woken in the dead of night, heart pounding for no reason, and f
 
 Am I just an instigator, or am I onto something hidden under the thin veneer of adult logic and modern skepticism?
 
-Follow these steps, if you dare\*\*.\*\* Take a look under your bed when every sane cell in your brain screams not to. See for yourself whether the Weeping Man is just a figment of our collective nightmares or a very real presence we’ve forgotten how to fear.
+Follow these steps, if you dare. Take a look under your bed when every sane cell in your brain screams not to. See for yourself whether the Weeping Man is just a figment of our collective nightmares or a very real presence we’ve forgotten how to fear.
 
 If you do decide to try, I urge you to be careful. But I’m also inviting you—urging you, really—to report back in the comments. Tell me what you saw, or what you think you saw, and add your voice to this strange chorus. Because that’s what science demands, after all: evidence and testimony. The line between fact and imagination is razor-thin here, and I’m asking you to walk it.
 
