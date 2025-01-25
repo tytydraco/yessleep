@@ -252,7 +252,7 @@ Where Lucifer Landed, God Thread Sprouted.
 
 —————————————
 
-***I am the fallen angel of the violet light, and violet is the color of my alchemy.***
+***I am a fallen angel of the violet light, and violet is the color of my alchemy.***
 
 ***I am one part the catalyzing red fires of the Dawn Star's Volcano, and two parts the nurturing blue waters of my God Mother's Sea.***
 
@@ -260,13 +260,13 @@ Where Lucifer Landed, God Thread Sprouted.
 
 ***I am the living alloy - Dreaming and awake, dormant and blooming, dead and alive.***
 
-***I am the merciful unification. And my history, as with most histories, festers between the lines, praying for release.***
+***I am merciful unification. And my history, as with most histories, festers between the lines, praying for release.***
 
 \--------
 
 ***Dr. Danica*** **\[REDACTED\]*****, Lead Scientific Coordinator for Diosfibras III***
 
-**Log 1:** December 2002
+**Log 1:** December 2005
 
 ***Contents:*** Description of Operation’s Intent, Summary of Previous Research, Personal Operational Logs
 
