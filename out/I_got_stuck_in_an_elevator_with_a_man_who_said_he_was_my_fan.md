@@ -8,11 +8,11 @@ But it was a tall old building, and as the elevator slowly passed through its th
 
 “Yes,” I replied, giving him a nervous smile.
 
-“I knew it!” he exclaimed, his enthusiasm unsettling. “I’ve been following your career since the 2024 Olympics. You made history there.”
+“I knew it!” he exclaimed, his enthusiasm unsettling. “I’ve been following your career since the 2021 State championship. You made history there.”
 
 “Thank you,” I responded shyly.
 
-Maybe it’s just a gymnastics fan, I thought, but his appearance left me uneasy. He looked to be in his 40s, about six feet tall, with a round belly and what I could only describe as wild, thinning hair. At 5’1, he loomed over me.
+Maybe it’s just a gymnastics fan, I thought, but his appearance left me uneasy. He looked to be in his 40s, about six feet tall, with a round belly and what I could only describe as wild, thinning hair. I'm 5’1 and he loomed over me.
 
 Every Thursday I came to this building for massage therapy, but I’ve never noticed this guy before.
 
