@@ -50,4 +50,3 @@ I woke up this morning to find my phone, perfectly intact, sitting on my nightst
 It was me. I was standing in the corner of someone else’s dark room, my head tilted at an impossible angle.
 
 The caption read: “DO NOT WATCH THIS ALONE.”
-This is a fake story I wrote*
