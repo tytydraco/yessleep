@@ -30,7 +30,7 @@ But in reality, they haven’t.
 
 As seasoned liars, most of us could spot the difference between truth and lies, no matter how well-disguised. Some lies are obvious, even to a child.
 
-Take Danny Allman, for example—a short, chubby, awkward guy and a terrible liar. His lies were so bad, they were almost entertaining. He’d spin the same stories over and over, about robbing banks or hooking up with supermodels. You didn’t need a Ph.D. in psychology to know he was lying.
+Take Danny, for example—a short, chubby, awkward guy and a terrible liar. His lies were so bad, they were almost entertaining. He’d spin the same stories over and over, about robbing banks or hooking up with supermodels. You didn’t need a Ph.D. in psychology to know he was lying.
 
 Then there are lies that only experts can debunk. Like if someone claims to have robbed a bank but gets the details wrong, someone with experience would catch it immediately.
 
@@ -48,7 +48,7 @@ It was the 57th Liar’s Dinner gathering. Only seven out of 24 members showed u
 
 One of the Society of Liars’ core rules was anonymity. No one knew anyone’s real identity. We all used fake names, and no personal details were shared when we joined. The only things we knew about each other were our faces, fake names, and the lies we told.
 
-My name in the society was Lucas Dwell—Luke for short.
+My name in the society was Lucas—Luke for short.
 
 I ran from the parking lot to the building to avoid the rain, knocked on the door, and was greeted by Max.
 
@@ -190,9 +190,9 @@ After the rain and wind stopped, one by one, everyone got up from their seats an
 
 Two days after the gathering, I stopped by a coffee shop near my house after work. Just as I was about to pull out a chair, I heard a familiar voice.
 
-"Lucas Dwell," the voice said slowly, "or whatever your real name is."
+"Lucas," the voice said slowly, "or whatever your real name is."
 
-I turned to see Maxwell Duncan—if that was even his real name—sitting at a table next to the one I was about to sit at. Max gestured for me to join him, so I sat across from him.
+I turned to see Maxwell—if that was even his real name—sitting at a table next to the one I was about to sit at. Max gestured for me to join him, so I sat across from him.
 
 After a few moments of silence, I couldn’t hold back anymore.
 
