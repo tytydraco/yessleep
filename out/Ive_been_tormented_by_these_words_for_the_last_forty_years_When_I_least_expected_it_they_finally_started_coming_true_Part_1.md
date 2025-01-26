@@ -110,7 +110,7 @@ It seems to scream, but all that comes out is blinding light. I gaze into its di
 
 Ari, a young Icelandic man, has been here for almost a week now.
 
-He’s pleasant enough. Quiet and reserved, has kept to himself for the most part.
+He’s pleasant enough. Quiet and reserved, keeps to himself for the most part.
 
 Until today, I’d convinced myself his arrival was just a very unlucky coincidence. Something that was going to reopen scars, but nothing more damaging than that. However, I was sitting at the kitchen table having breakfast with Lucy this morning when Ari jogged by our dining-room window, waving to the both of us as he did.
 
