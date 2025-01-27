@@ -94,6 +94,7 @@ Just a really weird interaction with a really weird man. Sorry if it's a bit bor
 
 Share your thoughts if you have any, or if any other front desk agents have been through something similar I would love to know. 
 
-I’ll update if anything weird happens tomorrow. 
+I’ll update if anything weird happens tomorrow.
 
   
+EDIT: wanted to toss in a link to [today's post](https://www.reddit.com/r/nosleep/comments/1iau8y2/update_there_is_a_weird_guest_in_my_hotel_and_i/). Or yesterday's, depends on when you're reading this I guess.)
