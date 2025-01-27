@@ -60,7 +60,7 @@ The figure let out a bellowing laugh and stretched atop the ceiling, twisting ar
 
 As the figure spoke these words, I saw dozens of green circles bouncing around my walls. They were varying shades of green. Some spoke in whispers like my brother. Others spoke in gibberish that sounded like different languages. I shoved my thumbs into my ear canals as the sounds grew louder and more varied. I jammed my eyelids shut as the lights flickered and burned into my retinas. As I screamed, I heard my brother’s voice once more.
 
-“People don’t die. They hide, Toby! They hide and they must never be found!”
+“People don’t die. They hide, Devy! They hide and they must never be found!”
 
 I screamed so loud that my cat Jasper hollered from the other room. I screamed so loud that my mom, dad, grandparents, and even the live-in nurse hurried upstairs and forced their way into my room. 
 
