@@ -2,7 +2,7 @@ At first, it was just a tiny pinpoint at the center of my vision.
 
 I’d wake in the morning, and it’d be there, faintly swimming around my field of view. Rubbing sleep from my eyes didn’t clear it. Nor did cleaning my glasses. The pinpoint would still be there, like it was some featureless gnat buzzing lazy circles within my retina.
 
-The thing annoyed me to no end when it was that small. It interfered with work. I stare at a computer for living, wrangling unruly excel spreadsheets for clients twenty-times wealthier than I am, and the pinpoint was a pest. It dragged my attention away from the legions of defiant numbers and decimal points.
+The thing annoyed me to no end when it was that small. It interfered with work. I stare at a computer for a living, wrangling unruly excel spreadsheets for clients twenty-times wealthier than I am, and the pinpoint was a pest. It dragged my attention away from the legions of defiant numbers and decimal points.
 
 But it didn’t remain small for long.
 
