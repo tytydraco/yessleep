@@ -136,7 +136,7 @@ Time seemed to slow to a stop, gears in my head shuddering to a rusty halt. “O
   
 
 
-I laughed, freely. I was once again standing in the midst of my own creation, like a mad inventor. I turned around the survey the place, but when I looked back at Lydia, my joy was sapped away.
+I laughed, freely. I was once again standing in the midst of my own creation, like a mad inventor. I turned around to survey the place, but when I looked back at Lydia, my joy was sapped away.
 
   
   
