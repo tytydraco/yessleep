@@ -128,3 +128,4 @@ My thoughts drifted back to my wife and the world I had left behind, and a deep,
 
 I'll post the rest of the story tomorrow. I need a day's rest to gather myself before I relive the nightmares ahead.
 
+[Part 2 ](https://www.reddit.com/r/nosleep/comments/1iblbxd/i_promised_my_dying_wife_id_find_our_son_what_i/)
