@@ -58,7 +58,7 @@ and Robert Meyer Burnett was talking about upcoming releases from CinemaCon.
 
 But just as their stream had seemed to end or so they thought had ended. They then started talking between themselves with one of them seemingly not really being to sure of this Talking about a project that the executives of a certain studio that was interested in it at the time. 
 
-But Robert Meyer Burnett knew exactly what he was sure of doing!
+But Robert Meyer Burnett knew exactly what he was sure of he was doing! 
 
 With the studio being Paramount! That was when they had mentioned the name of another one of my short stories titled ‘Abby’ No one else noticed it but me! 
 From a short story contest that seemed to never happened! A short story contest that was made to vanish! For whether nothing ever comes of these short stories remains unknown 

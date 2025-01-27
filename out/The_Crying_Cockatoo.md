@@ -68,8 +68,6 @@ My hands shook as I pieced it all together. The way Charlie had stared at me, th
 
 I could have been the next headline.
 
-The realisation of it all hit me like a ton of bricks. The bird’s cries, the victim’s photo, the quiet street where his house stood—it all came rushing back, and I realised just how close I had come to disappearing forever.
-
 From that day on, I couldn’t stop thinking about that night. Sam’s arrest brought some closure, but the memory of that night would never leave me.
 
 And every time I hear cockatoos mimic human speech, I feel the chill all over again.

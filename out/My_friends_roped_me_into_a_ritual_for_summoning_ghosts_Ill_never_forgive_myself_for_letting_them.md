@@ -6,7 +6,7 @@ My point is, that's all we thought it was - some new take on a viral mirror ghos
 
 Let me start from the beginning.
 
-My name's James, but you can call me Jamie - all my friends do. I never really believed in the existence of otherworldly supernatural forces, even when I was a kid. The only reason I got involved with any of this is because of my best friend, Frankie.
+My name's James, but you can call me Jamie - all my friends do. I never really believed in the existence of otherworldly or supernatural forces, even when I was a kid. The only reason I got involved with any of this is because of my best friend, Frankie.
 
 Frankie was the one who told us about the game. We'd known each other since we were in diapers and she was always dragging me into her practical jokes and bringing me on wild goose chases, determined to discover a ghost or ghoul of some kind before we went to college. She got her nickname from the time she rickrolled our entire class (before rickrolling was a big thing) with footage from *Young Frankenstein* during what was supposed to be a presentation on the Red Scare. The first semester of college came and went with nothing to show for it. I went to a pretty pricey university out of state thanks to the scholarship I'd managed to earn, but with her family's business teetering on the verge of bankruptcy and her parents barely able to hold onto their house, she stayed behind.
 

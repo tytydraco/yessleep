@@ -140,8 +140,6 @@ I found his old journals, too, tucked away in the back of a dusty closet—entri
 
 I got a dog—Molly, a scrappy little mutt with mismatched eyes and a tail that never seemed to stop wagging. She was a stray I found wandering the property one morning, and something about her felt… right. Like she belonged here, just like I did. We took to exploring the woods together, trekking through trails that snaked between the trees, discovering old hunting blinds and forgotten paths that seemed to lead nowhere. I’d end each day with her curled up at my feet, exhausted but happy, the firelight dancing across the walls of the old living room.
 
-I even started reconnecting with the family. After everything that happened, after the bloodshed and betrayal of that night, I thought it would be impossible. But somehow, it wasn’t. Uncle Jacob dropped by one weekend with a bottle of whiskey, offering me a gruff apology for the way things went down. He and Dad took to visiting more often after that, fixing the barn or clearing the brush around the lake. There was laughter again. Stories shared over campfires. Even talk of starting up a new family hunt—something tamer, just deer or turkey, nothing like… before.
-
 It was like the land itself was healing. Like we were healing.
 
 For a while, I let myself believe that the worst was over, that I’d survived the horror of that night and come out the other side stronger, whole. I started to think that maybe I really was the man Grandpop had always believed I could be—the one worthy of the mantle he’d forced on me. I’d rebuilt. I’d endured. I’d won.
