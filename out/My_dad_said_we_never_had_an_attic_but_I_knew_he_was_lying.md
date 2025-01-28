@@ -2,9 +2,9 @@ It all started in 2012, following my 5-year-old brother’s death. Grief made it
 
 Then again, I don't know whether anybody would be able to bear what I've seen and felt.
 
-After Eric passed, it was just Dad and me. But I felt, in a way, as if I'd buried Dad too—or, at least, buried the version of him I had once known. Eric's funeral seemed to break him.
+After Eric passed, it was just Dad and me. But I felt, in a way, as if I'd buried my father too—or, at least, buried the version of him I had once known. Eric's funeral seemed to break him.
 
-In fairness, my father always been inward and reclusive, but he became worse after my brother died. Some nights, he’d leave my dinner on the table, then I wouldn’t see him until the morning.
+In fairness, my father has always been inward and reclusive, but he became worse after my brother died. Some nights, he’d leave my dinner on the table, then I wouldn’t see him until the morning.
 
 “I miss Eric,” I tearfully confessed one evening.
 
