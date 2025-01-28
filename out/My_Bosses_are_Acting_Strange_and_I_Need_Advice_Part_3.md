@@ -1,0 +1,42 @@
+Like last time, I promised to keep you guys updated in case anything happens. My last post got removed but I reposted it to another sub. If you haven’t, I’d recommend catching up with the other parts before reading this one as you will be lacking some context otherwise. 
+
+Part 1: [https://www.reddit.com/r/nosleep/comments/1i2euu7/my\_bosses\_are\_acting\_strange\_and\_i\_need\_advice/](https://www.reddit.com/r/nosleep/comments/1i2euu7/my_bosses_are_acting_strange_and_i_need_advice/)
+
+Part 2: [https://www.reddit.com/r/DarkTales/comments/1i7wuy5/my\_bosses\_are\_acting\_strange\_and\_i\_need\_advice/](https://www.reddit.com/r/DarkTales/comments/1i7wuy5/my_bosses_are_acting_strange_and_i_need_advice/)
+
+In the last post, I went into detail about how people at my work have been acting strangely. It's been about 3 weeks since this all started and, while things have changed, it would be a lie to say that it's changed for the better.
+
+To start, I got a raise! Creepy stuff aside, the past few weeks have been a huge blessing financially, given the extra hours and pay bump. I’ve made a bit of a dent in my student debt and didn’t have to stress about rent this month.
+
+I haven’t seen my managers for a few days. It’s happened before that they’ve called in sick, but I don't think that's what this is. I’ve been seeing Trevor’s car in the parking lot at the start of my shifts. So he, at least, has to be somewhere in the store. While strange, I’m honestly thankful for it. Any more uncomfortable conversations with my supervisors and I’m not sure I’d have the willpower to come back. 
+
+The smell has gotten far worse. The stench of rot made working in the paint aisle miserable. My performance was dipping because, every 15 minutes or so I needed to leave the aisle for air. It got to the point that I had to make a request to my ASM to switch departments. 
+
+Since then, they've moved me from paint to garden. It's been a huge relief. Half of my department is outside now so my nose has gotten some relief from the smell. But like the stench, the noises have been getting worse. The skittering noises from the aisles have increased in volume and frequency. Sometimes, I'm jolted out of my day dreams by a loud crash from within the aisles. The rats must be knocking over products. 
+
+And I've noticed these strange, spider web-like pieces of what I think is plastic on my clothes every now and again. I'm assuming it's from the buckets we keep in stock. But they're stickier than you'd imagine and it's a real pain to fish every single one of them off of my sleeves. Since the first few hours of my shift are inside the semi truck, I wear thicker clothes than the rest of my coworkers. I've noticed the same strings on some of their arms or legs but when I point it out to them, they smile at me and dismiss it. 
+
+These are fairly mundane and explainable things. I know I'm rationalizing, but this can all boil down to my supervisors having an attitude change, some rats, and stray bits of plastic.
+
+But yesterday something happened that's more difficult for me to explain away. I was on the forklift, taking pallets from the truck and lining them in order, as I do most shifts. The forklift let out a loud and continuous beep; meaning the propane tank was near empty. This was annoying, as the day people are meant to change it before we show up. We keep the propane tanks in the bullpen, the place I mentioned In the last post, so I floored the forklift through the long, narrow aisle way, outside into the bullpen. It was dark, seeing as the store had closed 2 hours ago. The only light was coming from the forklift itself and the doorways nearby. 
+
+I switched off the forklift near the cage where we keep the spare propane tanks, shutting the lights off with them and leaving myself in almost pitch darkness. Our forklift is old, and its rusted pieces make the process of changing the tank take about 2 minutes. As I was screwing off the empty tank, I began to hear noises from behind me: the same scurrying noises I had been hearing in my aisles. What’s more, the smell that I had switched departments to escape was now more powerful than ever before. I had to hold my breath to keep myself from gagging. I turned to look over my shoulder, still fiddling with the pipe that connected the tank to the forklift. I saw nothing, but the sounds began to move from side to side, out of my view. It was the sound of something being dragged, as if someone was pulling a burlap sack back and forth across the cement.
+
+At this volume, I couldn't excuse this as rats. It was coming from the wall of lumber and drywall behind me. Deep, meaty thuds began to sound out from the dark. The horizontal movement of the noises shifted as the slaps moved upwards. They went up as if something was scaling the backside of the lumber pallets. The sounds formed a new pattern, moving up and down and side to side in an awful cacophony of thuds and scrapes. 
+
+Unsettled, I scrambled to finish changing the tank. The noises halted briefly before there was another singular thud, far louder than before, that came from the floor behind the pallets. Then my heart dropped. The dragging sounds resumed, no longer side to side, but now moving forwards, towards me. Drag, then thud, as if something was pulling itself towards me. I used my phone's flashlight, scanning the area with shaky hands. I couldn’t yet see the source of the noises, but I noticed that the floor was glittering. I was standing on top of a crude pathway of plastic strings and webs that led behind the wall of pallets. Each time the dragging noise rang out, the plastic would tense.
+
+With another thud, I saw a pale hand reach out from behind the lumber and slam against the concrete, pulling with the plastic pieces to move forward. My heart dropped and my legs almost gave out. Another thud, another drag. A smiling, pale blue face smiled at me from the floor. It was Trevor, he was dragging himself along the floor towards me. He looked awful, the light from my phone reflected off of his pale eyes, now milky pools of white and grey. His skin was grey and littered with scrapes from dragging himself on the floor. His limbs moved strangely, as if he was unfamiliar with his own body. He wore the same smile as he had before; that fake, overly large grin. I could see that his gums had begun to turn black. 
+
+I gave up on the forklift and ran as fast as I could back inside. But as I sprinted through the dark of the hallway, something grabbed my foot and I fell face first into the concrete. Dazed, it took me a few seconds to reorient myself. I flipped onto my back and grabbed my foot that had been caught. Plastic strings were attached to my shoe, they had been embedded into the fabric itself. I pulled to free myself, but they were tough.
+
+Like a fly caught in a web, I struggled desperately to free myself.  As I type this, I can still feel the plastic's pull on my shoe, the way it clung to me like it didn’t want to let go. Thud. drag. thud. drag. The sounds resumed down the hall that I had fled from; the wet scrape of skin against concrete mixed with the faint stretch and twang of those sticky plastic strings. I looked up and nearly vomited. Trevor’s silhouette was at the end of the hall, slowly dragging himself on the floor towards me. His teeth and his white irises shined in the dark, reflecting the light behind me.  I gave up and kicked off the shoe that had been caught and ran inside. 
+
+Desperately, I explained to my coworkers that Trevor was outside. I was met with smiling, corporately happy dismissals. I texted my other boss, Rich, and told him that Trevor needed help. He responded within the same second.
+
+“Don’t worry, Hunter, I’ll head in and make sure Trevor is okay. Why don’t you go home for the night?”
+
+I took him up on his offer, I wasn’t planning on finishing another 4 hours of my shift with Trevor around. 
+
+I don’t know what to make of this. I’m sure I’m being dumb, but the raise and hours make this job something I don’t want to give up easily. I’m not even sure if I can afford to quit right now, but this rattled me. I’m considering calling out for a day or 2 to avoid going back. I’m messaging any higher up I can in an attempt to figure out what this was, but no one seems to know anything. Please tell me that Trevor is just sick or something. It’s really the only thing that I have no explanation for.
+
