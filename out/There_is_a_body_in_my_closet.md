@@ -6,7 +6,7 @@ I don’t know how it ended up in there. A few days ago, as I was getting ready 
 
 It doesn’t smell, and it hasn’t deteriorated any further from the original state that I’d discovered it in. 
 
-Now, As you could imagine, I have reached a juncture. I live with a roommate and we both attend the same collage. I intended to tell him about the body when I first discovered it, but I got cold feet because I realized this would probably end with him calling the cops on me and my life being ruined. 
+Now, As you could imagine, I have reached a juncture. I live with a roommate and we both attend the same college. I intended to tell him about the body when I first discovered it, but I got cold feet because I realized this would probably end with him calling the cops on me and my life being ruined. 
 
 So I didn’t tell him, and at this point I don’t know how I could tell him without the lapse of time incriminating me even further. 
 
