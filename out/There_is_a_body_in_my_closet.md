@@ -66,25 +66,10 @@ I should’ve done something else, I realize now. But perhaps it was my innate a
 
 I’m convinced now that that should’ve been my turning point, my breaking point, or whatever it’s called.
 
-I should’ve told somebody, done something, other than procrastinate for any longer. 
+I should’ve told somebody, done something, other than procrastinate for even longer. 
 
 But I once again decided that a lie would be preferable to the truth. 
 
 But I was only coping, and I knew that I was only coping.
 
 Now, it’s only a matter of time until this gets out. Because this evening, as I returned home from work, I swear, looking from the outside, I could see a person’s shadow standing in front of my bedroom window.  
-
-
-
-
-
-
-
-
- 
-
-
-
-
-
-
