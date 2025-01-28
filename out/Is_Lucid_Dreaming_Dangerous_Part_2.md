@@ -2,6 +2,8 @@ Part 1: [Link](https://www.reddit.com/r/nosleep/comments/1hxjbpa/is_lucid_dreami
 
 Part 3: [Link](https://www.reddit.com/r/nosleep/comments/1hzivji/is_lucid_dreaming_dangerous_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
+Part 4: [Link](https://www.reddit.com/r/nosleep/comments/1ibvehv/is_lucid_dreaming_dangerous_part_4/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 Hello Reddit,
 
 Some of you guys messaged me on Facebook about the gaps between entries. Just so we’re all on the same page I’ll say it here.
