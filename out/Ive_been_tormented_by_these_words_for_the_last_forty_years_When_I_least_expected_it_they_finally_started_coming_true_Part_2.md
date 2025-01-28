@@ -128,9 +128,9 @@ He nodded again, and I continued.
 
 As I was finishing detailing the prophecy to Shep, Lucy curved her body towards mine, placing a gentle, reassuring hand on my shoulder. Her newly patronizing tone, however, immediately soured the soothing gesture.
 
-*“Sweetheart, I think you got the end part wrong. I believe the voice has been saying:*
+*“Sweetheart, I think you got one part wrong. I believe the voice has been saying:*
 
-*Listen closely, child: once the inferno ignites, there will be no halting Death’s steady march.* ***Dissect a portion of their liver, like the eagle to Prometheus, and their Apocalypse will crumble***\*. Leave\* ***it*** *be, and you will bear witness to the conflagration that devours humanity.”*
+*Listen closely, child: once the inferno ignites, there will be no halting Death’s steady march.* ***Dissect a portion of their liver, like the eagle to Prometheus, and their Apocalypse will crumble***\*.
 
 Just then, the phone on Shep’s desk rang. He waved a single index finger in front of us and then picked up the line, silently asking us to pause.
 
