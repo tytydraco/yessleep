@@ -30,7 +30,7 @@ Sorry- you’ll *never* get used to the thrumming.
 
 Once I’ve come to realize what I was, what I was trapped in- my tiny, glass sarcophagus. These twisted roots, were not of a tree but of my own person. My *self* was nothing but a cluster of neurons, woven and strung end to end - connected like a hammock between two metal poles. Where I imagine my fibers are knotted and bound- receiving the generating bolts that power whatever this computer is for. In that moment, as if achieving some sort of divine grace from God-  I’d become aware of what the thrumming was. 
 
-It was pain.
+It. Was. Pain.
 
 Even in death I could not escape the pain. 
 

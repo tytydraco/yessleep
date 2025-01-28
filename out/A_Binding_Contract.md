@@ -76,7 +76,7 @@ Until then I will never know
 
 On a different note! Still belonging very much so with the story itself little over eight years ago while at work.
 
-My preacher at the time had came in shopping stoping next to me to say hi. But just as he did a Laugh! With not only me hearing it but I could see the look in his eyes! Seeing him look suddenly in the direction of the laugh.
+My pastor at the time had came in shopping stoping next to me to say hi. But just as he did a Laugh! With not only me hearing it but I could see the look in his eyes! Seeing him look suddenly in the direction of the laugh.
 
 It wasn’t even but a couple of months later that I had heard that he just left! Not only the church! But his family as well.
 
