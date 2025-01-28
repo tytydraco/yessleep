@@ -133,13 +133,9 @@ I didn’t tell my manager about it, I just wanted to get home and type this all
 Also a couple of notes for some of the comments. 
 
 1. The only thing reported missing was a set of car keys that ended up being found later in the guest's room. I also didn’t notice anything missing from the desk, and housekeeping didn’t mention anything missing either. 
-
 2. The only other ‘disappearing act’ situation that happened with him today (so far) was him being in the lobby and then being gone, but that could have been the camera malfunctioning, and also I was away from the desk to fill the coffee containers so he could have just walked up like normal.
-
 3. I haven’t rewatched the ‘men in black’ episode of unsolved mysteries/buzzfeed unsolved yet. Felt like just coming home, changing into pajamas, and watching tiktoks in bed for a bit. 
-
-
 
 Again, if any other front desk agents or anyone has dealt with this guy or someone like him, some help or advice would be really appreciated. He should be checking out tomorrow so I will update you if anything happens at that time. Hopefully not though.
 
-  
+[\[Next post\]](https://www.reddit.com/r/nosleep/comments/1ibsj8w/post_three_there_is_a_weird_guest_in_my_hotel_and/)
