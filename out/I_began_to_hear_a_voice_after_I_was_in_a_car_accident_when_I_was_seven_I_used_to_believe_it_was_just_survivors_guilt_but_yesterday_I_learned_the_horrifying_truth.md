@@ -76,7 +76,7 @@ A childlike whisper grated through my head—a voice simultaneously familiar and
 
 It sounded just as frightened as I was—trembling—near to tears. 
 
-Then, without warning, my left arm moved. Absent my command, or me willing it to do so, I felt it raise up off the bed and ball its hand ball into a fist. 
+Then, without warning, my left arm moved. Absent my command, or me willing it to do so, I felt it raise up off the bed and ball its hand into a fist. 
 
 Open and closed, open and closed—the fingers curled in and out as if trying to grasp something in the air.
 
