@@ -18,7 +18,7 @@ In the catastrophic aftermath of Lucy’s question, our passage through time see
 
 I let the question linger around us unanswered. What was there for me to say?
 
-Look at it like this: there are only two reasons I would have those words memorized. Either we had stumbled upon an impossibly coincidental overlap in our life histories, or I was the one who had tormented her with the prophecy for nearly two decades. She quickly ruled out the latter, leaving only one explanation.
+Look at it like this: there are only two reasons I would have those words memorized. Either we had stumbled upon an impossibly coincidental overlap in our life histories, or I was the one who had tormented her with the prophecy for nearly two decades (which is how long her harassment lasted). She quickly ruled out the latter, leaving only one explanation.
 
 Not only had we both suffered at the hands of that prophecy, but in our twenty-three years of marriage, it had remained unsaid. The odds of it felt dizzyingly astronomical.
 
@@ -52,7 +52,7 @@ In a moment of uncharacteristic decisiveness, I purposed our next move.
 
 Under normal circumstances, the off-season leaves our town rather quiet; the population of permanent residents is about two hundred. Summer, in comparison, attracts a decisive influx of tourists, particularly families. Parents looking to park their kids somewhere on the boardwalk so they can drink wine coolers on the beach. But once those transients clear out, it’s back to just us permanents.
 
-We’re a tight-knit bunch. Part of that comes from a shared love of the town. Most of us grew up around the area, visited the beach frequently when we were young. A lot of us found ourselves drawn back to the shore for good by its cool climate, magnetic nostalgia, and sense of community.
+We’re a tight-knit bunch. Part of that comes from a shared love of the town. Most grew up around the area, visited the beach frequently when we were young. A lot of us found ourselves drawn back to the shore for good by its cool climate, magnetic nostalgia, and sense of community.
 
 The other key ingredient in our town's cohesiveness is that we all think alike, as much as any large group of humans can, at least. There can’t be any religious tensions if we’re all similarly devout agnostics. Ninety percent of us don’t have kids, and the kids that did come from our community’s gene pool are already fully grown and out in the world on their own. Because of that, our town doesn’t have a lot of volatile “young-blood” bubbling about, at least during the winter months. Limited spikes in sex hormones translates to limited hotheaded conflict, and we like it that way. None of us have the energy to down half a bottle of tequila while committing festive adultery as revenge for our partner forgetting a birthday. We have our minor squabbles about politics here and there, but that’s about as far as it goes.
 
