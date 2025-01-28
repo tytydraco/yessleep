@@ -22,7 +22,7 @@ A part of me appreciated her being there for me, but I was battling more than ju
 
 Yes, doctor. I worked as a mason since I was fifteen - a brick-layer for that long. I spent the good part of thirty years building homes that are now lived in by thousands of people, and what did I get in terms of appreciation? Barely enough money to make ends meet, or come close to paying off the mortgage on my shitty house. Meanwhile, I heard stories of teenage YouTubers buying mansions. What did they ever do for society?
 
-It cost me my dignity. The other guys always took the piss, said I was born old, stuck in my ways from the start. They laughed at my posture. Said I was round enough to knock down pins. I couldn't help that I was short and stocky, could I? 
+It cost me my dignity. The other guys always took the piss, said I was born old, stuck in my ways from the start. They laughed at my posture. Said I was round enough to knock down pins. I couldn't help that I was short and stocky, could I?
 
 I pretended to laugh and go along with it. Told myself it was all good fun, that they were my friends. But, deep down, I think I hated every one of them. I hated playing into who they told me I was.
 
@@ -30,7 +30,7 @@ I pretended to laugh and go along with it. Told myself it was all good fun, that
 
 Yes, doctor. My wife. I'm grateful for her company but I don't think I've ever loved her.
 
-Like most people, I made do. As she aged, I didn't like her wrinkles, her saggy tits. She was bony and almost anorexic, and I said as much in moments. 
+Like most people, I made do. As she aged, I didn't like her wrinkles, her saggy tits. She was bony and almost anorexic, and I said as much in moments.
 
 Our happiest memories amount to us sitting on the couch and watching TV. My stubby fingers, clenching a bottle of lager on a table. Both our faces, hanging low and gormless, absorbing the pale light from the screens we clung to. That was our marriage in a nutshell.
 
@@ -38,7 +38,7 @@ We didn't know each other, not really; we only said what our parents told us to 
 
 "Can you describe the pain?"
 
-Oh, yes. It's very sharp and very dull. It hurts immensely, but I try to ignore it. My body aches, my head aches; it's a dull, banging, ringing noise. I feel a lump, slap-bang in the middle of my chest.
+Oh, yes. It's very dull for the most part. It hurts immensely, but I try to ignore it. My body aches, my head aches; it's a dull, banging, ringing noise. I feel a lump, slap-bang in the middle of my chest.
 
 Maybe you can help me?
 

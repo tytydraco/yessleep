@@ -1,6 +1,6 @@
 I live in a small town in Vermont. I won't tell you its name—mostly because I don't want to draw any attention to myself.
 
-I moved here six months ago to take over this record store that's been a town fixture for yonks. The previous owner, Martin Kelley, was desperate to leave—practically gave the place away. His hands shook so bad he could barely sign the papers, and he kept looking over his shoulder like he expected someone (or something) to be standing there. Should've been my first clue, but when you've been living out of your car, scraping by on part-time work at gas stations and dollar stores, landing a deal like this feels like winning the lottery.
+I moved here six months ago to take over this record store that's been a town fixture for yonks. The previous owner, Martin, was desperate to leave—practically gave the place away. His hands shook so bad he could barely sign the papers, and he kept looking over his shoulder like he expected someone (or something) to be standing there. Should've been my first clue, but when you've been living out of your car, scraping by on part-time work at gas stations and dollar stores, landing a deal like this feels like winning the lottery.
 
 The store barely breaks even, but it came with a small apartment above the store, a kind of attic flat with a little kitchenette and a serviceable bathroom. The pipes groan at night and the floorboards bitch every time you take a step, but it’s warm, safe and has an awesome view over the rooftops.
 
@@ -64,7 +64,7 @@ Two months passed. I was getting comfortable, and starting to feel like I belong
 
 Then one morning, the parade of footsteps returned.
 
-This time, they came for old Abel Thompson, who'd run the bakery for forty years. Everyone knew Abel—he donated day-old bread to the food bank and remembered every kid's birthday with a free muffin.
+This time, they came for old Abel, who'd run the bakery for forty years. Everyone knew Abel—he donated day-old bread to the food bank and remembered every kid's birthday with a free muffin.
 
 The scene was different this time. Abel hugged each person in the crowd, tears in his eyes but a gentle smile on his face. ‘It's time,’ he kept saying. ‘I’m just surprised it took ‘em this long.’
 
@@ -76,7 +76,7 @@ And just like the blue house, there was a symbol etched into the wood. Just one 
 
 I asked around about these symbols. Some folks brushed me off, others gave evasive answers. But one thing was consistent: if your door got marked—then you had to leave town immediately. It was said to keep everyone else safe. There was talk of 'consequences,' of some looming danger no one wanted to describe, like a shadow you catch in your peripheral vision but disappears when you turn to look at it.
 
-It became clear the sheriff’s morning ‘inspection’ was his way of catching these scratchings early. He’d warn the inhabitants to leave. Sometimes they went peacefully, like old Abel Thompson. Sometimes, when the marked was a newer person in town, they put up a fight. No one ever explained who or what made the marks. The best I could piece together was that after three markings, something bad happened.
+It became clear the sheriff’s morning ‘inspection’ was his way of catching these scratchings early. He’d warn the inhabitants to leave. Sometimes they went peacefully, like old Abel. Sometimes, when the marked was a newer person in town, they put up a fight. No one ever explained who or what made the marks. The best I could piece together was that after three markings, something bad happened.
 
 Last night, I was doing the final count of the register when rapid footsteps approached the shop. I glanced up, ready to wave away another late customer, when someone started pounding on the door with such urgency that the bell above it jangled. Through the concert posters, I could see Cal's familiar silhouette, but something was wrong. His normally relaxed posture was rigid, and he kept shifting from foot to foot like he was standing on burning coals.
 

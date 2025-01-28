@@ -1,4 +1,6 @@
-Music came from various spots in the bar. “Newbies” could always be seen as they always did the same thing. Safety in numbers, they believed. Rightly so, Chase remembered his earlier years. They always sat at the counter playing with the images they manifested, and quite a few it looks had recently figured it out.  The 21st century rode in the shadows of the past.
+Music came from various spots in the bar. “Newbies” could always be seen as they always did doing the same thing. Safety in numbers, they believed. Rightly so, Chase remembered his earlier years. But cyberspace then was on a computer through direct phone lines and satellites and was called the internet. Eventually called Wifi before now...
+
+They always sat at the counter playing with the images they manifested, and quite a few it looked had recently figured it out.  The 21st century rode in the shadows of the past.
 
 The Pub was a neutral area. Enemies sat and conversed with enemies as if they were friends. A two-headed cyber grew four arms and sat at the bar on a stool while slowly changing the arm's colors from green to purple. Another looked like a floating talking head above a barstool, blood dripping onto the stool. Brought a smile and a nod from Chase. And an abstract something or other, representing some unknown metaphor or idea. With eight arms, colored blood red, it waved beer steins around its head in all its hands. It's probably the most unique.
 
