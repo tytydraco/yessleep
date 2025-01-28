@@ -2,13 +2,19 @@ I had been talking to Sam on a dating app for a couple of weeks, and everything 
 
 Our first date was at a quaint little café on the edge of town. Sam was even more engaging in person. His deep voice, the way his eyes crinkled when he smiled—it all made me feel at ease. We laughed about the quirks of online dating, shared stories about work, and talked about our favorite childhood memories. Everything about him seemed so genuine.
 
-By our third date, I felt like I could trust him. So when he invited me over to his place one evening, I didn’t hesitate. “I’ll cook for you,” he said. “You won’t regret it.” His house was in a quiet neighborhood, tucked away on a street lined with tall oaks. It was a cozy, neatly-kept home—inviting and warm. Inside, soft lighting and the scent of garlic and herbs filled the air.
+By our third date, I felt like I could trust him. So when he invited me over to his place one evening, I didn’t hesitate. 
+
+“I’ll cook for you,” he said. “You won’t regret it.” 
+
+His house was in a quiet neighborhood, tucked away on a street lined with tall oaks. It was a cozy, neatly-kept home—inviting and warm. Inside, soft lighting and the scent of garlic and herbs filled the air.
 
 We shared drinks and laughed over silly stories as he finished preparing dinner. But as I looked around the living room, something caught my eye. In the corner of the room was a large cage housing a bright white cockatoo. Its head was adorned with a cute yellowish crest and it tilted its head curiously when it noticed me staring.
 
 “Oh, that’s Charlie,” Sam said, following my gaze. “He’s a bit of a talker.”
 
-I smiled and stepped closer to the cage. The bird was striking, with intelligent eyes that seemed to study me as much as I was studying it. “Hello, Charlie,” I said softly. The cockatoo ruffled its feathers and tilted its head to the other side, as if it were sizing me up.
+I smiled and stepped closer to the cage. The bird was striking, with intelligent eyes that seemed to study me as much as I was studying it. 
+
+“Hello, Charlie,” I said softly. The cockatoo ruffled its feathers and tilted its head to the other side, as if it were sizing me up.
 
 Sam chuckled. “Don't worry, he is cool with strangers.”
 
