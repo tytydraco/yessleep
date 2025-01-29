@@ -147,7 +147,7 @@ I figured I’d experience a certain horror after truly experiencing my nighttim
 
 Finally, I feel rested. Rested and full. 
 
-Whoever Andrew was and whatever institution he represents, they've prevented that feeling. 
+Whoever Andrew was and whatever institution he represents, they've prevented that feeling for my entire life. 
 
 I'm convinced the meds I've been taking are sedatives, not anti-seizure medications. They want me sleeping soundly so I don't wake up when they climb up the side of my house. They’ve been watching me at night, so when I change, I’m unable to move. They might have been doing it when I was a kid, too. Maybe they told my parents, maybe they didn't.
 
@@ -159,7 +159,7 @@ I do not plan on ever feeling empty again.
 
 As for Andrew, he’s still here. Alive within me, dissolving slowly.
 
-I still have plenty of room if you’re looking to keep him company. 
+I still have plenty of room if you’re looking to keep him company, though.
 
 But if you're smart, you'll just stay away. 
 
