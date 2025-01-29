@@ -38,7 +38,7 @@ I’d hover a few feet over the creature, unable to fly away, when someone would
 
 They'd looked in its direction but never could see it like I could. Once they had their backs turned, thousands of writhing legs would jut out of The Skitter’s two-dimensional body. The appendages would feverishly squirm, silently propelling it forward like a hellish centipede.
 
-When it was under its prey’s feet, they would fall through the floor and into The Skitter. I watched helplessly as their distorted, flattened bodies slid down the length of its shadow, faces stretched and contorted into expressions of impossible pain and terror.
+When it was under its prey’s feet, they would fall through the floor and into The Skitter. I watched helplessly as their distorted, flattened bodies slid down the length of its shadow, faces stretched and contorted into expressions of unimaginable pain and terror.
 
 Then I’d wake up, and it’d be morning.
 
