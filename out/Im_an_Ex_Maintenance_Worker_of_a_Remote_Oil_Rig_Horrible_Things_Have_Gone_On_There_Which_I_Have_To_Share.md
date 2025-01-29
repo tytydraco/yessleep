@@ -37,7 +37,3 @@ There’s plenty more anomalies that happen here, I could write a whole novel ju
 I see them in my nightmares sometimes, hearing that godawful knock, their voices, their faces peeking in through my window. The way their heads move so unnaturally, their heads tilted and vibrating quickly, mouth agape and calling out to whoever is unfortunate enough to be near them. 
 
 That’s all from me tonight, I’ll be sure to post more in the coming days. There’s way more anomalies at Deepwater 15 that I just couldn’t fit in one post, hand on tight for updates.
-
-EDIT:
-
-What the fuck, what the fuck. I’m there, I’m at Deepwell 15 now, I don’t know how I got here, how the hell did I get here? I went to sleep, I don’t know how I possibly got here, someone help me please… someone get me outta here, something’s here and it’s coming for us. I beg of you. I don’t have much time left, it’s right outside the door. Someone please, report this, hear my cries for help. The world needs to know what goes on there, I can’t stress this enough or some more people might get hurt, please. I don’t want to die. I’m begging you, whoever’s reading this, do something. 

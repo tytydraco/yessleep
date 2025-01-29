@@ -72,7 +72,7 @@ From my vantage point, I could see the top two stairs of a wooden ladder peeking
 
 Nodding my head in the ladder’s direction, I responded.
 
-*“You sure you don’t have one?”*
+*“You sure?”*
 
 Andrew reluctantly turned around, forcing a chuckle once he saw the tips of the ladder as well.
 
