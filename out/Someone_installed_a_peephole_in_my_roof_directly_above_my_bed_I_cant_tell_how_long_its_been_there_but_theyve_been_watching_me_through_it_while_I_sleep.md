@@ -8,7 +8,7 @@ If you know anything about the peephole, stay away from me.
 
 It wasn’t the sound of distant thunder that woke me up yesterday morning. No, it was the gentle *tap tap tap* of rain trickling down my forehead that caused my eyelids to slightly flutter open. The sensation was a little too delicate to wake me up completely, so I briefly lingered in a state of drowsy half-sleep. Before long, though, a cold droplet unexpectedly splashed onto my left eye, exorcising any remaining grogginess and jolting me fully awake.
 
-I shot up in bed. Judging by the lifting twilight outside my window, it was still early morning. Dark clouds hung ominously over the horizon. It looked like a nasty storm was rolling through, but that didn’t explain how the precipitation had made its way inside.
+I shot up in bed. Dark clouds hung ominously over the early morning horizon. It looked like a nasty storm was rolling through, but that didn’t explain how the precipitation had made its way inside.
 
 Just then, a faint beam of light appeared, cast down from somewhere up above. It fell from my bedroom’s ceiling and landed on my pillow, exactly where my head had been a few moments prior. The spotlight was small and rounded, its diameter no larger than a quarter. My gaze traveled up the beam until I saw what I was looking for. 
 
