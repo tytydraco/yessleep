@@ -132,4 +132,4 @@ It fell into place then. The stilt walkers. Performers they were not. Or, they w
 
 There are still things I don’t understand, and many questions I’ll never have answers to. But the realities here remain, and you would do well to heed my warnings. STAY AWAY FROM QUEEN STREET MALL AFTER DARK. In fact, just to be safe, the minute you hear those shops rolling down their doors at closing time, LEAVE! Get yourself back home. Get on a bus, I don’t care where it’s headed. Just get as far away from that damned place as you can.
 
-You don’t want to find yourself alone in those desolate, abandoned streets… when The Talls come out.
+You don’t want to find yourself alone in those desolate, abandoned streets… when The Talls come [out.](https://www.reddit.com/user/Creepy__Oz/comments/1hc8ay2/my_stories_master_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
