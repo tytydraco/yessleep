@@ -88,7 +88,7 @@ But I don’t believe he heard me. My neighbor was now at the back of his garage
 
 Something about his behavior was completely off.
 
-As I placed the ladder against the side of my house, I noticed something else, too. I could have sworn my neighbor across the street was observing me behind a curtained window on the second floor of their house but ducked their head away when I saw them.
+As I placed the ladder against the side of my house, I noticed something else, too. I could have sworn my neighbor across the street was observing me behind a curtained window on the second floor of their house, ducking their head away only once they noticed that I saw them.
 
 \----------------
 
@@ -140,7 +140,7 @@ I woke up with Andrew’s phone on my nightstand this morning.
 
 There was a notification for a new email. I’m unable to open the device without his password, but I can still read the title of the correspondence.
 
-*Re: May Have Found Out About Suppressive Observation Hole, ?Containment.*
+*Re: May Have Found Out About Suppressive Observation Window, ?Containment.*
 
 I figured I’d experience a certain horror after truly experiencing my nighttime metamorphosis, but that feeling is blunted by another sensation.  
 
