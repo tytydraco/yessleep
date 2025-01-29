@@ -123,10 +123,12 @@ The ferry continued to sail up and down the harbour, and a few more stops and pi
 
 It was around 7pm that night, when the ferry went down. No… I don’t mean it powered down for the night. I mean it dropped ***straight down!***
 
-Any composure I had managed to maintain went out the window, as I tucked myself down in my seat, preparing for the rush of cold water to pour in through the open doors and windows, trapping us all in this underwater coffin. But… they didn’t.
+Any composure I had managed to maintain went out the window, as I tucked myself down in my seat, preparing for the rush of cold water to pour in through the open doors and windows, trapping us all in this underwater coffin. But… it didn’t.
 
 I was instead suddenly surrounded by utter silence, save for a dull wind, audible, yet I could feel nothing on my skin through the windows. I slowly raised my head and opened my eyes, noticing the pitched black night sky outside. Had I imagined what just happened? I could have sworn to God this ferry had just dropped straight down underneath the water. I saw it. I felt it happen! But alas, there was the night sky, right there. I could not hear the typical sounds of the harbour anymore, and I wondered if we were even still in Sydney.
 
 I got up from my seat, intending to take a look outside at what was going on. Slowly I slid open the door to the Starboard side deck, and I very carefully stepped out, painfully aware of the many hidden threats that may lie waiting out there. What met my eyes this time, however, was so much worse than anything I had yet seen on this journey.
 
-As I gazed over the side of that ferry, seeing no water at all beneath us, and observing the green and blue ball suspended in vast, black nothingness, slowly disappearing into the darkness we were now floating off into, I realised with a dizzying horror… Not only were we not in Sydney Harbour anymore… we were not even on ***Earth*** anymore…
+As I gazed over the side of that ferry, seeing no water at all beneath us, and observing the green and blue ball suspended in vast, black nothingness, slowly disappearing into the darkness we were now floating off into, I realised with a dizzying horror… 
+
+Not only were we not in Sydney Harbour anymore… we were not even on ***Earth*** anymore…
