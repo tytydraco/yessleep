@@ -68,3 +68,4 @@ As I tossed my work badge into the back seat, preparing to head home and collaps
 
 With that, we left the dealership behind, heading toward Long Beach, Washington. Our small town nestled outside the bustling cities, I guess we just preferred the quiet. But I must admit, everything that’s played out tonight feels like an omen, like I’m going to have to confront something soon, I don’t know if I’ll be able to. After the rave I’ll update the journal again, I guess I have to fully commit, at least Jah made me feel a bit better about it.
 
+[Part II](https://www.reddit.com/r/nosleep/s/PXVLKP8eMy)
