@@ -5,7 +5,7 @@ During that time, my grandma (father's mom) got sick with lung cancer and starte
 
 Few weeks later, I discovered something very shocking about the house from school rumors. My classmates would tell me that the youngest daughter of that attorney had committed suicide by setting herself on fire and that it was not an accident. At first I didn't believe them but everyone I had asked, starting from my older cousins to my aunt, they all said the same thing but warned me to never speak about it infront of the owners because that's how they wanted to keep it. The most disturbing thing was when I found out that my room was her room and she killed herself in my room.
 
-My child brain was very disturbed by the knowledge. But it was apparently very amusing to my classmates and they kept asking me if I felt anything paranormal inside the house. But it never felt haunted ever. Not until 6 months.
+My child-like brain was very disturbed by the knowledge. But it was apparently very amusing to my classmates and they kept asking me if I felt anything paranormal inside the house. But it never felt haunted ever. Not until 6 months.
 
 Odd things started to happen. My room was next to the kitchen, separated by a wooden door which had a crack and light could pass through it. 
 
