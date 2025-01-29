@@ -2,13 +2,13 @@ Would you sell your soul to the devil in order to stay alive?
 
 Probably not.
 
-But would you sell your soul to save your child?
+But would you sell your soul to save whom you love the most?
 
 I bet your answer just changed.
 
 So when this question became my reality, you can bet your ass I was willing to do anything to keep my son alive.
 
-When Danny was diagnosed with leukaemia I thought the worst had happened. Then when he had a relapse and the chemo stopped working I thought the world had come to an end. When the doctor told me there was a 1 in 8 billion chance of the hospital finding a bone marrow doner, I was sure it was impossible for anything to get bleaker. Now, I’m not so certain. I’m not as optimistic anymore.
+When my son, Danny, was diagnosed with leukaemia I thought the worst had happened. Then when he had a relapse and the chemo stopped working I thought the world had come to an end. When the doctor told me there was a 1 in 8 billion chance of the hospital finding a bone marrow doner, I was sure it was impossible for anything to get bleaker. Now, I’m not so certain. I’m not as optimistic anymore.
 
 You can’t go back after seeing your bundle of joy, of energy and light deteriorate in mere days. After watching your baby gush blood from his nose, bleed from his eyes and vomit up red, I can tell you this; You’ll never be the same again. Hearing your favourite voice whisper to you, beyond fear, 
 
