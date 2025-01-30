@@ -1,0 +1,17 @@
+I’ve always tried to be a good person. And I don’t mean just tipping a little extra or buying free range meat. In every decision I make, in every part of my day, I try to think about how I can help the people around me. I’ve had 7 rescue dogs and 3 cats,  I give away money to charity on a regular basis, and I do volunteer work in local parks over the weekends. By every metric, I am a good person.
+
+So why is it then, that when I need something in return, everyone looks the other way? Why is asking for a tiny bit of payment every now and again like pulling teeth?
+
+Just last week, I looked after the old lady at the end of the road, Mrs. Hutchinson, while her granddaughter was out of town on a business conference for the weekend. You see, her mind has started to go and it’s not safe to leave her by herself. I treated her so well! I cooked for her, took her outside in her chair for a stroll in the park, and I read to her to ease her to sleep. I didn’t even charge her or the granddaughter! Well, I didn’t charge them money, at least. 
+
+And 3 days ago, when that little boy came up to me with tears in his eyes, sniffling and sobbing because he didn’t know where his momma was, I took his hand and marched right up to the counter for them to call her up. I stayed with the boy, who told me his name was Tommy, for 45 minutes until his mother came. A horrible, ungrateful woman who yanked little Tommy by the arm and nearly sprinted out of the store. Not so much as even a “thank you.” 
+
+That very same day, not an hour after, I walked by a homeless man sitting on a street corner. I made conversation with the man, gave him my jacket which, by the way, had 40 dollars in its pocket, and took him to get lunch. Not some cheap fast food place, but a real sit down restaurant.
+
+These are just 3 examples out of an entire lifetime of good deeds! So you see, I am a good person. I know I am.  
+
+It’s not like Mrs. Hutchinson was using her legs anyways! I’m going to get far more use out of them than she'd be able to. Not to mention the service I provided; the ungrateful granddaughter didn’t even need to ask me to care for poor Mrs. Hutchinson! I did it out of the goodness of my heart. And it is my heart, I worked hard to earn it. And that little boy, he has 2 hands after all! If you ask me, that’s a small price to pay to ensure his safety in such a dangerous world. The mother should have been bowing in gratitude for the time I sacrificed for her and her son. And almost worst of all was the homeless man. After all I gave him, he had the audacity to call me a freak? A monster? I’m a saint! But even saints lose their temper. Still, even in my anger, I was fair. I only took half of the jaw. That leaves him 40 dollars richer with a stomach full of good food, which wasn’t cheap by the way, and with still the other half to use when he eats!
+
+I’ve just finished putting myself together and I must say, these new parts fit like a glove. I use the old rotten ones as fertilizer for my garden. I grow my own vegetables, even give them away to neighbors sometimes. But I sigh when I think of how unfair it all is. I do so much and ask for so little in return. Maybe someday someone will finally be able to see how generous I am, how much I give to those around me. 
+
+Until that day, I’ll go on helping people- handing out small blessings to everyone I can. Because that’s what good people like me do.
