@@ -232,7 +232,7 @@ The Tooth Fairy had to be real, because if she wasn’t, why did my family fall 
 
 *Why?*
 
-My heart beat hard against my ribcage as breaths exhaled from my mouth in panicked hordes. My body went haywire from a spill of emotional thoughts*. If she hadn’t been there, then who? Who left that money?* Then it came to me.
+My heart beat hard against my ribcage as breaths exhaled from my mouth in panicked hordes. My body went haywire from a spill of emotional thoughts\*. If she hadn’t been there, then who? Who left that money?\* Then it came to me.
 
 My mom.
 
@@ -252,7 +252,7 @@ My limbs locked in place as fear curled around my spine like a venomous snake. I
 
 My thoughts raced in that period of confusion and terror. *An intruder? My mind playing tricks on me? Or could it really be…*
 
-Whatever was making this sound was slowly making its way through the deathly silent house. The pattering sound made their way from the kitchen, to the stairway, then soon - just outside my room.
+Whatever was making this sound was slowly making its way through the deathly silent house. The pattering sound made its way from the kitchen, to the stairway, then soon - just outside my room.
 
 ***Pitter-patter***
 
