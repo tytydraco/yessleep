@@ -14,13 +14,17 @@ For the first few weeks, Ethan wasn’t allowed to use his hands.
 
 He sat cross-legged on his bed and told me how he’d set his entire town alight. 
 
+Okay, "entire town" was an exaggeration. 
+
+He later admitted, it was just a movie theater, and his school locker. 
+
 Sitting in the cremated remnants of his letterman jacket, with his thick brown hair and freckles, he looked like the textbook boy-next-door. 
 
 I thought he’d be harder to talk to, but he was oddly talkative. 
 
 At first, I thought it was the drugs they force-fed him, but then he became obsessed with telling me his life story.
 
-Apparently, he’d accidentally burnt his girlfriend’s eyes out, which somehow led to him attempting to torch his entire town?
+Apparently, he’d accidentally burnt his girlfriend’s eyes out at prom, which somehow led to him to going full pyro.
 
 I know, I told him it was extra. 
 
@@ -248,7 +252,7 @@ I doubted either of them were being recruited.
 
 “The holidays came early, kids!” Warden Carrington mocked, and I sensed the group of us all holding a collective breath. 
 
-“Johnson!” she boomed. “You’re getting out of here!”
+“J!” she boomed. “You’re getting out of here!”
 
 There was an awkward silence before Ethan kicked me. 
 
@@ -256,7 +260,7 @@ There was an awkward silence before Ethan kicked me.
 
 He was right. Slowly, I got to my feet, my heart pounding in my chest. 
 
-I was Johnson. 
+I was J. 
 
 Which was crazy, because the only kids who made it out of the YWPA alive were either nepo babies or… 
 
@@ -304,7 +308,7 @@ I wasn't expecting to be recruited by a teenager resembling Sherlock Holmes.
 
 “But here you are!” His southern accent was already irritating. He grabbed my shoulders with teary eyes like I was a stray fucking cat he had just adopted. 
 
-“You're Johnson, right? I'm Nathaniel!” he held out the bag, and I caught the unmistakable smell of fried food. 
+“You're J, right? I'm Nathaniel!” he held out the bag, and I caught the unmistakable smell of fried food. 
 
 “Do you want Five Guys?”
 
@@ -402,7 +406,7 @@ He sighed. “You know that's not what I meant.”
 
 I caught his expression darken significantly, his fingers tightening around the wheel.
 
-“I’m sorry, Johnson,” he said, his tone cracking slightly. “For what those assholes did to you. I fought to get you out of that place.” he scoffed. 
+“I’m sorry, J,” he said, his tone cracking slightly. “For what those assholes did to you. I fought to get you out of that place.” he scoffed. 
 
 “They kept trying to shove another kid in my face, but I told them it was either you, or I was out of there.”
 
@@ -544,7 +548,7 @@ Nathaniel’s laugh sounded like waves crashing into my skull.
 
 The car took a sharp turn, and I almost tumbled off of the seat. 
 
-“It's just a small job, Johnson,” he said, “We’re counting on you.”
+“It's just a small job, J,” he said, “We’re counting on you.”
 
 It took all my strength to drag myself to the window. 
 
@@ -570,11 +574,11 @@ Someone had opened my door, and I could feel the wind chill grazing the back of 
 
 I opened my eyes when two muscled arms wrapped around me and yanked me out of the car. I couldn't stand, immediately falling limp in his grasp. 
 
-“Come on, Johnson,” Nathaniel’s voice tickled my ear. “We’re nearly there.”
+“Come on, J,” Nathaniel’s voice tickled my ear. “We’re nearly there.”
 
 I wasn't sure were ‘there’ was. I was up to my knees in snow, blurred white closing in on me from every angle. 
 
-With my body immobile, Nathaniel dragging me felt fucking dehumanising. 
+With my body immobile, Nathaniel dragging me felt fucking dehumanizing. 
 
 He forced my head up, but it kept hanging, my thoughts dancing, my eyes flickering. 
 
@@ -584,13 +588,11 @@ In front of me was… something.
 
 It reminded me of a warehouse, a towering structure that almost looked like it was part of the storm. Nathaniel pulled me further, chuckling. When I parted my lips to cry out, he promptly slammed his hand over my mouth. 
 
-“Do the job well, Johnson, and we’ll think about taking you on full time.”
+“Do the job well, J, and we’ll think about taking you on full time.”
 
 We reached a garage-like door, and with the click of a button, it was slowly gliding upwards. 
 
-To my surprise, this place reminded me of a reception area inside a dentist. 
-
-The floor was carpeted, a cosy lounging area filled with expensive looking sofas, and a TV playing what looked like an old cartoon. 
+To my surprise, this place reminded me of a lounge. 
 
 There was a desk, a short blonde wearing a Christmas hat sitting behind a laptop. 
 
@@ -614,9 +616,11 @@ My mother’s murderer.
 
 When the elevator slid open with a loud groan, the first thing I saw was intense clinical white light. 
 
-The room reminded me of a surgical theatre that had long since been abandoned, flickering lights swinging overhead. I saw the first splatter of blood on the floor right in front of my feet. 
+The room reminded me of a surgical theater that had long since been abandoned, flickering lights swinging overhead. I saw the first splatter of blood on the floor right in front of my feet. 
 
-I've grown desensitised to blood over the years, but this was more than a splatter,  a dark crimson streak trailing all the way to the center of the room. There were four plastic chairs positioned in a circle. 
+I've grown desensitised to blood over the years, but this was more than a splatter,  a dark crimson streak trailing all the way to the center of the room. 
+
+There were four plastic chairs positioned in a circle. 
 
 When I glimpsed velcro restraints hanging off of the arm rests, I felt my body start to twist and contort in a desperate attempt to escape. 
 
@@ -640,7 +644,13 @@ Judging by seeping red oozing from every orifice, he had already suffered multip
 
 My gaze found the helmet on his head. 
 
-They kept bringing him back, forcing his body to revive again and again, purging his power for all it had. His lips were cracked, slick scarlet. I couldn't tell what his ability he possessed, or his level. Just that he was suffering. “You've gotta be… fucking… kidding me,” he sobbed. 
+They kept bringing him back, forcing his body to revive again and again, purging his power for all it had. 
+
+His lips were cracked, slick scarlet. 
+
+I couldn't tell what ability he possessed, or his level. Just that he was suffering. 
+
+“You've gotta be… fucking… kidding me,” he sobbed. 
 
 “Lucas, it's Christmas.” Nathaniel mockingly scolded. “I told you about profanity.”
 
@@ -648,11 +658,11 @@ They kept bringing him back, forcing his body to revive again and again, purging
 
 Nathaniel forced me to stand. “All right, introductions!” he said cheerfully. 
 
-“Guys, this is Johnson.” 
+“Guys, this is J.” 
 
 The strawberry blonde jolted in her chair, but she couldn't lift her head. “He's going to be helping us today.”
 
-I cringed away when he patted me on the back. “Johnson! This is Luke and Tory! High level blues, and my favorite little helpers.”
+I cringed away when he patted me on the back. “J! This is Luke and Tory! High level blues, and my favorite little helpers.”
 
 Nathaniel shoved me into a chair, a metal helmet forced onto my head. Nathaniel knelt in front of me, his eyes sparkling. 
 
@@ -682,7 +692,7 @@ The blonde let out a whimper, her bound hands jerking.
 
 His gaze found mine. 
 
-“Johnson.” He said. “What you did to get yourself in the YWPA was quite remarkable! Honestly, I bow down to you.”
+“J.” He said. “What you did to get yourself in the YWPA was quite remarkable! Honestly, I bow down to you.”
 
 “Please.” Luke  whispered, spitting blood on the floor. “I… I *can't* do…it.”
 
@@ -712,7 +722,7 @@ But something told me this was a front for something far darker.
 
 Ignoring her, he turned to me. 
 
-“How many people have you taken over, Johnson?” 
+“How many people have you taken over, J?” 
 
 Nathaniel came closer, his eyes narrowing, lips curving into a spiteful smile. “How many minds can you force yourself inside?”
 
@@ -724,9 +734,13 @@ I hadn't answered that question in a long time. I was too scared to.
 
 “Aww, come on!” Nathaniel cocked his head. “Maybe… a million?” he wagged his brows. “Two million?”
 
-“I didn't mean to,” the words were choking my throat before I could stop them. I didn't realize how right the chair felt, the restraints, until I was reminded that I really was a fucking monster. “I was just a kid.”
+“I didn't mean to,” the words were choking my throat before I could stop them. I didn't realize how right the chair felt, the restraints, until I was reminded that I really was a fucking monster. 
 
-Nathaniel’s expression softened, his lip twisting. “I know you were,” he said. “So was I when I told my pops to off himself.” he frowned. “Which begs the question,” he hummed. “You're a category blue at one of the highest levels, and yet the guys back at the YWPA decided not to toast you–”
+“I was just a kid.”
+
+Nathaniel’s expression softened, his lip twisting. “I know you were,” he said. 
+
+“So was I when I told my pops to off himself.” he frowned. “Which begs the question,” he hummed. “You're a category blue at one of the highest levels, and yet the guys back at the YWPA decided not to toast you–”
 
 It looked like he might continue, before a yell cut him off. 
 
@@ -744,7 +758,7 @@ His eyes terrified me. Not because of his ability, or his descent into madness.
 
 But because somewhere, deep, deep down, twisted in traumatised eyes filled with agony, I think part of him didn't even want to do this. 
 
-“What you did, Johnson,” he whispered, “Fifteen years ago. I want you to do it again.” 
+“What you did, J,” he whispered, “Fifteen years ago. I want you to do it again.” 
 
 Turning to the others, the boy grinned. 
 
@@ -866,7 +880,7 @@ I had to wake up, to get out the snow. To live. Because I was going to freeze to
 
 But I didn't want to leave him. 
 
-*“Merry Christmas, Johnson,”* Ethan murmured, his wide smile erupting into raging fire melting the flesh from his bones. *“And happy fucking birthday to me.”*
+*“Merry Christmas, J,”* Ethan murmured, his wide smile erupting into raging fire melting the flesh from his bones. *“And happy fucking birthday to me.”*
 
 I thought I was going to die that night. I was ready to die with Ethan. 
 
