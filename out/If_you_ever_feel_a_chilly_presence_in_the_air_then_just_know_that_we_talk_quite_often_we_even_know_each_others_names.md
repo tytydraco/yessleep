@@ -193,3 +193,5 @@ I will try to remember what I can, what I should. But I do not know if it can be
 I do not think this can be undone, and each day is darker still, for I can feel the grandmother’s presence still in the manor, no longer bound to that room, but in strange corners does she make herself felt. I wish she would just move on.
 
 Maybe it is time I help her do so, she taught me how to, after all.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1idjo2n/if_you_ever_feel_a_strange_chill_alone_know_that/)
