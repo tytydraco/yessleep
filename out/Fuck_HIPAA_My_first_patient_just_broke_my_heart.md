@@ -549,7 +549,7 @@ I do not want to be something that teaches others to forget.
 
 
 
-I do not want to be a hungry rot that eats and eats until only rotten nothingness is left\]\]
+I do not want to be a hungry rot that eats and eats until only rotten nothingness is left.
 
 
 
