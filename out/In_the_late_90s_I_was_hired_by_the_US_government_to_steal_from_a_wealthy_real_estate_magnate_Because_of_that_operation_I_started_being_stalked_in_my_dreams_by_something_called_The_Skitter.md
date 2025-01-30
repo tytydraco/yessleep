@@ -90,7 +90,7 @@ Theo, for all his virtues, did not have a talent for improvisation, and Christia
 
 *“…I’m not sure that will cover the front gate or the entrance, sir.”* I mumbled, also recovering from the overwhelming strangeness of his original response.
 
-*Why the hell would he want cameras watching the fucking sewers?*
+*Why the hell would he want cameras watching the fucking sewers?*, I thought.
 
 From across the kitchen table, Christian set his pallid gaze on me, visibly upset by the insinuation that he didn’t know what he wanted. Clearly, he was not accustomed to being questioned by anyone, let alone by some blue-collar nobody. Slowly, however, his expression melted from righteous indignation back to its baseline, sorrowful state.
 
@@ -120,7 +120,7 @@ Without warning, Christian’s face had developed into something else entirely.
 
 Three oval slits had replaced all of his facial features, each overflowing with impenetrable, inky darkness. The phrase seeped listlessly out of one Christian’s new cavities.
 
-Two vertical slits run parallel to each other over the top two-thirds of his skull, with one horizontal slit laying flatly under the both of them on the bottom third. The steel-blue skin in between the holes was smooth and blemishless, but it appeared dangerously taut, like a plastic bag that had been filled to brim and was primed to split and rupture at any moment. Or, maybe, that tightness had already caused the skin to break, resulting in the three slits that were currently staring at him.
+Two vertical slits run parallel to each other over the top two-thirds of his skull, with one horizontal slit laying flatly under the both of them on the bottom third. The steel-blue skin in between the holes was smooth and blemishless, but it appeared dangerously taut, like a plastic bag that had been filled to brim and was primed to split and rupture at any moment. Or, maybe, that tightness had already caused the skin to break, resulting in the three slits that were currently staring at me.
 
 My aching psyche interpreted the slits as a face, but they looked just as much like the holes in a power outlet as they did two long eyes and one even longer mouth. Yes, language had come from it, but the words had not emanated from his so-called “mouth”. Instead, the statement leaked out of what I *assumed* was Christian’s new left eye, causing the crevasse to widen slightly and tremble as it did.
 
