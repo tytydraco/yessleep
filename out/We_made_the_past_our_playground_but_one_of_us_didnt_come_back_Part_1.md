@@ -44,7 +44,7 @@ Iris was still staring at me. I kept staring back, but it felt like every second
 
 “You're pretty nervous, huh,” she finally said, grinning. “Is it because I'm a psycho?”
 
-That did it. I finally broke eye contact and stared down at the table. “No, of course not,” I replied quietly. “I don't believe any of those rumours, anyway.”
+That did it. I broke eye contact and stared down at the table. “No, of course not,” I replied quietly. “I don't believe any of those rumours, anyway.”
 
 “Well, maybe you should.” Under the table, I felt a soft impact against my shin. She'd kicked me. Only lightly, not enough to hurt. “Half of those rumours are true, you know.”
 

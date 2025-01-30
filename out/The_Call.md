@@ -30,13 +30,13 @@ This was the moment he realised that this is something absolutely sinistrous.
 
 "Dear. Following you. Dear. Following you." - this time, the voice became more deep and almost sounded like my grandpa's own voice.
 
-He had an old fashioned latern that flames on kerosene oil that kept the area lit where he stood. He also carried some spare kerosene in a different container but he was too scared to move or scream. The fishes were coming out of the fishnet and started quivering on the ground while he just stood there, frozen.
+He had an old fashioned latern that flames on kerosene oil that keep the area lit where he stood. He also carried some spare kerosene in a different container but he was too scared to move or scream. The fishes were coming out of the fishnet and started quivering on the ground while he just stood there, frozen.
 
 Then there were sinister laughs and cries, the voice of his wife calling, his own voice copying him like a parrot - all that in the darkness with no source known to man. This lasted for couple of minutes and then there was again the sound of his wife calling like before but this time it was crying.
 
-As the flame of the later got smaller and smaller, the voices seem nearer. 
-
 "Love me. Come to me. I don't have much time left. Love me. Come to me. I don't have much time left."
+
+As the flame from the lantern got smaller and smaller, the voices seem nearer. 
 
 After this incident, all he remembers is that he woke up in his bed next morning and there was a gathering of so many neighbors at his frontyard. And my grandma was worried sick, crying profusely.
 

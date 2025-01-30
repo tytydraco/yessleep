@@ -782,7 +782,7 @@ When I was a kid, it almost felt like drowning.
 
 I didn't feel pain, instead, a stark numbness taking hold of me, and the crushing weight of names, wishes, memories, thoughts, bleeding inside me. 
 
-Back then, I barely grazed their minds. I just gave them an order, and they did it. 
+Back then, I barely grazed their minds. 
 
 Then I let go, plunging down, down, down, and awakening in my mother’s arms. 
 
@@ -794,7 +794,9 @@ I could feel my brain coming apart, bleeding, running down my temples, and seepi
 
 “That's 2.4 billion minds to give one simple... very subtle order."
 
-That they would never even know they were giving. Just like the first time. 
+That they would never even know they were giving. 
+
+Just like when I was a kid. 
 
 *Fly.* 
 
