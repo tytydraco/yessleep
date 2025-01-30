@@ -163,3 +163,6 @@ I still have plenty of room if you’re looking to keep him company, though.
 
 But if you're smart, you'll just stay away. 
 
+——————
+
+EDIT: [Related story](https://www.reddit.com/r/nosleep/s/bgxrB3q8sR)
