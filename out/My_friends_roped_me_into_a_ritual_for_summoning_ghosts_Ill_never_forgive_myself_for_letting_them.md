@@ -189,3 +189,5 @@ Alright, this wasn't fun anymore. I'd been thoroughly spooked and from what it s
 Someone clapped me on the shoulder from behind and I just about jumped five feet in the air. Judging by the person who spoke next, it was probably Frankie. "Jamie!" She whispered. Gone were the airs of amusement about her, replaced with alarm and a level of urgency I don't think I'd ever heard her use. "I think something went wrong with the ritual. We need to stick together, don't go running off on your own." She leaned forward, catching the light from the windowed sliding doors for a brief moment. I saw her reach instinctively for the cross around her neck, blindly searching for comfort, but she wasn’t wearing it today.
 
 I rounded on her, jabbing a finger in her face. I didn't care if she could see me clearly or not, I wanted to give her a piece of my mind; tell her to cut the crap and that I'd find an Uber if she wouldn't take me back home right now. But before I got the chance, a large clawed hand closed itself around my throat.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1idukrx/i_fucked_up_a_ghost_summoning_ritual_now_theres_a/)
