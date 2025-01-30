@@ -1,0 +1,21 @@
+My great-grandfather and his friends were known for their daring adventures. From a young age, they were drawn to the thrill of exploring uncharted territories around their village. The more forbidden the place, the more irresistible it was for them. Their excitement knew no bounds when school vacations started; it was time for yet another exhilarating journey with the entire group. One summer, after finishing school and before starting college, my great-grandfather yearned for one final adventure with his school friends. They were all about to embark on different paths, and who knew when they would meet again?
+
+Their destination this time was the "cursed village," whispered about in hushed tones. Stories of the village's dark past during the Turkish invasion, where the villagers bravely fought but met a gruesome end, intrigued them. The village was said to be abandoned, but the allure of its mysterious caves and forbidden areas was too tempting to resist.
+
+With their hearts pounding with excitement, they set off on their expedition. The cursed village was shrouded in an eerie silence, as if time itself had abandoned it. They found their way to the caves, some of which were marked as highly restricted. Stories of animals getting stuck and dying in these caves during rainfall added an ominous touch, but the restrictions only fueled their adventurous spirits.
+
+As dusk fell, they explored the cave's dark, winding passages, their lanterns casting eerie shadows on the walls. With transportation being primitive, they decided to camp inside the cave for the night. The ambiance turned festive as they began singing, dancing, and drinking. My great-grandpa's best friend, however, drank too much and soon felt nauseous. Stumbling towards the cave's exit, he unknowingly approached the edge of a deep, hidden hole. With a sudden cry, he lost his footing and plummeted into the abyss.
+
+Panic erupted. The group frantically tried to rescue him but dared not venture into the unknown depths of the hole. The night was filled with dread, and morning brought no relief. Family and villagers joined the search, but as days turned into weeks, hope waned.
+
+A month later, a night that was supposed to be like any other became unforgettable. He returned home, his clothes in tatters, his body covered in blood and dust. The sight was both shocking and miraculous. How could he have survived with no food or water? How had he returned on his own? The doctors were baffled.
+
+But there was something disturbingly wrong about him. His behavior was erratic, and he struggled to speak as if something was constricting his throat. He kept muttering about a "greater cause" and began telling strange, unsettling stories. He spoke of beings on the other side of the cave, superior in form yet human-like, who walked on their toes, had bluish marks around their necks, and were pale as death. These beings fed him and gave him water, but never spoke. Their tongues hung out, drooling, and their silence was suffocating.
+
+Doctors dismissed his tales as shock-induced hallucinations. Gradually, his condition improved, and he was discharged. But the moment he arrived home, he sprinted to his room, locked the door, and hanged himself. The village was in turmoil, and my great-grandfather was determined to uncover the truth.
+
+He sought out the only remaining inhabitant of the cursed village, an old man. When asked about the cave, the old man trembled, his face pale, and his voice shaky. He revealed the village's dark secret: it was cursed because the villagers had fought bravely against the invaders but were ultimately hanged by the tyrant king. Their bodies were thrown into the cave, and their spirits still roamed, seeking revenge.
+
+The old man's description of the hanged villagers matched the beings seen by my great-grandfather's friend. The bluish marks, pale bodies, and protruding tongues were signs of their execution. The spirits of the hanged villagers, trapped in their cursed state, had lured my great-grandfather's friend into their world.
+
+The chilling connection between the past and the present left the village haunted by the lingering presence of these vengeful spirits. Their restless souls continued to seek justice for the wrongs they had suffered, turning the cursed village into a place of eternal suspense and dread.
