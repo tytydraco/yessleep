@@ -25,8 +25,8 @@ This is where you come in, my dear and trusted friend. I have identified you as 
 What You Must Do:
 
 1. Kindly provide your full name, home address, phone number, and bank details to facilitate the transfer.
-2. Please contact the police. Whoever is holding us, they don’t seem to be planning to use us for ransom.  
-3. As a token of my gratitude, you will receive 30% of the total amount ($4,650,000 USD) for your help.  
+2. Please contact the police. Whoever is holding us, they don’t seem to be planning to use us for ransom.
+3. As a token of my gratitude, you will receive 30% of the total amount ($4,650,000 USD) for your help.
 4. Once I receive your details, my lawyer will handle all the necessary paperwork, and the money will be transferred to you within 48 hours.
 
 This transaction is 100% risk-free and legal. God, we were 10 just yesterday. One of us actually succeeded in scamming someone. They dragged him away. That same night, they gave us meat. None of us ate it. But if this goes on longer… I don’t know, man. Please, you have to find a way. I have all necessary documents to prove ownership of the funds. However, due to banking regulations, a small processing fee of $250 is required upfront to complete the international wire transfer. This fee is fully refundable.
@@ -42,6 +42,6 @@ Prince Adewale
 
 So yeah.
 
-Someone please tell me if you got this exact email.  
-  
-Like, is this a next-level scam or is someone screwing with me?
+Someone please tell me if you got this exact email.
+
+Like, is this a next-level scam or is someone screwing with me[?](https://www.reddit.com/r/QuietCornerTales/)

@@ -140,7 +140,9 @@ There was a single Christmas tree themed sticker on the wall for a “decoration
 
 But I wasn't even sure if some kids even knew what Christmas was. 
 
-Jessa, who was executed three days after her arrival, asked JJ if he wanted to do a secret Santa, and the boy looked at her like she'd grown a second head. Jessa was another scary one, a category *grey*. 
+Jessa, who was executed three days after her arrival, asked JJ if he wanted to do a secret Santa, and the boy looked at her like she was crazy. 
+
+Jessa was another scary one, a category *grey*. 
 
 Her ability was similar to a Speaker, but on a mass scale. So, you can imagine how fucking terrifying she was. 
 

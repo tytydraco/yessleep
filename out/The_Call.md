@@ -1,117 +1,43 @@
-“9-1-1, what’s your emergency?”
+I grew up in a very small town in India in the Bengali community where ghost stories are part of our literature and culture. We grew up reading stories about friendly ghosts/creatures that gets serious as you adapt to more grown-up books. You can also do a simple google search "ghosts in bengali community" and you will find a list of them. Moreover, we do have a festival called "Bhoot chaturdashi" which is similar to that of Halloween in the west.
 
-“I’m at ___ boulevard. Only house out here. There’s someone outside my house.” I wanted to thank him for giving me the address without asking.
+So, I wasn't really scared of such things as a kid but I was really intrigued by it. This is the story of such a  creature called Nishi. Atleast that's what my grandpa believes it was.
 
-“Okay, how long have they been there?”
+I will narrate this story on behalf of my grandfather who would always tell me stories of other people's experiences but this one is his personal experience. 
 
-“Uh... an hour?”
+Back then, in early 50s, there used to be a temple where my grandfather lived. It was a very small secluded village between the borders of Bangladesh and India. In that temple, till the late 30s, people used to practice the ritual of sacrificing human heads and goat heads. And he has told me about many instances where he had to come home late from work and he would spot figures of half human half goat like shadows in the dark lanes. Sounds creepy right? But things turned upside down for him one night. 
 
-I hummed, trying not to judge them for taking an hour to call someone in their situation. “I see, sir,” I replied, “where are they in relation to your house?”
+It was monsoon, the season of the most awaited fresh-water fish of the year called Hilsa, and my grandfather had the habit of fishing post sunset. He said the fishes were calmer in that lake nearby after sunset. Although nobody understood that logic but I guess he was just avoiding getting bothered by other fishermen.
 
-“...Uh, hard to say.”
+He couldn't tell me the exact time but he thinks he was fishing around 8:30pm. Mind you it was a very small village between the borders and 8:30pm was like post midnight there. He was fishing happily and got too lucky with the big size hilsas with lots of eggs inside its stomach. The lake was 10 minutes walk from his house and exactly at the opposite of that temple.
 
-“Why’s that?”
+After sometime, he heard my grandma calling him from behind somewhere in the darkness but she usually doesn't do that. He came for fishing after he had a long day at the shop where he worked, he had his dinner, and everyone was asleep. He didn't want to be bothered. He specifically told that to my grandma before leaving the house. 
 
-“I can’t see them right now, but I know they’re out there. They keep moving. Damn, they are fast.”
+"What is it, woman?" he yelled without looking back, focusing on his fishing net but there was no response.
 
-“Okay, so, what are they-“
+"What?" He yelled again in few seconds. No response came.
 
-“Fuck me!”
+She never stepped outside alone that late. She always mentioned how the village felt after 6pm. It felt as if every single person was dead inside their houses, even the animals were quieter, and not a single leaf moved during summers. It felt like something very bad happened in the village every night and everyone died of a plague. 
 
-“Sir? What happened?”
+He realised that it could be something urgent. He started packing everything and he was about to leave when he hears his name being called again in the darkness, echoing in the emptyness. 
 
-“Bastard just ran past the window!”
+"Why wouldn't she just come to the lake instead?" He thought to himself.
 
-“Can you describe them?”
+"Don't wander in the darkness dear, go home, I am following you." - he replied to the echoes.
 
-“Big. Real big. And hairy... not wait... shit, I think they were covered in fur.”
+"Following you. Following you. Following you." - a playful voice emerged from the darkness with every word sounding deeper than usual, like a mix of both male and female.
 
-Probably a coat. “Can you describe the fur?”
+This was the moment he realised that this is something absolutely sinistrous.
 
-“Like a dog or coyote or- oh. Oh shit, I know what this is.”
+"Dear. Following you. Dear. Following you." - this time, the voice became more deep and almost sounded like my grandpa's own voice.
 
-“What is it?”
+He had an old fashioned latern that flames on kerosene oil that kept the area lit where he stood. He also carried some spare kerosene in a different container but he was too scared to move or scream. The fishes were coming out of the fishnet and started quivering on the ground while he just stood there, frozen.
 
-“You aren’t going to believe me.”
+Then there were sinister laughs and cries, the voice of his wife calling, his own voice copying him like a parrot - all that in the darkness with no source known to man. This lasted for couple of minutes and then there was again the sound of his wife calling like before but this time it was crying.
 
-“Why’s that?”
+As the flame of the later got smaller and smaller, the voices seem nearer. 
 
-“Well, it’s... like I said, you aren’t going to believe me, but it’s a werewolf.”
+"Love me. Come to me. I don't have much time left. Love me. Come to me. I don't have much time left."
 
-Oh great. Someone’s on drugs.
+After this incident, all he remembers is that he woke up in his bed next morning and there was a gathering of so many neighbors at his frontyard. And my grandma was worried sick, crying profusely.
 
-“You’re sure it’s a werewolf?” I said, already adding that the caller may be on a substance to the dispatch.
-
-“Look, I know it’s hard to believe but this part of the woods... there’s an old legend, about a family of werewolves. I never believed it, but that thing was just- that was huge!”
-
-There was silence as the man on the other end began panting. It sounded like he’d taken the phone from his ear.
-
-“Sir?” I said, trying to get his attention. “Sir?”
-
-There was a shuffling sound in the static and then he spoke. “I was just checking the backyard. Damn thing is out there, I can see his eyes. They’re glowing yellow in the dark. Gotta be at least eight feet off the ground, I can see the outline from here, it’s- it’s just watching me.”
-
-“Okay, the police are on their way now, keep an eye on-“
-
-I was cut off by an ear-piercing howl that burst through my headset. I winced, hands grabbing at my ears.
-
-The man was yelling something. “Did you hear that?! Did you fucking hear that?”
-
-I gulped before answering. “Uh, yes sir, I did. What... was that the-“
-
-“No,” the man’s voice was quivering, “that thing didn’t move. Aw Christ, I think the whole family’s coming!”
-
-“Are you saying there may be more than-“
-
-“Whole family of werewolves, coming right at my house,” the man was muttering, “shit, shit, shit, damn it, where’s the silver?!” I could hear him rummaging. “Shit!”
-
-“Sir, police are on their way now. Please, stay indoors and don’t go outside.”
-
-“No shit, Sherlock, I-“
-
-Another howl, joined by an entire chorus of them.
-
-“Oh God, they’re here. Shit! There’s... there’s so fucking many of them! At least a dozen! They’re just busting out of the woods, like, shit, they’re huge!”
-
-I was already adding to the dispatch that more units would be needed. I was already positive something else was going on here, most likely, a bunch of teenagers pulling a mean prank.
-
-“Sir, get away from the window-“
-
-“Wait, they’ve stopped. One of them’s coming closer... there’s something in its jaws- oh dear Lord have mercy.”
-
-“Sir, what is the werewolf-“
-
-“It’s a dress. It’s a little girl’s dress.” I could hear him shaking.
-
-Dear God. If this was a prank it had gone way too far.
-
-“Sir, can you describe the dress?”
-
-The man didn’t answer.
-
-“Sir?”
-
-Then he began to sob. “Oh God... God have mercy, I know who’s dress that is.” His sobbing turned into anguished cries. “Oh Jesus,” he wailed, “oh sweet Jesus, I... I know who’s dress that is.”
-
-“Who’s dress, sir?”
-
-“She... she was a little blonde girl. Just ran out in the middle of the road, I would have used the brakes, I swear, I was... I tried to stop, I swear, I just, I didn’t mean to keep going, I-I haven’t touched anything since, not one bottle, I swear!” The man broke down. “Damn it, it was an accident, I swear!”
-
-I’d already pieced together what he’d done. My heart felt like stone as it sunk in. I rubbed my face.
-
-Then the man began screaming. His voice was fainter but still piercing. He’d lowered the phone again, but his voice was so loud it felt like he was right next to me.
-
-“What do you want?! You wanna kill me?! Fine! Go ahead, get it over with, you bastards, just do it! Just kill me! I don’t care! It won’t bring her back, will it? Nothing’s gonna bring her back! God, nothing’s gonna...” Then he began to wail. “Oh God, just kill me...”
-
-The man kept crying, even after the phone clattered to the ground alongside a loud thud. When the front door opened, I tensed, then relaxed when I heard someone declare themselves as police. That was when I hung up.
-
-A week after, I was summoned to give testimony concerning a hit-and-run that had taken place in rural Michigan. Terry Wright confessed to police he’d been driving while intoxicated and struck a girl on some lonely backwoods, he couldn’t remember which. The only evidence they had was a white dress found in his backyard, which he swore belonged to the girl. Police searched the roads, but no body was found anywhere. Not even a trace of blood. I gave a full transcript of what had transpired, from start to finish. When I got to the part about the howls, the atmosphere in the court room changed visibly. Before, there’d been a professional air. After it, there was a sense of unease, like someone had opened a window and let in something from outside.
-
-I thought that man would be declared insane, but he wasn’t. Instead, he was sent to a psyche ward for intensive care. It was concluded he’d suffered an intense mental breakdown and was a danger to himself. They put down what he’d seen to hallucinations brought on by his age and the trauma a perceived hit and run.
-
-I’m not sure what Terry Wright saw the night he went mad, but honestly? Part of me does wonder about the howls I’d heard that night. Those angry, grieving howls. I wonder how they were produced. Someone had to have made them.
-
-After another week, I was able to get my hands on the police report. What I found only deepened the mystery, for me anyway.
-
-Terry Wright was the only person on his property when police arrived. They found him in a state, unable to say anything except how sorry he was. Nobody could trace who the dress belonged to. It had been handmade, so there were no tags to find out who had manufactured it. Testing revealed traces of human and wolf DNA. Attempts to match the human DNA have failed. Various tracks, determined to be from a large mammal, were found in his yard. In total, it was estimated there were over eight or more individuals present.
-
-Now, you’d probably assume that I believe it was werewolves, but I’m not convinced. Until I see a werewolf for myself, I won’t believe they exist. My conclusion is simple; someone had faked all this as an elaborate ploy to break Terry Wright, for reasons I don’t understand and never will. I’ll be the first to admit there’s problems with this theory. If this was all a ploy, then someone went to a lot of trouble to make someone confess to killing a girl who, for all intents and purposes, doesn’t seem to exist.
+He suffered from high fever for the next two weeks after that incident and never stepped outside post 6pm. A year later, after my dad was born, my grandparents left the village forever.
