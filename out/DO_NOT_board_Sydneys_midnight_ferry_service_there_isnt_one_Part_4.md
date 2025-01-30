@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1i39fcl/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1i4td3k/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1i77xq0/do_not_board_sydneys_midnight_ferry_service_there/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1i39fcl/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1i4td3k/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1i77xq0/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 5 (Final)](https://www.reddit.com/r/nosleep/comments/1idfq75/do_not_board_sydneys_midnight_ferry_service_there/)
 
 Do you fear the water? I do. Of all the phobias which exist, I imagine this one is among the most common a lot of us share. I invite you to imagine just how it felt for me in that moment. Picture yourself in a deep, yet relatively safe body of water. Maybe a diving pool. You look down to see your legs dangling above the bottom of the pool, 16 feet down. Not scared yet? Okay… now imagine the complex is empty, it’s night time. You watch as the lights are all switched off one by one, and suddenly you are alone. All you can hear is the gentle swish of the water, and perhaps now there are subtle thoughts nagging at the back of your mind. Is the bottom still there? Which way is out? What’s underneath me?
 
@@ -28,11 +28,7 @@ I wouldn’t have too long to dwell on it though, as in that moment my eyes were
 
 I thought of a couple of things in that moment. My first thoughts, of course, being the hours I had spent floating in those waters, with that thing poking and prodding at me. Had it been this giant which was taunting me all that time? And if so, why did it not pull me down into the depths with it? The second thought that crossed my mind were the ferry’s seemingly random trips out to sea. Could it be the case that whatever this thing was, was hunting us? Were these back and forths out into deeper waters not random at all, and simply the Captain trying to stay one step ahead of this monster? I did not know. All I knew in that moment was that I was glad I was not down there with it. Taking one last glance out to sea and noting the sun just beginning to peak its head over the distant horizon, I slid open the door to the cabin and stepped on back inside. It didn’t take long then for the physical exhaustion to catch up with me. Adrenaline had worn off, my fight or flight response could keep my physical limitations from giving out no longer. My legs turned to jelly, and I collapsed right there where I stood…
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 I awoke a few hours later to a gentle hand shaking me. Honestly, I was tempted to just ignore whatever the hell it was and continue sleeping, perhaps forever, such was the stink of death on me at this point.
 
@@ -66,8 +62,7 @@ I froze upon hearing those words. So many things running through my brain all at
 
 Café Guy noticed this, and placed a hand gently on my shoulder. He spoke once more in that calming tone of his. *“Don’t you dwell on it sir. Things have a way of working out in the end,”* he said, before taking a glance down at his watch. He stood up, walking back over to the café and crouching down. He pulled out his set of keys and opened up a small locker beneath the counter. He pulled out a neatly packed bag, before locking back up, standing up and walking back over to me.
 
-*“I have a feeling you need these more than me,”* he said, looking down at my still damp clothes. *“They’re clean and freshly washed, they should fit you. No need to give them back. I shan’t be needing them.”*  
-
+*“I have a feeling you need these more than me,”* he said, looking down at my still damp clothes. *“They’re clean and freshly washed, they should fit you. No need to give them back. I shan’t be needing them.”*
 
 I glanced back at him, smiling a little myself now. *“Thanks mate… I appreciate you. I mean, I still don’t know what your deal is here, but you’ve been kind to me, and if by some miracle I make it back to the real world, I won’t forget it,”* I said to him, before reaching out my hand to shake his. He accepted my gesture, firmly shaking my hand, before turning and walking away.
 
@@ -129,6 +124,6 @@ I was instead suddenly surrounded by utter silence, save for a dull wind, audibl
 
 I got up from my seat, intending to take a look outside at what was going on. Slowly I slid open the door to the Starboard side deck, and I very carefully stepped out, painfully aware of the many hidden threats that may lie waiting out there. What met my eyes this time, however, was so much worse than anything I had yet seen on this journey.
 
-As I gazed over the side of that ferry, seeing no water at all beneath us, and observing the green and blue ball suspended in vast, black nothingness, slowly disappearing into the darkness we were now floating off into, I realised with a dizzying horror… 
+As I gazed over the side of that ferry, seeing no water at all beneath us, and observing the green and blue ball suspended in vast, black nothingness, slowly disappearing into the darkness we were now floating off into, I realised with a dizzying horror…
 
 Not only were we not in Sydney Harbour anymore… we were not even on ***Earth*** anymore…

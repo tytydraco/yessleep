@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1i39fcl/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1i4td3k/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1icmj2j/do_not_board_sydneys_midnight_ferry_service_there/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1i39fcl/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1i4td3k/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1icmj2j/do_not_board_sydneys_midnight_ferry_service_there/) | [Part 5 (Final)](https://www.reddit.com/r/nosleep/comments/1icmj2j/do_not_board_sydneys_midnight_ferry_service_there/)
 
 *Knock knock knock knock knock…*
 

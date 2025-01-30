@@ -318,9 +318,11 @@ Will was a higher level category yellow (a shifter). But I fully understood why.
 
 Werewolf. 
 
-Apparently, he'd been sacrificed to the moon during his frat’s hazing ritual, gaining the ability to shift his flesh to a dog-like beast. 
+Apparently, he'd been sacrificed during his frat’s hazing ritual, gaining the ability to shift his flesh to a dog-like beast. 
 
-As well as adapting a liking for human flesh. There were two incidents with Will, and both of them ended in him cannibalizing at least three inmates. 
+As well as adapting a liking for human flesh. 
+
+There were two incidents with Will, and both of them ended in him cannibalizing at least three inmates. 
 
 Nathaniel looked intrigued, but he kept his mouth shut. I was handed a fresh set of clothes to change into, before being shoved through the main doors. 
 
@@ -348,7 +350,7 @@ I shot him a look, resisting the urge to roll my eyes.
 
 I didn’t know why he was fascinated with werewolves when there were kids in there who could snap us out of existence if they were slightly annoyed. 
 
-“Well, there's Will.” I said, shrugging. “Then there's Rowan, the leader of their pack.” 
+“Well, there's Will.” I said, shrugging. “Then there's the leader of their pack.” 
 
 He looked intrigued. “So, these kids are like, what, *original* werewolves?” he snorted. “That's what was in the report.” 
 
