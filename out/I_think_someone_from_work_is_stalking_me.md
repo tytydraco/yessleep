@@ -20,7 +20,7 @@ To be fair, there were quite a few calls waiting for our skeleton crew. Nonethel
 
 “I've been so lonely ever since my daughter passed.” Nothing I can say will ease the pain but maybe some active listening will help her get some sleep tonight.
 
-“She’s cheating on me. 4 months of my life down the drain. I’ll never find real love.” Hell yeah dude, I remember my first crush. Caught her holding hands with Zach Wilson, life’s been downhill since.
+“She’s cheating on me. 4 months of my life down the drain. I’ll never find real love.” Hell yeah dude, I remember my first crush. Caught her holding hands with Zach, life’s been downhill since.
 
 The calls continued for the next few hours as the queue dwindled to 0. Calls would cycle through to whoever has been available the longest. Guess I was too efficient because I got the first call after our short breather.
 
@@ -48,7 +48,7 @@ Slack brought me back from the abyss. I peel my eyes up to see that the call had
  03:17 Update?
            Ask if they have any pets
            Do you need me to listen in?
- 03:25 Saint Clair PD called. Enroute. Dispatch number 117 for the report.”
+ 03:25 PD called. Enroute. Dispatch number 117 for the report.”
 
 What should I say? I wanted to cry, scream, breakdown, curse whatever god there is for making me sit there and listen in. Stuck a silent observer to a private execution. “Thanks” is all I muster.
 
