@@ -1,85 +1,66 @@
-I had always loved being a radio host. It was my passion, my dream, my escape from the mundane reality of life. I didn’t mind the long hours, the modest pay, or the isolation. Connecting with my listeners, playing their favorite songs, and sharing my thoughts on various topics brought me joy, even though I’d never met any of them in person.
+“Alright, you’re on your own now. Good luck and I don’t need to remind you of the protocol if you’re compromised.”
 
-But everything changed on one fateful night, when an unexpected call disrupted my world.
+I nodded as I tightened my respirator and began walking towards the lift. As the heavy steel doors closed behind me, the gravity of it started to sink in. The past 6 months of intensive training just for today. And all could be ended for naught in an instant. 
 
-It was nearing midnight, and I was in the midst of my late-night show. Having just finished playing a classic rock tune, I was about to introduce the next song when the phone rang. I picked it up and greeted the caller with my usual charm:
+It still felt like it was yesterday when I was pulled out of field duty for the opportunity to be involved in a special project. Details were close to non-existent at the time and all I was told was that I was a suitable candidate. No family and a limited social network, sociopath tendencies that made me a perfect fit for doing the country’s dirty work. 
 
-“Hello, you’re on the air with DJ Mike. Who’s calling, and where are you tuning in from?”
+The hellish training was unlike anything I had experienced before in my years of service. Nothing remotely physical but day after day of breathing techniques and building up of resistance to various torture methods that made my POW training seem like child’s play. I was waterboarded, electrocuted, injected with increasing dosages of hallucinogens along with other forms of mental torture with the sole aim of having me keep my focus throughout. One would have thought they were going to be dropped into a North Korean labour camp.
 
-A momentary silence hung in the air, then a voice broke it—a deep, raspy voice tinged with urgency and fear.
+And yet, the truth and the horrors of it were no further from home itself. Such was the nature of the project that I only received my first actual briefing less than 72 hours ago after I was flown to the site, sedated no less. The objective was simple, but its simplicity and vagueness hinted at the fate of those who went before me. To initiate contact and interact with whatever lay in that underground facility and return, alive.
 
-“Hello, Mike. I’m sorry for interrupting your show, but I need to talk to you. It’s crucial.”
+It had been decades since it was first discovered, and we were no closer to unearthing more details about its origins. All hell broke loose when we awoke it from its hibernation. Scant notes from those around it before their gory deaths along with plenty of guess work had allowed us to achieve a delicate but stable present situation along with deductive rules on its exact nature. 
 
-“Of course, go ahead. What’s on your mind?”
+“It supposedly morphs into what you fear most.” He paused before playing a video on screen. Itwas unlike anything I’ve seen before. Soldiers panicking and pleading for help before going berserk and clawing their eyes out all while the mysterious humanoid watched from its cell. 
 
-“I know the truth about Project X.”
+“How many have gone down and survived?”
 
-A shiver ran down my spine. Project X had long been dismissed as a conspiracy theory, but the way this caller spoke made me question my skepticism.
+“Well, it depends on what you define as survived. We currently have a directive in place to spare anyone from unnecessary suffering. If we determine you’re compromised, a nerve gas capsule will open and flood your respirator.” 
 
-“What do you mean? What is Project X?”
+I doubt my stoic expression changed one bit, but the momentary pause might have given myself away.
+“I know what you’re thinking but those above us believe that its unique abilities can be weaponized. The first step of course, would be to have someone who can survive being around it.”
 
-“I can’t reveal everything now. It’s too risky. They might be listening. But you need to know this: You’re in danger, Mike. You’re a part of Project X.”
+As the lift descended, I couldn’t help but wonder about the sheer insanity of this project and what was most certainly a countless loss of life for an objective with no discernible timeline.
 
-“What? How? What are you talking about?”
+The lift doors opened, and I started my countdown timer of 2 minutes, pacing my breaths as I walked down the hallway. 
 
-“Your radio station isn’t what it seems. It’s no ordinary station. It’s a transmitter for Project X. They use it to broadcast signals to the surrounding area, and you’re their unwitting subject, Mike. They’ve been experimenting on you for months.”
+“Your heart rate is good. Breath counts looking good.”
+Nothing could have prepared me for this as I passed the bodies strewn across the floor towards the cell. I couldn’t help but notice that many were seemingly spending their last moments desperately trying to remove their respirators. 
 
-My disbelief and anger surged. This had to be a sick joke.
+And there it stood, with nothing for a face but staring at me all the same from its cell. As it spoke, its cold and eerily sinister voice seemed to resonate from within my head.
 
-“That’s absurd! Impossible! Who are you, and how do you know all this?”
+“You think all that training will keep you safe?” I could feel my heart rate starting to race as I tried to take it all in and make sense of it while focusing on simple singular thoughts to keep my mind as empty as possible. Yet, I could also feel an inkling of a morbid curiosity on what form it would take.
 
-“I was one of them, Mike, or at least I used to be. I worked on Project X, but I couldn’t bear it any longer. I couldn’t stand what they were doing to you and others. So, I decided to expose them and warn you.”
+“Who and what exactly are you and where are you from?”
 
-“Why me? Why are they doing this?”
+“Does it matter? Look around you, is it me that you should really be afraid of?”
 
-“They have different goals, Mike. Some want to create a new world order, some seek war, some play God. But they all share one thing: They don’t care about human lives. They don’t care about you, Mike. You’re just a test subject to them—a disposable tool.”
+I couldn’t help but sneak a peek once more at the bodies around with a hint of uncertainty creeping up at the back of my head. And at the same time, my head felt increasingly heavier as it seemed harder for me to keep my focus. 
 
-My stomach churned. I wanted to end this nightmare, but something inside urged me to listen further.
+“I tried to warn them. Once the timer hits, you won’t even have time to take it off.”
 
-“What should I do? How can I escape?”
+“What are you talking about?”
 
-“You can’t face them alone, Mike. But you can save yourself. You need to leave the station immediately.”
+“Oh, I’m sure you know. Do you really think it was me who did all of that? From within this cell?”
 
-“Why? What’s going to happen?”
+I looked at my countdown timer. It was 30 seconds to go, and I was still alive against all odds. I slowly backed away to return to the elevator. 
 
-“They’ve initiated the countdown, Mike. In 10 minutes, they’ll activate Project X.”
+“Ignore him, he’s trying to get into your head! You’re doing well, continue the interaction till the time is up.”
+I saw it starting to pace its cell with what should have been a face coldly fixated at me.
 
-“Activate? What will it do?”
+“Seems like they want you here still.” For once its voice carried a tinge of emotion, a barely disguised chuckle.
+“You’re going to be just another dead experiment to them.” 
 
-“I don’t know precisely, Mike, but I’m sure it won’t be good for anyone who hears it.”
+20 seconds to go.
 
-“Then let’s go! We need to get out of here!”
+I took a look at the corpses that lined the hallway once again. What if it was right? What if I was just a guinea pig for something which I was unknowingly a part of?
+“Why not see for yourself? You don’t have anything to lose.”
 
-I dropped the phone and raced to the door, but it was locked, resisting my efforts.
+I found myself starting to fiddle with the respirator while I saw the timer countdown to the final seconds.
 
-Frantically, I searched for another exit, but none presented itself.
+“Do not take the damn respirator off! I repeat, do not take it off! Head back to the elevator!”
 
-I was trapped within the station’s walls.
+As my fingers tapped against the seal of the respirator, I wondered, “Should I?”
 
-With Project X’s ominous voice echoing in my mind.
+ 
 
-Panic set in as the seconds ticked away. I tried to reach out to the mysterious caller, but the line had gone dead. The countdown continued, and my heart raced.
-
-Suddenly, a chilling thought struck me—what if the caller had been right all along? What if Project X wasn’t just a wild conspiracy theory? The pieces of the puzzle began to fall into place. The strange occurrences I had noticed, the mysterious technical glitches during broadcasts, and the unusual experiments conducted at the station—all seemed to connect to Project X.
-
-Desperation fueled my determination to escape. I rushed to the control room, hoping to find a way to override the broadcast. But the controls were locked behind a security code. I frantically searched for clues, and then it hit me—the caller had been part of the project. Maybe he knew the code.
-
-I dialed the number again, praying for a response. After several agonizing seconds, the raspy voice returned.
-
-“Mike, you don’t have much time. I can help you stop Project X, but you have to trust me.”
-
-I hesitated for a moment, then replied, “Okay, tell me what I need to do.”
-
-The caller guided me through a series of intricate steps to bypass the security code. With trembling hands, I followed his instructions, my every move synchronized with the ticking countdown.
-
-Finally, I heard a soft click. The controls were unlocked. I quickly disabled the broadcast, ending the countdown just moments before the fateful activation.
-
-A wave of relief washed over me as silence descended upon the station. I was safe—for now.
-
-But the caller’s voice returned, filled with urgency once more. “Mike, you’ve stopped it this time, but they won’t give up. You’re a threat to them now. You need to disappear, go off the grid. They’ll come after you.”
-
-I knew he was right. My life as I knew it was over. I had to leave everything behind—the radio station, my home, my identity.
-
-As I hung up the phone, I realized that my passion for radio had unwittingly thrust me into a world of secrets and danger. I was no longer just a DJ; I was a target, a survivor, and a guardian of the truth about Project X.
-
-With the weight of the unknown on my shoulders, I vanished into the night, determined to uncover the secrets hidden within the airwaves and protect the world from the sinister forces that lurked behind the radio waves.
+ 

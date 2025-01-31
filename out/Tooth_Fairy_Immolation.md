@@ -50,7 +50,7 @@ After a good few hours later, which I had spent the duration of finishing my hom
 
 My mom suddenly slammed the door with all the power she could muster without warning. The line went tout and my tooth was pulled out from my gumline with a wet popping sound as the line then fell loose again and my tooth clattered to the ground.
 
-Droplets of blood trickled down onto my tongue from the now empty socket as I winced in pain. But I didn’t have to worry as the pain didn’t last long, as it soon subsided and the discomfort I had up to that point faded.
+Droplets of blood trickled down onto my tongue from the now empty socket as I winced in pain. But I didn’t have to worry as the pain didn’t last long, soon subsiding and the discomfort I had up to that point fading.
 
 My mom wandered over to where my shiny white now laid and picked it up. “See, sweetie, it wasn’t that bad.”
 
@@ -298,7 +298,7 @@ But I had no time to celebrate. I could feel the floor beneath me begin to crump
 
 In hindsight, perhaps immolation wasn’t the best route to take in disposing of the Tooth Fairy. The house was always going to be a casualty if I was to douse a large section of it in gasoline (which I did), but I suppose I just overlooked that factor in my blind desire for revenge.
 
-But as smoke and ashes bellowed from the remains of the house, and the sun came back up for air as the hills brightened once more - I knew I hadn’t fully rid myself of the Tooth Fairy. There was still a long, painstaking process I had to go through to truly bury it.
+But as smoke and ashes bellowed from the remains of the house, and the sun came back up for air as the blanket of night was lifted - I knew I hadn’t fully rid myself of the Tooth Fairy. There was still a long, painstaking process I had to go through to truly bury it.
 
 And there was no better time than now to begin that process.
 
