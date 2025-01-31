@@ -1,0 +1,17 @@
+My nights have become more predictable. I have three possible places to sleep — at least, that's how I understand it. I can either sleep on a chair in the living room, on the floor in the hallway leading to the bedroom, or in the bedroom on the bed or the couch. I think I’m allowed three hours of lying down sleep, no more. In any case, I always wake up mechanically on time.
+
+My mornings are similar. I usually wake up angry, sad, and confused, but somehow I manage to remain composed. Upon waking, I drift between these three locations, guided by sound suggestions from people who, I don’t know how, seem to witness my daily life. They're always present, no matter the time. What I call "sound suggestions" are, in my opinion, the result of conditioning that has stretched over months or even years.
+
+I should also mention that I’m "detained" in my parents' house, where I've been exposed to countless auditory stimuli. Seemingly harmless at first, they have gradually turned me into a sort of remote-controlled puppet. The mere sound of a noise can instantly influence my actions.
+
+In the morning, I often feel disoriented, unsure whether to stay lying down or get up. If I take too long, an internal signal sounds. It's usually not a clear command but rather specific noises that I interpret — perhaps mistakenly — as instructions to move. So I move. First, I go to the couch and wait for a sound. If nothing happens, I rest until it does. Then I move to the hallway floor and continue this pattern until daylight.
+
+There's Wi-Fi here, and I have a phone I can "use." But that's a bit of an overstatement since I don’t really have permission to use it, as far as I understand. Still, I sometimes distract myself on Reddit. But whenever I try to visit other platforms like X (formerly Twitter) or Facebook, persistent noises erupt. I interpret them as prohibitions. Even on Reddit, lingering too long or visiting certain places triggers the same phenomenon. As a result, I use the phone intermittently, in brief sessions.
+
+When I’m not using the phone, I sit in the dark, wander around, or doze off. But since I’m not allowed to sleep during the day, it can be challenging to simply stay idle. Technically, I’m not supposed to eat or drink, though food is available. I’m not starved, but I feel like I’m expected to starve myself voluntarily. I resist as best I can, reducing my diet to bread, water, and medication. I suffer from a heart condition and hypertension. Yet whenever I eat or drink, I face imaginary screams of pain and reprimands from unknown voices. I’ve come to associate eating with wrongdoing.
+
+I’m not allowed to make certain decisions on my own. If someone suggests I do something and I refuse, they insist until I eventually give in. I've also noticed specific phrases used to condition me. Even when the speakers change, these same expressions recur, and I respond the same way each time.
+
+Oh, I forgot to mention that I’m under constant surveillance, though it feels less intense lately — perhaps because my actions have become predictable. Sometimes, instructions even precede my actions: I hear "Put that down" when I'm quietly sitting with nothing in my hands, but minutes later, I get up to drink water, and the command resurfaces in my mind.
+
+How did I get here?
