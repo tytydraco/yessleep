@@ -50,7 +50,7 @@ After a good few hours later, which I had spent the duration of finishing my hom
 
 My mom suddenly slammed the door with all the power she could muster without warning. The line went tout and my tooth was pulled out from my gumline with a wet popping sound as the line then fell loose again and my tooth clattered to the ground.
 
-Droplets of blood trickled down onto my tongue from the now empty socket as I winced in pain. But I didn’t have to worry as the pain didn’t last long, soon subsiding and the discomfort I had up to that point fading.
+Droplets of blood trickled down onto my tongue from the now empty socket as I winced in pain. But I didn’t have to worry as the pain didn’t last long, soon subsiding and the discomfort I had up to that point fading along with it.
 
 My mom wandered over to where my shiny white now laid and picked it up. “See, sweetie, it wasn’t that bad.”
 
@@ -232,7 +232,7 @@ The Tooth Fairy had to be real, because if she wasn’t, why did my family fall 
 
 *Why?*
 
-My heart beat hard against my ribcage as breaths exhaled from my mouth in panicked hordes. My body went haywire from a spill of emotional thoughts\*. If she hadn’t been there, then who? Who left that money?\* Then it came to me.
+My heart beat hard against my ribcage as breaths exhaled from my mouth in panicked hordes. My body went haywire from a spill of emotional thoughts. If she hadn’t been there, then who? Who left that money? Then it came to me.
 
 My mom.
 
@@ -278,7 +278,7 @@ I froze in that moment, constricted by the boundaries of my mind as I tried to c
 
 The lines on the palm began to blossom in a way, as they spilt open and shifted to reveal rows - rows and rows and rows of endless, contorting teeth filling the fleshy interior of its impossibly deep maw. Each of them were in a different state of decay, however I noticed the ones near the front were fairly fresh.
 
-It was as if I was looking into a biological meat grinder.
+It was as if I was looking into an organic meat grinder.
 
 Its neck extended, its agape palm reaching out to meet my face with clear intentions. Fortunately, I managed to break free from my trance and hastily squirted the liquid within the plastic bottle into the creature’s mouth.
 
