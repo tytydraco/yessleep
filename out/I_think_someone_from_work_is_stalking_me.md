@@ -1,4 +1,4 @@
-Apparently there is no support for people who have unconventional issues in the social work field. Every time I try to speak to our employment provided support line they tell me my call is inappropriate. When I post to relevant subreddits I get chastised for lying and making light of the field. This is the last place I can turn to.
+Apparently there is no support for people who have unconventional issues in social work. Every time I try to speak to our employment provided support line they tell me my call is inappropriate. When I post to relevant subreddits I get chastised for lying and making light of the field. This is the last place I can turn to.
 
 I believe someone from work has been stalking me the past few nights. During training for the 988 crisis line, they walked us through scenarios: sexual callers, suicidal clients, verbally abusive ones, the drunk and lonely, even the repeat callers. While I understood that some people might develop attachments or feelings, what they never mentioned was someone crossing the line and getting personal. 
 

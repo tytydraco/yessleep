@@ -232,7 +232,7 @@ I scanned the room.
 
 Fifteen fearful faces stared at her.  
 
-A willowy blonde who had previously been reading a dog eared paperback, was now sitting up straight, her half-lidded eyes wide, almost awake. 
+A willowy blonde who had previously been reading a book, was now sitting up straight, her half-lidded eyes wide, almost awake. 
 
 She caught my gaze, lips pricking into a smile. 
 

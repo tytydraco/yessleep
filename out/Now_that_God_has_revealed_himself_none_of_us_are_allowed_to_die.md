@@ -361,7 +361,7 @@ There was blood on the seat.
 
 It took him a second to respond—to register. “Ah, yeah, *yes.* Rev. Lucien. *Sure.*”
 
-“Uh—” I continued, “I haven’t really done this… *confessional* thing before but I guess, are you supposed to ask me to confess\*… something?\*”
+“Uh—” I continued, “I haven’t really done this… *confessional* thing before but I guess, are you supposed to ask me to confess… something?”
 
 “Yes! Please confess whatever is on your mind.”
 
