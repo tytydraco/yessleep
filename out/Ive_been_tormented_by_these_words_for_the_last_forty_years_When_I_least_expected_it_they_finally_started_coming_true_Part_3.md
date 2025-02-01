@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1ia1uuw/ive_been_tormented_by_these_words_for_the_last/). Part 2 (No current link. Has been temporarily removed from NoSleep, will hopefully be re-instated soon). 
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ia1uuw/ive_been_tormented_by_these_words_for_the_last/). [Part 2](https://www.reddit.com/r/nosleep/s/siXihrrKFs)
 
 \------------
 
