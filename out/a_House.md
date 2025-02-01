@@ -138,4 +138,5 @@ I stayed away from any mention of the House, pushing it down to the deepest rece
 
 I chose coffee, and already then I must have known. The whole day had been a state of denial. Each task I set up for myself was another way to bargain, to plead for one more moment of normalcy before the inevitable came. 
 
-I knew I was going back.
+I knew I was going back. 
+
