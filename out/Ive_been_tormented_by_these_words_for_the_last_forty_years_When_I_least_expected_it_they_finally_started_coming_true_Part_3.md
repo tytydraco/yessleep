@@ -138,7 +138,7 @@ Memories, he reminded me, aren’t *true* history. They’re more like made for 
 
 *You can’t look at memories like they’re fact*, he said, *especially ones that are that old.*
 
-Important insight that would only become more crucial as the events of the evening unfolded.
+Wisdom that would only become more crucial as the events of the evening unfolded.
 
 \--------------
 
@@ -164,7 +164,7 @@ He spun his head around the perimeter of the machine and found that the power co
 
 The sheriff started looking for a power outlet. As he did, I felt warm comfort drip slowly into my veins. I carefully inspected the box. There was no way this ancient thing could really have given us so much heartache.
 
-Maybe this is all just a terrible coincidence. I mean, Barbara grew up around this town, too. It’s possible that she experienced the prophecy from this machine early in her childhood, the same as we did. It didn’t fully explain what was going on with the birds, nor the stranded leviathan, and it certainly didn’t explain the motives of our shared tormentors, but those loose threads didn’t mean an apocalypse was on its way, hot on the heels of our kind Icelandic neighbor.
+Maybe this is all just a terrible coincidence. I mean, Barbara grew up around this town, too. It’s possible that she experienced the prophecy from this machine early in her childhood, the same as we did. It didn’t fully explain what was going on with the birds, nor the beached whale, and it certainly didn’t explain the motives of our shared tormentors, but those loose threads didn’t mean an apocalypse was on its way, hot on the heels of our kind Icelandic neighbor.
 
 The only thing I noticed that was a bit odd was a small T-shaped hole on the back of the machine. If I didn’t know any better, I’d say it looked like where you’d plug a landline into.
 
@@ -206,7 +206,7 @@ I wrenched my phone out of my pocket; the heavens tinting the screen ghostly, ne
 
 4 missed calls from Lucy, followed by a text message and a picture.
 
-*“Barb gathered nearly everyone at the chapel, except Ari. Practically everyone in town was tormented by the prophecy when they were young. They’re all acting crazy. What they’re talking about doing is insane. Come ASAP and bring Shep.”*
+*“Barb gathered nearly everyone at the chapel, except Ari. Practically everyone in town was tormented by the prophecy when they were young. They’re all acting crazy. What they’re talking about doing is insane. Voting about what to do first. Come ASAP and bring Shep.”*
 
 Although none of us are religious, we use an abandoned Pentecostal church as our town hall. It’s the biggest communal space we have.
 
