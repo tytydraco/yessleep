@@ -70,7 +70,7 @@ If more than just the three of us have been affected by the prophecy, I’m afra
 
 By the time I reached the animal, Shep was already on the phone with environmental services. From what I could tell, he was working on getting a cleanup crew out to the shore as soon as possible to retrieve the carcass. Standing before the stranded leviathan, the smell of death lingered thickly in the air, the salt of the tide and the sulfur of decay combining to form an ungodly stench.
 
-Closer to the omen, I expected my fear to intensify. Instead, I found that it quieted, and a peculiar sadness took over in its place. The majestic animal had died in such an undignified way, sprawled out alone on the beach for everyone to gawk at. It was hard to look at.
+Closer to the omen, I expected my fear to intensify. Instead, I found that it quieted, and a peculiar sadness took over in its place. The majestic animal had died in such an undignified way, sprawled out alone on the beach for everyone to gawk at. 
 
 I did a lap around the dead titan. Wasn’t sure exactly what I was looking for, but I figured I’d know it when I see it. To my relief, there wasn’t anything overtly foreboding about the cadaver. No prophetic phrases carved into its flesh, no mysterious pagan symbology painted onto it, nothing to link it to those damned words other than its arrival alongside the other potential omen, the grounded birds.
 

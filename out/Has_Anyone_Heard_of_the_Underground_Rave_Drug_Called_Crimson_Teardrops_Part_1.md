@@ -1,10 +1,6 @@
 NSFW Warning Tags: Self harm, drug and alcohol use, violence, gore, sexually explicit.
 
-
-
 As I lay here in my hospital bed, I can’t help but wonder just what that drug was, and what it did to Lisa’s mind to make her do such a horrible thing. The cops apparently have no leads yet, and everyone in my contacts I’ve reached out to has no clue. So, I have to ask here and anywhere else I can if I want to find the answers I desperately seek. Has anyone heard of the underground rave drug called “Crimson Teardrops”?
-
-
 
 I guess I should start at the beginning to further elaborate. My name is Sarah, I’m 25 years old, and this all began last Saturday night. My Girlfriend Lisa and I were at an underground rave in our home city of Seattle, everyone dancing, drinking, partying, and vibing to the blasts of EDM music that rocked the abandoned underground warehouse we were in while beams of multicolored light dazzled everyone’s drug addled brains in different ways depending on what specific cocktail of pills and powders they were on at the time.
 
@@ -246,7 +242,7 @@ Lisa then swung out in a wide arch, cutting another gash through my T-shirt and 
 
  
 
-“I have to get the skin off,” Lisa whispered matter of factly. “It’s holding all the blood in. He needs the blood to be spilled to dampen his soil, so that he can grow big and strong, to feed his leaves and branches, of course.”
+“I have to get the shkin off,” Lisa whispered, blood spilling forth from her mouth and slurring her words. “It’sh holding all the blood in. He needsh the blood to be shpilled to dampen his shoil, sho that he can grow big and shtrong, to feed hish leavesh and branchesh, of courshe.”
 
  
 
@@ -258,7 +254,7 @@ She continued carving into her left forearm then, further working to remove the 
 
  
 
-“He needs a sea of blood,” Lisa continued. “You see?” She turned her blood-filled eyes up so that her gaze could meet my own, now terrified and filled with tears. “So much that it can reach all the way down to his roots and keep him fed for eternity. I’m going to have to get your skin off as well, I suppose.”
+“He needsh a shea of blood,” Lisa continued. “You shee?” She turned her blood-filled eyes up so that her gaze could meet my own, now terrified and filled with tears. “Sho much that it can reach all the way down to hish rootsh and keep him fed for eternity. I’m going to have to get your shkin off ash well, I shuppose.”
 
  
 
@@ -274,7 +270,7 @@ I continued backing away and towards the front door to our apartment as Lisa sta
 
  
 
-“It feels so good to bleed for him, to feed him,” Lisa moaned out in ecstasy. “You’ll see.” She lunged for me then, plunging the knife in my direction.
+“It feelsh sho good to bleed for him, to feed him,” Lisa moaned out in ecstasy. “You’ll shee.” She lunged for me then, plunging the knife in my direction.
 
  
 
