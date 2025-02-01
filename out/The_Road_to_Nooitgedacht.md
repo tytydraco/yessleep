@@ -1,0 +1,34 @@
+In South Africa, deep in the Transvaal, there is a place known as Nooitgedacht. This place has a history to it, having been a battleground more than once. It was a battlefield during the Anglo-Zulu War. And again, during the Boere war in 1900, under the command of Koos de la Rey, who many South Africans to this day consider a war hero, and Christiaan Beyers, the Boere were able to defeat a British brigade at this sight. From my understanding, both were particularly bloody battles that resulted in a fair amount of bloodshed and death.
+
+But its war-time history is not the only aspect of Nooitgedacht that makes it interesting. The people of the towns near this sight all hold on to one particular superstition. And because of this, whenever there is a sickle moon in the night sky, people close their windows and lock their doors- you won’t find a soul outside past dark on nights like these. Were you to ask, anyone would tell you that being out during the sickle moon was to risk your own soul, to risk being taken by the ghost of Nooitgedacht or the things that follow him. 
+
+It’s a familiar story. My grandmother would tell it to my sister and I when we were little. At some point during the 1800’s, there was a thief in the Transvaal region of South Africa. Not unlike tales of cowboys from the American west, this man, whose name has been lost to his own legend, would ride from town to town on a dark horse in search of profit. In one of the nearby towns, this man robbed a bank. Some stories say it was gold he carried away, others say it was paper money. The townsfolk pursued him, and soon, the thief saw that he couldn’t keep up this chase. 
+
+He became desperate, and in his desperation he called out to offer the only thing he could; his own soul. To the devil, he offered his soul if only he could escape with his riches. As the story goes, the devil gladly accepted the deal, and a great wind began to blow up dust that blinded and confused the men chasing the thief. With a giddy laugh, the man rode off to the wilderness; into the cliffs where he wouldn’t be found. There, somewhere deep among the rocks and cliffs, he buried his treasure so that no one could take it from him, securing his wealth.
+
+But of course, the devil had fooled the man. The terms of their deal was that he was entitled to the man’s soul after he had escaped with the stolen riches, not necessarily only after the man had died. As soon as he had buried his money, the devil appeared to the man, ready to drag him to Hell. The rider, in a state of panic, jumped on his horse and rode with all his might in an attempt to escape his fate. At some point in his flight, the man realized he had not marked the burial spot of his treasure, and he couldn’t remember exactly where in the cliffs he had hidden it. 
+
+To torment him, the devil cursed him. He would forever be chased by the legions of Hell in an eternal search for his hiding spot. And so, every night under the sickle moon, the thief returns on a horse whose hooves kick up glowing embers and rides through Nooitgedacht in search of his treasure.
+
+I never believed in ghosts, but I do believe in money. So, when I was 16, I figured I’d go see for myself if there truly was a buried treasure out in the wilderness. Everyone else was too scared of the supposed ghost to do the same, so I figured I’d have no competition.
+I set out one day while the sun was still high in the sky with a mix of hope and greed in my heart. 
+
+My hometown is nearby so it only took about an hour or 2 to reach where I was going. Honestly, I really wasn't sure what I was looking for. But I figured I'd wander through the cliffs and look for any spot that looked promising. I walked and I dug until my knees began to click and arms  trembled, but I never found any hint of my prize.
+
+In my search, I hadn't noticed the sun setting over the horizon until most of its light had gone. The sky was a beautiful mix of violet and crimson, but despite the beauty of the sunset, I couldn't ignore my nervousness.
+
+I told myself, “It's just a stupid ghost story. It's just as real as monsters under a kid's bed.”
+
+Still, I decided it was time to head home. I left the rocky drags and began my walk home. By now, night had come and the crooked moon smiled down at me from up high. My mouth went dry as I remembered the legend. But it was just a ghost story, it was never supposed to be real. 
+
+I felt the road beneath me quake as the sound of hooves drummed in my ears. My heart dropped and my knees nearly failed me. I turned around to look down the road. There was a figure in the distance, one rapidly growing nearer and nearer. His skin wasn't pale, it was pure white like snow, and cracked like dry clay. His eyes were like burning coals and tongues of fire spilled out of his open mouth. His pitch black horse had hooves that glowed like hot iron, smoke billowed from its nostrils, and its eyes were the same as it's rider's.
+
+I ran off from the road into the wilderness. I didn't turn back until I was hidden behind a boulder. In truth, it's not the rider I was afraid of. He was terrifying, of course, but he didn’t compare to the horrors that trailed close behind him. The legend had said that the legions of hell chased after the rider, but I had imagined cartoonishly red demons with bat's wings and pitchforks flying after him, not this. 
+
+The fields of wilderness behind him were swallowed by an even line of flames, like a brush fire.  As he rode, the burning line pushed forward with him, hungry to swallow him. Behind that line was what I can only describe as Hell. It was as if Earth and Hell had begun to merge together- there was an abyss of blackness behind that fiery border. I could see hands, faces, whole people, trying to claw their way out of the dark. Their skin was black like tar and cracked like the rider's. But through the cracks I could see glowing red and orange, like a burnt tree stump filled with embers. I could hear them, a million groans and screams of damned souls. It's a sound I'll never be able to forget. 
+
+As I watched from my hiding spot, I realized that the things in the pit weren't trying to escape their fate. They were reaching for the rider, grabbing at the air in his direction, yearning to pull him into Hell with them, horse and all. I stayed there behind that boulder until morning, praying to God that they wouldn't find me. That I wouldn't share their damnation. 
+
+When morning came, I decided I'd give up my search for treasure. Let the man have his money, I wanted to go home. When I left my hiding spot, nothing remained from the night before. No fire, no ash, no demons, nothing. 
+
+Of course, people I told about it called me either a liar or an idiot. A lot of them laughed at me for it. But I know what I saw that night. So please, for your own sake keep away from the road to Nooitgedacht.
