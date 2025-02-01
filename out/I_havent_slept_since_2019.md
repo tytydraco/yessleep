@@ -1,0 +1,17 @@
+Dear r/nosleep you youngins on reddit are much more socially knowledgeable and emotionally mature than me so maybe I can get some help here
+
+I’m a 28M and I don’t even know if I should be taking this so seriously.  
+It’s nothing serious but i have no idea how to tell this guy that he’s not making any friends or any social interaction for that matter because he’s clingy and needs to control himself and not be toxic and start baby raging if someone doesn’t answer his calls or texts in .5 seconds or doesn’t invite him in a goddamn csgo lobby. 
+And then he somehow concludes that I get to play CS with my friends that I literally go to work with because I’m bribing them?? Yeah totally not because I see and talk to them on a daily basis (like a normal civilized person mind you). And then he calls our mutuals fake for cutting him off and I’m like man maybe put on your thinking cap for a moment and really ask yourself why. Which he then tries to justify himself by saying “friends should always be there for each other” “so many other people act worse than I do why am I getting hated” and I said last time I checked friends don’t constantly call 20 times (I checked) to get on a game. Like, if you’re gonna have friends you need to respect boundaries. They’re not just people you can play with at any time they’re human beings too with their own lives. This guy calls my friends and I more than our wives just to get on a game (should I just give him a single player game for Christmas? Let me know some that take 200 hours to finish) 
+Anyways I’m like hey I’m telling you that I have people to play with because I talk to everyone with respect and consideration. Simply put  just be cool and hang out with people you share interests with. 
+
+Recently I went on vacation with my wife and kids and I took a huge break from social media and I come back and I find this guy trending within the online friend group (???) and everyone is telling me what he did. 
+He actually MANAGED to befriend a streamer that I used to occasionally watch (not sure if they are active on twitch anymore but they are still known in the cs community). I was so proud of him I thought he finally turned over a new leaf. I was ready to congratulate him and maybe play some CS or Destiny matches as a reward of some sort. 
+
+Or so I thought…
+
+When he is given the chance to potentially become friends with the streamer he becomes really obsessive and clingy and then he’s back to square 0 except this time since he’s a niche semi well known streamer, hes put on blast in front of his community so now even more people don’t wanna be with this guy. 
+
+I seriously don’t know what to do and I feel as if I’ve unleashed a great evil by leaving him alone and letting him be with the rest of the world (a little mean but sometimes I still hear about him from my other friends)
+
+And honestly I’ve just been staying to watch this guy fail for entertainment at this point because I really really tried since he was my good friend from high school but at this point he should just get therapy. I hope to god that there is a medical professional out there with a PhD and they can explain the concept of friends to him in a language he understands because quite frankly (kudos to him I guess) I don’t think I ever “crashed out” (not sure if I’m using this term correctly) on another human being ever. That’s my ted talk thanks for reading

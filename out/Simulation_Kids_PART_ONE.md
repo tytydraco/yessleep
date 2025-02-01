@@ -141,3 +141,5 @@ There had never been any real injuries in Bleekerville, so the skills of the doc
 But what Ron had said before taking his own life could be simply dismissed. It was obvious what he had meant when he said that we were going against nature, but who was punishing us, and why were the townsfolk not exempt to this punishment?
 
 Before we could investigate any of this further, more disasters struck. It was like something had been lying in wake that whole time, up until Louis had finally tipped the cup over. The tipping point. Then, when it sensed we finally felt genuine hope for our little blasphemous project, it had decided to finally emerge, watching as everything leisurely rolled downhill for us.
+
+Part Two: [https://www.reddit.com/r/nosleep/comments/1if8mi5/simulation\_kids\_part\_two/](https://www.reddit.com/r/nosleep/comments/1if8mi5/simulation_kids_part_two/)
