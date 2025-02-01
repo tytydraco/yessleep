@@ -36,7 +36,7 @@ Already, our makeshift plan was falling apart.
 
 The division of responsibilities had made sense in the moment; Lucy would stay behind with Barbara to keep her calm. I would go with Shep to tell him more about the prophecy, while also seeing if the whale seemed to fit the criteria for "*a stranded leviathan*”.
 
-But paralytic terror was preventing me from doing either task. I couldn’t force the questions out of my mouth on the ride over to the beach, so it was completely silent. And now, I couldn’t force my legs to bring me closer to the stranded leviathan. Inspecting it up close may not provide us with important insight, but I wouldn’t know that until I looked at it myself.
+But paralytic terror was preventing me from doing either task. I couldn’t force the words out of my mouth on the ride over to the beach, so it was completely silent. And now, I couldn’t force my legs to bring me closer to the stranded leviathan. Inspecting it up close may not provide us with important insight, but I wouldn’t know that until I looked at it myself.
 
 *Maybe I should have stayed with Barb. I bet Lucy would have been out of the car by now.*
 
@@ -56,19 +56,19 @@ A few summers ago, we had a spree of teenagers ringing doorbells and then runnin
 
 As a result of that fear, the woman blasted a UPS delivery man with duck-shot as she answered the doorbell, thinking he was one of the instigators.
 
-Thankfully, the worker was mostly unharmed. Barb is not marksman and the ammunition itself was rubber. She got off light: a few hefty fines and probation. Paid for the man’s medical bills, too.
+Thankfully, the worker was mostly unharmed. Barb is not a marksman and the ammunition itself was rubber. She got off light: a few hefty fines and probation. Paid for the man’s medical bills, too.
 
 Fear can make you a lot of things. It causes me to become paralyzed. It causes Lucy to run and hide. Both aren’t exactly healthy responses, but they aren’t particularly harmful, either.
 
-Barb is a different story. Fear makes her impulsive and violent. The adrenaline is blinding. It transforms her into a person recklessly swinging a knife around in a dark room just because she can’t see anything around her.
+Barb is a different story. Fear makes her impulsive and violent. The adrenaline is blinding. It transforms her into a person recklessly swinging a knife around in a dark room just because she can’t see anything.
 
 Uncontrolled fear is a cancer - it grows into everything around it, overwriting whatever was there before it as its roots dig deep.
 
-If more than just the three of us have been affected by the prophecy, I’m afraid of what voracious cancer Barb might be able to cultivate.
+If more than just the three of us have been affected by the prophecy, I’m afraid of the voracious cancer Barb might be able to cultivate.
 
 \--------------
 
-By the time I reached the animal, Shep was already on the phone with environmental services. From what I could tell, he was getting a cleanup crew out to the shore as soon as possible to retrieve the carcass. Standing before the stranded leviathan, the smell of death lingered thickly in the air, the salt of the tide and the sulfur of decay combining to form an ungodly stench.
+By the time I reached the animal, Shep was already on the phone with environmental services. From what I could tell, he was working on getting a cleanup crew out to the shore as soon as possible to retrieve the carcass. Standing before the stranded leviathan, the smell of death lingered thickly in the air, the salt of the tide and the sulfur of decay combining to form an ungodly stench.
 
 Closer to the omen, I expected my fear to intensify. Instead, I found that it quieted, and a peculiar sadness took over in its place. The majestic animal had died in such an undignified way, sprawled out alone on the beach for everyone to gawk at. It was hard to look at.
 
