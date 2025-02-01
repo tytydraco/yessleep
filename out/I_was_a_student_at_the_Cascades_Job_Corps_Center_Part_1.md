@@ -1,6 +1,8 @@
 
 For readability I am going to break this up into parts:
 
+[Part 2](https://www.reddit.com/r/nosleep/s/tRwDxTgCEU)
+
 For those of you who have never heard of Job Corps, it is a trade school run by the Department of Labor designed to help low income young adults prepare for the workforce. They have campuses all over the country. I was one of their students and this is my experience.
 
 I thought Job Corps was my way out. A second chance. A chance to rebuild myself after years of feeling like a failure. When I was assigned to the Cascade Job Corps Center in Washington, I didn’t think much of it. It was just another government-run facility in the middle of nowhere. But when I stepped onto that campus, something immediately felt… off.
