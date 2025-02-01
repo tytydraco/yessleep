@@ -99,6 +99,8 @@ For a while, we just sat there, letting the fire burn down to embers. Despite th
 
 Up until now, Job Corps didn’t seem like such a bad place. It wasn’t until a few days later that things took a turn for the worst.
 
+- - - - - - - - - -
+
 It started as a joke between us. Break into the hospital. See what was inside. Everyone on campus had a theory: It was still used for medical experiments. The government was hiding something. Ghosts of lobotomy patients roamed the halls.
 
 We planned it during a windstorm, knowing the cameras would be down. Power outages were frequent during bad weather, and the staff was usually too distracted to keep a close eye on things. That night, the lights flickered across campus, and the rain came down in sheets. Perfect cover.
