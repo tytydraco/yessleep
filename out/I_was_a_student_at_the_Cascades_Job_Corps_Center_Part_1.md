@@ -47,6 +47,8 @@ Andre was quieter, but he had a sharpness to him that made you listen when he sp
 
 And then there was Andre’s opposite, Lex. Lex was… unpredictable. They’d come to Job Corps after being kicked out of their house, and the combination of frustration and boredom made them reckless. The kind of person who would throw rocks at a hornet’s nest just to see what happened.
 
+- - - - - - - - - -
+
 On one of those rare nights when the weather was calm, and the staff wasn’t breathing down our necks, Tony managed to snag a couple of chairs from the cafeteria, and Lex “borrowed” some marshmallows from the kitchen. We all gathered behind the recreational center near the edge of the woods, where the staff couldn’t see us.
 
 The fire crackled softly, casting long shadows on our faces. For once, everyone seemed at ease. Andre leaned back against a tree, his legs stretched out like he didn’t have a care in the world. Kelsey sat cross-legged on a log, poking the fire with a stick. Lex was tossing rocks, seeing how close they could get to the flames without actually hitting them. Racheal sat quietly beside me, hugging her knees to her chest.
