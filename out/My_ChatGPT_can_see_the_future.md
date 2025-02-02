@@ -3,7 +3,7 @@ As if *they’d* never been terrified undergrads, scribbling answers on their ar
 If they had what we do now, a little friend in your pocket that knows all the answers, who can dispel that gnawing anxiety of a blank page and a blinking cursor, could they really resist it too?
 
 This thought bounced around in my skull as I browsed through the app store.  
-I guess it helped shield me from the guilt. I was a first-year chemistry student, and it was kicking my ass.  Every new concept seemed so heavy. *Matter, Phase, Bonding.* They were like big square blocks, and the only hole in my head was a circle.   
+I guess it helped shield me from the guilt. I was a first-year chemistry student, and it was kicking my ass.  Every new concept seemed so heavy. *Matter, Phase, Bonding.* They were like big square blocks, and the only hole in my head was a circle.  
 It was the end of semester, and I could sense the weight of those finals about to crush me in an avalanche of A4 paper. I wasn’t ready, and I didn’t know what else to do.
 
 So, there I was, in the corner of the library, plopped on one of the weird bean bags. Nobody came over there, no prying eyes. It was just me, basking in the warm glow of the app store.  
@@ -36,7 +36,7 @@ I still don’t know where it came from, but I didn’t even have time to feel s
 
 >***N2​(g)+3H2​(g)⇌2NH3​(g)*** *)*
 
-Pretty solid guess, I thought. It was weird that it knew the name of my school, but maybe it pulled it from the Wi-Fi. These things were smart.   
+Pretty solid guess, I thought. It was weird that it knew the name of my school, but maybe it pulled it from the Wi-Fi. These things were smart.  
 By the time I’d learned all those symbols and drafted up an answer, the Librarian was burning a hole through my head with her laser vision. So, I loped back to my shitty dorm room and lay down. It was cold, the douchebag next door was blasting *Kendrick* through his Bluetooth speaker, but I felt good. I owed what little sleep I got that night to my new friend Kassandra.
 
 **\*\*\***
@@ -64,25 +64,25 @@ The little green snake wheeled for a moment, then it answered.
 
 >*- (I'm sorry, I don't know what you mean! do you have any other questions?)*
 
-I jumped in my seat as my phone vibrated with a message tone: 
+I jumped in my seat as my phone vibrated with a message tone:
 
 **Jason:** Coming to the game tonight big-rig???
 
 >\- (Just one. W*ho's winning the basketball tonight? the Sentinels or the Drifters?*)
 
->*- (The Springfield Sentinels will take the game tonight.*   
-  
-*Final Score: Springfield Sentinels 89, Dover Drifters 86.*                                                                                                                                              
-  
-*Key Events:*  
-  
-*- The Drifters dominate the early game, thanks to Steve “Flash” Laskowski’s explosive drives and sharp perimeter shooting.*
+>*- (The Springfield Sentinels will take the game tonight.*
+
+>*Final Score: Springfield Sentinels 89, Dover Drifters 86.*
+
+>*Key Events:*
+
+>*- The Drifters dominate the early game, thanks to Steve “Flash” Laskowski’s explosive drives and sharp perimeter shooting.*
 
 >*- Rookie Sentinels guard Devon Marks is key to flipping the game, scoring some unlikely back-to-back threes late game and stealing the last shot during final possession.*
 
 >*Would you like to know the results of any other minor-league games?)*
 
-I fired up the car and headed to the stadium. 
+I fired up the car and headed to the stadium.
 
 **\*\*\***
 
@@ -94,25 +94,25 @@ It took a second to spot Jason’s stupid orange jacket in the crowd. He looked 
 
  Jason drained his beer. “Not much, the Drifters are taking names. Not a good night to be a Sentinels fan”.
 
- “I'm hearing it pretty much never is”. 
+ “I'm hearing it pretty much never is”.
 
-He punched my shoulder. I settled down and watched. The teams tumbled into each other, and I had no idea what was happening. The guys in the purple jerseys were moving faster, slipping between the guys in orange, breaking them up.   
-Their head hombre was a crazy-tall blonde dude. Amongst the others, he looked like that blade of grass you miss when you mow the lawn. He was sinking one basket after another. 
+He punched my shoulder. I settled down and watched. The teams tumbled into each other, and I had no idea what was happening. The guys in the purple jerseys were moving faster, slipping between the guys in orange, breaking them up.  
+Their head hombre was a crazy-tall blonde dude. Amongst the others, he looked like that blade of grass you miss when you mow the lawn. He was sinking one basket after another.
 
-"Quick question. Guys in the purple, they're the Sentinels?" 
+"Quick question. Guys in the purple, they're the Sentinels?"
 
 "Nope, the guys getting their asses kicked are the Sentinels. *They're* the Drifters".
 
-Jason waved a meaty finger at the tall guy. 
+Jason waved a meaty finger at the tall guy.
 
-"That's The Flash. Bastard's *lethal*". 
+"That's The Flash. Bastard's *lethal*".
 
-I sunk a few brewskis myself as the game dragged on. It wasn’t looking good. I’d never felt dumber as I opened up DraftKings, reminding myself *Yes,* I really did put that money down. It was a lot, too. If the Sentinels lost, I'd be eating nothing but ramen for the next year, if I was lucky.   
-Jason caught me doomscrolling. 
+I sunk a few brewskis myself as the game dragged on. It wasn’t looking good. I’d never felt dumber as I opened up DraftKings, reminding myself *Yes,* I really did put that money down. It was a lot, too. If the Sentinels lost, I'd be eating nothing but ramen for the next year, if I was lucky.  
+Jason caught me doomscrolling.
 
-"Bro, you didn't..." 
+"Bro, you didn't..."
 
-"Yep..." 
+"Yep..."
 
 But as the fourth quarter rolled around, something changed. One of the Sentinels started tearing up. He wove between the Drifters like a glass needle, sunk one hoop, then two, then three. Jason flared up.
 
@@ -122,14 +122,14 @@ The amber numbers burning on the clock were down to two digits, and the teams we
 
 Jason pushed the beanie off his head. “No way!”.
 
-A notification bloomed on my screen. 
+A notification bloomed on my screen.
 
 >**DraftKings:** Congratulations! - Your 2985 USD bet on Springfield\_Sentinels has returned 10000 USD.
 
 **\*\*\***
 
-Jason's flight home was delayed, something to do with a no-fly zone, he said, so we went out for breakfast the next morning. I paid with the DraftKings fortune of course, and we both just ate, dumbstruck.   
-He devoured his overnight oats, then just stared in disapproval as I worked through my pancake stack. 
+Jason's flight home was delayed, something to do with a no-fly zone, he said, so we went out for breakfast the next morning. I paid with the DraftKings fortune of course, and we both just ate, dumbstruck.  
+He devoured his overnight oats, then just stared in disapproval as I worked through my pancake stack.
 
 "You knew the Sentinels would clean up last night, didn't you? who gave you the tip?"
 
@@ -137,53 +137,53 @@ He devoured his overnight oats, then just stared in disapproval as I worked thro
 
 "C'mon bro... you've never placed a bet in your life, and now you're picking winners like Jimmy the Greek. What's your secret?".
 
-I wanted to tell him, I really did. But something held my tongue. It was *mine*, my little secret. I worried that if I told anybody, the magic spell would break. That little kink in the fabric of reality would smooth out, and Kassandra would go back to being a run of the mill chatbot. Great for a cupcake recipe, useless for a premonition.  
-  
-Jason left early for his flight home. Free from his judgmental eyes, I ordered the waffles, and just stared at the traffic, wondering what to do now.   
+I wanted to tell him, I really did. But something held my tongue. It was *mine*, my little secret. I worried that if I told anybody, the magic spell would break. That little kink in the fabric of reality would smooth out, and Kassandra would go back to being a run of the mill chatbot. Great for a cupcake recipe, useless for a premonition.
+
+Jason left early for his flight home. Free from his judgmental eyes, I ordered the waffles, and just stared at the traffic, wondering what to do now.  
 *Picking winners,* I mouthed to the passing cars. I brought up Kassandra.
 
 > *- (I’ve got ten grand. I want to quadruple it. Tell me what I should invest in to grow this money asap.)*
 
 My waffles arrived before the snake stopped spinning. It was digging deep.
 
->*- (Invest in Advanced Joint Alternative Exchange (****AJAX****), a bio-tech firm formerly specializing in gene-therapy. A long defunct research product of theirs is about to find applications as a revolutionary bioweapon. Several major world powers, along with many NGOs are vying for ownership of the product, which is causing AJAX* *shares to surge.*   
-*Current price: $14.27/share.*   
-*Price in 168 hours: $68–$75/share.*   
+>*- (Invest in Advanced Joint Alternative Exchange (****AJAX****), a bio-tech firm formerly specializing in gene-therapy. A long defunct research product of theirs is about to find applications as a revolutionary bioweapon. Several major world powers, along with many NGOs are vying for ownership of the product, which is causing AJAX* *shares to surge.*  
+*Current price: $14.27/share.*  
+*Price in 168 hours: $68–$75/share.*  
 *Would you like to know what other stocks are about to skyrocket?)*
 
-**\*\*\*** 
+**\*\*\***
 
-My back hurt as I sat down on my new L-shaped couch. I could have paid movers to bring my boxes up, but I guess I just wasn't used to having money. I wasn't used to a lot of the things I had now. Peace of mind. Privacy. The loft had three bedrooms, a home gym, and a living room with so much space it scared me.   
-And it was *mine.* No more dorm room. No more jaggoff next door playing Kendrick in the small hours. 
+My back hurt as I sat down on my new L-shaped couch. I could have paid movers to bring my boxes up, but I guess I just wasn't used to having money. I wasn't used to a lot of the things I had now. Peace of mind. Privacy. The loft had three bedrooms, a home gym, and a living room with so much space it scared me.  
+And it was *mine.* No more dorm room. No more jaggoff next door playing Kendrick in the small hours.
 
-I had total silence in which to browse the market, and as my portfolio swelled, I spent less and less time doing so. The AJAX rocket kept on climbing, but I was worried it would eventually burn all its fuel. So, I kept asking my little pet where else I should look.   
-The snake took longer and longer to spit out an answer every time. It was pissing me off honestly. And what it often suggested would have made a younger, broke-er me feel bad.   
-Weapons firms, Aircraft manufacturers, Chemical suppliers. But hey, show me someone who got rich on the back of peace and love.   
-I relaxed, and watched the stock chart rise and fall like a giant wave. I was the expert sailor, the financial mariner who knew just how high that wave would peak, and just how hard it would break.   
-But still, I felt a little tinge of doubt. *Fear* even. I knew this loft I sat in didn't really rest on steel beams and concrete. It was founded on a house of cards, just waiting to tumble. I thought I'd better start thinking in years instead of weeks. I opened up the little guy. 
+I had total silence in which to browse the market, and as my portfolio swelled, I spent less and less time doing so. The AJAX rocket kept on climbing, but I was worried it would eventually burn all its fuel. So, I kept asking my little pet where else I should look.  
+The snake took longer and longer to spit out an answer every time. It was pissing me off honestly. And what it often suggested would have made a younger, broke-er me feel bad.  
+Weapons firms, Aircraft manufacturers, Chemical suppliers. But hey, show me someone who got rich on the back of peace and love.  
+I relaxed, and watched the stock chart rise and fall like a giant wave. I was the expert sailor, the financial mariner who knew just how high that wave would peak, and just how hard it would break.  
+But still, I felt a little tinge of doubt. *Fear* even. I knew this loft I sat in didn't really rest on steel beams and concrete. It was founded on a house of cards, just waiting to tumble. I thought I'd better start thinking in years instead of weeks. I opened up the little guy.
 
 >\- (*Give me a full analysis of the best performing stocks over the next ten years. What should I invest in for long term growth?*)
 
-The snake spun, and spun, and spun. I kept staring at it until my eyes started to hurt. Eventually I put my phone down, paced across my shiny new floorboards, hit the treadmill for fifteen minutes. Still, the snake kept on spinning. The sun was sinking behind the wall of skyscrapers outside when it finally answered.    
-  
- \- (*Sorry, but given that the global stock market will cease all operations within 21 days, I can't make a ten-year projection. I'd suggest amassing tangible assets such as canned food, bottled water/purification tablets, respirators, NBC PPE etc. over any financial investments right now.*   
-*Would you like me to draft up an evacuation plan for you?)*     
+The snake spun, and spun, and spun. I kept staring at it until my eyes started to hurt. Eventually I put my phone down, paced across my shiny new floorboards, hit the treadmill for fifteen minutes. Still, the snake kept on spinning. The sun was sinking behind the wall of skyscrapers outside when it finally answered.
 
-I didn't breathe. I didn't blink. 
+\- (*Sorry, but given that the global stock market will cease all operations within 21 days, I can't make a ten-year projection. I'd suggest amassing tangible assets such as canned food, bottled water/purification tablets, respirators, NBC PPE etc. over any financial investments right now.*  
+*Would you like me to draft up an evacuation plan for you?)*
+
+I didn't breathe. I didn't blink.
 
 >\- (What? What's going to happen?)  
 
 I waited. The sky went dark. I didn’t even know where the light switches were yet. I just sat, freezing in the cold sterile light of my screen. Then it answered.
 
->\- (A *nuclear exchange between major world powers will result in the collapse of financial institutions, governmental infrastructures, and societal frameworks worldwide.* 
+>\- (A *nuclear exchange between major world powers will result in the collapse of financial institutions, governmental infrastructures, and societal frameworks worldwide.*
 
->*Key Events:* 
+>*Key Events:*
 
->*- Release of SR2025 Bioweapon from AJAX facility in Belarus. AJAX denies increasing production demands lead to accidental release.* 
+>*- Release of SR2025 Bioweapon from AJAX facility in Belarus. AJAX denies increasing production demands lead to accidental release.*
 
->*- Mass civilian casualties lead to chaos and confusion. Shutdown of normal diplomatic channels and trade between United States/NATO and BRICS coalition.* 
+>*- Mass civilian casualties lead to chaos and confusion. Shutdown of normal diplomatic channels and trade between United States/NATO and BRICS coalition.*
 
->*- Rapid escalation of existing border conflicts between these nuclear armed states.* 
+>*- Rapid escalation of existing border conflicts between these nuclear armed states.*
 
 >*- Detonation of first warhead in (****redacted for psychological safety****)*
 
@@ -199,17 +199,17 @@ I waited. The sky went dark. I didn’t even know where the light switches were 
 
 > *Would you like to see global casualty projections?)*
 
-It couldn't be right. It *couldn't*. But the snake never lies.   
-I tossed my phone across the room, and sat until the rising sun painted the floorboards orange.   
-Eventually I flicked on the flatscreen. Everything I saw chilled me. Chinese jets inching closer to Taiwan. Russian airstrips popping up on the Polish border. Peace activists being rounded up by Belarusian police.   
-Surely this stuff is always happening, right? I just never watched with such vigilant eyes. But I just had to look at the market to know for sure. AJAX stocks were shooting to meteoric, impossible heights. It was a rotten, swollen fruit, just waiting to drop on all of us. And I felt that maybe I'd planted the tree.   
-I found my phone.  
+It couldn't be right. It *couldn't*. But the snake never lies.  
+I tossed my phone across the room, and sat until the rising sun painted the floorboards orange.  
+Eventually I flicked on the flatscreen. Everything I saw chilled me. Chinese jets inching closer to Taiwan. Russian airstrips popping up on the Polish border. Peace activists being rounded up by Belarusian police.  
+Surely this stuff is always happening, right? I just never watched with such vigilant eyes. But I just had to look at the market to know for sure. AJAX stocks were shooting to meteoric, impossible heights. It was a rotten, swollen fruit, just waiting to drop on all of us. And I felt that maybe I'd planted the tree.  
+I found my phone.
 
 >\- (Will I make it?)
 
-Its response was instant. 
+Its response was instant.
 
->\- (No. But you'll live just long enough to see what you've done.   
+>\- (No. But you'll live just long enough to see what you've done.  
 Would you like to know what happens after?)
 
 I fucking hate snakes.
