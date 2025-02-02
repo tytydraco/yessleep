@@ -1,8 +1,8 @@
-It was early December. I drove by myself in my dinky little car all the way from Nashville, Tennessee, to the snowy state of Colorado. The drive took three days. I stopped in a few crappy motels along the way and ate mostly gas station beef jerky.
+It was early December. I drove by myself in my dinky little car. The drive took three days. I stopped in a few crappy motels along the way and ate mostly gas station beef jerky.
 
 Being from the south, I was not used to this much snow. And especially not used to people actually being prepared for it. Thankfully, the company's housing was on the ski resort. Which, you know what, was pretty dang cool. I love skiing and this job actually had skiing as a requirement! My family had taken several ski trips when I was younger, so I grew to enjoy it. The caveat was I had to have a roommate, but for free housing in one of the most expensive places in the United States, hell, I didn’t mind.
 
-John turned out to be a pretty cool guy, too. He was from Minnesota, so he was a tad more acclimated to the weather. Meanwhile, I was shivering my ass off. We got to be pretty close, working together and living together. He’d worked here for a few years, so he’d show me around the town. We’d go have drinks and go bowling in Snowmass every Friday night. Good times.
+John turned out to be a pretty cool guy, too. He was a tad more acclimated to the weather. Meanwhile, I was shivering my ass off. We got to be pretty close, working together and living together. He’d worked here for a few years, so he’d show me around the town. We’d go have drinks and go bowling every Friday night. Good times.
 
 John was the nephew of the owner of the resort, but he never used that as a crutch. He worked there just like the rest of us. Didn’t even own a car. For this, we all liked him. I’ve had jobs before where family gets special treatment. It gets old, so I was happy John wasn’t this way. 
 
@@ -57,7 +57,7 @@ The next morning, everything appeared to be fine. John was himself again. We wen
 A few days passed, exactly like this. On the surface, normal. But, on the inside, my emotions were eating away at me. I felt like a shell of my former self. I could barely eat. My stomach was in knots. There was a constant fuzziness in the back of my skull. I began performing poorly at work. Spilling drinks, dropping trays, forgetting customers’ orders. I was a mess.
 
 Then, one day after work, we were heading back to our room. I drove him home from work unless he stayed later than me, in which case he would walk home. It wasn’t far, after all. I was so exhausted mentally and physically after that shift, then he asked me a question.
-He asked if we could go to Snowmass and hit the bar. Not tonight, I said. I’m so tired. In a split second, he swung open the passenger door while I was driving. He glared at me and demanded we go right now. I sheepishly agreed, white knuckling the steering wheel as I made a u-turn. He calmly closed the door.
+He asked if we could go hit the bar. Not tonight, I said. I’m so tired. In a split second, he swung open the passenger door while I was driving. He glared at me and demanded we go right now. I sheepishly agreed, white knuckling the steering wheel as I made a u-turn. He calmly closed the door.
 
 My throat dried up. I was afraid to speak. I kept glancing at him in my peripheral vision, afraid I’d see those dreaded eyes. They never came.
 
@@ -70,5 +70,5 @@ I left work. They scheduled John to close, and I had already finished my shift. 
 “What did you do?!” My heart beat so fast, I felt like I was going to collapse.
 
 Already halfway out the door, I ran to my car and got behind the wheel without looking back. 
-I made it all the way to Denver until I ran out of gas and called the cops. I’m sure John is long gone by now. He’s probably cleaned up his mess and no one will believe me. 
+I drove until I ran out of gas and called the cops. I’m sure John is long gone by now. He’s probably cleaned up his mess and no one will believe me. 
 He’ll do it again, and there’s nothing I can do. So, the next time I find a job that seems too good to be true, I’ll accept that it probably is.
