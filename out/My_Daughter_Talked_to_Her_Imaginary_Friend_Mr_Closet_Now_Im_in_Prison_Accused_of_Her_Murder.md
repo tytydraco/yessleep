@@ -6,7 +6,7 @@ I found it both adorable and a little eerie. Still, I figured she would eventual
 
 For the first few weeks, it was innocent. Éléa would talk to herself in her room, sometimes giggle. Once, I heard her whispering, as if she were sharing secrets with someone. One morning, I found her sitting in front of her wide-open closet, staring into the darkness with a vacant smile.
 
-— What are you doing, sweetheart ? I asked.   
+— What are you doing, sweetheart ? I asked.  
 — I'm waiting for Mr. Closet to wake up.
 
 A chill ran down my spine. There was something deeply unsettling in her voice.
@@ -15,7 +15,7 @@ Then, things took a darker turn.
 
 One night, as I passed by her room, I heard scratching. A dry, rhythmic sound, like fingernails brushing against wood. Intrigued, I cracked the door open. Éléa was sitting up in bed, eyes wide open, staring at her closet. I stepped closer.
 
-— You’re not asleep, sweetheart ?   
+— You’re not asleep, sweetheart ?  
 — Shhh, Daddy. Mr. Closet wants to come out.
 
 My blood ran cold. The scratching stopped immediately. I swung the closet door open, my heart pounding. There was nothing, just her clothes hanging neatly and a few stuffed animals piled in the corner.
@@ -42,9 +42,9 @@ She nodded enthusiastically.
 
 That night, I locked her closet. But by morning, it was open again.
 
-# Things got worse. Éléa had dark circles under her eyes. She became even more distant. One morning, I found her crying.
+Things got worse. Éléa had dark circles under her eyes. she became even more distant. one morning, I found her crying.
 
-— What’s wrong, sweetheart ?   
+— What’s wrong, sweetheart ?  
 — Mr. Closet says you don’t like him, Daddy. He says you want him to leave.
 
 I held her close, trying to reassure her. But deep inside, I felt something watching us.

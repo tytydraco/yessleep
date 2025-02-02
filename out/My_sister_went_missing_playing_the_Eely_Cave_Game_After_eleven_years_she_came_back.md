@@ -238,7 +238,7 @@ My sister leant her head upon her arms, and I wished that I had the courage to g
 
 Amy didn’t answer, only drew spirals on the table with her finger, a habit she’d had as a girl and had held onto even through all those years in that timeless sentient hallway.
 
-“Do you know what the Eely  was keeping you there for?” I asked.
+“Do you know what the Eely was keeping you there for?” I asked.
 
 “Yeah,” said Amy flatly. “It was eating us. Not our bodies. The inside of our heads. Them kids were all going senile. You could tell when the Eely was done with someone when they’d just go quiet. They’d forget how to talk and who they were. That was worse than all the screaming because they wouldn’t die. They’d just be like that forever in there and nobody outside would ever know what happened to them.”
 
