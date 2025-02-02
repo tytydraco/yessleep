@@ -1,5 +1,7 @@
 [Part 1](https://www.reddit.com/r/nosleep/s/s7EuEDlmY0)
 
+[Part 3](https://www.reddit.com/r/nosleep/s/3ZdeIklcwe)
+
 It had been  several days since the hospital. Life went back to its strange version of normal, students returning to classes, the monotonous routine of Job Corps dragging us through the days. But nothing felt the same. Every hallway seemed a little darker, every corner a little emptier. People kept their distance from us, not out of malice, but out of a shared discomfort no one was willing to name.
 
 We were sitting around the campfire one evening, just trying to pretend everything was okay. Tony and I were still the ones most shaken by what happened, but no one could completely shake the feeling. It was like we all carried this weight, an unspoken thing we weren’t allowed to talk about.

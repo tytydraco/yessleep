@@ -118,7 +118,7 @@ The second, was the noise. A rhythmic kind of squelching, rubbery and wet and hi
 
 The third sense, looking down at my exposed thigh, is what I saw.
 
-Laura's left-side birthmark had moved. Her feet were crossed between my calves and her softer black splash, the one that she called her mother, was gone. 
+Laura's right-side birthmark had moved. Her feet were crossed between my calves and her softer black splash, the one that she called her mother, was gone. 
 
 It was on me. 
 
