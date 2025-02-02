@@ -140,7 +140,4 @@ I chose coffee, and already then I must have known. The whole day had been a sta
 
 I knew I was going back.
 
-  
-[Part 2](https://www.reddit.com/r/nosleep/comments/1ig7qut/a_house_2/) 
-
-  
+[Part 2](https://www.reddit.com/r/nosleep/comments/1ig8lmk/a_house_2/)
