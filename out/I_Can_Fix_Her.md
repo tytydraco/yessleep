@@ -22,7 +22,7 @@ On the other side of the napkin—which I still have, somewhere, actually—she 
 
 I'd never met a girl with natural metaphors on her legs before. Not that she saw things that way, of course. It couldn't have endeared her more, and her trauma made my insides rise a fire up. I don't think it much mattered that I didn't follow everything. It was all about her. I was her safety, more like, which was how it had been since the beginning. 
 
-Since the night I'd been walking home late and found her holding unsteady to the other side of the barrier. The one on the high bridge over the river.
+Since the night I'd been walking home late and found her holding to the other side of the barrier. The one on the high bridge over the river.
 
 She was too fucked on DXM to remember it the next day, where she'd been, how she'd gripped my back and cried into my neck as I carried her. All she had were the photos. Some public bathroom mirror, it looked like: bright red lipstick and a brighter red jacket and her smile this demented blend of dissociation and euphoria. Like she was ready for her own party. And then the video of her walking to that party. Holding the front camera towards her as she danced and rambled and sang fuck knows what while flashes of midnight traffic passed her by.
 
@@ -68,7 +68,7 @@ I didn't mind, not really.
 
 Rooms had a way of expanding when we were close. And my small two-bedroom had turned into a palace.
 
-She quit the drugs and accepted the diagnosis she'd been resisting and began a strict regime of exercise, reading, and medication. Four pills of a morning, one at night, a PRN for when things went haywire, which had been happening frequently and had been the look on her face in the bathroom mirror before she'd danced to the river that night. 
+She quit the drugs and accepted the diagnosis she'd been resisting and began a steady regime of exercise, reading, and medication. Four pills of a morning, one at night, a PRN for when things went haywire, which had been happening frequently and had been the look on her face in the bathroom mirror before she'd danced to the river that night. 
 
 She was, by every measure I could discern, saved.
 
@@ -78,7 +78,7 @@ And in the twilights of the night when I woke from a dream to another dream of h
 
 All I could feel was the warm soft of her skin; and she made sure, even when she was gone those nights, that some part of herself was against me, our bodies always touching, somehow. 
 
-And then, more than a year later, after her medication had stopped again, and the manias began again, and I found a receipt for the DPH in the bin, I finally looked in the mirror. Really looked, I mean. 
+More than a year later, after her medication had stopped again, and the manias began again, and I found a receipt for the DPH in the bin, I finally looked in the mirror. Really looked, I mean. 
 
 It's kind of funny, the things you don't notice in routine glances, when grooming, making sure your hair doesn't look like shit, taking that brief acknowledgement of self in your reflection each morning.
 
@@ -126,7 +126,7 @@ Twice the size it had been, and the underside of its surface, facing upwards, sh
 
 That's when the hypnosis came to an end. 
 
-I didn't move. Couldn't even if I was able. All three senses rapidly collided and I wanted to scream, but couldn't do that either, and I stared hopeless and helpless as this black mark, this *thing*,  steadily vacuumed some substance from out deep within. From within *me*. And then it stopped, and it must have realised that I was watching, and it flattened itself again, and remained still, and then my ears began to ring loud as my sight became dotted and increasingly dense with these dots that caved a thickening border inwards, until finally, quickly, that ghastly image, and the room, were gone.
+I didn't move. Couldn't even if I was able. All three senses rapidly collided and I wanted to scream, but couldn't do that either, and I stared hopeless and helpless as this black mark, this *thing*,  steadily vacuumed some substance from out deep within. Within *me*. And then it stopped, and it must have realised that I was watching, and it flattened itself again, and remained still, and then my ears began to ring loud as my sight became dotted and increasingly dense with these dots that caved a thickening border inwards, until finally, quickly, that ghastly image, and the room, were gone.
 
 And when I woke, gone was everything.
 
@@ -158,9 +158,9 @@ It was 3am.
 
 Heavier than ever, I raised my head. Moonlight fell a slant through the window and spread angular to the other side of the bed; a scene that looked almost liminal: greylight between a half dark across nothing, to something empty.
 
-But I couldn't have been alone. Somehow, by some force, she must have known.
+But I couldn't have been alone. By some force, she must have known.
 
-Suddenly my reverie broke as the room lit-up. It was light from my phone.
+Suddenly, the room lit-up. It was light from my phone.
 
 It was a message from Laura.
 
@@ -174,7 +174,7 @@ The screen was blank, at first. Then a flash of distortion over white, and it wa
 
 *And surely would never be.*
 
-He—or it—then turned drone-like with a wooden stiffness, its widened eyes still locked, and it grabbed a rope hanging high from a cluster of nails over the door. I couldn't absorb the image properly—so unbelievably fucking insane it was—but neither could I stop watching. 
+He—or it—then turned drone-like, crooked with a wooden stiffness, its widened eyes still locked, and it grabbed a rope hanging high from a cluster of nails over the door. I couldn't absorb the image properly—so unbelievably fucking insane it was—but neither could I stop watching. 
 
 The knot of the noose was already done. And it was gripping it, gesturing it at the camera, its blank expression cracked awful into the ghastliest of smiles, and slow it stepped onto the chair I then saw and took the ring and brought it up and over and down around its neck...
 
@@ -190,7 +190,7 @@ It was her who kicked the chair.
 
 My Laura.
 
-A few weeks later I sent her a message. She'd been able to send me one, after all. Said that I hoped she was doing better than she was—to imply, no hard feelings, to forestall her guilt, if she ever freed herself from those things, just in case. Love always, Garry. Which sounds batshit crazy, I suppose. Well see, in the end I didn't care about the video. Wherever and whatever she was, I knew those early days were real. Maybe we were mismatched, but, they were real. She wasn't to blame for herself, not with those parasitic black marks on her legs. And there's no better way of letting go, than to forgive.
+A few weeks later I sent her a message. She'd been able to send me one, after all. Said that I hoped she was doing better than she was—to imply, no hard feelings, to forestall her guilt, if she ever freed herself from those things, just in case. Love always, Garry. Which sounds batshit crazy, I suppose. Well see, in the end I didn't care about the video. Wherever and whatever she was, I knew those early days were real. Maybe we were mismatched despite it all, but, they were real. She wasn't to blame for herself, not with those parasitic black marks on her legs. And there's no better way of letting go, than to forgive.
 
 Forgiveness through which you start to regrow, and find that withered flicker of strength you once knew.
 

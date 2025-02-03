@@ -1,0 +1,21 @@
+I know what the title sounds like, but I can assure you that I am not a teenage boy freaking out about puberty. I truly am in a position where I can't shave. Not just my face, but everywhere. My arms, chest, legs, even the hair on my head- it's changing and I can't stop it. This has gotten so far out of hand that I figured I may as well look online, in case anyone might know anything about my condition. 
+
+I was born with very pale hair. Not quite albino, but very light all the same. My skin and hair both have always had very little pigment. My hair is almost white and my eyebrows and eyelashes are nearly invisible. Most days, if I go out without sunscreen, chances are I'll come home colored like a tomato from sunburns. In fact, I was even bullied throughout my childhood because of my appearance. I had a hard time making friends because my parents insisted I stay inside most days. Well, if I'm being truthful, I was bullied because I was a sickly-looking kid with a lisp who liked anime. But my appearance and fragile skin definitely did not help me.
+
+I got used to it, of course. And it doesn't bother me anymore now that I'm an adult. But a few weeks ago, I noticed that the hair on my face was darker than usual. I normally keep myself clean shaven but sometimes I'll forget to shave for a day or 2. When I looked in the mirror, I saw a 5 O'clock shadow which was far, far darker than it usually was. It was still only stable, but it was unusual enough for me to notice. I shaved it off with no issue and forgot about it until the next week.
+
+Normally, I live by somewhat of a schedule. I need to shave maybe once every 2 or 3 days. But after I started noticing the darker stubble, that time began to shrink- I needed to shave every 2 days. Then every day. Then twice daily. It got to the point where I thought about growing a beard just to be done with it. But I didn’t want to give up.
+
+I went to my doctor and explained my situation to her. She, at first, assured me it was likely nothing. But she recommended I keep a track of how many times I needed to shave for one week. I did as she asked, the final tally for that week was 24 times. She said I might have something called hypertrichosis. I googled it later because her explanation went over my head. What I can gather is that it's a condition caused by either cancer, medication, or metabolic disorders that causes abnormal hair growth. 
+
+She prescribed me this hair removal cream that smells like burnt rubber and garbage. I’m meant to use it on my face twice a week, and that's meant to keep the hair off. But it hasn’t been working at all. It removes my own hair, the light blond colored hair, but the dark hair stays on. It's spreading, too. At first it was just my face, but now my arms and legs are growing darker hairs too.
+
+I decided, “Screw the cream, I’m just gonna go back to shaving it off.”
+
+It had gotten so long that I had a short, black beard and hairy arms. But when I tried to shave again, it *bled.* My hair *bled.* Thick orange-red liquid dripped off of the ends of the hair. And it hurt too- the skin of my face ached and itched. I finished the painful process and showered to wash the substance off of me. Exhausted, I went to bed.
+
+The next morning, it had all grown back even longer than the night before. Spiky, almost chitin-like follicles protruded out of the skin on my face, arms, legs, and chest. And that’s when the itching started- horrible, non stop itching anywhere the hair was. I went back to the doctors but they had no idea what to do, other than giving me an anti itch cream. Luckily, that’s helped enough to allow me to sleep most nights.
+
+But my hair hasn’t stopped growing. I was looking at myself in the mirror earlier today. The hair must be about 2 inches long. But when I looked closer, I almost vomited into the sink. They’re segmented. They protrude out of my skin and, after about 3⁄4 's of an inch, they have a clear joint where they bend like spider's legs.
+
+I’m heading back to the doctor’s today. Any outside advice is welcome. I have a sinking feeling that time may be of the essence here- the itching is getting worse and, to my horror and disgust, I think they're starting to move.  

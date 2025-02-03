@@ -34,7 +34,7 @@ It finally showed something this time, at least I think so. I swear I saw someth
 
 I think I really fucked up this time. I know it's my fault but I don't think I can do anything about it. I can't keep listening to everything the channel tells me to do. I don't even know how long it's been but that smell from the microwave is driving me insane. I can't do anything about it though. 
 
-It was my fucking cat. My cat was in the microwave. I didn't even remember I had one until I found it. Why would I think it was a microwave meal? I couldn't manage to clean it up. What the fuck is actually happening? First my shows are getting interrupted, then my car fucking dies and now Jackson is leaving his clothes all over the apartment??? I can't do this anymore. I'm kicking him out. 
+It was my fucking cat. My cat was in the microwave. I didn't even remember I had one until I found it. Why would I think it was a microwave meal? I couldn't manage to clean it up. What the fuck is actually happening? First my shows are getting interrupted, then my cat fucking dies and now Jackson is leaving his clothes all over the apartment??? I can't do this anymore. I'm kicking him out. 
 
 The channel reminded me about something today. He told me that I needed to drink something. I hadn't eaten or drank anything in like a week, I don't even know how I forgot so I just made a quick smoothie to solve both of my problems. Still a bit hungry though.
 
