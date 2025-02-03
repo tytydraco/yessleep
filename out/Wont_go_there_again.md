@@ -1,0 +1,18 @@
+
+Riding down the road getting faster and faster, kissing the 100 on the speedo I see a bright light from between the handles of the motorcycle flash. Quickly slowing down I realise how bad it is. My phone died. Most of the time I wouldn't care, but given that I was heading home after visiting someone far away in an area I had never been, I needed it to make it home. I didn't even know roughly where I am. Guess that's what I get for trying to find a road I could go fast down on my home. Thinking it through I decided that it's better to keep going forward because I know for certain that there's nothing for atleast 50 miles going back. I check the time on my motorcycle. At least I have got a good few hours before sundown. Then I'm really in the shit. After a good few more miles I see a worn sign pointing to a town.
+
+
+
+Entering ravenville I had a good view down a long straight road. I ride slowly, taking in as much as I can. I pass an old style diner that looked a bit run down. Seeing houses with grass over growing and eventually passing a bank with the door wide open I quickly realise that it's an abandoned town. Just my luck. Once I reach the heart of the town I stop the bike, kill the engine and take my helmet off. I'm met with a small grassy area with some benches where the shade would be cast by the trees that where surrounding the park. I see a small wooden billboard filled with posters, I'm drawn to the one that's not got anything covering it. The final placed poster. Raven Motel. I look at the map. It's just round the corner and up some steps and I'm there. Might as well just walk and leave the bike here. I don't know why but I feel pulled. Like I need to be there. 
+
+
+
+I stand there looking at the surprisingly large hotel. Seems almost out of place in such a small remote town. But the thing that makes me feel uneasy is that I feel like I recognised it. I couldn't though, I've never been here. I've never heard of this town. Maybe that's why I was drawn to the poster, Some forgotten memory that has been triggered making me want to see it. As I grip the door handle I feel a chill go straight through my body. Entering, despite my body asking me not too, I'm greeted with a large lobby. I take a quick look around going from room to room. There's nothing out of the ordinary. All of them are bedrooms with various works of art and the odd bit of furniture. My curiosity has been settled. I reach the lobby again and decide to try my luck with the phone that's there.
+
+
+
+As I get to the desk I see there's a door open behind it. I swear it closed when I went upstairs. I look behind me and see the sun beginning to set. One last room. One last room and I'm out of here. As I enter the room I see it's an office that is dimly lit. The airs cold. I walk behind the desk and feel an almost magnetic pulse to a wall. I place my hand on it and push. It clicks. My heart begins to race. How did i know that would happen. I pull it open and step inside. It's dark. I can see that there's steps going down I turn to leave but I hear something. That was my name. Something said my name. I go to take a step but my eyes have adjusted and I can see it's only the edge of the steps and the middle is missing. Just then I can hear the door squeak and it's about to close. I shove it open and run out the hotel. I run down through the lobby, out the doors and down the stairs. I reach my motorcycle and drive off as fast as I can. Once I'm out of town I stick to the highway. I'm not kissing 100 I'm shoving my toung down it's throat. 
+
+
+
+I don't care if I have to be up for days to get away from that place. All I know is I'm never going back there again.
