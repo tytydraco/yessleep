@@ -1,4 +1,6 @@
-“Just a little further, Dani, we’re almost there.” I reassured my younger sister as I tried my hardest to roll her difficult-to-manoeuvre wheelchair up the steep, hill path. Unfortunately, the wheels kept getting lodged in potholes and caught on branches sticking out of the dirt.
+“Just a little further, Dani, we’re almost there.” I reassured my younger sister as I tried my hardest to roll her difficult-to-manoeuvre wheelchair up the steep, hill path. 
+
+Unfortunately, the wheels kept getting lodged in potholes and caught on branches sticking out of the dirt.
 
 “Lana,” she said weakly. “we don’t have to sit at the peak. We can just have our picnic right here, don’t worry about it.” before she let out a brutal cough and clutched her chest.
 
@@ -202,4 +204,4 @@ Pass the daisies. Pass the wheelchair. Pass the picnic blanket. And soon into th
 
 And then,
 
-my sister was gone.
+My sister was gone.
