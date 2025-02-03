@@ -8,11 +8,7 @@ I got very, very lucky. That’s the only reason I’m here. And that’s the se
 
  I’m a bottle of wine in, so excuse any spelling mishaps or grammatical whatevers. I write for a living now, because it’s the kind of job I can do from home, and True Crime is one of the last safe havens for journalists, so I’m hoping my muscle-memory of stringing words together is going to keep this legible as I get steadily more bat-faced drunk. Christ knows I’m going to need to be VERY inebriated to relive this night for you.  I’ve kept this door locked for a very long time, but I’m going to tell you now what my own mother does not know. Consider this to be your trigger warning. For all the worst things.  
 
-
-
 ..... 
-
-
 
 Picking up a hitchhiker probably wasn’t my best idea, but I was getting pretty tired of sobbing in the car with no one to tell me to snap the fuck out of it.  There was still a lot of road between me and Sydney that night and what I really needed right now was an unsympathetic ear. I’d spent the last one-hundred Ks scouring the roadside for someone, and now here she was. A lone backpacker, trudging along the highway on-ramp with her thumb out. She had brown skin, a frizzy afro and a bright smile that she’d flashed as I drove past.  In the end it was that smile that moved my foot to the brake pedal. 
 
@@ -450,7 +446,6 @@ She bundled herself into the front passenger seat and shut the door against the 
 
 Natia fumbled with the note, and then unfurled it so that I could see. Scribbled across the paper in thick black marker were the words:
 
-
-
 DON’T LET IT KNOW YOUR NAME. 
 
+[Part Two](https://www.reddit.com/r/nosleep/comments/1igatq5/box_baby_part_two/)
