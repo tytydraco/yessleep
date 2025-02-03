@@ -1,10 +1,12 @@
+[\[last part\]](https://www.reddit.com/r/nosleep/comments/1ifjet0/update_there_is_a_weird_guest_in_my_hotel_and_i/)
+
 Okay so, hi all again. This is where I was expecting the story to taper off. I mean, he was supposed to check out today so this should have been the end of the story, and a pretty short post. First off, I’ll list out some quick updates from yesterday’s post, as well as some work-related weirdness that happened.
 
 My manager texted me about Mr. Weird last night. Basically asked if, you know, anything weird happened. I felt bad for not letting her know what I told all of you so I gave her the basic run down. I wasn’t in any physical danger (I’m pretty sure), so she wasn’t mad at me for not messaging her. So that's good. 
 
 The girl that clocked in after me actually did text me some weird things the guest did yesterday.
 
-1. He called a couple times during her shifts. I asked her if she felt anything weird when he called, and she said “it felt like she was being watched”, but otherwise nothing too strange on the call. 
+1. He called a couple times during her shifts. I asked her if she felt anything weird when he called, and she said “it felt like she was being watched”, but otherwise nothing too strange on the call.
 2. She did say that he spoke to her, in full sentences (why he didn’t with me, I don’t know), but that he was really quiet and hard to hear.
 3. Apparently he was standing in front of the elevator for a really long time, so she got a lot of complaints about that (one guest let her know that he was standing right out front of the elevator, and that she basically walked into him when the doors opened). There’s no cameras in that area though so we can’t check to see how long he was actually standing there for. 
 

@@ -1,4 +1,4 @@
-[\[FIRST PART\]](https://www.reddit.com/r/nosleep/comments/1ia0egw/there_is_a_weird_guest_in_my_hotel_and_i_need_to/)
+[\[FIRST PART\]](https://www.reddit.com/r/nosleep/comments/1igcll6/there_is_a_weird_guest_in_my_hotel_and_i_need_to/)
 
 Hi guys, I just wanted to start this post off by saying thank you for the comments on the last one. I really thought I might have been over exaggerating how weird this guy was. I told my sister about it yesterday as well once she got home and she didn’t think it should have freaked me out as much as it did. She said, “if the worst that happened was a bad phone call, then I think your day went pretty fine OP.” But reading all of your responses being equally weirded out by the guy made me feel a bit less crazy. I mean, today has been... a day. Kind of starting to feel crazy again, but you know, I’ll get into it.
 
@@ -137,3 +137,5 @@ Also a couple of notes for some of the comments. 
 3. I haven’t rewatched the ‘men in black’ episode of unsolved mysteries/buzzfeed unsolved yet. Felt like just coming home, changing into pajamas, and watching tiktoks in bed for a bit. 
 
 Again, if any other front desk agents or anyone has dealt with this guy or someone like him, some help or advice would be really appreciated. He should be checking out tomorrow so I will update you if anything happens at that time. Hopefully not though.
+
+[\[next post\]](https://www.reddit.com/r/nosleep/comments/1ieshno/part_three_there_is_a_weird_guest_in_my_hotel_and/)
