@@ -528,4 +528,390 @@ Something waited in that void.  
 
 Something worse than the guests.  
 
-The hallway behind us collapsed, doors crumbling into the
+The hallway behind us collapsed, doors crumbling into the walls, shadows surging forward like a living thing. We had seconds to decide.  
+
+Stay in the motel… or step into the unknown.  
+
+And then—  
+
+The blackness reached for us.  
+
+The darkness pulled.  
+
+Not like gravity, not like wind—this was different. It felt alive, wrapping around my limbs, dragging me forward without touching me.  
+
+The woman clutched my wrist. “Jump,” she hissed.  
+
+My body refused. My mind screamed NO. Every instinct I had told me that stepping into that void meant never coming back.  
+
+Behind us, the motel collapsed—walls warping, floors splitting open like something beneath it was trying to crawl out. The guests—if they were ever really guests—were moving toward us in unnatural, twitching jerks, their heads snapping side to side like broken puppets.  
+
+And then—  
+
+The manager appeared.  
+
+Not walking. Not running.  
+
+He was just… there.  
+
+Right in front of us.  
+
+His eyes were completely black now, no whites, no pupils. His face shifted, like it was made of something liquid.  
+
+“You were doing so well,” he said, voice smooth, empty. “You almost made it.”  
+
+The shadows moved around him, curling at his feet like smoke.  
+
+I gritted my teeth. “What the hell is this place?”  
+
+The woman tightened her grip on my wrist. “Don’t listen to him. Jump.”  
+
+The manager tilted his head too far, the skin at his neck stretching like wax. “Where do you think that door leads?” he said, gesturing to the black void. “Do you think it’s an exit?”  
+
+A cold dread settled in my stomach.  
+
+He smiled. Too wide. “There’s no leaving, kid. Not through there. Not through anywhere.”  
+
+I didn’t want to believe him.  
+
+But something deep inside me did.  
+
+The woman pulled me hard toward the void. “He’s lying. If we stay, we become them.”  
+
+I turned back to the manager. His smile had disappeared.  
+
+The guests surged forward.  
+
+I had no choice.  
+
+I jumped.  
+
+And everything went black.  
+
+Falling.  
+
+Not fast. Not slow. Just endless.  
+
+The darkness wasn’t empty.  
+
+It whispered.  
+
+Not words—just sounds. Wet clicking, distant voices, laughter that wasn’t laughter.  
+
+I tried to scream. My mouth wouldn’t open.  
+
+The woman was falling beside me, her hair whipping around her face. Her eyes met mine, and I saw fear.  
+
+Not the kind you get when you’re scared of the dark.  
+
+The kind you get when you realize you’ve made a mistake.  
+
+Then—  
+
+We stopped.  
+
+Not like landing. There was no impact, no jolt—just… suddenly, we were somewhere else.  
+
+I sucked in a sharp breath. My lungs burned. My body felt wrong, like I had been turned inside out and stitched back together.  
+
+I blinked. Light.  
+
+Dim. Flickering.  
+
+The glow of a neon sign.  
+
+The buzzing was the first thing I recognized. Then, the hum of an old air conditioning unit. The distant sound of a TV playing something unintelligible.  
+
+I was in a motel office.  
+
+Not the same one.  
+
+But almost the same one.  
+
+The Moonlight Motel sign outside wasn’t flickering anymore. It glowed a sickly red, the letters shifting slightly, like they were trying to spell something else.  
+
+The woman sat beside me, breathing hard. “No. No, no, no—” She stood up suddenly, gripping the counter. “We were supposed to get out.”  
+
+I swallowed thickly. “Maybe we did.”  
+
+She turned to look at me. “Does this look like out to you?”  
+
+I didn’t answer.  
+
+Because outside, in the parking lot—  
+
+There were cars.  
+
+Not abandoned. Not rusted.  
+
+Running. Idling. Full of people.  
+
+People who looked… normal.  
+
+A man leaned against a truck, smoking a cigarette. A woman adjusted her mirror in a silver sedan. A couple dragged suitcases toward the front door.  
+
+It looked like a real motel.  
+
+Like any motel.  
+
+Except for one thing.  
+
+The manager was still behind the desk.  
+
+Not the same one.  
+
+Not exactly.  
+
+But he looked right at me. And smiled.  
+
+Like he knew me.  
+
+Like he had been waiting.  
+
+A sick realization curdled in my stomach.  
+
+I turned to the woman.  
+
+She was staring at the guest log on the counter. Her hands were shaking.  
+
+I stepped closer. Looked over her shoulder.  
+
+And there they were.  
+
+Our names.  
+
+Written neatly in black ink.  
+
+Checked in.  
+
+But never checked out.  
+
+The woman stepped back. “This isn’t real. This isn’t real.”  
+
+My head felt light. The air too thick.  
+
+I turned back to the window, staring at the parking lot.  
+
+And that’s when I saw it.  
+
+One of the guests.  
+
+A woman, standing near the vending machines.  
+
+Still. Too still.  
+
+Not blinking. Not moving.  
+
+And then—  
+
+Her face shifted.  
+
+Just for a second.  
+
+Like something else was underneath it, wearing it.  
+
+And I realized—  
+
+None of these people were real.  
+
+None of them had ever left.  
+
+And neither would we.  
+
+I couldn’t breathe.  
+
+The woman clutched my arm so tight it hurt, her nails digging into my skin. She was still staring at the guest log, her breath coming in shallow gasps.  
+
+“We never left.”  
+
+The words hit me like a gut punch. I wanted to deny it. I wanted to say something logical, something rational. But I couldn’t.  
+
+Because I knew she was right.  
+
+The parking lot. The guests. The manager. It was all too perfect. The motel looked… normal. But I had already seen what was beneath the surface.  
+
+And so had she.  
+
+“We have to go,” I whispered.  
+
+She nodded, snapping out of her daze. We turned toward the door—  
+
+And he was standing there.  
+
+The manager.  
+
+Not behind the desk this time.  
+
+Blocking the exit.  
+
+His black eyes bore into me, and his smile stretched just a little too wide.  
+
+“Leaving so soon?” His voice was calm, casual, as if we hadn’t just fallen through a nightmare.  
+
+The woman grabbed my wrist, pulling me toward the side door. I didn’t hesitate.  
+
+We ran.  
+
+Through the hall. Past the guests—things in human skin, their faces flickering as they turned toward us, their eyes vacant, watching.  
+
+We burst through the emergency exit and into the parking lot.  
+
+The cars were gone.  
+
+The people were gone.  
+
+The world outside the motel was… wrong.  
+
+The road stretched forever, a perfect, unbroken black highway vanishing into an empty, starless sky. No moon. No streetlights. No sound.  
+
+I turned in a slow circle, my breath turning to ice in my chest.  
+
+We were alone.  
+
+The woman grabbed my shoulders. “There has to be a way out.”  
+
+I nodded because I had to believe it.  
+
+But then—  
+
+The neon sign flickered.  
+
+I turned toward it, my stomach twisting.  
+
+It no longer said Moonlight Motel.  
+
+The letters shifted—warping, buzzing, rearranging themselves into something new.  
+
+A single word.  
+
+STAY.  
+
+And then—  
+
+The front doors swung open.  
+
+And the guests began to step outside.  
+
+Slow. Jerky. Twitching like broken dolls. Their heads twisted unnaturally, their smiles stretching too far.  
+
+The manager walked out last, hands in his pockets. He looked at us with something close to amusement.  
+
+“You can run,” he said. “But you’ll only come back.”  
+
+I swallowed hard. My skin crawled.  
+
+“What do you mean?” I asked, though deep down, I already knew.  
+
+His smile widened. “You’ve always been here.”  
+
+The world lurched.  
+
+The motel blinked—flickering, stretching, glitching like a dying signal. The parking lot melted into the lobby, the sky folded into wallpaper, and suddenly—  
+
+We were inside again.  
+
+Standing at the front desk.  
+
+The guest log open.  
+
+Two new names written inside.  
+
+Mine.  
+
+Hers.  
+
+Checked in.  
+
+Never checked out.  
+
+My head spun. My stomach lurched.  
+
+I reached for the door again—  
+
+But it wasn’t there anymore.  
+
+Just hallways.  
+
+Endless hallways stretching out where the exit should have been. The floor throbbed beneath my feet, the walls warped like breathing flesh.  
+
+The woman shook her head violently. “NO. No, no, this isn’t real.”  
+
+But it was.  
+
+The manager leaned against the counter, watching us with mild curiosity.  
+
+“You don’t get it, do you?” he said. “There’s no out. No escape. No waking up.”  
+
+His black eyes glittered.  
+
+“This place is a mouth. And it already swallowed you.”  
+
+I backed away. “That’s bullshit. If we got in, we can get out.”  
+
+He chuckled. “You never got in.”  
+
+He tapped the guest log.  
+
+“You’ve always been here.”  
+
+I felt sick.  
+
+I turned to the woman. “We’re leaving.”  
+
+She nodded quickly. “We’re leaving.”  
+
+We took off down the hall, but the motel moved with us. The walls stretched. The lights flickered. The air grew thicker—like we were running through something alive.  
+
+Doors opened on their own, revealing things that weren’t human. Figures standing in the dark, their faces melting, their eyes watching.  
+
+Then—  
+
+A room door swung open in front of us.  
+
+Room 9.  
+
+Our room.  
+
+The one we had never left.  
+
+Inside, the TV was on. Playing static.  
+
+The bed was made.  
+
+And on the pillows—  
+
+Were two perfect imprints.  
+
+Like someone had been lying there just seconds ago.  
+
+I froze. My stomach dropped.  
+
+The woman’s breath hitched. “No.”  
+
+She turned to me, her eyes wide and hollow. “We’re still in the bed.”  
+
+The words barely left her lips before the walls collapsed inward. The motel shrieked, the floor split open, and I saw something beneath it all—  
+
+Endless rooms. Endless hallways. A never-ending maze of twisting, shifting spaces.  
+
+The truth hit me all at once.  
+
+This wasn’t a motel.  
+
+It was a trap.  
+
+A place that pulled people in. That made them forget. That kept them running forever, searching for a way out that never existed.  
+
+The guests weren’t people.  
+
+They were the ones who stopped running.  
+
+And now—  
+
+We were becoming them.  
+
+The last thing I heard was the manager’s voice. Calm. Smooth. Final.  
+
+"Welcome home."  
+
+
