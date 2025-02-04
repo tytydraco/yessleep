@@ -28,7 +28,7 @@ Then it said my name.
 
   I need to put it down somewhere. Maybe if I see it all written out, it’ll make more sense.
 
-  I live alone in a small apartment—not much bigger than a box. One bedroom, a tiny kitchen, and a bathroom with a sink that leaks no matter how many times I twist the knobs shut. The walls are thin enough that sometimes, when we both have the day off, I hear my upstairs neighbor pacing at night, the dull "thud-thud-thud" of his footsteps moving back and forth, back and forth. I don’t know his name.
+  I live alone in a small apartment—not much bigger than a box. One bedroom, a tiny kitchen, and a bathroom with a sink that leaks no matter how many times I twist the knobs shut. The walls are thin enough that sometimes, when I have the night off, I hear my upstairs neighbor pacing at night, the dull "thud-thud-thud" of his footsteps moving back and forth, back and forth. I don’t know his name.
 
   I don’t have a lot of visitors. I don’t sleep much, either—never have.
 
@@ -69,7 +69,7 @@ And then, one summer, he was gone.
 
 I was eight. He was nine.
 
-  The picture must have been taken a few weeks before it happened. In it, we’re standing in front of an old, abandoned house at the edge of town. I remember that place. Everyone said it was haunted. Broken windows, rotting wood, a front door that hung open just enough to make you wonder what was inside.
+  The picture must have been taken the day it happened. In it, we’re standing in front of an old, abandoned house at the edge of town. I remember that place. Everyone said it was haunted. Broken windows, rotting wood, a front door that hung open just enough to make you wonder what was inside.
 
 Noah wanted to prove ghosts were real.
 
