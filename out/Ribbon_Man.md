@@ -202,13 +202,13 @@ The lab was empty when I arrived, and it was only then I remembered the press co
 My dreams must have been interpreting the bites in the most nightmarish way possible, I told myself, and grabbed the top most file left on the increasingly precarious pile. 
 
 
-My colleagues had gotten work done while I was sleeping off my nightmares. The most recent document added was a facsimile from a linguistic expert, who recognized the strange text as a cypher based on Elder Futhark, the ancient runic alphabet. The research into its use and full translation were incomplete and, as such, the help she could provide was limited.
+My colleagues had gotten work done while I was sleeping off my nightmares. The most recent document added was a facsimile from a linguistic expert who recognized the strange text as a cypher based on Elder Futhark, the ancient runic alphabet. The research into its use and full translation were incomplete and, as such, the help she could provide was limited.
 
 
 She noted references to a transfer or trade, though she couldn't determine what the subject was. She recognized patterns often found in religious contexts, but the exact meanings were a work in progress. Her overall summation was that the text was ceremonial in nature with indications toward some kind of death or burial ritual, but she couldn't be certain beyond that.
 
 
-Her notes obviously mentioned Ribbon Man as the source, but the notes continued, stating no other finding bore the same markings. Curious as to what she was referring to, I flipped the page to a list of the pottery discovered alongside him in the Bramble Barrow.
+Her notes obviously mentioned Ribbon Man as the source, but they continued, stating no other finding bore the same markings. Curious as to what she was referring to, I flipped the page to a list of the pottery discovered alongside him in the Bramble Barrow.
 
 
 I'd forgotten all about it.
@@ -268,7 +268,7 @@ A row of the Ribbon Man's strips of skin were unmarked, plain flesh.
 “No,” I uttered, touching them bare handedly, suddenly unaware of protocol and preservation. “There was….there was text. There weren't this many blank!”
 
 
-His empty sockets stated upward, abyssal black and bottomless.
+His empty sockets stared upward, abyssal black and bottomless.
 
 
 In the corner of his mouth, caught in the deep crease around his withered lips, was a dried speck of something thick and dark. 
