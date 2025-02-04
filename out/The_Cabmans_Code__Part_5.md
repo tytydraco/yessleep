@@ -68,11 +68,15 @@ Before he could finish his sentence, I jerked my body as hard as I could. The of
 
 The radio crackled again.
 
-"Dispatch to all units: The victim has been identified as 35-year-old Abigail Davis. Abigail is being transported by EMT. She's going into labor. Repeat, Abigail Davis is in labor. The baby is stable for now, but the mother is in distress."
+"Dispatch to all units: The victim has been identified as 35-year-old..."
+
+The radio cut out and I couldn't make out the first name.
+
+"...Davis. Davis is being transported by EMT. She's going into labor. Repeat, Ms. Davis is in labor. The baby is stable for now, but the mother is in distress."
 
 Davis…
 
-The name hit me like a sledgehammer to the chest, my pulse quickening. I know that name. Davis. Abigail meant nothing to me—but Davis was Zoey’s last name.
+The name hit me like a sledgehammer to the chest, my pulse quickening. I know that name. Davis. I'd never seen this woman before now... but Davis was Zoey’s last name.
 
 The officer loosened his grip slightly to respond to his radio.
 
