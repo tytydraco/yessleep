@@ -68,7 +68,7 @@ We tried to make it back together. We hiked as soon as the sun rose. We were hop
 
 The nearest town was 2hr by car going 60mph. By foot it would take forever, but we didn't have a choice. It was worth a shot. The main road was fairly busy. That was only 45min by car if we could've made it there in time. 
 
-About halfway to the road, it caught us. We heard the whistles well before we saw it. I'm not sure exactly what happened to Buddy #4, but he told me to keep going while he stayed to fight. All he kept with him was the jugg of kerosene and one of the flare guns. All I know is that I'm alive because of him. The Kushtaka is still out there. Please, whatever you do, do NOT go looking for it. Let it be.
+About halfway to the road, it caught us. We heard the whistles well before we saw it. When we finally saw it, it lunged at us. It wrapped it's meaty paws around my neck. I felt it's claws begin to sink into my neck. I felt my wind pipe beginning to collapse. The whistle sunk deep into my ears as the snow white world began to fade into an inky darkness. I realized that I was dying. The Kushtaka had won. I'm not sure exactly what happened next, but Buddy #4 managed to injure the Kushtaka. When I started to regain consciousness, he told me to keep going while he stayed to fight. All he kept with him was the jugg of kerosene and one of the flare guns. All I know is that I'm alive because of him. The Kushtaka is still out there. Please, whatever you do, do NOT go looking for it. Let it be.
 
 If you're reading this, I beg you. Don't go into the woods in the winter. At least not alone. And whatever you do, stay warm.
 

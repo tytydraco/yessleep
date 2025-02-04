@@ -34,7 +34,7 @@ My skull felt as it was about to burst, and my arms fell limp at my sides, dead 
 
 The thing closed its eyes for a second, and I could feel it abandoning its search through my memories and it began picking at the frontal lobes of my brain, digging for my motor cortex. It began gathering up the threads of me that carried the signals to my limbs in its spindled mind-fingers, like a spider savaging another’s web. It gripped at these untended threads of me with a workman-like familiarity. I was reminded of an old woman I’d once watched skin a rabbit in Peru. She had carried out the operation with such sure-handed ease that she must have committed the dull atrocity hundreds of times.  
 
-\-Thousands.- 
+-Thousands.- 
 
 The thing casually projected the word into my head, not bothering to speak out loud now that we knew each other. It gathered up the last threads of me like a puppeteer picking up a dropped marionette, and it squeezed.  
 
@@ -44,7 +44,7 @@ The connection between us meant that I could sense other things now. I knew some
 
 Every nerve in my body sang with raw outrage. It was the worst, most intimate abuse that I had ever suffered in all my short years, and I tugged at the threads of myself with all my might.   
 
-\-Mine. -
+-Mine. -
 
 The thing stated it as fact, and so it was. The wave of that terrible word thundered through me, dragging me with it. My mind screamed a hollow note as I lost my grip. 
 
@@ -70,43 +70,43 @@ The resentment that it felt towards humans for being dependant on us to survive 
 
 It grew tired of me probing for answers, and it silenced me with more words, not bothering to speak them aloud. 
 
-\-Where is he?-
+-Where is he?-
 
 It cocked its head at the dark window. And internally conjured up the face of the man who’d been outside the car.  
 
-\-I don’t know. Outside somewhere-
+-I don’t know. Outside somewhere-
 
 There was no point lying to this thing. I couldn’t tell exactly which of my thoughts it could still monitor.  
 
-Beside us, Natia twitched in her sleep under her purple coat. Her dream had caught an echo of the thing as its will pulsed from its soft head, penetrating rock, tree and flesh and mind. I could feel Natia retreating into her sleep for refuge, deeper. Deeper. 
+Beside us, Natia twitched in her sleep under her purple coat. Her dream had caught an echo of the thing as its will pulsed from its soft head, penetrating rock, tree, flesh and mind. I could feel Natia retreating into her sleep for refuge, deeper. Deeper. 
 
 The thing ‘spoke’ again. 
 
-\-You’re not ready to be a mother. But you could be.-  
+-You’re not ready to be a mother. But you could be.-  
 
 It showed me a series of young women from its past, smiling down as it fed. A carefully curated stream of memories that felt worn, like dog-eared pages in a favourite book. This was its adoption pitch.  
 
-\-I can make you happy- 
+-I can make you happy- 
 
 It flooded my brain with sweet endorphins, and I felt my body relax, smiling despite myself.
 
-\-That’s it, pet- 
+-That’s it, pet- 
 
 My smile faded. It was doing something to me now, manipulating the settings deep in the core of me.  
 
 My breasts began to ache.  
 
-\-Oh God no- 
+-Oh God no- 
 
-\-It takes only two sunsets. I’ll be very hungry by then-  
+-It takes only two sunsets. I’ll be very hungry by then-  
 
 The thing smiled a bitter imitation of a smile. It’s hard to describe how sickening it is to see such an insincere expression on the face of a baby. It licked its lips.  
 
-\-I will NOT!-
+-I will NOT!-
 
 I shouted back into the abyss with all the strength of thought I had left.  
 
-\-Fuck you- 
+-Fuck you- 
 
 It didn’t like this. 
 
@@ -114,7 +114,7 @@ The ‘smile’ evaporated on its lips, and its tiny red tongue disappeared back
 
 It could tell which of these scenarios upset me the most because they soon shone brighter and sharper than the others. The clearest, most vivid ones involved me eating Natia’s heart by the side of the road. For a full half hour it showed me these possible futures, painting each one in lurid detail.  
 
-\-Insult me again…-
+-Insult me again…-
 
 It nodded towards Natia, who slept on peacefully. Then it showed me a selection of young women that it had actually forced to carry out its vilest fantasies.  Brief red scenes of abject horror swam into view. I will never forget them. 
 
@@ -124,21 +124,21 @@ It had forced them to eat and eat until their gullets were clogged with flesh. N
 
 Husband… wife… wife… daughter… twin 
 
-\-See?-
+-See?-
 
 It showed me how it had made them smile as they did it. 
 
-\-See?- 
+-See?- 
 
-\-Yes. Very creative- 
+-Yes. Very creative- 
 
-\-More?- 
+-More?- 
 
-\-Please no…- 
+-Please no…- 
 
-\-Manners, then-
+-Manners, then-
 
-\-Yes. Okay. Manners. I see. Yes- 
+-Yes. Okay. Manners. I see. Yes- 
 
 Natia stirred again. The thing did not break eye contact with me. A few minutes ago I had wanted with all my soul for her to wake up and save me from this malignant little fucker. Now I prayed that she stayed asleep. There was no telling what this thing would do to her. I had to get us out of this. Somehow.  
 
@@ -160,7 +160,7 @@ I pulled my thoughts out of their spiralling tailspin of panic. I needed to dist
 
 I thought-shouted my ABCs slowly and with great purpose, firing each letter into the middle of its face. It grimaced, and began to internally swat the letters away. I experimented with a faster pace, thinking each letter in a monotone. This was less effective. Was it the sing-song nature of it that did the job? The alphabet was basically just… what was it? Twinkle, twinkle little… 
 
-\-Be quiet!-
+-Be quiet!-
 
 Wait… you know what would be even worse/better?  Happy birthday.  
 
@@ -172,7 +172,7 @@ My name.  
 
 That’s what it needed to drive me. Otherwise I was just a car without the keys.  
 
-\-happy birthday, dear… babyyy…- 
+-happy birthday, dear… babyyy…- 
 
 I was dangerously close to singing my own name there but I focused on the dark, furrowed face in front of me and sang to it so that my own name couldn’t enter my mind. 
 
@@ -182,7 +182,7 @@ Nothing.  
 
 I started skipping round and round the mulberry bush and the rummaging halted. It really, *really* hated this one.  
 
-\-the monkey stopped to pull up its socks…- 
+-the monkey stopped to pull up its socks…- 
 
 
 
@@ -208,11 +208,11 @@ My hand fumbled blindly for the door handle.  
 
 Natia convulsed beside me. A single jolt. The thing had kept a spike of itself tethered to the base of my skull, and through this sinewy thread I sensed that it was quickly gathering up the threads of her. It had her completely, and it shrieked her name over and over again into the deepest recesses of her mind. How?  How had it found her name so quickly? I kept singing loudly inside the breached confines of my head. My skull rang with it.  
 
-\-…pop goes the weasel-
+-…pop goes the weasel-
 
 The thing turned its small, vast, terrible, delicate head towards me, eyes glinting with the purest spite.  
 
-\-I’ll have her get a name out of you, pet- 
+-I’ll have her get a name out of you, pet- 
 
 Whatever it was doing to Natia, it was almost done. She would be its instrument, and together they would torture my name out of me. There was no way I would be able to fight her off - even if I wasn’t in this weakened state.  
 
