@@ -148,7 +148,7 @@ Then gone went that world, and it was only her, wrapped a bundle in the sheets, 
 
 Always smiling.
 
-And when I woke that night I looked back, how I do not know, with a smile of my own. One of love, and forgiveness, somehow. But it was a forgiveness for no-one. For someone who I thought that I knew, the beautiful girl I thought had been saved, who couldn't be saved because she had killed herself a long, long time ago.
+And when I woke that night I looked back, how I don't know, with a smile of my own. One of love, and forgiveness, somehow. But it was a forgiveness for no-one. For someone who I thought that I knew, the beautiful girl I thought had been saved, who couldn't be saved because she had killed herself a long, long time ago.
 
 Tears in my eyes and that pain in my leg, all of a sudden. 
 
@@ -158,7 +158,7 @@ It was 3am.
 
 Heavier than ever, I raised my head. Moonlight fell a slant through the window and spread angular to the other side of the bed; a scene that looked almost liminal: greylight between a half dark across nothing, to something empty.
 
-But I couldn't have been alone. By some force, she must have known.
+But I couldn't have been alone. By some force, she must have known I was awake.
 
 Suddenly, the room lit-up. It was light from my phone.
 
