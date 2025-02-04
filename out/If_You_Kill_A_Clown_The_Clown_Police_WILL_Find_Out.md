@@ -20,7 +20,7 @@ Tim's kids, Layla and Erin, were sixteen and thirteen respectively. Just old eno
 
 Layla was an artsy kid that fed on attention like a patience parasite. Erin was less demanding of time and would sit in a corner and listen to crime podcasts. If you're thinking about which one was older, you're probably picturing the wrong one.
 
-Paul was a screenwriter, at least in name, since nothing he sold had ever been produced. Every time you met Paul, every conversation that kicked off, he had a new project that was about to blow up. "It's Golden Girls meets Breaking Bad", "It's Nightmare on Elm Street meets The Matrix", "It's Jurassic Park meets Diving Miss Daisy". No one ever asked what happened to each previous endeavor, since it was obvious everything he touched was condemned to development Hell.
+Paul was a screenwriter, at least in name, since nothing he sold had ever been produced. Every time you met Paul, every conversation that kicked off, he had a new project that was about to blow up. "It's Golden Girls meets Breaking Bad", "It's Nightmare on Elm Street meets The Matrix", "It's Jurassic Park meets Driving Miss Daisy". No one ever asked what happened to each previous endeavor, since it was obvious everything he touched was condemned to development Hell.
 
 Brent owned a high-end restaurant in the city, and despite the fact he never said a word about it, we all knew he was about to start a chain. He had been spending a lot of time in mysterious meetings, lately, and a few loose-lipped staffers got the gossip going well enough for the idea to spread to his friends and associates. He knew Roger in high school, and the restaurant was actually where he took Penelope on their first date. She was no-doubt impressed, not realizing Brent would never charge him.
 
@@ -64,7 +64,7 @@ Ralph returned and, with a flourish, gestured to the dimly lit hallway leading i
 
 Suddenly, a burst of color and noise erupted from the hallway in a flurry of awkward, unbalanced movement.
 
-It was clown.
+It was a clown.
 
 A birthday clown.
 
@@ -82,7 +82,7 @@ Erin pulled her ear pods out, took one unenthusiastic look at the spectacle, and
 
 "Marlon Brando." Roger answered, chuckling through the words.
 
-"Nice ta meetcha, Marlon! Can I call ya Stanley??" the clown shook Roger's hand, acting as if Roger's grip crushed his hand, "Oof! You slap Stella with that hand?"
+"Nice ta meetcha, Marlon! Can I call ya Stanley??" the clown shook Roger's hand, acting as if Roger had a crushing grip, "Oof! You slap Stella with that hand?"
 
 Mr. Muffins' first act was to make balloon animals for everyone. A dog, a cat, the usual. Brent asked for a monkey, and in a fitting turnabout of pranking, Ralph got a completely untouched "snake" balloon.
 
@@ -112,7 +112,7 @@ Layla volunteered to be "It" and to find all the others. Surprise.
 
 The attic was nice. Nicer than my first apartment by far. Bigger, too. I could've just started living up there and there was a good chance no one would've ever noticed. Even the moon outside the attic window looked bigger than the one common folk get to see. It was weird.
 
-Just when it was finally sinking in just how long it would take for a hyperactive child to find nine people, clown included, in the house to end all houses, a loud sound rang out.
+Just when it was finally sinking in just how long it would take for a hyperactive child to find people, clown included, in the house to end all houses, a loud sound rang out.
 
 Layla was screaming, and it wasn't a "Dad bought me my first car" scream. It was a "Someone is dragging me into a car" scream. Muffled by countless walls and two floor, the shriek was still unsettling and clearly one of terror.
 
@@ -208,11 +208,11 @@ Brent stood up suddenly, much to everyone's dismay. Penelope gasped into her han
 
 The clown cop stroked his chin and furrowed his brow at Brent.
 
-"And why my might that be, boss?"
+"And why might that be, boss?"
 
 Brent lifted his arm to about chest height and stopped.
 
-"Spinal injury. When I was at chef collage, a stack of pans fell on me. Haven't been able to lift my arms over my head ever since. No way I could've raised the weapon high enough to bash that clown on the head."
+"Spinal injury. When I was at chef college, a stack of pans fell on me. Haven't been able to lift my arms over my head ever since. No way I could've raised the weapon high enough to bash that clown on the head."
 
 The clown cop reached deep into his pants, drew out a red-and-white striped baton, and walked up to Brent, clearly skeptical. He put the baton to each of Brent's elbows, one after the other, and pushed upward a bit. Still, Brent's arms didn't raise any higher than they had been.
 
@@ -296,7 +296,7 @@ I pulled Tim aside as we all left the living room, Occifer watching over us like
 
 "There's a window in the attic. Leads to some lattice. When we're hiding, take your kids and go." I whispered as quickly as I could manage.
 
-"Yeah, no shit I will." Time whispered back, "You know I didn't do it, right?"
+"Yeah, no shit I will." Tim whispered back, "You know I didn't do it, right?"
 
 "I don't care." I growled, "If you did it, good. Fuck that clown. Fuck all clowns. Right about now, I wish I had done it."
 
