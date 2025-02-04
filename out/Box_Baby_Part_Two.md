@@ -184,20 +184,13 @@ I sighed a shaky sigh and stared out at the night. I couldn’t see the other si
 
  
 
-
-
 ..... 
-
-
-
-
-
 
 The night howled on. Cold rain fell through the wind in heavy, unending sheets. The bush rang with the sound of it, and I can hear it now as I sit here safe in my apartment, sitting at the desk at my laptop with every single light in my apartment firmly switched on.  Even now, the sound of rain on a car roof sends me into a deep, unhinged panic. My heart takes off at a gallop and I feel like I’m suffocating in my own skin, like I need to get away from myself somehow. And when this happens, if I don’t leave the car immediately, my mind can feel like it’s about to unravel. I don’t know if that’s what everyone else feels when they have a panic attack.  I never had one before that night to compare notes.  
 
 Not a single car came along that road. I don’t remember falling asleep. Natia had drifted off first, after what seemed like hours of silence. I had fought it for as long as I could, keeping watch for the man outside, and checking on the baby, who still showed no signs of stirring. Eventually, the steady drumming of the rain and Natia’s soft breathing led me to sleep. My head would drop forwards, jerk back with a snap five or six times before finally finding comfort against the headrest behind me. 
 
-I felt a tugging at my lap. My dream painted a picture of Bowie, my cat moving about on my knees. I put a hand out to quiet the restless animal, but my fingers didn’t find his familiar soft fur. They brushed against something cold. 
+I felt a tugging at my lap. My dream painted a picture of Bowie, my cat moving about on my knees. I put a hand out to quiet the restless animal, but my fingers didn’t find his familiar soft fur. They brushed against something cold.
 
 ‘Something old,’ my sleeping mind told me. The words tumbled lazily over each other:  
 
@@ -227,10 +220,8 @@ It sensed my hesitation immediately and its eyes flicked to the box in the back 
 
 What happened next is impossible to put into words. I’m embarrassed to even try, but I’m almost drunk enough to take a stab at it. I’m going to take a break to polish off this bottle and then I’m going to sit back down at the laptop and drag this private trauma of mine out into the light. Just know that there are no words in any language that can describe what that thing did to me.
 
-
+[Part Three](https://www.reddit.com/r/nosleep/comments/1ih3r68/comment/matwnyc/?context=3&force_seo=1)
 
  
-
-
 
  
