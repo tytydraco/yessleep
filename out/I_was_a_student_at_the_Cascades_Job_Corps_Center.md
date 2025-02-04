@@ -2,7 +2,7 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/s/3ZdeIklcwe)
 
-[Part 4](https://www.reddit.com/r/nosleep/s/CZCpIZuPHp)
+[Part 4](https://www.reddit.com/r/nosleep/s/7m3k7rEeiX)
 
 It had been  several days since the hospital. Life went back to its strange version of normal, students returning to classes, the monotonous routine of Job Corps dragging us through the days. But nothing felt the same. Every hallway seemed a little darker, every corner a little emptier. People kept their distance from us, not out of malice, but out of a shared discomfort no one was willing to name.
 

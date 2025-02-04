@@ -2,7 +2,7 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/s/mh0cjZ3267)
 
-[Part 4](https://www.reddit.com/r/nosleep/s/CZCpIZuPHp)
+[Part 4](https://www.reddit.com/r/nosleep/s/7m3k7rEeiX)
 
 The hospital loomed in the distance, its dark silhouette barely visible through the dense fog. The air was cold, sharper than it had been earlier in the day, biting against my skin as we approached. No one spoke. Our footsteps were muffled by the wet grass, and the only sound was the occasional rustle of the supplies we carried.
 

@@ -189,4 +189,6 @@ I looked at him worriedly, struck by the change in his demeanor. I had never hea
 
 That look and his squeak. I haven’t asked. And the more I get closer to uncovering this play. I can get answers. Now I tired to google it or look for it, but it’s no where to be found. Which maybe I’m spelling it wrong or something. I even went to that schools page yet nothing. Like every page. Also it’s not like 
 
-Sorry I’ll pick up when I get Lucas and Becca’s papers. I think I just saw something from my widow and now my dogs are barking nonstop.
+Sorry I’ll pick up when I get Lucas and Becca’s papers. I think I just saw something pass by my window and now my dogs are barking nonstop.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/Uex5cTUqeW)

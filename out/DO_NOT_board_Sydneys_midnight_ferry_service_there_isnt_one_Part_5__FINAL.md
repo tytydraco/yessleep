@@ -6,11 +6,7 @@ It took me a few moments to realise it. I was staring at our Moon. I was dumbstr
 
 Sitting back in my seat now, I just looked out the window, watching the celestial light show outside. If I wasn’t already, I was pretty dam sure now that I was not getting off this boat… ever. I felt a sense of peace in that moment, like I didn’t have try so hard anymore. There was a feeling of acceptance, followed by a mix of sadness and regret. I thought back to that night. What if I had just taken a cab instead? It was midnight, what on earth was I even thinking taking a ferry back home at that hour anyway? Money, of course. It was always about money. Not in this moment it wasn’t. All of that seemed quite unimportant now. I just… watched. As literal space and time passed by before my very eyes. Before long, my eyes became heavy, and I could keep them open no longer…
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 *“Attention passengers! The café service is now open! Please form a line, do not rush, do not push. Everybody will be served in due time.”*
 
@@ -46,11 +42,7 @@ Ah, my precious pastries were done. I grabbed them off Café Guy with a smile an
 
 As the ferry drifted through this sheer magic, I swear I could hear whispers, all around me. Not inside the ferry, no, emanating and echoing all throughout the Galaxy, it seemed. They were indistinguishable from one another, yet beautifully unique at the same time. As insane as that sounds, all I can say is that things seemed to work differently out there. The laws of our world, they did not apply anymore. For example, my mind would occasionally catch a stray thought reminding me that there was no up or down out here, and I would suddenly feel weightless. I would have to lay down every time it happened, stretching out across my row of seats. Still when I think about it, I get that same feeling of vertigo. In that moment, however, before everything that happened next, I can honestly say it is the most alive I have ever felt. I continued watching the stars, distant planets and all manner of cosmic happenings for hours on end as the ferry continued gently floating along. Eventually, I do not know when, it could have been minutes, or it could have been hours, my eyes began to close, and I felt a sense of peace unlike any I have ever felt before, and likely ever will again. With an overwhelming feeling of warmth washing over my entire being, I was pulled into a blissful slumber once more…
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 ***Bwooooooom! Bwooooooom!***
 
@@ -168,4 +160,4 @@ There has been much I have reflected on in the days since I returned. Not least 
 
 Maybe you’ll remember my tale the next time you’re waiting in line for the bus or the train… or the ferry. Perhaps the stop you’re waiting at feels a little off. A little too liminal, almost like a place between places. Maybe you notice something that doesn’t quite fit, like an out of place fog. Maybe in those moments, it’s best to just call yourself a cab. I don’t know. All I know is that what I experienced on board was definitely not of this world. It terrifies me to think what might have happened if I had remained on board, if I had not chanced that leap of faith at the exact moment I did.
 
-Who knows where I’d be. And who knows how many more of these vessels are still out there.
+Who knows where I’d be. And who knows how many more of these vessels are still out [there.](https://www.reddit.com/user/Creepy__Oz/comments/1hc8ay2/my_stories_master_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

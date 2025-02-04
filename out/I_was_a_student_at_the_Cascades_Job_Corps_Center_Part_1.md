@@ -5,7 +5,7 @@ For readability I am going to break this up into parts:
 
 [Part 3](https://www.reddit.com/r/nosleep/s/lLIT8Jq7wQ)
 
-[Part 4](https://www.reddit.com/r/nosleep/s/CZCpIZuPHp)
+[Part 4](https://www.reddit.com/r/nosleep/s/7m3k7rEeiX)
 
 For those of you who have never heard of Job Corps, it is a trade school run by the Department of Labor designed to help low income young adults prepare for the workforce. They have campuses all over the country. I was one of their students and this is my experience.
 
