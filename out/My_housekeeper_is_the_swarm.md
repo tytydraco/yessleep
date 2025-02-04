@@ -1,0 +1,47 @@
+My housekeeper is the swarm. 
+
+About 3 weeks ago, we decided to hire a housekeeper. My husband and I, both in our mid-forties, just purchased and renovated our dream home. My husband, Calvin, is an investment banker, and makes a sizable salary, so I was able to retire early around a year ago. 
+That being said, the new house is bigger than I am used to cleaning, and the upkeep was too much for me to handle alone. After a nasty fall from a ladder while trying to dust the banister, my husband suggested we hire a professional to pick up any slack. As he said, what good is retirement if we can’t enjoy it? We have the ability to hire someone to help us, so why not do it. With a broken wrist and a new fear of heights, I agreed. 
+
+The housekeeper we hired came to us through a friend of a friend of Calvin’s from the office. There was no interview, she just showed up at the specified date and time and got started. Her name is Denise. She is an older woman, maybe in her sixties, put together, and very punctual. She shows up at exactly 4 pm every Tuesday, Thursday, and Sunday. 
+She is quiet. Very, very quiet, and never looks you directly in the eye. It’s gotten to the point that making casual polite conversation with her is impossible. She just sort of smiles at you, but it doesn’t meet her eyes. Frankly, she unsettled me all along, but I told myself I was just weary about letting someone I didn’t know very well into my home by myself, feeling restless sitting on my butt while someone else cleaned my house, etc. 
+
+I didn’t grow up in a position where having a housekeeper would even be an option, I was taught that cleaning, fixing and keeping your house was your job and yours alone. That extended beyond housekeepers to repairmen, contractors, plumbers, and anyone else you’d have to pay to do a skill you could learn to do well enough yourself. 
+My husband is from a completely different background , and grew up surrounded by personal chefs, nannies, house keepers, and pool-boys. I figured that this dysphoric feeling must be rooted in an inferiority complex. She was just a diminutive elderly lady who didn’t like to chat at work, why was I so worked up? 
+
+Well, I got my answer. 
+
+Denise was wiping down the dining room table when I entered the room. She was moving so awkwardly she almost looked like a marionette. I was about to ask her if she wanted anything to drink when I heard the buzzing. It was faint, like when there’s a mosquito in your room but it’s far enough away that you can’t see it. Just a discreet humming. I zoned out for a second, puzzled, trying to identify the sound. I looked around to see if there was a bug flying around, and when I looked back at her, she had stopped wiping. She was staring straight at me. She stared at me for more than a minute. It felt like hours, and she never blinked. Not once. 
+
+The longer we stared at each other, the more I noticed the uncanny features of her face. I guess I had never really looked at her before, studied her eyes, her nose, her mouth. Her lips were thin, bloodless, and wrinkled in a way that didn’t fit her age. Her nose was flattened into her face, like the sinuses had simply collapsed, or the cartilage had just rotted away beneath the flesh. Her skin sagged in ways that I couldn’t attribute to any emotional wear. She wasn’t particularly thin, or heavy, so the amount of loose skin that weathered her features didn’t make any sense. She looked like a piece of poorly cured leather draped over a vaguely human frame. 
+
+Before I could stop myself I gasped and staggered back into the doorway. Her face tracked me, but her eyes didn’t move in their sockets. I gave her an uneasy smile and backed out of the room. I could see her face following my movement all the way out of her line of sight. 
+
+I brought it up to my husband that night as we ate dinner, but he just looked at me in a way he has never looked at me before. Like I was crazy. I stuffed my fear back down with the rest of my pot roast and told him to forget it. I could tell by the wrinkle between his brows he didn’t. I sat on this horrible feeling in my gut until Thursday, when she came back. 
+
+Thursday was a horrible, stifling day. I avoided her like the plague, which had never seemed difficult before, but now was a Herculean challenge. Every room I walked into, she was there. Every corner I turned, she was waiting. Every door I opened, she stood perfectly still on the other side. I eventually moved outside to the garden with a book, content to spend the next few hours on a lawn chair and not inside with Denise.
+I was beginning to settle in when the hair on the back of my neck stood up. I whipped my head around and saw her there, wiping down the sliding glass door on the back of the house. Her neck was extended out from her body like a grotesque, fleshy snapping turtle, bloated and shiny. Her skin was pulled taunt now, the wrinkles smoothed by the tension of this unnatural extension. I fell out of my chair, scooting backwards on the grass as far away from this thing as I could. Her eyes were like pool balls, big, bulging, and soulless. They stared at nothing, yet right at me all at once. Her neck slowly retracted back into her torso, her skin creased once more, and she shuffled uncoordinatedly away from the window, back into the shadows of the house. 
+
+I stayed out there until the sun had long since set and my husband came home. I tried to explain what I saw, but he just shook his head at me in disbelief. He slept on the couch that night. I don’t think I can make him believe me. 
+
+She came back on Sunday. 
+
+I resolved to just ignore her. I fought with Calvin intermittently on Friday and Saturday, begging him to fire her, but with what cause? Her work was good, better than good. The house was spotless. She hadn’t said anything nasty, hadn’t stolen anything, wasn’t rude, violent, or neglectful of her job. How could we fire a sweet old lady? 
+When I tried to explain she was anything but, he just scoffed, said he was going for a run, to check some emails, or to the grocery store, and dismissed me out of hand. 
+
+Sunday was hell. I sat in my bedroom, cross legged on my bed, and watched the clock. She would be gone in four hours. For four hours I just had to pretend there wasn’t an ungodly abomination wandering around my home, free to enter any room.
+
+We made it to hour three before she came into my room. She shuffled into my room with a polite little knock on my door. She had a basket of laundry in her wizened, lumpy hands, and set the basket down on the edge of my bed with a small, slow nod in my direction. She began putting away the folded clothes, the normalcy of the situation throwing me for a loop. 
+Had I really imagined it all? I knew in my gut I couldn’t have, but I also knew I was staring at the wispy gray hair and stooped frame of a regular old woman, putting away my clothes in their designated drawers with practiced, slightly trembling hands.  
+
+I sighed to myself, tamping down the fear working its way through my gut, and got out of bed. I began to help her, offering her a small smile, like a peace offering. I was sure she was just as upset by my behavior as Calvin must’ve been, worse even. This poor lady had just been doing the job she was hired and paid for, and here I was, hiding from her like a petulant child. 
+
+Just as these feelings began to override the panic that had been freely flowing through my brain for the last week, I heard the buzzing. Loud, close, and suffocating. 
+In my periphery I could see her, mouth hanging open so wide I could see she had no teeth. No gums, no tongue, no discernible throat. Just a vast, open pit, amplifying the fluttering of hundreds of tiny wings. A large botfly crawled from the horrible expanse, slowly working its way across her lips in tiny bursts of movement. I didn’t feel the tears on my cheeks until then. I had begun to silently cry. More flies began to emerge from her, as if drawn out by my salty tears. A few flew free from her nostrils, and one crawled lazily across her unmoving eye before burrowing back under the drooping lid. 
+
+I think I passed out after that, and my head hit the side of the nightstand. I have a concussion and a large contusion on my temple. My husband came home and found me unconscious, bleeding profusely, but breathing. I guess the staff at the local ER told him I had low iron, and that had probably caused the fainting. 
+He’s been very attentive, but whenever I try and bring up the thing he calls Denise, he shuts me down. I think he’s trying to sweep all of this under the rug as anemia, stress, and some spell of delirium. Maybe he already knows the horrible truth.  I feel like I don’t even know him anymore. 
+I’ve been on bed rest for the past day, and will be for at least another couple of days. I’m supposed to be taking it easy so I don’t pass out again. Standing or doing anything even lightly active could drop my blood pressure and trigger another fainting episode. 
+
+I’ve made peace with all of this, I think. I just wanted to write this and put it out there with the hope that somebody might believe me. I don’t know what’s going to happen next. The swarm has infested my home.
+Tomorrow is Tuesday.
