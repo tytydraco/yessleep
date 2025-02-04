@@ -1,22 +1,20 @@
-
-
 Before I start, I’d like to be as transparent as possible.
 
-Twenty years ago, I was convicted of manslaughter. 
+Twenty years ago, I was convicted of manslaughter.
 
 Framed by an organization that took my need and my vulnerability and twisted it to their own ends.
 
-I can’t right my wrongs, and I know that. I’ll live with the consequences of trusting them for the rest of my life. 
+I can’t right my wrongs, and I know that. I’ll live with the consequences of trusting them for the rest of my life.
 
 Now that I’m free, though, I've finally decided to put the truth of what happened to me out into the world, which boils down to this:
 
-The organization implanted something that allowed me to hear sounds that are normally well out of reach from our perception. Sounds that the human mind wasn’t designed to withstand - an imperceptible cacophony that is occurring all around you as you read this, you just don't know it. It’s occurring around me as I write this as well, and although I can’t physically hear it, I can still *feel* it. It's faint, but I know it's there. 
+The organization implanted something that allowed me to hear sounds that are normally well out of reach from our perception. Sounds that the human mind wasn’t designed to withstand - an imperceptible cacophony that is occurring all around you as you read this, you just don't know it. It’s occurring around me as I write this as well, and although I can’t physically hear it, I can still *feel* it. It's faint, but I know it's there.
 
-And once I came to understand what they did, they made sure to silence me. 
+And once I came to understand what they did, they made sure to silence me.
 
 \------------------
 
-***11/01/02 - Ten days before the incident.*** 
+***11/01/02 - Ten days before the incident.***
 
 *“Ready?”*
 
@@ -42,7 +40,7 @@ The stout Italian physician shot up from his desk chair and turned to face the w
 
 *“Thanks. By the way, I don’t think I’ll ever be ‘ready’ for that, Doc. For any of this, actually. You can probably stop asking. Save your breath, I mean.”*
 
-As I spoke, it felt like heavy grains of sand were swimming around my molars. I swished the pebbles onto my tongue and spat them into my hand, frowning at the chalky crystals in my palm.
+As I spoke, it felt like heavy grains of sand were swimming around my molars. I swished the pebbles onto my tongue and spat them into my hand, frowning at the chalky crystals now on my palm.
 
 *“Jesus. Cracked another filling. Does the Audiology department have a P.O. box I can forward my dental bills to?”*
 
@@ -50,7 +48,7 @@ He chuckled weakly as he turned back towards me. The old doctor was only half-li
 
 Absentmindedly, I rubbed the scar above my temple. Most of the time, I just pretended like I could perceive the outline of the dime-sized implant. The delusion helped me feel in control.
 
-But I wasn’t in control. Not completely, at least. 
+But I wasn’t in control. Not completely, at least.
 
 I shared control with the remote in Hewitt’s hand, especially when *his* part of the implant was active. The experimental portion. Suppressing the existential anxiety that came with split dominance was challenging. I wasn’t used to my sensations being a democracy.
 
@@ -90,7 +88,7 @@ I cradled my temple with my palm and grimaced, shouting an answer to Hewitt’s 
 
 *“All three things are drumming, same as always, Doc.”*
 
-He clicked the remote again, and like the flick of a switch, the objects became silent immediately. 
+He clicked the remote again, and like the flick of a switch, the objects became silent immediately.
 
 *“Thank you, David. Head to the lobby, grab a book and have Annemarie make you a cup of coffee. In about an hour, I’ll call you back. We’ll repeat the procedure, I’ll deactivate the implant, and you’ll be done for the week.”*
 
@@ -108,7 +106,7 @@ Although he interrupted what he was doing, he didn’t meet my gaze. Instead, he
 
 When I returned an hour later, the objects and the pillars were in their same positions, but the Buddha had a new, glistening shine on its marble skin.
 
-As the device activated, the horrible drumming reappeared, but only from the spray bottle and the petri dish. The statue remained eerily quiet. 
+As the device activated, the horrible drumming reappeared, but only from the spray bottle and the petri dish. The statue remained eerily quiet.
 
 Hewitt clicked the remote one last time. The implant beeped three times, and then released one last shockwave, weaker than the one that came with “priming” his part of the device. This supposedly meant the implant had completely deactivated its experimental portion. I was told the designers never intended me to experience the drumming outside a controlled setting.
 
@@ -122,9 +120,9 @@ I just couldn’t hear it anymore.
 
 \------------------
 
-Below, I’ve typed out what I can recall of the messages I left for Hewitt leading up to my inditement. 
+Below, I’ve typed out what I can recall of the messages I left for Hewitt leading up to my inditement.
 
-Here's what I remember: 
+Here's what I remember:
 
 \------------------
 
@@ -146,7 +144,7 @@ Here's what I remember:
 
 *But…uhh…maybe you should be. I am…after last night.*
 
-*I started…hearing the drumming at home. Just little bits of it, here and there. Much quieter than usual.* 
+*I started…hearing the drumming at home. Just little bits of it, here and there. Much quieter than usual.*
 
 *I was sitting at my computer…and I heard it in the background of the music I was listening to. It just kind of…appeared. I’m not sure how long it was there before I noticed it. At first, I thought I was hearing things, but as I walked through my apartment, it became louder. Muffled, though. Felt like it was coming from multiple places rather than one. Eventually, I thought I tracked it to a drawer in my kitchen, but when I pulled it opened, it stopped…all of a sudden.*
 
@@ -170,9 +168,9 @@ Here's what I remember:
 
 *I…I heard it inside myself, too.*
 
-*I managed to fall asleep, but I guess I relaxed, and my muscles relaxed and…well, my head must have turned, because I could hear it again.* 
+*I managed to fall asleep, but I guess I relaxed, and my muscles relaxed and…well, my head must have turned, because I could hear it again.*
 
-*Loud as hell...from the inside of my mouth.* 
+*Loud as hell...from the inside of my mouth.*
 
 *I’m not proud, but I…I kind of freaked out. Put my hands in my mouth and just…just started scraping. I…I wanted it out of me. Dug at my gums…its really bad.*
 
@@ -190,13 +188,13 @@ Here's what I remember:
 
 *I don’t see, I don’t taste, smell, touch…and I certainly don’t hear. Not anymore.*
 
-*But I feel the current.* 
+*But I feel the current.*
 
 *I feel it writhing and pounding and slipping and fucking and expanding and consuming and living and dying over every…****goddamned****…thing.*
 
 *It speaks to me. Not in a language or a tongue. It’s…it’s a tide. It ebbs and flows.*
 
-*It sings wordless songs to me…and I understand, now.* 
+*It sings wordless songs to me…and I understand, now.*
 
 *I thought you cursed me, Hewitt. But all transitions cause pain. I mean, how do you turn a liquid into a gas?*
 
@@ -226,7 +224,7 @@ Here's what I remember:
 
 ***Me:*** … **(line goes dead)**
 
-***Hewitt:*** *You’re hearing the microscopic, David. It was all just supposed to be a novel way to test the effectiveness of anti-infectious agents. Once they stopped moving, we know the medication killed them. We stood to make a lot of money off of the technology, but we couldn't prove it worked. Not until you. You’ve…you’ve helped so many people, David…*
+***Hewitt:*** *You’re hearing the microscopic, David. It was all just supposed to be a novel way to test the effectiveness of anti-infectious agents. Once they stopped moving, we'd know the medication killed them. We stood to make a lot of money off of the technology, but we couldn't prove it worked. Not until you. You’ve…you’ve helped so many people, David…*
 
 ***Me:*** **(quietly)** *I’ve been able…able to hear, able to feel…the billions of living things…moving around…on my skin…inside me…everywhere…*
 
@@ -234,17 +232,17 @@ Here's what I remember:
 
 \------------------
 
-I don't remember much from that night other than this conversation. I can vaguely recall Hewitt arriving at my apartment, remote in hand. He examines my head, and I'm fading in and out of consciousness. 
+I don't remember much from that night other than this conversation. I can vaguely recall Hewitt arriving at my apartment, remote in hand. He examines my head, and I'm fading in and out of consciousness.
 
-When I fully come to, I'm lying on my couch, holding a gun I'd never seen before. A few steps away is Hewitt's corpse. 
+When I fully come to, I'm lying on my couch, holding a gun I'd never seen before. A few steps away is Hewitt's corpse.
 
-And I start crying - not out of fear or confusion, out of relief. 
+And I start crying - not out of fear or confusion, out of relief.
 
-It's finally quiet. Silent as the grave. The endless drumming of infinite microorganisms crawling around me and within me had vanished. 
+It's finally quiet. Silent as the grave. The endless drumming of infinite microorganisms crawling around me and within me had vanished.
 
-My weeping is interrupted by a man rounding the corner into my living room. He's well dressed with dark blue eyes, and he walks over to sit next to me, stepping over Hewitt as he does. 
+My weeping is interrupted by a man rounding the corner into my living room. He's well dressed with dark blue eyes, and he walks over to sit next to me, stepping over Hewitt as he does.
 
-He introduces himself as Hewitt. Tells me the body won't be needing the name anymore, so it's his now. 
+He introduces himself as Hewitt. Tells me the body won't be needing the name anymore, so it's his now.
 
 *"Listen, David, we have some new terms. You can still keep the device, meaning you can keep your hearing. Its fixed now, too. You won't be hearing anything you weren't meant to hear from now until the day you die."*
 
@@ -256,18 +254,18 @@ He introduces himself as Hewitt. Tells me the body won't be needing the name any
 
 \------------------
 
-I agreed to the terms then, but I've had a little change of heart. Jail gave me perspective. 
+I agreed to the terms then, but I've had a little change of heart. Jail gave me perspective.
 
-You see, the punishment behind incarceration is that you lose your autonomy. That's your incentive to reform. Serve your time, play by the rules and hey, maybe we'll give you your agency back. Maybe you'll have an opportunity to own your body again. 
+You see, the punishment behind incarceration is that you lose your autonomy. That's your incentive to reform. Serve your time, play by the rules and hey, maybe we'll give you your agency back. Maybe you'll have an opportunity to own your body again.
 
-It makes you realize that agency and autonomy are the only things that really have value in this world. Without them, you have nothing. 
+It makes you realize that agency and autonomy are the only things that really have value in this world. Without them, you have nothing.
 
-And what is this implant but another jail? I've wanted to speak up for so damn long, but the threat of being subjected to the drumming again has kept me silent. If you don’t have control over your actions, you’re incarcerated no matter where you are.
+And what is this implant but another jail? I've wanted to speak up for so damn long, but the threat of being subjected to the drumming again has kept me silent. If you don’t have control over your actions, you’re incarcerated - no matter where you are.
 
-Well, my priorities have changed. I'm tired of just settling for what they're willing to give me. 
+Well, my priorities have changed. I'm tired of just settling for what they're willing to give me.
 
-I want my goddamned agency back. 
+I want my goddamned agency back.
 
-So, to the creators of the implant, consider this my resignation from our contract. In addition, I have a few choice words. I am relying on the internet to carry them to you, wherever you are. 
+So, to the creators of the implant, consider this my resignation from our contract. In addition, I have a few choice words. I am relying on the internet to carry them to you, wherever you are.
 
-Do your worst, motherfuckers. 
+Do your worst, motherfuckers.
