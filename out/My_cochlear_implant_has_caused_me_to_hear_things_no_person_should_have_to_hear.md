@@ -46,7 +46,7 @@ As I spoke, it felt like heavy grains of sand were swimming around my molars. I 
 
 He chuckled weakly as he turned back towards me. The old doctor was only half-listening, now preoccupied with assembling the familiar experimental set up. Carefully, he placed a Buddha statue, a spray bottle of clear liquid, four half-foot tall metal pillars, and a capped petri dish on the desk.
 
-Absentmindedly, I rubbed the scar above my temple. Most of the time, I just pretended like I could perceive the outline of the dime-sized implant. The delusion helped me feel in control.
+Waiting for the next step to begin, I absentmindedly rubbed the scar above my temple. Most of the time, I just pretended like I could perceive the outline of the dime-sized implant. The delusion helped me feel in control.
 
 But I wasn’t in control. Not completely, at least.
 
