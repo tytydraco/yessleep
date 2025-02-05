@@ -147,3 +147,5 @@ I heard the scrape of footsteps behind me. He was close.
 
 Victor wasn’t going to stop. And I had no idea what lay beneath his house, but it was the only place I could run.
 
+Part 2: https://www.reddit.com/r/nosleep/s/mIt0sIB6dv
+
