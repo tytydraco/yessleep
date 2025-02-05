@@ -58,7 +58,7 @@ Eilza'd gotten even taller, the scar on her lip had faded, but it was still ther
 
 We went back and forth like this for the rest of that lunch period and for a couple more after, finally:
 
-"Alright, well, if we're both carrying our knife, our phones, and you've got your pepper spray, I'm in, but seriously if somethings weird, we leave, alright?"
+"Alright, well, if we're both carrying our knife and you've got your pepper spray, I'm in, but seriously if somethings weird, we leave, alright?"
 
 "Yeah, of course!"
 
