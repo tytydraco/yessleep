@@ -74,7 +74,7 @@ Either way, it took a moment for him to remember he had been explaining somethin
 
 *“We needed an ‘operator’. Someone to tell us that the device worked like we had designed it to. I wouldn’t say this was an elegant solution, but we’re both getting something out of the deal, I suppose.”*
 
-In the nine months since the implantation, this was by far the most Hewitt ever divulged about the deeper contents of their arrangement.
+In the nine months since the implantation, this was by far the most Hewitt ever divulged about the deeper contents of our arrangement.
 
 As requested, he didn’t check if I was ready this time; instead, he winked and clicked another button on the remote.
 
