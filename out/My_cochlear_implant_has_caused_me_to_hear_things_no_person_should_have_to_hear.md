@@ -82,7 +82,7 @@ As requested, he didn’t check if I was ready this time; instead, he winked and
 
 Instantly, I could hear sound emanating from each of the stationary objects in the middle of the square. Nothing moved, and yet a loud, rhythmic drumming filled my ears. Despite being able to tell the noise was coming from directly in front of me, it sounded incredibly distant, too. Like it was echoing from the depths of a massive cave system before it reached me standing at the cave’s entrance.
 
-What started a single drum eventually became a frenzied ensemble. Over only a few seconds, hundreds of drum rolls layered over each other until the chaotic pounding caused my head to throb. The Budha was grinning, but that’s not what I heard. I heard the marble figure screaming at me, its voice made of deafening thunder rather than anything recognizably human.
+What started a single drum eventually became a frenzied ensemble. Over only a few seconds, hundreds of drum rolls layered over each other until the chaotic pounding caused my head to throb. The Buddha was grinning, but that’s not what I heard. I heard the marble figure screaming at me, its voice made of deafening thunder rather than anything recognizably human.
 
 I cradled my temple with my palm and grimaced, shouting an answer to Hewitt’s question.
 
