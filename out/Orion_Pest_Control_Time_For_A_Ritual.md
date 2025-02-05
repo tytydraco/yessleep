@@ -323,3 +323,6 @@ I then filled him in on everything that happened on my end, including the newfou
 They are extremely territorial to the point of rivaling a False Tree. However, I would argue that the Wood Maiden was worse; the False Tree has never tried to commit terrorism on the entire county before. It just focused on the specific perpetrators. Though, the Wood Maiden has a good reason for her hostility. Her life force is tied to a single tree: if that tree dies, so does she. 
 
 For right now, my goal is to start feeling better. And to figure out how to deal with having the second sight. Good thing I'm dating an [expert.](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD)
+
+
+Update: I encountered the [Wood Maiden. ](https://www.reddit.com/r/nosleep/s/DcNDwThHNi)  It went as well as yinz would expect. 

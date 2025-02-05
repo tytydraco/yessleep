@@ -8,7 +8,7 @@ I can’t right my wrongs, and I know that. I’ll live with the consequences of
 
 Now that I’m free, though, I've finally decided to put the truth of what happened to me out into the world, which boils down to this:
 
-The organization implanted something that allowed me to hear sounds that are normally well out of reach from our perception. Sounds that the human mind wasn’t designed to withstand - an imperceptible cacophony that is occurring all around you as you read this, you just don't know it. It’s occurring around me as I write this as well, and although I can’t physically hear it, I can still *feel* it. It's faint, but I know it's there.
+The organization implanted something that allowed me to hear sounds that are normally well out of reach of our perception. Sounds that the human mind wasn’t designed to withstand - an imperceptible cacophony that is occurring all around you as you read this, you just don't know it. It’s occurring around me as I write this as well, and although I can’t physically hear it, I can still *feel* it. It's faint, but I know it's there.
 
 And once I came to understand what they did, they made sure to silence me.
 
@@ -20,7 +20,7 @@ And once I came to understand what they did, they made sure to silence me.
 
 I nodded, which was only kind of a lie. I was *always* ready for this part of my week to be over, but I was never quite ready for the god-awful sensation.
 
-Hewitt clicked the remote, and the implant in my left temple whirred to life. It always started gently. A quiet buzzing. Irritating, but only mildly so. Inevitably, however, the sound and the vibration crescendoed. What started as a soft hum grew into a furious droning, like a cicada vibrating angry verses from the inside of my skull.
+Hewitt clicked the remote, and the implant in my left temple whirred to life. It always started gently; nothing more than a quiet buzzing. Irritating, but only mildly so. Inevitably, however, the sound and the vibration crescendoed. What started as a soft hum grew into a furious droning, like a cicada vibrating angry verses from the inside of my skull.
 
 I gritted my teeth and closed my eyes tight.
 

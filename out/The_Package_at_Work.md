@@ -1,0 +1,19 @@
+Last week, something weird happened at my job. I work in a small tech company, mostly dealing with web development and cybersecurity projects. Nothing too crazy, just your usual office job. But one afternoon, I received a mysterious package delivered to the office. It wasn’t anything like the usual mail we get. The box was plain, no return address, just a simple black label with a strange symbol that looked like a mix of a circuit board and an eye. It was taped up securely, and it gave off this eerie vibe.
+
+Curious, I opened it, thinking it might be a new piece of tech we had ordered or maybe a promo item from a security company. Inside, there was nothing but a small, sleek device and a note. The device was just a small black box with no buttons or markings. The note, written in plain text, simply said, "For your next project. You'll find it useful."
+
+I didn’t think much of it at the time, but later that night, when I was working late, I decided to take a look at it. I connected it to my computer, and immediately, it powered on, displaying a cryptic string of numbers and letters on the screen. It looked like a standard encryption key, but it didn’t match anything I recognized. I ran a quick scan to make sure it wasn’t a virus, but my security software flagged it as “unknown threat.” Weird, right? Still, I couldn’t resist trying to crack it.
+
+After a few attempts, the encryption key decrypted into a strange file labeled "Project DarkNet." I thought it was just some kind of test file, maybe from a colleague or a company I had worked with in the past. But as I opened it, I immediately regretted it. The file was a deep web chat log. It contained conversations from various users discussing a series of hacking activities, breaches, and methods I’d never seen before. There were mentions of government agencies, encrypted services, and even more unsettling, a specific location: my office.
+
+As I kept reading, I found messages that made my blood run cold. Someone was monitoring my work. They knew where I sat, when I took breaks, and even details about my personal life. The scariest part? One of the messages said, "You’re next. Don’t trust the package."
+
+I froze. What the hell was this? Was this some sort of sick joke? A hacker who had somehow infiltrated our system and was messing with me? I wasn’t sure, but I didn’t want to find out. I disconnected the device, threw it in the trash, and deleted the file from my computer.
+
+But the weirdest thing happened the next morning. When I arrived at the office, the package was back on my desk. No one had touched it, and there was no sign of how it got there. I checked the security cameras, but the footage was corrupted. The only thing I could see was a shadow passing by the office door, and then the package appearing on my desk. That’s when I started to panic.
+
+I don’t know if this is just some stupid prank or if it’s something much darker, but I can’t shake the feeling that whoever or whatever is behind this is watching me. The conversations in the dark web logs mentioned a “final step” that involved someone with my job title, and the last message I saw before I shut everything down said, "It’s too late now."
+
+I don’t know what to do. I’m seriously thinking of leaving my job for a while, but at the same time, I’m terrified that they could find me anywhere. I don’t know if this is a hacker pulling some elaborate stunt, or if it’s something much worse. All I know is that I can’t trust anything anymore.
+
+I’m just hoping this isn’t a sign that I’m getting too deep into something I shouldn’t be messing with. I can’t help but feel like something far worse is out there, waiting for me to make the wrong move.
