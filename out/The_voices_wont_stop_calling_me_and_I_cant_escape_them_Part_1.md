@@ -13,7 +13,7 @@ At first, it was just the little things—the feeling of being watched when I tu
 
 Then, one night, I heard whispering.
 
-I live alone. I don’t own a TV, and my upstairs neighbor works the early shift—by the time I get home, his apartment is dead silent. But as I lay in bed, staring at the ceiling, I heard it. Soft, almost like breathing. A voice, just on the edge of understanding, murmuring from the dark corner of my room. I held my breath, trying to convince myself I was imagining it.
+I live alone, and my upstairs neighbor works the early shift—by the time I get home, his apartment is dead silent. But as I lay in bed, staring at the ceiling, I heard it. Soft, almost like breathing. A voice, just on the edge of understanding, murmuring from the dark corner of my room. I held my breath, trying to convince myself I was imagining it.
 
 Then it said my name.
 
