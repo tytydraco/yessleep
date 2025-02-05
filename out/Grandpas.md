@@ -178,6 +178,8 @@ He had been dead for quite a while, actually, since the night I came, which obvi
 
 My family didn't sugarcoat this to me at all, being that I kept insisting the police were wrong and that he was alive that night. 
 
+I brought up the phone call and Mom denied it even more. She refuses to believe that even happened. To the point she yells at me when I bring it up. Dad told me she was drinking that night I called. They were celebrating before getting on the cruise. He thinks I impersonated Grandpa and that she was so drunk she thought I was actually him. I thought she sounded pretty sober, though. I think deep down she knows something paranormal was happening, but doesn't want to face it.
+
 My mom also told me, when my dad wasn't around, that Grandma died by drowning in that very same pond. It confused everyone, because she never attempted swimming in it and she didn't have anything wrong with her mentally. Yet, it seemed like she intended to jump in, as she'd taken off her clothes and socks and shoes and neatly folded them on the bank. She was found floating in the center with a look of slack-jawed confusion on her face, same as Grandpa years later.
 
 Mom believes that she committed suicide, vecause she was unhappy with Grandpa for a long time. She believes Grandpa killed himself too and my brain made me hallucinate that he was still alive to cope after seeing him drowned. 
