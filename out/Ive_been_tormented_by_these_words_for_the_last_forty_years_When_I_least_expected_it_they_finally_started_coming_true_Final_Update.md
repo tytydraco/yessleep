@@ -68,7 +68,7 @@ I started pacing forward to grab Shep, knowing what could be next to follow.
 
 When I reached him, he was nearly at the pulpit, looking up to meet Barb’s burning gaze. Wind whipped against the church’s rickety woodwork, causing the walls to seemingly buckle and expand with the current. Hefty droplets of rainfall crashed against the rooftop like the hooves of a stampede. I grabbed his forearm and pulled myself up to my tiptoes so my whispers could meet his ear.
 
-*“I know you don’t believe this is happening, but we need to go. The next part of the prophecy is ‘the death of a king amidst a sweeping Tempest. We haven’t had a mayor in over a decade, so you’re the closest thing this town has to a king.”*
+*“I know you don’t believe this is happening, but we need to go. The next part of the prophecy is ‘the death of a king amidst a sweeping Tempest’. We haven’t had a mayor in over a decade, so you’re the closest thing this town has to a king.”*
 
 Barb’s voice cut through the sounds of the storm like a crack of thunder.
 
@@ -90,7 +90,7 @@ I followed him to the floor, knelling over him with hot tears welling up in my e
 
 *“Shep - Shep…oh God…oh God.”*
 
-No matter how much I called out to him, no matter how much I shook him, Shep would didn’t wake up. He’d never wake up again, actually.
+No matter how much I called out to him, no matter how much I shook him, Shep didn’t wake up. He’d never wake up again, actually.
 
 My eyes darted around the room, but no one was dialing 9-1-1.
 
@@ -242,7 +242,7 @@ I think we were all part of some grand experiment. Someone wanted to prove that 
 
 They may have to nudge the circumstances along, of course. Maybe a Leviathan didn’t beach itself as intended, so they sent someone down to electrocute the damn thing, and then they pulled it to shore.
 
-They felt so confident in their hypothesis, in fact, that they said:
+They felt so confident in their hypothesis, in fact, I imagine that they said:
 
 *“Hey - I bet these animals will do it even if we give them different instructions on how to do it. That’s how well this going to work.”*
 
@@ -254,6 +254,6 @@ Look around you. How many of your coworkers, friends, and family members use ast
 
 Don’t believe me?
 
-Pull out your phone, open the application store, and search for the phrase “*The Last Great Seer”.* Should be a new release, listed under astrology or cosmology.
+Pull out your phone, open the application store, and search for “*The Last Great Seer”.* Should be a new release, listed under astrology or cosmology.
 
 Tell me what you see.

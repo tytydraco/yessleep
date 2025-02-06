@@ -56,13 +56,13 @@ We’re a tight-knit bunch. Part of that comes from a shared love of the town. M
 
 The other key ingredient in our town's cohesiveness is that we all think alike, as much as any large group of humans can, at least. There can’t be any religious tensions if we’re all similarly devout agnostics. Ninety percent of us don’t have kids, and the kids that did come from our community’s gene pool are already fully grown and out in the world on their own. Because of that, our town doesn’t have a lot of volatile “young-blood” bubbling about, at least during the winter months. Limited spikes in sex hormones translates to limited hotheaded conflict, and we like it that way. None of us have the energy to down half a bottle of tequila while committing festive adultery as revenge for our partner forgetting a birthday. We have our minor squabbles about politics here and there, but that’s about as far as it goes.
 
-And on the rare occasion that there actually is conflict, we have Shepard Langly.
+And on the rare occasion that there actually is conflict, we have Shepard.
 
 \---------------
 
 The police station lies at the very north end of town, though labeling it a “station” is very generous. Situated as the last stop on the boardwalk before it tapers off into sand, the unlabeled one-story building encrusted with peeling sea-foam paint chips isn’t much to write home about. The inside contains a single jail cell, a rifle rack that rarely actually has a firearm on it, and Shep’s rickety wooden desk. But like I mentioned, when it’s the off-season, there isn’t exactly a need for policing.
 
-Sheriff Shepard Langly, in a twist of irony, stands in stark contrast to his dilapidated, uninspired surroundings. Given the description of the station, I think you’d imagine our Sheriff to be some ill equipped, donut-totting weakling, and that would certainly fit better with the aesthetic. Thankfully, that isn’t Shep. A room of a dozen Hollywood writers couldn’t have designed a more stereotyped “lawman”. He’s a gaunt but imposing, straight-shooting, no-nonsense type of guy. Always wearing boots with a bolo tie and soft-spoken to the point where it could be misinterpreted as complexity or mystique.
+Sheriff Shepard, in a twist of irony, stands in stark contrast to his dilapidated, uninspired surroundings. Given the description of the station, I think you’d imagine our Sheriff to be some ill equipped, donut-totting weakling, and that would certainly fit better with the aesthetic. Thankfully, that isn’t Shep. A room of a dozen Hollywood writers couldn’t have designed a more stereotyped “lawman”. He’s a gaunt but imposing, straight-shooting, no-nonsense type of guy. Always wearing boots with a bolo tie and soft-spoken to the point where it could be misinterpreted as complexity or mystique.
 
 In other words, he was exactly what we needed. Someone to counterbalance the downright absurdity that Lucy and I were experiencing.
 
