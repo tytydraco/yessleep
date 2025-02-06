@@ -34,7 +34,7 @@ And I, ever a tetchy elder in a young woman’s body, nagged my sister for using
 
 “You don’t understand, Flora,” said Emilia. “I… I haven’t used TikTok since this morning. And I won’t use it ever again.”
 
-I snorted. “Well done! Still, as much as I admire your five-hour break, let’s not brand you ‘an off-grid girlie’ just yet.”
+I snorted. “Well done! Still, as much as I admire your five-hour break, let’s not brand you one of the ‘off-grid girlies’ just yet.”
 
 “Listen, I haven’t been on my phone since this morning,” Emilia continued in a whisper.
 

@@ -8,7 +8,7 @@ Mr. Everly was a kind but tired man, with a slight stoop and eyes that held too 
 
 I brushed off his words as the quirks of an old man. But as he handed me the keys to the building, there was a moment where his hand lingered on mine, a look in his eyes that I couldn’t quite place—something between pity and caution. And then he left, with a quiet nod.
 
-The first hour of my shift was quiet. I filled out paperwork, familiarized myself with the procedures, and listened to the hum of the cooling units. It felt like a peaceful place—oddly calming, considering the nature of the work. 
+The first hour of my shift was quiet. I filled out paperwork, familiarized myself with the procedures, and listened to the hum of the cooling units. It felt like a peaceful place—oddly calming, considering the nature of the work.
 
 It was around midnight when I first heard it: the quiet creak of the main door, followed by slow, shuffling footsteps coming down the hallway.
 
@@ -46,11 +46,11 @@ Later, when the adrenaline had worn off, I decided to check the security footage
 
 I tried to shake off the unease as I finished my shift, but the memory of that footage lingered in my mind like a stain that wouldn’t wash out. It didn't make sense. How could I have stood there for an hour when I could have sworn it was only a few minutes? And what about the old man? He had been right there, but the camera showed nothing—just me, frozen, staring into that damn storage unit like I was in a trance.
 
-As the first rays of dawn crept through the high, narrow windows of the morgue, I left the building, my thoughts in turmoil. 
+As the first rays of dawn crept through the high, narrow windows of the morgue, I left the building, my thoughts in turmoil.
 
-Mr. Everly was just parking his car, but I didn’t stick around to chat. I just waved at him and said, “I’m out, need to get home.” 
+Mr. Everly was just parking his car, but I didn’t stick around to chat. I just waved at him and said, “I’m out, need to get home.”
 
-“Rough night?” he replied.  
+“Rough night?” he replied.
 
 “Yeah, something like that.”
 
@@ -88,7 +88,7 @@ Desperation clawed at me, but I had no choice. I forced myself to match the rhyt
 
 Finally, after what felt like hours, the door swung open with a slow, agonizing creak. The breathing faded, leaving me alone in the cold, mist-filled room, my limbs trembling and my skin clammy with sweat. I turned to thank Samuel, but he was gone, leaving me with only the faint echo of his last words in the still air.
 
-After the encounter in the embalming room, the night seemed to stretch on endlessly. The air was thick with a sense of dread, and every small sound—drips of water from a leaky pipe, the groaning of old wood—made my skin prickle. The breathing walls had left me rattled, but I couldn’t afford to dwell on it. There were still bodies to move, tasks to finish, and I had to keep going if I wanted to make it through the shift. 
+After the encounter in the embalming room, the night seemed to stretch on endlessly. The air was thick with a sense of dread, and every small sound—drips of water from a leaky pipe, the groaning of old wood—made my skin prickle. The breathing walls had left me rattled, but I couldn’t afford to dwell on it. There were still bodies to move, tasks to finish, and I had to keep going if I wanted to make it through the shift.
 
 Around two in the morning, I went to the autopsy room to prepare another body for cold storage. The room was lit by a single overhead light, casting long shadows that seemed to flicker in the corners of my vision. I was halfway through lifting the body onto a gurney when I heard a faint, high-pitched sound that cut through the silence like a knife. I froze, straining my ears, trying to place the noise. It was soft, almost like the wind at first, but it grew clearer with every passing second until I recognized it for what it was.
 
@@ -180,7 +180,7 @@ Samuel’s face softened, but there was no pity in his eyes, only a weary resign
 
 “No,” I whispered, more to myself than to him. “I’m not like you.”
 
-He stepped closer, his silhouette looming against the dull glow of the hallway lights. “You’ll have to face them, then. All of them. 
+He stepped closer, his silhouette looming against the dull glow of the hallway lights. “You’ll have to face them, then. All of them.
 
 His words settled into my mind like a poison. He reached out a hand, as if to offer some final comfort, but I recoiled, the anger bubbling up inside me. I turned away from him, my thoughts racing. If he was right, if I truly couldn’t leave until I confronted whatever spirits haunted this place, then I’d do it. But not on his terms. Not as another ghost waiting in the shadows.
 
@@ -206,7 +206,7 @@ The woman reached out and gently touched my cheek, her hand cold as winter’s b
 
 She recoiled with a hiss, her face twisting into a mask of rage, and for a moment, I thought she would tear me apart. But then, her figure began to fade, unraveling into threads of shadow that dissolved into the air. Her whispers lingered, slipping away into the dark, leaving me kneeling on the cold, tiled floor, my heart pounding in the silence.
 
-I don’t remember how long I stayed there, slumped against the reception counter. 
+I don’t remember how long I stayed there, slumped against the reception counter.
 
 But as I rose to my feet, I caught a glimpse of my reflection in the glass doors. My face looked older, lined with exhaustion and something deeper—a weariness that mirrored the look I had seen in Samuel’s eyes.
 
@@ -226,7 +226,7 @@ The final entry was smudged, the ink smeared as if by a trembling hand.
 
 "If you are reading this, then you are the next. Know that you have a choice, but choices are never without cost. Find the ledger, and you will find your answer."
 
-I stared at the words, a sense of grim determination settling over me. 
+I stared at the words, a sense of grim determination settling over me.
 
 I made my way back to the cold storage, clutching the journal in one hand, the silver coin in the other. The building felt more alive than ever, the air thick with whispers that brushed against my skin like cold breath. The shadows seemed to shift around me, moving with a will of their own, guiding me toward the third unit, where the ledger lay open on the counter.
 
@@ -242,7 +242,7 @@ My hand hovered over the ledger, the pen trembling between my fingers. I could s
 
 I took a deep breath, steeling myself against the fear that gnawed at my insides, and turned away from the ledger.
 
-“I’m not signing it,” I said, my voice echoing through the empty halls. 
+“I’m not signing it,” I said, my voice echoing through the empty halls.
 
 For a moment, there was only silence, a stillness so profound that it seemed as if time itself had paused. But then, the building shuddered, a low, rumbling groan that vibrated through the floors, the walls, the very air. The shadows coalesced, taking shape in the darkness, forming faces—twisted, mournful, filled with a yearning that clawed at my mind.
 
@@ -252,15 +252,15 @@ And then I spoke the words from the journal—the incantation that bound the dea
 
 “Be at peace,” I whispered, my voice breaking, my breath turning to mist in the frigid air. “This place is not for you anymore. Go beyond, leave me behind.”
 
-The words felt strange on my tongue, almost as if they didn’t belong to me. 
+The words felt strange on my tongue, almost as if they didn’t belong to me.
 
 The groaning of the building deepened, turning into a rumble that shook the walls, sending dust raining down from the rafters. The faces began to blur, their outlines fraying and distorting, until they were no more than dark shapes caught in a current I couldn’t see.
 
 The shadows dissolved, retreating into the corners of the room, fading into the cracks between the walls until all that was left was silence—a silence so deep it felt like the entire world had paused. I opened my eyes, my vision blurred with tears I hadn’t realized I’d shed, and looked around.
 
-I stumbled forward, leaning heavily on the counter as I caught my breath, my mind struggling to process what had just happened. My fingers brushed against the ledger, and I looked down at the page where my name was written. The ink had faded, the letters smudged as if washed away by some unseen hand. 
+I stumbled forward, leaning heavily on the counter as I caught my breath, my mind struggling to process what had just happened. My fingers brushed against the ledger, and I looked down at the page where my name was written. The ink had faded, the letters smudged as if washed away by some unseen hand.
 
-I stared at it, a wave of relief washing over me. I had done it. I had broken the cycle. The spirits had moved on, finally released from whatever held them here. 
+I stared at it, a wave of relief washing over me. I had done it. I had broken the cycle. The spirits had moved on, finally released from whatever held them here.
 
 I spent the next few minutes walking the halls, searching for any lingering signs of the entities that had once haunted the morgue. But the building felt different now—emptier, quieter, like a long-neglected house finally rid of its ghosts. When the first light of dawn spilled through the windows, casting golden beams across the tiled floors, I felt a flicker of hope in my chest that I hadn’t felt in years.
 
@@ -280,7 +280,7 @@ I stepped outside, blinking against the sudden brightness, and felt the sun warm
 
 I walked to my car, my legs unsteady but my mind clearer than it had been in days. As I got  into the driver’s seat and turned the ignition, I allowed myself a final glance at the old brick building, its shadow long and dark against the morning light. Part of me wondered if I would ever return—if the pull of that place would draw me back, now that I knew its secrets. But for now, I knew that I had earned my freedom, however temporary it might be.
 
-I drove away from Hollowbrook Morgue, the road winding through the trees, carrying me away from the shadows that had nearly swallowed me whole. And though I knew that the scars of that place would linger inside me, I also knew that I had faced the darkness and survived.
+I drove away from Ashford Mortuary, the road winding through the trees, carrying me away from the shadows that had nearly swallowed me whole. And though I knew that the scars of that place would linger inside me, I also knew that I had faced the darkness and survived.
 
 As I rounded the bend, the morgue disappeared from my rearview mirror, swallowed by the forest. And for the first time in what felt like forever, I allowed myself to believe that maybe—just maybe—I could find a way to move on.
 
