@@ -1,4 +1,4 @@
-We had to move on earlier than planned, and it cost us. Energy and time, two things we can't afford to waste. We've found somewhere else, a place hopefully far beneath the radar of what's hunting us. With any luck, we can score some food and rest. He's out... well, I can't tell you what Evan is doing right now. We're desperate. Exhausted but working on a plan It's  the only thing that has made me feel any amount of hope. We have to end this and I think we're close. Thank you for giving me a void to scream into; here's what came next.
+We had to move on earlier than planned, and it cost us. Energy and time, two things we can't afford to waste. We've found somewhere else, a place hopefully far beneath the radar of what's hunting us. With any luck, we can score some food and rest. He's out... well, I can't tell you what Evan is doing right now. We're desperate. Exhausted but working on a plan. It's the only thing that has made me feel any amount of hope. We have to end this and I think we're close. Thank you for giving me a void to scream into; here's what came next.
 
 
 
