@@ -86,7 +86,7 @@ His eyes were empty and glazed over, like marbles painted to resemble human eyes
 
 Before anyone actually reached us, Shepard crumpled to the floor like a discarded marionette, limp and lifeless. The crowd stopped moving, and the room once again became filled with that thick silence.
 
-I followed him to the floor, knelling over him with hot tears welling up in my eyes.
+I followed him to the floor, kneeling over him with hot tears welling up in my eyes.
 
 *“Shep - Shep…oh God…oh God.”*
 
