@@ -60,7 +60,7 @@ He beckoned out one of the cathedral’s tall windows at the blankets of blue-gr
 
 Tiny beads of dripping liquid, absorbing and refracting the cosmic light as they painted long lines down the window. Every tempest starts as a drizzle of rain.
 
-I started pacing forward to grab Shep, knowing what could be next to follow.
+I started pacing forward to warn Shep, knowing what could be next to follow.
 
 *“I wish I understood your pain, and I wish I understood what you experienced, truly, I do,”* he continued.
 
