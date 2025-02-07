@@ -16,7 +16,7 @@ Control returned in tiny increments. First a few fingers, then the whole hand a 
 
 My left ankle’s concerning new geography confirmed the shock’s usefulness. A thin line of tented skin now wrapped around its curvature, looking like there was a garter snake slithering just under the surface of my skin, progress halted right as it was rounding the corner on its way to my foot.
 
-I took a swig of vodka, applied a smear of antiseptic cream to one side of the parasite, directly above the ball of my ankle, and made my first incision. As I dug through skin, I could feel the God Thread vibrating, but I couldn’t see an iridescent gleam. Pain began to incite frenzy, and my cuts became wild. The more I gave in to the frenzy, the more I could ignore the pain. I wanted the damn thing out of me at any cost.
+I took a swig of vodka, applied a smear of antiseptic cream to one side of the parasite directly above the ball of my ankle, and made my first incision. As I dug through skin, I could feel the God Thread vibrating, but I couldn’t see an iridescent gleam. Pain began to incite frenzy, and my cuts became wild. The more I gave in to the frenzy, the more I could ignore the pain. I wanted the damn thing out of me at any cost.
 
 When the blood loss transitioned from intermittent sprays to a steady ooze, concern broke through my hysteria, and I dropped the knife onto the makeshift surgical field next to me. I had broken something important, apparently. Dabbing away the gore, the source of the leak became clear - the blade had sliced into a vein. I rotated my head around the injury to assess whether it was completely severed or just damaged.
 
