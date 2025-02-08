@@ -8,7 +8,7 @@ But instead, with just a jacket and a backpack full of granola bars. I turned th
 
 The thought never crossed my mind to even tell anyone where I had gone. I was alone, no other person climbing with me. No stranger passing me by on the breathtaking trail on the Appalachian. I actually counted myself lucky for having the whole mountain to myself.
 
-The B-29 bomber was about 2 miles down the glacier. I was excited, so naive, thinking I would make it back home before the sun had time to set. The weather was nice enough, and I had done the 10 miles up the mountain with no fits, so any worry was absent from my mind. 
+The B-29 bomber was about 2 miles down the glacier. I was excited, so naive, thinking I would make it back home before the sun had time to set. The weather was nice enough, and I had done the 10 miles up the mountain with no fits, so any worry was absent from my mind.
 
 The snow was that of a fantasy. It felt as though I could see the design of the crystals before they landed. But as time went, as I climbed down the ice towards the plane, the bright fluffy textured snow turned thicker. The speed of the wind blared between my ears like a siren that was warning me to get off the mountain. A sign that I ignored.
 
@@ -24,7 +24,7 @@ I couldn't gage wear the trail was anymore, the snow covered everything. The rea
 
 *\*Thud\**
 
-It was then that my head rung form hitting a flat wall. I looked up to see a cabin, so out of place I almost couldn't believe it was real. I thought I was hallucinating until I opened the door and felt the cold breeze no more. I shook off the pound of snow that had begun to form on my back. Threw my bag to the ground and huddled in the fetal position on a cot.
+It was then that my head rung from hitting a flat wall. I looked up to see a cabin, so out of place I almost couldn't believe it was real. I thought I was hallucinating until I opened the door and felt the cold breeze no more. I shook off the pound of snow that had begun to form on my back. Threw my bag to the ground and huddled in the fetal position on a cot.
 
 I was a combination of numb and exhausted. Sleep evaded me because of how bad my body was shaking. When I regained feeling in my arms and legs, I was able to take off my jacket so it could dry. Only then was I able to investigate what had saved my life. The place seemed like a survival cabin. I remembered hearing about them in high school. The forest service would build a shelter on mountains to save idiots like me in emergencies.
 
@@ -79,8 +79,6 @@ I was beginning to learn that sleep was impossible during the day. The paper and
 What do I do now, I don't know. I'm too tired to think anymore. Maybe tomorrow will bring a bright sky and a hot sun that melts ice. Tonight, when I sleep, the windows will have been bordered up and the door barricaded.
 
 I'm alone, I'm stranded, and I'm afraid... Most of all, of what will happen when I am not conscious.
-
-
 
 who is mya      why do i miss her
 
