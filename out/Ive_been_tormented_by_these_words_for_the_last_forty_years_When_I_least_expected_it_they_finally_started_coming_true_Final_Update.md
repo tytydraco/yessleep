@@ -144,7 +144,7 @@ My outburst was abrupt and unexpected. Startled, a few people nearly jumped out 
 
 *“We’re going to torture and kill a man over a beached whale, a few dumb birds, and some faulty wiring?”*
 
-*“And* ***why*** *would there be these differences in the prophetic instructions? I counted sixteen separate lines listed on that white board. Does* ***anyone*** *have a good way to explain that? For fuck’s sake, what the would be the point?”*
+*“And* ***why*** *would there be these differences in the prophetic instructions? I counted sixteen separate lines listed on that white board. Does* ***anyone*** *have a good way to explain that? For fuck’s sake, what would be the point?”*
 
 Barb turned to face me, and I swear I saw her chuckle. I think she tried to get a word in edge-wise, but that goddamned chuckle was like throwing a cannister of gasoline into a bonfire.
 
@@ -190,7 +190,7 @@ Just like *The Last Great Seer did* forty years prior, Ari seared a series of 
 
 *“You can’t kill the inseparable, Meghan.”*
 
-Suddenly, as quickly as it came, the green-eyed harbinger’s grin vanished
+Suddenly, as quickly as it came, the green-eyed harbinger’s grin vanished.
 
 With his mask of fear nailed on tight, Ari placed his chin to his chest and waited for deliverance.
 
