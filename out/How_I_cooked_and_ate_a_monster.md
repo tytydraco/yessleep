@@ -74,7 +74,7 @@ It reaches to grab me but I am too fast with the ring and quickly pull it tight.
 
 I pull it out into the hall and kick it with my heel again, and again, until satisfied that its completely unconscious. I then loosen the noose and roll and kick it brutally into the cage.
 
-It was the same night in 1999 and I'm alone in a house bought with money from the divorce and I'm standing at the stove, barely holding back the grin on my face. The kitchen smells like burnt steak and is loud with the screech of some hideous thing in a cage, a deformed bloodied creature now missing an arm now skinned and chopped and sizzling in a very hot pan almost done. 
+It was the same night in 2019 and I'm alone in a house bought with money from the divorce and I'm standing at the stove, barely holding back the grin on my face. The kitchen smells like burnt steak and is loud with the screech of some hideous thing in a cage, a deformed bloodied creature now missing an arm now skinned and chopped and sizzling in a very hot pan almost done. 
 
 I grab cutlery and a plate and pull up a chair in front of the cage, and I sit down. I then stare pleased and content into the terrified eyes of my catch. 
 
