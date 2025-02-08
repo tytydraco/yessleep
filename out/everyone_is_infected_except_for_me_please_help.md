@@ -1,0 +1,21 @@
+hey guys, i am absolutely freaking out right now and i have no freakin clue what to do. i'm 15, okay? just a normal kid, or at least i was until literally yesterday. everything has gone completely to shit in the last 24 hours, and i mean **everything**.
+
+yesterday was just a normal, boring wednesday. school, homework, the usual mountain dew and bad gaming sessions until 2 am. but then i woke up this morning to this blaring emergency alert on our tv. it was this grainy broadcast about some "disease" that's spreading like wildfire. something about it being super contagious and the main symptoms being like, extreme aggression and paranoia, and the news dude looked like he was fighting to keep it together. my dad, being the conspiracy theorist that he is, scoffed and immediately shut off the tv, saying it was all government propaganda or something. but i had this sinking feeling in my gut, like something was seriously wrong.
+
+at school, it was like flipping a switch. almost everyone started acting batshit crazy. like, they wouldn't stop staring at me. i'm not exactly the most popular or good-looking kid, so it was super unsettling. even joseph, who usually greets me with a solid punch to the arm and some playful insults, just gave me this weird, distant side-eye and completely ignored me. it was like he was… afraid of me?
+
+i accidentally dozed off for like five minutes in history class (ms. davis' lectures could knock out a horse). and when i woke up, the entire classroom was chaos. everyone was screaming and pointing at me. then they started hitting me. like, full-on, fists-flying, everyone-attacking-me hitting. even ms. davis joined in, swinging her purse like a weapon. i tried to defend myself, i swear i did, but it was like a mob mentality. i remember punching ms. davis in the face and seeing blood, and then… everything went black.
+
+i woke up in the school bathroom, lying on the cold tile floor with blood all over my face. i think i had a concussion or something, because my head was pounding and everything was blurry. i tried to cry, because honestly, i was terrified and overwhelmed, but no tears would come. i went home hoping for some kind of comfort, even though the whole day was a warning sign.
+
+big mistake.
+
+i walked through the front door, and my mom was standing in the kitchen with this vacant look in her eyes, clutching a kitchen knife. she told me to stay away from her, her voice all raspy and weird. i just wanted a hug, ya know? a little reassurance after the literal hell i had just been through. but she raised the knife at me. she actually tried to stab me. i managed to dodge the first swipe, but she caught me in the shoulder with the second. i didn't even feel it at first, i was so shocked. but then this wave of intense rage washed over me, like i was watching myself from outside my body. i shoved her away from me with more force than i thought i possessed and ran.
+
+now i'm hiding in this abandoned factory on the outskirts of town. it's all dusty and creepy, but it's the only place i could think of to go. i can hear sirens in the distance, and i saw at least half a dozen cop cars patrolling the main road. the whole town is on lockdown, and everyone is after me. i have a feeling they're all infected. they're acting exactly like the tv said: aggressive, paranoid, and completely out of their minds.
+
+i managed to leech onto the wifi signal from a nearby store, so i could post this. if anyone who isn't infected is reading this, please, for the love of god, help me. i am so scared and confused. i have a splitting headache, a throbbing shoulder, and this overwhelming feeling of anger bubbling inside me. i don't want to hurt anyone. i just want this to stop.
+
+EDIT:- wait… oh god, no. no, no, no. i just caught my reflection in a broken window. my eyes are completely bloodshot, and there's this grotesque rash spreading across my neck. it's like the veins are bulging and turning black. and… and i can't remember what happened after i pushed my mom. i can't remember the run here. there's just… blank spots.
+
+i'm the infected one, aren't i? everyone was trying to stop me. i am the danger. what have i done? what am i going to do? oh god. please, someone, anyone, help me before i hurt anyone else. i don't want to be this monster. i really don't.
