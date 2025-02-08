@@ -10,7 +10,7 @@ I was 18 years old. It was around 10:00 PM. I was eating a late dinner, because 
 
 "Psst," this time, it was a little louder. Loud enough to feel like it was calling out just outside the screen door. I removed one of my earphones, and turned around again. There was no one. "What the hell..." I was baffled and confused. Who was calling me out?
 
-I shrugged it off once more, and put on my earphone. It was at a part when two of the characters went on a date. I laughed a little too hard to the point I needed to catch my breath. Then, it was at that time I felt it. I felt the chills running from my spine, and the goosebumps on my skin. 
+I shrugged it off once more, and put on my earphone. It was at a part where two of the characters went on a date. I laughed a little too hard to the point I needed to catch my breath. Then, it was at that time I felt it. I felt the chills running from my spine, and the goosebumps on my skin. 
 
 "Psst!" It called out to me, but this time it felt like it was beside me. More precisely, it felt like it called out to me by the ear. I removed my earphones and immediately ran upstairs. When I was outside the bedroom door, my legs gave out. I was shaking. Not only that, my heart was also beating fast. "F****** hell..." I cursed under my breath. What was that? 
 
