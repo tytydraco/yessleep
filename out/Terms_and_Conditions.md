@@ -430,9 +430,9 @@ I don’t know how I got out. I think they were checking for bodies in the adjac
 
 I haven’t been back since. I’ve talked to no one, and I’ve left no trail. There was money in that box of things, and it got me pretty far. I won’t say how far, for obvious reasons. But what I can say is that I took Lian’s lesson to heart. I’ve dug my burrow deep.
 
-I dream of that thing sometimes. In a way, I’m bound to it. I see it as this shapeless enormity in and desolate world, reaching for the moon – a crown. But it can’t quite reach. Not yet, at least. But I think those weeks when Lian was gone, and there was no replacement, awakened something. A yearning for a freedom lost, perhaps. But a loophole for a loophole – she didn’t need to be a live for me to agree.
+I dream of that thing sometimes. In a way, I’m bound to it. I see it as this shapeless enormity in and desolate world, surrounded by these twisted blue flowers. It reaches for the moon – a crown. But it can’t quite reach. Not yet, at least. But I think those weeks when Lian was gone, and there was no replacement, awakened something. A yearning for a freedom lost, perhaps. But a loophole for a loophole – she didn’t need to be a live for me to agree.
 
-I still see them sometimes. I understand why Lian never went outside. There’s a few in every town, it seems. Maybe it’s the same ones. Maybe they’re just bad people, acting on instinct. Maybe they really are monsters. I don’t know. But I can’t pretend like they’re not real.
+I see them every now and then. I understand why Lian rarely went outside. There’s a few in every town, it seems. Maybe it’s the same ones. Maybe they’re just bad people, acting on instinct. Maybe they really are monsters. I don’t know. But I can’t pretend like they’re not real.
 
  
 
