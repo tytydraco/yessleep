@@ -4,7 +4,7 @@ After spending eight-hour shifts in a boring office, I needed something—anythi
 
 It wasn’t fancy. The sign was barely lit, the glass doors were tainted by glue marks from old posters, and the inside smelled like stale sweat. But it was cheap—absurdly cheap. No contracts, no hidden fees. It felt like a good deal so I signed up on the spot.
 
-That night, I went there at 10 PM after a late dinner with my friends. The only other person there was a man on the treadmill, jogging at a steady rhythm while watching a movie on his phone. The receptionist barely glanced at me as he gave me the locker key.
+That night, I went there at 10 PM after a quick drink with my friends. The only other person there was a man on the treadmill, jogging at a steady rhythm while watching a movie on his phone. The receptionist barely glanced at me as he gave me the locker key.
 
 I changed into my gym clothes and started lifting 5 kilograms. Well, I wasn’t strong, but it felt good to do something different.
 
