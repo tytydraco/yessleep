@@ -99,7 +99,7 @@ What we saw now was a high-resolution image of a perfect circle with a series of
 This doesn’t occur in nature at all. This is all so wrong. “This can’t be right. Helena and Brandon, I need you to run the scan using the original bias voltage, before the 2.5% increase.”
 
 Both technicians did it right away. But I could see the anxiety on their faces. They too cannot understand or even comprehend what they were seeing. 
-________________________________________
+
 The scan was complete, and I fell to the floor in shock. The image was completely different from what we saw the first time, or the second time. The microscope displayed an image of a bright obelisk surrounded by pure black. It was as if the atoms had rearranged themselves to send a message. I was dreadfully horrified by this.
 
 The obelisk stood tall and solitary, its brilliance piercing through the darkness like a beacon. The stark contrast between the radiant structure and the void around it was unsettling, almost otherworldly. It felt as though the sample was alive, communicating in a language of shapes and patterns that defied natural laws.
