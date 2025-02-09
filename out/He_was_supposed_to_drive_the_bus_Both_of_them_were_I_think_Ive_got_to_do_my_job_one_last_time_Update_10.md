@@ -84,11 +84,11 @@ Cowards.
 
 “I know. Everyone wants to be where they want to, not where they’re meant meant to, huh?” And there’s all sorts of ways you can take that.
 
-“I tried. For a very long time, I tried. And I wanted to show you. I wanted you to know I could, too. When he came back. When you came back. But things changed. And I had to learn again. It needed to be perfect. So I wouldn’t make any mistakes. But everything kept. *Changing*.” I saw someone else, someone I’d forgotten, from way back before the world stop making sense the first time. Not everyone fits in, even when the world changes again to be like somewhere you’d think they’d thrive.
+“I tried. For a very long time, I tried. And I wanted to show you. I wanted you to know I could, too. When he came back. When you came back. But things changed. And I had to learn again. It needed to be perfect. So I wouldn’t make any mistakes. But everything kept. *Changing*.” I saw someone else, someone I’d forgotten, from way back before the world stopped making sense the first time. Not everyone fits in, even when the world changes again to be like somewhere you’d think they’d thrive.
 
 They went away, too. It was me again. “I don’t think he’s coming back, Jxxx. I think Jxx is dead. It’s so easy to say his name, now. Like I know if someone hears it, if I throw every letter in for kicks, it won’t matter a lick.”
 
-They stopped. Went off-road, first, careful as you please. Then they stopped in a clearing with a patch of dark water in front if it, shining with a light that didn’t belong somewhere so black. Someone had put up little drawings all around, hanging from the trees, most of them faded and old. I saw a little fellow in a yellow raincoat with a light for a head holding the hand of something that was only like him a little.
+They stopped. Went off-road, first, careful as you please. Then they stopped in a clearing with a patch of dark water in front of it, shining with a light that didn’t belong somewhere so black. Someone had put up little drawings all around, hanging from the trees, most of them faded and old. I saw a little fellow in a yellow raincoat with a light for a head holding the hand of something that was only like him a little.
 
 That one was fresher. It had a bubble next to it with words in it. *“I have a voice.”*
 
@@ -120,7 +120,7 @@ I heard a gunshot ring out. When the world stops wanting you, it doesn’t care 
 
 A staticy voice rang out somewhere behind me. “Humane kill. Trophy.” It sounded strangled.
 
-But it didn’t take the body. The normal sounds of the world retreated. The deer came closer now. Their expressions changed in a way I couldn’t quite place, their breathing became a struggle. They bent their long necks down, like the forehead of the fallen where the blood was welling.
+But it didn’t take the body. The normal sounds of the world retreated. The deer came closer now. Their expressions changed in a way I couldn’t quite place, their breathing became a struggle. They bent their long necks down, licked the forehead of the fallen where the blood was welling.
 
 I don’t think they were animals. Not quite. I think they were just curious. I think that, when I counted, a handful were missing who weren’t supposed to be. And I don’t think they’d been shot.
 
