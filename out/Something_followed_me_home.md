@@ -1,47 +1,43 @@
-All I needed was a baguette to round out dinner. Spaghetti and meatballs. I felt fancy because I’d gone all out, each component made from scratch, and realized the perfect complement to my efforts would be some crisp and cheesy garlic bread, fresh from the oven.  
-  
-The sauce simmered, filling the kitchen with a fragrant basil perfume which danced with the early springtime wind wafting in through the open window, curtains gently billowing with each gust. The sun had just begun to set, and the store was a short drive away. I realized I could make it before dark and made swift work of removing dinner from the heat of the stove, ensuring all burners were snuffed, and yelling a hasty “be right back!” to my partner who was upstairs wrapping up a lengthy workday. I wasn’t sure he’d heard me, but the trip was supposed to be so quick that I’d likely be back before he’d even noticed I’d gone.  
-  
-I made my way out the front door toward my car parked in our drive, the pink sky kissing the still bare tree limbs. As the sun got lower the temperature got colder, and I suddenly regretted the thin sweater I had on. On my way to my car I checked my purse for my keys no less than five times, convinced they managed to grow legs and jump out on their own over the thirty foot distance I had to cover. Finally, just before reaching the car I pulled them out all together, unlocking the doors and turning the heat up to eighty the moment the engine kicked on.   
-  
-Rapidly getting nice and toasty I had to fight off thoughts of getting ice cream while at the store since we had three unfinished pints in the freezer and if I brought home another, I’d never hear the end of it. I pulled into the parking lot, still trying to talk myself out of the purchase, and I should’ve just listened and avoided the frozen section, not just because of the tempting sugar-laden dairy products, but because of who I ran into in that aisle.   
-  
-I turned the corner into the aisle and at the end was an initially unassuming man, so tall he practically loomed over the freezers themselves. He stood, unmoving, carefully reading the label on the back of a box of frozen shrimp. I kept my head down and shuffled past him, hoping to go unnoticed, having had too many negative interactions in the wild and getting the feeling that I was attempting to avoid one more.   
-  
-I’d almost made it past him when I noticed just his eyes subtly peep in my direction. “That lady is staring at you,” he said, apparently deciding against the shrimp and putting them back before being out of sight in two gigantic steps. The interaction was so quick that the hairs on the back of my neck hadn’t even finished standing up before he was gone.   
-  
-I glanced around me, searching for the lady in question, but there was no one. I shrugged it off; there was no apparent threat in the vicinity and the one oddball had walked off. I chalked it up to just a weird exchange and quickly shuffled from the aisle, abandoning my ice cream aspirations and heading to the bakery to grab the intended baguette.   
-  
-While deciding between loaves I felt hot, humid breath hit my ear before the words caught up. “You don’t see her?” the gravelly voice asked in a hushed tone. I turned, but there was no one there. However, there was the man, easily twenty feet away already, back turned, head down, rushing to the checkout. I hastily grabbed the bread and followed him as swiftly as I could without breaking into a full on run.   
-  
-He turned into lane three and I followed. He handed me a divider but was otherwise determined to ignore my presence.   
-  
-“Who were you saying is following me? Is she here?” I asked, leaning in and invading his space a bit.   
-  
-He turned himself away from me, and all I could do was stare at his elbows. I may as well have been a ghost, completely invisible, unhearable. The cashier accepted his money and returned his change before he muttered, so low I barely missed it, “you’ll want to hurry home.” With that he grabbed his groceries and ducked through the double doors, out to the lot.   
-  
-The cashier shot me a weird glance, and I could feel my face drain of all color. I had no evidence that this man was telling the truth, let alone sane, and yet for some reason I *believed* him. I felt as though he was genuinely trying to warn me.   
-  
-It was the moment I walked out the doors and into the lot where I began to feel eyes on me from all directions. The sky had turned black, and the stars were blocked out by the heavy lighting in the lot. A cold breeze slapped me directly across the face and pinched my nose until I thought it would freeze off entirely. It was unseasonably cold for the early spring, especially considering the mild day that had preceded the nightfall. I folded my arms across my chest, shivering and speed walking toward my car. I hoped it would still be warm from my drive to the store.   
-  
-The feeling of being watched wouldn’t relent, but otherwise the walk to my car was uneventful. It didn’t feel so, though. It felt as though I’d been marked. Someone was lying in wait until my guard was sufficiently down and they could strike. I just knew it. I carefully scanned every single visible face in the lot, but all I saw were people going about their respective nights. They didn’t even seem to be bothered by the cold. Completely unnerved, I started the car, missing the ignition no less than three times due to shaking hands before finally managing to connect and engage the engine.   
-  
-As I drove the darkness engulfed me. It was as if I was in a blizzard, but in this case the snow was replaced with unrelenting blackness. I couldn’t see any further than my headlights. I couldn’t even see my own hands. In my haste I’d left the radio off, but about halfway into the drive it clicked on, a sudden blast of music filling the car at a volume I knew I had never set. I swerved as I jerked my hands off the wheel, flailing toward the knob in a desperate attempt to quiet the noise, but no matter how much I turned the knob back and forth nothing happened. I stopped on the side of the road, hazards flashing before turning off the car completely in a desperate bid for silence, but even so the radio didn’t cut out. The deafening song continued to assault my ears when I detected in my rearview mirror a sudden movement.   
-  
-My head whipped around, and yet again all my eyes met was complete and utter blackness. Somehow, I heard someone, or something, that I couldn’t see pull the handle, opening the door and letting in the sharp, icy air. I managed to hear muted footsteps crunch on the sand and rocks that lined the edge of the road, approaching my door.   
-  
-My hand instinctively shot to the lock, hoping to engage it before whoever was on the other side could try the handle, but I failed. The door shot open so quickly and so hard that I’m not sure the lock would’ve kept the intruder out anyway.  
-  
-Still blind, I held my breath, waiting for any new sound, unable to discern anything except the music which was so deafening I could only feel my pulse throb in my ears. A hand broke through the darkness, reaching for my throat, and simultaneously the music cut out completely.   
-  
-The hand never quite reached me. No other part of the person became visible. All that came from the darkness was a quiet word, repeated over and over and over. “Help.” A woman’s voice, now desperate rather than terrifying. A single finger extended pointing toward the woods on the shoulder, before the voice croaked “I'm over there.”  
-  
-It happened in an instant. The blackness faded; the stars came out. I could see the road and the woods. The hand was gone. My attention was gotten, and I believe that was the person’s only goal. I stayed where I was and phoned the police, not quite sure what to tell them, but I suppose I sounded spooked enough for them to come. I told them I thought I saw a figure in the woods, and a quick sweep revealed a body, feet from the tree line, barely covered in a hole so shallow it couldn’t be called a grave. A woman, missing for months from a town four hours away, and finally uncovered.  
-  
-I have my suspicions about the man at the grocery store. He could see the woman following me, and wanted to ensure I couldn’t see her. I couldn’t figure out what to tell the police without appearing insane. The one thing I'm certain about is that he had something to do with her demise.  
-  
-I had hoped finding her had allowed her to finally rest, but in the middle of the day yesterday the all-consuming blackness surged back, despite warm daylight streaming through my front window moments before, and it will not relent. She still needs my help. I just need to figure out how to give it.  
+Has anyone heard of the game “Hounds and Hare”? I was scrolling on r/nosleep seeing what was new as I had just gotten into using Reddit;
+That’s when someone named Erica made a post and mentioned the game “Hounds and Hare” in one of the posts it sounded pretty interesting and it’s pretty simple to play. you get a small group of people at least a party of two or more. 
 
-There's just one problem; I've been noticing a tall figure standing just at the edge of the shadows thrown by trees that line my property. Every night. Just watching.
+You draw sticks and the smallest is the Hare the other or others are hounds. 
+You go out into the woods and the hare gets a bottle of white powder, it can be any powder (baby powder, flour or anything like that) and you get an hour to run around the woods and powder the ground in winding paths. Once you’ve run out of powder or the time is up the hare finds a place to hide. 
+At the same time When the hour is up the hounds are allowed to start their “hunt” 
+The hounds use the power on the ground and foliage around to try and find the hare; the hare must stay in their hiding spot for at least 5 minutes before they can start trying to sneak their way out of the woods back to their home. 
+If the hounds find the hare then the game is over and the hare loses but if hare gets back home the hare is safe. 
 
-[X](https://www.reddit.com/r/cmpaizspooks/s/826B3NzL5r)
+There aren’t many rules, only two. The first rule was the game HAD to be played either afternoon (like 4 to 6) or at night. The second rule? The hare isn’t allowed to look behind them. On the post there wasn’t a reason as to why or if there was any punishment like the hounds instantly win or something. It just said that was the only rule. 
+
+I thought it seemed fun, so I asked a few friends to play with me, I had just moved recently and my new house had a thick patch of woods in the back. So when we were all free my friends Ace, Margo, and my boyfriend Emmet went into the woods to play the game. 
+I ended up playing the role of the Hare. 
+
+It was fun at fist, to run around feeling like a small kid again. Playing with my friends in the small creek near my school.
+However it started to feel less fun as the sun started going down, we started the game around 6:30ish it was a bit dim but it wasn’t dark, but now it had gotten creepy. 
+I started seeing shapes in the trees and hearing voices that didn’t sound like my friends. 
+When it felt like five minutes I started to make my way out of the woods to my house, I felt like I was being watched. I listened around me trying to hear my friends or my boyfriend looking for me but I didn’t hear anything. I never knew how quiet woods were at night. You would think there would be a cricket cheeping or a bird fluttering its wing. Something. But no, nothing. 
+
+When I had finally gotten out of the woods and started to walk towards my house, I heard my friend Margo call out to me, “I found you!” She yelled, I heard her clear as day but when I turned around to give her a congratulations she wasn’t there.  Nothing was there. Just the woods. I waited a second thinking she would walk out from the trees but no. She never came out. I started to get a sinking feeling in my chest, the same feeling I would get as a kid. I had always been afraid of the dark, but I’d never been more scared of it than I was in that moment staring into the dark emptiness of trees. 
+I turned back and gunned for my back door, slamming the door behind me. And some how my gut feeling had gotten even worse. 
+
+Ace, Emmet and Margo came around the corner and Emmet gave me an odd look; “ you were still out there?” I didn’t answer him and just kept staring at Margo; had she been with them in the house this whole time? She wasn’t outside with me? 
+
+After taking a few minutes to calm myself down I asked Margo if she had just been outside, she said no. 
+
+She told me how they couldn’t find me but when they were looking around the edge of the woods they saw what they thought was me running towards the house. So they assumed I had made it back and won the game. Apparently they had gotten to the house a few moments before I did. 
+
+Which only made me feel more weirded out. 
+
+Since then weird things have been happening around my house. 
+It started small a tap here and there, or a small bang coming inside the walls from the kitchen and sometimes scratching under my bedroom floors. Just under my mattress. 
+
+But it’s gotten worse. Recently my cat has disappeared. My cat Gizz liked to find ways to sneak out of the house, before we moved he liked to sneak out the window in the front hallway to get under the house. Or sometime hide in the bushes. 
+Since we move he’d been staying inside more, not trying to snake out, not even to hide in the big bushes in our new garden. 
+He just sits on the windowsill staring out to the back yard. The woods. 
+ The only reason I’ve started to get concerned is because he never stays out for long; usually he’s back before sundown especially in the cold weather, but it’s been days. 3 days and counting, I call his name and he still hasn’t come back. Normally when I call his name he comes running. Not this time. 
+
+The last straw was last night, I was finishing painting the walls in my new bedroom when I heard a bang. It came from the room next to mine. It used to be the master bedroom but I decided to not set that room as my new bedroom. It gives me a strange feeling. 
+There is a door in that room. 
+It’s not a closet, just a door. The place behind it isn’t another room either, it’s just an empty space; the no insulation, no done over floors, no ceiling. Just an empty space with nothing in it. 
+Last night that door opened. 
+Not all the way just a crack, it slowly creaked open before stopping then the tapping started again. 
