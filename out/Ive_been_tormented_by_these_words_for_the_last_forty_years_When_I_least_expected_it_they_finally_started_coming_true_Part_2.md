@@ -40,7 +40,7 @@ It wasn’t alone, either. Looking outside, hundreds of birds littered our subur
 
 But none of them were flying. Not a single, solitary one of them was airborne.
 
-The words “*Angel’s wings clipped,”* quietly curled into my ears, causing me to gasp. I hadn’t noticed Meg creep up behind me, her head cautiously peering over my right shoulder as she muttered the phrase.
+The words “*Angel’s wings clipped,”* quietly curled into my ears, causing me to gasp. I hadn’t noticed Lucy creep up behind me, her head cautiously peering over my right shoulder as she muttered the phrase.
 
 A whispered prophecy, long forgotten, was now materializing in front of me, emerging from the catacombs of my memories like the vengeful undead.
 
