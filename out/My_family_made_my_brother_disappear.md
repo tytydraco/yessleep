@@ -149,4 +149,3 @@ I could hear her smile through the phone.
 "Hello ? Mom ?"
 
 The line cut and Lewis stopped rolling, he was completely fine and back to his youthful form, the tumor was gone. I sat grateful and scared, I had no other choice. I had to go back home. 
-
