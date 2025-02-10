@@ -16,7 +16,7 @@ An unimaginable amalgamation of flesh, blood, exposed bone, short brown, almost 
 
 The parts of me that weren’t destroyed by my new reality felt awful for her. She’d signed up to be a surrogate and was met—and frankly punished—by this multi-person fusion that she just gave birth to, we were a grotesque collage of flesh and memory. I looked in her eyes; there was nobody there. Our mother had passed, presumably from the heartbreak and utter dread of the situation. In my last life, I was always a critical thinker; all I wanted was to get out of this. The pain was unbearable, worse than my bones slimming.
 
-I heard a few final tears, and with them, I came undone. My insides spilled onto the floor; my brain was exposed due to the bone plate that was once connected to another being being broken. Here I am on the bloody hospital room floor, bleeding out at birth. I felt the same sensation as my last life, except there wasn't another body to escape to.
+I heard a few final tears, and with them, I came undone. My insides spilled onto the floor; my brain was exposed due to the bone plate that was once connected to another being broken. Here I am on the bloody hospital room floor, bleeding out at birth. I felt the same sensation as my last life, except there wasn't another body to escape to.
 
 Six children wishing for new life, joined. Our parents should have used a more specific description.
 
