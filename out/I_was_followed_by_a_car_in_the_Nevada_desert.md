@@ -1,0 +1,20 @@
+I bring this story up during family meetings, talking to new people or just as a good conversation starter. However, it has always terrified me since. I just always end up joking about ( probably not the most healthy response but whatever ). 
+
+It all started in 1986, June. Can't really remember the exact date but from everything that happened after, no wonder I can't remember it! I was at a gas station in the middle of nowhere. The guy who filled up my gas was nice but our conversation was interrupted by the first appearance of the vehicle. It was barreling down the highway and it skidded into the gas station. The guy wished me good luck as I got into my car.
+
+ I had a Sedan, The Car was a Cadillac. It was matt black, all of its windows were blacked out to. I wish I could remember its number plate but i just can't, although I do remember that it was black and yellow. That driver was probably scorched in that car, it was nearly 100 degrees that day!
+
+After driving off, about a mile from the gas station, I saw it approaching in my rear view. It was moving fast. It slowed as it reached the back of my Sedan. It begin to honk angrily and kept revving its engine behind me , I waved my hand out the window, signalling for it to go past. It sped around my car and then it slowed down.
+
+I was pissed so i began to honk back. It honked back and sped forward. I brushed it off soon after as I couldn't see it after it went over a small hill the road was on. Turns out, it wasn't done.
+
+I came up to another gas station a few hours away from the other. It was a lot darker now, still bright, but not like noon was. I pulled in, needed gas and a snack ( the little things, y'know? ) and I saw it again. 2 others were there to, one was leaving, and the other was just getting his filled up. A green Station Wagon, a woman was sitting in it. The owner was wearing a fedora. I stopped in a space between the Cadillac and Station Wagon.
+I began to talk to the guy with the fedora. I told him about the road rage incident, he laughed. I started to laugh to, but the Cadillac spoke up. It kept honking, louder than before. The man with the fedora walked over and tapped on the window. It kept going. I remember how deafening it was. 
+
+Fedora man tried to open the door, but it suddenly swung open and knocked fedora man over. The gas man and the woman looked over, shocked. I ran over and tried to help. The Cadillac sped away. Fedora man was okay, I told him to call the police. I dont think it was too illegal, But he did disturb the peace so, maybe? I don't know. Fedora man left, I got my gas and I left.
+
+Another few hours passed, and it was dark now. I had my headlights on. They barely lit up the road but they were my only source of light until two headlights appeared from behind me. I already knew who it could be. That bastard Cadillac.
+
+It wad mad, very mad, you could tell by the fact that it was trying to run me off the fucking road. I don't even know what I did wrong! Anyway, it was scraping the back of my car ( it also blew out one my headlights during the attack ). It then got up on my side and began to ram into my car. I was terrified, as anyone should be from a muscle car trying to send them flying off the road, and I did my best in order to prevent myself from crashing. However, after a solid 10 minute battle between 2 cars, I crashed into a telephone pole, the Cadillac flew down the road. And I never saw it again after.
+
+I did see some news stories from 1997 and 2005 and 2015 but nothing after that. I'm convinced  I encountered a monster on that road that night. I'm still surprised I'm alive. But even more surprised that the car might still be out there, running people off the road, probably killing a few. I hope I never see that evil mass of black metal ever again, and I hope you don't either.
