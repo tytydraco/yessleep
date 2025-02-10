@@ -152,7 +152,7 @@ The voice impaled my skull:
 
 It was not sound but *sensation*—the taste of copper and burnt honey on my tongue; the smell of glaciers calving into arctic seas; the pressure of a supernova’s shockwave flattening my form into nothingness. My knees buckled under its weight, yet my terror dissolved into a narcotic haze—thick as opium smoke—coating my mind in velvet oblivion.
 
-**COME.**  
+**COME TO ME.**  
 
 I moved without volition—a marionette tugged skyward by invisible strings. The angel’s carapace peeled open with mechanical precision, its segmented plates retracting like the petals of some obscene metal flower. Within lay a core of liquid light that churned and writhed like molten plasma. It cascaded over me in a torrent, dissolving my translucent flesh in layers: first skin (cold and sharp, like alcohol evaporating), then muscle (a sigh of release), then bone (the snap of a shackle breaking). I should have screamed—but instead, I *unraveled*.  
 
