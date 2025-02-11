@@ -510,4 +510,4 @@ He was still there. And somehow, he had reached out to me.
 
 The man in the portrait wasn’t just a distant relative. He was something else, something tied to this house, to the family. And now, he was trying to claim me.
 
-I didn’t sleep that night. I didn’t know if I ever [would again.](https://www.youtube.com/@CreepyStoriesJR)
+I didn’t sleep that night. I didn’t know if I ever [would again.](https://www.reddit.com/user/CreepyStoriesJR/comments/1ilh8mp/creepystoriesjr_story_list/)
