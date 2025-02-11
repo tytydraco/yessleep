@@ -1,12 +1,12 @@
-***I*** trudge the last few steps through the familiar gravel, the uneven path poked through my black flats. Ma’ always told me I could sleep on my own two feet—until now, I didn’t think that was possible. Maybe it’ll be different tonight. Though since my Mother's funeral, I haven't had a good night's rest, and now after Dad’s I don’t think I ever will. 
+***I*** trudge the last few steps through the familiar gravel, the uneven path poked through my black flats. Ma’ always told me I could sleep on my own two feet—until now, I didn’t think that was possible. Maybe it’ll be different tonight. Since my Mother's funeral, I haven't had a good night's rest, and now after Dad’s I don’t think I ever will. 
 
-The barking coming from the house brings a spring to my step as Grandma struggles to balance the dishes in her arms, not willing to accept any help until she complains. Pongo—the fluffy black border collie rushes out of the house jumping with his full strength, almost knocking me off my feet. Border collies may not be too big, but they're still strong, and Pongo made that clear by knocking me on my butt. At least he seems pleased. I roll my eyes at him clutching my stomach trying to catch my breath.
+The barking coming from the house brings a spring to my step as Grandma struggles to balance the dishes in her arms, not willing to accept any help until she complains. Pongo—the fluffy black border collie rushes out of the house jumping with his full strength, almost knocking me off my feet. Border collies may not be too big, but they're still strong. I roll my eyes at him clutching my stomach trying to catch my breath.
 
 “Come on, Abbie dear, help me set the table.” Grandma Cecil sighs into the dry air numbly strolling into the small kitchen. I don't mention that we ate only an hour ago. I stumble through the front entrance hurrying to take off my muddy shoes. Pongo follows me close behind.
 
-The bay window facing the sunset fills the dining room with a warm light as I throw my itchy black wool coat onto the older-than-dirt coat rack, rushing to my Grandmother’s side. I withdraw the casserole dishes from her unsteady hands and quickly dump them on the counter. Grandpa, hot on our trail—thundering stomps creaking against the old wooden floor, giving him away.
+The bay window facing the sunset fills the dining room with a warm light. I throw my itchy black wool coat onto the older-than-dirt coat rack, rushing to my Grandmother’s side to help. I withdraw the casserole dishes from her unsteady hands, quickly dumping them onto the counter. Grandpa, hot on our trail—thunderous, loud awkward stomps creaking against the old wooden floor. Giving him away.
 
-Grandma was angry all morning about this. He felt he didn’t need to bother dressing appropriately. He was barely willing to wear black, but him having a conniption from Grandma’s morning wails; a few hours before the wake he finally gives in. Grandma wins *most* of the time. Thankfully.
+Grandma was angry all morning about this. He felt he didn’t need to bother dressing appropriately for the funeral, not for a ‘coward’ he said. He was barely willing to wear black, but him having a conniption from Grandma’s morning wails a few hours before the wake he finally gives in. Grandma wins *most* of the time. Thankfully.
 
 But he still kept his work boots on no matter how Grandma pleaded. Grandpa Henry Finch was no pushover and has been a stubborn bastard the day he was spat out of his mother’s womb. From what Dad told me he was an awful child and a more awful man, and would mumble that a lot, especially after a fresh argument with the so-called bastard. He would call him a bastard a lot too. Ma’ didn’t like it when he talked about Grandpa like that, so he usually did it on his smoke breaks.
 
@@ -48,7 +48,7 @@ The horn blared off before the silver metallic semi was visibly driving up acros
 
 Shaking myself from the mud that coated my rainboots and quickly throwing my gloves to the wet dirt I ran, following the cobble path towards the driveway.
 
-The old rusted lamp post flickers before I stop right under its beam of light, not just a step behind my anxious grandparents. Grandma clung to Grandpa before he shrugs her away, slowly trudging towards the parked semi, the smoke clouds coming off it like it had its own personal fog attached.  As I run, quickly running out of breath, but still stampeding full ahead—I accidently, like that clumsy nitwit I am, slam myself into the flickering lamp post center of the gravel entrance way.
+The old rusted lamp post flickers before I stop right under its beam of light, not just a step behind my anxious grandparents. Grandma clung to Grandpa before he shrugs her away, slowly trudging towards the parked semi, the smoke clouds coming off it like it had its own personal fog attached.  As I run, quickly running out of breath, but still stampeding full ahead—I accidently slam myself into the flickering lamp post center of the gravel entrance way.
 
 The light flickers and its pitch black, time stops.
 

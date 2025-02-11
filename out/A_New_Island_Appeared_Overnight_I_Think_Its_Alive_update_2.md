@@ -84,8 +84,6 @@ The tree, now still, settles into the ground, resting amid the mess. I’ve had 
 
 "Is this thing on again!? Fucking hell. Steven!"
 
-
-
 12:00 PM
 
 Alright, everyone’s geared up for our first expedition into the cave system. Dan, almost like a miner, is ready. Tanya’s staying back, but I’m to bring any samples I can. Steven is joining us through his droid—kind of a robo-dog setup. Alex decided the cave folk needed her medical knowledge, so she came with us. The older guard, I’ve decided to call Richard, and I’ve put him in the system.
@@ -116,11 +114,7 @@ No idea how she stays upbeat, but I’m not complaining.
 
 “HvjrEvjfvnRfnE”???
 
-
-
 We’ve gone 150 meters now, and I’ve lost sight of Steven. I can’t even hear the droid’s mechanical whirring anymore. The signal .. getting choppy.  I’ll finish this report when we’re out.
-
-
 
 5:00 PM
 
@@ -154,7 +148,6 @@ The tree hasn’t moved. It’s dug deep into the ground, but every now and then
 
 I’m signing off early tonight. I need to rest. Hope you like the formatting better. God forgive me if I make a mistake. Will log in again if anything happens.
 
-
-
 **Logging off…**
 
+[Part 1](https://www.reddit.com/r/nosleep/comments/1il4x75/a_new_island_appeared_overnight_i_think_its_alive/)
