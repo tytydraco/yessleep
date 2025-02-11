@@ -174,25 +174,25 @@ They stepped through first—their forms unraveling into shadow-puppet silhouett
 
 I followed.
 
-**The air turned gelid**, thick with the sterile stench of formaldehyde and ozone. The room’s whiteness wasn’t just light—it was *absence*, leaching color from my vision until the world blurred into a nauseating void. Then I saw them: **a thousand eyes**, bulging from every surface like tumors. Their lids peeled back wetly, irises kaleidoscoping between reptilian slits and human pupils, each gaze drilling into me with predatory focus. The floor undulated faintly, a living carpet of eyeballs rolling beneath my feet, their viscous tears pooling around my ankles.
+The air turned gelid, thick with the sterile stench of formaldehyde and ozone. The room’s whiteness wasn’t just light—it was *absence*, leaching color from my vision until the world blurred into a nauseating void. Then I saw them: *a thousand eyes,* bulging from every surface like tumors. Their lids peeled back wetly, irises kaleidoscoping between reptilian slits and human pupils, each gaze drilling into me with predatory focus. The floor undulated faintly, a living carpet of eyeballs rolling beneath my feet, their viscous tears pooling around my ankles.
 
-**The golden slab dominated the room**, sculpted into a gargantuan hand frozen mid-*reach*, fingers curled into talons. Its surface writhed with glyphs that squirmed like tapeworms, their edges glowing faintly bioluminescent, as if fed by rot. The air around it warped, humming with a subsonic frequency that vibrated my teeth.
+The golden slab dominated the room, sculpted into a gargantuan hand frozen mid-*reach*, fingers curled into talons. Its surface writhed with glyphs that squirmed like tapeworms, their edges glowing faintly bioluminescent, as if fed by rot. The air around it warped, humming with a subsonic frequency that vibrated my teeth.
 
 *“Lie down.”*
 
 The shorter one’s voice wasn’t a sound—it was a command etched directly into my skull.
 
-**I stumbled backward**, but the eyes on the floor *shifted*, their collective gaze herding me toward the slab. My chest-light flickered erratically, casting jagged shadows that slithered up the walls like sentient stains.
+I stumbled backward, but the eyes on the floor *shifted*, their collective gaze herding me toward the slab. My chest-light flickered erratically, casting jagged shadows that slithered up the walls like sentient stains.
 
 *“Lie. Down.”*
 
 His words splintered into echoes, each syllable sharper than the last.
 
-**Light-ropes lashed out**—serpentine tendrils of liquid nitrogen, hissing and steaming as they coiled around my limbs. Their touch *burned* with a cold so absolute it felt like fire, searing through my spectral flesh into the core of whatever passed for my soul. I screamed, but the sound fractured into static, swallowed by the room’s insatiable whiteness.
+Light-ropes lashed out—serpentine tendrils of liquid nitrogen, hissing and steaming as they coiled around my limbs. Their touch *burned* with a cold so absolute it felt like fire, searing through my spectral flesh into the core of whatever passed for my soul. I screamed, but the sound fractured into static, swallowed by the room’s insatiable whiteness.
 
 The slab throbbed beneath me, its vibrations syncing with my unraveling pulse. The glyphs squirmed faster now, forming patterns that made my mind recoil—a language of tumors, of broken bones, of starved things chewing through the walls of reality.
 
-The taller one raised a **prismatic shard**, its edges fracturing light into colors that *hurt*—ultraviolet, infrared, hues no human eye should perceive. *“Painless,”* he lied as he drove the shard into my shoulder blade.
+The taller one raised a *prismatic shard,* its edges fracturing light into colors that *hurt*—ultraviolet, infrared, hues no human eye should perceive. *“Painless,”* he lied as he drove the shard into my shoulder blade.
 
 **My memories hemorrhaged**.
 

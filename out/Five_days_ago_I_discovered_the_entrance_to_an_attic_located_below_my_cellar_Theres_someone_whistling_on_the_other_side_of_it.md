@@ -54,7 +54,7 @@ The noise was shrill, oddly familiar, and it wasn’t coming from the wilderness
 
 I sprang from my rocking chair to face the disembodied sound drifting through the open door. The act of me jumping up made a lot of noise; the feet of the chair creaking, the thump of my boots slamming against the floorboards. But the whistling didn’t react. It didn’t slow or stop. The melody kept on, eerily unphased by the abrupt calamity.
 
-As I stood in front of the doorway, terror galloped through me, shaking my body like the thrums of an earthquake. Eventually, adrenaline converted fear into anger, and anger always comes packaged with a bit dumb courage. I grabbed a baseball bat from my mom’s old truck and proceeded to do laps through the hallways of my childhood home with a teetering look of confidence.
+As I stood in front of the doorway, terror galloped through me, shaking my body like the thrums of an earthquake. Eventually, adrenaline converted fear into anger, and anger always comes packaged with a bit of dumb courage. I grabbed a baseball bat from my mom’s old truck and proceeded to do laps through the hallways of my childhood home with a teetering look of confidence.
 
 As I stomped from room to room, the melody ringing in my ears, salty tears unexpectedly welled up under my eyes. The airy refrain was just so familiar, but I still couldn't discern *why* it was familiar.
 
@@ -68,7 +68,7 @@ My mom needed supplemental oxygen in the last few months of her life, and this i
 
 I stared at the closed passageway from the safety of the cellar landing, but I did not dare approach. Not that night, at least. Instead, I let the baseball bat fall limply from my hand, turned around, and walked back up the stairs.
 
-Numbed to the point of indifference, I continued another flight of stairs up to my bedroom, and I immediately crumbled onto my mattress.
+Numbed to the point of indifference, I continued up another flight of stairs to my bedroom, and I immediately crumbled onto my mattress.
 
 Five days ago, utter exhaustion allowed rest to come easily.
 
