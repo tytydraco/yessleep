@@ -1,10 +1,10 @@
 ***I*** trudge the last few steps through the familiar gravel, the uneven path poked through my black flats. Ma’ always told me I could sleep on my own two feet—until now, I didn’t think that was possible. Maybe it’ll be different tonight. Though since my Mother's funeral, I haven't had a good night's rest, and now after Dad’s I don’t think I ever will. 
 
-The barking coming from the house brings a spring to my step as Grandma struggles to balance the dishes in her arms, not willing to accept any help until she complains. Pongo—the fluffy black border collie rushes out of the house jumping with its full strength, almost knocking me off my feet. Border collies may not be too big, but they're still strong, and Pongo made that clear by knocking me on my butt. At least he seems pleased. I roll my eyes at him clutching my stomach trying to catch my breath.
+The barking coming from the house brings a spring to my step as Grandma struggles to balance the dishes in her arms, not willing to accept any help until she complains. Pongo—the fluffy black border collie rushes out of the house jumping with his full strength, almost knocking me off my feet. Border collies may not be too big, but they're still strong, and Pongo made that clear by knocking me on my butt. At least he seems pleased. I roll my eyes at him clutching my stomach trying to catch my breath.
 
 “Come on, Abbie dear, help me set the table.” Grandma Cecil sighs into the dry air numbly strolling into the small kitchen. I don't mention that we ate only an hour ago. I stumble through the front entrance hurrying to take off my muddy shoes. Pongo follows me close behind.
 
-The bay window facing the sunset fills the dining room with a warm light as I throw my itchy black wool coat onto the older-than-dirt coat rack, rushing to my Grandmother’s side. I withdraw the casserole dishes from her unsteady hands and quickly dump them on the counter. Grandpa, hot on our trail—big clompy stomps creaking against the old wooden floor, giving him away.
+The bay window facing the sunset fills the dining room with a warm light as I throw my itchy black wool coat onto the older-than-dirt coat rack, rushing to my Grandmother’s side. I withdraw the casserole dishes from her unsteady hands and quickly dump them on the counter. Grandpa, hot on our trail—thundering stomps creaking against the old wooden floor, giving him away.
 
 Grandma was angry all morning about this. He felt he didn’t need to bother dressing appropriately. He was barely willing to wear black, but him having a conniption from Grandma’s morning wails; a few hours before the wake he finally gives in. Grandma wins *most* of the time. Thankfully.
 
@@ -60,7 +60,7 @@ Grandma’s bony hands glue themselves to my shoulders, her damp sweat seeping i
 
 “We are only entering this property because we have the signatures on a contract giving us permission.” The lanky silhouette leaning against the metallic semi shrugs.  “We have every right to place this new equipment and feed here. The contract was signed off by the two co-owners Mr. David and Wayne Finch. They signed off on only using *All and Sundry* equipment and feed for their farms. Then in turn gaining all the free services by adding our label to your products, of course.”  
 
-From some unknown cue, out from the semi, the equipment was being placed onto our property-brand new and worth more than our entire livestock. A new tractor for the fields and an extra to boot! They all had the same metallic shimmer the semi was coated in; a signature look of *Sundry and Co*. The brand new, sterile equipment seemed too *shiny* for something that's supposed to create new life. As if they belonged in a hospital rather than a ranch.	
+From some unknown cue, out from the semi, the equipment was being placed onto our property-brand new and worth more than our entire livestock. A new tractor for the fields and an extra to boot! They all had the same metallic shimmer the semi was coated in; a signature look of *Sundry and Co*. The brand new, sterile equipment seemed too *shiny* for something that's supposed to create new life. As if they belonged in a hospital rather than a ranch.
 
 Trying to evade Grandma Cecil's hands I peer into the darkness, the moving figures disperse out of the semi one by one. Squinting my eyes, barely able to make out anything under the flickering lamp posts; my only form of direct light, only able to see silhouettes emerging from the large vehicle. Dispersing with the tractor and loads of feed they were worker ants united as one big hive.
 
@@ -129,4 +129,3 @@ Shoving my Dad’s flannel shirt under my pillow and gently placing my Mom’s r
 Breathe in and out. I try to fall asleep, trying to remember anything *else* but the past few days. Just *try* to imagine...**try**; they're in their bedroom sleeping not a few feet away from me, right…there. Closing my eyes tight, I pretend; just for one night. 
 
 Just for tonight.
-
