@@ -58,7 +58,7 @@ His confidence in asking the question was a bit frustrating. As if I were qualif
 
 The boy gave another quick smile and seemed to think about my answer for a few seconds. He turned in his chair and jumped down, turning towards the back of the white room. I followed his gaze where it had landed on another door. The door was dark, just like the first, with the same metal handle. Had it been there all along? I hadn't recalled seeing it prior.
 
-"Where does that lead?" I asked the boy, approaching the door with alongside him.
+"Where does that lead?" I asked the boy, approaching the door alongside him.
 
 "Out, of course." He said, as if the question were the silliest thing anyone had ever asked.
 

@@ -191,3 +191,5 @@ Someone clapped me on the shoulder from behind and I just about jumped five feet
 I rounded on her, jabbing a finger in her face. I didn't care if she could see me clearly or not, I wanted to give her a piece of my mind; tell her to cut the crap and that I'd find an Uber if she wouldn't take me back home right now. But before I got the chance, a large clawed hand closed itself around my throat.
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/1idukrx/i_fucked_up_a_ghost_summoning_ritual_now_theres_a/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1immav8/i_think_i_opened_a_portal_to_hell_in_the/)

@@ -133,3 +133,5 @@ Had I always been this selfish?
 Fighting the instincts that screamed at me to keep them shut, I pried my eyes open. I was going to find a way to help them whether this room liked it or not. There were symbols on the sign that sat propped up on the table that hadn't been there before - they looked like they didn't belong to our alphabet. '*Evagrius Ponticus*,' was the English translation when I looked it up, and don't ask me how, but the moment I first saw those symbols I just knew it was a name. The name of someone very important to this place who might just be the key to how it worked.
 
 That's the last thing I remember before Kat bolted from the room and back into the mist, Arnold hot on her heels. None of us knew what that room was, but we were smart enough to understand at least one thing: it sure as hell wasn't a good place to rest.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1immav8/i_think_i_opened_a_portal_to_hell_in_the/)

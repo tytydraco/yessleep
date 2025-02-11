@@ -1,61 +1,3 @@
-First, there was the dying.  
-
-The highway unspooled like a strip of charcoal beneath a sickly purple dusk. My hands strangled the steering wheel, still trembling from ten hours in the Amazon warehouse—a cavern of fluorescent hell where conveyor belts rattled like skeletons and managers barked through headset static. My shirt clung to my back, damp with the greasy sweat of exhaustion. Then, the fist.  
-
-It began as a pressure, a slow cinching beneath my ribs, as if an invisible hand were kneading my heart like dough. I rubbed my sternum, fingertips catching on the logo of my polo. The pain sharpened. By the time I veered onto the exit ramp, my breaths came in shallow sips, as though the air had been siphoned from the car. My pulse skittered—*rabbit-fast, rabbit-terrified*—against the cage of my ribs.  
-
-Gravel popped beneath my tires as I lurched into the driveway. The engine coughed into silence. Outside, the neighborhood slept under a sodium-vapor haze, the only sound the *tick-tick-tick* of cooling metal. I staggered out, legs jelly-weak, and the world tilted. The porch steps warped, wood planks stretching like taffy. My shoe caught the edge of the second step.  
-
-For a suspended heartbeat, I floated.  
-
-Then pavement rose—a cold, starless galaxy—to meet me. My elbows shredded on asphalt as I crab-walked backward, sneakers squealing, until the road cradled me. Headlights exploded in my vision. Tires screamed. A sedan halted inches from my skull, close enough to taste the acrid stink of scorched rubber. A woman tumbled out, her face moon-pale under the streetlamp’s jaundiced glow. “Oh God—!” Her voice cracked. “Are you—?”  
-
-She froze.  
-
-My mouth moved, but sound died in my throat.  
-
-My vision swam—her blonde hair smeared into a halo, her Honda’s hazard lights bleeding neon pink and green. The maple tree in my yard multiplied, three trembling copies clawing at a sky now spinning like a carousel. My heart galloped, a feral thing kicking at my ribs. She backpedaled, phone pressed to her ear.
-
-“*Send someone—he’s not breathing!*”  
-
-Sirens warbled in the distance. Time frayed:  
-Red and blue strobing lights cutting through shadows; gloved hands; a stretcher’s nylon straps biting into my shoulders; a paramedic’s walkie-talkie spitting jargon: *“VFib… BP 60 over palp… no carotid pulse…”*  
-
-“Stay with us, buddy.” A hand patted my cheek—vinyl glove cold and insistent. The oxygen mask clamped over my face reeked of plastic and desperation. Above me, the ambulance ceiling swam into focus: water-stained tiles; a Rorschach blot of old coffee (or blood?); a dangling penlight swaying like a metronome.
-
-Darkness yawned.
-
-I let it swallow me.
-
-Consciousness returned in shards:  
-Blurred ceiling tiles streaked past; wheels clattered beneath the gurney; antiseptic scorched my nostrils; voices spliced through fog.
-
-“—losing pulses—”  
-
-“—charge to 200—”  
-
-A crash cart rattled nearby as ER lights glared—merciless and interrogative—before sputtering into black.
-
-“We’re losing him!”  
-
-The shout pierced through sterile darkness like shattered glass.
-
-Then—
-
-*Nothing.*
-
-A void without temperature or sound or even vibration—the faintest hum of electricity absent from this place.
-
-*This is death*, I thought.
-
-*This is—*
-
-Later they’d explain it clinically: *Ventricular fibrillation,* the cardiologist said while tracing squiggles on an EKG printout: *Chaotic electrical impulses… no blood flow… miraculous you’re here.* 
-
-But in those **10 minutes**, there were no monitors or medical Latin or miracles.
-
-Only the *other place*.  
-
 I woke on my back, spine pressed into a surface that mimicked grass—pliant yet unyielding, like memory foam carved into blades. Above me stretched a sky that defied language. Clouds hung frozen, their edges unnaturally crisp, as if cut from bleached felt and glued to an abyss. The void behind them was not mere darkness but *erasure*, a vacuum that gnawed at the edges of perception, like staring into the static between radio stations. Only the clouds tethered me to reality, their faint bioluminescent glow suggesting some alien photosynthesis, pulsing in slow, arrhythmic waves.
 
 The field stretched infinitely in all directions, a fractal nightmare of uniformity. Each blade of grass was identical—chartreuse at the base, fading to citrine at the tip, precisely three millimeters wide. No soil nestled between them; they sprouted from a seamless mat of dull silver, like AstroTurf woven by machines. When I pressed my palm down, the stems didn’t bend. They resisted like plastic bristles yet emitted a faint organic musk—sweet and cloying, like rotting lilies. The air hung thick, devoid of humidity or temperature, as though the atmosphere itself had been vacuum-sealed.
@@ -376,4 +318,4 @@ I know what you’ll say.
 
 But lean close—I’ll show you the scars where they tried to carve me open…  
 
-how it glows in the dark at 10:00 PM. 
+how they glow in the dark at 10:00 PM. 
