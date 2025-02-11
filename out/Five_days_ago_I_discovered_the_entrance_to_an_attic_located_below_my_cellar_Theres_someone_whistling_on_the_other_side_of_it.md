@@ -52,7 +52,7 @@ The night after the funeral, I was sitting on the porch, absorbed in a moment of
 
 The noise was shrill, oddly familiar, and it wasn’t coming from the wilderness. It was someone whistling and they were behind me, projecting the melody from somewhere within the house.
 
-I sprang from my rocking chair to face the disembodied sound drifting through the open door. The act of me jumping up made a lot of noise; the feet of the chair creaking, the thump of my boots slamming against the floorboards. But the whistling didn’t react. It didn’t slow or stop. The melody kept on, eerily unphased by the abrupt calamity.
+I sprang from my rocking chair to face the disembodied sound drifting through the open door. The act of me jumping up made a lot of noise; the feet of the chair creaking, the thump of my boots slamming against the floorboards. But the whistling didn’t react. It didn’t slow or stop. The melody kept on, eerily unphased.
 
 As I stood in front of the doorway, terror galloped through me, shaking my body like the thrums of an earthquake. Eventually, adrenaline converted fear into anger, and anger always comes packaged with a bit of dumb courage. I grabbed a baseball bat from my mom’s old truck and proceeded to do laps through the hallways of my childhood home with a teetering look of confidence.
 

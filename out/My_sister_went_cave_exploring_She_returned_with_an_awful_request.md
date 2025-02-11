@@ -108,4 +108,4 @@ As I typed this out in bed, I just couldn't help thinking about what Em had said
 
 In her bedroom, when she'd flashed me her best grin.
 
-"I discovered what happens after death. You don’t make it there."
+"I discovered what happens after death. You won’t make it there."
