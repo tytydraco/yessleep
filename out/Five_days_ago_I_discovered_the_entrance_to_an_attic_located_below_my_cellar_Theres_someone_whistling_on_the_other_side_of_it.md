@@ -156,7 +156,7 @@ I failed to choke back a scream, but when it escaped my lips, they didn’t reac
 
 Their facial texture was horribly distorted, uneven and bubbling from chin to hairline. Both eyes were on their right side, one on their forehead and one where their cheekbone should be. I could appreciate nearly the entire curve of the higher eye as it bulged outward, while the other eye was reciprocally sunken, showing only the tip of a pupil peeking out from caving skin. Their mouth carved a diagonal line across the face, severing their visage into two equal, triangular spaces.
 
-They asked again, slower and somehow even deeper this time around, causing their face to practically bloom into a sea of red, pulsating tissue as their diagonal maw spread wide.
+They asked again, slower and somehow even deeper this time around, causing their face to practically bloom, revealing two petals of red, pulsating tissue as their diagonal maw spread wide.
 
 *“Iiiiisssss aaaaanyone tttthere?”*
 
