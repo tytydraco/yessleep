@@ -100,7 +100,7 @@ I sat in silence for a moment still trying to think of anything I could say to g
 
 "Yes. Sorry, babe. Okay, I'm on my way there now. Wait. What time is your meeting?"
 
-She sighed. "It's at 10:30, Robert, so I need to leave her in the next 30 minutes."
+She sighed. "It's at 10:30, Robert, so I need to leave here in the next 30 minutes."
 
 "Alrighty," I said. "I'll be there in half an hour." I knew I could have made it back to her house within five minutes but I didn't want to spend any more time there... any more time with him... than I had to.
 
@@ -402,7 +402,7 @@ Some sounded to be speaking gibberish but it also could have been some form of L
 
 I sat up in a complete panic! I checked on Piper again. Maybe she could hear them too? They were whispers but they were very loud so I was sure she would wake up! She did not.
 
-"Stop!" I said shouted. "*Stop!*"
+"Stop!" I shouted. "*Stop!*"
 
 The whispers only intensified.
 
@@ -418,7 +418,7 @@ I covered my ears and shut my eyes.
 
 Silence now.
 
-I opened my eyes and looked around the room. Nothing. All I could hear now was my own heartbeat pumping in my ears and the crickets chirping outside. The voices were now gone. I was sweating profusely and my hands were shaking. I couldn't seem to catch my breath but after a moment or two, I was able to get it back to being someone steady.
+I opened my eyes and looked around the room. Nothing. All I could hear now was my own heartbeat pumping in my ears and the crickets chirping outside. The voices were now gone. I was sweating profusely and my hands were shaking. I couldn't seem to catch my breath but after a moment or two, I was able to get it back to being somewhat steady.
 
 I was breathing so heavily and shouting so loud I was surprised Piper didn't wake up.
 

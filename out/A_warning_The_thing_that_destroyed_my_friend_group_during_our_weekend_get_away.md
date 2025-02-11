@@ -1,0 +1,34 @@
+I'll have to write this quick, I'm not sure how long I have before it's all over but it must be done. You have to know about this thing, and what it's done.
+
+  
+A few days ago, me and my friends, Carol, Amy, Jake, and Dave booked a weekend stay at a cabin near a lake to celebrate Amy's birthday. There was a rule when we booked the cabin, under no circumstances were we to go into the basement. The owner even added on that if we did, we weren't to open any books we found down there. I'd wished we listened.
+
+  
+Our first day at the cabin, Friday, went normal enough. We got to the cabin late in the day, made ourselves some dinner with the grill outside, had a few drinks and picked out rooms. We learned during this day that most of us didn't have signal out here, and unfortunately there was no wifi, I'm the only one who has any signal. While we were settling down, we realized we didn't have enough blankets for all of us, so Dave brought up the idea that there may be more in the basement. I brought up the rule about no going down there, but I was out voted. So, we made our way down. It seemed to be some sort of old wine cellar, with only an old wooden chest left in the room.
+
+  
+Jake was the one who opened the chest, and the only think inside was an old, leather bound book. Before I could bring up what the owner said, he opened the book and began to read through us. He said it was some kind of first person horror novel, telling the story of an encounter with some horrifying monster. He showed us each the page that described the beast. First Carol, then Dave, and lastly Amy. Before he could show me, I grabbed the book, closed it and told him we shouldn't be down here or reading that. I tossed it back into the chest, and closed it. That's when the first odd occurrence happened: As soon as I closed the chest all my friends lifted there heads. Amy suddenly asked, "Did you guys hear that?" I told them to stop messing with my and went up to go to bed.
+
+  
+The next morning, we couldn't find Jake anywhere. We thought he might have run into town to get something, but the car was Dave's and it was still there. We started looking for him, but there was no sign of anyone leaving the cabin at all. While we were looking we heard some rustling in the woods, but when we went to investigate it, there was nothing there. The others claimed to have heard some sort of growling, but I didn't hear anything. We started walking back to the cabin, with the others suggesting I call the police. As I went to grab my phone, I suddenly heard Carol let out a bloodcurdling scream. I flipped around and saw the silhouette of some huge *thing* grabbing Carol and running off into the woods with her. Me and Dave gave chase, trying to catch up to whatever it was. I spared a glance to him and looked sick to his stomach, I knew he must've gotten a clear look at it.
+
+  
+Unfortunately, our chase lead to nothing. As soon as we got back into the woods there was no sign of that thing, or Carol. It was as if they'd vanished as soon as they'd hit the tree line. Dave said we should run back to the cabin, he sounded so freaked out that I didn't question him. As we ran back to the cabin he keep muttering, "That was it..." over and over again. As soon as we got back, he ushered a very scared Amy back into the cabin. As soon as all three of use were in he barricaded the door with the table before leading us down to the basement.
+
+  
+Once we were down there, he opened the chest and grabbed the book. Flipping to the page the others looked out yesterday he pressed it into my hands, saying that the description in the book matched exactly what the thing that grabbed Carol looked like. I looked over at Amy, who looked like she was about to throw up but she nodded her head. We read a bit further into the book, which made it clear that calling the police wouldn't be a good idea, it would only put more people in danger.
+
+  
+We kept ourselves barricaded in the cabin for a while, till around about 3PM. That's when I saw it for the first time. We heard movement from outside the cabin, and suddenly from the big window it appeared. That thing, that terrifying thing. It's six gangly limbs, it's 3 piercing red eyes, and two mouths... It had two mouths, one large and filled with teeth, one a snout like a wolf or a bear. The other... was almost human like, sandwiched between it's three eyes. And it's back was the most disturbing part, it was covered with tendrils, which lashed around as if they were looking for something; as if it saw more through them than it's eyes.
+
+  
+We held our breaths, praying that it wouldn't notice us. But we had no luck, of course. The thing came crashing through the window, immediately rushing towards Dave. I'm not proud of the fact that me and Amy just fled. I pushed the table away from the door and the two of us ran from the cabin. We debated what to do, but at this point we knew we couldn't really escape it. It had marked us, and would keep hunting us until it got what it wanted. It's not like we could drive away, anyway, Dave was the one with the keys. We tried to find a way off the property, but as the book described every path seemed to bring us to the lake. To it's territory.
+
+  
+We tried in vain till midnight, when suddenly we heard Carol's voice calling for help from the woods. We ran to her, desperately hoping she'd survived somehow. But we reached the tree line, her voice faded. Suddenly some of the tendril's from the creature's back lashed out and grabbed Amy. She was gone. I couldn't stop it and I knew I was next. So, I did the only thing I could think of. I bolted back to the cabin, down to the basement. I tried to destroy the book, hoping that would kill it, but I couldn't it was impossible. Nothing I tried worked, I couldn't tear the pages, I couldn't burn it, I couldn't get rid of it.
+
+  
+The basement door was locked, but I knew that wouldn't stop it. Around 8AM the next day, I heard it. Banging against the basement door, trying to break it down. I heard the wood snapping and... And now I'm writing this.
+
+  
+And if you are reading this, I am so... so sorry. You've signed your death warrant. You had, as soon as you read my description of it. That's how it works, you have to read about it first... from it's host. It was bound to the book, as we once we read it. That's why I couldn't hear it at first, see it at first; that's why we couldn't get away. I couldn't say before, I'm sorry. The internet, this story, is it's host now. Which makes the world it's territory. I didn't want this, but I had no choice. Neither did the man before me, the one who wrote the book. Maybe you'll be one of the lucky one, who it won't come after till later, but if you're reading this it will come for you. I'm so sorry.
