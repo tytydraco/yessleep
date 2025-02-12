@@ -68,4 +68,4 @@ As the gnome and Mr. Benister started walking towards me to leave the forest the
 
 “Don’t have too much fun while I’m gone. The real party will happen when I get back.”
 
-I watched the gnome skip out of sight with Mr. Benister in tow.  I knew it would be a while until the gnome got back because he could only make the old man walk so fast, which meant, I had some work to do.
+I watched the gnome skip out of sight with Mr. Benister in tow.  I knew it would be a while until the gnome got back because he could only make the old man walk so fast, which meant, [I had some work to do.](https://www.reddit.com/r/nosleep/comments/1inhzqm/im_a_retired_hunter_of_the_supernatural_i_really/)
