@@ -1,13 +1,13 @@
 
 There will be no emergency alert from the government.
 
-This post is all you have, and you must read it immediately because it’ll vanish soon.
+This post is all you have, and you must read it immediately; it’ll vanish soon.
 
 On Monday 10th February, half of my town’s inhabitants woke to find themselves afflicted with a headache. And we treated it as a commonplace outbreak of the winter flu; much like the ever-elusive snow day, the “town cold” is a one-per-annum staple of the season—in both cases, adults despair, and opportunistic schoolchildren treasure that day off school.
 
 My point is that an outbreak of the flu is nothing out of the ordinary in our town.
 
-But it ISN’T the flu.
+But this ISN’T the flu.
 
 And it isn’t confined to this town—it’s everywhere.
 
