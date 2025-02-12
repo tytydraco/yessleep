@@ -45,7 +45,7 @@ It sounded like someone had rapped their knuckles *twice* on wood.
 
 *What the fuck?*
 
-“Dad? Is that you? I shouted down the hall.
+“Dad? Is that you?" I shouted down the hall.
 
 But no. Of course it wasn't. He had left twenty minutes ago for a meeting downtown. 
 
@@ -103,7 +103,7 @@ There was nothing standing in my hallway. 
 
 In fact, there was less than nothing… my hallway didn’t exist.
 
-Instead of wooden floors and grey baseboards, I was instead staring into a sort of  *mirror image*. I saw a copy of my bedroom on the *other* side of the door. My bed, my window and even an identical version of my math book were lying on the floor. Everything that existed in my room, existed reversed in *that other room* too.
+Instead of wooden floors and grey baseboards, I was staring into a sort of  *mirror image*. I saw a copy of my bedroom on the *other* side of the door. My bed, my window and even an identical version of my math book were lying on the floor. Everything that existed in my room, existed reversed in *that other room* too.
 
 Well, everything except *me.* 
 
@@ -137,7 +137,7 @@ The two inches of thickness to my door suddenly *disappeared*. Its like the thre
 
 “Oh God.” 
 
-All I could do was run into the corner behind my original bed. I held out my bat. 
+All I could do was run into the corner behind my original bed. 
 
 “Please no. Go away.”
 
@@ -163,7 +163,7 @@ Its prismatic hand raised up. Then pointed at my face.
 
 I didn’t understand. *Was it asking me which dimension I wanted to lose?* 
 
-My gaze shifted to my crumpled paper-like “door” in the corner. 
+My gaze shifted to my crumpled, paper-like “door” in the corner. 
 
 If I lost my depth like my door, I’d become as flat as a cutout. In fact if I lost my width, or length or any dimension, the result would be the same. I’d become a 2D slice. A skin flake. 
 
