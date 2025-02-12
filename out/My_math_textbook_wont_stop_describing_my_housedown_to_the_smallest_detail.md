@@ -171,9 +171,9 @@ There’s no way I could survive that.
 
 That was death.
 
-Then, out of nowhere, my stupid cat-meow alarm went off on my phone. The digital clock on screen reminded me to water the kitchen plants. But just by seeing the time, I was reminded me of something else…
+Then, out of nowhere, my stupid cat-meow alarm went off on my phone. The digital clock reminded me to water the kitchen plants. But I was also reminded of something else…
 
-Shuddering, I pointed at the clock mounted above my bed.
+I pointed at the clock mounted above my bed.
 
 “Time. That’s a dimension isn’t it?”
 
