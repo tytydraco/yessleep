@@ -124,5 +124,4 @@ I have struck a deal with The Nicolaysen Art Museum, in Casper. The body will be
 
 I hope this will suffice enough, Maggie. 
 
-For Your Consideration.
-
+For Your [Consideration.](https://www.instagram.com/benhohener/)
