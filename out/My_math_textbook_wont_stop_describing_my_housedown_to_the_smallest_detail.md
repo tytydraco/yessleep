@@ -10,7 +10,6 @@ It was the hint that startled me. 
 
 Because I had once measured the length of my window with my dad, and I remembered we needed a perfectly square piece of glass. The same length on both sides. 
 
-
 After completing the question, I decided just for laughs to make some measurements—*what were the odds of my room matching the exact description in this workbook?*
 
 My dad’s measuring tape was one of the heavy duty ones he used for his work. I weighted it down with one of my dumbbells, and dragged its yellow tongue until it measured each wall faithfully.
@@ -237,7 +236,7 @@ I hobbled backwards, feeling the pain in my lower back as I fought against my ol
 
 I went into the washroom, and cowered in the bathtub. The reflection of my new, wrinkled, white-haired face terrified me almost as much as my dad did.
 
-Through snot and tears I pleaded for my life. 
+Through snot and tears I pleaded for my life.
 
 “It’s me! Please dad! You have to believe me!”
 

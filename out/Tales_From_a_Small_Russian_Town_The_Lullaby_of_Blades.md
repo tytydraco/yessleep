@@ -1,0 +1,58 @@
+https://www.reddit.com/r/nosleep/s/HCakTC7kyq
+(Previous chapter)
+
+Sorry for the long wait, a lot has happened recently and i was too distracted. Let's start with some good updates, cause i just wanted to share. I reunited with my high school friends, because we got separated during my college years, i ended up feeling lonely without them, but i decided to text them all and i feel happier now. We played board games together and had lots of fun, it's like they never left my side. Honestly, knowing that there are people who i can call if something will go wrong, makes me feel a lot more safer, even if they won't believe me.
+
+But, i am not here to talk about how i played board games with my buddies. Some things happened recently that…made me feel a bit unsafe in my own home. Remember howni mentioned that police is investigating the Leaper case? Well, i haven't heard from them since. I mean, it probably takes a lot of time to investigate, but i start to suspect that something is off. I still have my camera running, incase he does return, or if something else would decide to visit me in the middle of the night. These recent happenings make me question not only what is going on in my home, but also why does it always happen to me.
+
+It's time for me to tell you another story that happened to me recently. Alright, so, i recently started hearing noises at night. I am a late sleeper, if you can call me that, i go to sleep at approximately 2 am, I don't know why my schedule shifted so much. Noises at late hours is not something rare for me. I could hear my upstairs neighbors talking above my bed sometimes, i could hear footsteps, things falling.. and even their private time. Sometimes, on rare occasions, they can get way too loud, making it hard for me to fall asleep. 
+
+But I recently started to hear very unusual noises outside my apartment. I heard strange scratching noises coming very close to my apartment in the main hall, behind my door. I heard them while i was trying to fall asleep, and they sounded way too close to my face, it's like something was in my wall. As i laid there, motionless, i listened to the scratches until they eventually stopped, and i was just left confused until i passed out.
+
+I decided to go and have a chat with my neighbour, and asked them why did i hear scratches coming from outside, very close to the door of their apartment. We have a main hall, and their apartment is stationed next to mine, to the left of my entrance, hope you use your imagination for this one. I thought they had a dog, but apparently my neighbour does not have any pets. They told me that maybe i should check my house for any holes in my walls and that maybe i have an unwanted rodent living in my walls. Considering that i did see rats running outside my house and houses down the road, it would not be surprising, but they would have to climb the stairs and chew their way through my concrete wall. I simply said that i might call a specialist and went back to my apartment. 
+
+Next night, i was staying up again, watching short videos on Youtube, i find the ones about very specific topics particularly interesting, like videos about gold fish, doves, legos, boomerangs and so on. It was 1 AM, and as i looked at my phone screen in complete darkness, i heard something completely unexpected.. the sound of a music box. I just stopped what I was doing and just listened in confusion as the sound of a quiet melody played behind my apartment door. What the actual hell. After some time has passed, it eventually went away, not just turned off or went quiet, it almost like whatever was holding the box left. I just subconsciously felt like i should go to sleep, i just had a feeling.
+
+Next morning i discovered scratches on my doormat and what seemed to be scratches on the wall of the hall. I didn't think much of it, after all i tend to not notice some things and only notice them after some time has passed. Like one time i saw a «Happy birthday» message outside my window on the toad written with chalk, and when i told my mom how cute it was, my mom told me that it's been there for months now. But i knew that this must be a recent occurrence, these noises must have some sort of sourse, and whatever it was, it visited me at night. 
+
+I still heard the scratches through my wall, i would hear the sound of the music faintly, and hear it fade away as whatever was behind my door left. I was not ready to get up and show that i was awake, i didn't want to peek through the peep hole, cause i just felt like if i show that i am awake this late, something bad would happen. And something, definetely happened.. but not to me.
+
+Remember my upstairs neighbors? They can get a bit rowdy at night, especially during holidays and some sort of celebrations. And that night, they were having time of their lives.. keyword here is WERE. As i listened to them sing some pop songs, and chat like a bunch of drunken sailors.. i heard one of their guests say that they heard scratching at the door. My ceiling and walls are not really thin, but for whatever reason i could hear very clearly what they say or do, i could even imagine what they are doing. One of the people above me decided to open the door.. and that's when i heard a yelp and the sound of deafening silence, like they were muted. Never in my life have i found silence so terrifying. All the commotion and music was ceased in a second.
+
+I could not take it anymore, i had to check on them. I ran out of the door in my pajamas, scaring my pets in process. I grabbed a knife and went to investigate, closing the door behind me, as quietly as possible. I ran upstairs, and heard the faint sound of the music box coming from an open door of the hall and the apartment door that was open wide, the lights were turned off as well. I slowly  and quietly walked into the apartment, and i saw a horrible sight. Everyone was dead, almost everyone had slices on their body and neck, one of them didn't have a head, i guess that was the loudest one. What could have done this in such a small amount of time.. the answer didn't keep me waiting.
+
+As i walked into the living room, i saw something twirling on the table. It was hard to see it in the darkness, but i could barely make out a feminine shape, almost like a ballerina, but it looked like it was made of metal. It's legs and arms were sharp blades, and it's dressed resembled a sawblade. It danced on the table next to bodies of my upstairs neighbors. I felt so bad for them, they were loud sure, but that thing didn't have to do all this. As i clenched my knife in my hand, i watched as it slowed down and faced me. I could barely make out it's face, a young female face with a yellowish eyes that looked right at me. It changed it stance into something that resembled a spider or maybe a cat, like it was about to pounce. It was pointless for me to fight, the only thing i could do against that thing was run, so i did. As i began to run away from it, i heard metalic clanking and squeeking of its limbs. 
+
+It was faster than me and it pushed me into the stairs, causing me to tumble and roll down them. As i fell, i saw it crawl towards me, it's eyes locked on me, it's blades stained in blood. As the Ballerina got closer i rolled over and ran to my floor, barely breathing. But i fell down the stairs again after i felt the back of my neck get sliced. The pain was unbrearable, but i had to get to safety. I ran to my apartment, closed the hall door and my own. I heard scratches coming from behind my door, it tried to break in. I closed the door shut, so there was no way it could break it open, but i was still preparing for the worst to happen. My dog started barking at the door, she tried to scare the intruder away, and i just sat on the floor holding the knife as my neck was bleeding. 
+
+I called the police and told them that a maniac entered our home and killed my upstairs neighbors. I just hoped that they won't assume that i did it. But as i stopped the call, i realized that the noise disappeared.. it left. Somehow it decided to leave me, i took a deep breath and waited for police to arrive. My neck got patched up thankfully when they arrived, they did ask me if i saw the killer or not, i simply told them that i couldn't see their face, but they looked like a woman. They told me to go to my apartment and take a rest, but that would be easier said than done.. 
+
+As i was about to go back, i was stopped by another policeman.
+
+«Elli, i presume?» - They said, holding my shoulder.
+
+«Yes. That is indeed my name. Is there anything wrong officer?» - I replied.
+
+«I recognized your face, you were the person who reported a man breaking into a house through the window, correct?»
+
+«Yes! Finally, is someone going to give me an update on the case!? Tell me, have you identified a person responsible?»
+
+«Well, we did.. but we have.. an odd problem.»
+
+«What is it?»
+
+«You see, we did indentify the person who did it, we found the fingerprints on the glass. But.. that's where things become strange. We found the culprit.. but the problem is we can't catch them.. we can't put a dead man behind bars»
+
+I felt chill run down my spine, as i realized that what i saw was not human. Was it a some sort of shapeshifting entity or a creature that took his skin? A zombie? Should i be worried about a future zombie apocalypse? 
+
+"You are saying that what broke into my place was a living corpse?"
+
+«There must be a non-supernatural explanation, there is a possibility that they just used a very realistic mask and some kind of gloves that imitate the finger prints of the person to hide their identity. But for now, we are not sure what to make of it. We will keep investigating the case in hopes of finding the real culprit»
+
+«How did that man die? The owner of the dingerprints»
+
+«He was found dead, buried down the street, a dog felt the smell in the ground while on a walk. We are not sure who the culrpit was.»
+
+We didn't spend too much talking, officer just wanted a quick talk with me before they could begin to investigate the crime scene. My neighbours held a small funeral of sorts at the crime scene after cops were done with it, gathering at the floor where tragedy happened, putting flowers at the door and plush toys. I had to join in, i couldn't tell them what i saw, either for their own safety, or out of fear. Police haven't said anything about the murderer, said there were no finger prints found, of course there weren't any, that thing had no fingers to speak of.. my wound still hurts, it was not really deep, but i am lucky that it did not cut off my head completely, i would not be able to tell the tale if that happened.
+
+I haven't heard scratches nor the music box since. For whatever reason that thing stopped appearing at my door. But just because it was not visiting me, doesn't mean it was not out there still, looking for it's next victim.. some individual who was still not asleep, maybe it can't hurt me because my door is shut. Ever since that night, i kept thinking about the nature of all the incidents that happened to me recently. With the revelation that the Leaper might be a dead man that came back to life made me ask so many questions in my head. All this felt ridiculous, like some nightmare that just keeps going, a nightmare that does not let me wake up. I had to find more answers, i needed to know if these incidents are related in some way. Maybe instead of calling the Police, i should call a local exorcist instead..
