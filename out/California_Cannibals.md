@@ -2,11 +2,11 @@ This was in December of 2017.
 
 I went to a famous pier in California and there was a performance happening with dancers. A humongous crowd was surrounding them & they were calling in people from the crowd to make a line for them to jump over etc.
 
-I dont think anyone else saw this because of how busy it was, but I noticed off in the distance a squirrel chewing on another squirrels ripped off head. 
+I don't think anyone else saw this because of how busy it was, but I noticed off in the distance a squirrel chewing on another squirrels ripped off head. 
 
 I had four rommates where I used to live and brought it up to the three that were home and no one had noticed this before, ever. 
 
-I looked it up online and see an article talking about the phenomenon noticed in California. But while scrolling I saw a restaurant called *The Cannibal.* I thought it was extremely ironic because for the first time ever I saw a squirrel eating another squirrel. 
+I looked it up online and saw an article talking about the phenomenon noticed in California. But while scrolling I saw a restaurant called *The Cannibal.* I thought it was extremely ironic because for the first time ever I saw a squirrel eating another squirrel. 
 
 At the time I was bored enough to check it out. I was getting paid the next day around 1 pm so I waited until then. Those three of my roommates didnt have money they wanted to spend on a random restaurant & I couldn't ask the fourth because he not only wasn't there but was rarely ever there so I had to go alone. I didn't even know him well. He was a friend of one of the other roommates and didn't talk much.
 
