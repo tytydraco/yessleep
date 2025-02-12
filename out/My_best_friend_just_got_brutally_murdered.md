@@ -1,0 +1,26 @@
+My phone began buzzing, the incoming video call was from Frankie's burner phone. My heart was palpitating rapidly, and a painful pit swelled up in my belly. The video feed lit up with a sinister ambiance as I answered, revealing a chilling scene. The screen was filled with hooded figures in an otherwise empty looking room. In middle of said room a figure was on its knees, with their hands tied behind their back.
+
+The room was dimly lit, and dank, the surroundings appeared to be the basement of a warehouse or factory. Large water pipes scaled the walls from the ceiling to the floor. There was a low, but constant hum of what I assumed to be machinery of some sort. One of the masked figures stepped forward, his gloved hands reaching to slowly remove the shroud of the kneeling person and revealed a terrified face. With a sudden and heart-wrenching gesture, Frankie’s identity was revealed, and I could see the fear etched into his eyes.
+
+Just then, Mr. Voss, the cold and ruthless figure, snatched Frankie’s phone and glared back at me with contempt. He wasted no time taunting me, his voice laced with sadistic pleasure, “We caught your rat where he doesn’t belong. How many of us have you executed? Dozens? More? It’s my turn, and I’m going to show you exactly what it feels like to lose your best friend.”
+
+Frankie’s vulnerability mirrored that of the rusting pipes and the crumbling shambles of the room around him. Mr. Voss focused the phone back on Frankie, before ordering one of his masked henchmen to deliver a brutal punch to Frankie’s face. His cruel laugh then filled the room, chilling me to the core. Through the laughing, “Damn, that looked like it hurt,” Malachi finished.
+
+Mr. Voss then asked the ominous question: If Frankie had any last words? With unyielding determination, Frankie raised his chin in defiance, and locked eyes with me. Even through the phone’s screen, I could feel his unwavering resolve. His voice, echoed through the sparse room and carried a message of strength: “Fenix, keep the mission alive. He who fears death is in denial,” he proclaimed.
+
+“How noble, stupid… but noble,” Malachi replied, before ordering his masked henchman to slowly withdraw something from just out of the camera’s frame. It was revealed to be a sawed-off shotgun. I felt helpless and panic surged through me, but I couldn’t look away. In an agonizingly slow moment, the shotgun was aimed directly at Frankie’s head.
+
+I didn’t even get a chance to bargain with them, and before I could close my eyes, there was a deafening blast that erupted from the screen. The masked guy squeezed the trigger and Frankie’s head exploded like a watermelon. The gory sounds of the remnants that used to be Frankie’s skull violently splattered to the ground. It was a tidal wave of blood, bone, and brain matter that scattered across the dirty concrete floor. 
+
+Malachi, his sinister face filled with malevolence, turned the phone back to himself. A cruel smile played on his lips as he issued a final warning, “This is just a small taste of what we will do to you, and everyone you love, if you don’t back off and stay out of our business. You have no idea what you’re fucking with.” With a sinister chuckle, the Malachi ended the call, leaving me with the haunting aftermath of Frankie’s gruesome demise. The lifeless phone slipped from my fingertips, and dropped to the ground at my feet. 
+
+My eyes instantly welled up and tears cascaded down my cheeks. I couldn’t get that image out of my head, and how my oldest, greatest friend was now gone in the blink of an eye. I had to break it to Jennifer, retelling what happened made me lose it all over again. Through my sniffling and tears, I went over the gruesome moment with as little details as possible. I had to protect her good memories of Frankie. I then broke the news to Veronica, and she was the only one who kept a brave face. She’s always been so strong, and she cared for me while I grieved. 
+
+As if watching everything unfold wasn’t horrifying enough, a week later I received an encrypted video file of Malachi directing his henchmen to dispose of Frankie’s body. The mountain of a man lifted Frankie’s body with relative ease, and pushed it forcefully into a wood chipper. The scene surrounding them was a densely thick forest. 
+
+The serene chirping of birds quickly became drowned out when Malachi flipped the switch and the machine whirred to life. The bloody remains spurted out the other side and into one of those lawn clipping collection bags. Mr. Voss, next turned the wood chipper off, and its roar immediately died. The giant brute then grabbed up the lawn bag and carried it over to an industrial sized drum. 
+
+The image then focused down into the barrel revealing a steaming, cloudy liquid. The camera panned down a little lower to reveal the contents of the barrel: hydrofluoric acid. The unnamed bodyguard then poured the squelching pile of gore into the barrel. The shredded flesh sizzled and hissed as it hit the acid. Within seconds, every proof of Frankie’s existence was completely dissolved into the caustic liquid. Malachi stared directly into the camera’s lens and smirked, “Just taking out the trash,” he finished with a wink. 
+
+
+This is the  worst thing I've ever witnessed, but if there's any interest, I might provide an update once things cool off. 
