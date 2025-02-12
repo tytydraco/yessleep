@@ -28,7 +28,7 @@ When the movie finished Piper gently picked up the little guy and brought him in
 
 
 
-That night, while lying in bed next to her, I heard tiny little footsteps headed toward the bedroom. I knew it had to be Milton, likely coming into lay with his Mom who was already fast asleep. You know how toddlers are. They fall asleep in their beds but in the morning you're waking up next to them in *your* bed. I heard the tiny feet scamper into the bedroom. I immediately got up and stood next to the bed. It was much too dark to see anything and I didn't wanna knock the little dude over so I said allowed: "Hey, Milton, buddy. Did you wanna lay with your Mom? It's okay if you do. I'll go lay on the couch."
+That night, while lying in bed next to her, I heard tiny little footsteps headed toward the bedroom. I knew it had to be Milton, likely coming into lay with his Mom who was already fast asleep. You know how toddlers are. They fall asleep in their beds but in the morning you're waking up next to them in *your* bed. I heard the tiny feet scamper into the bedroom. I immediately got up and stood next to the bed. It was much too dark to see anything and I didn't wanna knock the little dude over so I said alouded: "Hey, Milton, buddy. Did you wanna lay with your Mom? It's okay if you do. I'll go lay on the couch."
 
 Silence. 
 
