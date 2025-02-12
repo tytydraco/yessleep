@@ -8,7 +8,7 @@ I had four rommates where I used to live and brought it up to the three that wer
 
 I looked it up online and see an article talking about the phenomenon noticed in California. But while scrolling I saw a restaurant called *The Cannibal* (you can look it up) I thought it was extremely ironic because for the first time ever I saw a squirrel eating another squirrel. 
 
-At the time I was bored enough to check it out. I was getting paid the next day around 1 pm so I waited until then. Three of my roommates didnt have money they wanted to spend on a random restaurant & I couldn't ask the fourth because he not only wasn't there but was rarely ever there so I had to go alone. I didn't even know him well. He was a friend of one of the other roommates and didn't talk much.
+At the time I was bored enough to check it out. I was getting paid the next day around 1 pm so I waited until then. Those three of my roommates didnt have money they wanted to spend on a random restaurant & I couldn't ask the fourth because he not only wasn't there but was rarely ever there so I had to go alone. I didn't even know him well. He was a friend of one of the other roommates and didn't talk much.
 
 I walked into the restaurant and it smelled like pork. There was a glass case on display that had all types of cuts but they were extremely large. Labeled as beef etc but the entire place just smelled like pork.
 
