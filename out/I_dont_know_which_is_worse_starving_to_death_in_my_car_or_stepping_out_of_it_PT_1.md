@@ -189,3 +189,5 @@ Caine got back into bed.
 Despite his reasons for shooting the woman, I could hear the unease in Caine’s voice. I got into my bed feeling light, and my sleep was fragmented. Memories of the woman’s head disappearing in an explosion of blood and viscera kept coming back to me.
 
 As I write this post now in my car, I can feel my hands shaking and my eyes beginning to become heavy. I feel weak. I haven’t eaten in days, I think weeks. I’m able to feel my ribcage right now, and my clothes feel too heavy on me. I’m going to post what happened the next day when I wake up; that may be tomorrow, that may be in a few days. I can’t tell. I feel too weak and tired.
+
+[PART 2](https://www.reddit.com/r/nosleep/s/gsj7mcHZmg)
