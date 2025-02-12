@@ -187,7 +187,7 @@ The Euclidean Primitive turned to face the clock. Its mirrors began to glow.
 
 I swallowed a grapefruit down my throat, hoping this might save me from becoming a dead two-dimensional pancake. “Yes. Please. Take time. Take all you want.” 
 
-*I mean there’s lots of Time to go around isn’t there?* I thought to myself.
+*I mean there’s lots of time to go around isn’t there?* I thought to myself.
 
 The prismatic golem outstretched its mirror arms—which produced a fierce, bright light.
 
@@ -235,11 +235,11 @@ I watched my dad’s eyes fill with a fury I had never seen, he stomped up the s
 
 I hobbled backwards, feeling the pain in my lower back as I fought against my old man hunch.
 
-I went into the washroom, and cowered in the bathtub. The reflection of my new, wrinkled, white-haired face terrified me almost as much as my dad.
+I went into the washroom, and cowered in the bathtub. The reflection of my new, wrinkled, white-haired face terrified me almost as much as my dad did.
 
 Through snot and tears I pleaded for my life. 
 
-“It’s me, Donny! Please dad! You have to believe me!”
+“It’s me! Please dad! You have to believe me!”
 
 \*\*\*
 
