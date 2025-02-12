@@ -60,4 +60,4 @@ And then it jumped in front of my car.
 
 I didn't really think it fully through when I pressed on the gas, but I did it. My car went right over the monster and kept going until I was 1000000% certain it wasn't chasing me anymore. Only then did I stop at a gas station and buy so many energy drinks it could stop an elephant.
 
-That was 2 years ago, I haven't been back since. But my parents are planning a big family reunion for later this year at the cabin and I don't know how to tell them why it's a terrible idea.
+ I haven't been back since. But my parents are planning a big family reunion for later this year at the cabin and I don't know how to tell them why it's a terrible idea.
