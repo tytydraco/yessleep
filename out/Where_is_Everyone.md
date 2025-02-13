@@ -1,5 +1,3 @@
-Where is everyone???
-
 I woke up one day and everyone, absolutely everyone, was - or is, gone. The internet is up, cable is running, electricity and water is still working, yet there's no one around and I can't get into contact with anyone. No one answers when I call on the phone, and although I can see the messages I've uploaded to social media, I see nothing from anyone else, just old posts and comments from the day before this happened that don't change when I refresh.  It's like time has been frozen, and all the animals, humans, and even bugs have been taken out of Earth. 
 
 My name is - Oh, who the hell cares? Who is gonna see this anyway? This is the only way to keep from going insane, uploading detailed accounts of whatever's happening to me even though I have no idea if anyone can see it. If they can see it, then the  responses are invisible to me, because I've tried sending SOS messages to family, friends, and even strangers. 
