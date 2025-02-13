@@ -1,5 +1,7 @@
 [\[Part 30\]](https://www.reddit.com/user/RandomAppalachian468/comments/1ii2whi/the_call_of_the_breach_part_30/)
 
+[\[Part 32\]](https://www.reddit.com/user/RandomAppalachian468/comments/1iob3w6/the_call_of_the_breach_part_32/)
+
 I sat leaning against the narrow bulletproof window, staring out at the road as our ASV idled, the rest of the convoy doing the same. Radio chatter flickered back and forth across the headsets, but I barely paid any attention to it. Heavier snowflakes tumbled all around us now, the outside world turning white in a slow march of winter’s vanguard. The interior of our armored car was warm, the heaters blasting, but I couldn’t stop a chill from running down my spine. Our vehicles were lining up for the descent, waiting on a few stragglers to catch up so we could all go in together. Within their steel charges, the troops checked their weapons one last time while the gunners kept their eyes peeled for anything suspicious. So far, we’d seen nothing, no beast or intelligent life, yet I knew they were out there. Vecitorak had invited me here, he knew I was coming; there had to be a thousand eyes on us at this very moment.
 
 *So why not attack us now? Why let us just walk right in? He’s not stupid, which means this is deliberate, it has to be.*
