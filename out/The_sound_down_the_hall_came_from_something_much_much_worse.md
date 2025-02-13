@@ -108,21 +108,19 @@ I didn't notice that I'd stopped breathing.
 
 When I finally breathed in, it was something like a gasp. And it was loud enough to hear.
 
-The other me clearly noticed, and slowly looked up. We locked eyes in a moment utterly pregnant with trepidation, before finally, I saw recognition in his eyes.
+The other me clearly noticed, and slowly looked up. We locked eyes in a moment full of trepidation, before finally, I saw recognition in his eyes.
 
 And then, suddenly, it became malice.
 
-Immediately he threw the table aside and lunged forward and I barely had a chance to back away before I sprinted desperate down the hall. And he was far less than human as he crashed out from the kitchen so fast that he smashed to the other side—but it didn't slow him down.
+Immediately he threw the table aside and lunged forward, and I barely had a chance to back away before I sprinted desperate down the hall. He crashed out of the kitchen fast and uncoordinated and I could hear the other side's wall smash through, but it didn't slow him down.
 
 As I turned closing the door I saw his face brutally twisted with bloodshot eyes and hands outstretched, roaring my way like a wounded wild beast.
 
 I locked the door and scrambled backwards to the bed. In a second he was there, banging with such loudness and force that his fist soon broke through and splinters of wood fell to the floor.
 
-I could see his fevered face through the crack. His malice had turned to fury.
+I could see his fevered face through the crack, and his malice had gone to fury.
 
 It was more than clear, what he wanted.
-
-Nothing good.
 
 His blooded hand thrust a clawed shadow through a dim slither of light, and held; only just realising, apparently, that the gap wasn't enough for his body to pass. 
 
@@ -140,11 +138,11 @@ The room then fell beneath into some other place.
 
 Passing frames of convoluted scenes too short-lived to make sense. 
 
-Then a brief picture of the past in her beautiful face, and only her face, that I couldn't hold on to.
+Then a brief picture of the past in her face, and only her face, that I couldn't hold on to.
 
 And then I was back in the park. 
 
-But it wasn't the same. What radiance had been, was gone.
+But it wasn't the same. What radiance there had been, was gone.
 
 It was just me, on a blanket then grey, on a slope surrounded by grass a darker shade of grey, under the big oak tree swaying serene in a light breeze.
 
@@ -154,4 +152,4 @@ Maybe it was relief that I felt, and it was painful, but such is the case for th
 
 When I looked up, the sky was deep cerulean blue.
 
-And the sun was brighter than it had ever been.
+And the sun was brighter than ever.
