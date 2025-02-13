@@ -428,9 +428,11 @@ I froze.
 
 Who turned on the light!? My heart immediately started beating rapidly again and my mouth became dry as with light now flooding the room I could see Piper facing me. Her pitch-black eyes pierced my soul. A huge smile plastered on her face as she stuck her long black tongue out making a 'licking' motion. I let out an inaudible scream as I felt a tiny cold hand on my cheek and sharp steel pressing down on my neck. Milton leaned forward and whispered in my ear in an evil, deep, adult-sounding voice "*I told you I'd kill you, fucker*" as he pulled the blade across my throat.
 
-As I lay there blinded, choking and bleeding, knowing I was about to die, I could hear two distinct deep voices speaking to each other in thick accents.
+As I lay there blinded, choking and bleeding, believing I was about to die, I could hear two distinct deep voices speaking to each other in thick accents.
 
 *"You did good, mother."*
 
 *"Thank you, Agaliarept. Now get some sleep. We dispose of this one in the morning and tomorrow night my new boyfriend Dawson is coming over to meet you."*
+
+Little did they know, I would survive this encounter to tell my story, and soon I'll warn the world.
 
