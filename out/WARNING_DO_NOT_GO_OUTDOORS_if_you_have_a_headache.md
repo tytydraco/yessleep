@@ -11,7 +11,7 @@ But this ISN’T the flu.
 
 And it isn’t confined to this town—it’s everywhere.
 
-The headache’s consequential “phenomenon”, which began on Tuesday 12th February, made both of those things painfully clear.
+The headache’s consequential “phenomenon”, which began on Tuesday 11th February, made both of those things painfully clear.
 
 We should’ve known. Nobody felt as if they had the flu. There were no congested noses. No spluttering coughs. Not even a stray sneeze. Only headaches.
 
