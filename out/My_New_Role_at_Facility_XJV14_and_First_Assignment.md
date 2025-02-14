@@ -78,7 +78,7 @@ Cecilia's expression grew more serious as she continued. "The doctors and resear
 
 The weight of her words hung in the air. The binder in my hands felt heavier as I realized the severity of the situation. The hallway seemed to stretch on endlessly, each step bringing me closer to the patient.
 
-We crossed another security checkpoint before entering a section labeled *Patients Ward*. The atmosphere grew even more tense, the air thick with the scent of antiseptic and the low hum of machinery. Dmitri, who had been silent until now, began to speak in a thick Eastern European accent. “Cecilia has provided agood description of the patient, yes. But I should mention that he used to talk clearly with people a few weeks ago. Now, he talks in riddles. He speaks of things like a giant tower on an island. Could be relevant, yes?”
+We crossed another security checkpoint before entering a section labeled *Patients Ward*. The atmosphere grew even more tense, the air thick with the scent of antiseptic and the low hum of machinery. Dmitri, who had been silent until now, began to speak in a thick Eastern European accent. “Cecilia has provided a good description of the patient, yes. But I should mention that he used to talk clearly with people a few weeks ago. Now, he talks in riddles. He speaks of things like a giant tower on an island. Could be relevant, yes?”
 
 I nodded silently, pondering what that could mean. The idea of a giant tower on an island seemed like something out of a dream—or a nightmare. The cryptic nature of the patient's speech added another layer of mystery to an already perplexing case.
 
