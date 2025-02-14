@@ -36,4 +36,4 @@ He starts kicking my door and I can see the flimsy wood starting to crack.
 
 Seeing that the door is about to break at any second I think fast and grab a pan I have on my stove to arm myself and I run to my bathroom and lock that door behind me. I hear the front door break down and the man stomping towards the bathroom. He’s kicking and punching the door as we speak and keeps repeating the same numbers in a gurgling voice I’m not sure why
 
-“11 9 12 12! 11 9 12 12! 11 9 12 12!”
+“11 9 12 12! 11 9 12 12! 11 9 12 12 25 15 21!”
