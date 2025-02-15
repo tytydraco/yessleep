@@ -2,7 +2,7 @@ This is something I wanted to write long ago, but I ended up writing something e
 
 I’ve always been a bit of a recluse. I am an only child, and I’ve always liked to do things that don’t require others to enjoy. You can’t play board games or team sports by yourself. But you can read, write, draw, and solve puzzles; so that’s what I’ve excelled at. I also had a peculiar affinity for the works of manga artists like Kazuo Umezu and Junji Ito, but my mother was quick to point out that it wasn’t appropriate to talk of such things in polite company.
 
-I finished my university studies with little to no incident. I kept my head down, did the work, and passed without incident. I was not at the head of my class, and I was not the worst. I was somewhere in the middle without making much of a fuzz. That’s the space I enjoy the most; the one where I can be myself without worrying about the judgement of others.
+I finished my university studies with little to no incident. I kept my head down, did the work, and passed without incident. I was not at the head of my class, and I was not the worst. I was somewhere in the middle without making much of a fuss. That’s the space I enjoy the most; the one where I can be myself without worrying about the judgement of others.
 
 After I finished my university studies, I had to get a job. My mother wanted me to start my own life, but I didn’t know how. One of my childhood friends, Shota, told me he could get me a junior position at his company. I just had to move a little west towards Osaka. I couldn’t refuse.
 
