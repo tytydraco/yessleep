@@ -88,7 +88,7 @@ At first, time away from the incessant whistling helped. Three days in, though, 
 
 Yesterday, I was standing over the stovetop in my kitchen, forcing undercooked scrambled eggs down my throat as quickly as its muscles would allow me so I could leave for work. Retching from the revolting texture, I placed the ceramic plate down on the tile countertop with more power than I intended. As a result, a loud *clatter* exploded through the room. Briefly, I couldn’t hear the whistling over the sound. When the plate stilled, the air had finally stilled, too.
 
-Pure, unabated silence filled my ears. A tremendous wave of relief flooded through my chest. From where I stood, the cellar door was directly behind me. Before I could really savor the relief, that door creaked open, the splintered wood present on the bottom dragging harshly against its frame.
+Pure, unabated silence filled my ears, which caused a tremendous wave of relief to flood through my chest. From where I stood, the cellar door was directly behind me. Before I could really savor the relief, that door creaked open, the splintered wood present on the bottom dragging harshly against its frame.
 
 Reflexively, I spun around.
 
