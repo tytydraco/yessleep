@@ -112,7 +112,7 @@ Wherever she was, Ms. Besthet was finally leaving me alone.
 
 Or she was being less obvious about it, at least.
 
-A few quiet weeks passed before I heard a loud *thump* on our living room window, home alone while my parents were out of town. I had fallen asleep on the couch watching a movie, but the strange noise yanked me awake. My eyes, still hazy from sleep, looked over to a nearby digital clock, which showed the time was two in the morning. As my vision became clearer, I noticed something that made the hairs on the nape of my neck stand on end.
+A few quiet weeks passed before I heard a loud *thump* on our living room window, home alone while my parents were out of town. I had fallen asleep on the couch watching a movie, but the strange noise yanked me awake. My eyes, still hazy from sleep, looked over to a nearby digital clock, which showed it was two in the morning. As my vision became clearer, I noticed something that made the hairs on the nape of my neck stand on end.
 
 I saw the faint silhouette of a person, leaning against the living room window from the outside. Not only that, but they had pressed their body so hard against the glass that the sound of it had woken me up.
 
