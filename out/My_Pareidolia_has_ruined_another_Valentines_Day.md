@@ -12,7 +12,9 @@ As expected, I had begun seeing the face everywhere.
 
 It was in the pattern of our server’s tie, as well as on the red tablecloth beside me, formed from a very particular set of creases. It was on Taylor’s plate, as the arrangement of her half-eaten veal parmesan had created the image of a single bulging eye above a hooked nose.
 
-Forcefully, I scratched the small of my back while keeping my eyes locked on Taylor, trying to keep this date afloat. Judging by her newly furrowed brow, I appeared to be doing a terrible job at hiding my distress, however. My clipped fingernails dragged against the burning patch of skin through my undershirt, but it was no use. No matter what I did, the sensation refused to yield.
+Forcefully, I scratched at small of my back, all the while maintaining eye contact with Taylor, trying to keep this date afloat. Judging by her newly furrowed brow, I appeared to be doing a terrible job at hiding my distress. 
+
+My clipped fingernails clawed at the burning patch of skin, over and over again, left to right and then right to left, drawing a few drops of blood in the process. It was no use. No matter what I did, the sensation refused to yield.
 
 The itch always gets worse when the face is around, and the face always comes around when I’m on a date.
 
