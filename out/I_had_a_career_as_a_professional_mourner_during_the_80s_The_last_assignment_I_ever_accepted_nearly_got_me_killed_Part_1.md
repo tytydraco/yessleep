@@ -138,7 +138,7 @@ Terrible call.
 
 *“…yes! Yes, I loved Jom. That’s why I’m here.”*
 
-Horus nearly crumbled to the ground, his immovable frown dissipating into a grin swollen with ecstasy.
+Horus nearly crumbled to the ground, his immovable frown ascending into a grin swollen with ecstasy.
 
 *“Well…well alright then. That’s very noble of you, to come here of your own volition, espousing your love from my son. Bassel, could you escort Tara to the front? Show her where family sits? The eulogy will be starting in a few minutes.”* Akila replied.
 
