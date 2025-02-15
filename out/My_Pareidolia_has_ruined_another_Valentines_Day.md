@@ -196,7 +196,7 @@ In a frenzy, I ripped my shirt off and turned my back towards the mirror, desper
 
 A laceration was forming, completely on its own, unzipping layers of skin before my eyes, the tissue audibly splitting and popping in my ears.
 
-Above the impossible wound, there was a single brown mole about the size of a nickel. There was also an old scar from a biking injury, below the mole but above the laceration; a fibrinous line running between the two landmarks, connecting them to each other.
+Above the impossible wound, there was a single brown mole about the size of a nickel. There was also an old scar from a biking injury, below the mole but above the laceration; a fibrinous line running between the two landmarks, connecting them to each other like an interstate highway.
 
 An eye, a hooked nose, and a bloody smirk.
 
