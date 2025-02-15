@@ -144,7 +144,7 @@ From a dating perspective, my twenties have been hellish. Echoes of Ms. Besthet�
 
 And if I’m ever stupid enough to actually go on a date? Multiply all of that by twenty.
 
-Not to mention the goddamned itch. In the end, that’s what really stopped me from pursuing romance. I think I could ignore the faces; however numerous they’d become. It’d be difficult, but I can do it. The itch is a different story. At peak intensity, it’s like my skin is burning from an invisible fire that won’t go out. The discomfort can completely overwhelm me to the point where I would do anything to make it stop.
+Not to mention the goddamned itch. In the end, that’s what really stopped me from pursuing romance. I think I could ignore the faces; however numerous they’d become. It’d be difficult, but I could do it. The itch is a different story. At peak intensity, it’s like my skin is burning from an invisible fire that won’t go out. The discomfort can completely overwhelm me to the point where I would do anything to make it stop.
 
 So, I’ve resigned myself to isolation. Dating just hasn’t been worth the pain. It’s been lonely, sure, but abstaining has kept me safe and relatively sane. Meeting Taylor, however, changed things. Taylor rekindled something inside me that I believed was completely extinguished before I met her. She made me want to fight back.
 
@@ -174,7 +174,7 @@ But that wasn’t even the strangest part: the corpse lacked decay, meaning that
 
 No blood that we could see, at least. Despite what we all see in the movies, blood sprays aren’t always obvious.
 
-I opened my forensic bag and pulled a spray bottle of luminol from it. If there was even a drop to be found, the chemical would react with it, oxidizing the molecular iron present in blood, resulting in a faint blue glow. Thankfully, the large tree’s shadow completely covered the victim. To properly see the glow, I needed the area to be dark.
+I opened my forensics toolbag and pulled a spray bottle of luminol from it. If there was even a drop to be found, the chemical would react with it, oxidizing the molecular iron present in blood, resulting in a faint blue glow. Thankfully, the large tree’s shadow completely covered the victim. To properly see the glow, I needed the area to be dark.
 
 As the liquid contacted the corpse, parts of it did glow. 
 
