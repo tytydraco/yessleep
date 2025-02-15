@@ -1,0 +1,59 @@
+Hello, r/nosleep; 
+
+I'm currently really paranoid and scared.  I don't know who to trust.  Up until recently, I had a normal life.  I work as a cashier at a local store.  I live in an apartment with my mom.  She has been helping me pay rent until I can afford to be independent.  
+
+ 
+
+But 3 weeks ago, something strange happened.  I went to a pretty popular cafe after I got off work.  I went up to the barista.  “Can I just get a black coffee?”  I said, slightly tired from dealing with customers all day.  “Ok sir, you can go sit over there, she said overly nicely, like she had rehearsed it 50 times.  I didn't say anything else as I walked over to the table.  I waited for a bit, looking around the cafe.  It was filled to the brim with people talking and sipping their coffee.  I normally hate loud environments, but it was actually kinda nice for some reason.  The barista came up to me and handed me my coffee.  I hope u enjoy it, sir, she said in the same voice as earlier.  “Thank you” I said to her as she walked away.  I took a couple of sips of my coffee before suddenly, every noise in the cafe just stopped.  
+
+ 
+
+I put down my cup and looked around, confused and a bit scared.  The once-busy cafe was dead silent.  The only noise I heard was my own breathing, each breath more panicked than the last.  A noise distracted me.  A man next to me was writing something on a piece of paper.  The squeaking of the marker hitting the paper would normally just be an annoyance but it just made me more scared.  “What was happening?”  I thought to myself.  After the man finished writing, everyone stood up in unison like a weird cult.  Then they just stared at me, not blinking at all...  my heart was pounding.  I was the most terrified I'd ever been.  I looked over and the man was showing me what he had written on the piece of paper: “Don't trust those who speak.  We want to help.” 
+
+ 
+
+I stood up, knocking over my chair as I ran out of the cafe.  As I looked around, everyone around me just stopped what they were doing and stared at me as if I was a creature they had never seen before.  I ran through the street, not afraid of possibly being hit by a car, but the people in the cars turned off their engines and stared at me like everyone else.  I ran to my apartment.  As I went in, I locked the door and then put my bookcase in front of the door.  I went into the kitchen, where I saw my mom cooking.  
+
+ 
+
+“Well, hi, she said, smiling.  “You look terrified, and you are sweating.  What happened?”  Even though I wasn't sure she would believe me, I couldn't lie to her.  She deserved to know, so I told her the truth.  The look on her face was a mixture of confusion and somewhat believing me.  “Are you sure that's what you saw?”  She said.  “Yes, I promise” I nodded.  “Okay, I believe you.  The most likely solution is that it's just a weird flash mob.” That kinda made sense, but it didn't feel like it was.  If it was a flash mob, why would that man write that note? why did everyone do it? Almost everyone I saw did it, so if it was a flash mob, it would have to be a really big one.  “Okay, whatever, just don't go outside, okay?”  I said and she agreed.  
+
+ 
+
+The rest of the day, I couldn't stop thinking about it.  Trying to come up with any explanation that made sense.  I barely slept.  After I woke up, I was scared to go outside, afraid of those people possibly following me.  Looking outside, the city looked really normal.  Everyone doing their everyday routines.  I said I was sick so that I wouldn't have to go to work for a few days.  I tried to reason in my head, but I came to no conclusion.  Over the next couple of days, I didn't leave my house.  My mother said she didn't experience anything strange when she went shopping.  I think she started believing me less.  One detail stuck out to me from the encounter: the note, “Don't trust those who speak.  We want to help.” I wondered what exactly it meant.  Why shouldn't I trust people who speak? What do they want to help with? After a couple more days inside, I decided to go back outside.  
+
+ 
+
+As I left the apartment building, I saw my neighbor.  I barely spoke to him.  He seemed like a loner, so I mostly avoided him.  If I remember correctly, he's around 88 years old.  I didn't really want to bother him, but I wanted to test if he would do the same thing as the people in the cafe.  He was taking a box downstairs which I found weird since he's so old.  Shouldn't someone be helping him? I went up to him.  “Hi” I said, trying to sound normal, but he didn't respond.  Then he dropped the box and turned to me.  He stood there a bit as I stared back at him, his face not moving a single muscle, a blank expression on his face.  I backed away and ran down the stairs and outside, but before leaving, I looked back.  He just went back to carrying the box, walking down the stairs as if nothing happened.  
+
+ 
+
+I went outside walking through as everyone turned towards me and stared.  I noticed that after I left the area, they would just go back to doing the task they were doing before I showed up.  It felt creepy.  Robotic.  As they went back to their tasks, I kept going across the street and finally reached the store.  I went in expecting my manager to just stare at me, but he didn't.  “Hey, you feeling better?”  he asked calmly.  He has always been nice.  He helped make the job a bit more bearable.  I stood there for a bit expecting him to turn robotic but he didn't.  “Are you okay?”  he asked with a slightly more concerned tone to his voice.  “Yeah, I'm fine, sorry, I just kinda zoned out” I responded.  “Okay, so if you feel fine, you can take the cash register over there, he pointed over to my right.  “Alright” I said before starting my work.  
+
+ 
+
+A family walked over with a shopping cart full of food, but as they came over to me, they all stopped in their tracks.  “Uhm, are you okay?”  I asked unsure what to do.  I was scared as the family just stared at me.  Trying to ignore it, I began scanning the items, but when it came time to pay, they still just stood there.  I didn't know what to do.  I was freaking out.  Everyone I came across except my mom and manager just stopped...  I walked away to see what would happen, and the family just returned to normal.  The kid asked for a lollipop.  The dad refused then paid and left, the mom not saying a single word.  It felt...weird.  First of all, we don't sell lollipops I would know if we did.  And second, the dad, after paying, said “thank you” to no one.  After that, I noticed the other customers also staring at me.  I went home.  
+
+ 
+
+While back home, I had even more questions.  The dad thanked no one, and the kid asked for an item we didn't sell.  I was even more bamboozled.  It's like everyone in this city were robots doing the same thing over and over again.  Day after day.  I went back to work the next day, and the family was there again.  Just staring.  always staring.  It was still unsettling to me, and after I walked away, the exact same thing happened.  The kid asked for a lollipop.  The dad refused.  The dad paid for the food.  Thanked no one.  Left.  The mom did not say a single word.  It was the same customers over and over doing the same thing every day.  the family came and repeated the cycle.  After a while, I got a bit more used to it, but the staring still gave me a weird feeling.  I didn't know what was happening.  
+
+ 
+
+One day, I was sitting in bed thinking about what I could do about the staring people until suddenly, a rock flew at my window, cracking it but not fully breaking it.  I immediately looked to see what was going on, and I saw a woman holding a big piece of paper.  The sign read, “Don’t trust people who speak.  They aren't trustworthy and are dangerous.” I looked at it, unsure what to think.  Out of thin air, a police car pulled over.  The officers proceeded to arrest her as she tried to escape.  Then an officer knocked on my door.  “It's the police.  Please open up”, I heard through my thin wooden door.  I decided to open it after some hesitation and convincing from my mom.  “Hello, sir, you can probably guess what I want to talk to you about, they said.  “The rock that was thrown at my window?”  “Yes, is everyone in the house, okay?”  They said, sounding sincere, but in the back of my head, I was thinking about the signs.  About not trusting people who speak.  “Should I listen to the cop?”  I thought to myself.  “Yes, everyone is fine, I responded.  “Glad to hear you are safe.  hopefully, it doesn't cost much to repair the window, they answered.  “I'll be able to cover it” I assured them, slightly suspicious.  “All right, well, I'll be going then.” Before they managed to leave, I managed to ask them, “Do you know why they may have done this?”  I said, trying to get more information.  “They probably were protesting about something.  If you want more information, you can come to the police station tomorrow.”  
+
+ 
+
+I had to go.  This was the only way to get information on what had been happening, so the next day, I went to the station.  I was slightly nervous thinking about what questions to ask and how to not sound suspicious.  As I walked in, a woman was talking to an officer at the front desk.  A couple more officers talking to each other.  Soon, an officer came up to me.  “Hello, sir, what brings you to the station?”  As I looked around, I noticed the officers staring at me.  It still was uncanny.  Their dead eyes staring right through me while they stood there.  
+
+ 
+
+The officer didn't seem to notice so I pretended to not notice as well.  “I, uh, came here to ask about the woman that threw a rock at my window, I said, trying to act natural and ignore the officers staring right at me.  “Oh sure, come right this way” they said, not thinking about it a second.  As they led me to a different room, they ignored the officers staring at me, Walking in a perfectly straight line.  When we arrived, they explained that she was “protesting against the police.”  I didn't believe them but acted like I did.  Trying to maybe get more info from the woman herself, I asked them if I could speak to the woman, but they refused, reasoning that it would be dangerous.  Unable to get more information, I decided to go back to my home.  
+
+ 
+
+I went to talk to my mom “Hey, mom?”  “Yes?”  She responded.  “So, I went to the police station-” Before I could finish my sentence, she interrupted, “Oh, that show you like is on.  Would you watch it with me?”  She said as if trying to change the topic.  “Okay” I said, suspicious.  I sat down on the sofa next to her.  We watched it for a bit, but I still wanted to talk about the woman, waiting for an opportunity to bring it up.  “So mom?”  I said, trying to naturally start a conversation.  “Yeah?”  she responded.  “That woman who threw the rock, why do you think she-” yet again, she interrupted me.  “The protester? Throwing rocks at people's windows for protest is ridiculous.”  I didn't pay attention to the rest of the sentence as I focused on one detail: how did she know she was protesting? I didn't mention that.  “Mom?”  I said unsure what to think about that detail.  “How did you know she was protesting?”  I said, my voice a bit shaky as I trusted my mom less and less.  “What do you mean?”  she responded, not realizing her mistake.  “Mom, I never said she was protesting, you couldn't have known” I said, getting up from the sofa and slowly backing away.  “I saw it in the newspaper.  Calm down” she said, her voice a mix of stern and worried.  
+
+ 
+
+My mind was racing: why would it be in the newspaper of a big city? Surely there were other things to write about.  I silently left.  I'm now in my bedroom typing this.  I don't know who to trust.  I feel like I'm being lied to, and everyone who isn't lying to me is fake.  I came here for advice.  What do I do? Who should I trust? 
