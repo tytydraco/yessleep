@@ -1,6 +1,6 @@
 No one was surprised when Eddies, a small, greasy burger joint that had only opened a year prior in my town, was said to be closing down permanently within a couple of days.
 
-In the weeks leading up to the announcement, a multitude of allegations were sent flying in the direction of its owner, Eddie Snyder. Ranging from claims of embezzling, to accusations of unfaithfulness which left him divorced, it was only a matter of time before Eddie pulled the plug.
+In the weeks leading up to the announcement, a multitude of allegations were sent flying in the direction of its owner, Eddie. Ranging from claims of embezzling, to accusations of unfaithfulness which left him divorced, it was only a matter of time before Eddie pulled the plug.
 
 I thought it a shame, though. Despite my less than favourable opinion of the guy, the burgers in which he served were the best in town. So, for old times’ sake, I decided to pay the joint one last visit before its passing.
 
@@ -32,7 +32,7 @@ Rotten and sulfureous, it attacked my nostrils and made my eyes water from how b
 
 It was making my head dizzy and my vision steadily blurry. At that point, I just couldn’t champion through it any longer, as whatever was in the air was choking my lungs and making my throat begin to burn. I pushed my chair back and began stumbling my way to the door, when I heard Eddie begin shouting.
 
-“HERE IT FUCKING COMES, BITCH, IT’S COMING RIGHT UP!” He shouted, his voice undeniably distraught and haggard. I was far too desperate for air to acknowledge his words in that moment, as I sprung the door open and exited onto the sidewalk into the cold December air.
+“HERE IT FUCKING COMES, BITCH, THIS IS ALL YOUR FAULT!” He shouted, his voice undeniably distraught and haggard. I was far too desperate for air to acknowledge his words in that moment, as I sprung the door open and exited onto the sidewalk into the cold December air.
 
 It didn’t remain cold, however, as a wave of heat from behind blasted me off my feet and into the street. My head collided with the icy tarmac as everything suddenly went black. My memory from that point remains hazy, but from what I can remember, red and orange bled into the darkness as I slowly came to, flat on my back surrounded by passer-byers, ears ringing.
 
@@ -48,6 +48,6 @@ But it remains a murder-suicide, as despite my survival, me and Eddie weren’t 
 
 It’s been a year since then, and as funny as it may sound, I do now hold a slight irrational fear of fast-food restaurants. It’s just… I was only a second away from being immolated, and I didn’t even know it.
 
-So now, whenever I’m in a McDonald’s or any fast-food joint at that, I always make sure that the hissing I hear from the back are the grills and fryers.
+So now, whenever I’m in any fast-food joint, I always make sure that the hissing I hear from the kitchen are that of grills and fryers.
 
 And not the final act of a man on the end of his line.

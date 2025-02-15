@@ -92,7 +92,7 @@ By lunch, the nervousness was too much. So I decided to give the tube a try. I d
 
 There was an artificial sweetness to it, sort of grape flavored, with a powerful chemical aftertaste. But I could feel my nerves unwinding. Not as in getting sleepy, but as if I was taking three breaths at once. My lungs felt full again, and I could feel my stomach un-tightening. I could still think straight. I could feel all those intrusive thoughts, all the worries, but they were taking a back seat to more rational thinking. I could finally, *finally*, relax.
 
-I felt so much better. I took a long walk after work and stopped at a gift shop. Instead of tearing my hair out, I got myself one of those cheesy flip combs, like in the old movies. I know it looked dumb, but I didn’t mind laughing a little at myself. Just that feeling, to be able to laugh at myself, was so foreign. So freeing. Was this how Shota felt *all the time?*
+I felt so much better. I took a long walk after work and stopped at a gift shop. Instead of tearing my hair out, I got myself one of those cheesy switchblade combs, like in the old movies. I know it looked dumb, but I didn’t mind laughing a little at myself. Just that feeling, to be able to laugh at myself, was so foreign. So freeing. Was this how Shota felt *all the time?*
 
 When it was time for the date, I showed up with a big smile on my face. Shota recoiled a bit at first, not recognizing me. When he realized I was just happy to be there, his demeanor shifted immediately. Suddenly we weren’t just friends – we were *best* friends. We were *unstoppable*.
 
@@ -132,7 +132,7 @@ That whole week, I felt like a new person. I had a talk with Shota about it, and
 
 “You’re like a new man,” he said. “Was it the haircut?”
 
-“Hair cut and a flip comb,” I chuckled. “And a little spice.”
+“Hair cut and a switchblade comb,” I chuckled. “And a little spice.”
 
 “A little spice?” he laughed. “I don’t know what kind of spice you’re having, but I’m guessing that’s not on the regular menu.”
 
@@ -148,7 +148,7 @@ So when date-night came around, I was ready.
 
  
 
-I’d taken a boost from the tube, got a new shirt, and brought my flip comb. It felt like a good luck charm by now. Keiko had asked me to meet her at her apartment. I’d just taken a small touch of the tube-powder, so I could feel that rumbling nervousness deep down, but I could easily push it down. Still, there was something in the air that I couldn’t put my finger on.
+I’d taken a boost from the tube, got a new shirt, and brought my comb. It felt like a good luck charm by now. Keiko had asked me to meet her at her apartment. I’d just taken a small touch of the tube-powder, so I could feel that rumbling nervousness deep down, but I could easily push it down. Still, there was something in the air that I couldn’t put my finger on.
 
 Everything felt a little colder, a little darker. The wind howled louder than usual, and there was a strange sound somewhere off in the distance. Standing on the street outside Keiko’s apartment building, the streetlights burned me. It felt like I was being judged. Like I wasn’t really being myself. What kind of man was I tricking her to fall in love with?
 
@@ -156,7 +156,7 @@ As my thoughts drifted, something snapped me to attention.
 
  
 
-It was an uncomfortable hissing noise, like a man struggling to breathe. I could hear it clearly. It turned something in my stomach, worse than any nervousness I’d ever felt. It made my heart pound, making me think I was having some kind of attack. As I gasped for breath, the feeling subsided, leaving me with a pounding pulse surging behind my ears; coloring my cheeks a bright red. I grasped the flip comb in my pocket, took a deep breath, and started walking. It was 7:50pm. I was a bit early, but it was fine.
+It was an uncomfortable hissing noise, like a man struggling to breathe. I could hear it clearly. It turned something in my stomach, worse than any nervousness I’d ever felt. It made my heart pound, making me think I was having some kind of attack. As I gasped for breath, the feeling subsided, leaving me with a pounding pulse surging behind my ears; coloring my cheeks a bright red. I grasped the switchblade comb in my pocket, took a deep breath, and started walking. It was 7:50pm. I was a bit early, but it was fine.
 
 I walked up the stairs, only to see that Keiko’s apartment door was slightly ajar. The auto-lock must’ve failed. I peeked inside, but it was dark.
 
@@ -182,9 +182,7 @@ I didn’t know what to do. There’d been no one around, except for that strang
 
 Neighbors. Someone had seen *something*.
 
-“I’m calling the police.”  
-  
-
+“I’m calling the police.”
 
 I ran. I ran out before I could think of anything else to do. I ran faster than I’d ever ran before, and my muscles ached with every step. I could feel every stray pebble under my cheap shoes, and how the grip struggled with every sudden turn. I disappeared into an alley, then down a small trail, and then off into the unlit back roads.
 
@@ -232,7 +230,7 @@ I reached out to Miki, explaining that I was worried about what happened to Keik
 
  
 
-I went to see her the next day. I brought my flip comb. It was less to feel confident and more for a sense of comfort, like a teddy bear. Like I was physically holding onto the last good piece of my new self.
+I went to see her the next day. I brought my comb. It was less to feel confident and more for a sense of comfort, like a teddy bear. Like I was physically holding onto the last good piece of my new self.
 
 Miki lived in a four-floor complex in a pretty cheap neighborhood, but it had a great view. I got there around 6pm. I stood outside for a while, expecting that horrible noise to come to me; but it didn’t. I was relieved. Maybe it was the tube powder I’d taken, or maybe it was just the sense of calm that came from fighting back and doing something, but I was okay.
 
@@ -294,7 +292,7 @@ She handed me a cup of tea and let me take the reigns of the computer. Then she 
 
 “Wait,” I said. “Here.”
 
-I handed her my flip comb.
+I handed her my switchblade comb.
 
 “Like in the movies,” I said. “Cool, huh?”
 
@@ -302,7 +300,7 @@ I handed her my flip comb.
 
  
 
-It didn’t take me long to find a camera I recognized. Meanwhile, Miki struggled to get the flip comb open, but she didn’t want to say anything. She was stubborn, that was for sure. Finally, I got a blurry black-and-white feed of a street I recognized. It was just outside Keiko’s apartment.
+It didn’t take me long to find a camera I recognized. Meanwhile, Miki struggled to get the switchblade comb open, but she didn’t want to say anything. She was stubborn, that was for sure. Finally, I got a blurry black-and-white feed of a street I recognized. It was just outside Keiko’s apartment.
 
 It was a bad image, and I missed the time frame a little. I landed right on the spot where I stormed out of the apartment. It was just a black shadow, but Keiko gasped. A thought spiked my mind – what if she recognized me?
 
@@ -312,7 +310,7 @@ To her, the thing on the screen was just a dark blob. Suspicious, but anonymous.
 
 “I don’t know,” I said. “We have to go back further.”
 
-Finally, Miki gave up and handed me the flip comb back. I shook my head. You had to push two buttons at once to open it. So I did.
+Finally, Miki gave up and handed me the switchblade comb back. I shook my head. You had to push two buttons at once to open it. So I did.
 
  
 
@@ -332,7 +330,7 @@ But there was something strange. I was standing there for too long. Minutes. I h
 
 “It’s… it’s fine,” I said. “I like mint.”
 
-Then, the picture moved. I saw it in reverse. How I picked up the flip comb, and let the blade out. How I went back up those stairs.
+Then, the picture moved. I saw it in reverse. How I picked up the switchblade comb, and let the blade out. How I went back up those stairs.
 
  
 
