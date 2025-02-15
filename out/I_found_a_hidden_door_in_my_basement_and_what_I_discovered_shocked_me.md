@@ -1,0 +1,21 @@
+I’ve been living in an old house for a little over a year now. It was built in the 1920s, located in a quiet neighborhood where the houses all seem to have their own stories. The previous owner was an elderly man who passed away before I moved in, and his family sold the house quickly. There wasn’t much known about the house’s history, but people often mentioned how strange the basement felt. I didn’t think much of it at first—it’s just an old house, right?
+
+But ever since I moved in, I’ve felt like there’s something not quite right about the place, especially the basement. It’s not just the usual feeling of an old, musty basement. It’s hard to describe, but there’s a constant chill, even in the summer. The walls look strange, too—uneven, like they’ve been patched up. Over time, I started to notice that there were areas in the basement that didn’t make sense, like small gaps in the walls, a crack here or there that felt off. It got me curious, but I never thought too much about it—until last month.
+
+I was cleaning out the basement one afternoon, going through some boxes that had been left behind by the previous owner. As I was shifting an old shelf, something strange happened. I knocked on the wall behind it and it sounded… hollow. I assumed it was just some old wood or a section of drywall, but my curiosity got the best of me. I tapped around the wall, and that’s when I found it—a loose panel.
+
+At first, I thought it was just an old piece of wood that had come unhinged. But when I pulled it away, I saw that it was part of a hidden door. There was no handle, just a small keyhole that looked old, rusted, and almost like it had been deliberately hidden. I didn’t know what to make of it, but my instincts told me I should investigate further.
+
+I spent the next couple of days searching the house for a key, but I had no luck. It wasn’t until I was going through an old drawer in the kitchen that I found something strange: a rusted key, wrapped in a piece of old paper. I don’t know why I even bothered to try it, but the key fit perfectly into the door. I could feel the door give as I turned the key, the old hinges creaking in protest.
+
+When I opened the door, I was met with the most putrid, musty air I’ve ever smelled. It was as though the room hadn’t been touched in decades. I stepped inside with a flashlight, and that’s when I saw it—a small room, not much bigger than a closet. The walls were covered in strange, almost indecipherable symbols, like something out of an ancient text. There was a wooden chair in the center of the room, facing the wall, and sitting next to it was an old notebook.
+
+At first, I thought it was just junk, but then I picked up the notebook. It was old—really old—but the handwriting inside was still legible. Most of it was a list of names and dates, but some of the entries were strange, cryptic. The last entry was dated just three years ago. I don’t know why that stuck with me, but it did.
+
+But the thing that truly made my blood run cold was the Polaroid photo stuck to the wall next to the chair. It was a picture of the chair, but… it wasn’t empty. There was a person sitting in it, looking straight at the camera. I stared at it for a long time before I realized something terrifying. The person in the photo looked… like me.
+
+I’ve never sat in that chair. I’ve never been in that room. And yet, there I was, sitting in that chair in a photo from God knows when. I panicked and slammed the door shut, locking it back up. Since then, I haven’t gone near it. But I keep thinking about it—what if I’ve been here before? What if something’s been manipulating time or memory in this house?
+
+I haven’t told anyone about it yet, but the feeling that something’s wrong here has only grown stronger. Things in the house have started to feel… off. Objects are misplaced, and I’ve heard footsteps in the middle of the night when no one is there. And every time I pass the basement door, I feel like it’s watching me.
+
+I don’t know what to do. Should I go back into that room and try to figure out what’s going on? Or should I leave it locked away and pretend I never found it?
