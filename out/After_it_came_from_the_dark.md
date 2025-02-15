@@ -44,7 +44,7 @@ Once it hit the grass it picked up speed and we all heard the impossibly rapid f
 
 It was moving so fast that the other guys had barely pointed their torchlights down the fenceline before it was close enough to properly make out with the naked eye.
 
-Only Lead had the foresight to start filming. It was better that way. She had more self-control than we did and was less likely to rewatch the footage over and over, than we would’ve been. 
+Only Leah had the foresight to start filming. It was better that way. She had more self-control than we did and was less likely to rewatch the footage over and over, than we would’ve been. 
 
 More importantly, none of us wanted to remember the face that it wore. 
 
