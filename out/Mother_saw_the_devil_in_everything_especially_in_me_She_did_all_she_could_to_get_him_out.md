@@ -2,7 +2,7 @@ Mother saw the devil in everything, especially in me. She tried, with beatings, 
 
 Father didn’t bother to contain her excesses. His life revolved around reading the newspaper, working, having dinner, and watching whatever game was on at night. He looked at us like animals, whose only master was mother.
 
-As her only daughter, mother was particularly worse with me. “Every woman is an Eve in potential,” was her motto towards me. There was always an apple to be eaten.
+As her only daughter, mother was particularly worse with me. “Every woman is an Eve in potential,” was her motto. There was always an apple to be eaten.
 
 My only solace was at school, where, even though I had no friends, I had books. At the library, I read everything—from geography to science fiction. The printed words were my real home, not the cramped room I was forced to sleep in.
 
@@ -14,7 +14,7 @@ Funny enough, that’s when I met Jake in biology. He sat next to me, often crac
 
 Since home wasn’t an easy place to be, I spent most of my time either with Jake or at the library. My interest in books slowly started shifting from science fiction to romance. And there he was, always, Teacher L, handing me many of those, that increasingly sparked my imagination. Somehow, it felt like every story brought Jake to mind.
 
-He began walking with me almost the entire way home, and we would spend hours talking about the movies he had seen—ones I hadn’t, of course. Jake’s world, full of smartphones, apps, movies, and tv series, felt as distant to me as my world of prayer and discipline did to him.
+He began walking with me almost the entire way home, and we would spend hours talking about the movies he had seen—ones I hadn’t, of course. Jake’s world, full of smartphones, apps, movies, and tv series, felt as foreign to me as my world of prayer and discipline did to him.
 
 One afternoon, we walked to the point where we usually parted ways—to avoid the risk of my parents seeing us—and as we said goodbye, he kissed me. It was my first kiss, and the sensation was something I had never felt before or since. I was in love at last and I realized my books hadn’t been lying about how good it felt.
 
@@ -24,7 +24,7 @@ She grabbed me by the arm and dragged me into the basement. My brothers, smirkin
 
 “My child, do not give the devil a foothold,” she said while walking up the basement stairs. "Or I’ll take it from you.” Then she shut the door, leaving me in complete darkness.
 
-That night, I wept until I physically couldn’t cry anymore. The bitter cold and the sound of rats creeping around kept me up untill late.
+That night, I wept until I physically couldn’t cry anymore. The bitter cold and the sound of rats creeping around kept me up until late.
 
 The next day, mother simply left me there as if I didn’t exist. No meals, no water, no attention. I was supposed to purify myself through fasting and self-reflection, to get rid of impure and evil thoughts. But it was on that day that impure and evil thoughts truly took root in my mind.
 
