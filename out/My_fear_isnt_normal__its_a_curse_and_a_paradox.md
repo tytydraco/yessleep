@@ -22,9 +22,13 @@ I know what you're thinking: isn’t that just anxiety, then? Some generalized f
 
 That’s the thing, though. It wasn’t general; my fear was very specific.
 
-Ever since I can remember, I’ve been afraid of something popping out of an enclosed space at me. It sounds insane, but it's the truth. That concept has had its hand gripped tightly around my throat since day one.
+Ever since I can remember, I’ve been afraid of something popping out of an enclosed space at me. 
 
-Take my first birthday party, for example. The moment my parents put a gift in front of me, which my family had wrapped for the fun it, I became inconsolable. I’m told I was wailing like a banshee, trying to run away on legs that barely had the coordination to walk at that point. My response was *so* extreme that my parents actually ended up taking me to the emergency room. They thought I may have been having a seizure or something.
+Rooms with closed doors are okay. Closets are *usually* fine. It’s the small, squared spaces that really bother me; anything that’s vaguely shaped like a box sets my fear into overdrive.
+
+It sounds insane, I know, but it's the truth. That concept has had its hand gripped tightly around my throat since day one.
+
+For an example, take my first birthday party. The moment my parents put a gift in front of me, which my family had wrapped for the fun it, I became inconsolable. I’m told I was wailing like a banshee, trying to run away on legs that barely had the coordination to walk at that point. My response was *so* extreme that my parents actually ended up taking me to the emergency room. They thought I may have been having a seizure or something.
 
 The doctors checked me out, but I was completely fine. Eventually, my parents figured out the pattern.
 
