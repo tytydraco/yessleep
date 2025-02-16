@@ -38,9 +38,7 @@ Book club went okay…ish. Karen was as pretentious as I imagined, already teasi
 
 Karen went on a long, winded rant about *Metamorphosis*, and how it *spoke* to her in ways she couldn't quite understand. 
 
-We all clapped (because she expected us to. 
-
-This woman actually stood up and BOWED) and waited for her to sit down so Allie could talk about her book, *Vampire Academy*. 
+We all clapped (because she expected us to. This woman actually stood up and BOWED) and waited for her to sit down so Allie could talk about her book, *Vampire Academy*. 
 
 The week’s theme was *vampires* and *books from our childhood*. 
 
@@ -50,7 +48,7 @@ Instead of letting Allie speak, she settled us with a smile.
 
 “This is a strange request,” she said, chuckling. 
 
-Her eyes found mine, and something twisted in my gut. I knew that look. I knew it from countless days of therapy when I tried to draw it in a white room.
+Her eyes found mine, and something twisted in my gut. I knew that look.
 
 Her words crashed into me like ice water, phantom bugs filling my mouth and skittering on my tongue. 
 
@@ -84,9 +82,9 @@ I eat when I can't drink.
 
 So, I took out my daughter’s ice cream and scooped it out with my hands, stuffing myself with frozen treats. 
 
-It felt good and disgusting and perfect. When I was choking on ice-cream barf, I wasn't thinking about Karen. 
+I wasn't thinking about Karen. 
 
-I wasn't thinking about the fact that she was wearing a long-sleeved sweater in fucking July. 
+I wasn't thinking about the fact that she was wearing a long-sleeved sweater in fucking Florida. 
 
 A turtleneck sweater, and leggings that perfectly hid every patch of her. 
 
@@ -100,7 +98,9 @@ I remember knowing exactly where they were from their shuffled footsteps and gig
 
 “Found you!” 
 
-The words were premature, however, when I found myself pointing at empty air. I barely noticed the sudden deep, impenetrable silence. Taia was gone. I couldn't see her red sneakers poking out anymore.
+The words were premature, however, when I found myself pointing at empty air. I barely noticed the sudden deep, impenetrable silence. Taia was gone. 
+
+I couldn't see her red sneakers poking out anymore.
 
 So was Liam. 
 
@@ -146,7 +146,9 @@ Which led people to speculate, and somehow come to the conclusion that *I* was t
 
 When I started my junior year, a girl plopped herself on my desk. 
 
-Dark brown hair pulled into pigtails, and a heart shaped face. She was president of the drama club. I didn't know her name, but I *did* know she was very passionate about her role in the theater . 
+Dark brown hair pulled into pigtails, and a heart shaped face. 
+
+She was president of the drama club. I didn't know her name, but I *did* know she was very passionate about her role in the theater . 
 
 Or, as she called it, “*The thee-a-tarrrr*.”
 
@@ -180,7 +182,11 @@ Even the slight prick in her ears.
 
 Her eyes were suddenly so *sad*. 
 
-“Your friends disappeared and you miss them.” She leaned closer. Too close. I pulled away. The girl dropped the dog act, her demeanour morphing back into a teenage girl. “Do you want me to act them out for you?”
+“Your friends disappeared and you miss them.” She leaned closer. Too close. 
+
+I pulled away. 
+
+The girl dropped the dog act, her demeanour morphing back into a teenage girl. “Do you want me to act them out for you?”
 
 I found my voice, trying not to snap at her. 
 
@@ -204,7 +210,9 @@ Child and teenager, my best friend who never grew up.
 
 Blinking rapidly, I was sure of it. Taia was standing in front of me. “Are you *sure?*” 
 
-She leaned closer, her eyes turning playful, her lips twitching in the *exact* same way Kai tried not to smile. She even had his eyes.
+She leaned closer, her eyes turning playful, her lips twitching in the *exact* same way Kai tried not to smile. 
+
+She even had his eyes.
 
 Taia morphed into Kai through pure *expression*.
 
@@ -278,8 +286,6 @@ Her body, her face, everything that wasn't them, was ruining this facade.
 
 I started to hate myself for thinking like that. After long days of hanging out with my friends, or one singular girl, I went home and self-destructed.
 
-I started binge-eating, my mind growing foggy until my head was pressed against the cool porcelain of our toilet.
-
 I hated her. The girl who could become my friends. I *hated* her for existing.
 
 I had to tell her before I went crazy. 
@@ -318,7 +324,9 @@ She blinked, morphing into Taia once again. Her voice was small. “What do you 
 
 She had brought my friends back in ways I never could imagine. But it hurt. It fucking hurt seeing them, and yet *not*. 
 
-There was only a certain amount of time I could suspend my disbelief, before I started to lose my mind. And this was it. 
+There was only a certain amount of time I could suspend my disbelief, before I started to lose my mind. 
+
+And this was it. 
 
 This was me losing my fucking mind. “You can stop now.” I said with what I hoped was a smile. “I don't need you to act like them anymore.” 
 
@@ -368,7 +376,7 @@ My heart was slamming into my chest, my chest aching.
 
 Liam scowled. “Oh, you want us to shut up for *good*?”
 
-“Please.” I emphasised the word, my voice breaking. Instead of focusing on Liam’s eyes, I pushed through to reality. 
+“Please.” I emphasized the word, my voice breaking. Instead of focusing on Liam’s eyes, I pushed through to reality. 
 
 The girl underneath him with no name. 
 
@@ -384,13 +392,17 @@ If I didn't imagine them being transported to a whole other world, or adopted by
 
 *“You can't say that!”*
 
-*“What? It's true! Some sicko probably snatched them, tortured them, and buried them. If the killer is smart, he dismembered their bodies. If he's even smarter, he disintegrated what was left of them in a tub full of acid, burned their clothes, and made a break for it.”*
+*“What? It's true! Some sicko probably snatched them, tortured them, and buried them."*
+
+To my disdain, they kept going. 
+
+*"If the killer is smart, he dismembered their bodies. If he's even smarter, he disintegrated what was left of them in a tub full of acid, burned their clothes, and made a break for it.”*
 
 *“Why do you care so much?”*
 
-*“I have to. This town is holding onto a miracle, and it's wrong. Missing kids are almost never found alive. Everyone knows that.”*
+*“I have to. This town is holding onto a miracle, and it's wrong.”*
 
-That day, I spent all afternoon with my head pressed against the cool porcelain of a toilet seat, choking on the phantom stink of sulphuric acid burning my throat. 
+That day, I spent all afternoon with my head pressed against the cool porcelain of a toilet seat, puking up my bile. 
 
 I had intentionally been ignorant to the inevitability of them being dead. 
 
@@ -400,7 +412,7 @@ I screamed at her and told her she was wrong. There was a memorial in the childr
 
 I ignored it. 
 
-I didn't go to the candle-lit vigil. Because my friend’s were still *alive*. 
+I didn't go to the candle-lit vigil. Because my friends were still *alive*. 
 
 I had been so ignorant, choosing to wear rose-tinted glasses 
 
@@ -434,9 +446,13 @@ The girl shrugged with a half smile, another perfectly  constructed expression.
 
 “I don't actually know.” 
 
-I watched her skip into my kitchen and pull open the drawer. I followed her. I mean, my first thought was that she was hungry. 
+I watched her skip into my kitchen and pull open the drawer. I followed her. 
 
-I was going to tell her to help herself, but then I caught this girl dragging her index finger over an assortment of my mother’s kitchen knives. She settled on one with a wooden handle, pricking her finger on the blade. 
+I mean, my first thought was that she was hungry. 
+
+I was going to tell her to help herself, but then I caught this girl dragging her index finger over an assortment of my mother’s kitchen knives. 
+
+She settled on one with a wooden handle, pricking her finger on the blade. 
 
 “I'm not really sure anymore, Becca. I've never had a name.”
 
@@ -444,7 +460,9 @@ Paralyzed to the spot, I couldn't move.
 
 “I'm calling the police.” was all I managed to choke out. 
 
-She did a slow head incline. “But I thought you wanted me to stop?” When I didn't (or couldn't) respond, she hastily pulled up the sleeve of her sleeve, tracing the knife edge across rugged stitches under her elbow. 
+She did a slow head incline. “But I thought you wanted me to stop?” 
+
+When I didn't (or couldn't) respond, she hastily pulled up the sleeve of her jacket, tracing the knife edge across rugged stitches under her elbow. 
 
 I watched her slice into them one by one, severing the appendage that was barely hanging on. 
 
@@ -460,9 +478,17 @@ I was aware I was stumbling back, but something kept me glued to the spot.
 
 With half of Taia’s smile melting down her face, the girl plunged the knife into her right eye, carving it from the socket. 
 
-She squeezed what was left of it into bloody pulp between her fingers. This time I could see pain. Agony. But it wasn't hers. 
+She squeezed what was left of it into bloody pulp between her fingers. 
 
-Her expression contorted, three different faces, three different voices. “But can you tell me…”
+This time I could see pain. 
+
+Agony. 
+
+But it wasn't hers. 
+
+Her expression contorted, three different faces, three different voices. 
+
+“But can you tell me…”
 
 She stabbed into her other eye, carving it out with her fingers. 
 
@@ -498,7 +524,9 @@ I thought I could bring them back.
 
 That's why I stood, frozen, while this *thing* grabbed one of my Mom’s paperweights, and slammed it over my head. 
 
-When I awoke, I was tied down to the dining room table. There was something sticky over my eyes and mouth. Duct tape. 
+When I awoke, I was tied down to the dining room table. 
+
+There was something sticky over my eyes and mouth. Duct tape. 
 
 I screamed, but my cries only came out in muffled pants. 
 
@@ -552,7 +580,7 @@ I kept saying it until my throat was raw.
 
 When the paramedics arrived, I was still screaming garbled words mixed with puke. 
 
-*They're there!* I shrieked over and over and over again, until a mask was choking my mouth and nose. 
+*They're there!* I shrieked, over and over and over again, until a mask was choking my mouth and nose. 
 
 I was put back together, and my friends were not. 
 
@@ -560,7 +588,7 @@ I had real stitches and scars across my body.
 
 They were still prisoners. 
 
-The sheriff came to see me, informing  me that Stella Atwood (her apparent real name) had been arrested for kidnapping and attempted murder. 
+The sheriff came to see me, informing  me that Stella (her apparent real name) had been arrested for kidnapping and attempted murder. 
 
 My attempted murder. 
 
@@ -576,9 +604,11 @@ He just shook his head and told me to get some rest.
 
 But I saw that look in his eye, that slight twitch in his lips. 
 
-He knew exactly what I was talking about. Even worse, this bastard was trying to hide it. In the space of three days, Stella Atwood no longer existed. 
+He knew exactly what I was talking about. 
 
-When I demanded to see her and point out the stitches covering her body, the CLEAR patchwork skin where she had sewn pieces of them into her own flesh, I was told “the perpetrator” had been transferred to a psychiatric facility for young people. 
+Even worse, this bastard was trying to hide it. In the space of three days, Stella no longer existed. 
+
+I was told “the perpetrator” had been transferred to a psychiatric facility for young people. 
 
 Taia’s mother slapped me across the face when I told her that her daughter was dead, and Stella was *wearing* her. 
 
@@ -592,11 +622,11 @@ I graduated high school, moved out of town, and never looked back.
 
 I cut my Mom out of my life, because fuck that. 
 
-Presently, I was kneeling on my kitchen floor stuffing myself with my daughter’s candy. The sky was dark through the windows, and my head was filled with fog. 
+Presently, I was trying to call Adam. 
 
-I was covered in chocolate and I felt physically sick, but if I was eating, I wasn't thinking. I learned that in the white room. 
+The sky was dark through the windows, and my head was filled with fog. . 
 
-When someone knocked on my door, I was already on my feet, a kitchen knife squeezed between my fingers. I had been waiting for her. 
+When someone knocked, I was already on my feet, a kitchen knife squeezed between my fingers. I had been waiting for her. 
 
 I always fantasized what I was going to do to Stella when I found her again. 
 
@@ -604,7 +634,7 @@ Sometimes, I wanted to plead with her to give them back to me.
 
 While others, I imagined myself hacking the bitch apart to get them back. 
 
-But when she was standing at my door, fifteen years later, I found myself paralysed. 
+But when she was standing at my door, fifteen years later, I found myself frozen. 
 
 I thought if I could stay still and quiet, she might go away. 
 
@@ -628,7 +658,9 @@ The first thing I saw was the clumsy line of stitches across her forehead.
 
 Adam’s voice dripped from her tongue, phantom bugs filling my mouth, seeing every part of my fiance moulded into her face. 
 
-His awkward smile and the twitch in his eye, that curl in his lip when he was trying not to laugh. I could see fresh skin grafts glued to her face, intentionally clumsy. She *wanted* me to see Adam. 
+His awkward smile and the twitch in his eye, that curl in his lip when he was trying not to laugh. 
+
+I could see fresh skin grafts glued to her face, intentionally clumsy. She *wanted* me to see Adam. 
 
 Or what was left of Adam.
 
@@ -646,7 +678,9 @@ The way she scrunched up her eyes when she was excited.
 
 “She's really nice!” Phoebe’s giggle burst from her mouth. 
 
-Before I could utter a word, the woman leaned forward, whispering in my ear, my fiancé's low murmur grazing the back of my neck. “Do you remember the old theater  in our town? Be there at 11 tonight to watch our showcase, and there might just be a little surprise waiting for you.”
+Before I could utter a word, the woman leaned forward, whispering in my ear, my fiancé's low murmur grazing the back of my neck. 
+
+“Do you remember the old theater in our town? Be there at 11 tonight to watch our showcase, and there might just be a little surprise waiting for you.”
 
 Karen left, but I was still standing there, seconds, minutes, and a full hour passing by. I vaguely remember my neighbor asking if I was okay. I told her I was fine. 
 
@@ -654,19 +688,17 @@ Karen left, but I was still standing there, seconds, minutes, and a full hour pa
 
 “She's at her grandfather’s.” I responded. 
 
-“Okay, but where's your fiance? Becca, are you all right? Is that… chocolate?”
+“Okay, but where's your fiance? Becca, are you all right?”
 
-This woman was always sticking her nose over our fence. She thrived on gossip, calling me out for being a bad Mom when I missed Phoebe’s school play.
+This woman was always sticking her nose over our fence. 
 
-Something inside me snapped apart when she repeatedly asked where Adam was, trying to delve further and further into my psyche. 
+She thrived on gossip, calling me out for being a bad Mom when I missed Phoebe’s school play.
 
-She was the human embodiment of a pick axe knocking at my skull, and at that moment I was sure I would do something I would regret if she didn't shut up. 
+She was the human embodiment of a pick axe knocking at my skull, 
 
-Stella had taken away my friends, and now she had snatched the only thing keeping me alive, the only thing stopping me from self-destructing completely. 
+I told her to mind her own business. 
 
-I told her to go fuck herself, and mind her own business. 
-
-Then I got into my car, and drove back to my hometown, to the old theater that was shut down when I was a teenager. 
+I got into my car, and drove back to my hometown, to the old theater that was shut down when I was a teenager. 
 
 The place was rundown, and I'm pretty sure it was a temporary homeless shelter at some point. 
 
@@ -690,7 +722,7 @@ Reaching the end of the hallway, I turned right.
 
 “Come on, Becca, you're going to miss the movie!” Kai joined in. 
 
-When I reached the theater , it was exactly how I remembered it, a large oval-like room with plush red seats. 
+When I reached the theater, it was exactly how I remembered it, a large oval-like room with plush red seats. 
 
 Descending the steps, my shadow bounced across the old cinematic screen. 
 
@@ -704,7 +736,11 @@ I asked Stella where my daughter was, only to get Phoebe’s laugh in response.
 
 My daughter’s voice had me sinking into a seat, my heart in my throat. 
 
-The screen flashed on, blinding white, and I glimpsed several figures around me in the audience. There was a shadow next to me. When I twisted around, I realized *it* didn't have a head.
+The screen flashed on, blinding white, and I glimpsed several figures around me in the audience. 
+
+There was a shadow next to me. 
+
+When I twisted around, I realized *it* didn't have a head.
 
 Looking closer, its arms were pinned behind its back.
 
@@ -716,7 +752,9 @@ It was a park.
 
 The camera zoomed in, capturing ten-year-old me with my face pressed against a tree. 
 
-I felt the urge to get up, to escape from the screen, but I couldn't tear my eyes away. This was the footage that had haunted me my entire life, the reason I had been trying and failing to kill myself since I was a teenager. “Hide and seek!” my younger self announced cheerfully, turning to my friends. “You guys hide, and I'll find you!”
+I felt the urge to get up, to escape from the screen, but I couldn't tear my eyes away. This was the footage that had haunted me my entire life, the reason I had been driving myself fucking crazy. 
+
+“Hide and seek!” my younger self announced cheerfully, turning to my friends. “You guys hide, and I'll find you!”
 
 Liam folded his arms. “But why can't I count and *you* hide?”
 
@@ -772,9 +810,7 @@ Her gaze met the camera for one single second, and she pulled a face.
 
 The camera footage faded out, white text appearing on the screen. 
 
-**END OF PART ONE. COME BACK TOMORROW FOR PART TWO! :)**
-
-But there was a ‘preview’ for the second part. 
+**END! :)**
 
 I only had to see one frame, which was my mother standing in front of a room full of parents, a sign looming over her head with the words, **‘For a better tomorrow’** for me to lurch to my feet.
 
@@ -790,7 +826,11 @@ The movie ended, the cinema screen going dark.
 
 “Adam!” 
 
-“Tomorrow, Becca.” My fiance’s voice bounced around the room, but I couldn't *see* him. “Come back tomorrow, all right? You need to watch the rest of the movie.”
+“Tomorrow, Becca.” 
+
+My fiance’s voice bounced around the room, but I couldn't *see* him. 
+
+“Come back tomorrow, all right? You need to watch the rest of the movie.”
 
 The lights flickered on, and I was alone. 
 
@@ -800,7 +840,7 @@ Adam was gone.
 
 The shadow next to me had already slipped away. 
 
-I left the theater , and I'm in my car right now. 
+I left the theater, and I'm in my car right now. 
 
 I'm waiting for that psycho to come back. 
 
@@ -810,12 +850,12 @@ I haven't spoken to her in years, but the LEAST she could do is answer her phone
 
 She owes me an explanation. 
 
-Fuck. I'm so fucking scared I've lost my daughter. 
-
-Please tell me I haven't lost her like them. 
+I'm so fucking scared I've lost my daughter. 
 
 I CAN'T lose her too. 
 
-Edit: I just saw the sheriff walking into the theater. There's no other reason why he'd be going inside, unless he's in on whatever this is.
+Edit: I just saw the sheriff walking into the theater. 
+
+There's no other reason why he'd be going inside, unless he's in on whatever this is.
 
 If the sheriff is in on this, who else IS?
