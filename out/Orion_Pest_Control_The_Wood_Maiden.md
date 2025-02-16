@@ -86,7 +86,7 @@ I held Ratcatcher up towards him, ready for his retaliation.
 
 It was hard to tell if my answer amused him or irritated him further. Probably a combination of both. “Just keeping you on your toes.” 
 
-He shook his head at me with a short laugh that sounded more like a warning than anything else. “Okie dokie, then.”
+He shook his head at me with a short laugh that sounded more like a warning than anything else. “Alright.”
 
 He had to jump over the side of his truck's bed when I went for him again. It wasn't often that I went on the offensive with him, and I'm irked to say that it showed. Most of the time, the majority of my training sessions were spent defending myself against an onslaught by him or one of his colleagues. I was definitely out of my element, which the banjo bastard did not hesitate to point out after the way I dared to pester him. 
 
