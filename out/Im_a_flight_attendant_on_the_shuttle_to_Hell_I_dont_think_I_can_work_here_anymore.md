@@ -25,9 +25,9 @@ Just one more flight I told myself. Just one more, then I can pay off my car. Ju
 
 Just one more. 
 
-My final flight was yesterday. I don’t think I can ever be on that flight again. At least not out of choice.￼￼
+My final flight was yesterday. I don’t think I can ever be on that shuttle again. At least not out of choice.￼￼
 
-Nothing out of the ordinary happened between waking up in the morning and the passengers blinking into this liminal existence once we were high above the clouds. But then I heard him. An elderly man in row six was calling my name. Not endlessly pressing the call button, not shouting for a flight attendant, not even a general call for help. This was something new entirely.
+Nothing out of the ordinary happened between waking up in the morning and the passengers blinking into this liminal existence once we were high above the clouds. But then I heard him. An elderly man in row six with a frail voice was calling my name. Not endlessly pressing the call button, not shouting for a flight attendant, not even a general call for help. This was something new entirely.
 
 He was calling for me.
 
