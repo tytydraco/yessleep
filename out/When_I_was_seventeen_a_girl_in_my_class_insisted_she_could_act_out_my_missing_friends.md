@@ -158,7 +158,7 @@ The girl’s smile was genuine, and somehow familiar enough for me to force one 
 
 “Thanks.” 
 
-I thought that was the end of the conversation until she jumped up, grinning a little too wildly. “Did you know I won the 2009 ‘Little Star’ acting contest? I came in first place!*
+I thought that was the end of the conversation until she jumped up, grinning a little too wildly. “Did you know I won our schools acting contest? I came in first place!*
 
 “Congratulations. That's really cool.” I told her, hinting that I wanted to be left alone. 
 

@@ -4,8 +4,9 @@ My uncle Alejandro, a man with an adventurous spirit, had bought a farm in a rur
 
 But what impressed me the most were the sounds. The whisper of the wind through the trees, the singing of geese and ducks in the small lake, the distant neighing of the horses. It was a place that, although seemingly perfect, had something in its stillness that I couldn’t quite understand. Something I couldn’t name, just like when a child feels fear but can’t explain why—it’s just… instinct.
 
-My uncle Alejandro invited us to spend a few days at the farm. We were all excited. My cousins and I played and laughed nonstop. We swam in the pool, explored every corner of the property, and the fresh morning air was the perfect refuge for our endless games. Everything seemed idyllic, almost unreal.
-But after those days of fun, we had to return to the city. The children had to go back to school, and the adults to their jobs. My uncle, due to his commitments, couldn’t be there all the time, so he decided to hire someone to take care of the farm and the animals in his absence. Mr. Ramón, a sturdy man with a deep voice, arrived with his wife—a woman with an expressionless face—and their two children, Esteban and Sara. Esteban, a boy of about nine or ten years old, had a sad look in his eyes, as if childhood laughter had slipped away from him too quickly. Sara, his sister, was a mystery. Though she was about our age, her behavior was more like that of someone much older—quiet, distant, lost in thoughts we couldn’t understand.
+My uncle Alejandro invited us to spend a few days at the farm. We were all excited. My cousins and I played and laughed nonstop. We swam in the pool, explored every corner of the property, and the fresh morning air was the perfect refuge for our endless games. Everything seemed idyllic, almost unreal. But after those days of fun, we had to return to the city.
+
+The children had to go back to school, and the adults to their jobs. My uncle, due to his commitments, couldn’t be there all the time, so he decided to hire someone to take care of the farm and the animals in his absence. Mr. Ramón, a sturdy man with a deep voice, arrived with his wife—a woman with an expressionless face—and their two children, Esteban and Sara. Esteban, a boy of about nine or ten years old, had a sad look in his eyes, as if childhood laughter had slipped away from him too quickly. Sara, his sister, was a mystery. Though she was about our age, her behavior was more like that of someone much older—quiet, distant, lost in thoughts we couldn’t understand.
 
 Mr. Ramón’s family stayed at the farm whenever my uncle wasn’t there. But when we or other guests arrived, they moved to a set of rooms my uncle had built especially for them, a place separate from the main house. Even so, we shared the kitchen and the rest of the farm, and although it was sometimes difficult to ignore the fleeting glances or the awkward silence of Mr. Ramón’s wife, the adults acted kindly, as if everything was fine.
 
@@ -30,17 +31,15 @@ My mother and my uncle’s wife, Estrella, had noticed something strange about M
 Then, I heard Mr. Ramón ask the adults about some crosses. Crosses? What crosses? His face was tense with worry. He described finding crosses in different parts of the farm—some buried, others partially visible, as if they had been deliberately hidden. In places we had never noticed before: near the fountain, between the two houses, behind the hilltop house, among the trees, by the geese’s lake, near the horse stable, even by the main entrance.
 
 Who had put them there? And why?
-A heavy silence settled over the night, as if something unseen was lurking in the shadows. Then, in a low, almost whispering voice, Mr. Ramón asked my uncle Alejandro:
 
-“Has anyone else been here when we weren’t? Has someone entered without us knowing?”
-
-My uncle, with a furrowed brow, shook his head, but there was a spark of doubt in his eyes. He didn’t know how to respond because he, too, had noticed something strange. It wasn’t just the presence of the crosses but something in the air—something intangible and invisible, yet everyone could feel it.
+A heavy silence settled over the night, as if something unseen was lurking in the shadows. Then, in a low, almost whispering voice, Mr. Ramón asked my uncle Alejandro: —“Has anyone else been here when we weren’t? Has someone entered without us knowing?” My uncle, with a furrowed brow, shook his head, but there was a spark of doubt in his eyes. He didn’t know how to respond because he, too, had noticed something strange. It wasn’t just the presence of the crosses but something in the air—something intangible and invisible, yet everyone could feel it.
 
 It was my mother who finally broke the silence, looking at Mr. Ramón with a serious, almost sorrowful expression.
 
 “That’s not normal. We haven’t placed crosses on the farm, and we hadn’t seen them before. And now, suddenly, they appear. What’s going on here?”
 
 But there were no answers. No one knew what to think. We only knew that something was out of place—something we couldn’t comprehend.
+
 The next day, I was no longer myself. I couldn’t behave normally after that conversation. My eyes wandered everywhere; I needed to confirm the presence of the crosses. I managed to find the ones in the garden, the one among the trees near the lake, and the one behind the main house. They were very rudimentary crosses, made of branches with a very dark hue, almost ebony, tied together with twine or some type of rope. I couldn’t bring myself to approach them—something told me I shouldn’t touch them. But at least now I knew they were real.
 
 That same night, the air was thick and heavy, as if the darkness itself were breathing over us. Outside, the adults continued searching with their flashlights for something no one could see—whispers and uneasy glances as they tried to decipher the source of a noise that had broken the night’s silence on the farm. I watched from the half-open door, my heart pounding in my chest. That’s when I saw her.
@@ -55,9 +54,7 @@ I didn’t know how to answer. It didn’t make sense. It was too late, the nigh
 
 My eyes instinctively turned to Mr. Ramón’s wife. She remained standing at the doorway, holding her flashlight unlit in her hands. She made no move to stop her daughter. She didn’t call out to her, didn’t try to follow her. She just stood there, motionless. And the most terrifying thing was her expression. There was no fear in her eyes, no concern… only resignation.
 
-A chill ran down my spine.
-
-My body urged me to act, to call her name, to run after her… but something—something I couldn’t explain—kept me anchored to the ground, as if interfering would be a mistake.
+A chill ran down my spine. My body urged me to act, to call her name, to run after her… but something—something I couldn’t explain—kept me anchored to the ground, as if interfering would be a mistake.
 
 “I’m going to tell my mom,” I whispered, and without waiting for an answer, I ran upstairs.
 
@@ -89,8 +86,7 @@ But my aunt didn’t reply. She was staring at her camera screen, her expression
 
 “Oh my God…” my mother whispered, covering her mouth with a hand.
 
-I moved closer, trying to see what they were looking at. In the photo, in the lit window, there was a clear silhouette of a man—or something resembling a man. He was sitting sideways, his profile barely outlined by the light. But the most disturbing thing was his abdomen—it protruded unnaturally, swollen or deformed.
-Silence fell over us. My uncle Alejandro checked the image and shook his head.
+I moved closer, trying to see what they were looking at. In the photo, in the lit window, there was a clear silhouette of a man—or something resembling a man. He was sitting sideways, his profile barely outlined by the light. But the most disturbing thing was his abdomen—it protruded unnaturally, swollen or deformed. Silence fell over us. My uncle Alejandro checked the image and shook his head.
 
 “There was no one there… I went in, I checked every room. There was no one.”
 
@@ -98,18 +94,18 @@ But the image didn’t lie. Fear took hold of the adults. They grabbed our hands
 
 By morning, the decision had been made. They woke us before dawn, everything was packed and ready. We had a quick breakfast, and without looking back, we left the farm. The journey back to the city was long and silent. But once home, everything seemed to return to normal—or so we thought.
 
-A few days later, my aunt Carla was reviewing the photos she had taken during the trip. She connected her camera to the TV to project them. Only she, my mother, and I were in the room, watching the screen. The first images were normal—us playing, exploring, laughing at the farm. But then, something changed.
-Spots appeared in the photos.
+A few days later, my aunt Carla was reviewing the photos she had taken during the trip. She connected her camera to the TV to project them. Only she, my mother, and I were in the room, watching the screen. The first images were normal—us playing, exploring, laughing at the farm. But then, something changed. Spots appeared in the photos.
+
 Circles—some dark, others whitish, like shadows floating in the air. At first, we thought it was a camera glitch. But as we kept looking, the spots became clearer. If you stopped and looked closely… if you got close enough… you could see human features in them.
 
-Eyes.
-Mouths open in anguish.
-Figures that hadn’t been there when the photos were taken.
+Eyes. Mouths open in anguish. Figures that hadn’t been there when the photos were taken.
+
 My aunt Carla turned off the screen immediately.
 
-A year later, my uncle put the farm up for sale. It wasn’t easy to sell. More than a year passed before someone showed interest. And during that time… more things happened. But that’s another story.
-The truth is, we never found out what really happened.
+A year later, my uncle put the farm up for sale. It wasn’t easy to sell. More than a year passed before someone showed interest. And during that time… more things happened. But that’s another story. The truth is, we never found out what really happened.
 
 What were those crosses?
+
 What was that figure in the window?
+
 And what were those dark and white spheres?
