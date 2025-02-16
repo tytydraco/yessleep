@@ -652,7 +652,7 @@ I was opening the door, trying to think of an excuse for my momentary lapse in s
 
 She was wearing Adam’s face. 
 
-“Bex, what *happened*?”
+“Becca, what *happened*?”
 
 The first thing I saw was the clumsy line of stitches across her forehead. 
 
@@ -726,7 +726,7 @@ When I reached the theater, it was exactly how I remembered it, a large oval-lik
 
 Descending the steps, my shadow bounced across the old cinematic screen. 
 
-“Take a seat, Bex.” 
+“Take a seat.” 
 
 Adam’s voice. 
 
