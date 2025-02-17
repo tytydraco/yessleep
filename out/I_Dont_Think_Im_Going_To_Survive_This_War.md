@@ -1,0 +1,53 @@
+Journal of Corporal David 'Diggs' Raines, 25th Infantry Division 'Tropic Lightning'
+
+Shanghai, China - 03/15/33
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Day 22
+
+We've been in Shanghai for 22 days now, and we haven't advanced passed this stupid building, Jin Mao Tower, every day we go up fight what we think are the last remnants of a dwindling resistance in a run down office park, and then we get 4-6 more men killed. It's either that or we hear some news about PLA movement towards our position and we have to sally out and set an ambush. When we do go out those stupid Chinese assholes just erase all our progress and kill the guys left behind to make sure we don't lose the fucking joint. When we figured out how bad it was, we realized we couldn't have veterans dying to just lose the same tower again and again, so as awful as it is, Lieutenant Peters just keeps ordering the replacements to stay behind. I don't blame him, only a couple of us left are day oners, hell even I haven't been here from the start, but I was one of the few times we held back the push from the top floors. 
+
+The stalemate wouldn't be so bad if weren't for the drones. it gets worse we go out, but even when we are "secure" inside the tower, we have FPVs buzzing in through the broken windows. That has been the worst. We thought Ukraine was bad, but when you have two super powers with all the money in the world, you can afford to buy better drones than civilian drones with RPG rounds stuck to them. The Chinese intentionally made their drones loud, or at least their most recent ones, while it's nice to get an early warning, I hear those fucking banshees in my ***SLEEP***. Every drone operator we find, I shoot them, they are the weakest among us, the bottom dwellers of modern warfare, they get on those stupid tablets and just kill  3 guys like they're in a video game. I guess at the end of the day it doesn't matter how a man kills someone, but I wish they'd have the decency to do it like a man.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Day 24
+
+We went out today, same old shit. An old type 99 APC was rolling up the street towards us with heavy infantry support. We packed our stuff up, we know the routine. Our own drone operator, whom I still despise even though he is on "our side" packs up a Mavic, and we drug our sleep deprived selves up and away. Some replacements from the Illinois National Guard stayed behind, they still had their old unit patches on their arm. Poor bastards.
+
+Our mission was routine, our Mavic drone brought hell down on the infantry, and we finished the APC with a AT-4 shot to it's side. Corporal McCown took an APC round and whatever was left of the corporal got  splattered in Webber's face. We got the hell out of there we heard the Chinese drones already responding, like some sort of hivemind. There was one weird thing today though... We found a sergeant from the 82nd, guy was wearing one of those new prototype exo-skeletons, the guy had his arm completely snapped in half, and his head had been crushed in, like it was stomped on. The exo-skeleton was also in tatters, the hard titanium had been bent like it was a table spoon. Kinda wish we would get one of those suits since they would come in handy for CQC, but I guess for that guy... it didn't.
+
+When we came back, to our surprise those guard boys did pretty well, they had set up proper security, and held the Chinese back. Maybe the Chinese up there really are getting spread thin.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Day 25
+
+We're supposed to move up tonight, try and clear out the Chinese, Lieutenant Peters made the same observation I did yesterday and thinks that this time, this is it. My squad is gonna go in first, with second squad and then first squad following. We got picked to go first since we already have above 80% fighting capacity.
+
+Holy Hell we did it. The Chinese are down to 3 floors left before they're all dead. We caught the Chinese by surprise, I guess they didn't expect us to do it since Peters hadn't ordered us to go up in a while. My squad cleaned the hell out of the first couple floors, we lost Rogers, but that was because his own stupid self just waltzed into a room that hadn't been cleared. He got cocky and he died for it. Caught a round in the knee, and then 2 more into the side of his chest, where the plate was thinnest. I killed 4 commies though, one of them was a drone operator that tried to give up, I'll see him in Hell. Figgins saw me do this, and finally confronted me. He asked what the Hell my problem was, and said "drone operators are still combatants". I told him to back the fuck off. I let him know that his kind were the scum of the Earth, and he had no moral code to speak to me about. I don't care how you kill someone unless you have 0 threat to yourself. He retorted "you had 0 threat to yourself when you executed that man". I sat there, I had been a little hypocritical on this, but looking back now I should've told that smug son-of-a-bitch that there was threat to me still since that little Chink fuck could've just picked his gun back up and shot me.
+
+I can't sleep again so I thought I'd right about some stuff I've heard and saw while sitting up from this lookout. Drones were active tonight, and that's probably the reason I can't sleep, I saw a couple of their flashes through my NVG's from way out past our little area, to think each of those flashes is maybe one or two people just gone. Rain clouds look like they're coming I can see them from a little further than the harbor. Kept watching the USS Gerald Ford fly out sorties to bomb the Chinese sectors. There was one thing I saw though before I left. I had already put up my NVG's and I saw with my own two eyes, red dots moving with machine like precision throughout a friendly skyscraper near here, I keep seeing gunfire through the windows where those dots are. They look like they're about 7ft off the ground. I cant see well through my rifle sight, and my thermals didn't see anything other than the American soldiers firing at whatever that was. I just hope it's not new drones that guns attached or something like that.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Day 28
+
+It's been pretty uneventful these last couple days, we secured the tower, and have done a couple routine missions, but now we have calls to move back to that skyscraper I talked about the other day. No radio signals returned from the guys garrisoned in it the other day, or the boys sent to reclaim it.
+
+We're resting before moving on, but the road up to the scraper has had some awful shit in it. More bodies, but not all of them had bullet holes. Lots of them had wounds akin to the body we found about a week ago. Broken bones, smashed limbs, and pieces of flesh torn out. There was one guy that had been flung on top of a street light somehow. Also we found an old Abrams with the commander hatch completely ripped off. I'm getting freaked the fuck out since, what does that. It's not infantry, it's not drones, and it's not vehicles. Lots of people say we should just call it a lost cause, and call for a JDAM on top of the tower. Peters says we'll move on the tower at around 0300 hours.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Day 29
+
+We should've bombed that tower into rubble, and then bombed the rubble into dust. We moved forward around 0200 hours and when we got to the tower we saw them. They were 7-8ft tall, literally Chinese war machines. I always thought war bots would always be an interesting piece of science fiction, too expensive to mass produce. China proved that wrong. We moved into the building with our thermals on and we just didn't even see them. They're so energy efficient that they don't emit enough heat to be detected on thermals. Sergeant Ramirez was point man, and we heard metallic whirring, and suddenly Ramirez was lifted off of the floor and thrown into another guy from 2nd squad, the thing grabbed Ramirez so hard that a chunk of Ramirez's torso was turned into mush. Then they opened up with their rifles. My M7 wasn't enough to bring down one of those things, and we couldn't use AT in doors point blank so the entire platoon was sent packing. Peters snagged the body cam of one of the bodies, and made off with it. He's hoping to give it to command.
+
+I don't know how I'm alive cause they weren't done with us when we started running. They got the stragglers first with either bullet or just snapping their neck. But they were **FASTER**, and the guys at the front were now in danger. They moved like the unthinking killers they were, methodically killing us. Humans get tired, and Robots don't. Humanity was a species based on persistence hunting, and now we were no longer able top dog in that aspect. I dropped my pack, and my rifle, trying my hardest to keep myself pushing at a pace that kept me alive. I wasn't with a group any more, but I got lucky enough to sprint passed a friendly checkpoint, a bunch of Japanese guys with an M2. They would've shot me if weren't for the fact I was shouting bloody murder in English. I quickly explained to one of their guys that spoke English that they needed to be on high alert, and that killing machines were not far behind me. 
+
+As awful as it is to admit it, in that altercation at the tower I had literally shit myself, and quickly asked to use their makeshift bathroom made from a porta-potty scavenged from a construction site not too far from here and a toilet taken from the wall of a random store, I went into freshen up, but I heard gun shots outside the porta-potty 10 minutes ago, and the chattering of those Japanese marines has stopped since. I don't know what to do. There is just that familiar whirring. If anyone finds this, please get my most recent entries to my family. I don't know why I was so hard on other guys for doing their job, I didn't know just how bad it could be. I think I've made my peace with god and my own thoughts. But those things won't care.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Thanks for reading, this was my first attempt at writing creatively, and not just for an essay in English, I know it's probably a little sloppy, and certain elements needed be expanded upon, and wrapped up better. If you have any suggestions on how to improve please let me know:)
