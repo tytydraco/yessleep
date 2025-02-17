@@ -4,7 +4,7 @@ It all started some time ago, during the closing weekend of the Northern Zone ri
 
 I climbed down from the frigid tree stand, my back turned to the dark, silent forest. Normally, the walk back to the main road takes about ten minutes, but it took me an hour. Whether it was the darkness, the cold, or sheer exhaustion, I lost my way. And, like a hungry lion, the forest seemed to swallow me whole.
 
- Stumbled through the mud-covered snow, my white knuckles growing even paler as my grip tightened around my rifle. The sounds around me were faint—the hostile wind whipping through the forest, the soft clink of my bullets in my pocket—until, suddenly, I heard it.
+Stumbled through the mud-covered snow, my white knuckles growing even paler as my grip tightened around my rifle. The sounds around me were faint—the hostile wind whipping through the forest, the soft clink of my bullets in my pocket—until, suddenly, I heard it.
 
 A sound I’d never forget. A sound that still haunts me to this day—the cry of an infant. Wailing, calling for a mother who wasn’t there. I froze in my tracks, but only for a moment. Then I started walking faster, breaking into a light jog. The rational part of me insisted it was just some half-starved coyotes, scavenging for any scraps to ease their shriveled stomachs. But deep down, I knew that was the biggest load of bullshit on God’s green earth.
 
@@ -22,11 +22,8 @@ Silence closed in around me as I took in my surroundings— a clearing I didn’
 
 Then, I snapped out of my trance, realizing the stream of crimson blood oozing from the tiny hole in the tree. As soon as it hit my mud-crusted boots, I heard it—a blood-curdling scream echoing from the woodline behind me. It didn’t sound human... but it didn’t quite sound like an animal either.
 
-I bolted through the forest, crashing into the godforsaken trees as I went. My frantic flight through the woods came to an abrupt halt with just a few more steps. I stumbled out onto the dirt road, falling onto my rifle as I tripped, finally reaching the path that led to my truck. I jumped into the cab, slammed the engine to life, and sped down the road. I’d never felt such relief in my life as I saw the familiar outline of my small house in the distance. 
+I bolted through the forest, crashing into the godforsaken trees as I went. My frantic flight through the woods abruptly ended with just a few more steps. I stumbled out onto the dirt road, falling onto my rifle as I tripped, finally reaching the path that led to my truck. I jumped into the cab, slammed the engine to life, and sped down the road. I’d never felt such relief in my life as I saw the familiar outline of my small house in the distance. 
 
-Even now, six years later, I’m not ashamed to admit that I’ve never been hunting since—or even set foot in the woods, for that matter. But every once in a while, on a cold winter’s night, I’ll hear something in my yard—or sometimes even from behind my window. A voice I’ll never forget, whispering something that haunts me to this day:	
+Even now, six years later, I’m not ashamed to admit that I’ve never been hunting since—or even set foot in the woods, for that matter. But every once in a while, on a cold winter’s night, I’ll hear something in my yard—or sometimes even from behind my window. A voice I’ll never forget, whispering something that haunts me to this day:
 
-“Hello. I see you. You know that, right”
-
-
-
+“Hello. I see you. You know that, right?”

@@ -66,7 +66,7 @@ Flustered, I walked away and grabbed the first person I could find.
 
 “Jess!”
 
-She was mid-conversation with Marcello, who was giving her son a piggyback ride. But she spun around, startled.
+She was mid-conversation with Marcello, who was giving her son a piggyback ride. She spun around, startled.
 
 “Iggy?”
 
@@ -264,7 +264,7 @@ After ten minutes it got really embarrassing. Amelia was a little offended that 
 
 Of course, the more I started talking about it, the more I actually *did* remember a little. Despite forgetting all my past neighbors and friends from that apartment … I did not forget about Tony.
 
-In fact, Tony was the dark reminder of thewhole event.
+In fact, Tony was the dark reminder of the whole event.
 
 By remembering him, I was able to rewrite this story with pseudonyms and my best guess as to what my life was like before. He was the one who took that all away.
 
