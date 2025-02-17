@@ -1,51 +1,85 @@
-I had known Hugh since childhood, but by this time I hadn’t seen him for several years. You know how it goes—by the time you reach the ninth grade, you promise to be best friends forever, then you go out three times to the pub during high school, and that’s the end of it. But Hugh probably didn’t want it to end that way, and so a few months ago, a letter arrived in my mailbox.
+Red and white, with a large lamp rotating at the top, illuminating the path for boats.
 
-"Dear Denis,
+I always admired that lighthouse; I felt like I needed something to light up and guide my own path too. I was always a bit lost. When I was younger, my father would sometimes take me with him to the lighthouse. We would bring supplies—fish, meat, salt, milk. I would wait in the truck while my father talked to the lighthouse keeper. A short conversation, never more than thirty minutes.
 
-I haven’t seen you in a long time. If you ever want to come see me at the lighthouse, wait for me at Miami Harbor, dock number 608, any even Wednesday at dawn. Or you can make your way here on foot; it’s about thirty miles east of South Beach, though I would strongly advise against it. Hopefully, we’ll see each other soon.
+I never asked why we brought supplies. My father worked at a sawmill near our house. We weren’t a store. Well, I also never asked what they talked about while I was inside the car. It never really mattered to me, only the fact that there was always a new lighthouse keeper.
 
-Hugh Colins"
+Not every time we went, of course. But they definitely changed frequently. I don’t think I remember any of them staying for more than six months. Their appearances were similar—always men, old, and with a worn-out look. That, I did ask my father about.
 
-It struck me as strange how he assumed it was obvious that he lived in a lighthouse. One part of me thought the trip was a ridiculous waste of time, while another kept reminding me that there was nothing to do at home anyway. At that time, I was mostly living off my father’s inheritance and the small jobs people occasionally offered me. After my father’s death, I was, on one hand, financially secure, and on the other, bored out of my mind because, although taking care of him had been a real drag, at least it kept me busy enough not to notice the emptiness of my life.
+— Why do they change so often, Dad? The lighthouse keepers.
 
-In the end, I realized that I had nothing else to do, so I decided to go. That very day, I went to the Greyhound Lines office and booked a ticket for the next bus to Miami. I packed a small bag, and the next morning, I patiently waited at Port Authority bus terminal until a shabby-looking vessel, which the driver called "Baby," arrived.
+— Well, son. Have you ever thought about living in a lighthouse? Giant waves crashing all night long, living up there? Doesn’t it scare you? Maybe the lighthouse keepers just don’t get used to it...
 
-When I was young, my parents would punish me by making me kneel on a spoon, and despite that, I can honestly say the hours spent in that bus were the longest I’ve ever experienced. By early Wednesday morning, I arrived in Miami and immediately hurried to the harbor. At dock number 608, a man in shorts, a sailor’s shirt, and a cap was standing. He had short hair and scruffy facial hair.
+At least, that’s what I remember from our brief conversation. Since I didn’t really care, that answer satisfied me, and I didn’t question him further. But that night—well, I don’t know if it was exactly the same night, but before going to bed at my usual time—I had a thought: what scared the lighthouse keepers so much? Was what my father said really enough to scare adults?
 
-"Denis, is that you?" he asked. "I’m so glad to see you, old buddy," he smiled and shook my hand warmly. It had been about ten years since I last saw him, but he looked like he had aged about twenty-five years. On our way to the market to buy supplies, we chatted about life and how much everything had changed. I was really curious how someone ends up as a lighthouse keeper.
+That night, before sleeping, I imagined what could scare adults. I thought of many things—mermaids, pirates, the Kraken, and other sea monsters... Until something else came to my mind. The sea. Yes, the sea.
 
-"It’s simple, my friend. You carefully watch the classifieds in the newspapers. And when they don’t have any ads, you look for articles like ‘Desperate keeper committed suicide by jumping off the lighthouse.’ That usually means they have a job opening. This is the third lighthouse I’ve worked at. The previous two stopped functioning. Nowadays, everything’s transported by airplane, and the lighthouse keepers don’t have much to eat," he sighed, but then laughed again. It turned out that he hadn’t really changed much since I last saw him, around the end of high school.
+I remembered a time when we traveled to my aunt Margarida’s house, my mother’s sister. She lived in a house facing the sea, and since it was the end of the year, we went down to the beach to watch the fireworks from the other side of the shore. When midnight struck, everything was so dark on the beach, only the moonlight shining. At twelve-oh-one, the sky lit up, and we watched the fireworks display. They were beautiful.
 
-After a pleasant lunch and the obligatory visit to the liquor store on Twenty-Second Street, we boarded a small boat and embarked on a two-hour journey to the lighthouse. On the island, the warm wind blew, and the sky was a deep azure. It kind of reminded me of the planet of the Little Prince because from one end, where the dock was, you could see all the way to the other end, where a sharp rocky outcrop stood.
+But when the colors of the fireworks faded, and everyone was celebrating and popping champagne, I was staring at the sea. The sea, which always seemed pleasant and beautiful during the day, was now dark, infinite. It swallowed me, almost as if it drowned me without me even being in it. I felt so small and insignificant before that particular sea (even though it was the same sea as always) that the sensation of being consumed haunted me every time I remembered.
 
-"Hey, Hugh, what’s that over there?"  
-"That’s a cave. I used to go swimming there, but a few months ago, some stones fell from the ceiling, and now it’s a bit dangerous because of the waves."
+Well, when I recalled that, it occurred to me that maybe that was what scared the lighthouse keepers—that feeling of powerlessness. I really didn’t want to think about it anymore, so I turned off my bedside lamp and took a while before finally falling asleep that night.
 
-I assumed Hugh spoke from experience, because when I asked, a nervous look appeared in his eyes.
+A year later, I was now in seventh grade. My father had been fired from the sawmill and no longer delivered supplies as often. My life remained normal; even though my father had lost his job, my mother had a well-paying one, enough to support us. Well, that didn’t please my father much, who was quickly looking for a new job. Other than that, my days went on as usual. Until the argument.
 
-It was beginning to get dark, so we started a fire and threw a few steaks on the grill. And since God doesn’t look after us after dark, we had to open the bottle of Wild Turkey we had bought earlier—the whiskey Hugh liked. Maybe it was the fire, or perhaps just the atmosphere, but that steak, straight off the grill, was the best piece of meat that had ever touched my lips.
+Two weeks after my birthday, my parents were very impatient with each other. And I knew why. The lighthouse.
 
-"Aren’t you ever afraid to be out here? I heard there are some treacherous waves or something, that ships sink and planes crash and so on," I asked as the moon rose directly above us and we moved inside because it was time to signal the Cuban steamer that we were where we were supposed to be.
+At dawn, I think it was around five forty in the morning, I woke up to an argument. It was my parents, but the one who seemed angrier was my mother. I slowly went down the stairs so they wouldn’t hear me and listened to part of their fight.
 
-"Afraid to sail? I’d have to be a real coward to be afraid of these little waves," he replied, gesturing toward the sea, where the reflection of the moon and stars shimmered on the water.  
-"But the night here on the island can be eerily quiet, you know. Especially since I’ve been alone here."
+— You’re still spending money on this, Jhonatan!
 
-"Has anyone been with you? Didn’t something happen, like the thing you told me about from the newspaper?" At that moment, I regretted asking anything. I had driven my host into a very uncomfortable conversation.  
-"I didn’t mention it?" He paused. "I used to have a dog named Ronnie and a wife, Isla. One day, Ronnie wandered off somewhere, and Isla..." He stopped again, and it seemed like he was fighting back tears. "Isla got some sort of disease here and died almost overnight. The whole family blames me. I should’ve taken her away from here. I basically killed her." Hugh’s head dropped into his hands, and I didn’t know what to say.
+— Rosa, you know I have my reasons!
 
-Suddenly, we were interrupted by the sound of crying. At first, I thought it was Hugh, but then he lifted his head and showed no signs of sobbing or sniffing. "What’s that, Hugh?" I asked, though I briefly wondered if it was a product of my tipsy mind. "The Grey Lady. That’s what the locals call her. They say she was a woman who shipwrecked here years ago and died of hunger, and she still cries to this day. The truth, and the scientists have confirmed it, is that it’s some sound the waves make, shifting through the peculiar arch of that cave."
+— Do I? Because it doesn’t seem like it! You just disappear and go to that damn lighthouse...
 
-That piqued my curiosity, and I really wanted to go see the cave. Hugh looked at me again with a nervous smile. "If the conditions are good tomorrow morning, I could show you."
+— love...
 
-  
-I tried to get more local ghost stories out of him in the hope that we might at least leave the "dead wife" subject for another night. He told me, he knew  none, except for a tale about a pirate’s ghost from Brickleberry. "Bummer. Want a drink?" I asked. He agreed, and we had a drink. Then, I probably fell asleep; it was already well past two in the morning.
+— Before, I let it slide, but now… Things aren’t easy, Jhonatan… Ben is growing up, and you and this damn town seem more different every day...
 
-The sound of crying woke me up again. I chuckled under my breath at the story of the Grey Lady and then decided I might as well take a trip to the latrine while I was awake. I opened my eyes and noticed that Hugh was sitting at the end of the bed, his head in his hands again. I was about to say something, to reassure him it wouldn’t be that bad, but somehow, I couldn’t move. God, I was tied up.
+After that, things calmed down a bit, and I went back up to my room. After that argument, my father started avoiding taking supplies when my mother was home. I didn’t understand why he kept bringing things to the lighthouse. One time, I asked him about it—he gave me an angry look and didn’t answer. I didn’t ask again.
 
-Hugh turned toward me, and I noticed the knife in his left hand. He began to scream. It became clear that Hugh wasn’t just a nice guy but also possibly a cannibal. He covered my mouth. "You don’t understand. She’s hungry. She would take me. I can’t go to hell without a fight. Not after what I did. I had to."
+The days went by, and my father kept taking supplies to the lighthouse. Still unemployed, apparently, the town was changing, and finding a job was getting harder. Before, I didn’t notice, but now it was clear that the nights lasted longer and the cloudy skies were more constant. On my way to school, I noticed the animals were more restless, and vines were taking over buildings, almost as if nature was enraged, reclaiming what was hers.
 
-He repeated the last sentence over and over as I felt a sharp pain and warm blood somewhere in my stomach. My eyes closed, and I knew the game was over.
+Things in town were strange, as if something was affecting people and animals—it was all so... eccentric. One day, my biology teacher said we needed to buy boats and inflatable vests because of the rising sea levels. Well, things were weird, but if it had stopped there...
 
-The last words I heard were, "It wasn’t your fault. She’s to blame. That monster, that monster." And at the very end, something clicked for me. I didn’t resist. He was right.
+On a Wednesday when school was canceled because a driver had crashed a bus into the building at dawn, I saw my father heading to the truck. I saw the box in his hands and immediately knew where he was going. It was seven in the morning, my mother had just left for work, yet the sky was caught in the twilight between day and night.
 
-He had to.
+I grabbed my jacket and ran to the car, asking if I could come along. He didn’t agree, but he didn’t refuse either. He just stood there, staring at the windshield. So I got in and sat in the back seat. There we were, as always, heading to the lighthouse together. But now, it felt different...
+
+I realized it had been a while since my father and I talked as much as before. And I wasn’t as excited to get to the lighthouse and see if another keeper had taken over.
+
+The road to the lighthouse—a familiar path. It had been part of my routine (or at least it was until a few months ago when I stopped going with my father). But this road was different. It felt different, yet somehow the same.
+
+Then I noticed—the grass had overtaken the sandy soil of the old road, the sky was dark, almost like night. I looked back—it was as if night ended in the town and began at the lighthouse. Unimaginable. And there, at the end of the path, I saw the lighthouse, lit. Its light spinning. That sight filled me with terror.
+
+I looked at my father, shocked—the landscape around us sent chills down my spine. He didn’t react, but he seemed aware of the difference. It even felt like he had sped up, continuing toward the lighthouse. What could I do? Jump out of a moving car? Sure, we weren’t going that fast, but it would still be unpleasant. And besides, I was with my father. Where would I be safer?
+
+But I can’t lie—I was terrified.
+
+We arrived at the lighthouse. Everything was dark, like night, only the lighthouse's beam illuminating us. My father got out of the truck, grabbed the supply box from the passenger seat, and walked to the lighthouse entrance. Minutes passed—he stood still.
+
+Then, in the midst of that horrific scene, I did something I had never done before. I got out of the car.
+
+I stepped out, the trees swayed in the intense wind, and the salty scent of the sea filled my nostrils. My legs trembled as I walked toward my father. When I reached him, he moved. He put the box down and started walking toward the edge of the cliff, as if he had been waiting for me.
+
+I followed him slowly, looking around at the eerie landscape.
+
+My father walked to the edge of the cliff and waited for me, looking back, waiting.
+
+At that moment, I was terrified of my own father.
+
+But I kept going.
+
+Now, standing beside him, I looked at his face. He looked back at me, then gazed forward again. His face seemed tired. Then, he pointed to the sea, staring at it. I couldn’t ignore it, so I looked where he was pointing.
+
+I looked at the sea.
+
+And at that moment, it looked exactly like the sea I had seen at Aunt Margarida’s house. Exactly the same.
+
+The same dark, endless sea.
+
+A sea that even the lighthouse’s beam could not penetrate.
+
+And as I stared at my old enemy, that feeling returned.
+
+I was swallowed by fear.
