@@ -149,3 +149,132 @@ I could hear her smile through the phone.
 "Hello ? Mom ?"
 
 The line cut and Lewis stopped rolling, he was completely fine and back to his youthful form, the tumor was gone. I sat grateful and scared, I had no other choice. I had to go back home. 
+
+I had  not slept in 3 days due to a growing pain in my stomach, somehow the constant vibrations of my seat rocked me to sleep. A simple question kept coming back, why did he need me? He had not called in months and would certainly not turn to my parents for any help. He prided himself in always finding his own way, a passion or skill and  I envied him greatly for it.  I have spent my entire life thinking I’d save the world, now what ? I had a constant  nosebleed and lost some of my teeth ? 
+
+My phone rang, it was Mike. He whispered rapidly.
+
+“Don’t come home, I beg yo-..”
+
+“What do you mean ? I’m on my way, mom called”
+
+“For once stop fucking listening to them”
+
+I could hear somebody else behind him, a much older voice.
+
+“Is that a phone ? Does it work here ? Give it to me ! ”
+
+A fight broke between them  and before I could even say a word, the line cut.
+
+I tried to call home but nobody answered.
+
+I arrived around 5 in the morning, which offered the most transcending view.  Orange mountains dressed in a sparkly white coat reflecting the timid head of the sun. A moment of inner peace blossomed as Lewis climbed on my shoulder.  It would be the last time I enjoyed this place. I stretched my legs and fed Lewis.  The trail from the bus station to Mike’s shed was about an hour long. I could spend some time with him and be home by noon. 
+
+Lost deep in the woods, the tiny cabin seemed to pull away with each step I took. The large and elongated trees blocked all the light I could hope for. The decrepit door crumbled under my hand as I touched the soggy  handle. I slowly opened the door trying to catch a look inside before entering. Somehow it was cooler inside as if the cabin had its own gust of wind.  The wooden floor was drenched. So was the table, the bed, anything but his desk .The gloomy and cold room smelled like a pond on a hot summer day. But most importantly, Mike was nowhere to be found. 
+
+His keys and wallet next to his bed and food on the table meant he had left in a hurry, he must have been terrified. He had endured so much loss and disrespect and always kept a straight face.  I’ve only seen him scared once, he was 10 years old and had just finished a lesson with grandma this time, her true form maybe. After that he rejected every teaching, alone in his room all day. He kicked and screamed during the blessings and pretty soon was running away for days and sometimes weeks. 
+
+On his desk were neatly arranged stacks of papers and a deck of tarot cards. I turned the light on and the walls were covered in dozens of articles and cut out pictures of random people. One mentioned the apparition of Lake Isaac in 1972 and  another Lake Tammy in 2005, particularly frightening as during a winter night it flooded 2 houses and claimed the lives of everyone inside. Another mentioning a strange occurrence at a nearby town in 1989, a mother about to give birth brought with her 37 people. They threw a gigantic tantrum as some were crying, scared of missing the birth. Once the baby was given to the mother the audience came in, as soon as the baby started crying the people joined in and laid on the floor. Loud wailings from adults imitating a baby could be heard across the  hallways . Hands over their chest and rolling around, crying. The baby stopped as it was gasping for air, the mother screamed for help and the guests held their breath. The police soon arrived and some were arrested for misconduct and insult to a government official. The pile of paper was actually a book that Mike printed : “Seaweed: The Symbiose of The Cells” written by a supposed scientist named Bill Pines. 
+
+At first I wanted to remove it all and bring it to my parents, I was angry at him, at me. All I could think about was the baby. I was supposed to be the only one, not copied but mirrored for my greatness and our friends could be her grandchildren through me. I came in for answers and left with more questions and pain than I could imagine.
+
+ The ball of pain inside my stomach was now moving, I folded as sweat rained on my forehead. The metallic taste of blood brushed my teeth and covered my tongue, another tooth fell out. I ran out the woods as fast as I could, holding Lewis on my shoulder.  
+
+Sweaty and out of breath, I was finally there. As I rose my head up the large black house in ruins on the hill looked down on me, fear making its way in my body as I walked the narrow path. The roaring pain in my stomach on the other hand was much quieter now.
+
+I rang the sticky door bell waiting for the worst. 
+
+“Oh sweetheart”
+
+My mother had an endearing look I’ve never seen, as if she missed me.
+
+“Where is Mike ?”
+
+“What’s wrong sweetheart ?”
+
+“Where is he mom ?”
+
+“What did he say sweetheart ?”
+
+“Nothing, I have not talked to him in months, can I come in ?”
+
+Her nice deeminer turned into a sour grin.
+
+“Of course.”
+
+After the fear, nausea took the front seat. The endless yellow walls of the many hallways blurred my vision, the good old rancid smell of decomposition emanated from it and took over my nose. I could hold my cough and the wooden floor seemed to expand as we walked. I can hardly believe these were good conditions for children.
+
+“He was not at the cabin.”
+
+“Good for him”
+
+I stopped with despair. 
+
+“There was another baby ? I mean another me ?”
+
+“Grandma loves you and you have disappointed her, you are the only thing that matters to her ! How dare you question the place she gave you ?”
+
+“She abused me, made me eat my pets and now makes me sick ! What place is this ? ”
+
+Eyes wide open her dry bony finger pointed in my direction. Her look was now stern and deprived of any love.
+
+“What. Did. He. Say. To. You ?”
+
+With tears coming down my eyes I timidly looked at the floor. 
+
+“I should not come home”
+
+“And here you are, move along.”
+
+We kept on going in between the many hallways lit by the same golden chandeliers. Turning left and right whenever she wanted the paths seemed to multiply everytime we took a turn. Until the gathering room door appeared. A gigantic white wooden gate encrusted in symbols, 7 of them to be exact. The 7 layers of the soul represent the different level of commitment to grandma or so I taught.
+
+I stopped as I could not stop crying.
+
+“Why don’t you care ?”
+
+“He is already with her.”
+
+“What ? What did you do ?”
+
+For the first time I rushed in front of her face and screamed.
+
+“Why did you do this to me ? You tortured me and used me for your sick rituals”
+
+“The thing in your stomach ? It’s gone isn’t it ?”
+
+She gently wiped my tears and hugged me. I froze in her arms and in an instant I became that kid again. Getting reassured after each session with a warm hug and compliments.
+
+“You are the successor, they will obey and bow to you. We’ve worked so hard sweetheart”
+
+She let go of the embrace and went back to her usual form, cold and focused. The doors opened for us and grandma was waiting. Crossed-legs on the couch covered by her black veil, only a skeletal necrosed finger slowly pierced through and pointed at a wooden chair under the golden chandelier.
+
+I knew I had to sit and get ready for another lesson. The last one ever since.
+
+As always I would have to close my eyes and repeat the same mantra over and over again. gripping the chair, my voice shaking as I was scared to mess up.
+
+“I will be the fool forever and always longing for your mercy, I will hang from the the tree of your desires, I will seek for you at every turn as you embody my truth, I will be the vessel for your wise words, I will give birth to his offspring and carry them through ascendance, I will accept my fate if the world is not shape for you, I will be for him and only him.
+
+My mother kept repeating the mantra while forcing food in my mouth, I spat it out realizing Lewis was long gone.
+
+“Don’t stop” 
+
+Yelled my mother amused and extatic.
+
+As I repeated myself I wept loudly, I swallowed the little I could trying to forget the texture as much as possible,  my feet were now leaving the floor and I could see it pulling away from me. I never levitated before. I dropped the chair and felt my back sticking to the ceiling, first my fingers contorted forming 5 turned back spirals so my nails could touch the back of my hand. My right arm twisted on itself twice and miserably hung from my shoulder. As for my left arm, my elbow cracked open and got in between the back of my neck. Each bone in my legs broke, from my toes to my hips as if a raging horse was attached to it. Soon each nerve in my body pulsed. My face  was a distorted statue , a monstrous canvas capturing the excruciating pain. Only my eyes could move glancing around the room for safety, only tears and snot meant I was alive.
+
+“Mark ! She is doing it for good !”
+
+My father rushed into the room applauding me.
+
+“We are so proud sweetheart, you have no idea” 
+
+I was used to the contortion as most of the teachings revolved around it, but I could have never imagined where it would lead me to. I stayed in the position for a week or maybe a month, the sunlight being my only notion of time. Somehow she was always here, silent and immobile.
+
+My mother entered the room crying, she kneeled towards the couch head on the floor
+
+“Please High Priestess, I beg for your forgiveness, mercy and love. I will be led to him though you graciously,  Please mother I beg, please let her ascend and meet him.”  Grandma pointed her finger at me and my mother ran out the room. Suddenly the walls got closer to me, I looked down and Grandma was gone. The walls had now turned into a narrow hallway, the room had recited so much that my contorted body was recluding on itself. I was able to breathe and move freely now. For some reason I pushed as hard as I could in hopes to save what was left of myself. I was stuck in about 18 inches of yellow concrete trying to find an escape. I pressed the wall facing me with two feet and felt it move, I gave on last strike and the wall dropped. So did I. 
+
+I landed on a perfectly set dining table, the forks and shards of glass cutting me in the process. I laid there appreciating that my body went back to normal. The walls were covered in wood and the small squared windows were covered with deep green curtains. The light came from a naked white lamp on the ceiling. Old paintings of goats covered the room.
+
+ I sat on the table, ate the food and pulled out my phone and had no signal. I ran out of the room only to find the exact same room, but it was raining inside this time. I ran out and still, the same room but the goats were now cats. In the next the windows were now opened and people were roaming around seemingly lost and disheveled. I kept opening the same doors and now the people were trying to climb through the window. I stopped as in this dining room  the windows were shut. I sat down and accepted my delusions. Mike was right. I should not have come back home, it was a trap for their unnecessary worship. I cried again apologizing to Lewis at the same time when suddenly the handle of the door moved, someone was coming in. A yellow mass presented itself to me, a man in a hazmat suit.
+
