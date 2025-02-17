@@ -2,6 +2,8 @@
 
 [Previous ](https://www.reddit.com/r/nosleep/comments/1iih1yq/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next ](https://www.reddit.com/r/nosleep/comments/1irxfug/im_a_contract_worker_for_a_secret_corporation/)
+
 A smaller creature jumped attempting to rip away flesh. A well-placed punch smashed it to pieces only to have to reform again. The stranger took the bow from his hip to fire a few shots. His arrows were simply sharpened sticks he embedded with magic. He did not have enough premade arrows ready. We were simply outnumbered. In the middle of fighting for my life, I noticed something. Whatever he hit did not get back up.   
 
 “Parasitic cores!” he shouted then gracefully rolled away to avoid being cut in half.  

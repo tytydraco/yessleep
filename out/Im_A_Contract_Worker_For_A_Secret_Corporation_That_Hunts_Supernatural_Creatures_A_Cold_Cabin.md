@@ -2,6 +2,8 @@
 
 [previous](https://www.reddit.com/r/nosleep/comments/1id9isf/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1ijhlgb/im_a_contract_worker_for_a_secret_corporation/)
+
 Recently, Dr. Fillow came over to look over my bad leg. The visit wasn’t promising. The leg was deteriorating regardless of how many magic-laced wrappings he used. I couldn’t afford a new one, and legs weren’t easy to come by even if I had the money. We settled on something that may unsettle most people. It was a layer of fake skin similar to a thigh-high sock. Anything it didn’t cover would be wrapped with bandages.   
 
 After it was put on it made the leg that gave me pain for over two years appear almost normal. Aside from some tightness when I bent my knee, I had no new issues. A dull pain still came from my hip however I’d almost gotten used to it. The only reason why Dr.Fillow hadn’t provided this treatment before was because he didn’t have access to the right materials. I asked him what he used to make the new leg covering and he simply refused to answer stating it was better if I didn’t know. I didn’t press him for more information.   
