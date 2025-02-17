@@ -1,0 +1,19 @@
+For years, I was a regular at my local gym, always timing my workouts right after work at 5 PM. But the peak-hour rush—crowds, noise, and interminable waits for machines—wore me down. Eventually, I couldn't stand it anymore. Craving peace, quiet, and space, I decided to switch my routine to the ungodly hour of 4 AM.
+
+Initially, the shock to my system was palpable, but the tranquillity of those early hours soon became a balm to my soul. The gym, bathed in the soft glow of overhead lights, was nearly empty. The only sounds were the steady rhythms of my own breath and footsteps, punctuated by the subtle hum of the air conditioning. Each machine's cold metal seemed to echo the chill of the empty space. It was bliss, feeling as though I had the place all to myself—until I realized I wasn’t as alone as I thought.
+
+A few sessions in, I noticed him—a tall figure with a similar build to me, always dressed in a dark hoodie, the hood pulled up to obscure his face. Like a shadow in the corner of the gym, he never interacted with anyone and moved from machine to machine with eerie precision. Curiously, he never made a sound. My attempts to greet him with a friendly "Hi" as I passed were met only with silence; he never acknowledged my presence.
+
+As the days turned into weeks, my unease grew. The air seemed colder whenever I was near him, and his presence began to feel more ominous, his routines too mechanical. Driven by intrigue and a creeping dread, I decided to record the gym floor from my phone, hoping to catch anything that might explain his bizarre behaviour. Reviewing the footage sent a chill down my spine—the video was glitchy and distorted whenever it captured him moving, as though he was some kind of spectre the camera refused to focus on. Everything else was clear and normal but not him.
+
+Later that same day, determined to unearth his story, I approached him one chilly morning. He stopped and slowly turned to face me. For the first time, I saw his face, and my heart stopped—his features were grotesquely disfigured, scars and burns marring his visage in a way that spoke of severe trauma. The sight triggered a visceral reaction; my stomach churned, my hands trembled, and a cold sweat broke out across my forehead. Shocked and frightened, I stumbled back, my mind racing with horrific possibilities.
+
+Haunted by what I’d seen, I left the gym and later, as I drove home from work, a truck ran a red light, slamming into my car. I woke up in the hospital, battered and bruised, my face now a mirror of the horror I had seen in the gym.
+
+Recovery was long and painful. My emotions ranged from denial to anger and eventually acceptance as I grappled with my new reality. When I was finally able to return to the gym, the early morning hours, once a time of solitude and peace, now carried a new weight. My scars were too raw, too visible for the daylight crowd.
+
+* * * * *
+
+I find myself drawn back to the 4 AM sessions, alone. Pulling my hoodie over my head, I hide my disfigured face from the world. As I move from machine to machine, I wonder if someone will ever try to reach out, to pierce the veil of my solitude with a simple “Hi.” If they did, I’m not sure I could respond, trapped as I am in my new reality.
+
+One morning, as I enter the gym, a newcomer glances my way, hesitates, and then, with a tentative voice, offers a cautious "Hello." I pause, the echo of weights louder in the quiet, my shadow stretching across the gym floor, intertwining with the shadows of the machines—a visual echo of my fate. I turn away, unable to face him, now the silent watcher, a spectral presence in the predawn quiet, my story etched in scars, hidden in the shadows of a darkened gym.
