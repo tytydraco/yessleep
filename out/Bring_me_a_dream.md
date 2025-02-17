@@ -38,9 +38,7 @@ Nothing to worry about, all sorts of weird instincts and functions happen when y
 
 “Whenever, I just need to get dressed.”
 
-
-
- 
+&nbsp;
 
 Barring some tantrums over leaving the park, the day progressed in tranquility. I didn’t even give our conversation a second thought. It burrowed far into the recess of my mind.
 
@@ -75,8 +73,9 @@ Last night, I regaled Caroline with a story about a fur footed girl traveling wi
 “Yeah, okay, and when she watches those movies she is going to know what a thief you are.”
 
 
+&nbsp;
 
- 
+ 
 
 Sure enough, the next morning came as it always did. My phone wailed out in distress, I silenced it and began to wrestle with the exhaustion in my eyes. First things first, I stared at the baby monitor and found our little girl still sleeping, safe and sound. No dreams of sharks, trolls or even dragons.
 
@@ -106,8 +105,7 @@ I picked her up, making sure that she didn’t get any of the mess on her. Nothi
 
 Kids are weird, and they otherwise do or say outright creepy things. After dealing with it for years you stop really thinking about it. We go back to my bedroom and gently, as gentle as a child can be, we wake up Katie and eat breakfast before I must go to work.
 
-
-
+&nbsp;
 
 
 During work hours find it in themselves to move slowly. I kept a healthy dose of caffeine to keep the exasperation at bay. The drive home would have been as mundane as any other time if it weren’t for the detour thrust upon me.
@@ -118,7 +116,7 @@ Wipers swiped across my windshield, erasing away the rain that pouring down. I h
 
 The man raised his hand to his mouth to speak over the weather, “A bunch of pigs broke out of a truck and started running into the river! They are all over the road! Someone totaled their car into one of them! Go!”
 
-The man waves me off to the turn. He had no more time for explanation. Pulling up the road slowly I peak over my passenger side to try to make out the scene. I have heard a tale or two in my life but cannot say that suicidal pigs were something I was familiar with. 
+The man waves me off to the turn. He had no more time for explanation. Pulling up the road slowly I peak over my passenger side to try to make out the scene. I have heard a tale or two in my life but cannot say that suicidal pigs were something I was familiar with. 
 
 There was a truck with a livestock trailer with the gate ruptured open, no doubt from the escape of the herd. A small white sedan sat crumpled against one of the beasts. Its corpse had erupted over the hood like sausage burst from its casing.
 
@@ -155,8 +153,8 @@ Just a few days prior she had asked me if I see through my own eyes, or do I see
 “Maybe that’s good,” Caroline yawned once more, and I knew it was my cue to let her drift off.
 
 
-
- 
+&nbsp;
+ 
 
 Katie and I eventually go to sleep after some short chatter. As for what I told Caroline, when I was about 5 years old, I got clipped by a car. I was in the hospital for weeks; my skull was cracked alongside several other injuries. As I recovered, it appeared that aside of no longer having dreams, I would be relatively normal. The doctors told my parents that all things considered, it was the best outcome from such a severe head injury. I can’t complain, I would trade dreams for an able body. There were talks of long term affects and I have routinely been through scans and follows up my whole life to make sure we can catch any further complications should they arise.
 
@@ -169,8 +167,8 @@ There was some minor strife as the state had assigned a case worker to make sure
 This night though, I found myself dreaming.
 
 
-
-  
+&nbsp;
+ 
 
 For a nameless reason, my eyelids sparked open, allowing the darkness of the room to obscure my vision. I looked over and could make out Katie sleeping beside me and I began to shift my weight over to my side. Only, I couldn’t.
 
@@ -192,12 +190,12 @@ The orbs shift so slightly forward, different pairs took their turns blinking. T
   
 I clasped my eyes shut, this was just a dream. My first dream in many years of course would be a nightmare. Shortly it would be gone. My hopes would not realize quickly enough, as I heard a slap of flesh, a scraping across my floor. I felt several spots of warm breath hitting my face.
 
-“You haven’t any more time Luke”. The voice ripped into my body. I heard drips fall on the floor. I could only smell the consistent effect of sea water and wet fur. But with each source of breath, slamming against my body blowing my hair around. A hunt of decay, like that of meat that has been left out in the heat, an unfortunate animal baking on the roadside from hours ago. 
+“You haven’t any more time Luke”. The voice ripped into my body. I heard drips fall on the floor. I could only smell the consistent effect of sea water and wet fur. But with each source of breath, slamming against my body blowing my hair around. A hunt of decay, like that of meat that has been left out in the heat, an unfortunate animal baking on the roadside from hours ago. 
 
 My heart is racing towards an unknown goal. I can feel my breathing getting more and more shallow. I can feel my own conscious escaping my brain. A barrage of horns scream and steel clash.  
 
 
-My useless arm joins its twin as my shoulders force me up.  A command not from my own thoughts. The sounds do not relent, I knew that I was pleading for my body to stop. I knew that something else was quietly, politely even, declining. I felt the furnace of the beasts breathes scorching across my face. My heart pounds much too hard and in a frantic rhythm. Bile coated my throat. The lids of my eyes only just govern my vision. My head looked only forward. My eyes pushed as far as they could to the side of the bed, just barely failing to find their mark.
+My useless arm joins its twin as my shoulders force me up.  A command not from my own thoughts. The sounds do not relent, I knew that I was pleading for my body to stop. I knew that something else was quietly, politely even, declining. I felt the furnace of the beasts breathes scorching across my face. My heart pounds much too hard and in a frantic rhythm. Bile coated my throat. The lids of my eyes only just govern my vision. My head looked only forward. My eyes pushed as far as they could to the side of the bed, just barely failing to find their mark.
 
 “There is much atrophy.”
 
@@ -208,12 +206,12 @@ The sea slowly fading from the room, the trumpets concluding their play, in the 
 “Do not prefer delusion to truth, Luke,” only the eyes remain. The terrific, beautiful voice only just yet lost its daunting volume, “I shall yet leave the sea.”
 
 
-
- 
+&nbsp;
+ 
 
 “Luke! Luke Get up!” Katie shouts, shaking me free of my paralyzed state.
 
-I dart my eyes open, my mouth drawing as much air as my lungs will hold.  “Holy shit, Jesus”.
+I dart my eyes open, my mouth drawing as much air as my lungs will hold.  “Holy shit, Jesus”.
 
 “Its 8:30 Luke, you are going to be late, hurry and get up”. Katie pushes me up to get out of bed. I struggle to return to the monotonousness of reality.  
   
@@ -229,7 +227,9 @@ I quickly returned her love and finished dressing. I almost slip on the floor, s
 
 
 
- 
+&nbsp;
+
+ 
 
 I enjoy the occasional horror movie. I would like to say that I understand how annoying it is to see a character oblivious to obvious signs of something otherworldly. You will have to forgive my dense reaction to that night. Logic and rationale of a mind conditioned to the norm, are not so easily shaken. Despite what may be the truth, the only thing I wanted to do was find out why I began dreaming again.
 
@@ -245,4 +245,4 @@ For all the joy that should have hatched in me, I found a cuckoo of indifference
 
 Doctor Elijah smiled, with true glee and authenticity.
 
-“Luke I believe you will dream again.” 
+“Luke I believe you will dream again.”
