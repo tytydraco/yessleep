@@ -1,8 +1,8 @@
 I awoke in a cell. No bars. No doors. Just shimmering energy fields crackling with violet light.
 
-I groaned as I pushed myself up on shaky arms. The cell was sterile and frigid; its air thick with piss and sweat. My breath fogged faintly in front of me as I scanned the room—and froze when I saw *them*.
+I groaned as I pushed my naked body up on shaky arms. The cell was sterile and frigid; its air thick with piss and sweat. My breath fogged faintly in front of me as I scanned the room—and froze when I saw *them*.
 
-Three figures sat huddled in a far corner.
+Three naked figures sat huddled in a far corner.
 
 A young man skeletal and shivering, his ribs jutting beneath paper-thin skin;  
 
@@ -24,20 +24,18 @@ I fell down, darkness swallowing me again.
 
 “Alex,” I croaked, the name tearing loose like gravel. “I’m… Alex.”
 
-The young man, edged closer from the shadows. His naked frame cast jagged shapes on the shimmering energy field behind him.
+The young man, edged closer from the shadows.
 “Welcome to hell,” he whispered, his voice frayed at the edges.
 
-Sarah who was also naked, shot him a glare that could’ve melted steel. “*Don’t*,” she hissed through clenched teeth. Turning back to me, her tone softened, though her wide eyes stayed wild. “That’s Ethan… How long ago were you taken? Do you remember?”
-
-I tried to sit up, but the room tilted violently. My skull throbbed in time with the low, insectile hum of the energy field surrounding us.
+Sarah shot him a glare that could’ve melted steel. “*Don’t*,” she hissed through clenched teeth. Turning back to me, her tone softened, though her wide eyes stayed wild. “That’s Ethan… How long ago were you taken? Do you remember?”
 
 “I… don’t know,” I said finally. “I was closing up the shop. Alone. Then there was this… light…”
 
-“Alone.” The word slithered out of the corner like a snake. A gaunt naked figure emerged from the gloom, the older man. His sunken eyes burned fever-bright in his skeletal face.
+“Alone.” The word slithered out of the corner like a snake. The older man. His sunken eyes burned fever-bright in his skeletal face.
 
 “They prefer isolation,” he rasped, his voice dry as parchment. “No witnesses. No resistance.”
 
-Sarah hooked an arm under my back and hauled me upright with surprising strength. The floor beneath us felt spongy, almost alive under my hands. “That’s Dr. Reeves,” she said curtly, nodding toward him without looking away from me. “He’s been here longer than any of us.”
+Sarah hooked an arm under my back and hauled me upright with surprising strength. The floor beneath us felt spongy, almost alive under my feet. “That’s Dr. Reeves,” she said curtly, nodding toward him without looking away from me. “He’s been here longer than any of us.”
 
 Reeves barked a laugh, a hollow sound that echoed off the sterile walls. “Longest that *we know of,*” he corrected with a grin that didn’t reach his eyes. “Days? Weeks? There’s no way to tell...”
 
