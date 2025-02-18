@@ -321,3 +321,8 @@ So as always, any advice is appreciated. We’re in the home stretch now, that a
 Till next time, watch your windows, and look out for each other. 
 
 Punch. 
+
+
+Looks like I'm getting by, with a little help from my friends. 
+
+https://www.reddit.com/r/nosleep/s/zPKzmt992W

@@ -2,6 +2,8 @@
 
 [Previous: ](https://www.reddit.com/r/nosleep/comments/1i2vvfn/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1iih1yq/im_a_contract_worker_for_a_secret_corporation/)
+
 Lately I’ve accepted a few smaller jobs just to keep busy. I found if I was alone with my thoughts for too long, I didn’t like the outcome. Mostly I was worried about what would happen now that August was free. Breaking a collar was no easy feat. We made a basic report but expected something drastic to come of our actions. My cellphone rang and I debated on not answering when I saw Lupa’s name. He always brought some sort of stress. Instead of putting it off, I listened to what he wanted.  
 
 It was just a basic job of missing hikers in a forest. Since I wasn’t busy Lupa asked if I could investigate the cause. I didn’t need to solve the problem, just reported back if it was a supernatural issue or not. He mentioned an Agent would be joining me. That either meant this job would be much harder than he let on, or there was something else he wasn’t telling me. His tone made it very clear I couldn’t refuse.  
@@ -282,7 +284,7 @@ These two did not like each other. At all. I looked between them with questions 
 
 The tall thin Agent appeared very proud of himself without a hint of shame.  
 
-“Was anything you told me true?” I pressed very offended that he had lied about a dead partner for his gain. 
+“Was anything you told me true?” I pressed very offended that he had lied about a dead partner for his gain.
 
 Finch, or Agent Abberline wrapped an arm around my shoulder to affectingly press his cheek against mine before I pushed him away.  
 

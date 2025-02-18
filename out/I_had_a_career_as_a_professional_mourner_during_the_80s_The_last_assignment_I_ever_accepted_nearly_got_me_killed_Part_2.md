@@ -96,7 +96,7 @@ Onto *us.*
 
 Just then, there was another sound. Something much closer, internal to the coffin, rather than the external tapping of the dirt against stone. A quick *pop* from somewhere beside me.
 
-The creaking of joint that hadn’t moved in quite a while.
+The creaking of a joint that hadn’t moved in quite a while.
 
 \------
 
@@ -140,17 +140,18 @@ As fortune would have it, my captor was fairly well endowed, both his stem and h
 
 I spun, grasped his family jewels, twisted them around their axis and pulled down, bringing Bassel to his knees. Once his head was within reach, I jabbed a thumb into his eye. Don’t think I blinded him, but he was certainly incapacitated at that point.
 
-Before long, I was sprinting out of the graveyard. I passed Horus on my way out, writhing against the two attendees who were pulling him by his wrists towards the hole his father was lying in.
+Before long, I was sprinting out of the graveyard. I passed Horus on my way out, writhing against the ground, two attendees dragging him by his wrists towards the hole his father was lying in.
+
 
 He saw me, and I’m glad I had the presence of mind to wave at him as I was dashing by, a massive smile plastered on my face.
 
 \------
 
-Of course, Jom didn’t *actually* rise from the dead. That popping sound *was* his shoulder joint, but it was because I knocked into it, not because he was moving it.
+Of course, Jom didn’t *actually* rise from the dead. That popping sound *was* his shoulder joint, but it made a noise because I accidentally knocked into it, not because he was moving it.
 
 But that gave me an idea.
 
-What I realized was that, in order for those psychos to believe that I wasn’t who I had said I was, I needed objective evidence that I was an imposter. From what I could gather, they were trying to use me to resurrect Jom. But, like any cult, the process had rules.
+What I realized was that in order for those psychos to believe that I wasn’t who I had said I was originally, I needed objective evidence that I was an imposter. From what I could gather, they were trying to use me to resurrect Jom. But, like any cult, the process had rules.
 
 *“Passionate love is the best conduit.”*
 
@@ -178,7 +179,7 @@ Packed my bags, moved across the country. Kept my first name but changed my surn
 
 Over the years, the memories have grown a bit dusty. They don’t have as much terror associated with them as they used to. Which, in turn, has caused me to be plagued by nostalgia. A longing for the good old days, when I was really and truly alive.
 
-Of course, that’s all bullshit. I just needed a reminder; a sample of that long dormant fear.
+Of course, that’s all delusional rubbish. I just needed a reminder; a sample of that long dormant fear.
 
 I sure as shit got one.
 
@@ -190,9 +191,9 @@ I shot the client a funny look, because I had no idea what they were talking abo
 
 They saw my confusion in the mirror, gave me a lecherous smile, and continued.
 
-*“Color is so important, love. It doesn’t get as much credit or attention as it used to, but that doesn’t mean it’s lost its potency. Quite the opposite, actually. It’s a resource that’s remained relatively untapped, which means the potency has accumulated. Now, it's a wellspring.”*
+*“Color is so important, love. It doesn’t get as much credit or attention as it used to, but that doesn’t mean it’s lost its potency. Quite the opposite, actually. It’s a resource that’s remained relatively untapped, which means the potency has accumulated, gathering over time. Now, my love, it's a wellspring.”*
 
-*“What I’m saying is, it all would have worked just fine if you stayed. You really were dressed for the occasion, Robin.”*
+*“What I’m saying is, it all would have worked just fine if you stayed with me. You really were dressed for the occasion, Robin.”*
 
 And finally, I see it. He looks *like* Horus, but not exactly.
 

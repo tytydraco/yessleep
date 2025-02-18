@@ -2,6 +2,8 @@
 
 [Previous ](https://www.reddit.com/r/nosleep/comments/1i1betf/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1id9isf/im_a_contract_worker_for_a_secret_corporation/)
+
 The best course of action was to remain calm. That was extremely difficult staring down a monster without any weapons on hand. My broken arm throbbed and I found it hard to stand with my bad leg trembling. August stood up uneven on his feet spitting out blood. His eyes made contact with mine giving a silent signal he had some sort of a plan. I just needed to trust him. 
 
 He had been taking in magic trying to recover his wounds. Something was wrong. The flow looked find and yet he kept stopping before he had enough. June wasn’t holding the power back or taking it from him. So why wasn’t August able to go beyond a certain amount? 
