@@ -180,7 +180,7 @@ My heart almost stopped then and there. My mother was called… Marie? Suicide? 
 
 “She attempted to commit suicide with you in her arms. Marie… your mother, she was never a mentally all there woman. But I loved her, as love would have it. Love is like that. She was odd, shy and a bit of a tomboy. Beautiful. Gorgeous. Red hair, green eyes. And son if you saw those tits!” He laughed. My dad was always like this. He never held back on crude jokes in front of me.
 
-But right now I couldn’t focus on his joke. My mind was filled with the image of this stranger.
+But right now I couldn’t focus on his joke. My mind was filled with the image of this stranger. The woman my dad was describing was not Mary.
 
 “Ah, but yeah. A bit of a loony. Marie’s own mother, your nana, said it just happened one day. She broke. I don’t know what caused her to snap but one day while I was workin’ she crawled into the laundry chute of our old home. Victorian. Very nice place. Anyway she crawled in, you in her arms. She blocked both exits, doused you and herself in petrol and lit a spark. Always a miracle, I said. God’s child you were. Barely a scratch on you when the firemen sifted through the ashes and rubble. But it’s weird… they said they found you in the walls. How a baby could crawl out of a barricade laundry chute and into the walls always baffled everyone that worked on the case. But who was I to care? My boy survived.”
 
