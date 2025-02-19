@@ -52,7 +52,7 @@ But I had no idea I had ever gone through one. Rav was just as shocked as I was.
 
 We tried again, removing and reinserting the injection, and the warning kept the same.
 
-I struggled to recall if there were any gaps in my memory, but nothing stood out. My life story had been a common escape from my strict parents and homeland to seek a better future in this country—just like many other operators who endured long hours, below-average pay, and a temporary visa.
+I struggled to recall if there were any gaps in my memory, but nothing stood out. My life story had been a common escape from my strict parents and homeland to seek a better future in this country—just like many other operators who endured long hours, below-average pay, and a permission to stay in the country.
 
 Maybe we could check the database to see if there was actually a record. It was possible that it was just an error.
 
