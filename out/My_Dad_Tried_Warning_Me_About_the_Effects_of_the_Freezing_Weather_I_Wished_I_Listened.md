@@ -1,4 +1,6 @@
-The last few winters had been pretty mild, all things considered. I grew up with parents who lived through the blizzard of ‘78 … and talked about it any chance they got. My dad was a little bit of a prepper. We always had a generator, kerosene heater, and shelves full of canned food in case of an emergency. My parents relocated to Florida two years ago. They seemed to enjoy the warmer weather and beaches. They only visited my siblings and I in Ohio during the summer. We were of course free to visit them in Florida anytime. Unlike most of my family I really didn’t mind the winter. I wasn’t particularly sensitive to cold and enjoyed the way the world slowed down- at least after the holidays. 
+
+
+The last few winters had been pretty mild, all things considered. I grew up with parents who lived through the blizzard of ‘78 … and talked about it any chance they got. My dad was a little bit of a prepper. We always had a generator, kerosene heater, and shelves full of canned food in case of an emergency. My parents relocated to a warmer area two years ago. They seemed to enjoy the mild weather and beaches. They only visited my siblings and I in the midwest during the summer. We were of course free to visit them anytime. Unlike most of my family I really didn’t mind the winter. I wasn’t particularly sensitive to cold and enjoyed the way the world slowed down- at least after the holidays. 
 
 
 
@@ -22,11 +24,11 @@ Dad must’ve sensed the slight annoyance in my voice. “Sorry to call so early
 
 
 
-I was confused. Winter weather was typical in Ohio. Obviously some years were worse than others but it wasn’t like some of the southern states where the world shuts down for an inch of snow. “Okay, what’s up?”, I asked. 
+I was confused. Winter weather was typical in the midwest. Obviously some years were worse than others but it wasn’t like some of the southern states where the world shuts down for an inch of snow. “Okay, what’s up?”, I asked. 
 
 
 
-Dad immediately launched into a long explanation about how this weekend would be some of  the coldest weather Ohio’s ever seen and gave me tips on protecting my home and car from the effects of the cold. I silently nodded along, too tired to really register a lot of it. All in all, I knew the drill. Change the furnace filter, don’t alternate temperatures on the themostat , let the water drip to avoid pipes freezing, keep emergency supplies on hand in case of an outage. 
+Dad immediately launched into a long explanation about how this weekend would be some of  the coldest weather we've ever seen and gave me tips on protecting my home and car from the effects of the cold. I silently nodded along, too tired to really register a lot of it. All in all, I knew the drill. Change the furnace filter, don’t alternate temperatures on the themostat , let the water drip to avoid pipes freezing, keep emergency supplies on hand in case of an outage. 
 
 
 
@@ -66,7 +68,7 @@ I decided to head to bed early. I needed to save the candles and there wasn’t 
 
 
 
-I handed her a quilt as she sat on the couch. I tried to figure out where she was going but her answers were vague and non-committal. She barely said anything at all. From what I could gather, she didn’t have a phone or car and was headed “home” but didn’t seem to know where home was. “Is there someone you can call?”, I asked. She nodded. I unlocked my phone and handed it to her. She slowly typed in a number then waited. The then closed the phone and handed it to me. “No service”, she said. I nodded. Last I had checked I was still able to use my phone and data but maybe now it was out due to the weather.  I heard  Arlo’s low growl from the bedroom. I tried to call him over to calm him but he wouldn’t budge. “What’s your name?”, I asked. “Blayne…Blayne Quinn”, she responded.
+I handed her a quilt as she sat on the couch. I tried to figure out where she was going but her answers were vague and non-committal. She barely said anything at all. From what I could gather, she didn’t have a phone or car and was headed “home” but didn’t seem to know where home was. “Is there someone you can call?”, I asked. She nodded. I unlocked my phone and handed it to her. She slowly typed in a number then waited. The then closed the phone and handed it to me. “No service”, she said. I nodded. Last I had checked I was still able to use my phone and data but maybe now it was out due to the weather.  I heard  Arlo’s low growl from the bedroom. I tried to call him over to calm him but he wouldn’t budge. “What’s your name?”, I asked. She provided it. 
 
 
 
@@ -74,15 +76,15 @@ I offered her water and a granola bar and she accepted. I brought her the snack 
 
 
 
-Blayne was gone. The front door was wide open and snow and cold blew into the foyer. “Damn it!”, I exclaimed, shivering.  I looked outside and there was no trace of her. Oddly enough, not even foot prints. I stepped outside and called out to her with no response. I shut the door and deadbolted it. I paced for a few minutes trying to figure out what do. If I didn’t look for her, she could freeze to death. She was obviously disoriented and likely in danger. Frustrated at the prospect of having to go back outside, I put my boots and coat on. My car was covered in a thick layer of snow and ice. I could barely get the door open. It wouldn’t start. I cursed and sat my head on the steering wheel. I checked again for phone reception but still had none. 
+The strange woman was gone. The front door was wide open and snow and cold blew into the foyer. “Damn it!”, I exclaimed, shivering.  I looked outside and there was no trace of her. Oddly enough, not even foot prints. I stepped outside and called out to her with no response. I shut the door and deadbolted it. I paced for a few minutes trying to figure out what do. If I didn’t look for her, she could freeze to death. She was obviously disoriented and likely in danger. Frustrated at the prospect of having to go back outside, I put my boots and coat on. My car was covered in a thick layer of snow and ice. I could barely get the door open. It wouldn’t start. I cursed and sat my head on the steering wheel. I checked again for phone reception but still had none. 
 
 
 
-I walked up and down the street, calling out for Blayne. The walk was a cold  hell. The icy breeze burnt my eyes and throat. My hands and feet were going numb despite wearing gloves and winter boots. I decided to head home. There was no point in getting frostbite to find someone who didn’t want to be found. But I couldn’t let go of the sick feeling that I could be the only thing standing between Blayne and hypothermia. As I trudged home darker thoughts clouded my mind. What if Blayne was kidnapped and the perpetrators were using her to lure in new victims to be robbed or worse... I tried to push this out of my mind. 
+I walked up and down the street, calling out for her. The walk was a cold  hell. The icy breeze burnt my eyes and throat. My hands and feet were going numb despite wearing gloves and winter boots. I decided to head home. There was no point in getting frostbite to find someone who didn’t want to be found. But I couldn’t let go of the sick feeling that I could be the only thing standing between her and hypothermia. As I trudged home darker thoughts clouded my mind. What if Blayne was kidnapped and the perpetrators were using her to lure in new victims to be robbed or worse... I tried to push this out of my mind. 
 
 
 
-I put on my warmest thermals and pajamas once I got home. Arlo was still on edge so I petted him until he drifted off to sleep. My journey to sleep wasn’t as easy. Every time I started to drift off I immediately pictured Blayne, lost in the woods, shivering and crying.  Finally I fell into a more restful, dreamless sleep. 
+I put on my warmest thermals and pajamas once I got home. Arlo was still on edge so I petted him until he drifted off to sleep. My journey to sleep wasn’t as easy. Every time I started to drift off I immediately pictured the woman, lost in the woods, shivering and crying.  Finally I fell into a more restful, dreamless sleep. 
 
 
 
@@ -113,4 +115,3 @@ The walk to the pond normally took five minutes but it took me almost  fifteen m
 
 
 I woke up to a weird sensation on my cheek. “Stop it Arlo”, I mumbled as I opened my eyes. Sure enough Arlo was licking my face. I glanced over to see my brother as well as his family, sitting in my living room. “Oh thank god you're awake!”, exclaimed my brother. I sat up, confused. He explained to me that he noticed a bunch of missed calls from me early in the morning and when he couldn’t reach me they came out to check on me only to find me collapsed in the doorway. He appeared confused when I brought up him calling me from the pond. “We were asleep until five. That's when I saw your calls and headed out here. I nodded. I checked my call history and sure enough, there wasn’t an incoming call from him at two this morning.  His wife speculated that maybe I hit my head. I went along with this. It would explain a lot. After resting for a bit, I excused myself to my room and opened the blinds. The bright sunlight glinted through the ice, revealing the scratch marks. 
-
