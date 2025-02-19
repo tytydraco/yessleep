@@ -101,3 +101,5 @@ His voice was barely more than a whisper, each word strained and filled with a h
 I exchanged a glance with Cecilia and Dmitri, both of whom looked equally unsettled. The gravity of the situation was clear, and I knew this was going to be a difficult evaluation. The patient's condition was unlike anything I had ever encountered, and the mysterious world he had visited seemed to hold the key to understanding his transformation.
 
 Determined to uncover the truth, I approached the bed and began my assessment, my mind racing with questions and possibilities. The crystalline shell, the cryptic speech, the connection to another world—all of it pointed to something far beyond the ordinary. I was resolved to find answers, not just for patient 20134, but for the safety and well-being of everyone in the facility, and possibly, the entire world.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/HvPPkOEKf8)
