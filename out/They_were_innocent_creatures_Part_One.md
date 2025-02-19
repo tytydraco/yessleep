@@ -100,7 +100,7 @@ The detective slurped down the rest of the coffee in his mug, and he went back t
 
 He cocked an eye at me, and for a long moment he said nothing. Then he leaned closer and lowered his voice. “Would you mind shutting this off?”
 
-That was never a good sign, but I had no choice but to comply. California law said so. I clicked off the red button sand said, “Is something wrong?”
+That was never a good sign, but I had no choice but to comply. California law said so. I clicked off the red button and said, “Is something wrong?”
 
 “I wanna make one thing clear,” said the detective. “I know who you are, and I know why you’re doing this.”
 
