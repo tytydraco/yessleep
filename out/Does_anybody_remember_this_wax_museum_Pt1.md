@@ -17,3 +17,5 @@ It was too real.
 She was too real. 
 
 Her skin was too real, her eyes were too detailed, even the fingerprints on her long wrinkly fingers were too real. I swear I could even recall the smell of nail polish for those ghastly long and sharp claw-like nails of hers. 
+
+[Edit: Pt2 https://www.reddit.com/r/nosleep/s/ZrKpCkH64a

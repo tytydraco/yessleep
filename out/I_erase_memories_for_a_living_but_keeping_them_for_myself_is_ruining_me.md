@@ -2,11 +2,11 @@ I erase memories for a living, and I used to be the best at it. 
 
 Last year, I won an award for erasing the memories of one hundred and fifty-two people, the highest in the company. I got a bronze plaque with my name on it and a gift card worth fifty bucks. Since then, I haven’t known a moment of peace.
 
-The erasure procedure is complex but requires only one person to operate it. While I program the operation on the computer, the patient lies inside the machine, which closes around them. Inside, they must speak aloud—usually for two or three hours—about the event they wish to erase. As they recount their story in detail, we bombard them with images, sounds, and smells related to the event, keeping the memory vivid.
+The erasure procedure is actually quite simple. While I program the operation on the computer, the patient lies inside the machine, which closes around them. Inside, they must speak aloud—usually for two or three hours—about the event they wish to erase. As they recount their story in detail, we bombard them with images, sounds, and smells related to the event, keeping the memory vivid.
 
 After it ends, the patient passes out under sedation and wakes up at home with no recollection of the erased event or the procedure itself. The session recordings are saved in our database to ensure service integrity.
 
-The memories people choose to delete are completely gone, like a blank spot. There were rumors of a new machine in development that could even create new memories to replace the ones erased.
+The memories people choose to delete are completely gone. There were rumors of a new machine in development that could even create new memories to replace the ones erased.
 
 I loved the job and the visa it provided me, but it was tough and took a toll on me physically and mentally. Most of our clients sought to erase traumatic moments, usually caused by their own actions. The things I witnessed daily are disturbing.
 

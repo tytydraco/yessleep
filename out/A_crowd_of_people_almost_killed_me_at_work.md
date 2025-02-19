@@ -1,0 +1,16 @@
+I'm writing this on my phone, so ill keep this brief. I was at my grocery job where I work as a self checkout clerk. It was 7pm and two hours before my shift finished. I live in a pretty small college town with about 40 people in the store averagely (including workers). Manager was away and I was minding my own buisness, until my eyes glanced at the corner where the entrance is.
+
+It seemed like footsteps and strange commotion was plaguing my left ear. All of a sudden a crowd of what seemed to be thirty men and women, started running at me full force. I was startled and frozen in fear, the crowd of people were really fast and all of a sudden I'm on the floor. I felt some pain but it felt like the crowd might've missed me.
+
+I dont think these people were human, BTW. I sensed something was coming before they showed up, the people could only be described in my eyes as humanoids. Why say humanoids? They were not human. The clothing was loosely at best, I thought they were basically naked. While everyone looked ghoulish to what I could remember, only one stood out to me.
+
+The person in the front was what I'd call female, her eyes were notably smaller than a regular persons. Her mouth was shaped into an eerie grin and skin looked extremely pale. The only way I could describe this person was go on YouTube and watch an already low quality 2006 video and watch the video in the lowest form you can. The faces so close up should not look like that.
+
+After all that I got up and I was kind of in shock and demanded a break right after. I thought I was having some hallucinations because right after mentioning the crowd I did not see anyone of that crowd for the rest of the shift. I asked management if I could see the surveillance tape, and the only video that was produced was me on the ground squirming like an idiot. It was the craziest feeling until half way through my break someone sat down next to me at the break room table.
+
+This man did not work here, but I could sense real fear in his voice. He mentioned that as he was walking into the store, behind him, the back was suddenly filled with loud noise and footsteps, he felt like time slowed down and spotted some of the people running. The crowd he described looked human enough, they had eyes, a nose and a mouth. But the faces just didn't look human. The eyes he said weren't a regular eye color, describing some of the eyes as dark piercing red. 
+The nose was crooked and mouths just felt off. As the crowd ran by him,  he noted they moved to the left and right edges near the entrance so not to hit him.
+
+In a frantic turn he looked at me and described the way the humanoids all aimed for me. It scared me, I thought that the way he described them was similar to how I saw them. It couldn't have been a prank since I only talked about this in my managers office, but I didnt mention the crowd. I just asked that I fell and would like to see if someone bumped into me. So after he said that, I do believe something supernatural happened to me, but for the love of God I don't know what.
+
+That was my feelings, maybe I'll update this the next time I go to work, have a good one.
