@@ -163,3 +163,7 @@ This broke him from his spell. He quickly glanced at me from the corners of his 
 Things were relatively normal after that. My friends and I continued to hang out as usual and I didn’t have any more of those dreams. Despite this, the banana man firmly planted himself as a permanent inside joke amongst us. It’s been a few years since then but it still comes up from time to time. The only thing that bothers me is that Mikey still never talks about it. Whenever he hears that name, it’s like some sort of dread washes over him. Part of me understands where he’s coming from.
 
 As ridiculous as it sounds, I still wonder sometimes if what we had experienced was just some shared paranoia or something more. Now that I’m thinking about it, I wonder if he’s had any more of those dreams since then. I haven’t slept over his place since then, but even when we hang out we never go down in the basement. I’ll have to ask him again soon. I’ll make an update if I do.
+
+LINK TO PART TWO:
+
+https://www.reddit.com/r/nosleep/s/86ouSiUg95
