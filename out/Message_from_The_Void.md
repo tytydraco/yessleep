@@ -380,11 +380,11 @@ My mind melted away and reformed over and over. I kept finding myself in rooms t
 
 I felt the entity rising to the surface as I worked, I had to hurry. I made the calculations and set the course. With the push of a button, I engaged all of the stations compressed air thrusters and launched the Icarus 1 on a collision course for the sun. I made sure to empty the reserves for the thrusters as well, if I lost control completely, I didn't want the entity redirecting the station. 
 
-As the thrusters fired and emptied, I felt the entity asserting control. It tried to stop the launch but it was too late. I felt myself breaking my hands against the consol as I screamed in someone else's rage. At last, the entity receded and my body was mine again.  
+As the thrusters fired and emptied, I felt the entity asserting control. It tried to stop the launch but it was too late. I felt my mind breaking apart as my fists smashed against the thruster control console and I screamed in someone else's rage. At last, the entity receded and my body was mine again.  
 
-I made my way to the ships console and began typing out this message. If you are reading this, then somehow the message got through. You deserve to know the truth, there are things out here in the void. Watch the stars. Goodluck and Goodbye.  
+I made my way to the command terminal and began typing out this message. If you are reading this, then somehow the message got through. You deserve to know the truth, there are things out here in the void. Watch the stars. Goodluck and Goodbye.  
 
-\-Starman. 
+-Starman. 
 
  
 
