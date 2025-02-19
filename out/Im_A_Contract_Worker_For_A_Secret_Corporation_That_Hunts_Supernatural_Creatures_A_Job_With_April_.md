@@ -2,6 +2,8 @@
 
 [Previous: ](https://www.reddit.com/r/nosleep/comments/1h91346/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1hs4i6v/im_a_contract_worker_for_a_secret_corporation/)
+
 Ito must have gotten wind of how poorly the head-hunting job went. He made some time between jobs for us to see each other. Most of the time we met at hotels but we had a few little park dates. I was starting to think whatever we had was getting a bit more serious than he wanted to admit.  As long as I didn’t say that thought aloud, I was convinced things would stay the same.  
 
 One of the park dates was crashed by a gremlin of a creature that I regretted taming.  
