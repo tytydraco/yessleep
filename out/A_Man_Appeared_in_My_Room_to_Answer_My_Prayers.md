@@ -70,7 +70,7 @@ I tried to speak, but no words came, so I simply shook my head.
 
 The angel nodded. "You are loved, my child. We are watching over you." For a moment, I swore I could see the outline of white wings extending behind it.
 
-It took a step toward me and placed a hand on my forehead. For a long moment, I felt bliss. It was true peace like I hadn't since I was a young boy. The world opened up. Boundless opportunity and energy were before me. I felt the good of humanity and the most profound urge to share that goodness. There was nothing I could do but smile at this indescribably beautiful feeling.
+It took a step toward me and placed a hand on my forehead. For a long moment, I felt bliss. It was true peace like I hadn't felt since I was a young boy. The world opened up. Boundless opportunity and energy were before me. I felt the good of humanity and the most profound urge to share that goodness. There was nothing I could do but smile at this indescribably beautiful feeling.
 
 And then... The cold blade of reality pierced through the bliss. I saw pain, suffering, and sorrow. In an instant, I experienced the slow fall of humanity. The beginning of the end seemed simple enough. A slow degradation of human connection. Deeper divisions between people. The fall of objective truth. Minor issues that the common man believed would eventually disappear because surely our species was too intelligent and advanced to let it ruin us. Then, the problems grew out of control. What once seemed to be symptoms of a changing society became defining features of an increasingly bitter and cold world.
 
