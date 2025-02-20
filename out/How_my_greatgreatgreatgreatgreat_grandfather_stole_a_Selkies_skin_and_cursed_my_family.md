@@ -1,5 +1,7 @@
 [Part One](https://www.reddit.com/r/nosleep/comments/1h7q0j2/the_selkies_of_banbas_crown/)
 
+[Part Three](https://www.reddit.com/r/nosleep/comments/1ito6dh/how_my_greatgreatgreatgreatgreat_grandfather/)
+
 Like a monster peeking from out underneath the bed, I could see a storm coming on the horizon. It was right where the churning sea met the slate-grey sky, as if it was merely using the pads of its fingers, slowly pulling itself upwards from the depths of Hell. 
 
 Because that’s what this tempest was coming from. Hell. 
