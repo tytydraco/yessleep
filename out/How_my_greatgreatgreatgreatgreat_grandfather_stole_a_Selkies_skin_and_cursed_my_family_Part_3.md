@@ -1,3 +1,7 @@
+[Part One](https://www.reddit.com/r/nosleep/comments/1h7q0j2/the_selkies_of_banbas_crown/)
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1hf2i9a/how_my_greatgreatgreatgreatgreat_grandfather/)
+
 In the end, not even the once-in-a-century storm proved to be a match for my mother. 
 
 As the storm rolled in last night, during the wee hours of my hometown hen party, with my girlfriends and I safely indoors and clustered around bottles of vodka, its arrival was marked by trumpeting lighting bolts and ear-splitting cracks of thunder. It was just as bad as the meteorologists had been saying. Maybe even worse. The storm hit Malin’s Head like a tsunami, flooding in and washing away low-lying fences, barns, and chipping away at steadfast brick family homes. 
@@ -46,7 +50,7 @@ Behind the altar, and beyond the chapel’s arched windows, the vast expanse of 
 
 This *is* supposedly where Seamus found the Selkie. According to the legends at least: 
 
-*A' phuing as àirde, air a' bhearradh as àirde. Far an do choinnich a' mhuir ris an speur, chaidh creutair na mara ri ghlacadh air tìr. “*The highest point, on the tallest cliff. Where the sea met the sky, did the creature of the deep become trapped on human feet.”
+\*A' phuing as àirde, air a' bhearradh as àirde. Far an do choinnich a' mhuir ris an speur, chaidh creutair na mara ri ghlacadh air tìr. “\*The highest point, on the tallest cliff. Where the sea met the sky, did the creature of the deep become trapped on human feet.”
 
 I pictured her dark hair, her curls the same as mine, twisted and matted from the storm. Her seal skin, bleached white from the water, draped around her like a wedding dress. My stomach hollowed at the thought. 
 
