@@ -24,7 +24,7 @@ Hollering like a smoke alarm, she asked me that goddamned question from somewher
 
 I sprinted inside, the front door slamming behind me, face flushed from the booze and the exertion. Not sure what I expected to see, honestly. But, room to room, I didn’t see her anywhere. She had been practically bed bound for weeks, and now, somehow, she had vanished. 
 
-That really put some jet fuel into my veins. The blood pumping through my heart was almost painful; felt sludgy, like it really had to turned into black, viscous fuel. Before I could truly start to panic about her whereabouts, I heard her speak again.
+That really put some jet fuel into my veins. The blood pumping through my heart was almost painful; felt sludgy, like it really had turned into black, viscous fuel. Before I could truly start to panic about her whereabouts, I heard her speak again.
 
 *“This is probably what it looked like through Junior’s eyes, right before he passed.”* shouted my wife, voice muffled.
 
@@ -90,7 +90,7 @@ Like she was just marveling at whatever she was seeing, rather than earnestly as
 
 \------
 
-One day, I watched her skitter up the chimney, nails audibly scratching against the brick.
+One day, I watched her skitter up the chimney, her body rapidly disappearing into the fireplace’s black maw, nails audibly scratching against the brick.
 
 *“I think I found him, Jim!”* she proclaimed.
 
