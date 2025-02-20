@@ -24,7 +24,7 @@ Hollering like a smoke alarm, she asked me that goddamned question from somewher
 
 I sprinted inside, the front door slamming behind me, face flushed from the booze and the exertion. Not sure what I expected to see, honestly. But, room to room, I didn’t see her anywhere. She had been practically bed bound for weeks, and now, somehow, she had vanished. 
 
-That really put some jet fuel into my veins. The blood pumping through my heart was almost painful; felt sludgy, like it really had to turned into black, viscous fuel. Before I could really start to panic about her whereabouts, I heard her speak again.
+That really put some jet fuel into my veins. The blood pumping through my heart was almost painful; felt sludgy, like it really had to turned into black, viscous fuel. Before I could truly start to panic about her whereabouts, I heard her speak again.
 
 *“This is probably what it looked like through Junior’s eyes, right before he passed.”* shouted my wife, voice muffled.
 
@@ -42,7 +42,7 @@ All the while, Doreen kept asking that singular question. Screaming the words so
 
 \-----
 
-In the weeks after his passing, Doreen was practically catatonic. I think it was the nature of Junior’s death that utterly preoccupied her. I understand why - it preoccupied me too. No one could tell us how he died. The medical examiner blamed his heart, but that’s because he couldn’t find anything else on the autopsy, other than a strange rash and a few strange scars we didn't have an answer for. 
+In the weeks after his passing, Doreen was practically catatonic. I think it was the nature of Junior’s death that utterly preoccupied her. I understand why - it preoccupied me too. No one could tell us how he died. The medical examiner blamed his heart, but that’s because he couldn’t find anything else on the autopsy, other than a rash and a few strangely shaped scars we didn't have an answer for. 
 
 How could that man, with all his training, not tell me how our son died? How my only boy passed on from this life? It felt so…cruelly anticlimactic. 
 
