@@ -1,4 +1,3 @@
-
 Two months ago, I walked out of the hospital with a new heart beating in my chest. It’s surreal, how something that’s supposed to keep you alive can also feel like a ticking time bomb. If it weren’t for my 23andMe results a few years back, I might have ignored all the warning signs of cardiac amyloidosis (that’s a fancy way of saying my heart walls were thickening with no sign of stopping). I was 27, fit, and had no business thinking about heart failure, but there I was, circling the drain without even knowing it.
 
 Here’s something people don’t tell you about heart transplants: unless the donor’s family decides to reach out, you’ll probably never know whose organ you’re walking away with. It’s a strange kind of anonymity, like borrowing a life without knowing whose it was. In my case, all the hospital could tell me was that he was some guy in his thirties, dead from a gunshot wound to the head. It was a near-perfect match, so I couldn’t say no.
