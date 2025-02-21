@@ -76,7 +76,7 @@ I turned and ran.
 
 I tripped—something wet. A leg.
 
-Melissa. Or what was left of her. As she no longer had a head. But it was her I would know the ankles tattoo of Medusa anywhere.
+Melissa. Or what was left of her. As she no longer had a head. But it was her I would know the ankles tattoo of Medusa anywhere. I saw her head soon after.
 
 The thing shifted, noticing me for the first time. And as it slithered over Melissa’s remains, something awful happened—her body convulsed, her mouth opened, and she started to scream.
 
