@@ -39,3 +39,14 @@ I don't think I have to mention that it didn't burn down. I could drive there no
 I'm sitting here, looking at this box and the scattered papers, and I think I'm going to give this a break for now. I don't think I'm AS convinced as I was before. It's still interesting, but these alternate events are kind of hard to believe. I still can't shake the feeling these have some credibility, though. There's no explanation on how this box and all these papers wound up in the attic. And if there is some truth to these, then maybe this box slipped between dimensions, somehow? It kind of has me scared to even go up to my room, at this rate.
 
 I'll give ya'll an update when I look at these again. It's still interesting, and I've admittedly got nothing better to do with my life, at the moment. Till next time.
+
+
+Edit to add: So I got taking the papers out of the box, to at least be able to better organize and look at the papers over the weekend. There was a journal of sorts on the bottom. Touching it gave me a weird jolt. And I have this weird sense of being... watched. I've already been sleeping like hell lately, and I have the suspicion that this feeling isn't going to help. I'm very glad I don't live alone. I'll try to look at this book over the weekend, too. I'm definitely doing so during the day, though.
+
+I guess let me know if you guys prefer an update on one or the other? The papers, or the book. That should give me some motivation to look at them later.
+
+Edit to add 2: I swear I heard something in the attic space when I shut off my lights... one thing I didn't mention, it being an old door missing some parts, is that the door handle comes out a little too easy, and my side of the door only has a handle. Annoying when trying to close the door. I can't tell you how thankful I am in this moment that I have control of the door.
+
+I'm just gonna lay here and not think about it too much. I'll keep you guys posted. 
+
+Edit to add 3: The noise coming from the attic seems to have stopped, but the fact it's so windy right now isn't helping my nerves. 
