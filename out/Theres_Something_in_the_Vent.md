@@ -42,8 +42,6 @@ The house was full of good hiding spots like small nooks and crawl spaces–just
 
 It was my turn to hide. I went downstairs to the pantry closet. My usual spot was on a large wooden pantry shelf, where I’d stack cans in front of myself to stay hidden. But I wanted to change it up. We had played so many times that my usual hiding places were too predictable.
 
-
-
 That's when I saw it.
 
 A medium-sized air vent behind one of the shelves. It had just enough space that I could crawl in–maybe even some room to spare.
@@ -116,7 +114,7 @@ Her face twisted–fear, denial, something desperate clawing at the edges of her
 
 That night, we covered the pantry vent with coloring sheets and swore never to go near it again.
 
-We tried–desperately–to rationalize it. Maye the darkness was playing tricks on us. Maybe we had let fear take control, let paranoia consume us. But deep down, we knew the truth.
+We tried–desperately–to rationalize it. Maybe the darkness was playing tricks on us. Maybe we had let fear take control, let paranoia consume us. But deep down, we knew the truth.
 
 We never played hide and seek again.
 
