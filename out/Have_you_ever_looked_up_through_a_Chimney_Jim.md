@@ -12,7 +12,7 @@ It was what she was finding comfort in that rattled me to my marrow.
 
 Heard her before I saw her that first night.
 
-I was on the porch, nursing some bottom-shelf whiskey and listening to the crickets chirp, planning on passing out where I sat. A new nightly ritual as of the last few weeks. Nothing else to do, really. No one to talk to except for Doreen. Unfortunately, though, my wife and I hadn’t been talking much in the wake of everything. In the first few weeks after his passing, I’d talk to her, but it’s tough to converse with something that gives you nothing in return.
+I was on the porch, nursing some bottom-shelf whiskey and listening to the crickets chirp, planning on passing out where I sat. A new nightly ritual as of the last few weeks. Nothing else to do, really. No one to talk to except for Doreen. Unfortunately, though, my wife and I hadn’t been talking much in the wake of everything. In the first few weeks after his passing, I’d talk to her, but it’s tough to converse with someone that gives you nothing in return.
 
 You see, she hadn’t spoken a word since Junior’s death. A lot of wailing, but no actual language. Not a peep. Four months, three weeks, and six days of wordlessness. "*Expressive mutism*" is what the doctor called it.
 
@@ -42,7 +42,9 @@ All the while, Doreen kept asking that singular question. Screaming the words so
 
 \-----
 
-In the weeks after his passing, Doreen was practically catatonic. I think it was the nature of Junior’s death that utterly preoccupied her. I understand why - it preoccupied me too. No one could tell us how he died. The medical examiner blamed his heart, but that’s because he couldn’t find anything else on the autopsy, other than a rash and a few strangely shaped scars we didn't have an answer for.
+In the weeks after his passing, Doreen was practically catatonic. I think it was the nature of Junior’s death that utterly preoccupied her. I understand why - it preoccupied me too. No one could tell us how he died. The medical examiner blamed his heart, but that’s because he couldn’t find anything else on the autopsy. Other than a few strangely shaped scars that we didn't have an explanation for, Junior was perfectly unremarkable.
+
+And yet, he was dead at 23.
 
 How could that man, with all his training, not tell me how our son died? How my only boy passed on from this life? It felt so…cruelly anticlimactic.
 
@@ -66,7 +68,7 @@ And according to her, she was looking right at Junior. He was standing with *his
 
 In not so many words, Doreen explained that if she couldn’t know how he died, she at least wanted to know what his last moments looked like - what he saw *as* he was dying. That’s what made her look through the chimney in the first place, apparently. And when she did, it made her feel closer to Junior. She was consumed by experiencing what our son had as his vision faded. What it looked like when the world became distant, and darkness started closing in.
 
-And that’s how she found him.
+And that’s how she found him again.
 
 When I slapped the can away from her, begging her just to talk to me about how she felt, she scurried away. Laid down and slid her head back into our fireplace.
 
@@ -92,7 +94,7 @@ Like she was just marveling at whatever she was seeing, rather than earnestly as
 
 One day, I watched her skitter up the chimney, her body rapidly disappearing into the fireplace’s black maw, nails audibly scratching against the brick.
 
-*“I think I found him, Jim!”* she proclaimed.
+*“I think I found him, Jim!”* she proclaimed, the words echoing faintly into the living room from somewhere deep inside the chimney.
 
 And then, there was nothing.
 
