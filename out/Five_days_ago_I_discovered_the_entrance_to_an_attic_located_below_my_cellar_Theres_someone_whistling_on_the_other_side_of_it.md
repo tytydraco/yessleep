@@ -28,7 +28,7 @@ As much as I despise the man, I have to admit that he could dispense some wisdom
 
 Maybe I wouldn’t have spent my twenties homeless on the streets of Chicago if he stayed around long enough to impart his entire sagely portfolio, rather than just a few breadcrumbs here and there.
 
-I'd be remised if I didn't mention that he’d say all this one minute, acting like a paragon of philosophical thought, and then loudly complain that he was being stalked by biblically accurate angels the next. I have multiple memories of him telling my mother through urgent whispers that they were watching his every move. Balls of eyes like a pile of burning coals lurking in all the empty spaces of our home, staring at him with unclear intent.
+I'd be remiss if I didn't mention that he’d say all this one minute, acting like a paragon of philosophical thought, and then loudly complain that he was being stalked by biblically accurate angels the next. I have multiple memories of him telling my mother through urgent whispers that they were watching his every move. Balls of eyes like a pile of burning coals lurking in all the empty spaces of our home, staring at him with unclear intent.
 
 The man was unhinged.
 
