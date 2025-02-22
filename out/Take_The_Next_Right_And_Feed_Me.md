@@ -44,7 +44,7 @@ At first, I thought someone had snuck into my car and whispered into my ear from
 
 That may sound obvious. Of course there would be darkness, it was night. But this darkness was not your average sort. Not the sort you can shine a light at to make it dissipate.
 
-No, this darkness was absolute and foreign. Like it had a form, despite it being just the absence of light. Like, it was an ocean of oil, but with none of the shine or glint it usually holds.
+No, this darkness was absolute and foreign. Like it had a form, despite it being just the absence of light. Like it was an ocean of oil, but with none of the shine or glint it usually holds.
 
 The hue of my headlights just sunk into its towering form as I gazed at it with a deep, primal sense of dread boiling in my stomach – like I was prey to whatever was in front of me. If I hadn’t slammed my brakes in that moment, I would of most surely drove head-on into that darkness that blocked the road.
 
