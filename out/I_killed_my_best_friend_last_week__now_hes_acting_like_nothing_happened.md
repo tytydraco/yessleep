@@ -10,7 +10,7 @@ I looked around. We were in a small clearing in the woods east from my house, wo
 
 But I wasn’t laughing, and Josh certainly wasn’t either.
 
-I looked back down at his body. It was awful. His clothes were torn and tattered, and his face was split open in an awful way, down the left side of his head. You’d have to squint hard if you even wanted to lie to yourself that it looked like remotely human.
+I looked back down at his body. It was awful. His clothes were torn and tattered, and his face was split open in an awful way, down the left side of his head. You’d have to squint hard if you even wanted to lie to yourself that it looked anything remotely human.
 
 I felt another pang of adrenaline.
 
@@ -48,7 +48,7 @@ I dulled my brain with a shooter game, barely paying attention. The rain outside
 
 My Mum was coming back from work by now, and so I was now trying to act in higher spirits so nothing seemed too off.
 
-I guessed I probably had up until this evening before the police would be called, Josh usually hung around in town for a few hours after we hung out, and so it wasn’t unusual for him to be home late. But Josh wouldn’t come home.
+I guessed I probably had up until this evening before the police would be called, Josh usually lingered in town for a few hours after we hung out, and so it wasn’t unusual for him to be home late. But he wouldn’t come home today.
 
 I heard the key turn in the door. It made me jump.
 
@@ -68,7 +68,7 @@ I got up and plastered a smile across my face and went to meet her at the front 
 
  
 
-When I went to bed that night, every time I closed my eyes I could see that ditch etched into my mind, the mangled roots, the mangled bikes, the mangled body.
+When I went to bed that night, every time I closed my eyes I could see that ditch etched into my mind, the mangled roots, the mangled bike, the mangled body.
 
 I got maybe half an hour of sleep before my alarm jolted me awake at 5 AM.
 
