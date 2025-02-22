@@ -54,7 +54,7 @@ My loafers thudded against the tarmac road as I approached the darkness. I stopp
 
 Then I felt it – a breeze.
 
-Not unusual for a cold January night, of course, but it wasn’t a cold breeze, it was quite the opposite. Hot. Parched. Overwhelming to the point I had to choke back bile from shooting up my throat onto the road. It took me a few seconds to process what it truly was that just wafted onto me, as it was no breeze - It was a breath.
+Not unusual for a cold January night, of course, but it wasn’t a *cold* breeze, it was quite the opposite. Hot. Parched. Overwhelming to the point I had to choke back bile from shooting up my throat onto the road. It took me a few seconds to process what it truly was that just wafted onto me, as it was no breeze - It was a breath.
 
 The darkness was breathing on me.
 

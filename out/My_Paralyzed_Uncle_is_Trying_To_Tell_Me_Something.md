@@ -1,4 +1,4 @@
-"Locked In Syndrome", by Tonight's Terror
+"Locked In Syndrome" by Tonight's Terror
 
 The minute I answered my Dad’s phone call, I knew something was wrong. He used his voice that had the strain and forced calm I recognized as the preamble to bad news. Then it came: My Great Uncle Charlie had suffered a stroke the night before. You’re likely thinking, “Great Uncle? Did you even know him?” I did. And my Dad knew him even better. Charlie had raised my father from the age of 10 after a car accident had taken his parents. 
 
