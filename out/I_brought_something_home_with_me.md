@@ -1,3 +1,4 @@
+[Part Two](https://www.reddit.com/r/nosleep/s/fIZWINGAR3)
 
 
 I think something followed me; I can’t be completely sure, but I’m about ninety percent convinced it’s crouched behind my couch right now. 
