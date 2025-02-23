@@ -18,7 +18,7 @@ With the fear coursing through my body, I yelled out, "GO AWAY!", over and over 
 
 I had been so caught up in the moment that when the stupid song turned on, I screamed. The anxiety in my body deciding to make a permanent residence. I slowly got myself up off the floor and examined the screen one more time, just in case. When all was clear, I felt a bit better and walked out of the office back to my seat. No matter what, I had to finish that paperwork, or Mr. James would rip me a new one. He tends to overlook reasons and only see them as excuses, even in the event of a robbery one time; so I didn't feel entirely confident that he would understand this situation. 
 
-Roughly an hour later, around 3 AM, there was a knock at the door. A pale man, in his mid-40s, with a slight limp, wearing a three-piece suit and fedora walked in. The smell of aftershave filling the air. 
+Roughly an hour later, around 3 AM, there was a knock at the door. A pale man, in his mid-30s, with a slight limp, wearing a three-piece suit and fedora walked in. The smell of aftershave filling the air. 
 
 He stopped in the middle of the lobby, closed his eyes, and took a deep breath. As he exhaled he said, "I truly love this song."
 
