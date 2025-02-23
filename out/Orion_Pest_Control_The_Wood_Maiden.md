@@ -130,6 +130,8 @@ When it came to the jar of honey, I wasn't  certain that it would do much good, 
 
 Before crossing the threshold into the trees, I heard something that gave me pause: *Deirdre.* 
 
+(Edit: It has come to my attention that the song I'm about to describe has a weird effect on those that speak Danish. Please take caution going forward.)
+
 She was singing. But why was she there? 
 
 *“Drøymde mik ein draum i nótt
@@ -339,3 +341,4 @@ But back to the more pressing issue: the Wood Maiden. It's clear that she has no
 
 Victor is working on it, even contacting his friends back in Ohio to see if they've had anything similar come up. I'll keep yinz updated as best as I [can.](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD) 
 
+Edit: [Guess what? The rats weren't normal. ](https://www.reddit.com/r/nosleep/s/msxmN3bLwD)
