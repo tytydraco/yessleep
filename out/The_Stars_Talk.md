@@ -200,7 +200,7 @@ But Mom? She was never the same.
 
 Aunt Janice visits more often, keeping her company, keeping her from completely falling apart. But I still hear her crying in her room at night. No matter how much time passes, it never really gets better.
 
-But that day.
+Remembering those moments stirs up a mix of emotions.
 
 After Mom finally calmed down that morning, Uncle handed me a letter.
 
@@ -488,7 +488,7 @@ The ringing sound from earlier blasted into my ears at full force.
 
 I couldn't move. I couldn't blink.
 
-But a voice snapped me out of it
+But a voice snapped me out of it.
 
 "Joshua!"
 
@@ -534,4 +534,4 @@ And then, one day, Mom laughed and said:
 
 She chuckled. And I did too. But I don’t remember when I started looking and deep down, I was shaking.
 
-I just don’t know if I should be afraid or if I’m waiting for something.
+I just don’t know if I should be afraid or if I’m waiting for [something.](https://www.reddit.com/r/QuietCornerTales/)
