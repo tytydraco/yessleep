@@ -510,15 +510,15 @@ Jonas shuffled back on his seat, like he was going to pull the door open. But he
 
 I guessed *this* was where my cousin couldn't suspend his disbelief. 
 
-"She was wearing this long white dress, and she was covered in scars. Vein-like blue-ish scars,” I hissed. 
+"She was wearing jeans and a shirt, and she was covered in blue scars."
 
-"Like she'd been struck by lightning."
+I swallowed. "Like she'd been struck by lightning."
 
-"You're seeing things," he whispered after a bout of silence. 
+"You're seeing things," Jonas whispered after a bout of silence. 
 
 "What?"
 
-"It's just trauma, Aris." 
+"It's just *trauma*, Aris." 
 
 Jonas’s voice hardened. 
 
@@ -708,13 +708,17 @@ Earthquake?
 
 No, it was too small, not even strong enough to throw me off of my feet. 
 
-I watched those same vines that were wrapped around him bleed from the walls, reaching toward the boy, only for him to stagger back, dropping onto his hands and knees. 
+I watched those same vines wrapped around him bleed from the walls, reaching toward the boy. 
+
+He staggered back, dropping onto his hands and knees, crawling back. 
 
 They caught him, coiling around his ankles, before he violently tugged himself free.
 
 “Help me!” The boy finally broke into a sob.
 
-I started forward, and he lurched away, his back against the wall—where twisting vines were already coming out of the paintwork, twining around his neck.
+I started forward, and he lurched away, his back against the wall. 
+
+They were already coming out of the paintwork, twining around his neck.
 
 “No, stay the fuck away!” he cried, his voice growing strangled, the vines tightening around his throat. 
 
@@ -724,13 +728,13 @@ Almost like he belonged in the foundations of my aunt’s house.
 
 His breaths came out in sharp pants, and I understood, when I got closer, that I was hurting him. 
 
-It only took a single step, and more greenery bloomed around him, wrapping around his mouth, gagging his cries. 
+It only took a single step, and more of them sprouted, gagging his cries. 
 
-Watching tendrils squeeze his throat, choking his breath, I stumbled back, reached into my pocket, and squeezed the splintered glass in my fist. 
+Watching vines squeeze his throat, choking his breath, I stumbled back, reached into my pocket, and squeezed the splintered glass in my fist. 
 
 The pain was a sharp sting, but already in front of me, those twisting tendrils were relaxing around his throat. 
 
-They detached themselves from his torso, retracting back into the walls.
+Finally, they detached themselves from his torso, retracting back into the walls.
 
 I asked the first thing that came to mind:
 
@@ -744,7 +748,7 @@ His head jerked up suddenly, eyes wide. “Where's the psycho woman?”
 
 He averted his gaze, pulling dead vines from his neck. 
 
-“I was eight when she took me from my mom,” he mumbled, burying his head in his knees. “She told me I'm her lucky charm.”
+“I was eight when she took me from my mom,” he mumbled, burying his head in his knees. “She told me I'm her *lucky charm*.”
 
 I made sure to distance myself, stumbling to the other side of the living room.
 
@@ -772,7 +776,7 @@ I was trying to get to my phone without hurting him.
 
 “When did my aunt take you?” I asked, my voice breaking.
 
-Freddie lifted his head, his eyes narrowing. “It wasn't your aunt. I was snatched by an old woman.”
+Freddie lifted his head, his eyes narrowing. “It wasn't your aunt. I was snatched by an older woman.”
 
 His words made me nauseous. 
 
@@ -796,7 +800,9 @@ Freddie squeezed his eyes shut, his lip curling.
 
 “I don't know,” he whispered. “1985?” 
 
-He was trembling, curling into himself like a child, burying his head in his knees. “Can you stop asking so many questions?”
+He was trembling, curling into himself like a child, burying his head in his knees. 
+
+“Can you stop asking so many questions?”
 
 His words sent my thoughts into a tailspin. In 1985, he was eight years old. 
 
@@ -834,23 +840,25 @@ I wondered how much pain I would have to be in to let him step over the threshol
 
 Before I could bring it up as an option, the door swung open, and in walked Jonas.
 
-I should have been expecting him to be carrying a gun, and that gun instantly pointed at Freddie’s head.
+Pointing a gun at Freddie’s head.
 
 Jessie followed, her arms wrapped around the nameless girl from the funeral, who stumbled with her. 
 
-Her trembling hands cruelly tied behind her back. 
+The girl's trembling were hands cruelly tied behind her back. 
 
 Jessie was surprisingly gentle with her, letting the girl lean on her. 
 
 Jonas, however, advanced toward Freddie, his lips curled in disgust.
 
-“Aris.” He spoke through gritted teeth. “Did you let *it* out?”
+“Aris.” He spoke through gritted teeth, teasing the trigger. Freddie didn't move. 
+
+“Did you let *it* out?”
 
 Jessie shoved the girl onto her knees, shooting me a smile.
 
 “It’s okay now!” she grinned. “We caught her!”
 
-Her eyes found Freddie, narrowing into slits.
+Her bright eyes found Freddie, before narrowing into slits.
 
 “Aris,” she started to say, but I was done with my cousins.
 
@@ -868,7 +876,7 @@ He was fucking wrong.
 
 “*I* killed your Mom!” I shrieked, I was losing every ounce of patience I had left. 
 
-Jonas shook his head, lips pursed. 
+Jonas shook his head, lips pursed. "Nope. Her escape killed mom."
 
 “There has to be a balance,” Jessie said softly. 
 
@@ -878,7 +886,7 @@ Her eyes found mine, and I had never noticed the insanity twitching in her lips.
 
 “Mom sacrificed herself over and over again—so we could be happy.” She laughed, and I found myself lurching back.
 
-“Aris, she even sacrificed her own sister so we could be happy! Your own mother, and then your father! They were offered in exchange for our happiness. The next generation.”
+“Aris, she even sacrificed her own sister so we could be happy! Your own mother, and then your father! They were offered in exchange for our happiness. The *next* generation.”
 
 She sounded fucking insane. 
 
@@ -938,21 +946,21 @@ What did my aunt do to him? Was he like this my whole life?
 
 Was he lying to me this whole fucking time?
 
-“So, I suggest you take a step back, Aris, and let her shower you with luck.”
-
 Jessie entered, pulling the other two prisoners with her.
 
-Freddie didn’t even look at me, his eyes glued to the floor.
+"Wait--" Freddie tried to speak, but Jessie was quick to gag him. 
+
+Jonas flicked me in the forehead. “So, I *suggest* you take a step back, Aris, and let her shower you with luck.”
 
 I called my cousins fucking psychopaths and left the house.
-
-I could already sense Freddie and the girl back in chains.
 
 I found a fifty-dollar bill on the way to the sheriff’s station.
 
 Behind me, an old man walked directly into the path of a bus.
 
-The sheriff’s station visit went nowhere. I should have just said there were people being held prisoner and not mentioned the ‘luck’ stuff.
+The sheriff’s station visit went nowhere. 
+
+I should have just said there were people being held prisoner and not mentioned the ‘luck’ stuff.
 
 There is no “balance.”
 
