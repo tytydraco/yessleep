@@ -53,12 +53,12 @@ Early the next morning I gave Matt a call. I figured even if he didn’t answer 
   
 
 
-“Hey Matt, this is Phil Wheeler. You stopped by yesterday, I’m over on Harmony-“
+“Hey Matt, this is Phil. You stopped by yesterday, I’m over on-“
 
   
 
 
-“Avenue! Yes of course I remember, just moved in right? How can I help you Phil?”
+“Yes of course I remember, just moved in right? How can I help you Phil?”
 
   
 
@@ -248,7 +248,7 @@ I went to bed that night excited to start my new job but surprisingly I was able
   
 
 
-“Hear let me try.” 
+“Here let me try.” 
 
   
 
