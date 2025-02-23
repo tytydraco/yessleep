@@ -1,3 +1,5 @@
+
+
 That was the sales pitch. I had been unloading some boxes when the doorbell rang. When I opened the door there was a 20 something year old standing there with a blue collared shirt that read “Pristine Alarms”. 
 
   
