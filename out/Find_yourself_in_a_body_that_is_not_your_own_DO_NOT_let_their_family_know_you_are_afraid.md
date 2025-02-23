@@ -2,7 +2,7 @@ I just want to start by saying I am sorry. If you find yourself in a situation l
 
 For those of you who aren’t in this situation, congrats. Just pray to whatever god you believe in that it stays that way. That is one of the horrors of this predicament. From what I can tell, it either happens or it doesn’t. And the way out isn’t easy.
 
-I was about 12 years old when I started seeing my “other” parents. Years of therapy have tried (and failed) to convince me it never happened. Some figment of my imagination or symptom of repressed trauma. I wish it were that simple.
+I was 12 years old when I started seeing my “other” parents. Years of therapy have tried (and failed) to convince me it never happened. Some figment of my imagination or symptom of repressed trauma. I wish it were that simple.
 
 I know you’re probably wondering what I mean by “other” parents. Well, my real parents are as suburban as they come. Dad works a 9-5. Mom works hard making our house a home.
 
@@ -54,12 +54,12 @@ I took a shaky sigh of relief. I felt thankful to be back in my room. In my own 
 
 After all, it couldn’t happen—
 
-My breath hitched. The initial shock clouded my surroundings. The brief moment of relief left me as I made a terrifying realization.
+Before I could finish the thought, I noticed something. Something was off. Yes, I was back in my room. But I wasn’t in the same position as when I left. And my room was different too.
+
+Someone did this. **I did this.**
 
 The white room. The parents. It wasn’t just a dream. It happened.
 
 I was in some kid’s home. Sharing dinner with his creepy parents.
 
-And worse—that same kid was in my body.
-
-END - Part I
+And worse—the other kid was here. In my room. In *my* body.
