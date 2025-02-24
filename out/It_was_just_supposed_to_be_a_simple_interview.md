@@ -1,4 +1,4 @@
-Hello loves, I have another one for you tonight. And I still don’t know what happened.
+Hi loves, I have an old one tonight. And I still don’t know what happened.
 
 To start My radio station WKCRP loves to involve our towns citizens — Making it more personal. Normally, I don’t do interviews, but Management wanted to punish me after I inadvertently started a union for the interns. 
 
@@ -218,9 +218,7 @@ No longer hiding behind a smile.
 
 “Otto Heinz had no brothers or family.“
 
-without warning—the bus stopped. No longer on the side of the road, She stood in front of it. Smiling.
-
-The doors opened . 
+without warning—the bus stopped. No longer on the side of the road,
 
 She stood in front of it. Smiling.
 
