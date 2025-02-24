@@ -74,7 +74,7 @@ The man turns, his face not quite undead, but a long way from living. Sunken, re
 
 But I’m a forgiving sort. 
 
-William Meridian, hired gun , at your service.” The thing smiles, adding “ Hop up on the table if you will. “ 
+William, hired gun , at your service.” The thing smiles, adding “ Hop up on the table if you will. “ 
 
 My mind rages against it, I try to cling to fear, shame, desperation, but the control he’s exerting over me isn’t some kind of hypnosis, it’s something, more. 
 

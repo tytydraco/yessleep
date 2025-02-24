@@ -1,189 +1,89 @@
-It was a stormy, cold night. Nicolas was pretending preparing to go to bed. He lived in a house far from civilization, surrounded by miles of dense forest. His parents had gone to the movies, leaving him alone at home. At 14 years old, they figured it was time for him to learn how to handle things on his own—even during a storm. 
+This weekend seemed never to end, and I did not want it to. I prefer staying in the comfort of my studio apartment because I am more of a homebody. At this time of night, I bet my friends were shitfaced or on the verge of and were wreaking havoc at the dive bar a few blocks from where I lived. They invited me like they always do, and I tag along here and there, but today's work presentation physically and emotionally drained me. Thinking about being around other people, especially strangers, made me anxious. My therapist urged me to listen to my body and respond accordingly. My response had me chilling in my leather recliner, wearing only Hanes drawers. A half-eaten tub of vanilla ice cream containing a spoon sat on my lap. Darkness filled every corner and crevice of the apartment except for the living room, where a flatscreen perched on top of an oakwood dresser provided the only light source within the home. On the TV, Homer Simpson jumps out of a plane, screaming in terror. His eyes bulged out of its sockets. I laugh and stuff another scoop of ice cream down my throat. A part of my brain throbbed, encouraging me to place the tub on the glass table to my left.
 
+As I sat in my recliner, my eyelids began to feel heavy, and I soon drifted off to sleep. A few hours later, I awoke to the sound of my ringtone. Half-awake, I quickly located my phone and read the screen. The call was coming from an unknown number. I hastily rejected the call and tossed the phone to the far side of the couch. As fast as I awoke, I fell fast asleep again. After about 30 minutes, my ringtone, the shrill whistle of a steaming locomotive, hissed at me to answer whoever was on the other side. Annoyed and exhausted, I let the phone go to voicemail. I rested my eyes tentatively, hoping my slumber would go uninterrupted until morning. The phone ringing minutes later ended those hopes swiftly. I grabbed the TV remote and jammed the mute button.
 
+Frustrated and full of rage, I snatched the phone, accepted the call, and yelled into the speakerphone, "Who the fuck is this and what do you want! I am trying to get some fucking sleep!" I heard no response; I only heard static on the other end and nothing else. 
 
-Nicolas wasn’t afraid of being alone; he considered himself mature for his age. But there was one thing he feared above all else: clowns. To him, clowns were deeply unsettling, a grotesque mix of exaggerated cheerfulness and something sinister lurking beneath the makeup. 
+I contemplated hanging up right then and there, but then I faintly heard the sound of a man breathing in the background. It sounded raspy and weak, but it was there; I could listen to it if I focused just enough. The breathing suddenly gradually grew louder. I soon began to shiver as a chill slithered down my spine. Something about the way the person breathed disturbed me. The breathing was all over the place and had no rhyme or pattern. Sometimes, his breathing quickened to where I thought a sudden surge of anxiety had filled his veins, causing him to hyperventilate. After a few seconds, the breathing would slow down, but then, seconds later, the man would hyperventilate again. It was an everlasting symphony of raging panting and dreadfully slow wheezing.
 
+The man sounded sick, and I naively thought the strange man was having a panic attack. I do not know how he found my number, but I might have met him somewhere. Probably at the bar at the dive bar where my friends are getting completely hammered. When drunk, I tend to converse with strangers or anybody that looks my way. Once I make eye contact, I send a barrage of slurred words and warbled rambling their way. Despite the conversation being unintelligible and sloppy, it is productive, and I often exchange numbers because I find the person interesting. I have dozens of unsaved numbers on my contact list that remain nameless until I say so.
 
+Despite the fear squeezing my throat, I relaxed and said, "Hey, man, do you need help? You sound like shit, my guy?" Again, all I heard was the unrhythmic wheezing and panting, up and down like an elevator high on meth. As seconds passed, my body stiffened from the dread rattling my bones. A bead of sweat rolled down the side of my temple, and I felt moisture below my armpits. The breathing continued to emit from the other end of the line. Then it stopped altogether, leaving me paralyzed, meandering aimlessly within a calm sea of silence polluted with static. 
 
-He was watching a horror movie in the living room, feeling that the storm outside added to the spooky atmosphere.Suddenly, the power went out, plunging the house into darkness. Startled, Nicolas froze for a moment, his heart pounding. But storms were common in the region and, so was the occurrence of the lights going out.  
+The phone loosened in my grip as sweat saturated my palms. Strangely, the man began to whistle to an unknown tune. In contrast to his breathing, the melody was fluid and smoother than silk. The man's whistling felt like a lullaby, and I unsuspectingly found myself in a trance. I melted into the sofa and sank further into the deep depths of my subconsciousness. Just when I was about to scrape the bottom, the earsplitting sound of Homer Simpson screaming blasted from the TV. I snapped back to reality instantly. I nearly jumped off the couch.
 
+"Jesus fucking christ!" I quickly reached for the TV remote and pressed the power button. I heard a satisfying click, and the TV turned off. I was left in pure darkness with only the light of my smartphone to guide me. While all this had occurred, the man never stopped whistling the same enchanting tune. Anger washed over me, and I barked, "What the hell do you want?" The sound of him whistling fueled the fire raging in the pit of my stomach. "Whoever you are, you can fuck off," I hissed before slamming the phone on the glass table. 
 
+I stood in complete darkness, my legs shaking like tambourines. My heart was racing, and irregular waves of nausea washed over me. I trekked through the murky gloom of the living room and reached the kitchen. I found the light switch and flicked it. A fluorescent bar on the ceiling bathed the kitchen in white light. I grabbed a glass cup from the cupboard and filled it with water from the sink. I emptied the glass with a gulp and set it firmly on the granite countertop. I felt better, but my temples throbbed from trying to process what had happened moments ago.
 
-Because of that, a flashliht was always kept in the living room. Reaching for the flashlight, beside the TV, he stumbled and bumped into the furniture before finally grabbing it.   
+Who was that man? What did he want? How did he get my number? Why the fuck was he breathing like that? It sounded feral, almost animalistic in some way—a wounded gazelle desperately trying to hold onto the fabric of life before being devoured by a pack of hungry lions. A fabric tattered and full of gaping holes. Lastly, the most perplexing and disturbing question I knew had no definitive answer ran across my mind. "Why was he whistling, and what does it mean? More questions started to pile up in my mind, cramming my brain further and intensifying the pain in my temples. I forced myself to halt my train of thought and saw the LED clock on the oven. It was fifteen minutes after two. I needed to get some shut-eye, which now sounded daunting, almost impossible after experiencing such a dreadful incident. I still felt the aftershock as my legs felt like jelly, and my drawers were sweat-drenched. Before heading to my bedroom, I filled the empty glass cup with more tap water. 
 
+As I took a sip, something banged the front door with such ferocity that the cup left my grasp and shattered on the floor below, spewing shards of glass onto the wooden floorboards. I froze, afraid to move an inch. It felt like my heart would jump out of my chest at any moment. A brief moment of silence passed when another heavy thud struck the door. I jolted in fright from the seismic shockwave that passed through my body. 
 
+"Who the hell is it?" I huffed weakly, my throat constricted by fear and coarse like sandpaper. I just wanted to let you know that there was no response. The silence was deafening and anxiety-inducing, and the hairs behind my neck sprouted in anticipation of what was to happen next. Suddenly, the door was pummeled by rapid thumps and bangs. One after another, thumps rained down upon the wooden frame. The door hinges creaked in agony as it tried to withstand the violent barrage of thuds. My eyes widened, and I began to hyperventilate while I stood in the kitchen, hammered to the floor. A nasty habit I learned to overcome with the help of my therapist. Or so I thought because the erratic surges of air entering my nose and escaping through my mouth said otherwise. The onslaught of bangs continued for an eternity before abruptly stopping, leaving me in a frozen state of trepidation.
 
-With the flashlight beam guiding his way, he made his way to the kitchen, where the house’s generator was located. Just as he reached for the switch, a noise came from outside. It wasn’t just the sound of rain or wind; it was something deliberate, something out of place. Nicolas hesitated but couldn’t resist his curiosity. Slowly, he approached the back door, which led to the yard. He unlocked it and opened it a crack, peering out into the storm. 
+Behind the door, a drunken male voice groaned, "Let me in, Dustin." However, the words did not come out crystal clear. Instead, it sounded like a distraught combination of warbled enunciations and grunts. It took me time to process what I heard, but it did not take long before it clicked in my mind that it was one of my friends. The voice belonged to Ryan. He must've got too drunk and wandered back to my place. How he got separated from the rest of the group remained a mystery I did not intend to solve, as I had enough on my plate.
 
+"Ryan, is that you?"
 
+"Yeah, man," Ryan yodled, gagging a little. "Open the door." I meticulously dodged the shards of glass on the floor and trotted to the door. I gazed through the peephole and saw Ryan standing in the hallway. He swayed slowly from side to side, struggling to stay awake.
 
-The scene outside was eerie. The silhouettes of trees swayed in the wind, and raindrops glistened as they fell. A sudden flash of lightning illuminated the forest for a split second, and that’s when Nicolas saw it: a figure standing among the trees. It wore colorful, tattered clothing, and in its hand, something metallic glinted in the brief flash of light—a knife. Nicolas’s stomach dropped. He couldn’t make out the face, but the next lightning flash revealed the unmistakable painted grin of a clown. 
+"Damn, dude. You look like shit." The mere sight of him nearly evaporated the fear and stress gliding through my veins. My frown quickly turned into a smile. I reached for the light switch next to the door and turned on the light. Fluorescent light painted the whole apartment, except my bedroom and bathroom. I unlocked the door and opened it ajar. With the grace of a newborn giraffe, Ryan sloppily stumbled to the living room, nearly knocking over anything in his path. 
 
 
 
-The figure began to move, slowly at first, then with each flash of lightning, it was closer, closer. By the time Nicolas snapped out of his terrified trance, the clown was sprinting toward him. Nicolas slammed the door shut and locked it, his breathing ragged and shallow. He heard the clown pounding on the door, rattling it with inhuman strength. Then, silence.   
+"Be careful; I am broke until Thursday," I uttered, but Ryan was too inebriated to heed my warning. He plopped into the squeaked recliner chair as it buckled under his weight. Ryan was always on the chubbier side and rarely worked out. An obnoxious burp that smelled of hard liquor and onions left his mouth. I cringed as the potent odor floated listlessly into my vicinity, where I stood before him. Annoyed, I stared daggers into him. I crossed my arms defiantly and began to interrogate him. "Why the fuck were you banging on my door like that? I thought you were an intruder or something."
 
+The sound of my voice snaps him out of his impaired stupor. Ryan's blue eyes, dilated and meandering from side to side, slowly halted and met mine.
 
+"Sorry," Ryan groans. I hear his stomach grumbling, and he quickly holds his belly, which is peeking under his undersized shirt. "I panicked because I thought I was going to vomit all over the hallway. You know me,  I always seem to drink on an empty stomach rather than a full one." He spoke broken English, which consisted of mispronounced vowels and deformed consonants. What he said was true, though. We all gave Ryan the backhanded superlative of most likely to end up dying from alcohol poisoning. When he first heard that, Ryan was amused and said he was honored to have his name associated with such a feat. As I observed him, I feared we might have made a mistake in doing so because this started to be a nightly occurrence. We had to resort to childish ways to decide who would take him home. With me not being there, I was the obvious choice.
 
-Nicolas’s mind raced. 
+Exhausted and defeated, I said, "You know what? It's cool. I am glad you are safe and sound, not running naked through the streets, waving your tallywhacker like a helicopter. Where are the others?"
 
+"Still at the bar. I got hammered this time, and the bartender cut me off for the night." This did not surprise me. Ryan had gained a reputation among the local bars in the area, and from what I heard, it was not good. Bartenders saw him and rolled their eyes with displeasure. "I was furious, but the others calmed me down somehow. That is when Brad suggested I go to your place to sober up. I caught an Uber here. Thank the lord I remembered what unit you stay in. I was afraid I was going to pass out and crack my head on the staircase. That would have been fucked” Ryan and I both chuckled at the thought. I found my tense body relaxing a bit.
 
+"Yeah, it would." I turned my focus to the kitchen. I recalled there were still specks of glass fragments that needed to be swept up and discarded. "I have some tomato juice in the fridge. It should do the trick until morning."
 
-“Why it stop, wh- ? 
+"You're the man with a plan," Ryan exclaimed, playfully giving me a soldier's salute. I strolled to the kitchen, sidestepping any glass speckle I found, and fetched the broom and dustpan from the utility closet next to the fridge. I swept thoroughly in every nook and cranny before emptying the dustpan, comprised of silvers of glass and clumps of dirt, into the trash can. I returned the broom and dustpan to its rightful place in the closet and opened the stainless steel fridge, unleashing a stream of cold air that caressed my face. While I scanned for the tomato juice, I heard the TV in the living room roar to life, replacing the awkward silence with the sounds of hyperactive animals chattering amongst themselves. I located the tomato juice behind a carton of almond milk on the top shelf. Satisfied, I walked back to Ryan. His eyes were glued to the screen that displayed a group of meerkats resting near a stream.
 
+I lightly tapped his shoulder, and Ryan turned his attention toward me. He saw the plastic jug of tomato juice in my grasp and grinned, eyes wide with excitement. Ryan snatched the jug and chugged it down like a little kid would do a carton of apple juice. 
 
+"Damn, dude," I bellowed. I grimaced at the sight. Tiny red droplets rolled down the corners of his mouth and dripped from his stubby chin onto the pulsing Adam's apple. The basketball of flesh and cartilage bobbed up and down within his larynx. When the last droplets of juice fell down his throat, Ryan belched a victorious burp and wiped his mouth with his shirt sleeve.
 
-“Oh shit” 
+"You do not know how much I needed that shit," Ryan expressed halfheartedly before handing me the empty vessel with a goofy smile on his face. I could not help but look at his teeth and almost gagged. The tomato juice had painted his teeth in a hue of light pink. Avoiding the urge to vomit, I quickly returned to the kitchen and heaved the empty jug into the trash can. I turned off the lights and plopped onto the sofa next to the recliner chair that now served as Ryan's throne.
 
+We sat silently on the couch and watched hyperactive meerkats on the television. A male narrator with a potent British accent acted as a play-by-play commentator, describing each action with the energy of an accountant experiencing a tough divorce. 
 
+Eventually, an hour passed when I awoke to the disgusting sound of retching and heavy regurgitation. The light emitted from the TV blinded me momentarily. Eventually, my eyes adjusted to the space around me. I turned my head and saw an empty recliner chair. I then diverted my attention to the bathroom door in the hallway. A wave of yellow light shone under the bathroom door. Behind the door, Ryan vomited vigorously into what I desperately hoped was the toilet bowl and not the bathtub like last time. It sounded painful and agonizing. It was as if his esophagus was a ball of fleshy Play-Doh being constantly torn apart and molded into physically impossible shapes.
 
-“T- The front door  
+"Ay, broski. You smooth? You sound like you're giving birth through your throat," I hollered from the sofa. The vomiting ceased for a moment, and I could hear Ryan wheezing and grunting.
 
+Shortly, Ryan answered, "I am straight." He took a deep breath that sounded ragged and bony, like a decomposing skeleton. " It was bound to happen. I am just glad I got this shit over with. I feel less shitty already." Ryan weakly chuckled before spewing another chunk of tomato juice and liquor into the toilet. 
 
+I suggested he drink some water, but he declined. He would instead stay in the bathroom and, with luck, fall asleep. I envision him lying on the tile floor in the fetal position, marinating in a pungent odor comprised of vomit and cheap liquor. He rests his head on the cool ceramic pillow that was the stem of the toilet bowl. I turned my attention back to the TV, which was still on the nature channel. The same dry and brisk narrator now focused on a pride of lions stalking through the vast savannah plains.
 
-“It still unlocked “ 
+As a lion pounced on an unsuspecting gazelle, the screeching sound of hot steam hissing interrupted its meal. The glass table to the left of the recliner chair shook slightly due to vibrations from my phone. I stood up and strolled towards it. I picked up the phone to see who was calling me. I squinted my eyes and felt a look of utter confusion distort my face. The caller ID stated Ryan was calling, which immediately caused me to be skeptical since he was 20 feet away from me. Why would he call me? All he has to do is shout if he needs help picking himself up off the floor since his sickly assault upon my toilet had concluded for the moment. 
 
+Curious, I accepted the call and pressed my ear into the speaker. I was greeted by a conglomerate of noises that nearly burst my eardrums into pieces. It sounded like music, like hard metal or rock. In the background, I could hear people chattering like seagulls. 
 
+Seconds later, a familiar, intoxicated voice shouts, " What up, dill pickle? Is everything kosher?" It sounded exactly like Ryan. Well, it was Ryan. I think. None of this made sense, and the more I pondered, the more dread transversed up my nerves. I hesitated for a moment before answering.
 
-There was no time to secure it. Grabbing his phone, he bolted upstairs, taking two steps at a time. At the top, he risked a glance down—his breath hitched as a flash of lightning illuminated the living room. The clown’s shadow stretched ominously across the wall. 
+"Ryan, is that you?" I asked.
 
+"Hell yeah, the man of the hour. Why are you chilling at home by yourself? You need to be out here with the boys." Ryan briefly stopped our conversation to spew something unintelligible to an unknown person I could not see or hear. He used the little sobriety he had left to speak as clearly as his brain allowed him to. 
 
+"Yeah, I'm just calling to let you know I'll be crashing at your place tonight. I should be there in 10 minutes. I'm taking an Uber," Ryan said. 
 
-Then came the crash. The front door slammed open, banging violently against the wall as the howling storm swept through the house. Rain lashed against the floor, the wind carrying an eerie chill. The intruder was already inside. 
+The words he spoke slammed into my chest like shells from a twelve-gauge shotgun, melting the chamber harboring my heart. I winced in pain as the smoldering heat burrowed deep into my chest cavity. The inescapable feeling of dread flowing through my bones, scratching joints and brushing tendons, has now blossomed into a vapor of sheer terror that playfully plucked the fibers of my soul. I felt like I was wearing cement sneakers as I struggled to move my feet.
 
+"Ryan, what are you talking abo-" 
 
+The phone suddenly disconnected, and the screen went black. I jammed the power button multiple times, but the phone remained off. Seconds later, the volume on the TV increased to the maximum level. The stubborn laughter of hyenas flooded the living room. I sprang backward, knocking the glass table over. A thick layer of sweat encasing my palms caused the phone to leave my grip. It fell to the carpet with a thump. The vibration tickled the soles of my feet. 
 
-Panicking, Nicolas darted into his bedroom and hid in the closet, crouching behind the hanging clothes. His breath was shallow, his pulse thundered in his ears. The house was deathly silent except for the faint creaks of floorboards as the intruder moved around. Then, the steps grew louder, heading up the stairs. Nicolas froze, peeking through the slats of the closet door as the clown entered his room. 
+The laughter grew more deformed and hysterical as I frantically searched for the remote like a dope fiend trying to find his stash. It was like the hyenas were somehow aware of my presence. The sight of me, petrified and full of panic, was euphoric, giving them such a high they wished not to come down from. After an eternity, I found the remote hiding under the sofa. The demonic laughter vanished from the apartment with a click as the TV screen went black.
 
+I remained stuck in the veil of darkness, stricken with rigor mortis, as I could not force myself to move. It was like my neural pathways were fried. A thick cloud of smoke suffocated my brain. I feared my heart would explode through my chest, so I pressed my hand against my breast to mitigate the palpitations. Like the day before Christmas, all was still throughout the house, and no creature stirred. 
 
+I then heard the fateful sound of whistling coming from the bathroom. The melody was harmonious yet haunting and eerie. The tune delicately hugged and cradled my soul like a newborn while injecting antifreeze into my spinal fluid. I trembled from the cold as I fought to immerse myself in the warmth of the unspoken song.
 
-The clown’s grin was grotesque, smeared red paint giving it a savage, predatory look. It searched under the bed, behind furniture, its movements slow and deliberate. Nicolas held his breath, willing himself not to make a sound. After what felt like an eternity, the clown left the room. 
-
-
-
-Shaking, Nicolas grabbed his phone out of his pocket and dialed 911. 
-
-
-
-“911, what’s your emergency?” a calm voice answered. 
-
-
-
-“H-Hello? There’s someone in my house,” Nicolas whispered. 
-
-
-
-“Okay, stay calm. Can you tell me your name?” 
-
-
-
-“It’s Nicolas,” he stammered. 
-
-
-
-“Alright, Nicolas, help is on the way. And they will be there soon. Just stay on the line and keep yourself safe.” 
-
-
-
-“It’s a clown,” Nicolas blurted. “He has a knife. I think he He’s downstairs. 
-
-
-
-“A... clown?” 
-
-
-
-A small silence followed 
-
-
-
-“He has a knife. He’s downstairs, I think… Oh no, he’s coming back!” 
-
-
-
-The operator’s voice remained steady. “Listen to me, Nicolas. Stay as quiet as you can. Help is almost the-.” 
-
-
-
-The pounding footsteps grew louder. The closet door burst open, and the clown yanked Nicolas out by his hair. It flung him to the floor—but not before slashingit his face and back. The blade cut deep, but not enough to reach any vital part. Pain shot through Nicolas, leaving him momentarily stunned and struggling to move. 
-
-
-
-Nicolas hit the ground hard, the breath knocked from his lungs. Before he could react, the clown was on top of him, its gloved fingers tightening around his throat. He thrashed, gasping for air, his vision blurring as sheer panic took hold. 
-
-
-
-“I - it’s smilling. Its smilling at me. Its trying to kill me”  
-
-
-
-Desperate, he kicked and clawed, his fingers scrambling for anything—then, with all his strength, he grabbed the clown by its collar, yanking its face inches from his own. Without hesitation, he drove his thumb deep into its eye. A guttural scream tore through the room as the clown recoiled, clutching its face in agony. 
-
-
-
-Nicolas didn’t hesitate. He scrambled to his feet and sprinted down the stairs, bursting through the front door into the raging storm. 
-
-
-
- 
-
-
-
-Rain lashed at his face as he ran blindly into the forest, branches clawing at his skin. Behind him, he could hear heavy footsteps and the clown’s ragged breathing. Lightning flashed, and he caught a glimpse of the clown’s colorful suit, closer than ever. The knife glinted again, but the clown was stumbling, clearly struggling to see with its injured eye. 
-
-
-
-Just as Nicolas thought he couldn’t run any farther, he heard the distant wail of sirens. Red and blue lights flickered through the trees, giving him a surge of hope. He sprinted toward them, ignoring the pain in his legs and the pounding in his chest. Breaking through the treeline, he stumbled onto the road, directly into the path of a police car. 
-
-
-
-The vehicle screeched to a halt, and officers rushed to Nicolas’s side. The car’s headlights illuminated the scene, their bright beams catching the deep red stains soaking through the boy’s clothes. 
-
-
-
-One of the officers scooped him up carefully, carrying him to the patrol car. Nicolas’s body felt heavy in their arms, weakened but alive. They placed him gently in the back seat, urgency in every movement. 
-
-
-
-Just as they were about to drive away, a piercing scream shattered the storm’s howl. It was guttural, raw, and loud. The officers froze, their eyes locking for a moment that seemed to stretch into eternity for Nicolas.  
-
-
-
- “We will be back soon” one of them ordered as they ran into the woods around the house, guns drawn. 
-
-
-
-“N-no, wait, please” 
-
-
-
-It was too late, They were already far away from the car.  
-
-
-
-Nicolas sat in the backseat, trembling and soaked. Minutes passed in agonizing silence until gunshots rang out, echoing through the forest. Then, nothing. The quiet was almost worse than the noise. Nicolas leaned forward, trying to see through the rain-streaked window. 
-
-
-
-Out of the darkness, the clown emerged, dragging something behind it. As it stepped into the light, Nicolas’s blood ran cold. The clown was holding the severed heads of one of the officers, his faces frozen in terror. It turned its gaze to the car, locking eyes with Nicolas. 
-
-
-
-Panic surging, Nicolas remembered his father’s driving lessons. He scrambled into the driver’s seat, started the engine, and floored the accelerator. The car hit the clown head-on, knocking it into the mud. Without looking back, Nicolas sped toward the city, gripping the wheel tightly, his small frame barely reaching the pedals.  
-
-
-
-He drove, and drove, the rain blurring the windshield and the headlights barely cutting through the dense storm. His hands trembled on the wheel, his breaths shallow and uneven. And then, just like that, everything went black. 
-
-
-
-Nicolas drifted between consciousness and oblivion, the distant murmur of voices mixing with the sharp wail of sirens. A dull, throbbing pain pulsed through his body, anchoring him to reality as he realized he was no longer behind the wheel. Firm, practiced hands moved with urgency, securing him to a stretcher. The world around him felt dreamlike—flashing lights, blurred faces, and hurried movements blending into a disorienting haze. It was as if he had escaped one nightmare only to wake in another. 
-
-
-
-As paramedics carefully lifted him into the ambulance, a fragile sense of relief began to settle. It was over—finally over.  
-
-
-
-As the ambulance doors started to close, however, his gaze wandered past the medics and into the stormy darkness beyond. There, at the edge of the tree line, illuminated by the flickering red and blue lights, stood a figure. The unmistakable red outfit clung to its form, its face obscured by shadow. In its hands, it held something.
+Enchanted by the melody, I did not hear the bathroom door creak open or the subtle sound of footsteps strolling toward me. I could not feel the moist, bony hands gently gripping my shoulders or the hot breath blowing the hairs on my neck. Nor could I think or hear the tearing of flesh and the gnashing of teeth. I could not fight back, nor did I want to. I was just happy to get some sleep after all finally.
