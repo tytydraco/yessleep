@@ -186,7 +186,7 @@ The people were still watching me, I realised. Or had they been all along? They 
 
 Something that had been waiting for me my whole life.
 
-I don’t remember anything past that point, only that I didn’t get back to the village. Someone out for a drive found me days later, wandering in circles, muttering to myself, my eyes wide and unseeing. I was taken to the police, then after that a foster home. Of course no one believed me. What good could the have really done for me? I couldn’t produce a name for my village, or for my parents, or practically anything about the place. I’d somehow forgotten it all. And I knew there was no point even trying to explain the walk to them, so I just kept it to myself.
+I don’t remember anything past that point, only that I didn’t get back to the village. Someone out for a drive found me days later, wandering in circles, muttering to myself, my eyes wide and unseeing. I was taken to the police, then after that a foster home. Of course no one believed me. What good could they have really done for me? I couldn’t produce a name for my village, or for my parents, or practically anything about the place. I’d somehow forgotten it all. And I knew there was no point even trying to explain the walk to them, so I just kept it to myself.
 
 Many times, I’ve reflected on the words said to me before we embarked on our journey that day.
 
