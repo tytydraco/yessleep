@@ -122,7 +122,7 @@ What was I doing? These missions typically up to two years to prepare for, and I
 
  
 
- Needless to say, I didn't sleep much that night. As I lay there in bed, thinking over the insanity of what I was about to do, I grabbed my phone and scrolled through my downloaded music. I smiled when I found what I was looking for and pushed play. As the strumming guitar began to flow from the speakers in my room, I felt my stress begin to melt away. My lips formed the words automatically along with the chorus, “Theres a Starman waiting in the sky, he’d like to come and meet us but he thinks he’d blow our minds.” I remember listening to it when I was a kid, staring up at the stars in night sky and thinking that someday, I'd get up there. That someday, I'd be a Starman. 
+ Needless to say, I didn't sleep much that night. As I lay there in bed, thinking over the insanity of what I was about to do, I grabbed my phone and scrolled through my downloaded music. I smiled when I found what I was looking for and pushed play. As the strumming guitar began to flow from the speakers in my room, I felt my stress begin to melt away. My lips formed the words automatically along with David Bowie as he began to sing about the Starman in the sky. I remember listening to it when I was a kid, staring up at the stars in night sky and thinking that someday, I'd get up there. That someday, I'd be a Starman. 
 
  
 
