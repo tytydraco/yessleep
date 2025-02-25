@@ -1,4 +1,8 @@
-\-[Part 1](https://www.reddit.com/r/nosleep/comments/1ii76jh/im_currently_under_house_arrest_something_moved/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)\-
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ii76jh/im_currently_under_house_arrest_something_moved/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1iy2rvx/im_currently_under_house_arrest_something_moved/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+02/06/2025
 
 Me again, things have been...hectic, after my last post. Thankfully Warden is still allowing me to write, granted it took some convincing. He didn't "appreciate" how he came off in my previous post. He got upset with me, very, upset. It was easy to tell how pissed he was because he does this...thing, with his eyes. Warden looks like any other guy out there for the most part, totally human, except for when it comes to his eyes. They're not neon red or anything, but when he gets pissed, they change.
 
