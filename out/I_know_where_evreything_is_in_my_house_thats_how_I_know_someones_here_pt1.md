@@ -1,0 +1,17 @@
+Let me start by saying I don't think there is a medical condition I have or anything like that. I was in the hospital more than the average kid but from my recollection, it was nothing serious ever. My friends think it's super odd and disturbing how much I like to keep things in order and ask me so much to tone it down. To me it's not that bad just simple things like when I sit down for dinner, fork on the left and knife on the right, or at my desk keeping my controller on the left always, and I always felt this stuff was mundane things that would mean nothing later in life but now it means something because now I know there is someone here with me. 
+
+I take one look around thiS room for a pErson as I scan around me to sEe if there is anYthing Or anyone here. I see nothing, but that doesn't mean something isn't here or just Unable to see it.  
+
+I lived my life neat and orderly, to say the least. I need to have things to be happy. Mash potatoes on the left side of the plate and green beans on the right, simple really. Over the years I have thought there was something odd about my house as well but I never thought anything about it. Just that I have been paranoid, but no I was right there has to be someone else here possibly in the walls, but I will sit here and wait for them to show themselves until then I’ll write. 
+
+Looking over my shoulder. Nothing still. 
+
+In my life I have always been bullied, to say the least. People have always said it's so weird how I dress, walk, have fits, and whatever. I just like orderly. Gotta keep pencils on the left side of the desk and papers on the right, but throughout the years I have not manny people to call friends maybe some online ones but nothing real. I had always wished the people at school would like me better than they did. 
+
+As I went home one day I thought I had been being followed throughout the streets, but as I called out and turned rapidly “Hey whoos there” my timed voice rang throughout the small city. Nothing not even a car. Then as I got home no one was there not even my mother. It was odd enough but then no one came home that night either. Then I just felt watched as I got home and made dinner for the five of us. Put it all away and went to bed after my nighttime routine, but just before I did yelled out one last time. “Mooooooooom” “DaaaaaaaaaD” “Annnnyyyyonnnneeee” silence fell apone me. Then went to the door and felt the walls felt squishy, to say the least, but then went outside fine nothing odd. Just no one was there not a light on site. I felt unnerved, to say the least. As I was out there was no air either. I mean nothing no breeze of cold air nothing just stillness. I just went to bed hoping the nightmare of being alone would be over, and it was when I awoke everyone was there. My friends my mom my dad even my annoying but still fun little brother. We had cake and I had a great time. Then I asked “Where were you last night” My mom in her chipper mood fell for a second “What do you mean sweety we have always been here” With a smile gave me a big old hug. I love everyone. 
+
+I cry some nights thinking about that I miss everyone having fun times and everything. I see them sometimes but when Dad died everything felt different. 
+
+I have to take a break I'm going to look around to see if I can find him. 
+
+Nothing still, but I hear him, and he knows I'm going to find him 
