@@ -16,8 +16,6 @@ By the following week, the occurrences become impossible to ignore. Picture fram
 
 “Come on, girl,” I whisper, trying to coax her away. But her eyes never leave whatever invisible presence seems to hover there.
 
-The worst part? It seems deliberate.
-
 One evening, I come home to find the living room furniture rearranged. The couch faces the wall instead of the TV. The coffee table lies on its side. My books are scattered across the floor, pages torn and crumpled.
 
 That night, I lock my bedroom door. Bella curls up beside me, tense and restless. Sleep only comes in short bursts, each broken by faint creaks and thuds echoing from beyond the door.
