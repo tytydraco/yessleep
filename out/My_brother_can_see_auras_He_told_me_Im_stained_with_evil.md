@@ -310,7 +310,9 @@ Before the police operator could respond, my phone went dead.
 
 “Now now, if you call the police, I won’t be able to help your brother. Let me in, and I’ll help him. I don’t want a talent like him to die. I wouldn’t hurt you either. Why, I enjoy it when people can tell what I am.”
 
-“And what the fuck are you?” “You can’t tell? See into my mind, girl. I know you can. Come on, try harder.”
+“And what the fuck are you?” 
+
+“You can’t tell? See into my mind, girl. I know you can. Come on, try harder.”
 
 Tears were flowing by this point. I wiped them roughly with my arm, then dropped my phone and picked up the knives.
 
