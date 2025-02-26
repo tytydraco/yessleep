@@ -1,5 +1,4 @@
-**Guestbook Entry, July 9 /**
-**The Keeper**
+**Guestbook Entry, July 9 / The Keeper**
 
 The nigh day-long bicycle ride through the fir-laden backcountry to my uncle-in-law’s reclusive seaside cabin was a pleasant one, though its conclusion wasn’t lost on me. The gales that July day were the kind to stab straight through you, leaving you a bag of brittle bones in their wake. Even cocooned in a hardy layer of wool garments, the frigid Pacific cold front couldn’t be kept at bay. By the time I reached the door my hands had long since gone white, and drowsiness beckoned warmly.
 
@@ -189,8 +188,7 @@ I overlooked the shore and wrote in my trusty guestbook to kill the time, ready 
 
 &nbsp;
 
-**Guestbook Entry, July 10 /**
-**The Keeper’s Keep**
+**Guestbook Entry, July 10 / The Keeper’s Keep**
 
 There was an inertness to Barry as engrossing as it was dismaying. One spreading to you like a sickness as you watched, *swallowing* you in its undeniable reality.
 	
