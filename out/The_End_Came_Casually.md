@@ -114,4 +114,4 @@ This wasn’t a safe place.
 
 This was where reality went to die.
 
-And I had just walked right in.
+And I had just walked right [in.](https://www.reddit.com/r/nosleep/s/QltK2sgmLA)
