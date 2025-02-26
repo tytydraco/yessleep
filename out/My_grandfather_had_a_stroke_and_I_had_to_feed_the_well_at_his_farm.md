@@ -73,7 +73,7 @@ I immediately felt sick, as if I was standing next to some gaping mouth instead 
 
 I spent the rest of the day trying to entertain myself. I called my mom and talked to her on the old landline affixed to the wall of the home. She said grandpa was still recovering, but to just keep the farm running in the meantime. I didn't tell her about the well, fearing I'd sound crazy. After all, I had decided I imagined the whole thing at this point.
 
-I got off the phone and went looking through the bookshelf in the living room. I eventually decided on a worn copy of The Count of Monte Cristo and spent the rest of the afternoon reading. I must of fallen asleep reading, because I woke up in the same leather armchair I had settled into with the book sitting open in my lap. I had made it to the part where Edmund Dantes was escaping the prison, apparently.
+I got off the phone and went looking through the bookshelf in the living room. I eventually decided on a worn copy of The Count of Monte Cristo and spent the rest of the afternoon reading. I must have fallen asleep reading, because I woke up in the same leather armchair I had settled into with the book sitting open in my lap. I had made it to the part where Edmund Dantes was escaping the prison, apparently.
 
 I stood up and stretched, trying to relax my muscles and walked outside. I had forgotten to feed the cows and sheep yesterday, and they were vocalizing as I walked up to them. They had been stuck in the barn all night, while I had remembered to uselessly feed the hole in the ground. I felt more than a little guilty as I poured feed into the troughs. I finished up and began walking back to the house, pausing to look at the well as I did so.
 
@@ -213,6 +213,6 @@ I could hardly breath, feeling my eyes begin watering with desperation as what s
 
 “We're coming down there, to prepare for the funeral. You just need to look over the farm for while. I'm sorry...”
 
-I didn't respond to her for a while. Finally, I told her all was well and that I loved her. I would have liked to of stayed on the phone for a bit longer, but I had to go.
+I didn't respond to her for a while. Finally, I told her all was well and that I loved her. I would have liked to stayed on the phone for a bit longer, but I had to go.
 
 The well was howling.
