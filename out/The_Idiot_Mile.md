@@ -150,7 +150,7 @@ Soon, I was walking alone. At first, I thought it was my imagination, but the qu
 
 I tried to ignore my fear. I focused on the road, on getting to the end. But as I walked farther, it got harder. I wanted to turn back, but I knew I couldn’t. Not now. It was part of the Walk. You don’t turn back.
 
-The air was laced with the smell of rot, and it began to feel as though the road was shifting beneath my feet. I tripped, tumbling down onto the asphalt, my arms scraping against the rough earth. When I finally stopped, I lay there gasping for breath, the world spinning around me. When I managed to get to my feet, I saw Christopher. He stood ahead of me, eyes empty and distant. His faces were pale, his mouths slack, as though he’d been walking through that forest for days without rest in the time since they’d left me. He seemed to be looking past me. He didn’t move or even blink. I tried to get his attention.
+The air was laced with the smell of rot, and it began to feel as though the road was shifting beneath my feet. I tripped, tumbling down onto the asphalt, my arms scraping against the rough earth. When I finally stopped, I lay there gasping for breath, the world spinning around me. When I managed to get to my feet, I saw Christopher. He stood ahead of me, eyes empty and distant. His face was pale, his mouth slack, as though he’d been walking through that forest for days without rest in the time since they’d left me. He seemed to be looking past me. He didn’t move or even blink. I tried to get his attention.
 
 “Chris! Chris, come on, please, talk to me! What’s going on? You’re scaring me man, please!”
 
