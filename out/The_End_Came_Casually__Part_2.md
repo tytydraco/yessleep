@@ -122,3 +122,7 @@ He blinked up at me, his expression unreadable. Then he stood, shook out his fur
 
 And the city—
 The city fucking [grinned.](https://www.reddit.com/r/nosleep/s/YE1d3GiCy0)
+
+Part 1 -
+
+https://www.reddit.com/r/nosleep/s/zwJAsMDwq9

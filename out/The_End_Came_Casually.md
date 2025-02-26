@@ -115,3 +115,7 @@ This wasn’t a safe place.
 This was where reality went to die.
 
 And I had just walked right [in.](https://www.reddit.com/r/nosleep/s/QltK2sgmLA)
+
+Part 2 - 
+
+https://www.reddit.com/r/nosleep/s/pl9reeO5DI

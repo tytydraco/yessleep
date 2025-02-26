@@ -46,7 +46,7 @@ A fruitless attempt to quiet the discontent arising in our party, it reassured m
 
 Together, we walked for maybe another twenty minutes? Time wasn’t really a concept in that endless darkness. I was contented I suppose, at the very least our footsteps were once again very much… Alone.
 
-Soon, we swapped the scenery for a dewy field; we’d reached the forest’s boundary! We all sighed in relief, far more startled than we were letting on or at least I was. Richard pointed to the far side of the clearing, to a cluster of trees doing a poor job of concealing a lake hiding behind them, like a toddler playing hide and seek. 
+Soon, we swapped the scenery for a dewy field; we’d reached the forest’s boundary! We all sighed in relief, far more startled than we were letting on or at least I was. Richard pointed to the far side of the clearing, to a cluster of trees doing a poor job of concealing a lake hiding behind them, like a toddler playing hide and seek. This is what he had wanted to show us and to his credit it was… Beautiful.
 
 We started into the grass, it was taller than us, or at least it felt like it was. One foot after the other we snuck closer and closer to our journey’s end. I couldn’t see my companions they, like me, were having just so much fun traversing the grasping confines of wet grass. Coughing and spluttering I, like a cascade, crashed out from the field and right back into familiar surroundings… The woods.
 
