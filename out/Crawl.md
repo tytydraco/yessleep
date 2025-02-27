@@ -1,9 +1,3 @@
-https://imgur.com/njNDQ2w
-
-https://imgur.com/a/ocBxx1q
-
-~~~~
-
 Thunderstorms yielded a surprising amount of rain, slowing the immediate progression of the wildfire to a dull advance. It sulked through the understory as if it were pouting, greedily gobbling dead grass but hesitant to touch the heavier fuels. It was biding its time and snatching chance like a spoiled child on Halloween. You know which child, the bratty one that ignores the sign that pleads “please take one,” only to be terrified when the homeowner bursts from their staged hiding spot. In a similar fashion, fire crews were plotting their strike against the fire, but one could argue whether they were the child or the homeowner.
 
 Hoses were laid, lines were dug, and boots hit the ground to best the fire. The plan was to let it burn, but to keep it contained and controlled. In the darkness of the night, ponderosas stood indifferently. The fire lapped at their roots and consumed the surrounding litter. Perhaps it was arrogant to say we outsmarted it, and perhaps it was even worse to afford any sentience to a flame, but it certainly felt like the fire had been duped. We watched it gorge on the the meager forest understory only to hit dry, sandy dirt, and die, trailing wisps of smoke in bitter protest and smoldering in forgotten wood.
@@ -16,7 +10,7 @@ The fire was working its way southwest through a surprisingly lush desert forest
 
 But as a whole… fires are mourned. We grieve the separation and loss that they evoke, the forced unfamiliarity. But there is beauty in wildfire if you look, and despite the outwardly destructive appearance, abundance follows. Like new life enters the world bloodied, screaming, and scantly covered in shit, so too are fires just as messy in the process of creation. It should be remembered, however, that wicked things wait to feast on the tender flesh of any opportunity, stalking gravid chance in times of great labor.
 
-~
+
 
 It was some time prior to midnight. My partner was stretched out in the back of the ambulance while I was watching the stars flicker in a break through the smoke. I’d caught a spot fire across the line some time earlier and took care of the problem, alerting division and continuing course. It wasn’t much of a threat, just something to do and something worth noting.
 
@@ -47,7 +41,7 @@ I wanted to fight. I wanted to sink my heel into its rotten face if it was going
 “What the fuck was that?!?” He shrieked.
 
 “I don’t know. I don’t- did you hear it? It didn’t sound right.” I cut him off to fumble with my flashlight. 
-	
+
 Bright white light filled the box. I pointed the beam out the door window, but the light hit the glass pane and reflected my face back. I nearly screamed again when I was met with my terrified expression staring back at me. 
 
 “I can’t see shit. It’s either my dumb reflection or smoke,” I sneered.
@@ -56,12 +50,12 @@ My partner was silent for a moment before he whispered, “skinwalker.” A preg
 
 “It had to be some sort of pissed off critter. It had to be,” I assured; although, who I was assuring remained up for debate.
 
-~
+
 
 We paced the back of the ambulance trying to figure out what we wanted to do next. I was terrified, but I couldn’t believe it was anything as impossible as a skinwalker. Monsters were only myths born from boredom and isolation in days long gone. I mustered my courage and cautiously stepped back outside. I winced as my feet crunched on the gravel below me, and I scanned the smoke. Despite how stupid it all sounded, I was still scared. There were no shapes moving in the haze, and only the sound of crackling fire could be heard. Quickly, I ran to the front passenger seat, and my partner did the same to the driver’s seat, locking the doors behind us.
 
 “Let’s move. We’ll radio division our new coordinates when we get the fuck out of here.” 
-	
+
 Bobby slammed the keys into the ignition-
 
 “Wait,” I commanded. “What if there’s something in the beams ahead of us? Are we ready for that?”
@@ -98,7 +92,7 @@ The compartment behind the driver’s side door was always stiff to open, but, t
 
 I spun around to scold him for following me, but he wasn’t there. My confusion was quickly replaced with panic, however, when my feet were pulled out from under me and I was dragged furiously down the road into the night and fire. 
 
-~
+
 
 Bobby heard the muffled scream of his partner followed by a scuffle. He jumped to his feet and looked towards the cab, eventually creeping forward to peer more clearly through the windshield and pass a glance through the open windows beside him. He couldn’t see her, nor could he hear anything that indicated she was anywhere nearby. He heard her warning echo in his mind, save yourself, and chewed on the possibilities.
 
@@ -109,7 +103,7 @@ Emboldened by poorly considered courage, he erupted to his feet, running to the 
 Bobby’s body visibly relaxed to hear her voice. He stumbled over the gurney, shuffling to approach the door. There was a light scraping on the outside of the rig, and he assumed it was his partner struggling to open the locked door. He reached for the lock when he remembered her clearly stating, “I’ll knock four times.” 
 
 Bobby’s mind raced and his heart followed suit, frantically considering what was actually standing outside the door if it wasn’t his partner. “Just an elk,” he replayed its perfect mimicry in his mind. 
-	
+
 “Hey, you said you’d knock on the back door.” He spoke sheepishly.
 
 “I can’t see shit,” the voice retorted defensively. 
@@ -130,7 +124,7 @@ It let out a monstrous screech before slamming its body into the rig once, twice
 
 “Oh my god!” It wailed in her terrified voice once again. “Oh my god! Oh my god! Oh my god!” Each time it cursed, its voice ran over itself until the sound morphed into an inhuman moan. It finally hissed and pushed away from the ambulance, galloping on broken, noisy joints. Bobby could hear the slapping of its naked flesh racing into the night beyond. He whimpered. He panted.
 
-~
+
 
 Dragged by my ankle, the distance felt endless as I was raked mercilessly across the ground. My nomex yellow shirt had been pulled free, exposing my back and belly. Rocks and sticks tore holes in my pants and bit at every inch of bare skin that they could. My spine scraped across basalt, erupting in vibrant red and quickly staunched with dust and darkness. But just as I questioned how long I could endure the onslaught, I was abruptly dropped into a small clearing. I had only a second to loathe the experience before I rolled to my knees to feebly confront my attacker. 
 
@@ -202,7 +196,7 @@ I fell backwards with the creature on top of me, but in one swift action, I drag
 
 It screamed. I couldn’t tell if it was pain or anger or surprise or some combination of everything. It slashed recklessly into the air, snagging the flesh on my left forearm. Ripples of subcutaneous fat glistened in the artificial light before flooding with vivid red. I didn’t care. I had to kill it now, or die trying. So as it reeled in disgust at my attack, I mustered the last of my strength and lifted the Pulaski so that the axe end faced my threat, and I swung it with the last of my willpower. 
 
-THWACK.
+THWACK
 
 It was a distinctive sound. Joints make a similar noise as they jerk into or out of place, but there was a hollow resonance in the wetness of this sound that rendered it unmistakable. It was satisfying. It was horrifying. It was the sound of metal splitting skull and splattering gray matter. 
 
@@ -230,3 +224,6 @@ He was quiet for a moment as he contemplated what I had said. “How bad?”
 
 “The fire jumped the line. There’s a whole crew unaccounted for. Before we lost comms, they were saying something about some crazy man lighting the trees on fire, tall son of a bitch running on all fours...”
 
+—-
+
+A painting I made of the critter in the fire: https://imgur.com/a/LcrEz1K

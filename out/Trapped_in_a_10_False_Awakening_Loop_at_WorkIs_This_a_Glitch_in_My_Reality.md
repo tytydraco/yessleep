@@ -1,0 +1,17 @@
+Hey everyone,
+
+I had one of the most surreal, disorienting experiences today that I still can’t shake off. I work in a busy office, and like many of us, sometimes I try to catch a quick nap to recharge. So, I settled onto the small sofa in our break room with my headphones on, hoping for a brief escape from the chaos of work. What followed, however, was something straight out of a sci-fi thriller.
+
+I remember closing my eyes and drifting off, only to “wake up” in what I thought was the moment I had been waiting for—a calm, quiet office, with me sitting exactly where I had fallen asleep. The details were incredibly vivid; I could see the texture of the sofa, the familiar glare of the overhead lights, and even the subtle hum of the air conditioner in the background. My headphones were still snug around my ears, and everything felt completely normal. Except… it wasn’t.
+
+I got up, thinking I’d finally break free from sleep. I made my way toward the door, only to suddenly realize that nothing had changed. I was still on that same sofa, in the same position, with the same background noises echoing in my head. It hit me that I had just experienced a false awakening—a moment where you believe you’re awake, only to discover you’re still dreaming.
+
+Now, I know what you might be thinking—“It was just one false awakening, right?” Not for me. This bizarre cycle repeated over and over again, at least 10 times. Every time I “woke up” from the nap, the scene was exactly the same: the office break room, the sofa, my headphones wrapped around my ears, and that eerie, looping sound of false audios that seemed to mimic familiar office sounds. Each false awakening was as convincing as the last, and every time I tried to physically get up, I found myself still trapped on that sofa, in that exact same spot.
+
+At one point, I felt an overwhelming sense of panic. It was as if my brain was caught in an endless loop, creating this hyper-realistic version of reality where nothing ever changed. I even attempted to leave the room by standing up and walking out, only to find that I was right back where I started. The feeling was not just disorienting—it was deeply unsettling. I kept hearing these audio cues, like the distant murmur of office chatter and the faint ring of a telephone, which only amplified my confusion and anxiety.
+
+I started questioning my sanity. Was this some kind of lucid dream experiment gone wrong? Or maybe I was on the verge of sleep paralysis? The more I tried to break out of the cycle, the stronger the pull became, and the harder it was to tell if I was truly awake or still trapped in a dream. Every false get-up felt like a glitch in reality, a relentless loop that refused to let me go.
+
+Finally, after what felt like an eternity of false awakenings, I managed to truly wake up. I was back in my office, heart pounding and mind reeling from the experience. The lingering sensation of unreality stayed with me for the rest of the day, making it hard to concentrate on even the simplest tasks.
+
+Has anyone else experienced something like this during an office nap or any other situation? I’m curious if this is a common phenomenon or if I just had a one-of-a-kind encounter with a sleep glitch. I'd love to hear your stories or any insights you might have into why our brains sometimes get caught in these surreal loops.
