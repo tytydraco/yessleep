@@ -4,7 +4,7 @@ His house was one of those old farmhouses, not quite decrepit but certainly not 
 
 There had been all sorts of stories about it, or at least my friend told me so. Did I take him seriously? No of course I didn’t, looking back on it I don’t even think he was taking himself seriously. 
 
-It was all rubbish about ghosts and what not, some woman had been hung however long ago and her wailing spirit had ‘wandered betwixt the trees ever since’. I don’t really remember the details; it’s been a while since this all happened.
+It was all rubbish about ghosts and what not, some poor woman had hung herself however long ago and her wailing spirit had ‘wandered betwixt the trees ever since’. I don’t really remember the details; it’s been a while since this all happened.
 
 The dusk faded as the sun fell below the horizon, the plan had been simple, we would sneak out after his parents fell asleep and like, kick about in the woods? We were never the smartest bunch to be honest. It was the closest we could get to camping and I guess that’s all the incentive we needed.
 
@@ -72,7 +72,7 @@ Into a clearing I collapsed, the bank of the lake stretched out in front of me. 
 
 Silence was all that followed me. I turned and shone my flashlight like a lighthouse in a storm and prayed it would lead Josh straight to me but it never did.
 
-Alone with my thoughts I slumped on that desolate bank, the water still and calm. I looked out into the dark, despite the valiant efforts of my flashlight it did not penetrate the dark void of the lake. I threw a pebble into the surface and wept… I wanted my mum; I wanted to go home. 
+Alone with my thoughts I slumped on that desolate bank, the water still and calm. I looked out into the dark, despite the valiant efforts of my flashlight it did not penetrate the void of the lake. I threw a pebble into the surface and wept… I wanted my mum; I wanted to go home. 
 
 I remember thinking of all the possibilities, that my friends were dead, murdered by some crazy old bastard in the woods and soon I would join them. I don’t know how long I sat there, throwing pebbles into that mirror as it reflected my sorry state, I don’t know how long I muttered that lament for my friends. 
 
