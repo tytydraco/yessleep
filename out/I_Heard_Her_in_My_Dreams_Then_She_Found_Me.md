@@ -1,0 +1,29 @@
+I don’t know if it’s too late to get a divorce now. It’s tearing me apart, and it all goes back to a dream I had 15 years ago.
+
+It started out warm, cozy even. My buddy Dave rolled up to my place with his daughter tagging along. We were out back, having a BBQ, smoke curling up into the dusk. She was maybe 5, sharp as a tack—rattling off random facts, especially ghost stories. Didn’t seem weird; Dave’s always been hooked on creepy stuff, probably had some old book she’d dug into. I didn’t overthink it—dream logic, you know? We’re chatting, laughing about something random, when it slams me: Dave’s got no kid. He’s not even hitched. I jolted awake, sheets twisted around me, a bit shaken but brushing it off. Dreams mess with your head all the time.
+
+I sleep with the blanket pulled over my face. Lying there, heart still racing, I heard it—a low, guttural rumble seeping through the covers, like a growl stretched thin. Then words: “Don’t go. Let’s keep talking.” Crystal clear, in that little girl’s voice from the dream—but warped, deep, wrong. My pulse hammered. I was awake—no doubt—but my eyes stayed glued shut. It was too sharp, too near, like she was in the room with me. Flip on the light, pull the blanket back, it’d stop, right? Except I couldn’t move. I just clenched my jaw, begged sleep to take me back. It did, eventually. No more dreams that night—or none I can recall.
+
+Figured that was that. Months later, Dave got married. A few more, and they had a baby girl. For a flicker, that dream popped up, but I chalked it to chance. Life rolled on.
+
+10 years ago, 5 years after the dream, Dave threw a family hangout at his place—friends, kids everywhere. I’m in his study, thumbing through his stash of spooky books, when his daughter strolls in. She’s 5 now, same age as the dream kid, and starts yapping—ghost stories, odd facts, word-for-word what I’d dreamed. I’d blanked on that night by then, just marveled at how bright she was. Dinner’s almost ready, so I say, “Hey, let’s go eat.” She tilts her head. “Don’t go. Let’s keep talking.”
+
+“Don’t go. Let’s keep talking.”
+
+It hits like a punch. That line—I knew it. Then her voice drops, and it’s that exact same growl from the dream—low, jagged, not a kid’s at all: “Don’t go. Let’s keep talking.” The dream crashes back, every bit of it, and I’m gone—bolting to my car, hands shaking. She remembered me. From BEFORE she existed.
+
+Dave called me later that night, asking what the hell was wrong. I mumbled something about feeling sick, hung up quick. For a couple weeks after, we still talked—short, awkward calls. But every time he’d casually bring her up, like “Oh, she’s into this book now,” that voice—the same damn voice from the dream—would rip through my head. Low, guttural, wrong, like it was whispering right next to me. I couldn’t take it. I stopped picking up, stopped replying. Eventually, he quit trying, and I cut him out completely.
+
+It didn’t stop there, though. Even after Dave was gone from my life, that voice stuck around. I’d wake up at night, heart pounding, sure I’d heard it again—low and close, like it was waiting for me to slip. I started therapy, got meds to knock me out cold. Waking up scared the hell out of me—waking up meant risking it again. The pills helped after a while. I could sleep without jolting awake. Dave faded out, and I thought maybe it was over.
+
+
+
+5 years back, I got married. My wife’s a hobby writer—short stories for mags, small stuff. We’d kick ideas around sometimes. One night, I spot her drafting something: a guy dreams of his friend’s nonexistent daughter chatting him up. Wakes up, friend’s got no kid. Then the friend weds, has a daughter… I couldn’t finish reading. I’d never told her—told no one. No chance I’d spilled it sleeping; I’d locked that mess away years ago. My chest seized, dread choking me. Who’d listen? Shrinks? They’d cage me. I stumbled outside, gulping air before she saw.
+
+She caught me at the door. “Don’t go,” she said. “Let’s keep talking.” At first, it was her normal voice—soft, familiar. Then it shifted, and it was THAT voice—the exact same one from the dream, from Dave’s kid—deep, guttural, like something hollowed out: “Don’t go. Let’s keep talking.” I bolted. Drove to the first motel I hit, checked in, barely closed my eyes. Phone kept buzzing—her calls, texts. Ignored them. Sat there, reeling. Pulled up her pic on my phone. That face I knew—it blurred, turned strange. Who’s been sleeping beside me? Searched her name online—dozens of shots, her smile, her eyes. Then an old one, fuzzy, from when she was 5. That face. The dream girl. Dave’s daughter.
+
+I gagged, stomach churning. Called Dave—first time in 10 years. I’d ditched that crew before the wedding, didn’t even invite them. Busy signal, dead end. Checked his socials instead. Last post, 5 years ago, right before I tied the knot—family trip to some Pacific island. Photo’s up, but his daughter’s face… it’s a void, a black smear swallowing her head.
+
+Phone buzzed. Her text: “Let’s keep talking.” Just that. Room went ice-cold—not just cool, dead frigid. A slow scrape started at the door—heavy, like claws dragging. Then that voice—the SAME voice, hers now, from the dream, from the kid—low, oozing through the walls: “Don’t go. Let’s keep talking.” Not from my phone—right outside. I jammed the deadbolt, shoved the dresser against it, but the scraping kept coming. It’s still coming.
+
+I don’t know what she is—or what’s out there. I don’t know how that voice knew me before she was born, or why it’s coming out of my wife’s mouth now. All I know is it’s here, and I can’t outrun it much longer.
