@@ -24,7 +24,7 @@ I bolted, reaching for the knob. Right as I was about to grasp it, he snapped hi
 
 A series of audible crunches filled the air, and agony detonated in my wrist like a pipe bomb.
 
-I wailed and fell backwards on to the floor. The pain was unlike anything I’d experienced up to that point in my life; a vortex of fire and electricity churning in my forearm. Trying to stabilize the pulverized joint, I wrapped my other hand around my broken wrist, staring at in disbelief.
+I wailed and fell backwards on to the floor. The pain was unlike anything I’d experienced up to that point in my life; a vortex of fire and electricity churning in my forearm. Trying to stabilize the pulverized joint, I wrapped my other hand around the broken wrist, staring at it in disbelief.
 
 Daryl stepped forward from the doorway. Looming over me, he bent down and gently put a meaty finger to my lips, shushing my howls. Reluctantly, my gaze lifted from my wrist to his eyes. When I finally quieted completely, he started anew.
 
