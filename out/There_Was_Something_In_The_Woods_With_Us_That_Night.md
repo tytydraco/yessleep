@@ -32,13 +32,13 @@ He cocked his head and I could see the panicked expression carved onto his face,
 
 The irony of his condemnation of speech was funny to me at the time, after all we were shining flashlights through the trees like lunatics. Even now, I doubt being quiet would’ve kept us concealed. Over tree trunk and river, we crept and I began to question Richard ‘s decision to leave out the crazy Gamekeeper and why we’d really come out in the first place.
 
-Our flashlights illuminated the suffocating confines of the darkness, like headlights they searched over tree after tree after… Then there it was, a single tally carved like a crooked finger into the soft flesh of a single tree’s trunk. I remember running my finger through the groove in the wood, it was rough and crude and seemingly pointless. We moved on soon after, the hysteria over the ‘tally of doom’ fading back into the usual silence.
+Our flashlights illuminated the suffocating confines of the darkness, like headlights they searched over tree after tree after… Then there they were, three tallies carved like crooked fingers into the soft flesh of a single tree’s trunk. I remember running my finger through the groove in the wood, it was rough and crude and seemingly pointless. We moved on soon after, the hysteria over the ‘tally of doom’ fading back into the usual silence.
 
 Boredom had set in, why exactly had Richard made us come out here and why had we obliged? I had thought at the big age of thirteen I was a grown-up, spared from fear, how wrong I’d been. The enforced silence made it worse I had heard every creak in the trees, every muntjac’s howl as it pierced the silence like a bullet and every footstep upturning freshly fallen leaves
 
 Step after step, my feet ached, I hadn’t brought my walking shoes and that had been my main concern at the time; By this point I had the rhythm of our steps down, Richard had heavier steps whilst Josh had lighter ones and well, I knew my own. That’s why I found it so odd when a fourth set began crunching in the leaves somewhere behind us.
 
-The silence continued, I said nothing as if ignoring it meant it wasn’t happening. My flashlight groped the bark of the trees as I tried to block out the thought of the Gamekeeper being behind me. But then there it was again, the tally.
+The silence continued, I said nothing as if ignoring it meant it wasn’t happening. My flashlight groped the bark of the trees as I tried to block out the thought of the Gamekeeper being behind me. But then there it was again, the trio of tallies.
 
 Richard looked up and let out a sigh and muttered a series of incessant swears.
 
@@ -106,6 +106,6 @@ I went to therapy and to some support groups and well perhaps I would have forgo
 
 For the first time in my life, I no longer live with my parents, I found a farmhouse for rent out in the countryside close to my university, eerily cheap and now I suppose I know the reason. Today I stepped outside and I don’t know why? I was like pulled? like it was a pre-existing thought if you get what I mean? 
 
-My new abode leads out into the woods and on the tree nearest my property was a single… tally.
+My new abode leads out into the woods and on the tree nearest my property were two… tallies.
  
  

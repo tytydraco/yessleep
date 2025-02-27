@@ -137,3 +137,5 @@ We didn’t say much else until we got to the car. As I drove him home, we tried
 That night I reviewed the footage. It was definitely creepy. Something that caught my attention was that as we were leaving, it seemed every sound in the forest stopped. The flies quit their buzzing and the crickets stopped chirping. It’s possible it was just an audio glitch, I still don’t know.
 
 That was yesterday. I still don’t know what to think of this structure. Please tell me if you know what this could be, it would make me feel a lot better. I think we might go check it out during the day again, just to get a better look at it. I’m not deterred from using this place as a filming location! In fact, this thing could be a blessing in disguise. It definitely scared us, so why not use it? I’ll make an update if we find out what it is, so stay tuned. Here is the link to the [video.](https://youtu.be/zs8FtASDNac?si=QrSEMtD9mHt1oJKs)
+
+Click [here](https://www.reddit.com/r/nosleep/s/WWS278SN2Z) to read Part 2.

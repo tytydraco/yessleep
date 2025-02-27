@@ -30,7 +30,7 @@ The man in the window looked at me, I watched his gaze shift, transfixing on the
 
 I eventually got the message. I selected a song and nervously began to sing. My eyes shifted back and forth to the man. He looked pleased now. A smile appeared on his face. 
 
-After the song finished, the screen changed. The timer blinked. It now read: 1,00,00,000. I had no idea how I ended up in this predicament, but I understood what I had to do. I continued singing. Song after song. The whole time, the man watched in glee. It was strange, I never grew hungry or needed to use the bathroom. It was as if I was frozen in time.
+After the song finished, the screen changed. The timer blinked. It now read: 1,000,000. I had no idea how I ended up in this predicament, but I understood what I had to do. I continued singing. Song after song. The whole time, the man watched in glee. It was strange, I never grew hungry or needed to use the bathroom. It was as if I was frozen in time.
 
 This continued for ages. I soon came to realize, those numbers represented years. If ever I stopped, the timer paused too. I had to keep singing if I ever wanted to get out of here.
 
