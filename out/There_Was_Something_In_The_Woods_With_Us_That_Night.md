@@ -2,15 +2,21 @@ It had been the summer of that year, six full weeks to piss about and do absolut
 
 His house was one of those old farmhouses, not quite decrepit but certainly not far off it; sixteen acres of land sprawling across the British countryside that most notably, led out into a wood.
 
-There had been all sorts of stories about it, or at least my friend told me so. Did I take him seriously? No of course I didn’t, looking back on it I don’t even think he was taking himself seriously. It was all rubbish about ghosts and what not, some woman had been hung however long ago and her wailing spirit had ‘wandered betwixt the trees ever since’. I don’t really remember the details; it’s been a while since this all happened.
+There had been all sorts of stories about it, or at least my friend told me so. Did I take him seriously? No of course I didn’t, looking back on it I don’t even think he was taking himself seriously. 
 
-The dusk faded as the sun fell below the horizon, the plan had been simple… we would sneak out after his parents fell asleep and like, kick about in the woods? We were never the smartest bunch to be honest. It was the closest we could get to camping and I guess that’s all the incentive we needed.
+It was all rubbish about ghosts and what not, some woman had been hung however long ago and her wailing spirit had ‘wandered betwixt the trees ever since’. I don’t really remember the details; it’s been a while since this all happened.
 
-Darkness swallowed what had been left of the light and we sat in the garden, there had been three of us that night; From memory, we told stories or something? Again, it’s been a while. We saw the lights in the house dissipate and we were left the dull crackle of the fire and the soft glow of its dying embers. With a somewhat startling clap of his hands, Richard jolted from his seat.
+The dusk faded as the sun fell below the horizon, the plan had been simple, we would sneak out after his parents fell asleep and like, kick about in the woods? We were never the smartest bunch to be honest. It was the closest we could get to camping and I guess that’s all the incentive we needed.
+
+Darkness swallowed what had been left of the light and we sat in the garden, there had been three of us that night; From memory, we told stories or something? Again, it’s been a while. 
+
+We saw the lights in the house dissipate and we were left the dull crackle of the fire and the soft glow of its dying embers. With a somewhat startling clap of his hands, Richard jolted from his seat.
 
 “Right then my dear friends! Let’s get to work.”
 
-His tone was clearly mocking, Josh hadn’t been looking so hot all night and whether that was from fear or his overconsumption of marshmallows I couldn’t tell, though the answer is pretty obvious looking back on it. The two of them had been my good friends for years, they’d been with me through everything you could think of, bullying, breakups and broken bones included. I gave Josh a reassuring pat on the back and the three of us started towards the woods.
+His tone was clearly mocking, Josh hadn’t been looking so hot all night and whether that was from fear or his overconsumption of marshmallows I couldn’t tell, though the answer is pretty obvious looking back on it. 
+
+The two of them had been my good friends for years, they’d been with me through everything you could think of, bullying, breakups and broken bones included. I gave Josh a reassuring pat on the back and the three of us started towards the woods.
 
 Silence permeated the expedition, I think we were all scared shitless and just far too proud to admit it. I liked the woods, during the day that is when the crunch of a leaf or the snap of a twig doesn’t send you reeling in search of an imaginary murderous cannibal! We had been moving in silence for maybe, ten minutes? When, Josh spoke up.
 
@@ -46,11 +52,11 @@ A fruitless attempt to quiet the discontent arising in our party, it reassured m
 
 Together, we walked for maybe another twenty minutes? Time wasn’t really a concept in that endless darkness. I was contented I suppose, at the very least our footsteps were once again very much… Alone.
 
-Soon, we swapped the scenery for a dewy field; we’d reached the forest’s boundary! We all sighed in relief, far more startled than we were letting on or at least I was. Richard pointed to the far side of the clearing, to a cluster of trees doing a poor job of concealing a lake hiding behind them, like a toddler playing hide and seek. This is what he had wanted to show us and to his credit it was… Beautiful.
+Soon, we swapped the scenery for a dewy field; we’d reached the forest’s boundary! We all sighed in relief, far more startled than we were letting on or at least I was. Richard pointed to the far side of the clearing, to a cluster of trees doing a poor job of concealing a lake hiding behind them, like a toddler playing hide and seek. This is what he had wanted to show us and to his credit it was beautiful.
 
 We started into the grass, it was taller than us, or at least it felt like it was. One foot after the other we snuck closer and closer to our journey’s end. I couldn’t see my companions they, like me, were having just so much fun traversing the grasping confines of wet grass. Coughing and spluttering I, like a cascade, crashed out from the field and right back into familiar surroundings… The woods.
 
-Thorns and nettles pricked at my backside as I pulled myself from their grip and to my feet, soon after me came Josh in a similar fashion. I had helped him to his feet expecting the third of our band to emerge and yet… He never did.
+Thorns and nettles pricked at my backside as I pulled myself from their grip and to my feet, soon after me came Josh in a similar fashion. I had helped him to his feet expecting the third of our band to emerge and yet but he never did.
 
 My best friend, for years, through everything and the last I would know of him was a scream?
 
@@ -62,9 +68,9 @@ I said nothing and did nothing, not a word in any language could have or would h
 
 Our eyes locked for but a moment as another scream tore through the silence followed by a great tumult from the woods in which we stood. Back into the grass we ran, tearing, ripping and weaving through the blades as they tried to constrict us and deliver us to the same fate as our friend.
 
-Into a clearing I collapsed, the bank of the lake stretched out in front of me. A journey’s end…
+Into a clearing I collapsed, the bank of the lake stretched out in front of me. A journey’s end.
 
-Silence was all that followed me. I turned and shone my flashlight like a lighthouse in a storm and prayed it would lead Josh straight to me… It never did.
+Silence was all that followed me. I turned and shone my flashlight like a lighthouse in a storm and prayed it would lead Josh straight to me but it never did.
 
 Alone with my thoughts I slumped on that desolate bank, the water still and calm. I looked out into the dark, despite the valiant efforts of my flashlight it did not penetrate the dark void of the lake. I threw a pebble into the surface and wept… I wanted my mum; I wanted to go home. 
 
@@ -78,7 +84,7 @@ Whether it was the crazed Gamekeeper or the ghosts and in a selfish way I didn�
 
 With my head in my hands I began to drift into sleep, my tears using my hands as a slide to fall and dilute into the mud.
 
-Once again, I fell into a rhythm, a twisted lullaby as I faded in and out of consciousness, the rustling of the leaves and the wind as it caressed the trees soothing me… Then came a soft rippling of the water.
+Once again, I fell into a rhythm, a twisted lullaby as I faded in and out of consciousness, the rustling of the leaves and the wind as it caressed the trees soothing me. Then came a soft rippling of the water.
 
 It had been at least twenty minutes since I cast my last stone… the intensity of the rippling increased and I scrambled to my feet, whatever had taken my friends was now here for me.
 
@@ -94,12 +100,12 @@ The water ran sanguine as a mass drifted onto the shore. Not long congealed bloo
 
 The Police found me on the bank the next morning and to be honest I don’t remember what happened after or before they did. My friends, much like me were soon found and after the events of that night we kind of drifted out of friendship, a shame I suppose but I guess it was for the best. 
 
-It’s been maybe seven or eight odd years now since that night and I’ve never really moved on. The woods were fully searched and of course the body that well… found me on the bank was the Gamekeeper and he’d been missing for a week. That fact had all but confirmed my worst fears, there had been someone or something in those woods with us that night.
+It’s been maybe seven or eight odd years now since that night and I’ve never really moved on. The woods were fully searched and of course the body that well… found me on the bank was the Gamekeeper, he’d been missing for a week. That fact had all but confirmed my worst fears, there had been someone or something in those woods with us that night.
 
-I went to therapy and to some support groups and well… Perhaps I would have forgotten about it entirely, I mean after the first few years I did. Repressed in the deepest recesses of my brain I kept it… until today.
+I went to therapy and to some support groups and well perhaps I would have forgotten about it entirely, I mean after the first few years I did. Repressed in the deepest recesses of my brain I kept it… until today.
 
 For the first time in my life, I no longer live with my parents, I found a farmhouse for rent out in the countryside close to my university, eerily cheap and now I suppose I know the reason. Today I stepped outside and I don’t know why? I was like pulled? like it was a pre-existing thought if you get what I mean? 
 
-My new abode leads out into the woods… on the tree nearest my property was a single… tally.
+My new abode leads out into the woods and on the tree nearest my property was a single… tally.
  
  

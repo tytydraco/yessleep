@@ -213,6 +213,6 @@ I could hardly breath, feeling my eyes begin watering with desperation as what s
 
 “We're coming down there, to prepare for the funeral. You just need to look over the farm for while. I'm sorry...”
 
-I didn't respond to her for a while. Finally, I told her all was well and that I loved her. I would have liked to stayed on the phone for a bit longer, but I had to go.
+I didn't respond to her for a while. Finally, I told her all was well and that I loved her. I would have liked to stay on the phone for a bit longer, but I had to go.
 
 The well was howling.

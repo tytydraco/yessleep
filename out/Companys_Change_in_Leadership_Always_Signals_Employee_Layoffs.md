@@ -105,3 +105,5 @@ Dakari seemed to be in complete shock when I uttered those words to him. He appr
 I returned to my desk, the contract still clutched in my hand. The office was still eerily quiet, but now it felt different. I felt different. The weight of my decision settled over me, and I knew there was no turning back. I had made my choice, and now I had to live with it.
 
 As I sat down, I glanced at the contract one more time. The elegant script and intricate designs seemed to mock me. I tucked it away in my drawer, knowing that my life had irrevocably changed. The future was uncertain, but one thing was clear: I was no longer the same person who had walked into that boardroom.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1iz37jt/during_a_companys_leadership_transition_you_must/)
