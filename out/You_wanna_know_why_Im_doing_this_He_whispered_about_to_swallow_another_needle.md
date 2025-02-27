@@ -274,7 +274,7 @@ They told me I ***made*** it happen.
 
 Looks like I’ll be sentenced to another twenty years, maybe more.
 
-I’m posting this to see if anyone *outside* my immediate orbit is unaffected by whatever Daryl has done.
+I’m posting this from the prison’s computer lab to see if anyone *outside* my immediate orbit is unaffected by whatever Daryl has done.
 
 What’s happening to me?
 
