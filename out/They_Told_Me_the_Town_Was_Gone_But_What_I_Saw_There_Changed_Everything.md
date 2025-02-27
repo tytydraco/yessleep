@@ -142,17 +142,17 @@ The words hit me like a punch to the gut. My breath caught in my throat, a cold 
 
 **How the hell did they know my name?**
 
-I staggered back, my feet slipping on the cracked pavement, my mind struggling to process what I was hearing. There was no way they could know me. They couldn’t. They were just... things. **Things stuck in time.** Ghosts of a town that wasn’t supposed to exist anymore.
+I staggered back, my feet slipping on the cracked pavement, my mind struggling to process what I was hearing. There was no way they could know me. They couldn’t. They were just... things. Things stuck in time. Ghosts of a town that wasn’t supposed to exist anymore.
 
 But they repeated it. Over and over, each of them speaking in perfect harmony, their voices twisted and warped, yet unmistakably clear.
 
 "Jack... you're going to join us... there's no getting out."
 
-It wasn’t just a warning. It was **fact**, etched into the very air around me. The way they said my name—**Jack**—it wasn’t just recognition, it was ownership. As if they had always known me. As if they had been waiting for me.
+It wasn’t just a warning. It was fact, etched into the very air around me. The way they said my name—**Jack**—it wasn’t just recognition, it was ownership. As if they had always known me. As if they had been waiting for me.
 
-I stumbled back, almost tripping over the curb as I tried to make sense of it all. **Who were they?** **What were they?** why did they want me to join them? And was I the first one, or had they taken people before?
+I stumbled back, almost tripping over the curb as I tried to make sense of it all. Who were they? What were they? Why did they want me to join them? And was I the first one, or had they taken people before?
 
-The smile stretched wider on their faces, those **unnatural** grins that seemed to grow with every passing second, and their eyes—those dead, lifeless eyes—never left me. They were watching, waiting, and all I could do was stand there, rooted in place, paralyzed by the cold certainty of their words.
+The smile stretched wider on their faces, those unnatural grins that seemed to grow with every passing second, and their eyes—those dead, lifeless eyes—never left me. They were watching, waiting, and all I could do was stand there, rooted in place, paralyzed by the cold certainty of their words.
 
 I tried to move, to run, but my body felt heavy. Every instinct told me to flee, but my feet wouldn’t respond. The town had a grip on me now, a grip I couldn’t break free from.
 

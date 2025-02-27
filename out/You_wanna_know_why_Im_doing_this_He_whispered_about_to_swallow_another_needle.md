@@ -266,7 +266,7 @@ As I watched him curl up into the fetal position and roll around the floor, I fo
 
 I looked around my cell, and I imagined that I was trapped inside Daryl’s black tin. If I squinted, I could even see the golden stars and spirals that had disappeared from the lid of the tin, littering the walls like an intricate mural or the incoherent scribbling of a madman.
 
-My cell mate died that night. Ruptured ulcer in his stomach, acid exploding over his intestines like a water balloon.
+My cell mate died that night. Ruptured an ulcer in his stomach out of nowhere, acid exploding over his intestines like a water balloon.
 
 Naturally, the prison decided it was my fault.
 
