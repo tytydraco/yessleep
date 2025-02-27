@@ -1,50 +1,49 @@
-The house was ancient, its walls seeming to creak and moan even under the music blasting through the speakers. My friend Jenna had invited us—just a small group—to celebrate her cousin’s new house. “It’s totally haunted,” she said, laughing as we pulled up. The house loomed like a shadow in the night, its Victorian spires reaching toward the full moon. I laughed too, but uneasily.
+The night my parents went out of town, I decided to throw a party. Nothing huge—just a few friends, some music, and drinks. I figured I could clean up afterward and no one would be the wiser.
 
-Inside, the vibe was perfect for a party. Dim, colorful lights danced across the walls, and the smell of stale beer mixed with candles burning in every corner. There were about twenty of us, talking, drinking, playing games. It felt warm and alive, but there was something…off. Every so often, I’d catch a movement out of the corner of my eye, like someone darting into another room. I told myself it was just the flicker of candles or someone playing tricks on me. But then others started noticing it too.
+By 10 PM, the house was alive with laughter and the bass of the playlist thumping through the walls. My friends spilled into the living room, the kitchen, even upstairs where I explicitly told everyone to stay out of. But it was fun. For a while, anyway.
 
-“Did someone just walk upstairs?” my friend Liam asked, pointing toward the grand staircase. The music had just dipped, and everyone turned to look. The steps were empty, but I swore I’d seen a shadow shift at the top.
+I was in the kitchen refilling a bowl of chips when I noticed someone standing in the corner by the pantry. It was dark over there, so I couldn't make out much—just a figure, tall and still. "Hey," I called, "you alright?"
 
-“No one’s up there,” Jenna said, rolling her eyes. “The upstairs is still being renovated.”
+No response. I figured it was someone who’d had too much to drink or was messing with me. I turned away to grab my phone, and when I looked back, the corner was empty. I laughed it off. Too much sugar, maybe.
 
-That was when the lights flickered.
+Around midnight, people started leaving. A few of my closer friends stayed behind to help clean up, which I appreciated. I was wiping down the coffee table when Jenna, one of my oldest friends, grabbed my arm. "Hey," she said, her voice tight, "how many people did you invite?"
 
-We all laughed nervously, pretending it was nothing, but the air in the room felt thicker, heavier. “Power surge,” someone suggested, though the music and speakers were still going strong.
+"Like, twenty," I said. "Why?"
 
-I decided to shake it off and grab another drink. The kitchen was darker than I remembered. The single light above the island buzzed faintly, and the shadows in the corners seemed deeper, like they might swallow the edges of the room. I grabbed a beer from the counter and turned to head back to the living room when I heard a whisper.
+Jenna's face went pale. "Because I just saw someone upstairs. And it wasn’t anyone I recognized."
 
-“Help me.”
+A chill crept down my spine. "I told everyone to stay downstairs," I said, trying to sound annoyed instead of scared.
 
-It was faint, like the echo of someone speaking in another room.
+"Yeah, well, they're not listening." Jenna glanced toward the staircase. I followed her gaze, my stomach tightening when I saw the shadow of someone moving at the top of the stairs.
 
-I froze, my heart racing, but when I looked around, no one was there. Just as I turned to leave, a cabinet door swung open on its own, slamming against the wall so hard it made me jump. My beer slipped out of my hand, shattering on the floor.
+"Alright," I said, forcing myself to be brave. "Let’s go see who it is." Jenna looked at me like I was crazy but followed anyway.
 
-I screamed, and suddenly Liam was there, grabbing my arm. “What happened?”
+We climbed the stairs slowly, each creak of the wood amplifying the tension. At the top, I flicked on the hallway light. Nothing. All the doors were closed, just as I’d left them.
 
-“The cabinet,” I stammered, pointing. “It just—”
+"See?" I said, though my voice trembled. "Probably nothing."
 
-We both stopped as we heard a loud crash from upstairs. This time, everyone in the house heard it.
+But Jenna grabbed my arm again. "The guest room door was open before," she whispered.
 
-“Okay, seriously, what the hell is going on?” Jenna said, marching to the foot of the stairs. “If this is some kind of prank—”
+My chest tightened as I reached for the doorknob. Slowly, I pushed the door open. The room was empty, except for a faint smell—like damp earth—and the window was wide open. I knew for a fact I hadn’t opened it. Jenna let out a soft gasp behind me, and I turned to see her staring at something on the floor.
 
-The lights flickered again, and when they came back on, a figure was standing at the top of the stairs.
+Footprints. Muddy, wet footprints leading from the window to the closet.
 
-It wasn’t one of us.
+I stepped back, my throat dry. The party, the noise, everything felt like a distant memory. Jenna grabbed my arm again, this time pulling me toward the door. "We need to leave," she whispered.
 
-It was tall, unnaturally thin, and draped in something black that shifted like smoke. Its head cocked to the side, as though it were studying us, and even from across the room, I could see its eyes—empty pits of darkness that seemed to pull the light out of the room.
+But I couldn’t move. My gaze was fixed on the closet door. It was slightly ajar, and as I stared, I swore I saw it move. A soft creak, like someone shifting their weight inside.
 
-Jenna screamed. Someone yelled, “Run!”
+"Who's in there?" I croaked, my voice barely audible.
 
-Chaos erupted. People shoved past each other, trying to get to the front door. I grabbed Liam’s arm, pulling him with me as the figure began to descend the stairs. It didn’t move like a person. Its limbs jerked unnaturally, as though it were being controlled by invisible strings.
+Silence.
 
-We barely made it outside before the door slammed shut behind us. A few of us stood in the yard, gasping for breath, while others piled into their cars and sped off.
+Then, the door slammed shut.
 
-Jenna’s cousin came out of nowhere, asking what had happened, but none of us could explain it. When Jenna told him about the figure on the stairs, he went pale.
+That was enough for me. Jenna and I bolted downstairs, screaming for the others to leave. My heart was pounding so hard I could barely think. By the time we were outside, my hands were shaking too much to lock the front door. We left it. Everyone piled into their cars and took off, leaving me and Jenna standing in the driveway, staring at the dark house.
 
-“The previous owners…” he started, then stopped, swallowing hard. “They said the house wasn’t safe, but I thought they just meant the renovations.”
+"Call the cops," she said, her voice trembling.
 
-I didn’t sleep that night. None of us did. Jenna tried to laugh it off the next day, saying it was probably just a trick of the lights or someone in a costume, but I knew better.
+I did. They showed up within minutes, lights flashing, guns drawn. They searched the entire house but found nothing. No footprints, no signs of forced entry, no one hiding in the closet. The officer tried to tell me it was probably a prank, or maybe I imagined it.
 
-I still see those eyes sometimes, in the dark corners of my room.
+But as I was locking up the house that night, I noticed something. The muddy footprints were gone. But on the mirror in my bedroom, written in smeared handprints, were the words:
 
-And I know it wasn’t finished with us.
-
+"Next time, don’t look."
