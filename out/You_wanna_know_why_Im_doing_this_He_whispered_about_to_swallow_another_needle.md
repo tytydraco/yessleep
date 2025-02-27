@@ -6,7 +6,7 @@ He tilted his head back slowly, letting the golden barb slide to the edge of his
 
 *“Please, Daryl, I don’t…I don’t understand…”*
 
-For a moment, he seemed to come to his senses. Pivoted his jaw forward, placing his hand palm up in front of his mouth like he was going to spit the damn thing out. At the same time, the wildness in his features waned. The grin melted down his face like candlewax, and his lips stopped quavering. 
+For a moment, he seemed to come to his senses. Pivoted his jaw forward, placing his hand palm up in front of his mouth like he was going to spit the damn thing out. At the same time, the wildness in his features waned. The grin melted down his face like candlewax, and his lips stopped quavering.
 
 I saw the tiniest hint of fear behind his eyes, too.
 
@@ -76,7 +76,7 @@ He just…appeared. Exact same time as I did, down to the minute. Materialized f
 
 As you might imagine, babies born at twenty-six weeks of gestation don’t enter this world healthy.
 
-He was physically underdeveloped for the demands of reality. Lungs don’t fully develop until at least *thirty-six* weeks, so he only existed for about a minute before a breathing tube needed to be placed down his throat. His blood vessels were exceptionally fragile, too. It was like blood was being transported through overcooked penne rather than strong, fibrous tubing. Because of that, he bled into his brain twelve hours after they put the breathing tube in.
+He was physically underdeveloped for the demands of reality. Lungs don’t fully develop until at least *thirty-six* weeks, so he only existed for about a minute before a breathing tube needed to be placed down his throat. His blood vessels were exceptionally fragile, too. It was like the blood was being transported through overcooked penne rather than strong, fibrous tubing. Because of that, he bled into his brain twelve hours after they put the breathing tube in.
 
 I was born six pounds, two ounces. Daryl wasn’t even born with a pound to his name. Spent the first five months of his life in the neonatal intensive care unit, tethered to the location by the IVs and the feeding tubes like a dog leashed to a bike rack outside a bodega, waiting patiently for their owner to come back out with a pack of cigarettes so their life could continue.
 
