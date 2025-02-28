@@ -208,7 +208,9 @@ I told him I didn't ask, and that it was nice meeting him.
 
 When he followed me, I thought we were just going the same direction. 
 
-But then I took a turn down an alleyway, and his footsteps hesitated, before coming after me. I was all ready to get him to beat it, but looked lost. 
+But then I took a turn down an alleyway, and his footsteps hesitated, before coming after me.
+
+I was all ready to get him to beat it, but Charlie looked lost. 
 
 He had this look on his face, like he was trying and failing to look intimidating. 
 

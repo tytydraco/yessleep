@@ -306,7 +306,7 @@ Her end of the phone got quiet for a moment as she processed the bad news. I con
 
 There was some muffled rustling, then Reyna’s voice was in my ear. “He only said that *he* didn’t know if there’s a way. That doesn’t mean that it’s impossible. I mean, I don’t know if anything that I have will fix this, but that’s not gonna stop me from trying.”
 
-I sighed with relief, “I was SO hoping you’d say that. I believe in you.”
+I sighed with relief, “I was hoping you’d say that. I believe in you.”
 
 “Thanks, bestie.” She replied, then jokingly added. “And I’m going to remember this incident the next time a *certain someone* tells me to go touch grass! You hear me, you *blood-sucking bitch?!*”
 
@@ -329,7 +329,7 @@ Wes gave the construction project a scornful look. “**Very** tempting.”
 Grinning wickedly, Iolo encouraged, “Nothing like a little arson to spice up an evenin’.”
 
 *I guess that’s one way to distract the mechanic once we’re done clearing up the Grass.* 
-*Disclaimer: if any law enforcement reads this, I was only kidding… I promise. <3
+*Disclaimer: if any law enforcement reads this, I was only kidding… I promise. 
 
 “You two can commit all the crimes you want once we finish this.” I said, sounding a bit too much like my mother for my own comfort. It gave me a minor crisis. 
 
@@ -337,7 +337,7 @@ Iolo clicked his tongue at me, “Dangerous words, Fiona!”
 
 “You say that as if you don’t violate the Geneva Convention on a weekly basis.” I retorted, following him as he began to lead us to the last spot.
 
-“Oh, a little torture builds some character. Take you, for example. You were fuckin’ insufferable before all this, but now…” He paused, considering before he completed his thought with a chuckle. “Well, on second thought, you’re *still* a pain in my arse.”
+“Oh, a little torture builds some character. Take you, for example. You were fuckin’ insufferable before all this, but now…” He paused, considering before he completed his thought with a chuckle. “Well, on second thought, you’re *still* a pain in my ass.”
 
 *Yeah, same to you, fucker.*
 
