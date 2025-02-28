@@ -32,7 +32,9 @@ So, yes, I ended up on the streets.
 
 But there was a community of us. 
 
-We were all in the same situation. Thrown out for the same reasons. Toxic and abusive parents, or significant others. 
+We were all in the same situation. Thrown out for the same reasons. 
+
+Toxic and abusive parents, or significant others. 
 
 So, all we had were each other. 
 
@@ -50,9 +52,15 @@ I ended up in a group of kids on the south side of our town.
 
 Ben, the leader of our gang, was the latest to disappear. 
 
-Look, I didn't believe in the “child catcher” rumors. I thought they were just stories—but it became evident someone was actually kidnapping street kids. 
+Look, I didn't believe in the “child catcher” rumors. 
 
-I may have come from a toxic house, but I was sheltered. I didn't think things like that existed. I had never been in the type of situation when they COULD exist. 
+I thought they were just stories—but it became evident someone was actually kidnapping street kids. 
+
+I may have come from a toxic house, but I was sheltered. 
+
+I didn't think things like that existed. 
+
+I had never been in the type of situation when they COULD exist. 
 
 Kidnapping was like a foreign concept to me. 
 
@@ -78,11 +86,11 @@ I could hear her voice while snoozing in the park entrance. She sounded like an 
 
 With her gone, I felt colder than usual. 
 
-I couldn't get warm no matter how many times I rubbed my hands together and stuck my hands under my coat. I had holes in my socks and shoes, and the freezing chill was creeping into my bones. 
+I couldn't get warm no matter how many times I rubbed my hands together and stuck my them under my coat. I had holes in my socks and shoes, and the freezing chill was creeping into my bones. 
 
-Carly’s disappearance really shook me up. 
+Carly’s disappearance really shook me. 
 
-Especially when, several days later, a guy took her spot with his guitar, belting out painfully bad reimaginings of pop songs. 
+Especially when, several days later, a guy took her spot with his guitar, screaming out painfully bad reimaginings of pop songs. 
 
 When Ben vanished, I started taking word-of-mouth more seriously. 
 
@@ -99,8 +107,6 @@ So, the place where kids were vanishing—wasn't exactly ideal.
 But it *did* have hot soup and coffee, as well as a place to charge my phone, so I risked it.
 
 The homeless shelter was where most kids hung out every day. 
-
-It was also the prime spot for drug deals (behind the soup kitchen). 
 
 I used the mostly broken facilities to shower, use the bathroom, and try to make connections with kids who were well known. It was pretty much a survival instinct at this point. 
 
@@ -120,9 +126,13 @@ So, when Charlie came along, I basically told him to go fuck himself.
 
 All of the ‘connections’ I made just lost me cash, food, and my shit. The worst thing you can be as a street kid is nice. 
 
-If you want to be left alone, you have to make it very fucking clear. Without Ben’s leadership, things went off the handle. 
+If you want to be left alone, you have to make it very fucking clear.
 
-I was quickly labeled as a naive bastard who f/w anyone. Most of my spots were compromised, so I had no choice but to once again risk the homeless shelter. 
+Without Ben’s leadership, things went off the handle. 
+
+I was quickly labeled as a naive bastard who f/w anyone. 
+
+Most of my spots were compromised, so I had no choice but to once again risk the homeless shelter. 
 
 My initial plan was to grab food and coffee, and make a run for it. 
 
@@ -160,7 +170,11 @@ I nodded at his jacket, and he looked confused.
 
 “Huh?”
 
-"Put it in your backpack, idiot.” I was just warning him of my past mistakes. I DID have my dad's expensive watch, and some kicks I bought with money from a summer job before I left home. I lost both of them because I failed to hide them. 
+"Put it in your backpack, idiot.” I was just warning him of my past mistakes. 
+
+I DID have my dad's expensive watch, and some shoes I bought with money from a summer job before I left home. 
+
+I lost both of them because I failed to hide them. 
 
 Elizabeth and Mari, two older girls I thought I could trust, were now proud owners of my shit. 
 
@@ -194,7 +208,9 @@ I told him I didn't ask, and that it was nice meeting him.
 
 When he followed me, I thought we were just going the same direction. 
 
-But then I took a turn down an alleyway, and his footsteps hesitated, before coming after me. I was all ready to get him to beat it, but looked lost. He had this look on his face, like he was trying and failing to look intimidating. 
+But then I took a turn down an alleyway, and his footsteps hesitated, before coming after me. I was all ready to get him to beat it, but looked lost. 
+
+He had this look on his face, like he was trying and failing to look intimidating. 
 
 This kid didn't look like he was going to steal my shit while I was sleeping. 
 
@@ -294,11 +310,15 @@ Charlie didn't reply, only jerking his head in a nod.
 
 He told me he’d be right there when I got back, and his words settled my twisting gut, the growing lump in my throat. 
 
-I used my time away from him to come to terms with my feelings, and instead of pushing them away, like I had done for so long, suppressing and fucking swallowing them down, I realized I wanted Charlie to stay with me. Charlie was Home. 
+I used my time away from him to come to terms with my feelings, and instead of pushing them away, like I had done for so long, suppressing and fucking swallowing them down, I realized I wanted Charlie to stay with me. 
+
+Charlie was Home. 
 
 I had barely known this kid for a few months, and yet with him, I didn't feel cold anymore. 
 
-I went back to the wall, ready to apologize to Charlie, but to my surprise, he was gone. I figured he'd gone searching for food since it was almost around dinner time, so I waited. I waited until the sky was dark, and I was so fucking cold, my teeth were chattering. 
+I went back to the wall, ready to apologize to Charlie, but to my surprise, he was gone. I figured he'd gone searching for food since it was almost around dinner time, so I waited. 
+
+I waited until the sky was dark, and I was so fucking cold, my bones ached. 
 
 I noticed an old man who was playing chess with pigeons earlier. 
 
@@ -318,13 +338,17 @@ I asked him to describe the guy, but the old man shrugged.
 
 His expression softened when my stomach crawled into my throat. 
 
-“Are you all right?” he reached into his pocket and pulled out a sour candy, dropping it into my hand. “You should go home now, kid. I'm sure your parents are worried about you.”
+“Are you all right?” he reached into his pocket and pulled out a sour candy, dropping it into my hand. 
+
+“You should go home now, kid. I'm sure your parents are worried about you.”
 
 Again, I asked him to describe this man, this time through my teeth. 
 
 But the old guy just turned back to his one-man chess game. 
 
-I think part of me was in denial. I went back to our sleeping spot, expecting Charlie to be there, already comfortable in his sleeping bag, talking about optimistic BS. 
+I think part of me was in denial. 
+
+I went back to our sleeping spot, expecting Charlie to be there, already comfortable in his sleeping bag, talking about optimistic BS. 
 
 But he wasn't. 
 
@@ -354,9 +378,11 @@ Passers by looked me up and down like I was dirt on their shoe.
 
 These people had places to be. 
 
-They didn't care about some faceless kid disappearing from the street. I already knew what they were thinking when they offered pitiful smiles, and said things like:
+They didn't care about some faceless kid disappearing from the street. 
 
-*“Sorry, I don't know.”*
+I already knew what they were thinking when they offered pitiful smiles, and said things like: *“Sorry, I don't know.”*
+
+*"I can't help you, kid. I'm... sure he's out there somewhere."*
 
 They were wondering *why* Charlie was sleeping rough in the first place. 
 
@@ -390,21 +416,27 @@ His coat was thicker, and his backpack was nowhere to be seen.
 
 "Where did you go?!" I demanded, shoving him back. 
 
-Charlie just smiled, and I noticed his pocket, a Blackberry phone sticking out. 
+Charlie just smiled, and I noticed his pocket, an iphone sticking out. 
 
-I think I was about to laugh, wondering just how he’d managed to get a fucking BLACKBERRY, when a clammy hand suddenly clamped over my mouth. 
+I think I was about to laugh, wondering just how he’d managed to get an iPhone, when a clammy hand suddenly clamped over my mouth. 
 
-Warm arms wrapped around my torso and yanked me back. I screamed, but my cries were muffled—the hand clamping tighter until I couldn’t fucking breathe.
+Warm arms wrapped around my torso and yanked me back. 
+
+I screamed, but my cries were muffled—the hand clamping tighter until I couldn’t fucking breathe.
 
 I remember being violently dragged back, my feet stumbling, my body struggling to stay upright.
 
 I was dragged halfway down the street, hoisted onto a stranger’s shoulders, and dumped into the back of an awaiting van.
 
-It didn't feel like it was happening to me. All those nights I had nightmares about being the next kid snatched into oblivion.
+It didn't feel like it was happening to me. 
 
-I never thought it would be me. I couldn't even cry out, my body felt paralyzed. 
+All those nights I had nightmares about being the next kid snatched away. 
 
-I was dragged backwards through snow, and then I was on my knees on the ice-cold flooring of a van jerking left to right, staring at silver shutters being violently pulled down like I was an animal. 
+I never thought it would be *me*. 
+
+I couldn't even cry out, my body felt paralyzed. 
+
+I was dragged backwards through snow, and then I was on my knees on the ice-cold flooring of a van jerking left to right, staring at shutters being pulled down like I was an animal. 
 
 I dived forward, but I was trapped.
 
@@ -502,7 +534,11 @@ Charlie was standing next to her, his arms folded.
 
 “Careful,” he muttered, nudging her. I saw his lip curl in disgust. 
 
-Illuminated in the van’s headlights, I saw who really was; a spoiled, psychotic kid playing with his toys. Charlie mockingly stepped back. “He might attack you.”
+Illuminated in the van’s headlights, I saw who really was; a spoiled, psychotic kid playing with his toys. 
+
+Charlie mockingly stepped back. 
+
+“He might attack you.”
 
 Behind him stood a towering man, holding a gun pointing it between my eyes.
 
@@ -516,7 +552,9 @@ The last thing I remember is a bright light getting closer.
 
 I don't know how long I was out for. Long enough to get an actual, proper sleep.
 
-When I opened my eyes, I was staring at the sun peeking through gaps in a wooden door, my head turned at an awkward angle. It looked like I was in some kind of farmhouse. I could see piles of hay and horse shit in the corner. I was lying on my stomach, my wrists pinned down. 
+When I opened my eyes, I was staring at the sun peeking through gaps in a wooden door, my head turned at an awkward angle. 
+
+It looked like I was in some kind of farmhouse. I could see piles of hay and horse shit in the corner. I was lying on my stomach, my wrists pinned down. 
 
 The pain crept in slowly—at first a dull thud, before slamming into me, agonizing lightning bolts striking down my spine.
 
@@ -540,7 +578,7 @@ That voice sent shivers creeping down my spine.
 
 Charlie.
 
-“You said that last time, and the last three died, Dad.” I could sense his rolled eyes. “Admit that you're just killing them, and you actually have no idea what you're doing.”
+“You said that last time, and the last three angels *died*, Dad.” I could sense his rolled eyes. “Admit that you're just killing them, and you actually have no idea what you're doing.”
 
 “I said he's ready,” the man grumbled.
 
@@ -586,7 +624,9 @@ I wasn't hungry, and my body didn't feel like my own.
 
 When we got into town, and I was sure I knew where I was, I dived out of her car. 
 
-I went to the restroom, pulled off my shirt, and ran my fingers down my back. I could feel them. 
+I went to the restroom, pulled off my shirt, and ran my fingers down my back. 
+
+I could *feel* them. 
 
 Something was moving under my skin, twitching, like they were alive. 
 
@@ -608,7 +648,9 @@ I walked into one of my old teachers. Mrs W. She didn't ask about my situation, 
 
 That was the best thing about Mrs W. 
 
-No matter how much I knew she wanted to ask, she never invaded my privacy. She saw the scars on my back, saw me puke up everything I ate. But she didn't speak.
+No matter how much I knew she wanted to ask, she never invaded my privacy. She saw the scars on my back, saw me puke up everything I ate. 
+
+But she didn't speak.
 
 Mrs W asked me if I wanted to share anything with her, and I said, “No.”
 
@@ -636,7 +678,9 @@ I still couldn't eat or drink, but I started to feel human again.
 
 Mrs W offered to send me back to school, and I did. I went back to finish high school. 
 
-The eating/drinking thing got easier. I think my body just got used to it. 
+The eating/drinking thing got easier. 
+
+I think my body just got used to it. 
 
 After school, I got into community college, and Mrs W helped me buy my first place. 
 
@@ -644,7 +688,9 @@ I grew up, with the gnawing feeling that something wasn't *right* with me.
 
 The pain was still agonizing, and at times, I would have to rip open the stitches, and let them free. I've never once tried to figure them out, because I'm fucking terrified of them. 
 
-I'm 29 now. I live far away from my hometown. I have a boyfriend, and an apartment, and I finally feel human again. 
+I'm 29 now. 
+
+I live far away from my hometown. I have a boyfriend, and an apartment, and I finally feel human again. 
 
 Last night, I was waiting for a train home. It was freezing, and already, I could feel my back twitching, pain starting to gnaw at me. 
 
@@ -688,11 +734,15 @@ I started forwards, when someone pulled me back.
 
 “No, Finn.” Charlie's voice was in my ear, suddenly. 
 
-“She has the perfect shape and body for my father,” he murmured. His voice kept me paralyzed, while the girl was getting further and further away, before coming a speck, and then bleeding into nothing. 
+“She has the perfect shape and body for my father,” he murmured. 
+
+His voice kept me paralyzed, while the girl was getting further and further away, before becoming a speck, and then bleeding into nothing. 
 
 “I want to see you fly, Finn,” Charlie whispered. 
 
-I twisted around, and he was gone. But, when I left the train station, sitting on a bench was his old threaded backpack. 
+I twisted around, and he was gone. 
+
+When I left the train station, sitting on a bench was his old threaded backpack. 
 
 Nothing inside, but I know why he left it. 
 
