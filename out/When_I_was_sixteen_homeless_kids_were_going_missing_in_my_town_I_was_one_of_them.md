@@ -210,7 +210,7 @@ When he followed me, I thought we were just going the same direction.
 
 But then I took a turn down an alleyway, and his footsteps hesitated, before coming after me.
 
-I was all ready to get him to beat it, but Charlie looked lost. 
+I was all ready to tell him to beat it, but Charlie looked lost. 
 
 He had this look on his face, like he was trying and failing to look intimidating. 
 
@@ -444,7 +444,9 @@ I dived forward, but I was trapped.
 
 "I'm sorry, Finn," Charlie’s voice pricked the silence. The back of the van was so cold, and the smell was already there—potent, a thick, rotting decay.
 
-“But you're the perfect body and shape for my father,” he said, his voice deadpan and wrong. “I hope this doesn't change things between us,” he whispered.
+“But you're the perfect body and shape for my father,” he said, his voice deadpan and wrong. 
+
+“I hope this doesn't change things between us,” he whispered.
 
 His voice was different—taunting and cold—sending shivers down my spine.
 
@@ -564,7 +566,11 @@ So fucking painful, my vision blurred and feathered, losing focus.
 
 I've had sensory issues since I was a kid, and I could feel the entirety of my upper back had been split open.
 
-I could feel my own blood dripping down my skin, and something cruel and sharp forcing flaps of flesh apart. The thought of being cut open was enough to send me into fucking hysteria. I remember screaming until my throat was raw, until I  I passed out again. This time, a mercy. 
+I could feel my own blood dripping down my skin, and something cruel and sharp forcing flaps of flesh apart. 
+
+The thought of being cut open was enough to send me into fucking hysteria. I remember screaming until my throat was raw, until I passed out again. 
+
+This time, it was a mercy. 
 
 The pain wouldn't leave, pulling me into agony, and then letting me go.
 
@@ -580,7 +586,11 @@ That voice sent shivers creeping down my spine.
 
 Charlie.
 
-“You said that last time, and the last three angels *died*, Dad.” I could sense his rolled eyes. “Admit that you're just killing them, and you actually have no idea what you're doing.”
+“You said that last time, and the last three angels *died*, Dad.” 
+
+I could sense his rolled eyes. 
+
+“Admit that you're just killing them, and you have no idea what you're doing.”
 
 “I said he's ready,” the man grumbled.
 
@@ -596,9 +606,9 @@ Hours.
 
 Then, a full day.
 
-But I wasn't hungry anymore. I was thirsty. I didn't sleep.
+But I wasn't hungry anymore. I wasn't thirsty. I didn't sleep.
 
-I was trying to find the best position to lie in (on my side) when footsteps startled me.
+I was trying to find the best position to lie on (on my side) when footsteps startled me.
 
 “Hey, Finn.”
 
@@ -610,7 +620,9 @@ Slowly, I lowered myself off the table. Charlie was holding my backpack.
 
 “Here!” he said excitedly, shoving it into my chest.
 
-“Dad says I'm not allowed to let you go yet, but I'm too impatient.” His eyes never left my back.
+“Dad says I'm not allowed to let you go yet, but I'm too impatient.” 
+
+His eyes never left my back.
 
 Without responding, I took my backpack, shoved past him, and broke into a sprint.
 
@@ -620,7 +632,9 @@ I expected to be grabbed and pulled back. But I wasn't.
 
 Charlie just stood there watching me, grinning, an inhuman grin stretched across his face. 
 
-I didn't stop until I couldn't breathe, until I was on my knees, on some unfamiliar road in the middle of nowhere. I was picked up by a woman who offered to take me to the sheriff's station. She gave me hot tea and food, but I declined both. 
+I didn't stop until I couldn't breathe, until I was on my knees, on some unfamiliar road in the middle of nowhere. 
+
+I was picked up by a woman who offered to take me to the sheriff's station. She gave me hot tea and food, but I declined both. 
 
 I wasn't hungry, and my body didn't feel like my own. 
 
@@ -708,7 +722,9 @@ So, I kept my mouth shut.
 
 There was a homeless girl slumped in the corner of the platform. 
 
-I've made it my goal. Whenever I see a homeless kid, I point them to the nearest shelter– and when they roll their eyes at me, I offer to take them there myself. 
+I've made it my goal. 
+
+Whenever I see a homeless kid, I point them to the nearest shelter– and when they roll their eyes at me, I offer to take them there myself. 
 
 I don't leave them until I know these kids are safe. Yes, they can be difficult.
 
