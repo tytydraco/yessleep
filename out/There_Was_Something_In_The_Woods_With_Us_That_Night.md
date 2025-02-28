@@ -32,7 +32,7 @@ He cocked his head and I could see the panicked expression carved onto his face,
 
 The irony of his condemnation of speech was funny to me at the time, after all we were shining flashlights through the trees like lunatics. Even now, I doubt being quiet would’ve kept us concealed. Over tree trunk and river, we crept and I began to question Richard ‘s decision to leave out the crazy Gamekeeper and why we’d really come out in the first place.
 
-Our flashlights illuminated the suffocating confines of the darkness, like headlights they searched over tree after tree after… Then there they were, three tallies carved like crooked fingers into the soft flesh of a single tree’s trunk. I remember running my finger through the groove in the wood, it was rough and crude and seemingly pointless. We moved on soon after, the hysteria over the ‘tally of doom’ fading back into the usual silence.
+Our flashlights illuminated the suffocating confines of the darkness, like headlights they searched over tree after tree after… Then there they were, three tallies carved like crooked fingers into the soft flesh of a single tree’s trunk. I remember running my fingers through the grooves in the wood, thee were rough and crude and seemingly pointless. We moved on soon after, the hysteria over the ‘tally of doom’ fading back into the usual silence.
 
 Boredom had set in, why exactly had Richard made us come out here and why had we obliged? I had thought at the big age of thirteen I was a grown-up, spared from fear, how wrong I’d been. The enforced silence made it worse I had heard every creak in the trees, every muntjac’s howl as it pierced the silence like a bullet and every footstep upturning freshly fallen leaves
 
