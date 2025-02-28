@@ -119,3 +119,7 @@ And I had just walked right [in.](https://www.reddit.com/r/nosleep/s/QltK2sgmLA)
 Part 2 - 
 
 https://www.reddit.com/r/nosleep/s/pl9reeO5DI
+
+Part 3 - 
+
+https://www.reddit.com/r/nosleep/s/SD5dFUWK1p
