@@ -367,3 +367,8 @@ If anyone has any help they can give me, let me know in the comments.
 I hope I live long enough to keep you all updated. 
 
 Alex.     
+
+
+If anyone wants to see where the ritual goes next. 
+
+https://www.reddit.com/r/nosleep/s/CWOHUoEi4n
