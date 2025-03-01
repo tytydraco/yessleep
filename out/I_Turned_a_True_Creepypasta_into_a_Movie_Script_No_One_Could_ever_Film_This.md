@@ -2,7 +2,7 @@ Ok, so here’s the deal. I’m a screenwriter – not a very successful one, bu
 
 I almost felt like giving up, just calling it a day on the whole screenwriter dream - but one night, scrolling through the internet for the scariest creepypasta I could find, I stumbled upon a story... Maybe you’ve heard of it. It’s called: ‘I Journeyed into the real Heart of Darkness...’ Basically, the story is about a group of American activist students (and some English guy) who journey into the Congo rainforest to start their own commune, only to find all kinds of fucked-up horrors... Well, it turns out this creepypasta, isn’t just a creepypasta... Apparently, it’s a true story... 
 
-Back in 2020, a group of American activist students (and one English guy dating one of those students) went missing somewhere in the jungles of the Democratic Republic of the Congo. Eight of them are still missing to this day, but three were able to find their way out of the jungle. 
+Back in 2020, a group of American activist students (and one English guy dating one of those students) went missing somewhere in the jungles of the Democratic Republic of the Congo. Five of them are still missing to this day, but three were able to find their way out of the jungle. 
 
 When the three survivors were interviewed, they said they were harassed by locals in the jungle and got lost... But then one of them again came forward two years later – and they told the truth – or the supposed truth... It was the English guy.   
 
