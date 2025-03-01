@@ -24,13 +24,13 @@ The grizzled man clucked his tongue and nodded at the concierge working the lead
 
 *“Alright, darling.”*
 
-Bitting my lip, I prayed that my background in psychotherapy would prove useful for once, and I slid all over my chips into the middle of the sleek wooden table. Between the foreclosure on my house and the recent unemployment, my bank account was dwindling fast.
+Bitting my lip, I prayed that my background in psychotherapy would prove useful for once, and I slid all my chips into the middle of the sleek wooden table. Between the foreclosure on my house and the recent unemployment, my bank account was dwindling fast.
 
 I needed the win. I needed the win badly.
 
 Another few minutes passed, and all the other players remained silent. With no other bets, Albatross directed us back to the central monitor. Through hijacked cellphone cameras, laptop webcams and CC-TV feeds, we watched the twenty-three-year-old Olivia navigate her day, unaware of her invisible tormenters and voyeurs.
 
-Here’s the premise: The House that ran the game would subject a pre-selected target to a string of “synthetic bad luck (SBL)”. Manufactured car crashes, severe food poisoning, crippling identity theft; to name a few examples. Overtime, this would establish the target’s baseline reaction to misery, whatever that ended up being. Once it was established, us players were off the races, so to speak. Free to bet on what would be the target’s *tipping point*.
+Here’s the premise: The House, an entertainment organization that ran the game, would subject a pre-selected target to a string of “synthetic bad luck (SBL)”. Manufactured car crashes, severe food poisoning, crippling identity theft; to name a few examples. Overtime, this would establish the target’s baseline reaction to misery, whatever that ended up being. Once it was established, us players were off the races, so to speak. Free to bet on what would be the target’s *tipping point*.
 
 Olivia’s baseline was depression.
 
@@ -40,7 +40,7 @@ That’s where I was a few months ago, actually; stuck in a mire of heartache af
 
 The distant mirage of a big payout enticed me instantly, and I gave that stranger my email address without hesitation.
 
-Minutes later, the encrypted email appeared in my phone’s inbox. The message explained that it was the player’s aim to bet on a target’s “*tipping point*” - the juncture at which an additional episode of SBL strengthened misery into insanity, causing the target to deviate from their baseline reaction. 
+Minutes later, the encrypted email appeared in my phone’s inbox. The message explained that it was the player’s aim to bet on a target’s “*tipping point*”, the juncture at which an additional episode of SBL strengthened misery into insanity, causing the target to deviate from their baseline reaction. 
 
 Essentially, we were betting on which straw would break the camel’s back.
 
@@ -52,7 +52,7 @@ From the vantage point of a Ring doorbell camera, we all witnessed Olivia break 
 
 I felt for the young woman. She didn’t deserve the suffering, nor did she deserve to be “disposed of”. At the same time, I couldn’t help but rejoice.
 
-Theoretically, I had just converted my 50K into half-a-million dollars. Honestly, it was pure, undiluted ecstasy. The relief was indescribable. A veritable parade of dopamine exploded into my brain, drunkenly marching through its creases like the streets of New Orleans’s during Mardi Gras.
+Theoretically, I had just converted my 50K into half-a-million dollars. Honestly, it was pure, undiluted ecstasy. The relief was indescribable. A veritable parade of dopamine exploded into my brain, drunkenly marching through its creases like people on the streets of New Orleans during Mardi Gras.
 
 This was it; this was my win.
 
@@ -64,7 +64,7 @@ On the way to the cruiser, I passed Albatross, his chest pressed against a diffe
 
 I could have sworn I saw him smiling.
 
-- - - - -
+—————
 
 When I got home today after spending a night in jail, depression hit me like a sledgehammer. I stumbled around my apartment aimlessly, completely defeated by the circumstances, face contorted into an immovable frown.
 
