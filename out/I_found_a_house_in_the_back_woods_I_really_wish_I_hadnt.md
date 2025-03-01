@@ -27,7 +27,7 @@ I didn't say anything. The hair on my neck was standing up as I realized that I 
 The officer shook his head and spoke again: 
 "I don't know what to tell you but I do know this, Marcia Wilkes never had a husband and there's no record of her ever having a husband. But... Wait you said you found the letters in the bedroom? Was there a Bible on that bed?"
 
-I looked at him quizzically but said yes. His brow furrowed and he became as if one dead, his face a pale reflection of his incoming horror. He grabbed a book of town records and found M. Wilkes. He pores over it and over it and over it again before looking at me in abject terror
+I looked at him quizzically but said yes. His brow furrowed and he became as if one dead, his face a pale reflection of his incoming horror. He grabbed a book of town records and found M. Wilkes. He pored over it and over it and over it again before looking at me in abject terror
 
 "Jesus christ! Whatever is in that home was not Marcia Wilkes. It says here that Ms Wilkes was born July 9th 1875 and died July 7th 1891 what with having a Christian burial and all. It also says that there was never a husband and there was never a daughter. You said that you saw framed portrait. I signed off on those papers, it turns out that those people were the previous owners of the house but it doesn't make any sense unless..."
 
