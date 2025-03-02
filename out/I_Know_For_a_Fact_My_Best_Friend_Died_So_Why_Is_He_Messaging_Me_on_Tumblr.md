@@ -139,21 +139,53 @@ And what I saw is what brings me here. I'm wondering if I need a shaman, or a pr
 Here's the conversation transcript:
 
 ..
+
+
 fascination-endss: Hi
+
+
 fascination-endss: Hi hi I'm sure you're there you're back in town
+
+
 me: ??? Who is this
+
+
 fascination-endss: wdym
+
+
 me: What do you mean what do I mean? Who is this? Did you poach this username or something?
+
+
 fascination-endss: no
+
+
 Me: who is this?
+
+
 fascination-endss: Luka
+
+
 Me: that's the name on the blog yeah but who is this
+
+
 fascination-endss: it's Luka
+
+
 Me: listen if this is just a troll it's not funny dude. You didnt know but the blog you've poached belonged to my friend, who's been dead over a year
+
+
 fascination-endss: I'm not dead
+
+
 Me: are you fucked in the head? Can you stop fucking with me?
+
+
 fascination-endss: why are you so mad at me? I just saw you get back into town last week. I thought you'd be happy to hear from me :(
+
+
 fascination-endss: maybe you just need better sleep. I'll leave you be
+
+
 ..
 
 I haven't replied. I can't. Even the most elaborate troll couldn’t have guessed that I just got back into town, right? The last message also sent chills through me. That first night, my sleep was thoroughly disturbed. I blamed everything on a lack of sleep. It felt a little too poignant to point out. 
