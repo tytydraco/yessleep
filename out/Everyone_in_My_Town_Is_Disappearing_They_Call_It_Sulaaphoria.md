@@ -331,3 +331,5 @@ The note had said: Come before sundown.
 I was going.
 
 Because what else was there to do?
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1j1rh5f/everyone_in_my_town_is_disappearing_they_call_it/)
