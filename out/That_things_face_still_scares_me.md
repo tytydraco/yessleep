@@ -1,0 +1,19 @@
+There’s been this thing following me for years now, and I still can’t get it out of my head. It stays just far enough to where I can’t touch it or anything, but it’s also always close enough to where I can see it now. This all started in my old house, where I used to live with my mom. I heard a loud noise in the kitchen.
+
+I’m usually up till late at night, so it’s not unusual for me to hear something strange once in a while. but this sound was loud a little to loud like it wasn’t just me being paranoid. so I got up out of bed and walked out my room. I still remember how cold the floor was that night after I stepped out my room I looked over to my mom’s room.
+
+and seen that her door was open I was kinda confused when I first seen that cause she usually keeps her door closed. and i didn’t see her anywhere in her room so I walked over to the kitchen to see if maybe she was the cause of that noise. and when I turned the corner I seen something I’ll never forget it was this this creature with such a uncanny face. that a shiver came down my spine it just looked at me with some type of smile I couldn’t tell if it was from joy or something else.
+
+This thing looked so terrifying I couldn’t move; I could only look around the room and see what was around me. this thing was hunched over like it had never been thought how to stand properly it was moving it’s mouth like it was trying to speak but couldn’t. as I looked around the room I seen something that made me almost break down my mom she was on the ground with a wound in her chest. this thing had killed my mom and took her face it was like it tried to make a perfect copy of my mom with its own face.
+
+but this thing failed miserably it only some what looked like her but then I heard this things voice it was a perfect representation of my moms. the thing this creature said was probably the worst thing it could have told me to do. it told me to go to my room like it was actually my mother.I just looked at this thing with a terrified expression on my face this copy of my mother then snapped at me. 
+
+and screamed at me to go to my room and Sleep. So I did I went to my room, locked the door, and lay in bed. I know that might sound stupid, but I felt like I had no option. I was in shock, and I had no idea if this thing had any intention to kill me if I didn’t listen, so I did.
+
+I lay there for probably 5 minutes until I heard this thing walk through my house to my room. I could hear this thing's long nails hitting against the wooden floor. This thing then got to my door and just stood there for a few seconds and then tapped its nails on my door and told me in my own mother's voice to go to bed. I then heard it walk away and close the door to my mom’s room after that I had fell asleep and woke up the next day.
+
+I came out of bed and opened my door to see this thing look at me through the crack of the door. I felt my body stiffen up it didn’t say anything just looked at me. i slowly walked to the kitchen trying my best not to lose sight of this thing. I looked in the kitchen and my mother’s body was gone I don’t know what this thing did to it but I knew my mom was truly gone.
+
+i then pulled out my phone and called that cops this thing just watched me while I made the call. when the cops got there they got my statement and then they asked if I had anyone I could stay with. I told them yes my aunt and uncle don’t live far from my house they took me there and told them everything. my aunt broke down in tears and my uncle stood there with a cold face like he was trying his best to stay calm for my aunt. 
+
+after my aunt had calmed down and everything else was done. they were glad to take me in as there own. and I lived with them until I went to college. my mother is still deemed as missing and that thing still follows me.
