@@ -76,7 +76,7 @@ I didn't want to hurt him.
 
 To my confusion, Dad didn’t move away as I rested my teeth on his neck, fighting to keep my jaw open. If I bit down, he was dead, but Dad didn’t move an inch. He waited; patient and understanding.
 
-After about a minute of that horrible standstill, he finally spoke. As he did, I could feel the subtle pulsations of blood swimming through his jugular vein.
+After about a minute of that horrible standstill, he finally spoke. As he did, I could feel the subtle pulsations of blood swimming through his jugular vein under my upper lip.
 
 *“Do it, Felicity. This is what we’ve all been waiting for. Turn your suffering into purpose. Your desperation, the canvas. With my blood, you can paint the red cradle.*
 
