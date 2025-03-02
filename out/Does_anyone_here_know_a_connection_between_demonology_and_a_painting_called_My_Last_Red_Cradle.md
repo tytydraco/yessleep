@@ -20,7 +20,7 @@ I’ve learned to live with it. Even weather bad dates through it.
 
 I’d never been to a museum before today - Dad always made it seem incredibly dull. A waste of time for people that had nothing better to be doing. The one time my school went on a field trip to a local museum, Dad forbade me from going; weird in retrospect, but at the age of nine, I was just happy to miss a day of school.
 
-Today, my boyfriend insisted we go, and I simply didn’t have the energy to argue. I figured Dad would say I couldn't go, and that would be that. 
+Today, my boyfriend insisted we go, and I simply didn’t have the energy to argue. I figured Dad would say I couldn't go, and that would be that.
 
 To my surprise, that isn't what he said at all.
 
@@ -40,7 +40,7 @@ As I stared, the hypnotic swirls gave me more respite than morphine ever did.
 
 The plaque next to the painting read:
 
-***My Last Red Cradle****: By Dupuis*
+***My Last Red Cradle***\*: By Dupuis\*
 
 “*Considered by many to be the last great work of modernism, it is said the architecture of an umbilical cord inspired this haunting piece. When asked about the painting, Ms. Dupuis responded with this cryptic message:*
 
@@ -64,9 +64,9 @@ The artist, Dupuis, looked a hell of a lot like me.
 
 \-------
 
-When I got home, I confronted my dad with what I found. Dupuis, he informed me, is my mother’s maiden name. 
+When I got home, I confronted my dad with what I found. Dupuis, he informed me, is my mother’s maiden name.
 
-He had known this entire time where she’d been and what she had been doing, and chose not to tell me. His words, not mine. 
+He had known this entire time where she’d been and what she had been doing, and chose not to tell me. His words, not mine.
 
 Suddenly, my headache roared, louder and fiercer than it ever had in the past. My knees buckled from the discomfort, and I fell to the floor. As Dad bent over me, I felt my teeth reach for his neck, guided by the same relieving magnetism I experienced with the painting in the museum.
 
@@ -84,31 +84,35 @@ After about a minute of that horrible standstill, he finally spoke. As he did, I
 
 It took every bit of willpower I had, but I pulled myself away from my father. Slowly, I lifted my teeth from his neck and took a few steps back.
 
-For the first time, I refused to give in to impulse. Nothing, not even pain, would control me.
+For the first time, I refused to give in to impulse. Nothing, not even the gut wrenching pain, would control me.
 
 Dad slumped to the kitchen floor, letting his head rest awkwardly against the oven. He was silent for a moment, then his voice exploded with laughter. Between bouts of cackling, I heard him say,
 
 *“What an absolute waste! Ms. Dupuis is going to be so angry.”*
 
-As his laughing continued, strained and maniacal, blood started flowing down from the corners of his eyes. It wasn’t like crying; the stream was too quick. Unnaturally forceful, too. Pressurized to the point where it made an audible hissing sound as it poured from his tear ducts. As more and more blood poured out, the whites of his eyes became pitch black, and skin seemed to liquify like candlewax.
+As his laughing continued, strained and maniacal, blood started flowing down from the corners of his eyes. It wasn’t like crying; the stream was too quick. Unnaturally forceful, too. Pressurized to the point where it made an audible hissing sound as it poured from his tear ducts. As more and more blood poured out, the whites of his eyes became pitch black, and his skin seemed to liquify like candlewax.
 
 When the blood hit the floor, it didn’t just form a puddle, either. Instead, the liquid kept its rapid pace and started moving towards me, chasing closely behind my footfalls as I sprinted out the door.
 
-Stepping into the car, I watched a horde of crimson streaks spill over the door frame, and I heard Dad screaming something in a language I didn't recognize. 
+Stepping into the car, I watched a horde of crimson streaks spill over the door frame, and I heard Dad screaming something in a language I didn't recognize.
 
-The same few nonsense words, deep and guttural, over and over and over again. 
+The same few nonsense words, deep and guttural, over and over and over again.
 
 \------
 
-I’m holed up in a motel on the edge of town as I type this, trying to put it all together. My boyfriend is on his way over, and I'm not sure he'll believe me when I tell him what happened. 
+I’m holed up in a motel on the edge of town as I type this, trying to put it all together. My boyfriend is on his way over, and I'm not sure he'll believe me when I tell him what happened.
 
 I don’t think that man was my real father.
 
 Dupuis may be my mother, though. As much as I want it not to be true, it feels right.
 
-I’m trying not to give in to the pain. My head is throbbing. It’s almost like a compass, too. When I turn it, the pain doesn’t stay in the same place. It moves the exact *opposite* way, making sure it’s always pointed in the same direction, no matter how I turn my head. Some infernal weathervane buried deep within my psyche.
+I’m trying not to give in to the pain. My skull is absolutely pounding, though. That said, I've noticed something new about the pain as well.
 
-My impulse is to follow the pain wherever it leads me. 
+It’s almost become like a compass.
+
+When I turn my head, the pain doesn’t stay in the same place. Instead, it moves the exact *opposite* way, making sure it’s always pointed in the same direction, regardless of how my head is positioned. Some infernal weathervane buried deep within my psyche.
+
+My impulse is to follow the pain wherever it leads me.
 
 As much as I don’t want to give in, I feel my resistance wavering, worn down by years of searing torment.
 
@@ -116,4 +120,4 @@ What in God’s name am I?
 
 Is there a point in resistance, or am I just delaying the inevitable?
 
-Does anyone know what this [all means?](https://www.reddit.com/r/unalloyedsainttrina/)  
+Does anyone know what this [all means?](https://www.reddit.com/r/unalloyedsainttrina/)

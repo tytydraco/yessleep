@@ -42,7 +42,7 @@ I arched an eyebrow, waiting for the imaginary response from this mysterious “
 
 After a moment too long, Cade turned back around to face me. “They said no.”
 
-I scoff and gesture to his plate, once more. “I’m sure they did. Now, go on. Have a bite.”
+I scoffed and gestured to his plate, once more. “I’m sure they did. Now, go on. Have a bite.”
 
 “No, I can’t. I’m not allowed.” He said again. 
 
