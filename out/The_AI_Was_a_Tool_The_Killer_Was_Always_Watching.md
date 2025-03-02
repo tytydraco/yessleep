@@ -1,5 +1,11 @@
 [Part 1 ](https://www.reddit.com/r/nosleep/comments/1j0q6u6/i_asked_an_ai_for_a_writing_prompt_it_wanted_me/)
 
+Trigger warning - Violence.
+
+\_\_\_\_\_\_\_\_\_\_
+
+
+
 The police were no help.
 
 Two officers came to my apartment—one young, barely out of his twenties, and the other older, exuding the kind of exhaustion that came from seeing too much. They took my statement, checked the door, glanced around the house, and barely looked at the phone before handing it back.
@@ -8,15 +14,27 @@ Two officers came to my apartment—one young, barely out of his twenties, and t
 
 I stared at them in disbelief. "What about the notifications? There’s a post on the dark web putting a bounty on me! I saw it—he saw it!" I pointed at Jake. "My address was in a deep web post! Someone is literally paying to have me killed."
 
-The younger officer sighed, clearly unconvinced. "Ma’am, unless you have direct access to that post, there’s no way to verify your claim. The dark web isn't exactly a place we can casually browse." His tone was detached, as if I was wasting his time.
+The officer sighed. "Ma’am, people post all kinds of things on those sites. Half of it’s just trolls trying to mess with people. Unless you have a screenshot or some way to pull it back up, there’s not much we can do."
 
-"But what about the AI prompts? My poisoned milk? The car that almost hit me?" I realized I was sounding frantic, but fear clawed at my throat. I needed them to do something. *Anything.*
+"But what about the AI prompts? My poisoned milk? The car that almost hit me?" I realized I was sounding frantic, but fear clawed at my throat. I needed them to do something. Anything.
 
-The older officer let out a slow breath. "We’ll file a report, alright? But you don’t have a suspect, and—" he waved a hand, "a damn computer ain't something we can slap cuffs on."
+The older officer let out a slow breath. "Do you still have the milk?"
 
-"Computer?" I echoed blankly, before it clicked. "You mean AI."
+I blinked. "No. I—I dumped it."
 
-"Yeah, that," he said with a tired nod. "Look, lady, I get it—you’re scared. But we ain’t got an actual crime here. You didn’t drink the milk, you weren’t hit, and nobody broke in. Without solid proof, our hands are tied. I know it ain't what you wanna hear, but the best thing you can do right now is find somewhere safe to lay low. You got someone you can stay with for a few days?"
+He nodded, as if that settled something. "And the car? Did you catch a plate?"
+
+"No, it happened too fast."
+
+He gave me a look that said *Then what do you want us to do?* Instead, he just said, "We’ll file a report. But right now, there’s no suspect and no crime. We can't arrest a damn computer."
+
+"Computer?" I echoed blankly.
+
+"You mean AI," the younger officer corrected, disinterested.
+
+"Yeah, that," the older one said with a tired nod. "Look, I get it—you’re scared. But we ain’t got enough to work with. If you feel unsafe, we can have a unit drive by tonight, but that’s about all we can do right now."
+
+"You got somewhere else to stay?"
 
 Jake jumped in before I could answer. "She can stay at my place."
 
