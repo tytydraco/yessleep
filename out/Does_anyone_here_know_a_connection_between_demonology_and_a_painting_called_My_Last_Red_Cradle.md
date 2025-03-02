@@ -12,13 +12,13 @@ This searing misery has been my stalwart companion for about fifteen years; an u
 
 Every doctor’s visit would begin with a review of my family history. No migraines on my dad’s side, and my mother deserted the both of us when I was a toddler. Left in the middle of the night, no note. According to my father, she was never very forthcoming about her medical history, either.
 
-We both assume I inherited this curse from her.
+We both assumed I inherited this curse from her.
 
 No scan of my brain ever revealed deformity or dysfunction. The pain was not an atypical seizure. As far as western medicine could tell, I was healthy as a horse. Psychiatrists blamed subconscious trauma from abandonment, but it’s not like antidepressants lessened the pain, either.
 
 I’ve learned to live with it. Even weather bad dates through it.
 
-I’d never been to a museum before today - Dad always made it seem incredibly dull. A waste of time for people that had nothing better to be doing. The one time my school went on a field trip to a local museum, Dad forbade me from going; weird in retrospect, but at the age of nine, I was just happy to miss a day of school.
+I’d never been to a museum before today - Dad always made it seem incredibly dull. A waste of time for people that had nothing better to do. The one time my school went on a field trip to a local museum, Dad forbade me from going; weird in retrospect, but at the age of nine, I was just happy to miss a day of school.
 
 Today, my boyfriend insisted we go, and I simply didn’t have the energy to argue. I figured Dad would say I couldn't go, and that would be that.
 
@@ -28,11 +28,11 @@ To my surprise, that isn't what he said at all.
 
 \--------
 
-Dad was right, though; the experience was an absolute slog. Excluding the aforementioned miracle painting, of course.
+Dad was right; the experience was an absolute slog. Excluding the aforementioned miracle painting, of course.
 
-When my eyes were pointed in its direction, regardless of distance, the pain lessened. I wasn’t even consciously looking at it in the beginning. Instead, unexpected relief magnetized my body, guiding me right to it.
+When my eyes were pointed in its direction, regardless of distance, the pain lessened. I wasn’t even consciously looking at it in the beginning. Instead, unexpected relief magnetized my body, guiding me through the labyrinthine halls until I found myself right in front of it, basking in the intoxication of relief.
 
-Transfixed, I stood motionless in front of the unassuming watercolor. It was a small squared frame - each side only a half a foot long.
+Transfixed, I stood motionless. It was a small, square watercolor - each side only a half a foot long. Unassuming to everyone but me.
 
 I couldn’t tell precisely what the composition depicted. The canvas was a maelstrom of color - a surface completely consumed by a veritable tempest of animated pigment. I couldn't believe the eroded wooden frame was able to hold the vast, cyclonic energy contained within. At any moment, it felt like the piece’s color could rupture its meager cage and explode out into the surrounding museum, swallowing its patrons in a rushing wave of indigo and crimson.
 
@@ -50,7 +50,7 @@ The plaque next to the painting read:
 
 I didn’t even register that my nose was touching the canvas until after I impulsively pushed blunt metal through that man’s jaw.
 
-As another example of an impulse, when the guard let go of me, I reflexively jumped between him and the painting to shield it from the ensuing blood sprays. I didn’t know *why* I cared about protecting the canvas, but in that moment, nothing was more important to me.
+As another example of an impulse: when the guard let go of me, I reflexively jumped between him and the painting to shield it from the ensuing blood sprays. I didn’t know *why* I cared about protecting the canvas, but in that moment, nothing was more important to me.
 
 Not to say impulses are arbitrary. It’s more that you may not have a perfect understanding of what’s driving your actions at first.
 
@@ -84,13 +84,13 @@ After about a minute of that horrible standstill, he finally spoke. As he did, I
 
 It took every bit of willpower I had, but I pulled myself away from my father. Slowly, I lifted my teeth from his neck and took a few steps back.
 
-For the first time, I refused to give in to impulse. Nothing, not even the gut wrenching pain, would control me.
+For the first time, I refused to give in to impulse. Nothing, not even the gut wrenching pain, would control me like that.
 
-Dad slumped to the kitchen floor, letting his head rest awkwardly against the oven. He was silent for a moment, then his voice exploded with laughter. Between bouts of cackling, I heard him say,
+In response, Dad slumped to the kitchen floor, letting his head rest awkwardly against the oven once he was on his back. He was silent for a moment, then his voice exploded with laughter. Between bouts of cackling, I heard him say,
 
 *“What an absolute waste! Ms. Dupuis is going to be so angry.”*
 
-As his laughing continued, strained and maniacal, blood started flowing down from the corners of his eyes. It wasn’t like crying; the stream was too quick. Unnaturally forceful, too. Pressurized to the point where it made an audible hissing sound as it poured from his tear ducts. As more and more blood poured out, the whites of his eyes became pitch black, and his skin seemed to liquify like candlewax.
+As his laughing continued, strained and maniacal, blood started flowing down from the corners of his eyes. It wasn’t like crying; the stream was too quick. Unnaturally forceful, too. Pressurized to the point where it made an audible hissing sound as it poured from his tear ducts. As more and more blood escaped, the whites of his eyes became pitch black, and his skin seemed to liquify like candle wax.
 
 When the blood hit the floor, it didn’t just form a puddle, either. Instead, the liquid kept its rapid pace and started moving towards me, chasing closely behind my footfalls as I sprinted out the door.
 
