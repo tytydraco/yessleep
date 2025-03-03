@@ -1,0 +1,19 @@
+My grandmother finally retired from her job about a year ago. However, she is like a border collie, in that if she doesn’t have a job, she will self destruct and collapse. So, in lieu of crunching numbers and filing papers, she’s started a small cake bakery out of the ancestral family kitchen. Customers make orders in advance, and Grandma finishes making the order on the day of pickup. 
+
+The kitchen is fairly large. There’s a sea of counter space and a massive island where Grandma frosts and ices her confections. The fridge in the kitchen, however, is barely big enough to hold the bulk eggs, milk, and butter, so the cakes have to go in the fridges downstairs. (Regarding the fridges in the basement: one has been there since before I was born, the other used to be in my parents' garage but was moved to grandma’s basement once she’d started her business.) Since Grandma’s arthritis is getting worse and I can work remotely, I offered to help carry cakes up and down for her. She can rest her feet, and I get a small cut of the sales.
+
+The problem started about a month ago. She typically makes two, sometimes three cakes a week. That means I usually only make a few trips to and from the basement spread out over several days. I would wheeze a little coming back up the stairs, but I always chopped that up to being out of shape. Over Valentine’s week though, she had one or two orders a day. Cass, my little cousin, helped her bake. I worked at my makeshift desk on the coffee table until I was needed.
+
+Each day, I had to bring the unfrosted cakes down to the fridges to cool. A while later the cakes would need a crumb coat, so I’d go down into the basement again and carry them to the kitchen. Then they went back into the fridge until it was time for a base layer of buttercream. I’d be wheezing at this point, feeling like I was breathing through a coffee straw rather than a normal human trachea. 
+
+Once the frosting had been applied, they’d have to go back into the fridge until they were ready to be fully decorated. Imagine one of those cartoon birthday cakes with the swirls and the fancy piping around the edges. That’s the kind of cake-decorating my grandmother does. Each cake looked like a masterpiece of sprinkles and rosettes and ribbons. Naturally, they were too precious to go in the upstairs fridge. They went downstairs until pick up time.
+
+I had to walk extra slowly down the stairs with the completed cakes. Each creaking step down the wooden stairs sent stars scattering across my field of view.
+
+When the customers came for their order, I had to go back to the basement. That trip with the last customer’s cake was the worst. It felt like my lungs were leaf cuttings pressed between pages of a book, drying out and flattening with each step I took down into the darkness. Nearly turning to dust until I burst out of the basement, craning my neck for air.
+
+I handed the last cake to Cass. She passed it off while I recovered on the kitchen floor. Apparently my lips had turned blue, the skin around my collarbones had pulled tight from my fight for oxygen. 
+
+It took a while for me to feel normal again. Grandma said that this was probably asthma, but I’ve never been diagnosed with it. My parents told me yo stop working until I’ve seen a doctor, and my dad’s ordered a radon test kit online to see if that’s what’s happening in the basement. 
+
+Despite concerns, my cousin has agreed to carry cakes in my stead. Cass is doing senior year of high school online, so she has some time on her hands. I haven’t spoken to her yet, but based on the continuing inflow of positive reviews on grandma’s website, I have to assume that nothing has gotten in the way of her work. I asked grandma if we could have a couple coolers upstairs for the cakes, but she pointed out that there aren’t any big enough for the fully decorated cakes. I’m just hoping that what happened to me was a freak incident, and I can still help her out later.
