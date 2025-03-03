@@ -2,7 +2,7 @@ I had been debating whether to tell this story, but I think it’s best to get i
 
 Last winter, a bunch of my buddies and I went on a trip to Colorado. We booked this sweet Airbnb lodge for a pretty cheap price for six days. For privacy reasons, I’ll be using fake names. I went with my friends Rob, AJ, Ben, Terry, and his girlfriend, Grace.
 
-We had planned this trip for a couple of months, so we were all really excited. I had known these guys since we were little kids, and now, being in our late twenties, we never really got the chance to all hang out at the same time anymore. This trip was going to be special for us.
+We had planned this trip for a couple of months, so we were all really excited. I had known these guys since we were little kids, and now, being in our late twenties, we never really get the chance to all hang out at the same time anymore. This trip was going to be special for us.
 
 We drove up there, fully packed and ready to go snowboarding while enjoying the fresh mountain air. Nothing could compare to the beauty of the snowy mountains on the horizon. About ten minutes from our Airbnb, we noticed that the house was on a small mountain, very secluded, with not many other homes nearby.
 
@@ -40,7 +40,7 @@ AJ said, “You guys noticing all these cross-like stick things?”
 
 We all responded in unison, “Yeah.”
 
-AJ proceeds to pick up the handmade cross. We heard an immediate howl, which sounded like a wolf. 
+AJ proceeds to pick up the handmade crosses. We heard an immediate howl, which sounded like a wolf. 
 
 AJ states, “Something is wrong with this. I can feel some uneasy energy.”
 
@@ -96,7 +96,7 @@ I nodded. We were from South Florida, after all. Hard habits of bathing in the w
 
 He shook his head. “New Orleans.”
 
-Rob immediately threw his hand up in agreement. Ben, eyes wide, turned to us and raised both hands.
+Rob immediately threw his hand up in agreement. Ben's eyes widened and turned to us and raised both hands.
 
 AJ, still giggling at the TV, didn’t even acknowledge us.
 
@@ -235,4 +235,3 @@ I swallowed. “New Orleans, right?”
 Terry smirked. “I was thinking about Canada. The cold is… growing on me.”
 
 A single tear slid down his cheek.
-
