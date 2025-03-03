@@ -52,7 +52,7 @@ We spent hours speculating about the prize. Whatever it was, Snooze kept insisti
 
 Then, suddenly, I heard a loud, heavy knock through my headphones.
 
-From my view, I could see the door behind him shudder from the impact. The door was just behind in.
+From my view, I could see the door behind him shudder from the impact. The door was just behind his chair, visible in the camera.
 
 Snooze turned, startled. It was quite late for a visit.
 
@@ -104,7 +104,7 @@ After days of investigation, they found a URL leading to a song.
 
 A Dream Theater song—Snooze’s favorite band.
 
-Using the same decryption method from the Michael Jackson song on the original post, someone uncovered a string of letters as a result:
+Using the same decryption method from the Michael Jackson song on the original post, someone uncovered a string of letters as a result writing:
 
 **HELP ME.**
 
