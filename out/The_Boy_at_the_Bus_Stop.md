@@ -150,7 +150,7 @@ I fished out the gun. The boy stared at it. Something dark swept across his face
 
 The boy stood motionless, staring at the falling rain.
 
-“You know it never gets easier,” he finally muttered. “After all these years of helping people cross over it still remains difficult to let go sometimes. Some deaths are so much more deserving then others. I should not judge anyone. Yet I cannot help but feel for some of them. Occasionally the ones I meet radiate such light it pains me to extinguish it. I don’t always want to, but I have no choice. My existence is one of duty.”
+“You know it never gets easier,” he finally muttered. “After all these years of helping people cross over it still remains difficult to let go sometimes. Some deaths are so much more deserving than others. I should not judge anyone. Yet I cannot help but feel for some of them. Occasionally the ones I meet radiate such light it pains me to extinguish it. I don’t always want to, but I have no choice. My existence is one of duty.”
 
 The boy radiated an eerie calmness as he spoke. I felt my heartbeat returning to normal.
 
@@ -220,7 +220,7 @@ The boy’s eyes grew hard.
 
 “Do you really?” I muttered sarcastically.
 
-“More than you could possibly imagine,” the boy replied coolly. “I have guided many people before their time. I have comforted both young and old. Held the hands of bother murderers and the murdered. I have held newborn babies and taken children from their parents embrace. I have walked the fields of countless battles. I have waded through rivers of blood. Wherever I go the dead follow. Like moths attracted to a flame. You could not comprehend the endless sorrow I must navigate.”
+“More than you could possibly imagine,” the boy replied coolly. “I have guided many people before their time. I have comforted both young and old. Held the hands of both murderers and the murdered. I have held newborn babies and taken children from their parents embrace. I have walked the fields of countless battles. I have waded through rivers of blood. Wherever I go the dead follow. Like moths attracted to a flame. You could not comprehend the endless sorrow I must navigate.”
 
 He wiped a single tear from his eye. Within them I saw only grief. As if his words had opened an old wound. I felt sorry for him.
 
