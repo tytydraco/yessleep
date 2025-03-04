@@ -109,3 +109,5 @@ He growled, low and angry, before spitting out: "[redacted]."
 "My son is dead, damn it!" I hung up before he could spiral further. He'd been like this since I returned—screaming that I wasn't his son, inventing this "Noah" person. I tried not to dwell on it, told myself it was just trauma talking. But sometimes, in the dark of night, his words would echo in my head.
 
 We’re still not caught up to present day but I got some work I need to finish up at the office, I’ll update tomorrow.
+
+[Part II](https://www.reddit.com/r/nosleep/s/zixr8TWYYa) is officially up! Please go read if you’ve been interested so far, any support or advice is appreciated greatly.
