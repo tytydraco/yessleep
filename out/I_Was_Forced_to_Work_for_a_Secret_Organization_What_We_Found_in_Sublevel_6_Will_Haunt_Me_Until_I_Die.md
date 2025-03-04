@@ -4,7 +4,7 @@ At first, those who went missing would return after a short time, seemingly unha
 
 Some returned in far worse conditions—missing limbs, their bodies bearing impossible wounds. What was most disturbing was that these injuries showed signs of advanced healing, as though they had been missing for years despite the person being gone only a short while. The medical impossibility of this suggested one terrifying conclusion: wherever they had gone, time moved at a drastically different rate than our own.
 
-As these incidents became more frequent and more disturbing, governments and scientific institutions scrambled for answers. In response, a secret organization was formed to study and, if possible, contain these anomalies. This organization became known as the Walker Foundation, named after its founder, the late Oswald Walker.
+As these incidents became more frequent and more disturbing, governments and scientific institutions scrambled for answers. In response, a secret organization was formed to study and, if possible, contain these anomalies. This organization became known as the Walker Foundation, named after its founder, the late Dr Walker.
 
 Now, you may be wondering why I’m telling you all this. Well, I was a researcher for the Foundation, stationed at Phoenix Ridge Institute—the very heart of their operations, the mother base of all research into these phenomena. I had graduated at the top of my class at Harvard with a degree in quantum theory. My theories on interdimensional physics had gained some traction in certain academic circles, but apparently, they also caught the attention of the Foundation.
 
