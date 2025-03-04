@@ -2,6 +2,8 @@
 
 [Previous ](https://www.reddit.com/r/nosleep/comments/1hxq41o/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next](https://www.reddit.com/r/nosleep/comments/1i2vvfn/im_a_contract_worker_for_a_secret_corporation/)
+
 The past few days I’ve moved through life like a zombie. I finished a handful of easy jobs well aware of what other Contract Workers whispered to each other when they assumed I wasn’t looking. August and April were busy with other tasks so I had no one willing to work with me.  
 
 At least the jobs were mostly harmless. Dr. Fillow rewrapped my bad leg warning how it should be replaced soon. He poked around asking about my personal life. I gave him one-word answers feeling far too exhausted to get into details.  
