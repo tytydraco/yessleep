@@ -1,4 +1,8 @@
-[Part II](https://www.reddit.com/r/nosleep/comments/1iypnm5/find_yourself_in_a_body_that_is_not_your_own_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  
+[Part II](https://www.reddit.com/r/nosleep/comments/1iypnm5/find_yourself_in_a_body_that_is_not_your_own_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part III](https://www.reddit.com/r/nosleep/comments/1j3ji4s/find_yourself_in_a_body_that_is_not_your_own_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+  
 I just want to start by saying I am sorry. If you find yourself in a situation like what I am about to describe, I can’t offer much comfort. Only a resolution. You can skip to the end if you feel so inclined. But I don’t think you’ll be able to stomach it. Not yet. I need you to see what I’ve seen to understand.
 
 For those of you who aren’t in this situation, congrats. Just pray to whatever god you believe in that it stays that way. That is one of the horrors of this predicament. From what I can tell, it either happens or it doesn’t. And the way out isn’t easy.
