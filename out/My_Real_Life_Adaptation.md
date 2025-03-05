@@ -1,0 +1,15 @@
+I wrote something, and it came to life. I have a vivid imagination. Ever since I was a child, I would imagine these unlikely scenarios. Sometime in my late teens, I decided that I should write down these stories I played over and over again.
+
+The first story I wrote down was a mess. It was just under five thousand words long, and there were no paragraph breaks. Frankly, the story was shit. The problem was that the story had a special place in my heart. I rewrote and reworked the short story for nearly a decade. I never published it. I never wanted to do that. I just wanted to do my damnedest to write down a story I loved with every ounce of my being.
+
+I want to give a brief description of the story. It is necessary so that you can understand later what happened. The story centers around a young girl around my age when I first wrote the story. The story takes place in colonial America and deals with witches and revenge. In the story, some shit happens to that girl, and she becomes immortal.
+
+Now, here's where it gets interesting. I made sure every detail of my story was fictional—the town, the characters, everything—but just two weeks ago, my friend, who I shared the story with, came up to me with an old map she had found. It showed the name of my fictional town exactly where I had placed it in 17th century America. It scared the hell out of me. I had done my research. I knew that place didn't fucking exist.
+
+Over time other little details of the story passed from fiction to reality. The main antagonist of the story came to be revered preacher, who had suffered a tragic ending. The events that had happened in my fictitious town began to be associated with the likes of the Salem Witch Trials. The big thing, the thing that's making me write this, didn't happen until recently.
+
+Remember how I said my main character was immortal? Well, that came back to bite me in the ass. None of the other things I wrote in the book could hurt. They had been dead or destroyed for literal centuries, but she wasn't dead. I made it clear that she made it alive and well to the 21st century.
+
+She came to me. I, of course, had caused all the misery and torment that had been done to her. She took my hands. I am dictating this from the hospital to the friend who first showed me the proof that my story was coming to life. I don't know if she believes me. In fact, I find that highly improbable. Maybe she thinks this is just another fucking story. My last hoorah. But still . . . here we are. Even if she hadn't taken my hands, I never would have written another story. It killed me thinking of what I had done to poor Anne.
+
+You readers, please be careful. I wouldn't want what happened to me to happen to you. And if you have created anything wildly horrific lately, keep a close watch out over your shoulder for the creepy crawlies that *you* created.
