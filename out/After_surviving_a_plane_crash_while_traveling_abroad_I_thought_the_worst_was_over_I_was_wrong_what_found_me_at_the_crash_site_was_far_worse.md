@@ -42,7 +42,7 @@ That first week in the hospital went by quickly. Dr. Osler and nurse Anneliese w
 
 When I was finally lucid enough, I explained what I recalled about the crash to Dr. Osler, who listened intently from a wooden chair aside the hospital bed.
 
-My sister and I were Boston natives on holiday in the European countryside. We were flying over The Alps when something went terribly wrong with the plane. I couldn’t remember if it was a spontaneous mechanical failure or if the pilot had accidentally collided with something. Either way, we fell to the earth like Icarus.
+My sister and I were Boston natives on holiday in the European countryside. We were flying over the eastern Alps when something went terribly wrong with the plane. I couldn’t remember if it was a spontaneous mechanical failure or if the pilot had accidentally collided with something. Either way, we fell to the earth like Icarus.
 
 I thought of Divya. A question idled in my vocal cords for a long while; a leech with hooked teeth buried in the flesh of my throat, resisting release. Eventually, I asked. Courage was the spark, apathy was the match. The resulting fire singed that leech off my throat and out my mouth.
 

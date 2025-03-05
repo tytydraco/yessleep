@@ -12,7 +12,7 @@ Other kids thought we were eccentric, seeing my dad taking his telescope down th
 
 One day, we all woke at 5am to his shouting from the garage.
 
-He was jumping with excitement over a new signal he had received. “It’s undeniable proof that He is telling us something!” he told us, his hair and beard wild now untrimmed for months.
+He was jumping with excitement over a new signal he had received. “It’s undeniable proof that He is telling us something!” he told us, his hair and beard wild, now untrimmed for months.
 
 We just thought that maybe he had finally lost his mind. He had found signals before, and they had always turned out to be satellite noise.
 
@@ -22,7 +22,7 @@ The day after that, a Saturday, I was really excited about a night birthday part
 
 But in the morning, my father called us all to the living room, his face urgent. 
 
-"No one should leave this house. The world is coming to an end today," he muttered, pacing frantically and checking his wristwatch. He looked like he hadn’t slept in days ."I did everything to interpret His message, hoping I was wrong, but I fear this was his warning."
+"No one should leave this house. The world is coming to an end today," he muttered, pacing frantically and checking his wristwatch. He looked like he hadn’t slept in days ."I did everything to interpret His message, hoping I was wrong, but I fear this was the warning."
 
 “What do you mean?” my mother asked, uneasy.
 
@@ -30,7 +30,7 @@ But in the morning, my father called us all to the living room, his face urgent.
 
 “And how do you know it’s the date of the end of the world?” one of my brothers questioned. 
 
-"Because the signal was undeniable—He is coming! And the Bible clearly states that the end will begin when..."
+"Because the message was undeniable—He is coming! And the Bible clearly states that the end will begin when..."
 
 "Dad, come on, not now," I cut him off, sighing. "I have something to do tonight. I can’t just stay here based on this crazy theory of yours."
 
@@ -52,7 +52,7 @@ As I walked home, I kept checking my phone for a response, but her number was of
 
 When I reached my address, I felt like I had somehow taken the wrong path.
 
-There was nothing there. Just an empty lot, full of dirt and grass, surrounded by what I was certain were my usual neighbors.
+There was nothing there. Just an empty lot, full of dirt and grass, surrounded by what I was certain were my usual neighbors - their houses intact.
 
 I retraced my steps several times to make sure I wasn’t hallucinating, and I wasn’t.
 
@@ -85,4 +85,3 @@ After all that, I went to live with my grandparents and they took good care of m
 A decade has gone by, and no one has found an explanation for my family's disappearance. Now, I’m taking matters into my own hands and sharing this story with everyone I can, determined to uncover the truth, even if too late.
 
 Every night, I stare at the sky, wondering if it was really God who took them… or if it was *something else*.
-
