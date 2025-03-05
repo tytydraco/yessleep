@@ -122,7 +122,7 @@ Almost like they were created to function like chains, shackling me to that bed.
 
 *“I want to see my sister.”* I demanded.
 
-The nurse, a short man with a thick brown-red beard, dropped the clipboard he had been scribbling on in response to my defiance. It clattered to the floor. With a vacant expression painted on his face, he walked over to the door, opened it, and left. As the door creaked closed, I grimaced. The uncertainty of the oppressive darkness that lingered outside my room had, overtime, begun to cause me physical discomfort.
+The nurse, a short man with a thick brown-red beard, dropped the clipboard he had been scribbling on in response to my defiance. It clattered to the floor. With a vacant expression painted on his face, he walked over to the door, opened it, and left. As the door creaked closed, revealing a glimpse of the waiting shadows, I grimaced. The uncertainty of the oppressive darkness that lingered outside my room had, overtime, begun to cause me physical discomfort.
 
 I needed to know what was actually out there, but God, I desperately didn’t want to know, either. In a way, it represented my predicament. On the surface, I was in a hospital. But that was farce; an illusion for *someone’s* benefit. In reality, some terrible darkness loomed around me, pulsing just below the surface, spilling in every so often through the cracks in the masquerade.
 
@@ -154,7 +154,7 @@ As that word crawled from his lips, he turned away from me and marched out into 
 
 Instead, I felt my mind race. My nervous system buzzed with furious static, trying to comprehend and reconcile the overflow of information bombarding my psyche. Something about the way Dr. Osler’s face contorted as he said that last word made the whole thing click into place.
 
-The pilot had a scar just like that. I could see it clear as day in my head, and I could finally recall what he said to Divya and me as he turned towards us from the cockpit, fear stitched on his face.
+The pilot had a scar just like that. I could see it clear as day in my head, and I could finally recall what he shouted to Divya and I as he turned towards us from the cockpit, fear stiched across his face.
 
 *“Something just landed on the wing.”*
 
