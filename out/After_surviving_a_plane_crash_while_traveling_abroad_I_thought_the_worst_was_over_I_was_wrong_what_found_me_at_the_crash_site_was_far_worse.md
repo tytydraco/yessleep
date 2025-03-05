@@ -24,7 +24,7 @@ This is what I remembered in the beginning:
 
 *Briefly, I return. My consciousness bubbles up from the depths of that shadow, and my eyes flutter open. It’s quiet now. No more screams, no more chewing of metal; only the humming chorus of cicadas fills my ears. It was early morning when we crashed, now its twilight. Air moves through my lungs, and it smells faintly of smoke and iron.*
 
-*Finally, I do turn my head, and I see Divya. She’s not far, but she’s broken. Her battered body hangs in a nearby oak tree like a warning. Dusky red blood stains the bark around Divya. It’s sticky and warm on my fingertips when I’m close enough to touch it, leaning against the trunk, reaching up to pull her down from the canopy.*
+*Finally, I do turn my head, and I see Divya. She’s not far, but she’s broken. Her battered body hangs in a nearby oak tree like a warning. Dusky red blood stains the bark around Divya. It’s sticky and warm on my fingertips when I’m close enough to touch it, leaning against the trunk, reaching to pull her down from the canopy.*
 
 *She’s much too high up, but I keep flinging my hands towards the heavens, pleading for a miracle. Again and again I try to get a hold of Divya, as if I’d be able to anchor her soul to the earth with a tight enough grasp on her body.*
 
@@ -88,7 +88,7 @@ The only noises I ever heard were the voices of the hospital’s staff members, 
 
 Which brings me to nurse Anneliese.
 
-Initially, she was a tremendous source of comfort. Her very presence was sedating; humble and grandmotherly. Silver hair bustling over her shoulders as moved through the room. A charming, wrinkled smile on her face as she listened to me recount my life history to kill some time. Constant reassuring words about well the hospital was taking care of me.
+Initially, she was a tremendous source of comfort. Her very presence was sedating; humble and grandmotherly. Silver hair bustling over her shoulders as moved through the room. A charming, wrinkled smile on her face as she listened to me recount my life history to kill some time. Constant reassuring words about how well the hospital was taking care of me.
 
 But like everything else, once I looked a little harder, Anneliese went from likable and endearing to peculiar and terrifying.
 
@@ -112,7 +112,7 @@ I asked for different nurses, and that’s sure as shit what I got.
 
 After about a month in that room, and with my suspicions rising, I started developing an escape plan. The only thing that was really holding me back was my casts.
 
-Since the day I woke up in the hospital, thick, marble-white plaster completely encased each of my legs. The casts didn’t appear to have been applied by a professional, though; the surface wasn't smooth, it was rough and bubbling. Some areas clearly had more plaster than others, and there didn’t appear to be a rhyme or reason for that asymmetry. Not only that, but the material seemed unnecessarily dense and heavy, and the casts were tightly molded to each extremity. It was nearly impossible for me to move on my own.
+Since the day I woke up in the hospital, thick, marble-white plaster completely encased each of my legs. The casts didn’t appear to have been applied by a professional, though; the surfaces weren’t smooth, they were rough and bubbling. Some areas clearly had more plaster than others, and there didn’t appear to be a rhyme or reason for that asymmetry. Not only that, but the material seemed unnecessarily dense and heavy, and the casts were tightly molded to each extremity. It was nearly impossible for me to move on my own.
 
 Almost like they were created to function like chains, shackling me to that bed.
 
@@ -228,7 +228,7 @@ I *really was* in a hospital; it was just abandoned. Had been for a while, app
 
 The dilapidated medical ward was dimly lit by the natural light that filtered in from various broken windows. Thick dust, shattered glass, and skittering insects littered the floor. I crawled around overturned crash carts and toppled transport beds like I was navigating the tunnels and trenches of Okinawa. At the very end of the hallway, I spied a patch of weeds illuminated by rays of bright white light.
 
-There it was: my escape. A portal to the outside world.
+There it was: my escape. An open doorway. A portal to the world outside this place.
 
 Flickers of hope were quickly overshadowed by smoldering fear. As I got closer and closer to the exit, an unidentifiable smell was becoming more and more pungent. A mix of rotting fish, bleach, and tanning leather.
 
@@ -250,7 +250,7 @@ Thousands of fly’s wings jutted from every inch of its flesh. Some were tiny, 
 
 As far as I could tell, it had its back turned to me, and hadn't detected my interloping.
 
-Watching in stunned horror, the thing raised one of his hands, and I noticed it was holding something small and wooden. Every few seconds, it brought it down and delicately caressed the nurse’s head with the object, dragging weathered bristles over her scalp.
+Watching in stunned horror, the thing raised one of its hands, and I noticed it was holding something small and wooden. Every few seconds, it brought it down and delicately caressed the nurse’s head with the object, dragging weathered bristles over her scalp.
 
 It was brushing Annaliese’s hair.
 
@@ -258,7 +258,7 @@ Then it spoke, and I felt uncontrollable terror swim through my veins, causing m
 
 *“Aren’t we taking such good care of you…Aren’t we taking such good care of you…”*
 
-I couldn’t restrain my panic. Right before a bloodcurdling wail involuntarily surged from my lips, I was saved by the thrumming helicopter blades in the distance.
+I couldn’t restrain my panic. Right before a bloodcurdling wail involuntarily surged from my lips, I was saved by the thrumming of helicopter blades in the distance.
 
 The thing stopped speaking and tilted its head to the noise. At an unnaturally breakneck speed, it shot into the air and through the hole in the roof, carried into the sky by a legion of convulsing fly’s wings.
 
