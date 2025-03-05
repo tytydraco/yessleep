@@ -244,7 +244,7 @@ That abomination had pretended to be every person I’d interacted with while in
 
 Hundreds of eyeless bodies hung around that room like scarecrows, arms held outstretched by the horizontal wooden poles that were tied across their backs. Thick, pulsing gray-blue tethers suspended the bodies in the air at many different elevations from somewhere high above. Despite the ungodly odor, most of them seemed to be in relatively good condition, with limited visible signs of decay. The assortment of fleshy mannequins swayed lifelessly in the breeze that spilled in through the mini-van sized hole in the ceiling, glistening with some sort of varnish as they dipped in and out of beams of sunlight.
 
-Then, I saw it. A gray-blue mass of muscular pulp roughly in the shape of a human being, cradling Annaliese’s body in its malformed arms at the center of the room.
+Then, I saw it. A gray-blue mass of muscular pulp roughly in the shape of a human being, cradling Annaliese’s eyeless corpse in its malformed arms at the center of the room.
 
 Thousands of fly’s wings jutted from every inch of its flesh. Some were tiny, but others were revoltingly magnified; the largest I could see was about the size of a mailbox. Even though the thing appeared motionless, the wings jerked and twitched constantly, blurring its frame within a cloud of chaotic movement.
 
