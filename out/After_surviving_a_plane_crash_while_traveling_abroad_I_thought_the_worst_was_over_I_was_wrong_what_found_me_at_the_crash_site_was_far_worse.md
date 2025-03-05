@@ -112,7 +112,7 @@ I asked for different nurses, and that’s sure as shit what I got.
 
 After about a month in that room, and with my suspicions rising, I started developing an escape plan. The only thing that was really holding me back was my casts.
 
-Since the day I woke up in that room, thick, marble-white plaster completely encased each of my legs. The casts didn’t appear to have been applied by a professional, though; the surface wasn't smooth, it was rough and bubbling. Some areas clearly had more plaster than others, and there didn’t appear to be a rhyme or reason for that asymmetry. Not only that, but the material seemed unnecessarily dense and heavy, and the casts were tightly molded to each extremity. It was nearly impossible for me to move on my own.
+Since the day I woke up in the hospital, thick, marble-white plaster completely encased each of my legs. The casts didn’t appear to have been applied by a professional, though; the surface wasn't smooth, it was rough and bubbling. Some areas clearly had more plaster than others, and there didn’t appear to be a rhyme or reason for that asymmetry. Not only that, but the material seemed unnecessarily dense and heavy, and the casts were tightly molded to each extremity. It was nearly impossible for me to move on my own.
 
 Almost like they were created to function like chains, shackling me to that bed.
 
@@ -128,7 +128,7 @@ I needed to know what was actually out there, but God, I desperately didn’t wa
 
 After a few minutes, Dr. Osler paced into the room, letting the door sway shut behind him.
 
-*“Dr. Osler - you’ve told me Divya is alive. Countless times, you’ve assured me she’s recovering here in this hospital. And yet, I haven’t seen her once. Bring her here. If she’s not healthy enough to come here, bring me to her”*
+*“Dr. Osler - you’ve told me Divya is alive. Countless times, you’ve assured me she’s recovering here in this hospital. And yet, I haven’t seen her once. Bring her here. If she’s not healthy enough to come here, bring me to her.”*
 
 His grey-blue eyes bored vicious holes through me. He was livid. Utterly incensed by my insubordination.
 
@@ -152,7 +152,7 @@ His gaze met mine again, now grim and resolute.
 
 As that word crawled from his lips, he turned away from me and marched out into the darkness. I said nothing. No protestations, no name-calling, no angry last words.
 
-Instead, I felt my mind race. My nervous system buzzed with furious static, trying to comprehend and reconcile the overflow of information bombarding my psyche. Something about the way Dr. Osler’s face contorted as he said that last word made the whole thing click in my head.
+Instead, I felt my mind race. My nervous system buzzed with furious static, trying to comprehend and reconcile the overflow of information bombarding my psyche. Something about the way Dr. Osler’s face contorted as he said that last word made the whole thing click into place.
 
 The pilot had a scar just like that. I could see it clear as day in my head, and I could finally recall what he said to Divya and me as he turned towards us from the cockpit, fear stitched on his face.
 
@@ -214,9 +214,9 @@ Eventually, I could tell that I had damaged the casts to the point where I could
 
 Luck was on my side that day. The thing was close, but it was preoccupied.
 
-Despite shedding nearly twenty pounds in that hospital room, barely sustaining myself on the infrequent helpings of brackish meat soup the thing brought me, my legs couldn’t hold me upright. They had simply atrophied too damn much; muscleless sleeves burdened with fragile bones and calcified tendons. Thankfully, my arms had retained enough strength to drag my emaciated body across the floor.
+Despite shedding nearly twenty pounds of body weight in that hospital room, barely sustaining myself on the infrequent helpings of brackish meat soup the thing brought me, my legs couldn’t hold me upright. They had simply atrophied too damn much; muscleless sleeves burdened with fragile bones and calcified tendons. Thankfully, my arms had retained enough strength to drag my emaciated body across the floor.
 
-When I propped my back against the wall aside the door, I stopped my feeble movements and listened. No footsteps running down the hall. No whispers of *“aren't we taking such good care of you*” coming from right outside. All I could hear was the fevered thumping of my heart slamming into my ribs.
+With my back propped up against the wall aside the door, I halted my feeble movements and just listened. No footsteps running down the hall. No whispers of *“aren't we taking such good care of you*” coming from right outside. All I could hear was the fevered thumping of my heart slamming into my ribs.
 
 I took a deep breath, reached my arm up to the knob, and slowly slid the door open.
 
@@ -226,7 +226,7 @@ It wasn't hell on the other side of the door like my restless mind had theorized
 
 I *really was* in a hospital; it was just abandoned. Had been for a while, apparently. A discarded German news paper I discovered was dated to September of 1969.
 
-The dilapidated medical ward was dimly lit by the natural light that filtered in from various broken windows. Thick dust, shattered glass, and skittering insects littered the floor. I crawled around overturned crash carts and toppled transport beds like I was navigating the tunnels and trenches of Okinawa. At the very end of the hallway, I spied a patch of weeds illuminated by beams of bright white light.
+The dilapidated medical ward was dimly lit by the natural light that filtered in from various broken windows. Thick dust, shattered glass, and skittering insects littered the floor. I crawled around overturned crash carts and toppled transport beds like I was navigating the tunnels and trenches of Okinawa. At the very end of the hallway, I spied a patch of weeds illuminated by rays of bright white light.
 
 There it was: my escape. A portal to the outside world.
 
@@ -240,7 +240,7 @@ The chamber that the stench was originating from was vast and cavernous; maybe i
 
 It was where the thing kept its costumes.
 
-The thing had pretended to be every person I’d interacted with while in that hospital; Dr. Osler, Annaliese, all the other nurses, and, most recently, Divya. A horrific stageplay where it gladly filled all the roles. That entire month, I thought I had talked to dozens of people. In reality, it had been this abomination every single time, just in a very clever disguise.
+That abomination had pretended to be every person I’d interacted with while in that hospital; Dr. Osler, Annaliese, all the other nurses, and, most recently, Divya. A horrific stageplay where it gladly filled all the roles. That entire month, I thought I had talked to dozens of people. In reality, it had been this goddamned mimic every single time, camouflaged by a rotating series of gruesome disguises.
 
 Hundreds of eyeless bodies hung around that room like scarecrows, arms held outstretched by the horizontal wooden poles that were tied across their backs. Thick, pulsing gray-blue tethers suspended the bodies in the air at many different elevations from somewhere high above. Despite the horrific odor, most of the them seemed to be in relatively good condition, with limited visible signs of decay. The assortment of fleshy mannequins swayed lifelessly in the breeze that spilled in through the mini-van sized hole in the ceiling, glistening with some sort of varnish as they dipped in and out of beams of sunlight.
 
