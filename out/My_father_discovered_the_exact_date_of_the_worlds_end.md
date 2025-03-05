@@ -14,9 +14,9 @@ One day, we all woke at 5am to his shouting from the garage.
 
 He was jumping with excitement over a new signal he had received. “It’s undeniable proof that He is telling us something!” he told us, his hair and beard wild, now untrimmed for months.
 
-We just thought that maybe he had finally lost his mind. He had found signals before, and they had always turned out to be satellite noise.
+We thought that maybe he had finally lost his mind. He had found signals before, and they had always turned out to be satellite noise.
 
-“So, how’s the signal, Dad?” one of my brothers asked the next morning. He answered nothing, just seriously refilled his coffee and walked back to his room. We all assumed he had figured out it was just another dead end.
+“So, how’s the signal, Dad?” one of my brothers asked the next morning. He answered nothing, just seriously refilled his coffee and walked back to the garage. We all assumed he had figured out it was another dead end.
 
 The day after that, a Saturday, I was really excited about a night birthday party I was invited to. A boy I had a crush on was going to be there.
 
