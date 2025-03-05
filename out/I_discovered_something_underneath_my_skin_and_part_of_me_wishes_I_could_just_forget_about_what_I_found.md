@@ -1,4 +1,3 @@
-
 It all started with a shaving cut.
 
 As the razor slid under my chin, gently removing a layer of shaving cream, my hand spasmed. I felt a tearing pain and watched in the mirror as a droplet of blood trickled down my neck, staining my shirt’s white collar before I could find something nearby to dab it away.
@@ -9,7 +8,7 @@ As the razor slid under my chin, gently removing a layer of shaving cream, my ha
 
 Seemingly, my muscle spasms would wait for me to be doing something dangerous before they decided to rear their ugly head. They *never* appeared when I was just lazing on the couch or anything. Instead: shaving, cooking, and splitting lumber in the backyard were the common activities they liked to disrupt, ordered from least to most harm I could inflict upon myself if I made a mistake.
 
-There had been a lot of near misses in the past; a knife slice almost carving up my forearm, an axe swing just about flaying the right side of my calf. All on account of these random spasms. 
+There had been a lot of near misses in the past; a knife slice almost carving up my forearm, an axe swing just about flaying the right side of my calf. All on account of these random spasms.
 
 My spiteful tics. Always out to get me.
 
@@ -17,11 +16,11 @@ Fortunately, before I could be too late for work, I found a relatively stainless
 
 I recognized that it was a childish belief. My muscles didn’t have it out for me. No more than bumper-to-bumper traffic or a rainstorm on my birthday did, at least. That was the first time a spasm actually *did get me*, though. I chuckled softly, imagining myself bowing respectfully to a giant hand muscle, conceding to their hard-fought triumph.
 
-I returned to the bathroom, placed a Band-Aid over the small cut on the edge of my jaw, and threw on the cleanish polo, causing the last of my frustration to slip away.
+Returning to the bathroom, I placed a Band-Aid over the small cut on the edge of my jaw, and threw on the cleanish polo, causing the last of my frustration to slip away.
 
 As I walked out the front door of my apartment, though, I started to feel a little uneasy about the injury. The cut didn’t hurt. It didn’t itch or bleed any more than it already had.
 
-I experienced something else with the its creation, though. 
+I experienced something else with its creation, though.
 
 An impulse. Something floating through my mind that I had to suppress and contain; unexplainable and deeply distressing in equal measure.
 
@@ -63,7 +62,7 @@ The Vicar returned from his office with a square inch piece of thick medical dre
 
 Amelio held it over the cut, making sure it covered the injury’s contours completely. Then, he put the bandage up to his mouth and licked one side of it, firmly dragging his blue-purple tongue from top to bottom. Before I could protest, The Vicar slapped the material over the wound. Then, he pushed down hard, and I mean *hard.* It felt more like the man was punching my neck in extreme slow-motion rather than applying careful pressure to an injury.
 
-To my surprise, whatever “special” bandage Amelio used seemed to work wonders. For the cut itself, sure, but also for unexplainable impulse. Right before the bizarre dressing made contact, though, the urge became *exponentially* louder. Almost uncontrollable. 
+To my surprise, whatever “special” bandage Amelio used seemed to work wonders. For the cut itself, sure, but also for unexplainable impulse. Right before the bizarre dressing made contact, though, the urge became *exponentially* louder. Almost uncontrollable.
 
 Once the spongy material was secured over the laceration, however, I felt the terrible impulse wither. It wasn’t gone completely, but it was certainly better. The material seemed to cover the wound as well as cauterize my mind.
 
@@ -85,7 +84,7 @@ A jolt of intense pain caused my eyes to burst open. Initially, I thought I was 
 
 I came to standing up, like I had been sleepwalking. I was in my kitchen, and the taste of copper lurched over the tip of my tongue as I oriented to my surroundings. In one hand, I held a meat cleaver stained with gore. The other held a patch of newly excised skin with frayed and ragged edges, draping lazily over my knuckles like a tan handkerchief.
 
-Apparently, I had given into the urge in my sleep, when my defenses were at their lowest. 
+Apparently, I had given into the urge in my sleep, when my defenses were at their lowest.
 
 With panic surging through my body, I sprinted towards my bedroom, my socks slick with warm blood, squeaking over the wooden floor as I moved. When I approached the nightstand, I reached my right hand out to pull my phone from the wall charger.
 
@@ -95,7 +94,7 @@ Thankfully, I successfully retrieved my phone with my left hand, which had disca
 
 Another jolt of searing agony exploded through my body; this time originating from my right thigh. Despite my efforts to dodge the swipes of my spasming hand, the cleaver had connected with the flesh below my groin and was scraping downwards, slowly peeling a second chunk of skin off my leg. I howled from the pain, and the sound reverberated off the walls of my tiny apartment, right back into my ears, causing my head to throb.
 
-My bloodstained hand dialed 9-1-1 as the cleaver kept digging through the meat of my upper leg. As the line rang, I was finally able to win some control back of my right hand, pulling the blade out from my skin and slightly away from my body. 
+My bloodstained hand dialed 9-1-1 as the cleaver kept digging through the meat of my upper leg. As the line rang, I was finally able to win some control back of my right hand, pulling the blade out from my skin and slightly away from my body.
 
 The malevolent spasms calmed, and I released my grip on the handle, causing the cleaver to fall to the floor.
 
@@ -141,11 +140,11 @@ The crimson phantom let loose a coarse and boggy scream. It spun around as fast 
 
 Vicar Amelio, but in a different, more predatory form.
 
-His arms and legs were the same length, and both were easily three feet long. His head was elongated as well, about half the length of his extremities. The back of Amelio's neck and skull rested against the ceiling because my apartment couldn’t accommodate his unnatural proportions if he fully stood up. 
+His arms and legs were the same length, and both were easily three feet long. His head was elongated as well, about half the length of his extremities. The back of Amelio's neck and skull rested against the ceiling because my apartment couldn’t accommodate his unnatural proportions if he fully stood up.
 
-He grasped the blood-caked figure's head with one hand and held them in place. Then, his other hand stretched down the hallway, slithering like a viper until it grabbed onto me. 
+He grasped the blood-caked figure's head with one hand and held them in place. Then, his other hand stretched down the hallway, slithering like a viper until it grabbed onto me.
 
-My husk slid against the floor as the Vicar dragged me towards the person who had been trapped inside the confines of my body only a few minutes prior. 
+My husk slid against the floor as the Vicar dragged me towards the person who had been trapped inside the confines of my body only a few minutes prior.
 
 The nameless man with the lantern tattoo.
 
@@ -171,10 +170,10 @@ It’s only a matter of time.
 
 Please don’t resist like the man with the lantern tattoo when *your* time comes.
 
-Accept your sleep-like erasure with dignity. 
+Accept your sleep-like erasure with dignity.
 
-We can all be the Vicar's children. 
+We can all be the Vicar's children.
 
 In fact, you may already be one.
 
-You just don’t know [it yet](https://www.reddit.com/r/unalloyedsainttrina/s/bAKGcorKGE). 
+You just don’t know [it yet](https://www.reddit.com/r/unalloyedsainttrina/s/bAKGcorKGE).

@@ -76,7 +76,7 @@ The neighbors' security cameras didn’t capture any movement or anything suspic
 
 No one passed by the street. No one saw anything. They simply vanished from this earth and no clues were given.
 
-Then, the feds arrived a week later to investigate. Tall men in black suits and dark glasses combed through the area for days, then left without revealing a single word to the public.
+Then, the feds arrived some weeks later to investigate. Tall men in black suits and dark glasses combed through the area for days, then left without revealing a single word to the public.
 
 Strangely, the news stopped covering it the very next day, returning to their usual programming of burglaries and park renovations. Over time, this case was only mentioned in podcasts or mystery Youtube channels.
 
