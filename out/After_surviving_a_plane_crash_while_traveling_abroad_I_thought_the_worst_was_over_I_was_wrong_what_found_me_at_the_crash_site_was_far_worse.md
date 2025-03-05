@@ -64,7 +64,7 @@ Essentially, the plane crash-landed outside of Bavaria, southeast Germany. A far
 
 There were no other survivors.
 
-He stood up, patted me on the shoulder, told me to sleep, and informed me that Anneliese would be in soon to check on me.
+He stood up, patted me on the shoulder, told me to sleep, and informed me that Anneliese would be in soon to record my vital signs.
 
 *“When can I see her? When can I see my sister?”*
 
@@ -242,11 +242,11 @@ It was where the thing kept its costumes.
 
 That abomination had pretended to be every person I’d interacted with while in that hospital; Dr. Osler, Annaliese, all the other nurses, and, most recently, Divya. A horrific stageplay where it gladly filled all the roles. That entire month, I thought I had talked to dozens of people. In reality, it had been this goddamned mimic every single time, camouflaged by a rotating series of gruesome disguises.
 
-Hundreds of eyeless bodies hung around that room like scarecrows, arms held outstretched by the horizontal wooden poles that were tied across their backs. Thick, pulsing gray-blue tethers suspended the bodies in the air at many different elevations from somewhere high above. Despite the horrific odor, most of the them seemed to be in relatively good condition, with limited visible signs of decay. The assortment of fleshy mannequins swayed lifelessly in the breeze that spilled in through the mini-van sized hole in the ceiling, glistening with some sort of varnish as they dipped in and out of beams of sunlight.
+Hundreds of eyeless bodies hung around that room like scarecrows, arms held outstretched by the horizontal wooden poles that were tied across their backs. Thick, pulsing gray-blue tethers suspended the bodies in the air at many different elevations from somewhere high above. Despite the horrific odor, most of them seemed to be in relatively good condition, with limited visible signs of decay. The assortment of fleshy mannequins swayed lifelessly in the breeze that spilled in through the mini-van sized hole in the ceiling, glistening with some sort of varnish as they dipped in and out of beams of sunlight.
 
 Then, I saw it. A gray-blue mass of muscular pulp roughly in the shape of a human being, cradling Annaliese’s body in its malformed arms at the center of the room.
 
-Thousands of fly’s wings jutted from every inch of the thing. Some were tiny, but others were revoltingly magnified; the largest I could see was about the size of a mailbox. Even though the thing appeared motionless, the wings jerked and twitched constantly, blurring its frame within a cloud of chaotic movement.
+Thousands of fly’s wings jutted from every inch of its flesh. Some were tiny, but others were revoltingly magnified; the largest I could see was about the size of a mailbox. Even though the thing appeared motionless, the wings jerked and twitched constantly, blurring its frame within a cloud of chaotic movement.
 
 As far as I could tell, it had its back turned to me, and hadn't detected my interloping.
 
@@ -254,7 +254,7 @@ Watching in stunned horror, the thing raised one of his hands, and I noticed it 
 
 It was brushing Annaliese’s hair.
 
-Then it spoke, and I felt uncontrollable terror swim through my veins, causing my entire body to tremor like one of the abomination’s wings. It sounded like twenty or thirty separate voices cooing in unison; men, women, and even children saying the words together like a choir of the damned.
+Then it spoke, and I felt uncontrollable terror swim through my veins, causing my entire body to tremor like one of the abomination’s wings. It sounded like twenty or thirty separate voices cooing in unison; men, women, and even children saying the words together; a choir of the damned.
 
 *“Aren’t we taking such good care of you…Aren’t we taking such good care of you…”*
 
@@ -282,7 +282,7 @@ Maybe it was just safer that way.
 
 That all took place a decade ago.
 
-Since then, I’ve salvaged as much of myself as I can. It hasn’t been easy. But, in the end, I put my life back together. Got married. Had a few kids. Symbolically buried Divya in a vacant grave with a tombstone.
+Since then, I’ve salvaged as much of myself as I could. It hasn’t been easy. But, in the end, I put my life back together. Got married. Had a few kids. Symbolically buried Divya in a vacant grave with a tombstone.
 
 I listed her date of death as the day of the plane crash, and I hope that's actually true, but I don’t know for sure, and I don’t like to dwell on that fact.
 
@@ -294,7 +294,7 @@ My wife returned home early from work. She’s been acting odd, sitting on the c
 
 Her eyes have always been dark blue.
 
-Today, though, they look a little different. 
+Today, though, they look a little different.
 
 I'm locked in our bedroom, and I can hear her saying something downstairs, but I can't discern the words.
 
