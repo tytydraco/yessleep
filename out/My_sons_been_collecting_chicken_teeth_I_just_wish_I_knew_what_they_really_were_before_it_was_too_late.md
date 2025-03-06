@@ -16,7 +16,7 @@ As I walked away from the pigs, I began to hear something else, like wet smackin
 
 I raced back to the henhouse, rifle ready in my hands, but I couldn't hear the munching anymore. Instead, I found a message written in hens blood on the floor of the coop that read: *Till death do us part.*
 
-Just as I finished reading it, I heard a scream from the house. *Shaun* I thought, and began running back to the house. I tried the backdoor but it was locked, I heard another scream and I kicked the knob until it gave-way. The first thing I saw were more messages written in chicken blood on the floor, walls, and countertops.
+Just as I finished reading it, I heard a scream from the house. *Shaun*, I thought, and began running back to the house. I tried the backdoor but it was locked, I heard another scream and I kicked the knob until it gave-way. The first thing I saw were more messages written in chicken blood on the floor, walls, and countertops.
 
 *Cheater, liar, adulterer* I didn't have time to read them all as I barreled towards Shaun's room. I burst through the door and saw poor Shaun in the corner of his bed, his sheets pulled up to his eyes.
 
@@ -52,4 +52,4 @@ We've traded the farm life for a nice safe apartment with very few hiding spots,
 
 But the reason I've decided to share all this is because this morning, Shaun ran up to me with his hands cupped.
 
-"Look dad!" He said before un-cupping his hands to reveal small dark rotten looking pebbles, "I found chicken teeth under my bed this morning!!".
+"Look dad!" He said before un-cupping his hands to reveal small, dark, rotten looking pebbles. "I found chicken teeth under my bed this morning!!".
