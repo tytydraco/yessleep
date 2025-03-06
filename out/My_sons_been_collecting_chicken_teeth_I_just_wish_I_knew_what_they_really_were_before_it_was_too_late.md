@@ -32,17 +32,17 @@ We raced down the road and were about halfway to the police station when my hear
 
 I turned the car around and put my foot to the floor until we were about a block away from the house. I could see Mindy's car in the driveway and I skidded my truck onto the front lawn, locked Shaun in and I ran inside.
 
-The house was dead quiet. So quiet, my own breathing was deafening and every squeaky floorboard felt like an atom bomb going off. I checked every room in the house until all I was left with was my bedroom. I put a hand on the knob, and slowly cracked the door just an inch open and was greeted with the most rancid odor I had ever smelled in my entire life.
+The house was dead quiet. So quiet, my own breathing was deafening and every squeaky floorboard felt like an atom bomb going off. I checked every room in the house until all I was left with was my bedroom. I put a hand on the knob, and slowly cracked the door just an inch or so and was greeted with the most rancid odor I had ever smelled in my entire life.
 
 I took a deep breath in and held it as I opened the door, then immediately exhaled into a coughing fit as I fought the urge to vomit.
 
-On the bed was Mindy, her stomach was hollowed out like somebody had taken a giant ice cream scoop to her abdomen. I couldn't believe my eyes, and I think I went into shock because I couldn't explain to you just why I began walking over to her.
+On the bed, was Mindy, her stomach was hollowed out like somebody had taken a giant ice cream scoop to her abdomen. I couldn't believe my eyes, and I think I went into shock because I couldn't explain to you just why I began walking over to her.
 
 The tips of her ribs gleamed in the moonlight creeping in from the window. It shone over the black empty cavity, making her bones look like teeth in the cavernous maw of a beast.
 
 I was now standing beside Mindy, and could see that something was carved into her forehead.
 
-*Gutless bitch*. I knew the words were meant for me. The words were carved so deep, I could see the white of her skull.
+*Gutless bitch*. I knew the words were meant for me. The etching was so deep, I could see the white of her skull.
 
 I stumbled back, slipping on a piece of intestine that had been carelessly discarded and rushed back outside to see Shaun. I hopped back into the truck and it dawned on me that in the whirlwind of chaos that had just unfolded, I hadn't even called the police yet. Almost worse, I didn't know what the fuck to tell them.
 
