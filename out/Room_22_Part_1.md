@@ -1,7 +1,3 @@
-**Room 22**
-
-**Part 1**
-
 I’m just a 22-year-old student finishing my honors. I stay with some relatives fairly close to my college. Its more convenient that way, as its closer than from home (which is like a 14-hour drive away).
 
 It’s just my mom, sister and I so whatever chance I get (mostly semester holidays), I go spend it there with them. My girlfriend also lives close to where I normally stay so, I see her every time I visit home as well. I didn’t see them this year so far. I miss them.
