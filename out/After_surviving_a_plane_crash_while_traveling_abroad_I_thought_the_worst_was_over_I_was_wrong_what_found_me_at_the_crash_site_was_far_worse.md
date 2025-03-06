@@ -262,7 +262,7 @@ I couldn’t restrain my panic. Right before a bloodcurdling wail involuntarily 
 
 The thing stopped speaking and tilted its head to the noise. At an unnaturally breakneck speed, it shot into the air and through the hole in the roof, carried into the sky by a legion of convulsing fly’s wings.
 
-Then I was alone; howling into the airborne graveyard, with the myriad of preserved corpses acting as the only audience to my agony. They observed me crumble from their eyeless sockets, their stolen bodies still silently swaying in the wind.
+Then I was alone; howling into an airborne graveyard, with the myriad of preserved corpses acting as the only audience to my agony. They observed me crumble from their eyeless sockets, their stolen bodies still silently swaying in the wind.
 
 I didn't see Divya's body.
 
