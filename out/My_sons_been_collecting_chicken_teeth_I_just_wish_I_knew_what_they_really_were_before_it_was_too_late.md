@@ -6,7 +6,7 @@ Things were going great, but it all started to fall apart after I met my new gir
 
 Weird things started appearing in my mailbox, like grains of uncooked rice, a bouquet of dead flowers and oddly enough, my old wedding band. At the same time, some chickens had begun to go missing from one of the henhouses in my back yard. I assumed it was the work of coyotes or wolves and I set up motion detector lights and cameras to catch them in the act, but none of them ever worked. After trying out my 5th set, I gave up on them entirely.
 
-My son, Shaun had just reached the age where he began losing baby teeth. And after receiving his first dollar from the tooth fairy, he became obsessed with the idea of cash for teeth. I caught him stuffing little black pebbles under his pillow one night and when I asked him what he was doing he told me he had put 'chicken teeth' under there to trick the tooth fairy.
+My son, Shaun, had just reached the age where he began losing baby teeth. And after receiving his first dollar from the tooth fairy, he became obsessed with the idea of cash for teeth. I caught him stuffing little black pebbles under his pillow one night and when I asked him what he was doing he told me he had put 'chicken teeth' under there to trick the tooth fairy.
 
 I laughed and tried to explain to him that chickens didn't have teeth, but he was adamant they did because he found them in the hen house. I decided to humor him, and after dinner that night, we armed ourselves with flashlights and headed out the kitchens back door to the farm so Shaun could search for some of his elusive hen veneers.
 
@@ -30,7 +30,7 @@ The thing sputtered on the floor while viscus and bugs oozed out of its new face
 
 We raced down the road and were about halfway to the police station when my heart sank. Mindy was supposed to come over sometime after dinner. With only one good arm, I had Shaun use my cellphone to call Mindy, but it went to voicemail every time.
 
-I turned the car and put my foot to the floor until we were about a block away from the house. I could see Mindy's car in the driveway and I skidded the truck onto the front lawn, locked Shaun in the truck and I ran inside.
+I turned the car around and put my foot to the floor until we were about a block away from the house. I could see Mindy's car in the driveway and I skidded the truck onto the front lawn, locked Shaun in the truck and I ran inside.
 
 The house was dead quiet. So quiet, my own breathing was deafening and every squeaky floorboard felt like an atom bomb going off. I checked every room in the house until all I was left with was my bedroom. I put a hand on the knob, and slowly cracked the door just an inch open and was greeted with the most rancid odor I had ever smelled in my entire life.
 
@@ -44,12 +44,12 @@ I was now standing beside Mindy, and could see that something was carved into he
 
 *Gutless bitch*. I knew the words were meant for me. The carving was so deep, I could see the white of her skull.
 
-I stumbled back, slipping on a piece of intestine that had been carelessly discarded and rushed back outside to see Shaun. I hopped back into the truck with Shaun, and it dawned on me that in the whirlwind of chaos that had just happened, I hadn't even called the police yet. Almost worse, I didn't know what the fuck to tell them.
+I stumbled back, slipping on a piece of intestine that had been carelessly discarded and rushed back outside to see Shaun. I hopped back into the truck and it dawned on me that in the whirlwind of chaos that had just unfolded, I hadn't even called the police yet. Almost worse, I didn't know what the fuck to tell them.
 
 Me and Shaun have since moved, and I ended up telling the cops a deranged woman had broken in and chased us out before butchering my girlfriend when she got home. It was all true, they said my story checked out but they never found who killed her, rather, they never found my wife.
 
 We've traded the farm life for a nice safe apartment with very few hiding spots, and have been living modestly.
 
-But the reason I've decided to share all this is because this morning, Shaun ran up to me with his hands cupped.
+But the reason I've decided to share all this is because this morning, Shaun ran up to me, hands cupped.
 
 "Look dad!" He said before un-cupping his hands to reveal small, dark, rotten looking pebbles. "I found chicken teeth under my bed this morning!!".
