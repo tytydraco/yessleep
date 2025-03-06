@@ -1,4 +1,4 @@
-I’ve decided to throw it out. To try, at least. There’s no telling if it’ll work and honestly, I’m doubtful. But It’s what I would do if it was normal and hopefully it knows that.
+I’ve decided to throw it out. To try, at least. There’s no telling if it’ll work and honestly, I’m doubtful. But it’s what I would do if it was normal and hopefully it knows that.
 
 
 
@@ -50,7 +50,7 @@ The doll – Wendy – had gotten up from where I left her sitting on the edge o
 
 
 
-It was almost comical just how quickly I accepted that the doll was alive. We’ve all seen the movies where creepy dolls move to more and more contrived positions and then became openly antagonistic against their owners. I’ve always kept certain superstitions and beliefs that dipped or even fully submerged themselves into the occult, so it wasn’t that far of a reach that Wendy was cursed.
+It was almost comical just how quickly I accepted that the doll was alive. We’ve all seen the movies where creepy dolls move to more and more contrived positions and then become openly antagonistic against their owners. I’ve always kept certain superstitions and beliefs that dipped or even fully submerged themselves into the occult, so it wasn’t that far of a reach that Wendy was cursed.
 
 
 
