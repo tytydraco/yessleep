@@ -348,3 +348,4 @@ To tell the truth, I don't have any updates when it comes to her condition other
 
 I can't help but wonder about Deirdre’s premonitions, though. Maybe that bird is the one delivering them to [her.](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD) 
  
+Update: [Things got violent, but what else is new?](https://www.reddit.com/r/nosleep/s/wEISR16dsi)
