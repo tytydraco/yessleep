@@ -30,7 +30,7 @@ The thing sputtered on the floor while viscus and bugs oozed out of its new face
 
 We raced down the road and were about halfway to the police station when my heart sank. Mindy was supposed to come over sometime after dinner. With only one good arm, I had Shaun use my cellphone to call Mindy, but it went to voicemail every time.
 
-I turned the car around and put my foot to the floor until we were about a block away from the house. I could see Mindy's car in the driveway and I skidded the truck onto the front lawn, locked Shaun in the truck and I ran inside.
+I turned the car around and put my foot to the floor until we were about a block away from the house. I could see Mindy's car in the driveway and I skidded my truck onto the front lawn, locked Shaun in and I ran inside.
 
 The house was dead quiet. So quiet, my own breathing was deafening and every squeaky floorboard felt like an atom bomb going off. I checked every room in the house until all I was left with was my bedroom. I put a hand on the knob, and slowly cracked the door just an inch open and was greeted with the most rancid odor I had ever smelled in my entire life.
 
@@ -42,7 +42,7 @@ The tips of her ribs gleamed in the moonlight creeping in from the window. It sh
 
 I was now standing beside Mindy, and could see that something was carved into her forehead.
 
-*Gutless bitch*. I knew the words were meant for me. The carving was so deep, I could see the white of her skull.
+*Gutless bitch*. I knew the words were meant for me. The words were carved so deep, I could see the white of her skull.
 
 I stumbled back, slipping on a piece of intestine that had been carelessly discarded and rushed back outside to see Shaun. I hopped back into the truck and it dawned on me that in the whirlwind of chaos that had just unfolded, I hadn't even called the police yet. Almost worse, I didn't know what the fuck to tell them.
 

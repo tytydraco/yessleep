@@ -1,0 +1,29 @@
+I used to work part-time as a pizza delivery driver, and during a particularly rough patch in my life, I decided to take my anger out on the customers. On my deliveries, I would often steal a slice from one of the orders and snack on it while driving. This usually led to negative reviews on the restaurant’s website, which I found oddly satisfying to read. Somehow, nobody ever discovered I was the culprit, and I was able to continue my petty streak of mischief.
+
+One day, however, despite never passing up the chance for an on-the-go snack, no more negative reviews appeared on the website. In fact, my victims would only leave positive reviews from that point forward. I found this strange, but above all, it irritated me. More petty than ever, I decided to double down and began taking an extra slice each time, raising my “interest rate” to two slices. To my surprise, the reviews stayed positive and even increased in number, some even complimenting me specifically. It almost felt like I was being challenged, so I decided to accept that challenge.
+
+I increased my “interest rate” to three slices. Then four, then five, yet the positive reviews kept coming with no complaints in sight. Madness gradually took hold of me as I started delivering empty pizza boxes. Despite that, still nothing. The customers seemed happier than ever. I felt like I was losing grip on reality. I had taken this challenge head-on, but I found myself losing.
+
+I would not give up. No way. Something had chosen to oppose me and seemed increasingly eager to make me surrender. I was not going to. No chance.
+
+After delivering yet another empty pizza box, I decided to linger before getting back into my car. I snuck around the house and found a window with a clear view of the dinner table. I watched as the family sat down with the pizza box, and upon opening it, revealed a large cheese pizza, not missing even a crumb. A sick feeling stirred in my stomach. Still, I would not give in.
+
+I handed the next customer his empty pizza box, and before he could close the door on me, I stopped him with my foot. He looked at me, confused. Trembling, I asked him to open the pizza box. He hesitated, so I repeated my request sternly. He complied. My heart plummeted to my stomach, and a ringing began in my ears.
+
+ “Is this some kind of joke?” I asked the man, sweat dripping down my face, which had gone white as a ghost. Confused, if not a bit frightened, the man once again tried to close the door on me. I didn’t let him and I forced myself into his home. Reaching my boiling point, I did what started this all in the first place; I took my anger out on the customer. 
+
+I could hear nothing but my erratic breaths and the ringing in my ears. I looked down at my shaking hands. They were covered in blood. The blood that once resided within the man beneath me. For a moment I was struck with the reality of what I had done, but the thought of my opponent had quickly taken me out of that trance. I cleaned my hands in the man’s kitchen sink and fled the scene. I spent the rest of the night at home in the dark, staring at the restaurant’s website. I had a horrible feeling. Not because of my actions, but because I was almost certain this was far from over. And I was right to think that, as when I refreshed the page, he stared back at me. His smiling face. His toothy grin. His smug little face, clean from the blood I had beaten out of it earlier that night. His smug little face as he praised how pleasant his delivery driver had been. I was more determined than ever to destroy whatever it was that sat across from me on the other side of this game board.
+
+When I woke up the next morning, my attitude had changed completely. Despite the absurdity of it all, I decided to think it over rationally and came to the conclusion that my opponent might actually be an ally after all. This all began because I felt frustrated and needed some way to deal with that. I did so by stealing pizza slices from customers. When the negative repercussions ceased, I took this as a challenge instead of what it really was; a blessing. I ate entire pizzas, yet delivered those same pizzas to customers who would do nothing but praise me. I beat a man to death, who not long after went online to talk about how good of an employee I was. This thing, whatever it may be, did not challenge me. It rewarded my petty crimes with a twisted law of nature, which I have now come to understand as follows:
+
+*Within the bounds of a delivery, anything I take is kept by both me and the customer.*
+
+I took a slice, yet the customer still kept it. I took a whole pizza, yet the customer still kept it. I took a life, yet the customer still kept it. A law of nature was bestowed upon me, and I was too blind to make use of it. Not anymore.
+
+Since then, I never stopped eating customers’ pizzas. Despite this, I’ve received and kept the title of employee of the year time after time. My wealth has long surpassed anything mankind has previously seen, as robbing people of their money allows it to be duplicated. I have begun abducting people from their homes, letting me clone my customers and build my own civilization. Seizing ownership of people’s apartments adds another to the building’s halls, and taking over their homes allows my towers to rise from the earth.
+
+This is a letter from a king to his people. From a god to his creations. As you know, my domain now spans the entire planet and houses several billion of a population that should only count a few thousand. 
+
+“To think I considered you my enemy,” I said to my old friend as I sat with him and enjoyed a large slice of cheese pizza atop the highest peak on earth. 
+
+To you, reading this, praise be the king, praise be his friend, and praise be you, my child, for what’s yours is mine, and what’s mine is yours. Such is my law. 

@@ -176,9 +176,9 @@ There were two, for lack of a better word, sacs fixed on the inside of Camila. C
 
 Next, I ran my fingertips along the length of the right arm. Her shell was sturdy and firm, like thick plastic, save the underside of her wrist, which had more of a silky consistency.
 
-*Maybe the area served a ventilatory purpose. But then what about the watch?*
+*Why was this area different, and what did that have to do with the watch?*
 
-Leaving the closet, I locked the doors behind me and checked the timepiece that was still hanging at the base of the tap. When I placed the obsidian strap up to a light bulb, sure enough, it seemed to be equipt with thousands of tiny holes. Protective, porous metal, I theorized.
+Leaving the closet, I locked the doors behind me and checked the timepiece that was still hanging at the base of the tap. When I placed the obsidian strap up to a light bulb, it seemed to be equipt with thousands of tiny holes. Protective, porous metal with an unclear purpose.
 
 As I lingered in front of the sink, my detachment from the situation abruptly waned. Standing where she had only a few hours ago, the floodgate’s destruction was inevitable. I thought of her laugh, her smile, her empathy and her kindness, causing bitter tears to fall softly into the basin.
 
