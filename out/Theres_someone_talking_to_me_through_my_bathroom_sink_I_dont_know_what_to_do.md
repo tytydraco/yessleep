@@ -12,7 +12,7 @@ But I need someone to read this and help me. I need things to make sense.
 
 
 
-When I think about it, I suppose it makes sense why it didn’t worry me much at first.
+When I think about it, I suppose I understand why it didn’t worry me much at first.
 
 You see, since I was young, I remember having to constantly turn off the water when I was showering, just to make sure I wasn’t being called by my mom. More than that, I remember that quite often, when I got lost in shower thoughts, I’d get that sudden sinking feeling in my stomach, that tight, nauseating knot any kid from a failing marriage has, and for a very brief moment before I turned off the shower head, I swear I could always hear my parents in a yelling match.
 
