@@ -14,7 +14,7 @@ I looked up his paperwork. The address led to a warehouse in Tennessee, three st
 
 You might wonder why I checked. It’s not standard protocol. I don’t usually do this. But the events of the last few nights led me to my search.
 
-When he handed the paperwork back, he sat down again, dragging the dog with him like a sack of flour. He leaned against the wall, arms folded, eyes fixed ahead. He barely moved, like a corpse propped open. His dog didn’t move much either. Just sat there. Waiting.
+When he handed the paperwork back, he sat down again, dragging the dog with him like a sack of flour. He leaned against the wall, arms folded, eyes fixed ahead. He barely moved, like a corpse propped upright. His dog didn’t move much either. Just sat there. Waiting.
 
 We see a lot of characters here. Some genuinely kind folks, too. But this man? Something about him was wrong.
 
