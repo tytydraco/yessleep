@@ -287,8 +287,6 @@ Dr. Harkham shot me a sharp look. His white coat was streaked with blood. His ey
 
 He flicked blood from his fingers, dragged a sleeve across his face. He was years past burnout. A shell of his former self. He couldn’t see what I saw.
 
-He couldn’t see the way Mutt watched.
-
 He couldn’t see the way Mutt watched. The way his eyes lingered over the carnage pooling beneath my feet.
 
 Like he was enjoying it.
@@ -321,7 +319,11 @@ I dropped everything.
 
 A voice, thick and wet, slurred in a way no dog’s throat was built to produce. It wasn’t a bark. It wasn’t a growl.
 
-It was speech.
+It was trying to speak. And what came out wasn’t just a sound—it was a name.
+
+My name.
+
+Alison.
 
 I turned, stomach lurching.
 
@@ -349,11 +351,11 @@ I ran.
 
 I grabbed the blankets off the floor, shoved them into the laundry bin, and bolted. My hands shook as I crammed the lid shut. My pulse was a hammer in my ears.
 
-Don’t turn your back on it.
+*Don’t turn your back on it.*
 
 The memory of Keeton’s words crawled down my spine like a cold hand.
 
-Possessed by the devil.
+*Possessed by a demon.*
 
 I knew what Mutt had tried to do to Ryan. I knew what he wanted to do to me.
 
@@ -395,11 +397,7 @@ Just gone.
 
 The police had come by to inform us. They didn’t stay long. Didn’t need to.
 
-Ryan was gone.
-
-I knew then.
-
-It cemented in my mind what had to be done. I don’t know how. But I knew.
+I knew then. It cemented in my mind what had to be done. I don’t know how. But I knew.
 
 I didn’t wait. I worked through the grief, through the horror, pushing it all into a place I’d deal with later.
 
@@ -433,13 +431,13 @@ I could have killed a human with this much Euthasol.
 
 But he just sat there.
 
-I stared at him, heart pounding, my breath coming sharp. Normally, animals slump before the injection is even finished. Their bodies relax, their eyes go distant, the tension of life slipping from them like a sigh.
+I stared at him, heart pounding, my breath coming sharp. They usually pass away before the syringe  is even empty. Their bodies relax, their eyes go distant, the tension of life slipping from them like a sigh.
 
-Mutt didn’t slump.
+Mutt’s body stayed rigid, his breath steady. The drug should have shut him down immediately, but his muscles held, his head remained lifted, eyes locked onto mine.
 
-His body stayed rigid, his breath steady. The drug should have shut him down immediately, but his muscles held, his head remained lifted, eyes locked onto mine.
+A chill crawled up my spine. 
 
-A chill crawled up my spine.
+*This dog should be dead.*
 
 Then the hallway lights flickered.
 
