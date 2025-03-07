@@ -2,13 +2,13 @@ Isolation. Usually, either you die, or you thrive. For me, it did something enti
 
 The reason I took this job was twofold. Life seemed hell-bent on making me be alone. When I was 19, my mom passed away from a sudden heart attack. A couple years later, my dad died from a combination of a respiratory virus and heart failure. Then a year or so ago, I was involved in a head-on collision with a drunk driver. My wife Claire and son Jack were also in the car with me… They didn't make it… I gave in to the will of the. Universe and agreed that I should be alone. I used to play this Indie video game back in the day. It was pretty popular and it's what inspired me to take this job. The game was called Fire Watch. If you haven't played it, you definitely should. After everything was taken from me, it seemed only appropriate to seclude myself like the protagonist of that game. 
 
-My day typically begins with the sunrise. The tower has windows on all sides, so the light of the rising sun is pretty oppressive. I'll grab a bite to eat, usually just some buttered toast. I turn the radio up to hear what's been going on in the world without me. I snag my binoculars and do a quick 360 scan and check for sings of smoke. If I see smoke, I radio my boss and check if there's a sanctioned camper in that area, if yes, then I ignore it unless the smoke becomes too thick. If not, then I go check out the area. Usually it's just some kids who snuck out there to party. Then I read them the riot act about fire safety, tell them to get approval for their camping, and have them dispose of any illicit substances that they may or may not have with them. Then I return to the tower. Wash, rinse, and repeat. On my lunch break, I like to take a nature walk with a sandwich or something. Then I return to the tower and look for smoke and read until it's time to go to sleep. 
+My day typically begins with the sunrise. The tower has windows on all sides, so the light of the rising sun is pretty oppressive. I'll grab a bite to eat, usually just some buttered toast. I turn the radio up to hear what's been going on in the world without me. I snag my binoculars and do a quick 360 scan and check for signs of smoke. If I see smoke, I radio my boss and check if there's a sanctioned camper in that area, if yes, then I ignore it unless the smoke becomes too thick. If not, then I go check out the area. Usually it's just some kids who snuck out there to party. Then I read them the riot act about fire safety, tell them to get approval for their camping, and have them dispose of any illicit substances that they may or may not have with them. Then I return to the tower. Wash, rinse, and repeat. On my lunch break, I like to take a nature walk with a sandwich or something. Then I return to the tower and look for smoke and read until it's time to go to sleep. 
 
 I was stationed in a tower in one of the National Parks here in the UP. I was installed here in mid May to prepare for the fire season. There usually isn't the risk of a wild fire in these parts, but since the past couple years were unusually dry they were cracking down on unsanctioned campfires. The first few weeks were uneventful. Just a couple campfires that needed checking on. I put out a couple that had been left smoldering by the campers who had already packed up and left. The protocol for properly disposing of a campfire go…
 
 1) Drown the fire/coals in water. 
 
-2) Once the fire/coals we're sufficiently drenched, place an X over the pit with sticks or logs. 
+2) Once the fire/coals were sufficiently drenched, place an X over the pit with sticks or logs. 
 
 Although this is fairly simple, you'd be surprised at just how many people forget one or both of these steps. 
 
@@ -124,4 +124,5 @@ Behemoth: “No my child. They are no more.”
 
 I have nothing left in this world. It has done nothing but take and take from me. The end is nigh. Not just for me, but for you as well. Do not fight. Do not rebel. Behemoth is coming. He shall free us from this world. Embrace his freedom. Embrace the end.
 
+Click here for part one
 [Part 1](https://www.reddit.com/r/nosleep/s/QlU4jZP2vz)
