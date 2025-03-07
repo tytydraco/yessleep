@@ -6,7 +6,7 @@ He was dragging a massive black Rottweiler. The dog resisted, back paws sliding 
 
 The camera didn’t pick up sound, but later, the two gals at reception told me what he said:
 
-“He’s actin’ like he’s possessed.”
+“He’s actin’ possessed.”
 
 They handed him intake forms. He hobbled back to a bench, and I watched through the lens as another client—a woman holding a cat carrier—subtly slid a few seats away.
 
@@ -355,7 +355,7 @@ I grabbed the blankets off the floor, shoved them into the laundry bin, and bolt
 
 The memory of Keeton’s words crawled down my spine like a cold hand.
 
-*Possessed by a demon.*
+*He’s actin’ possessed.*
 
 I knew what Mutt had tried to do to Ryan. I knew what he wanted to do to me.
 
@@ -431,7 +431,7 @@ I could have killed a human with this much Euthasol.
 
 But he just sat there.
 
-I stared at him, heart pounding, my breath coming sharp. They usually pass away before the syringe  is even empty. Their bodies relax, their eyes go distant, the tension of life slipping from them like a sigh.
+I stared at him, heart pounding, my breath coming sharp. They usually pass away before the syringe is empty. Their bodies relax, their eyes go distant, the tension of life slipping from them like a sigh.
 
 Mutt’s body stayed rigid, his breath steady. The drug should have shut him down immediately, but his muscles held, his head remained lifted, eyes locked onto mine.
 
