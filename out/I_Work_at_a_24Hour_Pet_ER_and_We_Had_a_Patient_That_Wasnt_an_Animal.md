@@ -80,15 +80,15 @@ That night was quiet. Rare for an emergency hospital. We had another dog kennele
 
 Two hours later, I checked on it.
 
-And it was dead.
+And the cattle dog was dead.
 
 It had torn open its own incision. Somehow, it had gotten its cone off. And it had attacked itself. Not licking, not nibbling—mutilating.
 
-Even when coils of intestine unfurled from its abdomen, it kept biting at those guts. Like they were coiled snakes and he was killing them.
+Even when coils of intestine unfurled from its abdomen, it had kept biting at those guts. Like they were coiled snakes and he was killing them.
 
-The dog was slouched over. Head limp against the floor. The blood sank in bright ribbons, moving toward the kennel drain behind him, which slurped up the blood greedily.
+The dog was slouched over. Head limp against the floor. The blood ran in bright ribbons, swirling toward the kennel drain behind him, which slurped up the blood greedily.
 
-The kennel was a bloodbath. Blood streaked the walls, spattered the ceiling. His intestines had leaked bile and partially digested sludge.
+The kennel was a bloodbath. It streaked the walls, spattered the ceiling. His intestines had leaked bile and partially digested sludge.
 
 The cattle dog’s eyes were vacant orbs. Glistening in the light. I stood still for a moment. Taking in the horror. The violence.
 

@@ -1,7 +1,7 @@
 
 Humanity has always looked towards the stars for guidance. Since the moment our lungs could draw breath, we’ve deciphered meaning from the cosmos. Time, agriculture, mathematics, social identity, religion; they all have roots within the night sky. Rivers and tributaries that carved their own unique path through this world, but their tides lead back to the same centralized body of water. You just have to walk back up the riverside far enough to see where they connect.
 
-Because of that fact, I’ll forgive you if you are someone who equates *the celestial* with *the divine*. I mean, that association is a goddamned cultural infestation. Most religions believe God lives in the sky. Many staunch atheists trust in the mysterious power of the zodiac. Even the scientifically inclined among us believe the explanation to existence is hidden somewhere within the black depths of space.
+Because of that fact, I’ll forgive you if you are someone who equates *the celestial* with *the divine*. I mean, that association is a goddamned cultural infestation. Most religions believe God lives in the sky. Many staunch atheists trust in the mysterious power of the zodiac. Even the scientifically inclined among us believe the explanation to existence is hidden somewhere within the hollow depths of space.
 
 I used to be one of those scientists, actually, and that brings me to the point of this post. Partially, it’s a message; I need to speak to someone, and I know they'll read this. Mostly, though, consider these words to be my solemn, heartfelt confession.
 
@@ -37,7 +37,7 @@ One unassuming night, I followed Nathanial’s voice. When I did, my eyes landed
 
 Gemini.
 
-As it all clicked in my head, I finally heard what my son was *actually* trying to say. And this time, it wasn’t a gentle whisper slithering into my ear from the great beyond. It was blood-freezing wail projected from the blackest pits of hell.
+As it all clicked in my head, I finally heard what my son was *actually* trying to say. And that time, it wasn’t a gentle whisper slithering into my ear from the great beyond. It was blood-freezing wail projected from the blackest pits of hell.
 
 ***”Look Away.”***
 
@@ -51,7 +51,7 @@ By the next morning, I had created the first printed circuit board ([see here fo
 
 I hadn’t invented anything; I just transcribed its profane message when the time was right.
 
-Once I had submitted my design to the patent office, Sallow was done with me. My role was to be a catalyst and nothing more. I released the contagion. From there, the pandemic was slow but inevitable.
+Once I had submitted my design to the patent office, Sallow was done with me. My role was to be a catalyst and nothing more. I released the contagion. From there, the pandemic was slow but inevitable. With my circuit board as the foundation, technology was able to advance exponentially.
 
 And since Pale Death had no more use for my mind, they did not feel compelled to spend their energy protecting it from the onslaught.
 
@@ -79,7 +79,7 @@ When it landed on my corpse, I *molted*, and I know how that sounds. There’s j
 
 I don’t know what exactly kept me here. Not yet, at least. I have a guess, but that’s an explanation for another day.
 
-For now, I need to pause my story. It wouldn’t be smart of me to reveal my full hand all at once. Primarily, I’m using this post to get someone’s attention.
+For now, I need to pause my story. It wouldn’t be smart of me to reveal my full hand all at once. Like I mentioned, I’m using this post to get someone’s attention, and I don’t want to give them a leg up by having loose lips.
 
 Avery, I know you’re reading this.
 
