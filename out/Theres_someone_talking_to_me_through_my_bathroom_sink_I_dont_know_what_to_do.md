@@ -111,7 +111,7 @@ For some reason, despite myself, I still reached out to open that cabinet door.
 
 The woman inside was naked, but her whole figured was shrouded by her own thick, overgrown brown hair.
 
-Her body was painfully contorted and crumbled to an impossibly small frame, barely fitting her enclosure, but still shoved deep inside the cabinet. Her knees covered her chest, arms broken and bent to fit by her sides, the white bone poking out the dead flesh at her joints.
+Her body was painfully contorted and crumpled to an impossibly small frame, barely fitting her enclosure, but still shoved deep inside the cabinet. Her knees covered her chest, arms broken and bent to fit by her sides, the white bone poking out the dead flesh at her joints.
 
 I couldn’t see her face. Her head was thrown back, face smushed against the cabinet’s ceiling; her mouth would’ve been directly connecter to the drain pipe in that position.
 
