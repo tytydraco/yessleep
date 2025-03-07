@@ -24,3 +24,5 @@ That day the world changed, not how you might think it would change after a nucl
 It’s been three days now and I still haven't seen the sun. I'm holed up in an old firework warehouse. The computers and internet still work, but at night, when the sirens are the loudest; I hear howls, as if… something… someone... wants the sirens to stop as bad as I do. I sit here with nothing but the computer screen to give off light. I’m hungry, thirsty, and tired. Most of all though, I want to find Aubrey, and Macey. I write to you all in an attempt to understand my situation.
 
 Was anywhere else as devastated as this? Is anyone on the internet still? Am I the only one still alive? Have you seen the things that Howl?
+
+[Part II](https://www.reddit.com/r/nosleep/s/bPFHvM4VxJ)
