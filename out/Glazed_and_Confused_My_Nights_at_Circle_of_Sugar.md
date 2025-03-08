@@ -1,6 +1,10 @@
-It's morning now as I type this out. I am trying to beat the sun and get into bed before the first rays of dawn slither through my blinds and confuse my circadian rhythm. The curse of night shift. My nights typically start at nine pm and end by about five in the morning. Always dependent on how sloppy the shift went. Last night was one of those nights. Our patrons I deliver to found out it was my last week and were none to happy to hear about it.  I work for a donut shop, circle of sugar donuts to be exact. Best coffee and maple bars in the county. We even put bacon on some of the maple bars. Our bakers really love to experiment and its one of the reasons we have been in business for so long. My personal favorite is our brown butter cinnamon glazed rings. Those things sell out fast. Don't even get me started about our coffee, but I digress.
+ 
 
-Circle of sugar is an great place to work don't get me wrong. I really have enjoyed my time here but I just have to follow my dreams. I will be going to film school next semester in a state far away from this place. I just felt like telling people about the reality of what is going on up here is something I had to do. I am leaving out the specific locations for everyone's safety. I don't want some savvy reddit detectives opening a door their not necessarily prepared to close. Though in all reality if someone dug deep enough they could figure out where the delivery route leads.
+It's morning now as I type this out. I am trying to beat the sun and get into bed before the first rays of dawn slither through my blinds and confuse my circadian rhythm. The curse of night shift. My nights typically start at nine pm and end by about five in the morning. Always dependent on how sloppy the shift went. Last night was one of those nights. Our patrons I deliver to found out it was my last week and were none to happy to hear about it. A few of there reactions make me incredibly nervous for my next shift. I will have to bring another set of clothes or maybe ask Frank if I can take some extra aprons and towels, better yet an extra bottle of blessed oil, and some sigils to pin to my clothes, maybe a quirt gun with florida water steeped with wolfsbane. Or better yet a flamethrower based off how Jim reacted to me breaking the news. They all scare me but Jim, he is dangerous. Like reality shifting, perma-nightmare molecular torture for all eternity kind of dangerous. Why was he so mad? Charlene told me they wouldn't be happy. I mean every night is borderline deadly but I really didn't think it would get this bad. I don't think whatever these stains are will ever wash out. I will probably just need to burn this shirt, I cant risk another wardrobe possession and have to awkwardly explain to my landlord why my dirty work clothes are running around trying eat the other tenants, again. Sorry I'm rambling.
+
+I work for a donut shop, circle of sugar donuts to be exact. Best coffee and maple bars in the county. We even put bacon on some of the maple bars. Our bakers really love to experiment and its one of the reasons we have been in business for so long. My personal favorite is our brown butter cinnamon glazed rings. Those things sell out fast. Don't even get me started about our coffee, but I digress.
+
+Circle of sugar is an great place to work don't get me wrong. I really have enjoyed my time here but I just have to follow my dreams. I will be going to film school next semester in state far away from this place. I just felt like telling people about the reality of what is going on up here is something I had to do. I am leaving out the specific locations for everyone's safety. I don't want some savvy reddit detectives opening a door their not necessarily prepared to close. Though in all reality if someone dug deep enough they could figure out where the delivery route leads.
 
 I suppose I should start from the beginning to paint a better picture. This was one of those jobs where you heard about it through a friend of a friend. They never placed ads for the position. I learned this was because they wanted someone who could directly vouch for the person applying. The interview was definitely one of the strangest I had ever been through. I showed up early in my best outfit and was greeted by the barista. She had me take a seat and offered me a free which I gratefully took. The front of the store was your typical donut shop. Bright pink boxes, shining polished display glass holding an array of sugared jewels of all shapes and sizes. A tip jar full to the brim. Bright eyed teenagers helping customers who lined out the door. Busy place, a good sign that I had chosen a decent place to work.
 
@@ -12,7 +16,7 @@ I suppose I should start from the beginning to paint a better picture. This was 
 
 I shook his immense calloused hand trying and failing to match his grip.
 
-The hallway was the first indicator of how strange this job was going to get. Various symbols were painted along the walls in a red color that looked like rust. Circles in circles with zigzag patters and what looked like Hebrew written along the outer rings. Dolls made of flowers and bones hung from certain parts of the ceiling. We passed an opening to the kitchen where several bakers stood around a table working a pile of dough all looking up at me as I passed. I swore the dough looked like it was moving around at first glance.
+The hallway was the first indicator of how strange this job was going to get. Various symbols were painted along the walls in a red color that looked like rust. Circles in circles with zigzag patters and what looked like Hebrew written along the outer rings. Dolls made of flowers and bones hung from certain parts of the ceiling. We passed an opening to the kitchen where several bakers stood around a table chanting working a pile of dough. I swore the dough looked like it was moving around at first glance. 
 
 "Right in here Bill."
 
@@ -38,7 +42,7 @@ Frank stared at me smiling for an uncomfortable amount of time. I started to thi
 
 After a time he relaxed and said "Excellent, OK good, you can just toss that down."
 
-"I'm sorry but that *was* actually all a test and you passed. We can move onto the second part of the interview your doing great Bill."
+"I'm sorry but that was actually all a test and you passed. We can move onto the second part of the interview your doing great Bill."
 
 I sheepishly dropped the salt and wiped my hands together to get the rest off.
 
@@ -70,7 +74,7 @@ I sat under the weight of what he had just said. I didn't feel as though he were
 
 Frank grinned ear to ear reaching out his massive hand. We shook and hammered out the details for when exactly I would start.
 
-Frank explained "I will be the one to train you on the routes and our head baker Charlene will train you on the baking and prep."
+ Frank explained "I will be the one to train you on the routes and our head baker Charlene will train me on the baking and prep."
 
 "Can you explain more about the whole shadowy organization menu thing, I mean that is a lot right?"
 

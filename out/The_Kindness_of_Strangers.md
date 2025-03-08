@@ -154,4 +154,4 @@ Mira and Zef stood at the foot of the stairs, but they weren't the kindly old co
 
 I ran. Somehow, I made it out the door and into the woods. I could hear them coming after me, their movements unnaturally fast and fluid, like smoke drifting between the trees. I ran until my lungs were bursting, then hid in a hollow log, praying they wouldn't find me.
 
-I must have passed out from sheer terror and exhaustion because the next thing I knew, I was back in the farmhouse. But not in our room – in the cellar. It's dark down here, and it smells like decay and something copp
+I must have passed out from sheer terror and exhaustion because the next thing I knew, I was back in the farmhouse. But not in our room – in the cellar. It's dark down here, and it smells like decay (to be cont.)
