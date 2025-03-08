@@ -26,7 +26,7 @@ We got a new name, logo, and some people were added to the company board. Locals
 
 I worked with Hatchet for a number of small projects over the years. Mostly related to their early advances in AI, but also more experimental projects. Imaging systems that could be used in the dark, remotely charged static electronics, all kinds of weird and imaginative experiments. Most of it could be frustrating, but it was incredibly interesting. Some of the most engaging work I’ve ever had.
 
-I was eventually assigned to a project lovingly called “Poludnitsa”. I think they called it that because they thought it’d drive us mad someday. It was meant to be a far-fetched “maybe it can’t be done” kind of project with an impossible goal. It was meant to be a surveillance system where we could identify a person to a high degree of accuracy without using blood, DNA, or facial recognition. That was the pitch.
+I was eventually assigned to a project lovingly called “Polednice”. I think they called it that because they thought it’d drive us mad someday. It was meant to be a far-fetched “maybe it can’t be done” kind of project with an impossible goal. It was meant to be a surveillance system where we could identify a person to a high degree of accuracy without using blood, DNA, or facial recognition. That was the pitch.
 
 We experimented a bit with phone tracking software, but that wasn’t accurate enough; phones could be switched or exchanged. We needed something that tracked the *person*, not their hardware. But it couldn’t be invasive.
 
@@ -56,7 +56,7 @@ So we tried it. We cranked it up, and we tried a bone scan. Something beneath th
 
 I’ll never forget that moment. Our entire team leaning over a screen as the image rendered. Suddenly, a hum, followed by a crystal-clear image of Bohdan’s skeleton as he returned from the bathroom. People were hugging and cheering like we’d landed on the moon. I think Jitka actually kissed Bohdan.
 
- This changed the scope of our project from “maybe it can’t be done” to “we got something to show”. It was incredibly exciting, and we got an immediate 30% bump to our project financing. We brought in an osteopathic doctor from Spain, a senior hardware engineer, and a telecom specialist. We were no longer working on the Poludnitsa; this was the osteohaptic signal imager system. Or as we lovingly called it, the Rattler.
+ This changed the scope of our project from “maybe it can’t be done” to “we got something to show”. It was incredibly exciting, and we got an immediate 30% bump to our project financing. We brought in an osteopathic doctor from Spain, a senior hardware engineer, and a telecom specialist. We were no longer working on the Polednice; this was the osteohaptic signal imager system. Or as we lovingly called it, the Rattler.
 
 See, the reason this works so well is that the skeleton effectively “rattles” as the waves pass through at just the right frequency. It’s like a wind chime. Whoever gets scanned suffers no adverse effects, but on repeated exposure they might experience a mild sensation. It passes quickly and feels no stranger than a sense of déjà vu. A couple of people exposed to it during sleep described it as a bump in the night.
 
