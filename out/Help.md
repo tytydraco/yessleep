@@ -1,21 +1,183 @@
-Help.
+We all make mistakes. We all do. Everyone makes mistakes. And we all have one that haunt us.
 
-So, I have a cursed necklace. No for real, this is a good community to possibly find some info, but my necklace requires blood for luck. If I do not give it the sacrifice it wants, it takes what it wants by chance.
+The big one.
 
- Maybe I should describe the necklace. It's a black pearl necklace, tied with hair. Some of the pearls have been replaced with fakes, but I have had most of them verified as genuine black pearls by a jeweler. The hair fact I found out there as well.
+Do you want to know mine?
 
- The first time I thought it was cursed was when I wore it, and that day someone tried to fight me, I wound up talking my way out of it, but when I got on the bus I was waiting on I noticed the necklace was nearly burning hot. This was in the middle of winter, and while Arizona may not get that cold, it was still 55 degrees Fahrenheit, not enough for the necklace to be as hot as a sauna stone.
+Going to the grocery store.
 
-Well the second time it tried to warn me, I had found out what it feeds on, and that's self sacrifice. I had fed it the blood it wanted, and had been having amazing luck. I got a girls number, I got 3 free disposable vapes because of a delivery fluke at the smoke shop I buy them from, and I even had gotten an offer to have my cats fixed FOR ME. All in three days after feeding it. 
+Around a year ago I was moving into a new town. It was bit further out in the country but I liked it.
 
-On the fourth day though, I wound up cutting my hand really bad while cleaning a refrigerator out, yeah, stupid. Well I had gone to the bathroom, I got blood everywhere cause it was a clean enough cut I didn't notice until it was dripping down my hand. When I took off the necklace to shower that night, I saw I had caked some of the pearls in blood somehow.
+It was a new start, a new beginning and the air was much better than where I was before.
 
-I left the necklace sitting on my sink side for a couple days after that. I figured it was coincidence I was wearing it at the time. Then came the third time it was not happy with my sacrifice. I had fed it, at the cost of my own blood, and been wearing it for 3 days. I had good luck again, I got a dog for free, I got a buy one get one deal just in time to afford the one, and it was a one day sale (on weed from the dispensary lol) and I was having some decent luck training the dog I just got, although that might be attributed to the dog himself. 
+I barely got all the furniture through the door when I got a flyer slipped in the door flap. Yellow, plain, with black, funky text.
 
-Well, come day four again, and I was hammering in a post at my house. Long story short, and to spare the horrible details, I smashed my middle finger on my right hand so bad it needed to be amputated. And just before the emergency surgery I remember taking the necklace off with help from a nurse. I remember that it was burning hot again, hot enough the nurse even commented about it briefly. I have not worn the necklace since, and that was 3 and a half months ago.
+"Come to the GRAND opening of Hometown Harvest Market! A family owned store, on \[REDACTED\] street, with all the essentials for YOUR home!!"
 
-However, that's not why I need help. I can feel the necklace calling to me from it's box I keep it in. I can feel it's hunger every time I make eye contact with the box. I've woken up twice in the last month with it on, and no memory of putting it on myself. I can't stop thinking of hungry it is, how it craves more of my life's literal blood. When I touch it, I wind up blacking out for a moment, and when I come to I'm either holding it and staring, or it's lying next to me, touching my skin somehow.
+I was a bit confused because it was shockingly close to where I lived. I guess I missed it. I couldn't help but feel an odd sense of...kinship with a grocery store of all things.
 
- I've tried getting rid of it, and when I have it winds up back in my possession. I threw it in a dumpster, box and all. Next morning my feet had cuts and scrapes and the box was open on my nightstand. Necklace dangling from the open corners like a designer catalogue photo. I had to get antibiotics for my feet, cause apparently I jumped into the dumpster bare foot, and asleep.
+It was new on the block, just like me, and was looking for a place in an already set community, just waiting for someone to come visit.
 
-Please, anyone with a little knowledge on cursed objects, or how to contain, destroy, or cure them, please let me know what I can do. I can't stand this anymore, it's driving me crazy feeling like I'm losing my mind, but I'm even more scared of what the necklace will make me do in those blackouts.
+God, I sound insane. What's changed really?
+
+I decided to go the next day.
+
+I needed eggs and some other things anyways, plus, I was supporting a small business. I could introduce myself, maybe get friendly with the owners, congratulate them on the new store. It was near by, I could get some steps in too. God knows I needed them.
+
+It was perfect.
+
+I have never regretted something more in my entire life.
+
+The store itself was...nice. It certainly didn't look super new but the banners and balloons said otherwise. It was a simple establishment, a bit bigger than expected but it had a homely, friendly feel, calling you in for a chat and a cup of tea.
+
+I walked in through those retro looking doors doors and heard a little ring from the bell. The cashier turned her head at neck-breaking speeds to look at me.
+
+A smile.
+
+A smile, it was definitely a smile but...it wasn't real. Something was off, like someone who didn't actually know what smiling was trying to copy the movements.
+
+After a second of awkward silence she opened her mouth to speak.
+
+"Welcome to Hometown Harvest Market! We are so glad you came for our grand opening! Let me know if you need anything!"
+
+Her tone was a little flat too. God, this lady was giving me the creeps.
+
+I nodded and smiled back, a little unnerved but hey, who was I to judge if someone smiled funny.
+
+And I started shopping. I had a list but the prices were so low I ditched the whole thing to just grab things I wanted. I guess it was because everything was off brand, which I never really minded. The brands were....strange, the packaging too but If I was getting cheap food, I was okay with ignoring that they hired a shitty graphic designer.
+
+There were't any other people either, which (especially in retrospect), I thought was weird but brushed it off. It was the first day. It was a Thursday. Not many people were going to be  shopping on a Thursday morning.
+
+The only people I saw at first were the staff. And they were all as...wrong as the cashier. Movements that were too stiff and too fluid at the same time. And I swear that one of them had blue eyes that turned brown mid way through his little:  "Do you need any help sir?" speech.
+
+I kept shopping and I started to realise that this place was...huge. It seemed to go on forever. I had been walking around for so long I could barely understand how it was possible for a store like this to go on for so long. And then I spotted a little hallway. It was a little out of place so I walked over to investigate.
+
+Was that dumb? Yes. But I just wanted to know how big this damn place was.
+
+Behind was.....a department store. A completely different store with bags, shoes, and racks upon racks of trendy clothing that made my wallet hide in shame.
+
+This wasn't possible, not in anyway since this store was a stand alone.
+
+And standing near a rack of clothes was a man with wavy dark brown. He turned around, a look of pure exhaustion on his face.
+
+I tried my best to crack a smile but I'm sure it looked all crooked and wrong as usual.
+
+We blinked at each other for a few seconds before his face lit up with manic joy.
+
+"Y-you're real! Oh my god, you're real!"
+
+I backed up. I was confused about this store but not enough to want to interact with a seemingly insane person.
+
+His face dropped.
+
+"PLEASE NO, DON'T LEAVE,TRUST ME, YOU DON'T-"
+
+I slammed the door shut as I turned around to see several members of the staff standing near me.
+
+Smiling that oh so wrong smile.
+
+"Sir, that space is off limits. Please follow me to the checkout."
+
+Great. I was being kicked out of the seemingly infinite store with the wacko employees.
+
+They.....**all** followed me, still smiling. And the way they walked, God it was wrong. Everything about them was wrong. And none of them even looked alike, family business my ass.
+
+At checkout they scanned all my stuff and the little total screen lit up.
+
+"Please insert **WHAT MAKES YOU HUMAN**"
+
+I stared at the screen. And as I tried to comprehend what was going on, I wanted to rip my face off. This whole place was off and all this did was confirm that being here was a giant mistake. It was just my luck that I manage to ruin a perfectly normal day by walking into the grocery store from hell. I should have known Walmart was a better option...
+
+I looked at the screen in silence for a few more seconds before speaking. After all, I could ignore infinite rows of cereal with wacky names but this was...very, very hard to explain away.
+
+"Hey uh, I think your machine is uh..broken?"
+
+She smiled a little more, if that was even possible.
+
+"The screen is perfectly fine Sir. Please make your payment."
+
+At this point I knew I needed to leave. Call the cops maybe. God, the poor man I just ignored. This place was wrong, maybe a centre for human trafficking, a centre for the cartel or something.
+
+I smiled at her awkwardly for a second before bolting to the door, praying that years of running track in high school would save me. Coach, I'm so sorry I didn't try harder.
+
+It was...locked. The sky was a bright flaming red and the trees all a shade of this awful, disgusting purple.
+
+And when I turned around, they were all standing there..twitching. Like they were glitching. Their faces morphed through 20 different ones and every movement was....wrong.
+
+"Sir you can't leave without paying! I'd get fired, ah ha ha!"
+
+They said it in unison but that wasn't the creepiest part. It sounded like fifty people talking, not the five standing in front of me.
+
+"LET ME OUT ARE YOU INSANE? I DIDN'T EVEN TAKE ANYTHING, YOU NEED TO LET ME GO!"
+
+"That's simply not possible Sir. I asked for such a small, small thing : for you to pay for you groceries. You simply can't leave without paying. "
+
+"What makes me human, what does that even mean, I don't-"
+
+I was blubbering like I was five years old again, brimming with fear , trying to accept that I was going to die here, at the hands of these unnatural, psychotic...things.
+
+To think I survived everything, after what the world had done to me and what I had done to myself, only to die like this, alone, afraid.
+
+I knew life wasn't worth holding on to for so long and here was proof. I blinked and then...
+
+And then they were gone.
+
+Just..gone. I was left alone in an empty store. But it was warping almost. And on every screen, a message was written in the same funky text that drew me in here :
+
+"**GIVE US WHAT MAKES YOU HUMAN, EARN YOU FREEDOM! WHAT A STEAL!**"
+
+I looked at it and....I just started crying. A grown ass man, on the cold checkered floor, sobbing like a child.
+
+I wondered what the hell I did to end up in this position. Want some fucking eggs for breakfast?
+
+After ten, fifteen, God knows how many minutes I got up and made my way to the hallway at the back. Every aisle was different now but the hallway was there, after a walk that was somehow shorter that before. Just another thing about this place I couldn't wrap my head around.
+
+I opened the door again to see the man still standing there, the same exact expression of panic on his features, still screaming.
+
+"-UNDERSTAND, PLEASE STAY, THEY WON'T LET YOU LEAVE EITHER WAY!"
+
+He saw me and laughed in a way that sounded more like crying.
+
+"Oh my god, you're still here, oh god, I thought you were going to leave!"
+
+I was about to close the door again, wondering if my chances were better off with the grocery store or a person who seemed to be off his rocker. But I decided to ask a question or two before booking.
+
+"...I did leave. What do you know about this place?"
+
+He looked confused before asking,
+
+"Left? You just closed the door for a second and opened it again?"
+
+I stared at him, throughly taken aback. I also noted that he had an accent. He probably wasn't from around here.
+
+"...No dude, I left for a good 30 minutes.."
+
+He laughed again, a lot gentler than before and seemed to be more composed than before.
+
+"Ah, sorry mate, it's just the look on your face....but as far as I know, you basically just opened and closed the door. I don't know why this even surprises me anymore. I guess this place messes with time as well."
+
+I relaxed a bit. I guess he wasn't insane. Or maybe he was. But he seemed to know a few things and didn't seem like he was going to jump me. I finally took a step forward.
+
+"Huh. Okay I suppose. What do you know about this place? You seem to know more than me."
+
+He sighed.
+
+"Hello to you too! My name's Ronan, thanks for asking!"
+
+I stared at him for a second and chuckled. Which considering our situation was...unusual. The joke wasn't even funny after all (sorry dude).
+
+Here we were, stuck here and this dude was making shitty jokes. Maybe it was the shock, maybe it was his delivery but it lifted the mood ever so slightly.
+
+"Sorry man, my name's Jackson. But seriously, what do you know about this place? We can try getting out together if you want."
+
+His smile faltered.
+
+"I don't think there IS a way out of here mate. I've been here a while and I've never found a way out."
+
+"How long?"
+
+"Long enough"
+
+I stayed quite for a second
+
+"So, are there any other...stores around here?"
