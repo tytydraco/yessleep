@@ -236,7 +236,7 @@ Tearing apart the living room had been the only way to express his anguish as he
 
 I don’t know how many times Kevin pushed the button to make him vomit blood. 
 
-But I had an extra $600,000 [in my back account that day](https://www.facebook.com/P-F-McGrail-181784199029462/).
+But I had an extra $600,000 [in my bank account that day](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
