@@ -1,0 +1,17 @@
+I have always been a very lonely man, I spend most of my time in my head, analyzing situations, dreaming of fictional scenarios, talking to myself when my company is the only refuge I find in solitude.
+
+Lately the days are grayer, the flavors less intense and the noise of the world increasingly overwhelming, everything around me seems like a simulation, the behavior of individuals seems predictable and sometimes disgusting, although in brief moments I find relief in some who show their kind side, who are capable of feeling something for others.
+
+In winter times, the nights are hard, after releasing the sadness accumulated in my body in the form of tears, I proceed to let tiredness take control of me and I fall asleep waiting for that momentary escape that gives me relief.
+
+Suddenly, I feel someone approaching, my body begins to tense, I open my eyes and there she is standing in front of me, I can see her pale complexion, her grey eyes staring at me, her long black hair moving slightly in the cold breeze.
+
+I feel the temptation to come closer, but my body doesn't seem to respond, it just stays still, but suddenly I feel her presence closer, I feel her face getting closer to mine, her cold hand taking mine and whispering words in my ear that I don't understand, but that bring me enormous peace, then I see her face and notice a warm smile as she slowly walks away in the darkness of what seems to be a dark forest.
+
+Then I feel like I'm going to fall off a cliff, a feeling of fear invades me and suddenly I'm back in my bed, I take my cell phone and although the light from the screen is blinding, I can see that it's 3:00 am, it's still very cold and my heart is racing, although I try to go back to sleep, I just stay awake until the light of the new day appears.
+
+The days go by and everything seems more blurry, the empty conversations with my companions don't seem to have any effect on me, the only thing I think about is her, when I'll be able to see her again, when I'll be able to hear her voice whispering those mysterious words that make me feel alive even for an instant.
+
+After a while I start to despair, she has abandoned me like the rest, although my last thought before falling asleep is of her, she doesn't come back, I can't find her in my dreams anymore, so I simply resign myself and continue living in my usual misery.
+
+Today is a cloudy morning, it's windy and I'm walking through the city, suddenly I stop next to an establishment that has large windows in which I can see my reflection, I look straight into my eyes and I can only perceive a sad look, a hunched and deteriorated body, with visible scars, I would like to continue on my way, but for some reason, the man I see in the reflection does not stop looking at me, it is as if he keeps me static with his fixed gaze, as if he wanted to tell me something and could not, it is at that moment when I feel a light icy breeze caress my face, when the noise completely dies down and immediately after I hear the whispers of that woman, I feel an overwhelming peace and it seems as if my soul left my body, I feel her cold hand take mine again, I can see the forest again only now it is vibrant, it is daytime and I feel a warmth that I had forgotten I could feel, the landscape is beautiful, and there she is waiting for me with her gray eyes fixed on me, with a slight smile on her face, I slowly approach her and together we enter the forest until we disappear.
