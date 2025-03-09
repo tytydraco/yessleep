@@ -74,7 +74,7 @@ In spite of that sensation, I was transfixed.
 
 I creeped over to the idol, on my tiptoes as if I didn’t want it to hear me approach, phone still in hand. It was remained inexplicably hot to the touch as I picked it up. For a moment, I regretted signing for the ominous delivery. At the same time, what was I supposed to do? Reject my father’s ashes? Even though we were estranged, that just felt wrong.
 
-As I better inspected the urn, though, my regret only became more intense.
+As I better inspected the urn, though, my regret only became more acute.
 
 First off, there was no lid or cap to the damn thing. I assumed there would be a cork on the bottom or something, but that surface was just as smooth as the rest of it. So how did the ashes get inside?
 
@@ -90,7 +90,7 @@ I slowly lifted the phone back to my ear.
 
 *”You still there, Vic?”* I asked, whispering.
 
-*”Yeah, Jesus, I’m still here. Where’d you go? I was totally kidding before Alice, you know that. I do really need that money though, made some bad gambles recently…”*
+*”Yeah, Jesus, I’m still here. Where’d you go? I was totally kidding before Alice, you know that. I do really need that money though, made some shitty bets…”*
 
 Cutting her off before the inevitable tangent, I whispered another question.
 
@@ -258,7 +258,7 @@ Here’s what the message said:
 
 *Please call \[xxx-xxx-xxxx\]. I look forward to four of us spending time together.*
 
-*Love,*
+*Happy Birthday,*
 
 *Dad”*
 
