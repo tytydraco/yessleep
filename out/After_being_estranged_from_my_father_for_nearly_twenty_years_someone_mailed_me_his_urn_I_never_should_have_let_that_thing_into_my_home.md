@@ -36,7 +36,7 @@ Once he had sped away, the car’s sputtering engine finally fading into nothing
 
 That silence made what Davey said next exceptionally odd.
 
-“Ahh! Mommy, it’s too loud. It’s really too loud,” he proclaimed, dropping the umbrella to the floor, pacing away from the screen door with his hands cupped over his ears.
+*”Ahh! Mommy, it’s too loud. It’s really too loud,”* he proclaimed, dropping the umbrella to the floor, pacing away from the screen door with his hands cupped over his ears.
 
 I spun around, red effigy still radiating warmth in my palm, listening intently, searching for the noise my son was complaining about.
 
