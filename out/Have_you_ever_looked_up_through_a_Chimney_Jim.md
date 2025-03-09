@@ -40,6 +40,14 @@ I just walked away, up the stairs, into our bedroom, and closed the door. Took m
 
 All the while, Doreen kept asking that singular question. Screaming the words so loud that I could hear her from where I was.
 
+**Truth be told, I was starting to see him, too. Unlike my wife, though, I had been suppressing his reemergence.** 
+
+**When I saw Junior in the dark corners of the room, down dimly lit hallways, looking up at me through the creaks in the floorboards, I forced myself to pretend that I was mistaken; caught in the grips of an optical illusion manifested by profound grief.** 
+
+**My wife, on the other hand, embraced what she saw with open arms.**
+
+**And because of that, I'm now alone.** 
+
 \-----
 
 In the weeks after his passing, Doreen was practically catatonic. I think it was the nature of Junior’s death that utterly preoccupied her. I understand why - it preoccupied me too. No one could tell us how he died. The medical examiner blamed his heart, but that’s because he couldn’t find anything else on the autopsy. Other than a few strangely shaped scars that we didn't have an explanation for, Junior was perfectly unremarkable.
