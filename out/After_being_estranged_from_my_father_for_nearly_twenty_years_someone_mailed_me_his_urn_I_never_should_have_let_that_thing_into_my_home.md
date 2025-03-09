@@ -70,7 +70,7 @@ Despite harboring my father’s ashes inside its waxen confines, the figure sort
 
 Gazing at it so intensely eventually caused a massive shiver to explode down the length of my spine; clunky but forceful, like a rockslide.
 
-In spite of that sensation, I was still transfixed.
+In spite of that sensation, I was transfixed.
 
 I creeped over to the idol, on my tiptoes as if I didn’t want it to hear me approach, phone still in hand. It was remained inexplicably hot to the touch as I picked it up. For a moment, I regretted signing for the ominous delivery. At the same time, what was I supposed to do? Reject my father’s ashes? Even though we were estranged, that just felt wrong.
 
