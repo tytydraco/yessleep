@@ -56,11 +56,11 @@ I slapped the red effigy on to the kitchen table, rushing to put it down so I co
 
 My heart sank as Victoria’s nasal-toned voice sneered through the receiver. I shut my eyes and leaned my head against the kitchen wall, lamenting the choice to answer *this* call.
 
-*”I haven’t been ‘dodging’ your calls,* ***sweetheart***\*. Being a single mom is a bit time-consuming, and I don’t really have anything new to tell you. I can’t repay you overnight.”\*
+*”I haven’t been ‘dodging’ your calls,* ***sweetheart***. *Being a single mom is a bit time-consuming, and I don’t really have anything new to tell you. I can’t repay you overnight.”*
 
 A few months prior, Davey had been hospitalized with pneumonia, and I was between employment; which meant we had no insurance and were paying the medical bills out of pocket. With limited options and against my better judgement, I asked my sister for a loan. Honestly, I would have been better off indebted to the Yakuza; at least when you’re unable to pay them, they’ll accept a pinky finger as reimbursement (according to movie I watched, at least).
 
-*”Okay* ***sweetheart***\*, that’s all well and good, but if you don’t pay up soon, child welfare services may get an anonymous call. A concerned citizen worried about Danny’s safety in your home...”\*
+*”Okay* ***sweetheart***, *that’s all well and good, but if you don’t pay up soon, child welfare services may get an anonymous call. A concerned citizen worried about Danny’s safety in your home...”\**
 
 I didn’t bother correcting her, for obvious reasons. If she were to ever make good on that threat, Victoria not even knowing my son’s name would only bolster my chances at convincing social services that she was a heartless bitch, not a concerned citizen.
 
@@ -72,13 +72,13 @@ Gazing at it so intensely eventually caused a massive shiver to explode down the
 
 In spite of that sensation, I was still transfixed.
 
-I creeped over to the idol, on my tiptoes as if I didn’t want it to hear me approach, coiled phone still in hand. It was still inexplicably hot to the touch as I picked it up. For a moment, I regretted signing for the ominous delivery. At the same time, what was I supposed to do? Reject my father’s ashes? Even though we were estranged, that just felt wrong.
+I creeped over to the idol, on my tiptoes as if I didn’t want it to hear me approach, phone still in hand. It was remained inexplicably hot to the touch as I picked it up. For a moment, I regretted signing for the ominous delivery. At the same time, what was I supposed to do? Reject my father’s ashes? Even though we were estranged, that just felt wrong.
 
 As I better inspected the urn, though, my regret only became more intense.
 
 First off, there was no lid or cap to the damn thing. I assumed there would be a cork on the bottom or something, but that surface was just as smooth as the rest of it. So how did the ashes get inside?
 
-Not only that, but when I tilted the effigy upside down, desperately searching for where exactly my father’s ashes had been inserted into the mold, a unexpected noise caused me to nearly jump out of my skin.
+Not only that, but when I tilted the effigy upside down, desperately searching for where exactly my father’s ashes had been inserted into the mold, an unexpected noise caused me to nearly jump out of my skin.
 
 It *rattled*. My father’s supposedly cremated remains *rattled*.
 
@@ -90,7 +90,7 @@ I slowly lifted the phone back to my ear.
 
 *”You still there, Vic?”* I asked, whispering.
 
-\*”Yeah, Jesus, I’m still here. Where’d you go? I was totally kidding before Alice, you know that. I do really need that money though, made some bad gambles recently…”
+*”Yeah, Jesus, I’m still here. Where’d you go? I was totally kidding before Alice, you know that. I do really need that money though, made some bad gambles recently…”*
 
 Cutting her off before the inevitable tangent, I whispered another question.
 
@@ -142,17 +142,17 @@ I was a single mom working two jobs, protecting and raising my kid the best I kn
 
 It started with the ants.
 
-In the weeks prior to the delivery of the red effigy, our home had become overrun with tiny black invaders, and I couldn’t afford to hire an exterminator. Instead, I settled for the much cheaper option; ant traps. At first, I thought I was wasting my money. They didn’t seem to be making a dent in the infestation. Then, out of nowhere, the ants disappeared without a trace. Some kind of noiseless extinction event that took place without me noticing.
+In the weeks prior to the delivery of the red effigy, our home had become overrun with tiny black invaders, and I couldn’t afford to hire an exterminator. Instead, I settled for the much cheaper option; ant traps. At first, I thought I was wasting my money. They didn’t seem to be making a dent in the infestation. Then, out of nowhere, the ants disappeared without a trace. Some kind of noiseless extinction event apparently took place without me noticing.
 
 *Maybe the traps did work. Just took some time*, I thought.
 
-Then, one night, I’m was bending over at the fridge, selecting a midnight snack. As I grabbed some leftovers, the dim, phosphorescent glow coming from the appliance highlighted subtle movement by the cellar door. I stood up and squinted at the movement, but I couldn’t tell what the hell it was. Honestly, it looked some invisible person was a drawing a straight line in pencil between the backyard door and the entrance to the basement, obsidian graphite dragging against the tile floor. I rubbed sleep from my eyes, but the bizarre phenomena didn’t change.
+Then, one night, I was bending over at the fridge, selecting a midnight snack. As I grabbed some leftovers, the dim, phosphorescent glow coming from the appliance highlighted subtle movement by the cellar door. I stood up and squinted at the movement, but I couldn’t tell what the hell it was. Honestly, it looked some invisible person was a drawing a straight line in pencil between the backyard door and the entrance to the basement, obsidian graphite dragging against the tile floor. I rubbed sleep from my eyes, but the bizarre phenomena didn’t change.
 
 When I flicked the kitchen light on, I better understood *what* was happening, but I had no clue *why* it was happening.
 
 A steady stream of black ants were silently making their way into the cellar.
 
-More irritated than frightened in that moment, I traced their cryptic migration down the creaky stairs, assuming they had been attracted to some food Davey absentmindedly left in the cellar. But when I saw that the procession of living dots were heading for the area behind the winter coats, the irritation spilled from my pores with the sweat that was starting to drench my T-shirt.
+More irritated than frightened in that moment, I traced their cryptic migration down the creaky stairs, assuming they had been attracted to some food Davey absentmindedly left down there. But when I saw that the procession of living dots were heading for the area behind the winter coats, the irritation spilled from my pores with the sweat that was starting to drench my T-shirt, and then fear was the only emotion left inside me.
 
 I hadn’t thought about the red effigy in some time. As I peeked behind the stack of fleeces and windbreakers, I almost didn’t recognize it.
 
@@ -176,7 +176,7 @@ Exhausted to where I became fearless and dumb, I plodded the stairs, snow shovel
 
 When I reached the idol, I came to the gut-wrenching conclusion that I hadn’t hallucinated its transformation; it was still the size of a toddler.
 
-I didn’t dwell on the unexplainable. That would have paralyzed me to the point of catatonia. Instead, I focused my attention solely on getting that red curse out of my fucking house. I arced back the shovel and slid it under the wax.
+I didn’t dwell on the unexplainable. That would have paralyzed me to the point of catatonia. Instead, I focused my attention solely on getting that red curse out of my fucking house. I arced back with the shovel and slid it under the wax.
 
 Briefly, I stopped, readying myself to sprint out of the cellar at breakneck speed if the effigy came to life in response to my intrusion. It remained inanimate, and I cautiously placed my hands back on the handle, attempting to lift the wax idol.
 
@@ -222,7 +222,7 @@ Never in my life have I experienced a more devastating pain.
 
 With all the force I could muster, I threw myself backward. There were the sickening snaps of tendons accompanied by the high-pitched crunching of knuckles, and then my spine hit the ground hard. Both of my fingers had been torn off, absorbed into the wax, leaving two bleeding stumps on my hand, fragments of bone jutting out of the ruptured flesh like marble gravestones.
 
-Adrenaline, thankfully, is an astounding painkiller. By the time I had scooped up Davey and we were in the car, accelerating away from that house, I didn’t feel a thing anymore.
+Adrenaline, thankfully, is an astounding painkiller. By the time I had scooped up Davey, put him in the car, and started accelerating away from that house, I didn’t feel a thing anymore.
 
 \- - - - -
 
@@ -252,7 +252,7 @@ Here’s what the message said:
 
 *I apologize about not reaching out all these years. Truthfully, I imagined you’d still be angry at me and grand-dad. But I'm hoping you’ll get this card and let bygones by bygones.*
 
-*I want you to know that Victoria was my first choice for the urn. However, at the time, she owed me a great deal of money. Convinced me she was in prison, as well, which made her an unsuitable choice.*
+*I want you to know that Victoria was my first choice for the urn. However, at the time, she owed me a great deal of money. To avoid payment, your sister convinced me she was in prison, which made her an unsuitable choice for what I would expect are obvious reasons after what happened to your fingers.*
 
 *In the end, however, I suppose it all worked out as it was meant to.*
 
