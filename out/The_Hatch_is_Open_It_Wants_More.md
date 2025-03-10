@@ -1,4 +1,4 @@
-A pet now. We call it that. Feed it, watch it, listen for its breathing beneath us. A pet we don’t understand. A pet we are afraid of. But not feeding it is worse.
+A pet. We call it that. Feed it, watch it, listen for its breathing beneath us. A pet we don’t understand. A pet we are afraid of. But not feeding it is worse.
 
 Michelle sits on the edge of the bed, her feet over the black. She tilts her head. Listens. Smiles. I think it decides that. Her skin is cold. It’s just storage space. A hatch, a hole, a mouth. Shifting. Spreading.
 
