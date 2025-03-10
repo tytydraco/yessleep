@@ -82,7 +82,7 @@ From that place I did not want to stir; I did not want to face what was in those
 
 Whether it was the crazed Gamekeeper or the ghosts and in a selfish way I didn’t care. I had wanted the mud of the bank to engulf me or for me to wake up entirely; I quietly begged it had all just a been nightmare. 
 
-With my head in my hands I began to drift into sleep, my tears using my hands as a slide to fall and dilute into the mud.
+With my head in my hands, I began to drift into sleep, my tears using my hands as a slide to fall and dilute into the mud.
 
 Once again, I fell into a rhythm, a twisted lullaby as I faded in and out of consciousness, the rustling of the leaves and the wind as it caressed the trees soothing me. Then came a soft rippling of the water.
 

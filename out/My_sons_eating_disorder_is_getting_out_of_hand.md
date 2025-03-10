@@ -36,7 +36,7 @@ The next morning, I needed to get something done at work, agreeing with my wife 
 
 I pulled over and said that I could. 
 
-"I just sent you an email with the X-ray we took of Theo’s face yesterday, and we found something very peculiar. Can you open it?" he asked. 
+"I just sent you an email with the X-ray we took of Theo’s face yesterday, and we found something very peculiar." he said. 
 
 On speakerphone, I opened the file on my phone and scrolled through a few images, not quite understanding what I was seeing. 
 
