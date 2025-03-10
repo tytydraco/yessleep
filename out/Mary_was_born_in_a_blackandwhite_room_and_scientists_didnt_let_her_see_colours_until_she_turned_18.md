@@ -138,7 +138,7 @@ I was overcome by a warm sensation across my skin, and moments later, there came
 
 Skin flew into the walls from a red eruption of dress fragments, blood, and guts.
 
-Nanny had spontaneously imploded.
+Nanny had spontaneously exploded.
 
 Screams filled the operating room; some fled, some fainted, and others simply froze.
 
