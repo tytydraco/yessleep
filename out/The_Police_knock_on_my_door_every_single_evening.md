@@ -69,3 +69,5 @@ It's been almost a month at this point, so far I have lost 12 Husbands, 2 Wives,
 I have no idea what to do, I have tried not answering the door but then they just arrive an hour later or simply wait.
 
 One time I got home late from work to see an officer standing in my driveway, I have no idea what I am supposed to do, it is laying a layer of sadness over every single day, the officer is never the same person, the circumstances are always different, please, if anyone knows what can be done I would love to hear it!
+
+[Update](https://www.reddit.com/r/nosleep/comments/1j89ue5/the_police_knock_on_my_door_every_single_evening/)

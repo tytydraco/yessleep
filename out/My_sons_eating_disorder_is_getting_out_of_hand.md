@@ -10,7 +10,9 @@ My wife and I took him to the pediatrician, who assured us that there was nothin
 
 Well, he didn’t, despite our constant reminders of what was food and what wasn’t. 
 
-One day, my wife couldn’t find him in his room and panicked, searching every corner of the house. She found him in the basement, eating what looked like a dead mouse, his expression blank and innocent. She noticed he was chewing carefully, as if adjusting to the gap left by his missing teeth. 
+One day, my wife couldn’t find him in his room and panicked, searching every corner of the house. 
+
+She found him in the basement, eating what looked like a dead mouse, his expression blank and innocent. She noticed he was chewing carefully, as if adjusting to the gap left by his missing teeth. 
 
 A week later it was another bird, this time larger. 
 
@@ -48,7 +50,7 @@ He explained most of them were embedded deep in his gums, unseen from the outsid
 
 I told him I would go right now and rushed back home, calling my wife repeatedly, but she never picked up. 
 
-I burst through the door to see a scene I would like to one day be able to erase from my memory. 
+I burst back through the frontdoor to see a scene I would like to one day be able to erase from my memory. 
 
 Her body was laid on the floor, white as snow. Theo was crouched beside her, his mouth smeared with red.
 
