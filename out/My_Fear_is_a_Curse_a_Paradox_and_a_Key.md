@@ -12,17 +12,17 @@ I liked my childhood therapist, don’t get me wrong. He was kind, attentive, an
 
 At least, that's what I *used* to believe. Now, it's clear to me that Dr. Auclair did understand, he just wasn't making his intentions known, manipulating and pulling me along like a conniving puppeteer.
 
-My current theory is that, somehow, the fear was the key to his release. But before it could free him, it needed to be *purified*. Distilled to perfection, the terror fermenting over years like a decadent Merlot.
+My current theory is that, somehow, the fear was the key to his release. But before it could free him, though, it needed to be *purified*. Distilled to perfection, the terror fermenting over years like a decadent Merlot.
 
 And when he decided it was exquisitely ripe, Dr. Auclair culled it without a second thought.
 
-I wish I knew how he did it, and why I was chosen in particular, but I suspect I’ll never get those answers, and I’m learning how to live with that.
+I wish I knew *how* he did it and *why* I was chosen in particular, but I suspect I’ll never get those answers; I’m learning how to live with that.
 
-One day at a time. 
+One day at a time.
 
 \- - - - -
 
-Normal fear is born from something; it doesn’t just appear out of nowhere.There’s always a cause and an effect. 
+Normal fear is born from something; it doesn’t just appear out of nowhere.There’s always a cause and an effect.
 
 Something horrific happens, and the result is fear. You take a tumble down some stairs, and now you’re afraid of falling. Your aunt’s German Shepard bites you, and now you’re afraid of dogs.
 
@@ -70,7 +70,7 @@ Didn't leave a forwarding address, either.
 
 \- - - - -
 
-I developed a veritable Rolodex of bullies over my high school years; honestly, there had to be at least one on every page of my yearbook. My strange fear made me an easy target. 
+I developed a veritable Rolodex of bullies over my high school years; honestly, there had to be at least one on every page of my yearbook. My strange fear made me an easy target.
 
 I wouldn’t classify Jack as a bully, though. That shithead was an entirely different breed. *Tormentor* is probably a more appropriate label, but even *that* doesn’t capture the depths of his sadism.
 
@@ -118,7 +118,7 @@ Something was desperately wrong with my friend.
 
 I tried to convince him to take a seat in the living room and just talk to me, but he pretended like he couldn’t hear what I said, frolicking down his basement stairs with an uncanny jubilance. Reluctantly, I followed him down.
 
-When I arrived at the bottom, Mr. Muller was nowhere to be seen, but I could hear him; humming a nursery rhyme to himself in his workshop, a few yards away behind a cracked door. 
+When I arrived at the bottom, Mr. Muller was nowhere to be seen, but I could hear him; humming a nursery rhyme to himself in his workshop, a few yards away behind a cracked door.
 
 I slowly tilted the door open, and my long held fear finally became realized.
 
