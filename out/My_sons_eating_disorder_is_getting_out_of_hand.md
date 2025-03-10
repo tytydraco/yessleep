@@ -52,6 +52,6 @@ I told him I would go right now and rushed back home, calling my wife repeatedly
 
 I burst back through the frontdoor to see a scene I would like to one day be able to erase from my memory. 
 
-Her body was laid on the floor, white as snow. Theo was crouched beside her, his mouth smeared with red.
+Her body was laid on the living room floor, white as snow. Theo was crouched beside her, his mouth smeared with red.
 
 He had bitten into her neck, tearing away a chunk, and was chewing it with the same innocent delight of a child enjoying a crisp apple.
