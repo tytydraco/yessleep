@@ -1,0 +1,23 @@
+Dear John,
+
+I really despise you. I want to cause you harm. I want to cause you pain. I want you to bleed droplet by droplet and feel the agony, the burning sensation. I want to start by handcuffing you, restraining you & start by making an incision in your fat belly. I imagine it would pop or deflate like a balloon, spewing out litres & litres of your disgusting blood in my face all at once. How disgusting! Oh but what a joy it would be. 
+
+I already feel better. I’m still deciding if I want your mouth covered with a ball gag or uncovered. I want your pale face to turn red from the pain & the embarrassment. I want to st*b you in the belly a few times more repeatedly - enough to cause a lot of blood loss, but not enough to k*ll you. We still got a lot left 
+
+I will leave your spine be. I don’t want to ever hurt your spine or anyone else’s. The thought of going anywhere near your spine makes me feel sympathetic. I will instead go for your feet next - two swooshes with a kn*fe, starting with your right foot then your left. Detach them from your body, pick them up with my bare hands (or maybe with gloves IF I am disgusted at this time) and wave them in front of your face, laughing maniacally! 
+
+But how did we get there? This is just physical torture, not emotional. It starts with me wanting the worse for your 10 year old child. I grab him by his collar, shove him in the back of a trunk and get you worried about his whereabouts. I sed*te him to make him quiet. I don’t use a kn*fe on him - I save that for you. But I will resort to physical abuse that a kid can take - kick him a few times, mostly in the belly. Watch him fall down and kick him some more before he can stand back up. Make him cough a bit of blood. Smack him across the face and punch him - send you a photo of his bare body and face with wounds and bruises. I make sure every single wound of his is untouched and visible to you. 
+
+Going back to you, feet gone and stomach bleeding. I str*ngle your neck a few times with my bare hands whilst you’re restrained - enough to cause you suff*cation and take you close to de*th, but not there yet. 
+
+I want to punch, kick and smack you a few times too. It won’t matter - the pain from your legs & stomach would be too much you’d barely feel me using you as a punching bag. 
+
+Think I’m not authoritative or strong enough? How about now? Maybe we start with the hands next - make a few tattoos with my kn*fe on your forearms. I take my time with it. Write some inscriptions - it’ll probably be tough to penetrate my kn*fe into your skin and carve precisely what I want, so I will probably ruin the artwork. But it’s okay. We still get to see blood everywhere!
+
+I will take pins and needles next - whichever is sharper! I will pierce each and every needle into your skin, especially the squishy bits. The glutes, the thighs, the adductors, the arms. I will do this until we reach the count of 100. Hopefully, I have enough space on your body to fit in 100 needles. It’s like crochet or knitting, but a much calmer hobby. 
+
+How do we k*ll your off? Not yet, I want you to suffer in pain. Coming back to the mouth gag, definitely need one up until this moment. After a few hours of constant bleeding when you are nearing death but still alive, I drag your body to the outdoors where I light a fire, and let your body b*rn - the most painful de*th! But 2 things before I burn you - I first take your mouth gag off and put lots of alcohol; a few litres of vodka on your beautifully blood-soaked body. I let you squeal for help as the alcohol burns the living hell out of your body. I then let you say your last words to me, all I want to hear is “I’m …. So …. So sorry”. 
+
+If I hear these words, I let you die easy…. If I don’t, you can burn in the fire I’ve lit and experience the most painful de*th. 
+
+Ah I changed my mind. No, no. This isn’t it. Burning is too quick, not satisfying. How do I enjoy this? A pool! I throw your body in a pool. Which pool? I don’t know. Some pool. Reasonably sized, and see the pool turn red akin to a bath bomb fizzing out in a bath tub.  I wonder how pretty this would look. The beautiful blue chlorinated water turning red upon a body sinking deep in. Slowly and steadily the red takes over the blue. This is when I sit next to the pool and light a cigarette. This thought makes me feel good. It almost makes me feel sympathetic towards you. 
