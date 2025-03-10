@@ -58,6 +58,6 @@ She stared at me with a look of what seemed like betrayal.
 
 She immediately began crying, raising the syringe by her head as she balled up. I had never in the span of our relationship seen her so frantically depressed. I was afraid yet wanted to comfort her. Until she gathered herself. Her mood switched instantaneously to resentment. She jumped at me and we fell off the bed. The fall must have winded her because I sprinted outside in my pajamas and ran to a 24/7 diner.
 
-I’m trying to get this all down over a cup of coffee and thought it would help me to share this. I don’t know what’s happening. I don’t have any idea what she would want with my blood and why she would hide this from me for so long. I think her friends just walked in. They all have the same jewelry she had on now. i might just be seeing things that remind me of her, but I also can’t get that look of anger and resentment in her face. I’m so tired I think I’m gonna finish up writing here and ask her friends what’s going on.
+I’m trying to get this all down over a cup of coffee and thought it would help me to share this. I don’t know what’s happening. I don’t have any idea what she would want with my blood and why she would hide this from me for so long. I think her friends just walked in. They all have the same jewelry she had on now. I might just be seeing things that remind me of her, but I also can’t get that look of anger and resentment in her face out of my mind. I’m so tired I think I’m gonna finish up writing here and ask her friends what’s going on.
 
 
