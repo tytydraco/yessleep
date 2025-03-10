@@ -1,5 +1,7 @@
 [\[Part 31\]](https://www.reddit.com/user/RandomAppalachian468/comments/1ikf92w/the_call_of_the_breach_part_31/)
 
+[\[Part 33\]](https://www.reddit.com/user/RandomAppalachian468/comments/1j80v9l/the_call_of_the_breach_part_33/)
+
 We skidded over the long grass, the thick tires of our ASV gouging at the mushy soil. The radio headset blasted with multiple fervent calls shouting over one another as our vehicles did their best to swerve out of the path of the oncoming Wyverns. Gunners began to fire into the sky with their various weaponry, but the beasts had taken us by surprise and closed the distance in seconds.
 
 Razor sharp talons slashed at the earth where our armored car had been not moments before, and the Osage Wyvern soared right over our heads, letting out another titanic roar that reverberated in my chest.

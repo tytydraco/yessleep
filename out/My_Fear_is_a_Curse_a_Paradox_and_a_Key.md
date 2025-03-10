@@ -22,7 +22,7 @@ One day at a time.
 
 \- - - - -
 
-Normal fear is born from something; it doesn’t just appear out of nowhere.There’s always a cause and an effect.
+Normal fear is born from something; it doesn’t just appear out of nowhere. There’s always a cause and an effect.
 
 Something horrific happens, and the result is fear. You take a tumble down some stairs, and now you’re afraid of falling. Your aunt’s German Shepard bites you, and now you’re afraid of dogs.
 
@@ -46,7 +46,7 @@ Twelve-year-old me shrugged, struggling to provide an answer.
 
 Dr. Auclair put down his notepad and leaned forward in his chair.
 
-*“Well, you always describe it as ‘****I’m of afraid of something popping out’****. Never* ***jumping out***\*. Never\* ***emerging***\*. Never\* ***appearing***\*. Whatever you’re afraid of, it’s always ‘**popping out**’. Why do you think that is?”\*
+*“Well, you always describe it as ‘I’m of afraid of something popping out’. Never jumping out. Never emerging. Never appearing. Whatever you’re afraid of, it’s always ‘****popping out****’. Why do you think that is?”*
 
 Honestly, I found his question irritating. He knew me well by that point: I felt like he could have guessed how I was going to respond.
 
@@ -74,7 +74,7 @@ I developed a veritable Rolodex of bullies over my high school years; honestly, 
 
 I wouldn’t classify Jack as a bully, though. That shithead was an entirely different breed. *Tormentor* is probably a more appropriate label, but even *that* doesn’t capture the depths of his sadism.
 
-Although the boy was thin, he compensated for that by being tall; towering over me at a height of at least six and a half feet. Wide forehead, freckled face, beady eyes. An absolute fucking monster prowling this earth with hate seething behind his eyes, inflicting pain without limitations.
+Although the boy was thin, he compensated for that by being tall; towering over me at a height of at least six and a half feet. Wide forehead, freckled face, beady eyes. An absolute fucking monster prowling this earth with hate seething behind his smile, inflicting pain without limitations.
 
 Once he discovered my fear of something or someone *popping out* at me, he simply could not get enough. The joy and the satisfaction that Jack was able to milk from my admittedly peculiar terror was seemingly endless. To him, my trauma was a wellspring of fresh dopamine created for him and him alone to enjoy, refilling itself infinitely.
 
@@ -84,7 +84,7 @@ Preoccupied by a messy divorce, my parents weren’t much help. Because of that,
 
 I’d known the man my whole life. He lived alone in a three-story house down the street for the last forty years. Never found himself a wife, never had any kids. When he retired from his job as a mechanical engineer, Mr. Muller finally pursued his genuine passions; custom-built toys. His shop never seemed to get much business, but I don’t think that was the point. Unburdened by the financial strain that comes with having a family, he’d accumulated a small fortune for himself over the years, which allowed the shop to remain afloat even if it wasn't turning a profit.
 
-We had a certain kinship, Mr. Muller and me. He was an outcast, too; his eccentricities kept people at arm’s length. But he was always kind to me, day in and day out, taking me in and patching up my injuries, both physical and mental.
+We had a certain kinship, Mr. Muller and I. He was an outcast, too; his eccentricities kept people at arm’s length. But he was always kind to me, day in and day out, taking me in and patching up my injuries, both physical and mental.
 
 Despite our close relationship, I never disclosed the specific details of my fears to him. Embarrassment had stitched my lips shut. He knew I was different, like him, and that made me a target for people like Jack, which made what he did nearly impossible to explain.
 
