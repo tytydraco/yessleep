@@ -92,7 +92,7 @@ And then the old gentleman paused, observing me from the bench opposite mine wit
 
 He really *did* believe in the Fountain of Youth.
 
-Mocking the man wouldn’t have been wise; I read as much in his unstable eyes. Instead, I took his statement as face value and offered the obvious response.
+Mocking the man wouldn’t have been wise; I read as much in his unstable eyes. Instead, I took his statement at face value and offered the obvious response.
 
 “There is no Fountain of Youth, Clarence,” I said.
 
