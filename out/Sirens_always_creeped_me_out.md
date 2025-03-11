@@ -126,7 +126,7 @@ Winged.
 
 Circling.
 
-Waiting.
+Watching.
 
 The car jerked hard to the right, tires skidding. My dad swerved to avoid something, but my stomach turned as I looked out at the streets.
 
@@ -184,7 +184,7 @@ Then—
 
 A shadow fell over her.
 
-A shape dropped from the sky, talons wrapping around her like she weighed nothing at all. She barely had time to scream before it lifted her off the ground, carrying her upward, vanishing into the storm.
+A winged shape dropped from the sky, its arms wrapping around her like she weighed nothing at all. She barely had time to scream before it lifted her off the ground, carrying her upward, vanishing into the storm.
 
 My dad kept walking.
 
