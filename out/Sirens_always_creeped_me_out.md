@@ -48,7 +48,7 @@ We’ve all been there, when a rainstorm creeps up in the middle of the night an
 
 "3 a.m.? Ugh."
 
-Groggily, I stood up, rubbing the sleep from my eyes. All that soda had caught up to me, so I rushed to the bathroom to relieve myself. On my way back to my bedroom, I moved to shut my window until I noticed a shape standing far away in the yard.
+Groggily, I stood up, rubbing the sleep from my eyes. All that soda had caught up to me, so I rushed to the bathroom to relieve myself. On my way back to my bedroom, I moved to shut my window until I noticed a shape  far out in the yard.
 
 I squinted, but it was all a blur. I fumbled around my bedside table for my glasses.  When I turned back, I saw her clearly.
 

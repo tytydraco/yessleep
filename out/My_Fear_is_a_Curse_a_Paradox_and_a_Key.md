@@ -12,7 +12,7 @@ I liked my childhood therapist, don’t get me wrong. He was kind, attentive, an
 
 At least, that's what I *used* to believe. Now, it's clear to me that Dr. Auclair did understand, he just wasn't making his intentions known, manipulating and pulling me along like a conniving puppeteer.
 
-My current theory is that, somehow, the fear was the key to his release. But before it could free him, though, it needed to be *purified*. Distilled to perfection, the terror fermenting over years like a decadent Merlot.
+My current theory is that, somehow, the fear was the key to his release. But before it could free him, though, it needed to be *purified*. Distilled to perfection, the terror fermenting over months and years like a decadent Merlot.
 
 And when he decided it was exquisitely ripe, Dr. Auclair culled it without a second thought.
 
@@ -147,7 +147,7 @@ Before I could run, Mr. Muller began singing, bellowing and hollering the words 
 
 And then the top of the crate swung open, revealing what was inside.
 
-Every single moment that I’ve ever been afraid and every shred of terror that I’ve ever felt crystalized into that one moment, manifesting this pristine latticework of pain, shock, and panic in my mind.
+Every single second that I’ve ever been afraid and every shred of terror that I’ve ever felt crystalized into that one moment, manifesting this pristine latticework of pain, shock, and panic in my mind.
 
 My fear was like a wedge of coal that had been put under years of extreme pressure until it finally transmuted into a brilliant, shimmering diamond.
 
