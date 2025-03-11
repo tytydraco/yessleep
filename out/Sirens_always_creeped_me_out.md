@@ -178,7 +178,7 @@ Shambling into the field.
 
 My mom was chasing after him, stumbling, arms outstretched. “David!” she screamed. “David, come back!”
 
-Tears burned my eyes, hot against my dirt-streaked face.
+Tears burned my eyes, hot against my blood-streaked face.
 
 Then—
 
