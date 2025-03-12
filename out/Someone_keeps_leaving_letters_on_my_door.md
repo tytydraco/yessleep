@@ -18,7 +18,7 @@ I came home from work at my usual time and saw a white piece of paper taped to o
 
 
 
-I opened the letter up to see the very well made handwritten letter, or I guess in this instance a note was more appropriate.“Welcome to the neighborhood.”That was all it said, confused. I turned the piece of paper around to see if there was anything else on it but no, that was all.With the letter still in hand I walked into the house and called out “Hey Honey? Anyone come by today?”
+I opened the letter up to see the very well made handwritten letter, or I guess in this instance a note was more appropriate.“Welcome to the neighborhood. ”That was all it said, confused. I turned the piece of paper around to see if there was anything else on it but no, that was all. With the letter still in hand I walked into the house and called out “Hey Honey? Anyone come by today?”
 
 
 
@@ -26,7 +26,7 @@ My husband works from home, so if some new neighbors we had somehow missed wante
 
 
 
-“No, Why? What’s up?” Came from the kitchen, and after getting out of my shoes I went in, placing a kiss on his cheek and waving the letter gently.“This was taped to our front door, just wanted to know if you had seen anything.”
+“No, Why? What’s up?” Came from the kitchen, and after getting out of my shoes I went in, placing a kiss on his cheek and waving the letter gently. “This was taped to our front door, just wanted to know if you had seen anything.”
 
 
 
@@ -86,7 +86,7 @@ Either way, I pulled the letter down and opened it up.
 
 
 
-It was a written confession, a detailed handwritten letter of love designated to a man named [Henry.My](http://Henry.My) brow furrowed, neither me nor my husband were named that, and I knew for a fact that none of my neighbors were named that.
+It was a written confession, a detailed handwritten letter of love designated to a man named Henry. My brow furrowed, neither me nor my husband were named that, and I knew for a fact that none of my neighbors were named that.
 
 
 
@@ -102,7 +102,7 @@ I knew in my heart that if I brought this letter to my husband he would go throu
 
 
 
-The letters just kept happening, every two to four days a new one would be taped to our front door.Most of the handwritten, talking about everything from the weather to a bird they saw, a few of the notes being official looking mail, another eviction notice, something about registering to vote, one for a nearby church.
+The letters just kept happening, every two to four days a new one would be taped to our front door. Most of the handwritten, talking about everything from the weather to a bird they saw, a few of the notes being official looking mail, another eviction notice, something about registering to vote, one for a nearby church.
 
 
 
@@ -122,7 +122,7 @@ I grabbed the letter and opened the door “Why didn’t you call me or somethin
 
 
 
-I yelled into the house as I angrily removed my shoes and stomped into the living room where my husband sat confused with his phone in hand.“About… what?” He asked with a tone that matched his facial expression.
+I yelled into the house as I angrily removed my shoes and stomped into the living room where my husband sat confused with his phone in hand. “About… what?” He asked with a tone that matched his facial expression.
 
 
 
@@ -171,7 +171,7 @@ I nodded, he needed to know that I was listening as I stared at him wide eyed.
 
 
 
-“Good, Listen to me, I need you to drive out of town, Throw your phone out of the window somewhere along the way, I need you to withdraw as much money as you can, and I need you to check into the Saltwater Motel alright? Ask for room 203.”I opened my mouth to say something but before I could even get my words out he stopped me, putting his hand over my mouth as he stared into my eyes with a more intense gaze than he had ever had.
+“Good, Listen to me, I need you to drive out of town, Throw your phone out of the window somewhere along the way, I need you to withdraw as much money as you can, and I need you to check into the Saltwater Motel alright? Ask for room 203. ”I opened my mouth to say something but before I could even get my words out he stopped me, putting his hand over my mouth as he stared into my eyes with a more intense gaze than he had ever had.
 
 
 
