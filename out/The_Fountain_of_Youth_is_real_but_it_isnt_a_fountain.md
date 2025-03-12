@@ -210,7 +210,7 @@ Clarence laughed cruelly. “I did nothing of the sort, Jeremy. Florence died in
 
 “What would you have had me do, Jeremy?” asked Clarence crossly. “I wouldn’t have been able to free her. I’ve explained this. Besides, I was simply one of many who travelled far to see her. By that time, Florence had already been the fount for, oh, roughly five years or so. She resided beneath the island of South Bimini back then, as I recall…”
 
-Something horrified me about the way in which Clarence spoke of Florence—as if he were a university professor recounting historical events in a nonchalant manner. Worst than that, he spoke of her as an object to be milked, not a person. A poor soul doomed to over a century in that underground dungeon, existing in agony as dozens or *hundreds* of folk drained her youth. Her essence.
+Something horrified me about the way in which Clarence spoke of Florence—as if he were a university professor recounting historical events in a nonchalant manner. Worse than that, he spoke of her as an object to be milked, not a person. A poor soul doomed to over a century in that underground dungeon, existing in agony as dozens or *hundreds* of folk drained her youth. Her essence.
 
 “I do wish I’d had a chance to drink some of her splendour in the early years,” he continued. “She was still a pretty sight, of sorts, when I first met her, but the girl had already dried up quite significantly. She was no longer the bell of the ball.”
 
