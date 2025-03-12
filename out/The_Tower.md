@@ -1,5 +1,3 @@
-My dad has a room full of old tapes, cassettes, and antiques. Next to every item is a piece of paper with a number on it. That number can be found in 2 large binders that are on a table beside the wall, describing what the item is. The first item is a composition book. The writing inside is not like my dads, or anyone i know. It is a summary of what happened to someone one night while they were in a park tower. This is what the book says.
-
 I miss her everyday. I have spent so long working that i didn't realize the repetition in my tasks. She would ask about everything i did and i would be so vague. I wish she was here again so I could tell her what it was like. Staring up at the night sky. The fog hiding the trees below. The music on the radio. I should have taken more time off work. I'm so tired. I've been sitting here for so long.
 
 I worked with two other towers at the park. We would call in every hour to make sure we were doing fine. A mandatory mic check. Half past midnight, Tower A wasn't responding. My friend in Tower C said he would go check on them. Which is highly forbidden but he went anyway. I never did hear back from either of them. Eventually the radio made a sound and i jumped over to answer.
@@ -102,7 +100,7 @@ From the other side of the room, i could now see something even worse. The radio
 
 I understood and grabbed my coat. I walked out to the balcony and quickly descended the steps to my ranger car down below. About halfway though i remembered that i left the car keys on top of the radio. I ran back up the stairs, grabbed them and quickly came back down. Before reaching the grass, at the bottom, i saw my car and stopped. The hood illuminated by the moon and shrouded faintly by fog. On the other side of the hood of the car was a head peaking over. On the head were two very small horns. I could only see the head from the eyes up. The skin was pitch black. The eyes were wide and human. It was just crouched behind the car peaking over at me. I stood there, still, as it sat there, still. Despite my terror, i got a hold of myself and turned, running back up the stairs, all the way to the top. I didn't hear it chase after me. I heard no grass move or steps creak aside from my own. I turned as i reached the door, to see behind me.
 
-There at the corner of the stairs just below me, it was peaking around the corner. It's head perfectly horizontal. As if it was tilting its entire body behind the corner of the stairs. It's eyes still wide and human looking, staring at me. My heart raced and i felt it pulsing in my head. I backed up slowly and shut the door behind me, still never hearing it move once. I put my desk in front of the door and blocked off the windows around me. Once again the voice came over the radio.   
+There at the corner of the stairs just below me, it was peaking around the corner. It's head perfectly horizontal. As if it was tilting its entire body behind the corner of the stairs. It's eyes still wide and human looking, staring at me. My heart raced and i felt it pulsing in my head. I backed up slowly and shut the door behind me, still never hearing it move once. I put my desk in front of the door and blocked off the windows around me. Once again the voice came over the radio.  
 "You can not. Leaveeeeee."
 
 "What was that!?"
@@ -119,7 +117,7 @@ The voice was silent. And before long, my wife's voice came through the radio ag
 "Open the door, Aaron." "Open the door, Aaron." "Open the door, Aaron." Open-"
 
 I took a rubber mallet i had by the door and smashed the radio in two swings. The sound of the metal breaking was hardly over before i could hear her. "Open the door, Aaron."  
-She was outside. In my peripherals, i could see through the window on the door that something that was standing there, staring at me. I was about to look before a cheap Walkman beside my radio turned on, the voice grating through the static.  
+She was outside. In my peripherals, i could see through the window on the door that something was standing there, staring at me. I was about to look before a cheap Walkman beside my radio turned on, the voice grating through the static.  
 "Do not."
 
 I refrained from looking at the door. I calmly walked over to the table and sat down. I opened the back of the Walkman and confirmed what i remembered. It had no batteries. Regardless, not even having to press the button to speak, I asked.  
@@ -131,6 +129,4 @@ I refrained from looking at the door. I calmly walked over to the table and sat 
 
 "The Sunnnnnn."
 
-It's 4am. I am still waiting. I'm really hungry and remembered I left my food in the car. No way I can get that. It's still there in my peripherals. It hasn't moved all night. I just have to wait a little longer.
-
-The writing ends there. The other pages are dirty and blank. The last 11 pages of the book are torn out. There are no indents to show anything was written on them. This is the first thing in a room full of items that my dad owns. I do not know where these came from or how he got them. I am not supposed to be in here to begin with. So there's no chance I can ask him. I wish it was longer, but its not.
+It's 4am. I am still waiting. I'm really hungry and remembered I left my food in the car. No way I can get that. It's still there in my peripherals. It hasn't moved all night. I just have to wait a little longer. I don't know what i will do tomorrow. I have no doubt I will make it to sunrise. But what happens tomorrow night? Or the week after? This might just be my life now. I have a friend a few states over. But i don't want to give everything up. I will come back to work. If i have to do this every night, i will. I will not run.
