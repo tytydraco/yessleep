@@ -61,3 +61,4 @@ She immediately began crying, raising the syringe by her head as she balled up. 
 I’m trying to get this all down over a cup of coffee and thought it would help me to share this. I don’t know what’s happening. I don’t have any idea what she would want with my blood and why she would hide this from me for so long. I think her friends just walked in. They all have the same jewelry she had on now. I might just be seeing things that remind me of her, but I also can’t get that look of anger and resentment in her face out of my mind. I’m so tired I think I’m gonna finish up writing here and ask her friends what’s going on.
 
 
+Update: https://www.reddit.com/r/nosleep/s/FDvVdf5T2d
