@@ -311,7 +311,3 @@ But as I crept out of the barn, I saw the soil, trampled by many footprints. Som
 Most were not.
 
 If you’re a fellow drifter, if you ever pass an abandoned red barn in the middle of nowhere, keep on walking.
-
-I was lucky.
-
-You might not be.
