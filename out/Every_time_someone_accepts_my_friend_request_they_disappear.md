@@ -237,3 +237,5 @@ This is no murder and he is no victim.
 Nope, he did this to himself.
 
 And in true Jack fashion, I’ve just locked myself in with [him.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[UPDATE!!!](https://www.reddit.com/r/nosleep/comments/1j9lwtw/this_guy_i_know_is_dead_but_he_wont_stop/)
