@@ -1,21 +1,60 @@
-A memory came to me this morning from when I was much younger
+Being a light sleeper has its problems. Waking up to the chirping of the crickets or when someone walks past my bedroom door. It’s almost a nightly occurrence, so I didn’t think any differently when I woke up in darkness.
 
-My childhood home was haunted. Built sometime in the early 1900's, it was a small house that had definitely seen better days. My town was slowly falling apart and so my house went with it. My parents never had enough money to keep up with all the disrepair. That house didn't start looking nice until they moved out of it 18 years later. However, just because my house was falling about in a less than favorable location didn't mean it needed to be haunted.
+I laid still, wondering why I woke up. Listening to my surroundings, I didn’t immediately hear the noise. I waited, expecting to hear the flushing of a toilet or a car beeping outside, but everything was silent.
 
-I would joke with my siblings, being the oldest it was easy to come up with a scary story to creep them out. My mom would glare daggers at me and remind us it was just an old house. Old houses have personalities and make noises as they settle she would say to us. However, she never experienced the same intense dread I would feel at night while everyone else was asleep.
+After laying awake in bed for a couple minutes, I shrugged off the anticipated noise and closed my eyes, waiting for sleep to take over.
 
-I shared a room with my sister, the room was so small, we could barely walk in there with bunk beds and a dresser. I slept on the bottom bunk and often got annoyed with her as she moved around jostling me from my slumber. I found reprieve when she would be gone on the weekend, I got the room to myself and much better sleep than any other time. However, that quickly changed.
+Then, I heard it.
 
-Around the time I turned 12 I was staying up later to sneak my iPod while my parents were downstairs unaware. It was at this time that I realized I now hated sleeping in my room alone. I remember talking to some online friends about some anime which I had just gotten into when it happened. I could feel someone climbing up the ladder and adjusting themselves on the top bunk. I kept my head to the ladder because it faced the door and I hated the light that would creep in, but now I wished I had, just to see if there was something there. Or maybe if I had then whatever this entity was wouldn't have tried to get to the top bunk.
+It sounded like a faint wisp, a current of flowing air. It wasn’t constant, it came then stopped, came then stopped.
 
-You don't know true intense paralyzing fear until you have experienced something unexplained. I had no pets and my other two younger siblings were in cribs with a shut door that they couldn't get out of. Something was up there and I didn't think I had the courage to check. In my mind, the thing wouldn't do anything if I put my blanket over my head and fell asleep. So that was what I did. For three months, anytime my sister left for the night (which mind you was generally every weekend) I would sleep with my blanket over my head. I thought that was fool proof until something changed.
+what could that sound be? 
+I don’t have anything in my room that makes a sound like this.
 
-Whatever it was climbed up to the top bunk, settled down and made itself comfortable. I had my blanket over my head like usual and for a couple minutes that was how it was. I was trying to fall asleep when I heard the breathing. It was a heavy loud breathing, like if you were trying to catch your breath. Maybe it wouldn't have been so bad if it weren't right next to my ear. The fear ran through my body like ice through my veins. I couldn't move, it was as if the entity was stealing my breath from from me for their own use. The mere thought of breathing while it was next to me brought out some deep guttural fear I had never experienced before in my life. I knew I needed to move and in the matter of what felt like milliseconds I was out of my bed and down the stairs. I don't know what made me do it but I told my parents I was just thirsty and came down for water. Nothing about a weird entity or something breathing next to me.
+I consider my options.
 
-I have no memory of it ever returning after that.
+Could it be me breathing?
 
-However, I just got my first solo apartment recently and last night I could have sworn I felt something lay down next to me and some deep breathing on the nape of my neck before I passed out.
+To test my theory—I hold my breath hoping the noise was simply me breathing myself awake.
+The noise is still in my room.
 
-&#x200B;
+What…the hell?
 
-Edit: I used very vague language because I never actually saw what it was or investigated it in any sense so I can't pinpoint exactly what this energy was.
+Not just because I still hear the noise, but because it sounds exclusively like someone breathing. 
+I sit up, simultaneously hearing the air pockets escaping my spine, breaking the rhythmic breathing.
+
+The first thing I see makes me choke on my breath.
+
+At the right bottom corner of my bed, there’s a dark outline of a head. 
+
+My eyes haven’t adjusted and I desperately want to rub them, hoping that would help them adjust, but I was frozen. It was the middle of summer, the nights never went below 75, but I couldn’t stop shaking. I couldn’t take my eyes off of the thing that stared back.
+
+The breathing sound was the same pace as when I first heard it, in, out, in, out. 
+
+After what felt like a lifetime, I forced my rigid arm to grab my phone. I missed the nightstand a number of times before I found it, refusing to look away from the head. After finally grabbing it, I quickly turned on the flashlight and shined it on the bed’s corner.
+
+Nothing. 
+
+I hastily shined the light all around my room, hoping that the head was somewhere to be seen. The more I found nothing, the more frantic I became shining my light around the room. Hyperventilating.
+
+I couldn’t find it. 
+
+Immediately I stopped.
+
+Was that even real or did I imagine it?, I thought to myself.
+
+That alone brought me down from my frantic state and I was almost back to breathing normally.
+After doing one final shine at the spot where the head was and a final sweep around the room. I had to conclude that it was all my imagination.
+
+“Thank god”, I breathed out as the crushing weight of terror left my body. I reluctantly turned off my phone’s light and put it back on the nightstand. 
+
+Laying my body back down, I still felt a tingling of fear from what I’d saw. Deciding I’d rather see nothing than anything if I woke up again, I brought my head under the covers and tucked the blanket’s opening under my head. Turning my whole body away from where I saw the head, now I could be somewhat comfortable.
+
+Finally, I was able to close my eyes and attempt to drift back to sleep.
+
+That was until I heard the breathing again, louder than before—closer than before. 
+
+I felt it. 
+I FELT IT..
+
+The hot, raspy breathing hitting the back of my neck. All I could do while frozen in terror, was whimper.
