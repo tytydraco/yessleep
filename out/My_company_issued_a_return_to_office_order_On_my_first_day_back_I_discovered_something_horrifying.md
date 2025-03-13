@@ -176,11 +176,11 @@ She adopted a deadpan expression. “Cora, we’re *not* doing that. First you p
 
 My jaw dropped. Was *this* person *also* pretending to be Ava?
 
-I tried to pull away from her again, only for the second fake Ava to whirl around, restrain me, and, with remarkable strength, drag me towards the auditorium. I kept trying to fight her, to pull her off of me, but all succeeded in doing was exhausting myself even further.
+I tried to pull away from her again, only for the second fake Ava to whirl around, restrain me, and, with remarkable strength, pull me towards the auditorium. I kept trying to fight her, to pull her off of me, but all succeeded in doing was exhausting myself even further.
 
 Some of what followed passed in a blur. I recall Ava, or whatever she was, dragging me passed row after row of empty seats, across countless small puddles of rancid goo, and onto a stage covered in banners, streams, and balloons; an unnatural warmth drifting down from the air above; and the sense that I was being watched by something hostile and utterly evil. I remember spotting a loose balloon and watching it as it floated ever so slowly, up and above the auditorium stage. With a loud “pop,” it burst upon making contact with a sight that still horrifies me to this day.
 
-An amalgam of body parts stretched across the ceiling. A soup of limbs, torsos, lips, ears and, more than anything, faces. *So many* faces, all floating in an inverted pool, a hazy green substance occasionally dripping from their main pained, open mouths onto the floor below.
+An amalgam of body parts stretched across the ceiling. A soup of limbs, torsos, lips, ears and, more than anything, faces. *So many* faces, all floating in an inverted pool, a hazy green substance occasionally dripping from their pained, open mouths onto the floor below.
 
 A plethora of voices, one of which I recognized as Monica’s, began speaking. “Welcome home.” “We’re happy to have you here with us.” “We’ve been waiting for you for so long.” “I knew you’d make it.”
 
@@ -190,7 +190,7 @@ Out of its mouth slithered a long, slimy organ. It unfurled as it dropped, landi
 
 My captor pushed me closer to it. For a moment, I thought about giving up. About letting the sticky ligament wrap around me and pull me upwards into the gaping mouth. I wondered what it would be like to be digested by that thing, to become a part of it, to become one with everyone else. I imagined it swallowing up my anxieties, my student debt, and my bouts of insomnia, and replacing them with bottomless sleep.
 
-The mouth above me emanated several words in a deep, slurred voice, but I wasn’t paying attention to it. As tired as I was, I knew I had to fight. Not just for myself, but also for the twins, my husband, and the life I wanted to live. James and Ella are counting on me, I told myself, as I mustered the kind of strength that courses through an animal protecting its young.
+The mouth above me emanated several words in a deep, slurred voice, but I wasn’t paying attention to it. I knew I had to fight. Not just for myself, but also for the twins, my husband, and the life I wanted to live. James and Ella are counting on me, I told myself, as I mustered the kind of strength that courses through an animal protecting its young.
 
 It caught fake-Ava off guard. At first, she managed to keep her grip on me, but the pain from the way I scratched and dug my nails into her arm eventually wore her down. With all my might, I pried her off of me and, without wasting a moment, took the opportunity to run.
 
