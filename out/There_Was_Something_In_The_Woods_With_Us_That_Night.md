@@ -32,7 +32,7 @@ He cocked his head and I could see the panicked expression carved onto his face,
 
 The irony of his condemnation of speech was funny to me at the time, after all we were shining flashlights through the trees like lunatics. Even now, I doubt being quiet would’ve kept us concealed. Over tree trunk and river, we crept and I began to question Richard ‘s decision to leave out the crazy Gamekeeper and why we’d really come out in the first place.
 
-Our flashlights illuminated the suffocating confines of the darkness, like headlights they searched over tree after tree after… Then there they were, three tallies carved like crooked fingers into the soft flesh of a single tree’s trunk. I remember running my fingers through the grooves in the wood, thee were rough and crude and seemingly pointless. We moved on soon after, the hysteria over the ‘tally of doom’ fading back into the usual silence.
+Our flashlights illuminated the suffocating confines of the darkness, like headlights they searched over tree after tree after… Then there they were, three tallies carved like crooked fingers into the soft flesh of a single tree’s trunk. I remember running my fingers through the grooves in the wood, they were rough and crude and seemingly pointless. We moved on soon after, the hysteria over the ‘tally of doom’ fading back into the usual silence.
 
 Boredom had set in, why exactly had Richard made us come out here and why had we obliged? I had thought at the big age of thirteen I was a grown-up, spared from fear, how wrong I’d been. The enforced silence made it worse I had heard every creak in the trees, every muntjac’s howl as it pierced the silence like a bullet and every footstep upturning freshly fallen leaves
 
@@ -62,7 +62,7 @@ My best friend, for years, through everything and the last I would know of him w
 
 Like a miasma it hung in the air, almost tangible and for what seemed like an eternity we stood there, frozen and unable to react. Josh’s jaw was slack and his words came out a barely perceivable cacophony of whimpers and cries.
 
-“The… The Gamekeeper? Is… is it him… You heard those footsteps before right?”
+“The… The Gamekeeper? Is… is it him… You heard those footsteps before, right?”
 
 I said nothing and did nothing, not a word in any language could have or would have reassured either him or me.
 
@@ -97,6 +97,8 @@ I began to plead with whatever was behind me, my voice was shrill and now more t
 Seconds, minutes, hours passed? I don’t even know how long it was before I turned around and I wish I never did. 
 
 The water ran sanguine as a mass drifted onto the shore. Not long congealed blood clung to its face glinting in response to my abandoned flashlight’s beam. Out of their sockets its eyes bulged, pupils dilated into deep blackened moon-shaped pools. Twisted was its mouth, teeth missing whether from age or death I could not tell; It seemed to scream at me and I screamed back…
+
+---
 
 The Police found me on the bank the next morning and to be honest I don’t remember what happened after or before they did. My friends, much like me were soon found and after the events of that night we kind of drifted in and out of friendship, a shame I suppose but I guess it was for the best. 
 
