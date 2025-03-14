@@ -22,7 +22,9 @@ A sound jolted me awake. Something rattling in the distance—back near the hous
 
 Behind it, a set of storm cellars sat against the ground. One of the doors thrashed up and down, caught in the wind.
 
-The basement beyond churned my stomach. A festering stench of decay wafted up. I flipped the loose door fully open. Thick boards stuck out from the second door, jagged nails like teeth where they had once held it shut. A tingle of doubt ran through me. Did the doors open from the inside? Did the wind rip them loose?
+The basement beyond churned my stomach, the stench of decay thick and cloying as it wafted up. One door remained intact while the other hung open, a splintered board jutting from its frame, jagged nails protruding like teeth where they had once held it shut. They had secured both doors in place, yet now one gaped open, the barrier broken. A tingle of doubt crept through me as I wondered if the doors had been forced from within or if the wind had somehow torn them loose. But the damage was too deliberate, too heavy. 
+
+*Something with weight had done this.*
 
 I liked this place less and less. Being this close to the house made my skin crawl, though I couldn’t put my finger on why. Then I heard it. A rattle at the barn doors behind me. Where all my belongings were.
 
@@ -158,7 +160,9 @@ There was a second kennel. Empty.
 
 I waited, breath caught in my throat, forcing myself not to move. His head cocked slightly, listening, but then he returned to his stillness. 
 
-The vacant slits in his head made me think, I remember hearing about how the eyes are the first thing bugs consume when you die. They’re the softest. Was that what happened to them? 
+The vacant slits in his head reminded me of something I remember hearing about. How the eyes are the first thing that carrion insects consume when you die. Because of how soft they are. 
+
+*Was that what happened to them?*
 
 Her feet resumed their slow, wet shuffle in the back room.
 
