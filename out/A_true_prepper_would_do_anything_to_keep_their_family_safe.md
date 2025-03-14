@@ -1,6 +1,6 @@
 The sounds of explosions and gunfire rumbled through the walls of the bunker.
 
-It was now 4am. Surrounded by shelves of supplies, books and boardgames, I watched my wife and kids huddle together in the low-light.
+It was now 4am. Surrounded by shelves of supplies, books and board games, I watched my wife and kids huddle together in the low-light.
 
 *“It’s going to be okay…”*
 
@@ -18,7 +18,7 @@ This was not their first rodeo. I’d been prepping them for this moment their w
 
 “We need to get out, *NOW!”*
 
-Instinctively, they’d known where to go. But the mood changed once everyone was down there - once the door of the bunker was sealed shut.
+Instinctively, they’d known where to go. But the mood changed once everyone was down there; once the door of the bunker was sealed shut.
 
 Confusion reigned.
 
