@@ -206,7 +206,7 @@ It was my great-grandfather’s ashes.
 
 The last night Davey and I stayed in that house, I jolted awake to the sound of my son shrieking from somewhere below me. Ever since I discovered the red effigy had grown, he had been sleeping in my bedroom, right next to me.
 
-My son wasn’t in bed when I heard the wails, so I launched myself out of bed, sprinting toward the cellar. If I had been paying more attention, I may have noticed the light under the closed bathroom door that I passed on my way there.
+My son wasn’t in bed when I heard the wails, so I launched myself upright, sprinting toward the cellar. If I had been paying more attention, I may have noticed the light under the closed bathroom door that I passed on my way there.
 
 Seconds later, I was at the bottom of the basement stairs. I flipped the cellar light on, but the bulb must have burnt out, because nothing happened. In the darkness, I could faintly see Davey kneeling over the red effigy, screaming in pain.
 
