@@ -194,7 +194,7 @@ She leaned in close.
 
 I could feel my eyes widen with terror. 
 
-As she spoke, black droplets splattered onto my sleeve as she spoke. My heart thumped hard against my ribs. Her lips furled into a smile. 
+As she spoke, black droplets splattered onto my sleeve. My heart thumped hard against my ribs. Her lips furled into a smile. 
 
 “I know you saw Ben. In there.” She motioned toward the other room.
 
@@ -258,13 +258,13 @@ I bolted toward the door, slipping, catching myself, my pulse hammering in my th
 
 There was no sound.
 
-Just the awful, meaty crunch as his hand was crushed between the jagged nails on the board that once held the  heavy doors shut. I watched, frozen, as his fingers flexed once, twice, the raw skin peeling apart, flesh splitting open, dragging slowly backward through the rusted nails and back into the storm cellar, tearing deep, splitting apart the hand like a ship grinding over a reef.
+Just the awful, meaty crunch as his hand was crushed between the jagged nails on the board that once held the heavy doors shut. I watched, frozen, as his fingers flexed once, twice, the raw skin peeling apart, flesh splitting open, dragging slowly backward through the rusted nails and back into the storm cellar, tearing deep, splitting apart the hand like a ship grinding over a reef.
 
 The ruined digits disappeared into the cellar with a thump. 
 
 I stood there, breathless, chest heaving, rain pounding against the earth outside.
 
-*God. What were they? Were they even people anymore?+*
+*God. What were they? Were they even people anymore?*
 
 I rushed toward the barn, feet pounding through the mud, breath burning in my throat. The storm cellars tore open behind me when I was halfway across. I didn’t look back, but I heard the splintering wood, the slap of bare feet in the rain. The earth was a mess of deep puddles now, the hail softening into a relentless downpour, soaking through my clothes as I pushed forward. The barn loomed ahead, red and peeling, the place where all of this began.
 
@@ -280,13 +280,15 @@ I buried myself in a pile of soiled hay, curled tight, pulling more over me, bar
 
 The tension coiled tight, a wire stretched to its breaking point. He wouldn’t be able to follow me up here, too big, too heavy, but she could.
 
-I heard her hands scrabbling against the rungs of the ladder, her feet clumsy as she climbed. The wood groaned under her weight. A wet, uneven shuffle. She was on all fours now, crawling across the loft, sifting through the hay.
+I heard her hands scrabbling against the rungs of the ladder, her feet clumsy as she climbed. The wood groaned under her weight. 
+
+Then there was a wet, uneven shuffle. She was on all fours now, crawling across the loft, sifting through the hay.
 
 I held my breath.
 
 She was inches away. Close enough that I could make out the thin, cracked line of her lips, the way they barely covered the dark gums beneath. Close enough that the stink of her clung to the air, thick with the sweetness of decay.
 
-I heard her tongue move inside her mouth, restless, shifting, like something separate from her.
+I heard her tongue move inside her mouth, restless, shifting. 
 
 Her ruined hand, swollen and trembling, dropped into the straw beside my leg.
 
