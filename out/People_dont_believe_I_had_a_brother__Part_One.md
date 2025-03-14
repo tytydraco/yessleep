@@ -327,3 +327,9 @@ I stared at him for a moment, again fighting the urge to leave.  “Okay.  We 
  
 
 He nodded.  “Yeah.  It…It’ll be fine.  They’re our parents, [right](https://www.reddit.com/r/Verastahl/)?”
+
+  
+\*\*\*\* 
+
+  
+[Part Two](https://www.reddit.com/r/nosleep/comments/1jbecwh/people_dont_believe_i_had_a_brother_part_two/)

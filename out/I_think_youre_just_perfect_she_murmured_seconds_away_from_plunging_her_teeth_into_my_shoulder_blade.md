@@ -140,7 +140,7 @@ Until one evening when I could ignore it no longer.
 
 \- - - - -
 
-The sun had just started to crest under the horizon, casting curtains of dim light into my home; the decaying shadows of an unlit room embraced by a withering twilight. I was pacing furiously around my first floor, at my wit's end with the sensation and contemplating what to do next, shirt off since the fabric of my flannel was irritating the growth. At the same time, I was attempting to keep a simmering panic attack from completely taking over. No matter which way I looked at the situation, though, my mind kept arriving at the same answer.
+The sun had just started to crest under the horizon, casting curtains of dim light into my home; the decaying shadows of an unlit room embraced by a withering twilight. I was pacing furiously around my first floor, at my wit's end with the sensation and contemplating what to do next, shirt off since the roughness of my flannel had been irritating the growth. At the same time, I was attempting to keep a simmering panic attack from completely taking over. No matter which way I looked at the situation, though, my mind kept arriving at the same answer.
 
 Might be time for the hospital.
 
