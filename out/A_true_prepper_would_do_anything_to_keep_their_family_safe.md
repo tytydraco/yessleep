@@ -78,7 +78,7 @@ Almost wistfully, I found myself thinking of simpler times… Of snacky, boister
 
 We used to play UNO a lot. The kids loved it.
 
-Often things got heated - cards got thrown and sore losers would lash out - but we were in it *together*. It was real. Fun. Messy. You’d find little kernels of popcorn buried in the hearth rug for days after…
+Often things got heated - cards got thrown and sore losers lashed out - but we were in it *together*. It was real. Fun. Messy. You’d find little kernels of popcorn buried in the hearth rug for days after…
 
 But all that felt like a *lifetime* ago.
 
