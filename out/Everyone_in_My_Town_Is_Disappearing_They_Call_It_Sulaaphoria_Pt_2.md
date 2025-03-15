@@ -345,3 +345,5 @@ A useless reaction.
 It had already found the wound on my palm.
 
 And slid inside.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1jc0ehr/everyone_in_my_town_is_disappearing_they_call_it/)
