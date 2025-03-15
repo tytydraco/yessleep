@@ -1,9 +1,7 @@
 [Part One](https://www.reddit.com/r/nosleep/comments/1jamo5v/people_dont_believe_i_had_a_brother_part_one/)
 
-  
-\*\*\*\* 
+\*\*\*\*
 
-  
  
 
  
@@ -151,3 +149,8 @@ I still wonder if I really thought that was true when I said it, or if it was ju
 I was very, very [wrong](https://www.reddit.com/r/Verastahl/).
 
  
+
+\*\*\*\*
+
+  
+[Part Three](https://www.reddit.com/r/nosleep/comments/1jc634l/people_dont_believe_i_had_a_brother_part_three/)

@@ -8,9 +8,9 @@ The camera didn’t pick up sound, but later, the two gals at reception told me 
 
 “He’s actin’ possessed.”
 
-They handed him intake forms. He hobbled back to a bench, and I watched through the lens as another client—a woman holding a cat carrier—subtly slid a few seats away.
+They handed him intake forms. He hobbled back to a bench, and I watched through the lens as another client—a woman holding a cat carrier, subtly slid a few seats away.
 
-I looked up his paperwork. The address led to a warehouse in Tennessee, three states away. The name seemed fake too. Keeton Scruggs. No records. No online presence. But the dog’s name? Mutt. That was the only detail I believed.
+I looked up his paperwork. The address led to some warehouse out in the scrublands, three states away. The name seemed fake too. Keeton. No records. No online presence. It didn’t seem to fit him. But the dog’s name? Mutt. That was the only detail I believed.
 
 You might wonder why I checked. It’s not standard protocol. I don’t usually do this. But the events of the last few nights led me to my search.
 
@@ -34,7 +34,7 @@ This is usually where clients start rambling. Some could go on for hours if you 
 
 When I knelt to take the dog’s heart rate, the second my fingers touched its skin, a wrongness crawled into me. That tingle before lightning strikes. That creeping dread when something awful is about to happen.
 
-The vitals were normal—heart rate, breathing. But its skin was cold. 97 degrees, lower than we like. It was mildly dehydrated, maybe 4%. But when I peeled back its loose lips to check its gums, I felt like I was too close to something I shouldn’t be. The gums were pale. The pupils locked onto me. Dilated.
+The vitals were normal—heart rate, breathing. But its skin was cold. 97 degrees, lower than we like. I tented its skin, saw it was mildly dehydrated. But when I peeled back its loose lips to check its gums, I felt like I was too close to something I shouldn’t be. The gums were pale. The pupils locked onto me. Dilated.
 
 It wasn’t growling. No hackles raised. Just watching. Like it was restraining itself.
 
@@ -58,9 +58,9 @@ A few moments later, our on-site emergency veterinarian, Dr. Harkham, came in. O
 
 Keeton never lost that dumb smile. That half-cocked grin. Like something was hilarious. But he nodded. Accepted the treatment plan.
 
-We went to take the dog into the back treatment area. I slipped a muzzle on, of course. And that’s when I noticed it—it wouldn’t walk.
+We went to take the dog into the back treatment area. I slipped a muzzle on, of course. And that’s when I noticed how the dog refused to walk.
 
-The owner had dragged it behind him earlier, but now? It wasn’t lethargic. It was choosing not to move.
+The owner had dragged it behind him earlier, but now? It wasn’t lethargic. I could see in its eyes, it was choosing not to move.
 
 I had a larger male staff member, Ryan, carry the dog for me. As he picked it up, he glanced at me. We didn’t exchange words, but I knew he felt it too. Not just the dog. The air.
 
@@ -104,8 +104,6 @@ Fluid drip running. Heater humming. Lips curled back. Not panting. Not whining. 
 
 His eyes reflected the fluorescent light. And for one sickening second, they looked almost human.
 
-Calling that cattle dog’s owner was one of the hardest things we’ve ever done.
-
 Dr. Harkham made the call, but I heard every word, every choked sob through the thin walls of our office. The owner didn’t just cry. They wailed.
 
 I’d seen plenty of death in this job, but this was different. This wasn’t bad luck. Something else had its hands in this.
@@ -114,9 +112,9 @@ The mood in the hospital shifted. In all my years, I’d never seen a dog unzip 
 
 Each time we walked past Mutt’s kennel, his head turned slowly to follow.
 
-Each bloody towel. Each mop bucket. Every time we passed that black body bag, the cattle dog-sized bag, zip-tied and labeled—Mutt watched.
+Each bloody towel. Each mop bucket. Every time we passed the cattle dog-sized body bag, zip-tied and labeled—Mutt watched.
 
-That night was quiet, but it didn’t feel like a break. It felt like the storm waiting to hit.
+That night was quiet, but it didn’t feel like a break. It felt like I was watching thunderheads forming in the distance. The promise of something worse to come. 
 
 At some point, hours after the cattle dog’s death, I heard the steady beeping of a monitor from the kennel ward—the IV pump hooked up to Mutt. I didn’t want to go. But I did.
 
@@ -141,7 +139,7 @@ Ryan’s back was to Mutt.
 
 Mutt lunged.
 
-A surge of violence—muzzle strapped tight, body lunging forward—he slammed his head against Ryan’s side, ramming into him again and again.
+A surge of violence—muzzle strapped tight, body lunging forward—Mutt slammed his head against Ryan’s side, ramming into him again and again.
 
 Ryan screamed. The dog was silent, except for the mechanical snapping of his jaws, working beneath the muzzle. Spittle flying.
 
