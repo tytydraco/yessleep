@@ -28,7 +28,7 @@ The long-armed man was in the same seat. But next to him was a woman with wax-pa
 
 Neither of them blinked. Neither of them moved.
 
-I called my friend Luke and told him about it when I got home.
+I called my friend Luke.
 
 *"Dude, it’s the subway. Creeps are part of the package."*
 
@@ -66,7 +66,7 @@ All of them were grinning.
 
 By the time I got to work, I felt sick.
 
-That night, I called my mom.
+That night, I called my mother.
 
 *"Something’s happening,"* I said. *"People are... wrong."*
 
@@ -144,13 +144,13 @@ Everyone.
 
 The coffee shop. The gas station. The people waiting at the bus stop. The couple walking their dog—except the dog had *human* eyes.
 
-I called my mom.
+I called my mum.
 
 I don’t know why. I just—I needed to hear her voice.
 
 She picked up on the second ring.
 
-*"Mom—"* I whispered. *"Something’s wrong. I think I need help."*
+*"Mum—"* I whispered. *"Something’s wrong. I think I need help."*
 
 Silence.
 
