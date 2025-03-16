@@ -414,11 +414,11 @@ Jude was cruelly hooked up to the machine, his tiny, scrambling body pulsing lik
 
 When I reached out with trembling fingers to pluck him from the wires, they wouldn’t let go. Ross had forced them inside him, using him not just as a generator of light, but a battery. 
 
-His eyes flickered as they found me, rolling back and forth, his body shuddering. 
+His eyes flickered as they found me, rolling back and forth, unfocused. 
 
 I pulled him as gently as I could, untangling him from the cruel wires threaded through his skin, wrapped around his head. 
 
-He didn’t respond when I spoke his name —his lips quivered, sharp, panicked breaths sending him into coughing fits. 
+He didn’t reply when I spoke his name —his lips quivered, sharp, panicked breaths sending him into coughing fits. 
 
 His body burned with fever, his clothes clinging to him, blood trickling from his nose.
 
@@ -482,7 +482,7 @@ She began to moan, like an animal, her eyes rolling back. She started to chant.
 
 *Please tell me you didn't give the fairies with teeth your names*. 
 
-Mom was arrested when the neighbor caught her dancing barefoot across the flowerbed, singing a language I didn't understand.
+Mom was arrested when the neighbor caught her dancing barefoot across the burned flowerbed, singing a language I didn't understand.
 
 My brother and I were placed into CPS, and moved states.
 
