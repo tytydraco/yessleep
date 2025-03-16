@@ -172,7 +172,9 @@ The small of her back.
 
 Her young, gorgeous smile which has only grown kinder with age.
 
-It was there, during our improvised dance scene between Romeo and Juliet, where I had my first urge to kiss her…“And even after high school,” Sunny continued, looking at me with her perfectly tweezed brows. “Are you saying you forgot our *whole t*rip through Europe?”
+It was there, during our improvised dance scene between Romeo and Juliet, where I had my first urge to kiss her…“
+
+And even after high school,” Sunny continued, looking at me with her perfectly tweezed brows. “Are you saying you forgot our *whole t*rip through Europe?”
 
 Bright purple lights. Music Festival. Belgium. I was doing a lot more than just kissing Sunny. Some of these dance-floors apparently let just about anything happen. My mind was assaulted with salacious imagery. Breasts. Thighs. A throbbing want in my entire body. I had seen all of Sunny, and she had seen all of me—we’ve been romantically entwined for ages. We might’ve been on and off for a couple years, but she was always there for me. 
 
@@ -198,7 +200,9 @@ I could tell she was trying to draw my gaze, but I wasn’t having it. I slid of
 
 Dexter grabbed my wrist.
 
-“Hey!” I wrenched my hand “ Let go!”We struggled for a few seconds before Sunny stood up and assertively pronounced, “Darlings please, there is no need for this to be embarrassing.”
+“Hey!” I wrenched my hand “ Let go!”
+
+We struggled for a few seconds before Sunny stood up and assertively pronounced, “Darlings please, there is no need for this to be embarrassing.”
 
 Dexter let go. I took this as an opening and backed away from the booth.
 
@@ -259,7 +263,9 @@ Avoiding Sunny’s gaze, I instead turned to Dexter, who stared at me with a loo
 
 “Dexter, what is all this? 
 
-“It is saying I have to move? “We just moved in together like 6 months ago. You can't be serious.”
+“It is saying I have to move? 
+
+“We just moved in together like 6 months ago. You can't be serious.”
 
 He cleared his throat and flattened his shirt *across his newly formed pecs and six pack? What is going on?*
 
@@ -355,7 +361,11 @@ Our Skiing staycation.
 
 Our St. Patrick’s day at the beach.
 
-It’s reached a point where I can tell the memories are fake by the sheer volume. There’s no way I would have had the time (not to mention the money) to go to half these places I’m suddenly remembering. So I’m saving up to move away. Thanks to my family lineage, I have an Italian passport. I’m going to try and restart my life somewhere around Florence, but who knows, I might even move to Spain or France. I know it's a big sudden change, but after these last couple months I really need a way to reclaim myself.
+It’s reached a point where I can tell the memories are fake by the sheer volume. There’s no way I would have had the time (not to mention the money) to go to half these places I’m suddenly remembering. 
+
+So I’m saving up to move away. 
+
+Thanks to my family lineage, I have an Italian passport. I’m going to try and restart my life somewhere around Florence, but who knows, I might even move to Spain or France. I know it's a big sudden change, but after these last couple months I really need a way to reclaim myself.
 
 I just want my own life, and my own ‘*inside my head’*  back.I want to start making memories that I know are real. 
 
