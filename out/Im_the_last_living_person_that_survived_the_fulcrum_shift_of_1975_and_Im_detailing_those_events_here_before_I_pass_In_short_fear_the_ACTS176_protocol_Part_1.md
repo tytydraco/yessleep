@@ -30,7 +30,7 @@ We were already running late, and this wasn’t the agreed upon division of labo
 
 *The magic syrup bottle.*
 
-It was unclear *which* part was magical, though. Was the syrup supernaturally rising to the top of the container of its own accord, or had the magic bottle *enchanted* the syrup, thus causing the sugary globules to float like the molten wax of a lava lamp?
+It was unclear *which* part was magical, though. Was the syrup supernaturally rising to the top of the container of its own accord, or had the magic bottle *enchanted* the syrup, thus causing sugary globules to float like the molten wax of a lava lamp?
 
 *Maybe the Guinness Book of World Records has a wizard on retainer that can get to the bottom of that question when they stop by to evaluate the miracle*, I thought.
 
@@ -42,7 +42,7 @@ But! Everything else was normal. The atmosphere was breathable. The landscape ap
 
 *So then, why was I so damn terrified?*
 
-Emi scowled, swiped the bottle off the table, and returned it to the top shelf in the fridge door with an angry *clunk*. With my demand obliged, she made a point of glaring at me over the door: a familiar combination of narrowed eyes, scrunched freckles, and tensed shoulders. An expression that screamed: *are you happy now, asshole?*
+Emi scowled, swiped the bottle off the table, and returned it to the top shelf in the fridge with an angry *clunk*. With my demand obliged, she made a point of glaring at me over the door: a familiar combination of narrowed eyes, scrunched freckles, and tensed shoulders. An expression that screamed: *are you happy now, asshole?*
 
 After a few seconds of unblinking silence, she slammed the fridge closed with enough force to cause a rush of air to inflate her burgundy *Earth, Wind, and Fire* T-shirt: a fitting climax to the whole melodramatic affair.
 
@@ -152,7 +152,7 @@ Don’t remember his first name, don’t recall if he had a family or not, but I
 
 I imagine the phrase *“there’s something wrong with Mr. Baker, Mom”* sticks out in my brain as a byproduct of the trauma that immediately followed.
 
-There’s some terrible part of our wiring as a species that programs traumatic events to be remembered as vividly as possible. Once imprinted, they seem to become a meticulous blow-by-blow recreation of the incident we’d kill to forget, every detail painstakingly etched into our psyche: some impossibly elaborate mosaic painted on the inside of our skulls, all-encompassing and inescapable, like the *“Creation of Adam”* on the ceiling of the Sistine Chapel.
+There’s a terrible piece of wiring in our species that causes traumatic events to be remembered as vividly as humanly possible. Once imprinted, they seem to become a meticulous blow-by-blow recreation of the incident we’d kill to forget, every detail painstakingly etched into our psyche: some impossibly elaborate mosaic painted on the inside of our skulls, all-encompassing and inescapable, like the *“Creation of Adam”* on the ceiling of the Sistine Chapel.
 
 Emi said *“there’s something wrong with Mr. Baker, Mom”* and I saw Ben a few yards away from us, kneeling over Mr. Baker, altruistic to a fault.
 
