@@ -58,7 +58,7 @@ I told myself it was temporary. That I would find another buyer, another place. 
 
 The lamp now back in its rightful place, casting its golden glow across the parlor. As if it had never left. I told myself I wouldn’t use that room often. I wouldn’t have to look at it.
 
-But as I was setting it down, that was when I saw it—the new glass panel. I could not remember if it had always been there. Now I'm certain it wasn't.
+But as I was setting it down, that was when I saw it—the new glass panel. I could not remember if it had always been there. Now I'm certain it hadn't.
 
 At the very top, where before there had been only light, there was now something more. A place bathed in unnatural brilliance. A scene that hadn’t been there before. A world, filled with golden light and vibrant flowers. Two figures stood at the center, hands clasped, a child between them. Around them, others danced in celebration, their faces eerily familiar.
 

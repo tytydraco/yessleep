@@ -58,7 +58,7 @@ I shot my husband an annoyed glance as Emi stomped past him. He sighed, rubbing 
 
 As he trudged out of the room, I said nothing. Not a word. Just watched him go, white-hot fire still burning behind my eyes.
 
-In my youth, I struggled with anger. I tried to control it, but the emotion overwhelmed my better instincts more often than not. I’m much older now, and since then, I’ve gained a tighter grasp on my natural temper. I think Ben would agree, at least I hope he would.
+In my youth, I struggled with anger. I tried to control it, but the emotion overwhelmed my better instincts more often than not. I’m much older now, and since then, I’ve developed a tighter grasp on my natural temper. I think Ben would agree, at least I hope he would.
 
 He wasn’t around long enough to see me try harder.
 
