@@ -134,7 +134,7 @@ Nanny had already spun on her heel to leave—she would’ve done so regardless 
 
 And then Nanny juddered like a fleshy bobblehead.
 
-I was overcome by a warm sensation across my skin, and moments later, there came a thunderous explosion.
+I was overcome by a warm sensation across my skin, and moments later, there came a thunderous noise.
 
 Skin flew into the walls from a red eruption of dress fragments, blood, and guts.
 
