@@ -1,3 +1,5 @@
+[I'm writing this again as the last time I tried to make contact with you, his agents got the hint and took it down.]
+
 If you're reading this, it means the connection to the coordinate (3.1525° N, -20.2503° W) has been established, and this message may be your last hope to avoid what's about to come.
 
 This is Emit. K4L-K1 from the coordinate (20°65'N, 65°20'W). We can only contact through coordinates because, from where I come from, the concept of time and space has been neutralized. I am looking for the Emit in your coordinate, as what I am about to tell you can only make complete sense to an Emit.
@@ -41,14 +43,14 @@ I apologize for mentioning Emit again and again without telling you what it is. 
 
 Enhanced Memory Integration Technology (E.M.I.T.)
 
-E.M.I.T. was the cutting-edge Neuralink system that enabled consciousness projection into the past. It could take your current consciousness to a very distant negative coordinate as long as you existed in that coordinate. It was initially designed for self-improvement, but things went wrong when the CEO and then-advisor to the POTUS, Elon Musk, tried to use it on himself to explore history in its unbiased form.
+E.M.I.T. was the cutting-edge Neuralink system that enabled consciousness projection into the past. It could take your current consciousness to a very distant negative coordinate as long as you existed in that coordinate. It was initially designed for self-improvement, but things went wrong when the CEO and then-advisor to the POTUS, Mr. E.M, tried to use it on himself to explore history in its unbiased form.
 
 I am receiving some static interference and will be logged off soon. But I'll try to reconnect at a later coordinate, maybe.
 
 For now, I can tell you this much:
 
-Some call it a malfunction or maybe an orchestrated interference, but Musk ended up way back in one of the darkest coordinates of your known history at that point.
+Some call it a malfunction or maybe an orchestrated interference, but Mr. E.M ended up way back in one of the darkest coordinates of your known history at that point.
 
-1940.
+N 52° 31' 0" , E 13° 24' 0" - 1940.04.20
 
 
