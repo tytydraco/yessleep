@@ -78,7 +78,9 @@ I remember Mom telling us, “If you do a fairy a favor, they will return it by 
 
 But she also warned, “If you hurt a fairy, you will pay for it, and your children will pay for it, and your children's children’s *children* will suffer. They will hunt to the end of your bloodline, and even then, their mere presence will drive adults insane.”
 
-I wondered if she'd gotten that from a book. Before she started drinking, Mom used to tell us stories about the fairies in our yard, and how, when she was a little girl, she helped a captive fairy prince, freeing him from her neighbor’s bell jar.
+I wondered if she'd gotten that from a book. 
+
+Before she started drinking, Mom used to tell us stories about the fairies in our yard, and how, when she was a little girl, she helped a captive fairy prince, freeing him from her neighbor’s bell jar.
 
 Maybe they were protecting her after all.
 
@@ -110,11 +112,11 @@ He backed away, quickly hiding behind the shadow of a rosebud.
 
 “I'm not supposed to talk to you,” he said, shifting nervously. “I didn't tell my father I was here, so I should… probably go home before he, um, gets mad.”
 
-I was entranced by the light emitting from him;real, beautiful light.
-
 I found myself wondering if placing him in a bell jar and using him as a lantern would help me sleep.
 
-His light stole away my breath. It pulsed like a living thing, spiderwebbing down delicate glass wings sticking from his back.
+His light stole away my breath. 
+
+It pulsed like a living thing, spiderwebbing down delicate glass wings sticking from his back.
 
 I shook my head, shaking away the thought.
 
@@ -126,9 +128,7 @@ I introduced myself, hesitantly holding out my palm.
 
 I didn't realize I was shaking until I quickly retracted my hand, swiping my clammy fingers on my pajamas. 
 
-I remember him being beautiful. 
-
-Lit up in otherworldly golden light, his skin porcelain, almost translucent, wide green eyes blinking at me.
+Lit up in otherworldly golden light, his skin porcelain, almost translucent, wide green eyes blinked at me.
 
 “Jude,” he said, his wings twitching. He hopped onto my hand, wobbling and throwing his arms out to balance himself. 
 
@@ -170,7 +170,9 @@ However, as the son of the King, he was the rightful heir to the throne.
  
 Fairies *don't* like candy. I was surprised too. I grew up with Mom whispering in my ear, “Leave a berry at the bottom of the yard, and perhaps *he* will come see you.”
 
-I offered Jude a chunk of gummy worm, and he spat it out. Jude said fairies eat an assortment of foods, but are carnivores. 
+I offered Jude a chunk of gummy worm, and he spat it out. 
+
+Jude said his kind eat an assortment of foods, but are carnivores. 
 
 He showed me his teeth, elongated spikes, and I wished he hadn't. 
 
@@ -320,7 +322,9 @@ Swallowing bile, I inched closer, peering into the lamp.
 
 The sight sent me retracting, my stomach in my throat, my cheeks burning. 
 
-I could see their tiny bodies cruelly taped to the burning bulb, tossing, turning, and flailing. Their skin dripped from their bones and caught alight, glowing hair burned from their scalps, revealing the white bone of tiny fairy skulls. 
+I could see their tiny bodies cruelly taped to the burning bulb, tossing, turning, and flailing. 
+
+Their skin dripped from their bones and caught alight, glowing hair burned from their scalps, revealing the white bone of tiny fairy skulls. 
 
 Their innocent screams sent me stumbling back, dropping onto my knees. 
 
@@ -360,11 +364,7 @@ Ross turned to me, and I remember my brother’s eyes terrified me.
 
 I tried to protest, tried to free Jude’s brother. 
 
-Ross shoved me into the wall, my head smacking against concrete. 
-
-Stars danced in my eyes, a dull pain pounding at the back of my head. 
-
-He reminded me of Dad. 
+Ross shoved me into the wall. 
 
 “If you *touch* them,” he spat, “I will fucking *kill* you.” 
 
@@ -474,7 +474,7 @@ I didn't– couldn't– answer.
 
 “Frankie.” Mom made me look at her, her lips parted in a silent cry. “You *didn't*, right?”
 
-She started to moan, like an animal, her eyes rolling back. She started to chant. 
+She began to moan, like an animal, her eyes rolling back. She started to chant. 
 
 *Please tell me you didn't give the fairies with teeth your names*. 
 

@@ -194,7 +194,7 @@ The words came out more frantic than I'd intended, my voice beginning to tremble
 
 Her hand shot up to cover her mouth. 
 
-"*Oh, God... *" she whispered, looking off and pausing for a moment before asking, "Weird like, how?" 
+"Oh, God... " she whispered, looking off and pausing for a moment before asking, "Weird like, how?" 
 
 "Just... not his normal self." 
 
