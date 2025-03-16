@@ -98,8 +98,6 @@ Seconds, minutes, hours passed? I don’t even know how long it was before I tur
 
 The water ran sanguine as a mass drifted onto the shore. Not long congealed blood clung to its face glinting in response to my abandoned flashlight’s beam. Out of their sockets its eyes bulged, pupils dilated into deep blackened moon-shaped pools. Twisted was its mouth, teeth missing whether from age or death I could not tell; It seemed to scream at me and I screamed back…
 
----
-
 The Police found me on the bank the next morning and to be honest I don’t remember what happened after or before they did. My friends, much like me were soon found and after the events of that night we kind of drifted in and out of friendship, a shame I suppose but I guess it was for the best. 
 
 It’s been maybe seven or eight odd years now since that night and I’ve never really moved on. The woods were fully searched and of course the body that well… found me on the bank was the Gamekeeper, he’d been missing for a week. That fact had all but confirmed my worst fears, there had been someone or something in those woods with us that night.

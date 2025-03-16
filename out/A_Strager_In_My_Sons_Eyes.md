@@ -45,7 +45,3 @@ Now, I am **certain**—Mark has **possessed my son**.
 I know I **can’t hide here much longer**. This was **his house**—he **knows** about the **attic**. So now, I am here, **typing this post**, **begging for help**. I **can’t call anyone**—the **noise** would **give away my position**.
 
 **Someone, please save me before he finds me.**
-
-
-
-O
