@@ -92,7 +92,7 @@ Another few clicks of his tongue, a handful of false starts with “*Uhhs”* t
 
 Right before he started speaking, my eyes landed on a weathered envelope at the bottom of the pile. No return address. No stamp. Didn’t even have my name on it. In raggedy, child-like handwriting, it simply read: *“For the nice man on the train.”*
 
-*“The woman who bit you sat on the subway for about eighteen hours every day, without fail. Didn't eat, didn't drink. For the last ninety days, she did, at least. Transportation authority doesn’t hold CCTV footage for longer than three months,"* he said.
+*“The woman who bit you sat on the subway for about eighteen hours every day, without fail. Didn't eat, didn't drink. For the last ninety days at least. Transportation authority doesn’t hold CCTV footage for longer than three months,"* he said.
 
 My heart thundered wildly against my sternum as I pulled the crumpled message out of its envelope.
 

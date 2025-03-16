@@ -42,9 +42,11 @@ They both waved.
 
 **WEDNESDAY**
 
-I took a different carriage this time.
+The next morning, I took a different carriage to my usual. 
 
-Didn’t matter.
+I stepped onto the train, still half-asleep, and felt it instantly.
+
+They were there too.
 
 There were *four* of them now.
 
@@ -54,17 +56,13 @@ I held onto the pole near the door, heart hammering. They didn’t move with the
 
 They didn’t.
 
-And in the morning?
+By the time I got to work, I felt sick.
 
-They were there too.
+And the trip home that night? 
 
-I stepped onto the train, still half-asleep, and felt it instantly.
-
-Too many still, watching bodies scattered through the carriage. Some were sitting. Some were standing.
+There were far too many still, watching bodies scattered through the carriage. Some were sitting. Some were standing.
 
 All of them were grinning.
-
-By the time I got to work, I felt sick.
 
 That night, I called my mother.
 
