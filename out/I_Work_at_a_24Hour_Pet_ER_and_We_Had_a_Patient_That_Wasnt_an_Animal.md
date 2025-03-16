@@ -8,7 +8,7 @@ The camera didn’t pick up sound, but later, the two gals at reception told me 
 
 “He’s actin’ possessed.”
 
-They handed him intake forms. He hobbled back to a bench, and I watched through the lens as another client—a woman holding a cat carrier, subtly slid a few seats away.
+They handed him intake forms. He hobbled back to a bench, and I watched through the lens as another client holding a cat carrier, subtly slid a few seats away from him. 
 
 I looked up his paperwork. The address led to some warehouse out in the scrublands, three states away. The name seemed fake too. Keeton. No records. No online presence. It didn’t seem to fit him. But the dog’s name? Mutt. That was the only detail I believed.
 
@@ -16,9 +16,11 @@ You might wonder why I checked. It’s not standard protocol. I don’t usually 
 
 When he handed the paperwork back, he sat down again, dragging the dog with him like a sack of flour. He leaned against the wall, arms folded, eyes fixed ahead. He barely moved, like a corpse propped upright. His dog didn’t move much either. Just sat there. Waiting.
 
-We see a lot of characters here. Some genuinely kind folks, too. But this man? Something about him was wrong.
+We see a lot of characters here. Some genuinely kind folks, too. But this man? 
 
-I stepped into the lobby to bring him into an exam room. It took him a second to register me, like he was in a trance. And then the smell hit me—stale cigarettes, gas fumes, and beneath that, something worse. A rotten, greasy stench that clung to the air.
+Something about him was wrong.
+
+I stepped into the lobby to bring him into an exam room. It took him a second to register me, like he was in a trance. And then the smell hit me; stale cigarettes, gas fumes, and beneath that, something worse. A rotten, greasy stench that clung to the air.
 
 The dog sat still, vacant, a husk. It was like someone had lobotomized it. As it stood there, drool began dripping from its mouth, pooling on the floor.
 
@@ -34,7 +36,7 @@ This is usually where clients start rambling. Some could go on for hours if you 
 
 When I knelt to take the dog’s heart rate, the second my fingers touched its skin, a wrongness crawled into me. That tingle before lightning strikes. That creeping dread when something awful is about to happen.
 
-The vitals were normal—heart rate, breathing. But its skin was cold. 97 degrees, lower than we like. I tented its skin, saw it was mildly dehydrated. But when I peeled back its loose lips to check its gums, I felt like I was too close to something I shouldn’t be. The gums were pale. The pupils locked onto me. Dilated.
+The vitals were normal, the heart rate, breathing. But its skin was cold. And its temperature was 97 degrees, lower than we like. I tented its skin, saw it was mildly dehydrated. But when I peeled back its loose lips to check its gums, I felt like I was too close to something I shouldn’t be. The gums were pale. The pupils locked onto me. Dilated.
 
 It wasn’t growling. No hackles raised. Just watching. Like it was restraining itself.
 
@@ -46,9 +48,9 @@ I paused, mid-turn. “Excuse me?”
 
 “If yer gonna walk from him, do it facin’. Otherwise, somethin’ bad might happen.”
 
-I exhaled sharply, irritated. He’d watched me get close to the dog, lean in, listen to it—yet now he decided to warn me it was aggressive?
+I exhaled sharply, irritated. He’d watched me get close to the dog, lean in, take its temperature, listen to its heart rate. Yet now was the time he decided to warn me it was aggressive?
 
-I liked this situation less and less. The man. The dog. The way this whole thing sat in my gut like spoiled food.
+I liked this situation less and less. The man. The dog. The way this whole situation ached in my gut. 
 
 I backed away, facing the dog. It watched me. Intently. Like I was prey.
 
@@ -66,7 +68,7 @@ I had a larger male staff member, Ryan, carry the dog for me. As he picked it up
 
 When we went to draw blood from its jugular, it didn’t even react. Ryan held the dog steady, hands firm on either side of its head, jaws up. The needle slipped in. The syringe filled.
 
-The blood was cold.
+The blood was cold. 
 
 I ran it through the machines. Just mild dehydration. Some elevated lipase hinting at pancreatitis. No infection. Nothing to explain why it was so cold.
 
@@ -76,13 +78,13 @@ I was relieved when Keeton left.
 
 That was three days ago.
 
-That night was quiet. Rare for an emergency hospital. We had another dog kenneled two spaces down from the Rottweiler—a cattle dog that had undergone emergency laparotomy. It had been doing fine. Normal vitals. Good appetite. Responsive.
+That night was quiet. Rare for an emergency hospital. We had another dog kenneled two spaces down from the Rottweiler. It was a cattle dog that had undergone emergency laparotomy. It had been doing fine. Normal vitals. Good appetite. Responsive.
 
 Two hours later, I checked on it.
 
 And the cattle dog was dead.
 
-It had torn open its own incision. Somehow, it had gotten its cone off. And it had attacked itself. Not licking, not nibbling—mutilating.
+It had torn open its own incision. Somehow, it had gotten its cone off. And it had attacked itself. Not licking, not nibbling, it was destroying itself. 
 
 Even when coils of intestine unfurled from its abdomen, it had kept biting at those guts. Like they were coiled snakes and he was killing them.
 
@@ -92,9 +94,7 @@ The kennel was a bloodbath. It streaked the walls, spattered the ceiling. His in
 
 The cattle dog’s eyes were vacant orbs. Glistening in the light. I stood still for a moment. Taking in the horror. The violence.
 
-And two kennels down—
-
-Mutt.
+And two kennels down sat Mutt.
 
 Sitting.
 
@@ -112,15 +112,18 @@ The mood in the hospital shifted. In all my years, I’d never seen a dog unzip 
 
 Each time we walked past Mutt’s kennel, his head turned slowly to follow.
 
-Each bloody towel. Each mop bucket. Every time we passed the cattle dog-sized body bag, zip-tied and labeled—Mutt watched.
+Each bloody towel. Each mop bucket. Every time we passed the cattle dog-sized body bag, zip-tied and labeled. 
+
+Mutt watched.
 
 That night was quiet, but it didn’t feel like a break. It felt like I was watching thunderheads forming in the distance. The promise of something worse to come. 
 
-At some point, hours after the cattle dog’s death, I heard the steady beeping of a monitor from the kennel ward—the IV pump hooked up to Mutt. I didn’t want to go. But I did.
+At some point, hours after the cattle dog’s death, I heard the steady beeping of a monitor from the kennel ward. It was the IV pump hooked up to Mutt. I didn’t want to go over there. But I did.
 
 I brought Ryan.
 
 We slipped the muzzle over Mutt’s head easily. Too easily. He didn’t resist, didn’t flinch, just let it happen. His eyes followed the movement of our hands as we buckled it snugly behind his head. Only his eyes moved. Two dark orbs. Watching. Digesting.
+
 The dog had kinked the IV line beneath its paw. We moved it aside, smoothed it out. That should have been it. A simple fix. But as we turned to leave, the light above his kennel flickered.
 
 At first, just a slight flicker. Barely noticeable. Then it sputtered, dimmed, and cut out completely. The kennel dropped into shadow.
@@ -139,7 +142,7 @@ Ryan’s back was to Mutt.
 
 Mutt lunged.
 
-A surge of violence—muzzle strapped tight, body lunging forward—Mutt slammed his head against Ryan’s side, ramming into him again and again.
+It was a surge of violence, even with the muzzle strapped tight. A blur of black as Mutt’s body lunged forward. The muzzled face rammed against Ryan’s side, brutally smashing into him again and again.
 
 Ryan screamed. The dog was silent, except for the mechanical snapping of his jaws, working beneath the muzzle. Spittle flying.
 
@@ -159,9 +162,9 @@ It felt calculating.
 
 It felt evil.
 
-Ryan was shaken, and so was I. But we didn’t talk about it. We just got out of there.
+Ryan was shaken, and so was I. He showed me a large purple bruise blooming on the skin beneath his ribs. God, it was huge. But neither of us had any further inclination to talk about it. 
 
-The rest of the night passed without incident. I focused on my other cases—a chihuahua with pneumonia, a Persian cat having low-grade seizures, a tabby with proprioception deficits. I went through the motions, but my mind was elsewhere.
+The rest of the night passed without incident. I focused on my other cases for the night. I saw a chihuahua with pneumonia, a Persian cat having low-grade seizures, a tabby with proprioception deficits. I went through the motions, but my mind was elsewhere.
 
 Ryan seemed dazed, like something fresh had broken inside of him. It wasn’t just shock. Or trauma. Or fear. It was more profound than that.
 
@@ -171,9 +174,9 @@ And when I finally collapsed into bed, I pulled my pistol out of my purse and sl
 
 I dreamed of a black face snarling in the dark. Leaning in. Sniffing.
 
-Eyes like hollow pits, endless swirling voids.
+Eyes like hollow pits, endless swirling galaxies within.
 
-Teeth sinking into my flesh—not a bite, not an attack, but a slow, deliberate pressure. Easing into my skin.
+I felt the far away sting of teeth sinking into my flesh—not a bite, not an attack, but a slow, deliberate pressure. Easing into my skin.
 
 When I woke, my sheets were damp with sweat.
 
@@ -215,7 +218,7 @@ The kennel was open again.
 
 I hadn’t heard a sound. Hadn’t seen the door move. The only way to unlatch these kennels is with hands. With opposable thumbs.
 
-I slammed it shut again, this time locking it with a makeshift carabiner clip. I slid one plate of food under each kennel—low-fat for the Dane, critical care for Mutt.
+I slammed it shut again, this time locking it with a makeshift carabiner clip. I slid one plate of food under each kennel. I gave low-fat wet food for the Dane, and critical care wet food for Mutt.
 
 I was walking away when I heard it.
 
@@ -229,13 +232,13 @@ I turned.
 
 Mutt sat there. Watching. Silent now. Something tingled in the air. 
 
-But the Dane—The Dane had begun to cry.
+But the Dane had begun to cry.
 
 His plate of food lay spilled across the kennel floor. His hackles were raised, his body pressed against the back wall, eyes flicking toward the ceiling. He was feeling something. Something deep and inexplicable.
 
 I felt it too.
 
-When I reached for the kennel bars, the crying stopped. The Dane’s body trembled, then his whimpering changed—deepened. A low, eerie sound, like a tornado siren. Then it stopped altogether.
+When I reached for the kennel bars, the crying stopped. The Dane’s body trembled, then his whimpering changed. It deepened into a low, eerie sound, like a tornado siren. Then it stopped altogether.
 
 The dog went still. Too still.
 
@@ -317,7 +320,7 @@ I dropped everything.
 
 A voice, thick and wet, slurred in a way no dog’s throat was built to produce. It wasn’t a bark. It wasn’t a growl.
 
-It was trying to speak. And what came out wasn’t just a sound—it was a name.
+It was trying to speak. And what came out wasn’t just a sound, it was a name.
 
 My name.
 
@@ -341,7 +344,7 @@ This was meat left in the sink for weeks. This was something dead wedged into th
 
 And I realized then.
 
-The smell I’d caught when Keeton first walked into the lobby—that greasy, putrid stench—
+The smell I’d caught when Keeton first walked into the lobby; that greasy, putrid stench. 
 
 It hadn’t been him. It had been the dog.
 
@@ -357,9 +360,9 @@ The memory of Keeton’s words crawled down my spine like a cold hand.
 
 I knew what Mutt had tried to do to Ryan. I knew what he wanted to do to me.
 
-And now I knew—I wasn’t waiting for him to act.
+And now I knew, I wasn’t waiting for him to act.
 
-I was going to kill him.
+*I was going to kill him.*
 
 I kept my head down the rest of the shift, biding my time. My mind wasn’t on the cases I took. I worked on autopilot. I went through the motions, but my body was moving without me.
 
@@ -379,9 +382,9 @@ I was committing a crime. Breaking DEA laws. I could lose my license, my career,
 
 But deep in my bones, I knew one thing.
 
-That thing in the kennel—
+That thing in the kennel, whatever it was. 
 
-It needed to die.
+*It needed to die.*
 
 The next morning, when I arrived for my shift, the hospital was heavy with grief.
 
@@ -485,7 +488,7 @@ I spun, pressing my back against the door. The darkness was absolute, thick and 
 
 But I could hear him.
 
-Breathing. Slow, wet—thick with something I couldn’t name. Then, a whisper of movement, so close I felt the air shift.
+Breathing. Slow, wet and thick with something I couldn’t name. Then, a whisper of movement, so close I felt the air shift.
 
 I bolted down the hall.
 
@@ -515,7 +518,7 @@ Then, finally, he dropped.
 
 I stood there, gun trembling in my hands, ears ringing. The darkness still pulsed around me, thick and heavy, pressing in from all sides.
 
-Then—footsteps.
+Then, footsteps.
 
 Shouts. Voices. Someone grabbed my arm, yanking me back.
 

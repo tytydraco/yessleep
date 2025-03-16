@@ -1,16 +1,18 @@
+I think my head is going to explode.
+
 The headaches began the first week of October.
 
 At first, merely a dull pressure behind my eyes that I attributed to stress, to insomnia, to the changing seasons. But by mid-November, they had evolved into something more insistent - a throbbing pulse that concentrated at my temples, sharpening at dusk and lingering until dawn.
 
 It was during one of these episodes, standing on the back porch of my childhood home with my palm pressed against my skull, that I saw the first one.
 
-Twilight was bleeding across the vast wildflower fields behind the house - a crumbling Victorian at the edge of town that had remained unoccupied since my mom's passing. I had retreated here last year seeking solace in familiar surroundings, a temporary escape from my city life.
+Twilight was bleeding across the vast wildflower fields behind the house - a crumbling Victorian at the edge of town that had remained unoccupied since my mom's passing. I had retreated here last year seeking solace in familiar surroundings, a temporary escape from my city life after being disbarred for a pro bono case going sideways. I am beginning to forget the details.
 
 *I think moving back here was a mistake.*
 
-A singular figure, impossibly tall, standing motionless amidst the undulating grass. Its silhouette possessed a liquid quality that defied natural geometry - limbs elongated beyond proportion, head featureless save for a mercurial shimmer that caught non-existent light. In its hand, it carried something resembling a surveyor's instrument, though the tip pulsed with an arterial orange glow.
+A singular figure, impossibly tall, standing motionless amidst the undulating grass. Its silhouette possessed a liquid quality that defied natural geometry - limbs elongated beyond proportion, head featureless save for a mercurial shimmer that caught non-existent light.
 
-I blinked, attributing the vision to the headache - perhaps a migraine aura manifesting in increasingly bizarre forms.
+In its hand, it carried something resembling a surveyor's instrument, though the tip pulsed with an arterial orange glow. I blinked, attributing the vision to the headache - perhaps a migraine aura manifesting in increasingly bizarre forms.
 
 The diagnosis came three weeks later. On a Thursday.
 
@@ -38,7 +40,7 @@ As the weeks passed, the headaches intensified, concentrated pressure like a vis
 
 The tumor had grown 17%. The prognosis contracted accordingly.
 
-And each evening, their numbers continued to multiply.
+Each evening, their numbers continued to multiply.
 
 Dozens became hundreds.
 
@@ -56,7 +58,7 @@ Then, as abruptly as it had begun, the flickering ceased.
 
 A single figure stood before me.
 
-Its height - easily seven feet - registered first, followed by the deep, instinctual *wrongness* of its proportions. It did not stand so much as *hover*, its elongated limbs twitching with a slow, liquid motion, as though its bones - or whatever lay beneath its shifting skin - were rearranging themselves in real time.
+Its height - easily seven feet - registered first, followed by the deep, instinctual wrongness of its proportions. It did not stand so much as hover, its elongated limbs twitching with a slow, liquid motion, as though its bones - or whatever lay beneath its shifting skin - were rearranging themselves in real time.
 
 Then it moved.
 
