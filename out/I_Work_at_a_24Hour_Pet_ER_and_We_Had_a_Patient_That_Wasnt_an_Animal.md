@@ -449,15 +449,13 @@ I couldn’t move.
 
 The door to the kennel slammed shut behind me.
 
-My breath hitched. The silence was absolute. The only sound was the slow, wet rasp of Mutt’s breathing. I could feel him in the dark, the weight of his presence sinking like teeth into my skin.
-
-Then—
+My breath hitched. The silence was absolute. The only sound was the slow, wet rasp of Mutt’s breathing. I could feel him in the dark, the weight of his presence gnawing at the air.
 
 “Alliiihhhszzzznnn.”
 
 The voice came from the kennel. Thick, gurgling, wrong.
 
-A sound like a dog learning to speak, like a throat filled with crunching gravel, trying to shape words. The vowels stretched, dripping with something slick and inhuman.
+A sound like a dog learning to speak, like a throat filled with gravel, trying to shape words. The vowels stretched, dripping with something slick and inhuman.
 
 My stomach lurched.
 
@@ -481,7 +479,7 @@ Paws pounded closer. No growling. No snarling. No warning.
 
 Just movement.
 
-A freight train of silence, barreling toward me.
+A silent freight train, barreling toward me.
 
 I spun, pressing my back against the door. The darkness was absolute, thick and suffocating. The emergency lights had died, swallowing the building in shadow.
 
@@ -547,9 +545,9 @@ Blocked number.
 
 I answered.
 
-Slow, shaky breathing filled the line. Then—
+Slow, shaky breathing filled the line.
 
-A laugh.
+Then he began to laugh.
 
 Low, drawling, thick with something I couldn’t name. A mouth full of tobacco chew. Or blood.
 
