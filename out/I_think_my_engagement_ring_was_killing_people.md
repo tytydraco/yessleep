@@ -2,7 +2,9 @@ I never thought I'd be writing this, but I need to tell someone what's happened.
 
 Jake and I had been together for three years when we started talking about getting engaged. We both loved antiques. You know, items with history and stories embedded in them. Every weekend, we'd hunt together through antique shops and estate sales, searching for all sorts of forgotten treasures.
 
-That's how we found the ring. The perfect ring!
+That's how we found the ring.
+
+The perfect ring!
 
 At least that's how it felt then...
 
@@ -16,7 +18,7 @@ I think I knew what was inside before he even opened it. But when my eyes finall
 
 Jake grinned. "You know where."
 
-And I did know of course. My brain was mush. It was the ring from Madame Eloise's shop. But inside the band, something new gleamed under the lamplight: an engraving.
+And I did know of course. My brain was just temporarily mush. It was the ring from Madame Eloise's shop. But inside the band, something new gleamed under the lamplight: an engraving.
 
 *L.M. & J.C.*
 
@@ -34,7 +36,7 @@ We drank champagne under the willow, and I fell asleep that night with the ring 
 
 Then the nightmares started.
 
-I dreamed of a bride in a blood-spattered church, sobbing behind her veil. When she turned to face me, her face was bruised and tear-streaked. I woke gasping for air.
+I dreamed of a bride in a blood-spattered church, sobbing behind her veil. When she turned to face me, her face was bruised and tear-streaked. I woke gasping for air, my chest tight.
 
 "Bad dream?" Jake mumbled, pulling me closer.
 
@@ -44,11 +46,15 @@ The next morning, things got so much worse.
 
 My neighbor waved as I collected the mail. The sapphire caught the sunlight, flashing blue for just a second. Five minutes later, her brakes failed as she backed out of her driveway. Her car plowed into an oncoming delivery truck. I watched paramedics pull her mangled body from the wreckage.
 
-I tried to convince myself it was a horrible coincidence. One a billion or something. But then my boss dropped dead during a meeting, moments after complimenting my ring just hours later. An aneurysm, they said. I saw how his eyes fixed on the sapphire right before blood trickled from his ears.
+I tried to convince myself it was a horrible coincidence. One a billion or something. But then my boss dropped dead during a meeting just hours later, moments after complimenting my ring. An aneurysm, they said. I saw how his eyes fixed on the sapphire right before blood trickled from his ears.
 
-Walking home that evening, still in shock, I witnessed a man climb onto the ledge of my apartment building and jump without hesitation. The thud his body made when it hit the pavement will haunt me forever. His dead eyes found mine in the crowd. I clutched my hand to my chest, and the sapphire felt warm against my skin. Too warm.
+Deep down, I knew I had been cursed by the ring I loved so much.
 
-That night, I tried to remove the ring. My finger had swollen. The band wouldn't budge. No amount of soap, ice, or oil could loosen it.
+I had become a walking omen of death.
+
+On my way home that night, still in shock, I witnessed a man climb onto the ledge of my apartment building and jump without hesitation. The thud his body made when it hit the pavement will haunt me forever. His dead eyes found mine in the crowd. I clutched my hand to my chest, and the sapphire felt warm against my skin. Too warm.
+
+Around midnight, I tried to remove the ring. But my finger had swollen. The band wouldn't budge at all. No amount of soap, ice, or oil could loosen it.
 
 As the days continued, so did the deaths.
 
@@ -60,7 +66,11 @@ Only Jake and I walked out unscathed.
 
 After eight deaths in two weeks, I was desperate.
 
-I began Googling the ring's history online. It didn't take long to find the original owners. Lydia Morgan and James Carson. L.M. and J.C. Just like our initials.
+I began Googling the ring online. It was such a luxurious and unique ring, I was curious if it had a history. It didn't take long to find the original owners. Lydia Morgan and James Carson.
+
+*L.M. & J.C.*
+
+Just like our initials.
 
 The newspaper article from 1952 was brief but chilling: *Local Bride Found Slain on Wedding Night*. The accompanying photo showed Lydia wearing my ring.
 
@@ -86,7 +96,7 @@ Like Jake's eyes now.
 
 The old woman told me how to remove the ring. It had to be done on a new moon. There was a mixture I needed to prepare - herbs and oils and other things I won't mention here. The process would be painful, but it was the only way.
 
-Last night was the new moon.
+The next new moon, I prepared everything as I was told.
 
 Jake watched with those unfamiliar eyes as I submerged my hand in the mixture. The pain was excruciating - my skin blistered on contact - but it worked. The ring loosened.
 
@@ -106,13 +116,15 @@ He held the bag over the railing. For a moment, it seemed like he couldn't let g
 
 The splash below was small. The ripples disappeared quickly.
 
-It's been three days. No accidents. No deaths. Jake is himself again, though he remembers everything.
+It's been three weeks. No accidents. No deaths.
+
+Jake is himself again, though he remembers everything.
 
 We both do.
 
-Sometimes I dream of the river bottom, of silt slowly covering the cloth bag, of water flowing endlessly over hidden things. In these dreams, I see fish swimming near the bag, then darting away suddenly.
+When Jake and I drive over that bridge, we both fall silent, staring at the water below.
 
-And sometimes, when Jake and I drive over that bridge, we both fall silent, staring at the water below.
+Sometimes I dream of the river bottom, of silt slowly covering the cloth bag, of water flowing endlessly over hidden things. In these dreams, I see fish swimming near the bag, then darting away suddenly.
 
 The ring is down there. Waiting.
 
