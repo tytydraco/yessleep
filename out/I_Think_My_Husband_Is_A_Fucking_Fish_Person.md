@@ -294,4 +294,4 @@ I went into the living room and flipped on the TV, surfing until I landed on old
 
 A huge toothy grin stretched across his face and he said, 
 
-"I know you found my scales, Sonia."
+"I know you found my scales, [Sonia](https://www.reddit.com/r/nosleep/s/mZEuxaCbwX)."
