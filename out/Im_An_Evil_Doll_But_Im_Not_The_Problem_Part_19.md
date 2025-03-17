@@ -341,3 +341,8 @@ Till next time, if there is one.
 Stay safe. 
 
 Punch.  
+
+
+Still stuck in the maze
+
+https://www.reddit.com/r/nosleep/s/MGmNuYcMEc

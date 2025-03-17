@@ -1,6 +1,6 @@
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1jdpa01/my_friend_and_i_do_building_renovations_and_we/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 It is getting crazy at this point, I feel like we just cannot find a regular job. This one was the worst by far. Not the work itself, but what happened. We barely made it out of there and I doubt anyone will believe our story. But I may as well come clean and let you know what happened to us at the Baxter building. We may have had a hand in its destruction, but what burned there was something far worse than a simple building, something evil was hopefully destroyed there as well.
-
-
 
 I was behind the wheel of our old work van as Jake and I drove toward the Baxter building downtown. The van’s worn seats and the lingering smell of fuel and dusty upholstery set the stage for our trip back to the renovation project. We had worked a few odd jobs together for a while since our crime scene cleanup days and that last job that lead to our departure from that [line of work](https://www.reddit.com/r/nosleep/comments/1ba4uam/my_friend_and_i_do_crime_scene_cleanup_and_what/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button).
 
@@ -116,7 +116,7 @@ None of us wanted to touch it. Even Mark kept his distance, the doll's uncanny p
 
 Jake and I started calling for help, but we did not know if our voices would carry far enough so the others could hear. I tried to lift him up on my shoulders but we still couldn’t manage it. As we were trying to get out, Mark called us back, “Hey guys look at what I found.”
 
-We moved back over to him and he was holding something. The paper was fragile. It almost crumbled at Mark's touch, the edges turning to dust as he unfolded it with careful hands. He held it out so we could all look at it and what we saw was very disturbing. Some of the words were faded, others were smeared with dirt, but the way they strung together left me cold. 
+We moved back over to him and he was holding something. The paper was fragile. It almost crumbled at Mark's touch, the edges turning to dust as he unfolded it with careful hands. He held it out so we could all look at it and what we saw was very disturbing. Some of the words were faded, others were smeared with dirt, but the way they strung together left me cold.
 
 A call for the "Broken Head," childish and ominous in the same unsettling breath. Jake stood at Mark's elbow, the doll a footnote in the face of the new discovery. I stayed back, half-fascinated, half-afraid, until Mark's voice carried the lopsided rhyme across the room and straight through my bones.
 
