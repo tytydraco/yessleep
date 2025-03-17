@@ -202,6 +202,8 @@ Ben got smaller, and smaller, and smaller: A smudge, to a dot, to nothing at all
 
 At precisely 7:30 AM that morning, the world shifted.
 
+The ground had become the sky, and the sky had become the ground. 
+
 The snow globe flipped, so to speak.
 
 \- - - - -
