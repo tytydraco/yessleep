@@ -370,7 +370,9 @@ Normally, euthanasia is instant. A body slumps, the muscles relax, and life fade
 Mutt didn’t move.
 His chest still rose and fell in a slow, steady rhythm. His muscles remained locked, rigid. His pupils, wide and black, never left mine.
 This dose should have ended him. 
+
 *This dog should be dead.*
+
 The hallway lights flickered. One by one, the bulbs sizzled out, plunging the kennel ward into a profound darkness. The air thickened, heavy with the weight of something unseen. The heater shuttered to a stop.
 
 The only glow now came from the exit sign at the far end of the hall, casting a weak green wash over the kennels.
@@ -475,4 +477,6 @@ My first thought was confusion. How did he get my number?
 
 My second thought was frantic. Those words struck a chord deep inside my marrow. He said I’d made things worse.
 
-And for some reason, deep down in my soul; *I believed him.*
+And for some reason, deep in the pit of my soul—
+
+*I believed him.*
