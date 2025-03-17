@@ -1,3 +1,4 @@
+
 Hi everyone, I want to start by apologizing for my not-so-great English, it's not my first language so, you know, sorry in advance.  
   
 As the title says, three days ago, I escaped from my home. My family, which is composed of me, my parents and my 8 brothers and sisters, lives in what I think is a pretty big house in the countryside, I don’t really know what’s the usual size for a house.   
@@ -14,11 +15,11 @@ Now, there is one thing that always scared me personally, I don’t know about m
 My older brother, Vincent, who’s now 20 years old, and my older sister, Marie, who’s 18 years old, both had to do it. They obviously never told us what happened that night, no matter how much we asked them, but both seemed a bit off the next few days following. They eventually both got back to normal.   
   
 Not much was different, about them, Marie was still the funny older sister I always knew, Vincent stayed pretty much the same too. The few things that did change are these:   
-\-	They don’t learn with us anymore, they work on the plantations with Dad or help with other stuff during learning time.  
-\-	They don’t sleep with us in the dorm room, they have a room for them.   
-\-	They couldn’t play Hide and seek with us  
-\-	They sometimes still feel a bit sad, more often than before.  
-\-	During our free time, they tend to spend a lot of their time together, just talking.  
+-	They don’t learn with us anymore, they work on the plantations with Dad or help with other stuff during learning time.  
+-	They don’t sleep with us in the dorm room, they have a room for them.   
+-	They couldn’t play Hide and seek with us  
+-	They sometimes still feel a bit sad, more often than before.  
+-	During our free time, they tend to spend a lot of their time together, just talking.  
   
 So now, what made me leave. I am 16 years old, and tomorrow, I’m turning 17. So the few weeks before I escape were pretty stressful for me. All my younger brothers and sisters were teasing me about me becoming a “Grown up” and my parents were also very excited, but me, I was scared. I didn’t know what to expect, and that was just terrifying.   
   
@@ -36,7 +37,7 @@ I must have been running for 5 minutes when I heard the noise of dad’s car com
   
 The car went in the same direction that I was previously running to, so I just waited. When the car came back, I saw dad’s face, and he seemed way less nice and kind than how I knew him. When the car passed me, I started running again. I ran for like, 20, or 25 minutes when I found another road. It was bright and loud, they were all sorts of vehicles, big lights that almost hurt my eyes as the sun was coming down. I was shocked by everything that I saw. I always thought these kinds of roads were way further our home.   
   
-I must have been standing there for a full minute when a small car pulled up. The door opened and a young woman who must have been 25 years old asked me if I was okay and if I needed a ride. I didn’t know what to say, as far as I knew “anyone who seemed to be nice just wanted to get something out of you”. I hesitated, even thinking about going back to the house like nothing happened. Then I heard mom. She was screaming in the megaphone, she seemed not so far. All I heard was her voice, she sounded completely enraged, saying “Julie come back here you little slut”.  
+I must have been standing there for a full minute when a small car pulled up. The door opened and a young woman who must have been 25 years old asked me if I was okay and if I needed a ride. I didn’t know what to say, as far as I knew “anyone who seemed to be nice just wanted to get something out of you”. I hesitated, even thinking about going back to the house like nothing happened. Then I heard mom. She was screaming in the megaphone, she seemed not so far. All I heard was her voice, she sounded completely enraged, saying “Julie come back here you little bitch”.  
   
 I jumped in the car without a word, and they started the car. They were three, two girls and one boy. They asked me if I was okay, if I had a phone, some family to contact. I just kept saying no, I didn’t know what to do now. After 30 minutes during the which I kept looking behind us to see if I saw Dad’s car, I just explained to them that I needed to go away from here. They seemed scared by that and proposed that they called the cops, to wich I said no. They ended up leaving me to my request in a small city/town where we passed. Before saying goodbye, one of the girl gave me some money, I didn’t know if it was a lot, mom and dad never taught us how money worked specifically so I didn’t know the value of what she gave me.   
   
