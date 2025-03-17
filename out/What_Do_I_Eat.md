@@ -1,9 +1,13 @@
 Mother always taught me what to answer when someone asked that question, which was strange. Not only did no one ever ask me that question, I didn't even know what the word in asking meant.
 
 The answer(s) to the question was weird too.
+
 “Grains" - What are those? 
+
 “Fruits" - Same goes here.
+
 “Veggies" - Another weird word.
+
 “Meat" - What kind of?
 
 But since nobody ever asked that question I never bothered to learn about those answers.
@@ -21,13 +25,18 @@ By the time my finger grew back, I had another problem. Half of my right ear had
 Even before my finger had regrown completely, I noticed that part of my ear had gone missing. Mom kept repeating the same process but soon I found myself missing multiple parts at a time. The parts misssing weren't so important as to hinder my daily life but they were a cause of great frustration. Mom's medicinal meals weren't swift enough to keep up with the pace of absentees. Soon the vexation took over and I thought of looking for better solutions. 
 I didn't have to though.
 
-“Here, take these" I heard father say. The things were... revolting to say the least. 
+“Here, take these" I heard father say. 
+
+The things were... revolting to say the least. 
 
 A toe, lower left portion of a tongue and part of a lower lip. 
 
 “What am I to do with these?"
+
 “Eat them of course"
+
 “How to...?"
+
 “You already know how to"
 
 He was right in that. What shocked me was that almost immediately after I ate them, my body parts had regrown. They felt itchy at first, but soon it felt seamless. I didn't eat mom's meal that day.
@@ -53,5 +62,7 @@ And to come to the present day, life still goes on great. Dad always prepares th
 I did ask my dad about something yesterday. There was a picture of a random teenager with my parents in my house who I never remembered meeting. The picture made me think that the kid must be someone close to my parents which prompted the question.
 
 “Dad, who is this kid?"
+
 “Don't worry about it"
+
 “Alright, dad"
