@@ -1,0 +1,13 @@
+The first package that arrived at my doorstep, was quite small. I almost stepped on it in passing. It fit in the palm of my hand and it was wrapped beautifully. No return address, just my name in tiny elegant cursive letters. Inside, a lock of brown hair held together by a golden ribbon. I can’t lie, I was expecting something completely different. Weird shit happens, perhaps it was wrongly delivered. I put it on my dresser, and went on with my day.  
+  
+The next morning, a soft knock at the door. Another wrapped package was waiting for me. Curious, I opened it. It was a fingernail. For a second I just stared at it. What the…? Involuntarily, I checked each of my fingers. My left index finger was nail-less. There was no pain, but it looked like the nail was ripped out with force. My stomach turned at the sight of my red, raw nail bed and I returned my breakfast to nature.  
+  
+I took some time to gather my thoughts, and examined both packages. I was either losing my mind, or I should call the police. Probably both. My finger was fine earlier, how did that nail end up in that box? Did it accidentally fall off when I opened the package? It must have. But why is there no pain?  
+  
+Then another package at the door, again no delivery person in sight. It revealed more bundled hair, held by a silver ribbon this time. I paused as I passed my hallway mirror, a patch of my hair was missing from the side of my head. I could see my scalp. As I touched the rest of my head, I found a second missing patch on the back.   
+  
+Every half an hour or so, a new gift was delivered. And with each one, I became more and more convinced that I was in fact losing my mind. A mole from my arm, arm now red but smooth. Some patches of skin from various body parts. Then, an earlobe and a big toe. Each time I opened a gift, a part of me belonged to it. As if it was never me at all. So I stopped opening them for a while.  
+  
+The eleventh package came. It was small, gorgeous, tempting. I knew better, but I couldn’t resist. My nervous hands peeled back the gold wrapping paper, my heart pounding in my chest. Inside of it was my eye, staring up at me. I touched my face, and my finger found its way into my gaping eye socket. It is surprisingly smooth.  
+  
+I now have nineteen unopened gifts in my hallway, all of them in different sizes, all of them EXPERTLY wrapped. They’re closed, but I know what is inside of them. I am. I don’t know if it still matters whether or not I open them. They are me already. I am not them yet, though. Would it matter if I opened another really pretty one? Probably not. I'll do just one more.
