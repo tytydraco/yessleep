@@ -64,9 +64,9 @@ At dinner with friends, I kept my hands hidden under the table, but Melissa insi
 
 Only Jake and I walked out unscathed.
 
-After eight deaths in a week, I was desperate.
+After eight deaths in a week, I was desperate. I started keeping my left hidden in public, stuffed deep in my pants or coat pockets.
 
-I began Googling the ring online. It was such a luxurious and unique ring, I was curious if it had a history. It didn't take long to find the original owners. Lydia M. and James C.
+I also began Googling the ring online. It was such a luxurious and unique ring, I was curious if it had a history. It didn't take long to find the original owners. Lydia M. and James C.
 
 *L.M. & J.C.*
 
@@ -90,7 +90,7 @@ In my search, I discovered an old woman who claimed to be Lydia's cousin. She li
 
 "What price?" I asked.
 
-"The beloved's soul," she said. "James wasn't himself after he gave Lydia that ring. The night he killed her, his eyes were empty."
+"I’m not sure," she said. "Not fully. I just know James wasn't himself after he gave Lydia that ring. The night he killed her, his eyes were different. I had seen them myself, empty.”
 
 Like Jake's eyes now.
 
