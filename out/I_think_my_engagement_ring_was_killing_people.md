@@ -52,19 +52,19 @@ Deep down, I knew I had been cursed by the ring I loved so much.
 
 I had become a walking omen of death.
 
-On my way home that night, still in shock, I witnessed a man climb onto the ledge of my apartment building and jump without hesitation. The thud his body made when it hit the pavement will haunt me forever. His dead eyes found mine in the crowd. I clutched my hand to my chest, and the sapphire felt warm against my skin. Too warm. When I looked down, I noticed a faint burn mark on my skin.
+On my way home that night, still in shock, I witnessed a man glance at me, then climb up to the ledge of my apartment building and jump without hesitation. The thud his body made when it hit the pavement will haunt me forever. His dead eyes found mine in the crowd. I clutched my hand to my chest, and the sapphire felt warm against my skin. Too warm. When I looked down, I noticed a faint burn mark on my skin.
 
 Around midnight, I decided it was time to remove the ring. But my finger had swollen. The band wouldn't budge at all. No amount of soap, ice, or oil could loosen it.
 
 As the days continued, so did the deaths.
 
-A barista who touched my hand when returning change choked to death on a scone while I waited for my cold brew. An elderly woman who admired my ring at the grocery store was crushed beneath collapsing shelves moments later.
+A barista touched my hand while returning change. Minutes later, he choked to death on a scone as I waited for my cold brew. An elderly woman who admired my ring at the grocery store was crushed beneath collapsing shelves moments later.
 
 At dinner with friends, I kept my hands hidden under the table, but Melissa insisted on seeing the ring. The moment the sapphire caught the light, a waiter carrying cherries jubilee tripped. The dessert's high-proof alcohol splashed across nearby tables, igniting instantly. The entire restaurant went up in flames. In the chaos, I watched Melissa's hair ignite, her screams swallowed by the roaring inferno.
 
 Only Jake and I walked out unscathed.
 
-After eight deaths in a week, I was desperate. I started keeping my left hidden in public, stuffed deep in my pants or coat pockets.
+After eight deaths in a week, I was desperate. I started keeping my left hand hidden whenever I was out in public, stuffing it deep into my pants or coat pockets.
 
 I also began Googling the ring online. It was such a luxurious and unique ring, I was curious if it had a history. It didn't take long to find the original owners. Lydia M. and James C.
 
@@ -90,7 +90,7 @@ In my search, I discovered an old woman who claimed to be Lydia's cousin. She li
 
 "What price?" I asked.
 
-"I’m not sure," she said. "Not fully. I just know James wasn't himself after he gave Lydia that ring. The night he killed her, his eyes were different. I had seen them myself, empty.”
+"I think your souls,” she said. "I can’t be certain. I only know James wasn't himself after he gave Lydia that ring. It changed both of them over time. The night he killed her, his eyes were different. I had seen them myself, empty, like you were staring through a window.”
 
 Like Jake's eyes now.
 
@@ -98,7 +98,7 @@ The old woman told me how to remove the ring. It had to be done on a new moon. T
 
 The next new moon, I prepared everything as I was told.
 
-Jake watched with those unfamiliar eyes as I submerged my hand in the mixture. The pain was excruciating - my skin blistered on contact - but it worked. The ring loosened.
+Jake watched with those unfamiliar, glassy eyes as I submerged my hand in the mixture. The pain was excruciating - my skin blistered on contact - but it worked. The ring loosened.
 
 With one final, agonizing pull, I wrenched the ring free. My finger came with it, severed cleanly at the knuckle. Blood poured from the wound, but I felt only relief as the sapphire glowed with rage.
 
