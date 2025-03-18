@@ -280,7 +280,7 @@ It could take weeks. I couldn’t take weeks with him. None of us could.
 
 And as I looked into Angie’s eyes, I knew she felt the same. And over the next few hours the hospital settled into an uneasy silence.
 
-The night shift pressed on, but something had shifted. We were all exhausted, hollowed out by what we’d seen. The cattle dog. The Great Dane. The blood. The two blood-drenched kennels we’d had to clean up. 
+The night shift pressed on, but something had shifted. We were all exhausted, hollowed out by what we’d seen. The cattle dog. The great dane. The blood. The two blood-drenched kennels we’d had to clean up. 
 
 Mutt still sat in his kennel, untouched food sitting at his feet. The heater hummed in background.
 

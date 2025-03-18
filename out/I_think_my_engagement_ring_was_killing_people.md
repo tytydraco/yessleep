@@ -1,4 +1,4 @@
-I never thought I'd be writing this, but I need to tell someone what's happened.
+I never thought I'd be writing this, but I feel like I need to tell someone what's happened.
 
 Jake and I had been together for three years when we started talking about getting engaged. We both loved antiques. You know, items with history and stories embedded in them. Every weekend, we'd hunt together through antique shops and estate sales, searching for all sorts of forgotten treasures.
 
@@ -12,19 +12,19 @@ It sat in a locked case at Madame Eloise's shop downtown: a deep blue sapphire s
 
 Jake, ever the romantic, insisted on buying it then and there. He shooed me from the store, promising to make it special. Two weeks later, on a warm evening, he led me to our favorite park bench beneath the willow tree we always loved. He knelt, eyes bright with excitement, and presented a small velvet box.
 
-I think I knew what was inside before he even opened it. But when my eyes finally fell on the ring itself, my heart stuttered and I seemed to forget everything I knew. My mind went blank.
+I knew what was inside before he even opened it. But when my eyes finally fell on the ring itself, my heart stuttered and I seemed to forget everything I knew. My mind went blank.
 
 "Where did you get this?" I asked, fingers hovering over the gold band.
 
 Jake grinned. "You know where."
 
-And I did know of course. My brain was just temporarily mush. It was the ring from Madame Eloise's shop. But inside the band, something new gleamed under the lamplight: an engraving.
+And I did know of course. My brain was just temporarily mush, I guess. It was the ring from Madame Eloise's shop. But inside the band, something new gleamed under the lamplight: an engraving.
 
 *L.M. & J.C.*
 
 I ran my thumb over the initials. "Lucy M. and Jake C."
 
-Jake shrugged. "It was already there. Fate, right?"
+Jake shrugged. "It was already there! Fate, right?"
 
 The night air seemed to press around us. Something cold curled in my stomach.
 
@@ -36,7 +36,7 @@ We drank champagne under the willow, and I fell asleep that night with the ring 
 
 Then the nightmares started.
 
-I dreamed of a bride in a blood-spattered church, sobbing behind her veil. When she turned to face me, her face was bruised and tear-streaked. I woke gasping for air, my chest tight.
+I dreamed of a bride in a blood-spattered church, sobbing behind her veil. When she turned to face me, her face was bruised and tear-streaked. I woke gasping for air, my chest feeling like it was about to explode.
 
 "Bad dream?" Jake mumbled, pulling me closer.
 
@@ -46,27 +46,27 @@ The next morning, things got so much worse.
 
 My neighbor waved as I collected the mail. The sapphire caught the sunlight, flashing blue for just a second. Five minutes later, her brakes failed as she backed out of her driveway. Her car plowed into an oncoming delivery truck. I watched paramedics pull her mangled body from the wreckage.
 
-I tried to convince myself it was a horrible coincidence. One a billion or something. But then my boss dropped dead during a meeting just hours later, moments after complimenting my ring. An aneurysm, they said. I saw how his eyes fixed on the sapphire right before blood trickled from his ears.
+I tried to convince myself it was a horrible coincidence. One in a billion or something. But then my boss dropped dead during a meeting later that afternoon, just moments after complimenting my ring. An aneurysm, they said. I saw how his eyes fixed on the sapphire right before blood trickled from his ears.
 
 Deep down, I knew I had been cursed by the ring I loved so much.
 
 I had become a walking omen of death.
 
-On my way home that night, still in shock, I witnessed a man climb onto the ledge of my apartment building and jump without hesitation. The thud his body made when it hit the pavement will haunt me forever. His dead eyes found mine in the crowd. I clutched my hand to my chest, and the sapphire felt warm against my skin. Too warm.
+On my way home that night, still in shock, I witnessed a man climb onto the ledge of my apartment building and jump without hesitation. The thud his body made when it hit the pavement will haunt me forever. His dead eyes found mine in the crowd. I clutched my hand to my chest, and the sapphire felt warm against my skin. Too warm. When I looked down, I noticed a faint burn mark on my skin.
 
-Around midnight, I tried to remove the ring. But my finger had swollen. The band wouldn't budge at all. No amount of soap, ice, or oil could loosen it.
+Around midnight, I decided it was time to remove the ring. But my finger had swollen. The band wouldn't budge at all. No amount of soap, ice, or oil could loosen it.
 
 As the days continued, so did the deaths.
 
-A barista who touched my hand when returning change choked to death. An elderly woman who admired my ring at the grocery store was crushed beneath collapsing shelves moments later.
+A barista who touched my hand when returning change choked to death on a scone while I waited for my cold brew. An elderly woman who admired my ring at the grocery store was crushed beneath collapsing shelves moments later.
 
 At dinner with friends, I kept my hands hidden under the table, but Melissa insisted on seeing the ring. The moment the sapphire caught the light, a waiter carrying cherries jubilee tripped. The dessert's high-proof alcohol splashed across nearby tables, igniting instantly. The entire restaurant went up in flames. In the chaos, I watched Melissa's hair ignite, her screams swallowed by the roaring inferno.
 
 Only Jake and I walked out unscathed.
 
-After eight deaths in two weeks, I was desperate.
+After eight deaths in a week, I was desperate.
 
-I began Googling the ring online. It was such a luxurious and unique ring, I was curious if it had a history. It didn't take long to find the original owners. Lydia Morgan and James Carson.
+I began Googling the ring online. It was such a luxurious and unique ring, I was curious if it had a history. It didn't take long to find the original owners. Lydia M. and James C.
 
 *L.M. & J.C.*
 
