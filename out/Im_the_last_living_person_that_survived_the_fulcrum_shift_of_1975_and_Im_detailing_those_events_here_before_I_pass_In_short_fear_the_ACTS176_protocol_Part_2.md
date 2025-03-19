@@ -201,7 +201,7 @@ While out of earshot, I clicked the walkie-talkie back on, lowered the volume, a
 
 Before I reached that frequency, though, I unintentionally eavesdropped on another clandestine message.
 
-I wouldn’t be one percent sure of its relation to the shift until the following morning.
+I wouldn’t be one-hundred percent sure of its relation to the shift until the following morning.
 
 It was a male voice, monotone and emotionless. Maybe it was Ulysses, maybe it wasn’t. All I know is it kept repeating the same message with a slight variation every sixty seconds on the dot.
 
