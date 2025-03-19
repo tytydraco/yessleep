@@ -115,7 +115,7 @@ I tapped Emi on the shoulder and put out an open palm, gesturing for her to hand
 
 Her speech became more and more frantic as she recalled the ad-libbed sermon *Pastor B* had been giving since the shift. By the end, the words had started to jumble incomprehensibly together.
 
-**Me:** *“Okay…okay sweetie. I understand, I do. No, I really don’t think this is a rapture. I don’t what it is, if I’m being honest. All I know for certain is that I’m glad you and Emi are still here with me.”*
+**Me:** *“Okay…okay sweetie. I understand, I do. No, I really don’t think this is a rapture. I don’t know what it is, if I’m being honest. All I know for certain is that I’m glad you and Emi are still here with me.”*
 
 Thirty seconds passed. No response.
 

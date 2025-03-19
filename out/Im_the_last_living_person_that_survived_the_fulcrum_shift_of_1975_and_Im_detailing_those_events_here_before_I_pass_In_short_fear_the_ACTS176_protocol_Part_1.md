@@ -194,7 +194,7 @@ Mr. Baker.
 
 Ben.
 
-Almost me, too. Luckily, I was far enough in the house where, when I fell, my lower body remained inside. Hit my back pretty hard against the floor. I heard Emi screaming behind me, along with the crashing of our furniture colliding into the ceiling. Our grand piano was heavy enough to make a hole through the roof, causing the sky below to leak into our home as it fell.
+Almost me, too. Luckily, I was far enough in the house where, when I fell, my lower body remained inside. Hit my back pretty hard against the top of the door frame. I heard Emi screaming behind me, along with the crashing of our furniture colliding into the ceiling. Our grand piano was heavy enough to make a hole through the roof, causing the sky below to leak into our home as it fell.
 
 Dazed, my vision spinning, I lifted my head just in time to witness the love of my life careen into an ocean of blue, cloudless sky. It was painfully quiet at that point. Those that fell were far enough away that I couldn’t hear their pleads for mercy or their death rattles, if they were still alive at all.
 
