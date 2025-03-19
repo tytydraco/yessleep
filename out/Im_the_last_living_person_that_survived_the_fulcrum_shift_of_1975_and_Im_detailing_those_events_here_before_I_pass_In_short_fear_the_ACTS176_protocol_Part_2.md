@@ -45,7 +45,7 @@ Emi was lying on her back about halfway between me and the entrance to the kitch
 
 *“Emi - just* ***stay*** *where you are. Don’t move. I’m coming to you.”* I shouted.
 
-With a pained grunt, I forced my body up and over the edge, and slowly lowered myself down on to the ceiling. In the past, I had lamented to Ben about how flat the roof was. Our home was fairly stout, too: no more than ten feet tall if I’m remembering correctly. The combination of those two features made the space feel compressed, boxy, and lifeless, like we were all incarcerated in the same oversized federal prison cell.
+With a pained grunt, I forced my body up and over the edge, and slowly lowered myself down on to the ceiling. In the past, I had lamented to Ben about how flat the roof was. Our home was fairly stout, too: no more than fifteen feet tall if I’m remembering correctly. The combination of those two features made the space feel compressed, boxy, and lifeless, like we were all incarcerated in the same oversized federal prison cell.
 
 In that moment, however, I couldn’t have been more grateful for those inert dimensions, as they made getting to Emi easy. I can’t imagine how treacherous it would have been to navigate a vaulted ceiling post-shift.
 
@@ -157,7 +157,7 @@ It took a long while to calm Emi down, but once she soothed, my daughter was out
 
 As she slept, I softly made my way into Emi’s bedroom. While in middle school, she and Regina had gone through a very cute astronomy phase. Puberty eventually beat the hobby out of both of their systems, as it tends to do with any passion that can be perceived as even slightly *nerdy*, but I knew she still had a semi-expensive telescope we got her for Christmas in her closet: the same model that Regina had, as a matter of fact.
 
-Before the shift, they’d still stargaze together, marveling at the constellations over their walkie-talkies in the dead of night. Emi was under the impression Ben and I hadn’t noticed, and we certainly didn’t let on that we had: she would have been mortified to be caught doing something so *childish*.
+Before the shift, they’d covertly stargaze together, marveling at the constellations over their walkie-talkies in the dead of night. Emi was under the impression Ben and I hadn’t noticed, and we certainly didn’t let on that we had: she would have been mortified to be caught doing something so *childish*.
 
 I needed it because what Barret said earlier that afternoon had really lodged itself into my brain.
 

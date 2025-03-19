@@ -80,7 +80,7 @@ The atmosphere looked distorted, like a grainy TV image just barely coming throu
 
 And, for some reason, Ulysses was outside. Between having no children and being an unapologetic recluse, our next-door neighbor’s attendance at this before-school ritual was out of character. On top of that, the sixty-something year old appeared distinctly unwell: bright red in the face, sweat dripping down his neck, eyes darting around their sockets like a pair of marble pinballs as he scanned the street from his front stoop.
 
-Per usual, Emi bolted across the street as soon as she saw Regina, her childhood best friend, standing among the growing crowd of kids and parents.
+Per usual, Emi bolted across the asphalt as soon as she saw Regina, her childhood best friend, standing among the growing crowd of kids and parents.
 
 Emi and Regina were inseparable: two kids lovingly conjoined at the hip since the day they met. Recollecting the good times they had together never fails to conjure a beautiful warmth at the center of my chest. At the same time, that warmth is inevitably followed by a creeping sense of unease: a devil lurking in the details.
 
@@ -158,7 +158,7 @@ Emi said *“there’s something wrong with Mr. Baker, Mom”* and I saw Ben a
 
 Then, the crackling explosion of a gunshot rang through the air.
 
-The street erupted into chaos. People fled in all directions. I grabbed Emi tightly by the wrist. She was paralyzed: had to make her to start moving towards the house. Practically everyone was screaming in horrible solidarity with Mr. Baker. Someone elbowed me hard in the diaphragm, knocking the wind out of my lungs. Eventually, our feet landed on the sidewalk in front of our home. Then, a second gunshot. I couldn’t tell where it was coming from, nor did I see anyone injured.
+The street erupted into bedlam. People fled in all directions. I grabbed Emi tightly by the wrist. She was paralyzed: had to make her to start moving towards the house. Practically everyone was screaming in horrible solidarity with Mr. Baker. Someone elbowed me hard in the diaphragm, knocking the wind out of my lungs. Eventually, our feet landed on the sidewalk in front of our home. Then, a second gunshot. I couldn’t tell where it was coming from, nor did I see anyone injured.
 
 A few steps away from the door, I noticed something else. The air felt increasingly palpable: thick and granular, like I was wading through an invisible sandstorm.
 
