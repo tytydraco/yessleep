@@ -4,7 +4,7 @@ I haven’t been sleeping much lately.
 
 My hands typically don’t stop shaking. 
 
-Every time I close my eyes, I dream of the collection. Eighty human eyes floating in preservative fluid, staring back at me from their glass containers. And I know, with sickening certainty, that Jessica intended mine to be number eighty-one and eighty-two.
+Every time I close my eyelids, I dream of the collection. Eighty human eyes floating in preservative fluid, staring back at me from their glass containers. And I know, with sickening certainty, that Jessica intended mine to be number eighty-one and eighty-two.
 
 *The perfect pair.*
 
@@ -20,7 +20,7 @@ I’d wake in the middle of the night to find Jessica hovering over me, her face
 
 That night, I dreamed she was peeling my eyes from their sockets like grapes.
 
-When she moved in, I noticed the small wooden box on her dresser. When I asked about it, she traced her finger along its polished edge, and for a moment, her expression changed to something hungry.
+A week later, I noticed the small wooden box on our dresser. When I asked about it, she traced her finger along its polished edge, and for a moment, her expression changed to something hungry.
 
 "Just keepsakes from special cases," she said, then changed the subject.
 
@@ -66,7 +66,7 @@ I barely ate. 
 
 I barely slept.
 
-Every moment in our apartment felt like being trapped in a predator’s den.
+Every moment in our apartment felt like being trapped in a wolves' den.
 
 When Jessica left for work the next day, I searched her office with trembling hands. 
 
@@ -290,8 +290,8 @@ The newspapers called it a tragedy. 
 
 A gathering of doctors and researchers, they said, killed in a freak accident. They never found the eyes. The heat of the fire had destroyed them completely, melting the containers and incinerating their contents. The Watchers would never see through those windows now.
 
-It's been six months since that night. I live alone now, learning to navigate the world without sight. The nightmares are less frequent, though I still sometimes wake in a cold sweat, feeling Jessica's scalpel against my eye.
+It's been six months since that night. I live alone now, learning to navigate the world without sight. The nightmares are less frequent, though I still sometimes wake in a cold sweat, feeling Jessica's scalpel against my eyes.
 
 I may have lost my sight.
 
-But in this darkness, I see more clearly than ever before.
+But the truth is I see more clearly than ever before.
