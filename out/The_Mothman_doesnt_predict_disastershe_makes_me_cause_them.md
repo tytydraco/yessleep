@@ -36,7 +36,7 @@ All-too-vividly, I can still picture my truck’s massive wheel flattening that 
 
 All-too-vividly, I can still hear the sounds of my trailer wheels crushing the other car, ending the screams so abruptly. Sounds I won’t ever be able to unhear.
 
-My distress grew even more exacerbated when the affected families got ahold of my contact information. They sent lots of messages. 
+My distress grew worse when the affected families got ahold of my contact information. They sent lots of messages. 
 
 Hateful messages.
 
@@ -76,7 +76,7 @@ It was one of the newer kinds—faster, brighter, and featuring a long corkscrew
 
 We were next in line, both girls were teasing each other with anticipation when my stomach started twisting knots. 
 
-I tried to shake it off as nothing. As needless paranoia from all the loud, fast moving metal… but that's then I saw it. 
+I tried to shake it off as nothing. As needless paranoia from all the loud, fast moving metal… but that's when I saw it. 
 
 *The dark winged thing.* 
 
@@ -330,8 +330,8 @@ I wish I could tell you that the black desert was all a dream… but I knew it w
 
 It was a warning. 
 
-A very real taste of my eternal damnation for disobeying the shadow being.  
-  
+A very real taste of my eternal damnation for disobeying the shadow being.
+
 \*\*\*
 
 I’ve been sitting here for over three hours. Looking at that crane. Gripping my steering wheel. Biting my tongue. Writing this story. 

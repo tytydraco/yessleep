@@ -202,7 +202,7 @@ Ben got smaller, and smaller, and smaller: A smudge, to a dot, to nothing at all
 
 At precisely 7:30 AM that morning, the world shifted.
 
-The ground had become the sky, and the sky had become the ground. 
+The ground had become the sky, and the sky had become the ground.
 
 The snow globe flipped, so to speak.
 
@@ -217,3 +217,7 @@ My follow-up should be soon. I imagine after I post this, someone who was involv
 So, I’ll be sure to complete this before they have time to find me.
 
 \-Hakura (Not my [real name](https://www.reddit.com/r/unalloyedsainttrina/))
+
+\- - - - - 
+
+EDIT: [Part 2](https://www.reddit.com/r/nosleep/comments/1jems90/im_the_last_living_person_that_survived_the/)

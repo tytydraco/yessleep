@@ -1,5 +1,5 @@
 It happened 8 years ago, and I still remember it to this day.  
-I was very depressed after a bad breakup, and I will use the name John as an alias.
+I was very depressed after a bad breakup, and I will use the name J (alias).
 
 We both live in a rural area, not in the center of a city, so there isn’t much activity anyway.  
 I used high beam because the visibility wasn’t that great.  
@@ -17,7 +17,7 @@ I started to worry, my gas tank was at 1/4 of its capacity, and I have no idea w
 
 I stopped the car, picked up my phone and called my friend, something answered, and I am saying something because the other side made noises, screeching, screaming and then it went silent. Then I heard, in a faint voice:
 
-*”Welcome, John.”*
+*”Welcome, J.”*
 
 I immediately hanged up the phone, tried calling again but nothing, no answer.  
 Trees to both of my sides, no cars near me (even though it was foggy and dark, I would probably see car lights if there were any cars in the area).
@@ -47,7 +47,7 @@ I then realized that this was all a dream, I haven’t slept much last night, an
 
 10am, I drove back to my house, later that day I looked at my phone, and in my pocket was a letter, written in red:
 
-*”Dear John, we hope that you would visit us again.”*
+*”Dear J, we hope that you would visit us again.”*
 
 It’s 3pm now, I went to the door, checked, and there was no one outside, it’s supposed to be sunny but instead, everything was dark.  
 I opened my phone’s navigation app, it first showed me at my house (a sigh of relief), but then… it wrote:

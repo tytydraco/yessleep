@@ -1,5 +1,7 @@
 [\[Part 32\]](https://www.reddit.com/user/RandomAppalachian468/comments/1iob3w6/the_call_of_the_breach_part_32/)
 
+[\[Part 34\]](https://www.reddit.com/user/RandomAppalachian468/comments/1jen20y/the_call_of_the_breach_part_34/)
+
 Stars danced before my eyes, the lack of oxygen made me dizzy, and I fought to hang on to consciousness as the cruel rain drenched me. With all the strength I could muster beneath the wrapping of vines, I swiveled my head to ward off the creeping tendrils and thrashed against the roots tangled in my hair.
 
 “What’s this?” Vecitorak hissed with sadistic glee, and as he looked down at me, the roots stopped just below my face.
