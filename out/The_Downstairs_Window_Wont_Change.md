@@ -1,8 +1,8 @@
 I bought this house off of a friend, he was moving into a retirement home (at my request) and he didn't have anyone else to leave anything to, so I offered to take his little backwoods haven off of his hands so that he could go into town to live amongst the civilized folks and finally get the help that he desperately needed. He didn't like that idea one bit, saying that it would be better just to bulldoze it and sell the land, though he seemed to be of two minds on the whole things, bouncing back and forth, only coming to a decision when it was time to shake on it.
 
-He was an old timer, with a back as brittle as glass and eyes that could almost see you if he squinted, and a mind that may remember your name if it was written on your forehead, but despite our brief relationship before his unfortunate passing, I would count this man to be amongst my greatest friends and the source of my ongoing dread.
+He was an old timer, with a back as brittle as glass and eyes that could almost see you if he squinted, and a mind that may remember your name if it was written on your forehead, but despite our brief relationship before his unfortunate passing, I would count this man to be amongst my greatest friends as well as the source of my ongoing dread.
 
-To start at the beginning, I had just come to this town looking for a piece of the wild United States that I had heard still existed somewhere out there. I first settled down with a job at the logging company here outside of a town (I'll be scant on location as I do not wish to be disturbed), it was hard work, but I was no stranger to it, and the trees were a welcome change of pace after spending so much time in the concrete jungle. 
+To start at the beginning, I had just come to this town looking for a piece of the wild United States that I had heard still existed somewhere out there. I first settled down with a job at the logging company here outside of a town (I'll be scant on location as I do not wish to be disturbed), it was hard work, but I was no stranger to it, and the trees were a welcome change of pace after spending so much time in the concrete jungle.
 
 That's where I met John.
 
@@ -10,7 +10,7 @@ John's job was to sit at a desk and keep track of how many trucks came in and ca
 
 Our lives intertwined for about seven months before he collapsed on the job, heart attack. He survived, but everyone at the mill who knew him agreed, it was just too close a call, he   got let go with severance, it was finally time for him to retire.
 
-The problem was, his work being far from town was one thing, he also lived out there and in the aftermath of his heart attack, he couldn't live an hour and a half from the nearest emergency room. He was sad to have to say goodbye to his paradise amongst the pines, having lived in that house for thirty years, alone and happy. He built it himself, a dream he had since he was young, he held himself well when it came time to wake up to the unfortunate reality of time, making sure not to cry around any of us.
+The problem was, his work being far from town was one thing, but he also lived out there and in the aftermath of his heart attack, he couldn't live an hour and a half from the nearest emergency room. He was sad to have to say goodbye to his paradise amongst the pines, having lived in that house for thirty years, alone and happy. He built it himself, a dream he had since he was young, he held himself well when it came time to wake up to the unfortunate reality of time, making sure not to cry around any of us.
 
 I helped him move into the home, but he was only there for three weeks before the next attack; the emergency room was only across the street now, but it still seemed too far away. A couple of the guys from the mill attended his funeral, they didn't much like him, but it was just the right thing to do, so they held their tongues until it came time to go home. I went home as well, it just so happened that my home was the one belonging to the man in the box.
 
@@ -52,11 +52,10 @@ It must've been some trick, some illusion, outside is not day or night depending
 
 Perfect echoed in my mind for a good minute, once I came up with that word to describe one thing, it rapidly took the place of every other work I had used to describe anything about what I was seeing out of the egress window, stamping over everything else until everything I saw and remembered seeing was 'perfect'. I checked my watch again; it was 7:15 pm now. It was still the evening and definitely not what I was seeing with my own two eyes. Feeling as though I was in desperate need of sleep, I closed the window and went back up the ladder, right to my bed, sleep would definitely fix this.
 
-Sleep did not fix this as every day I would wake up, check the basement, go to work, come home, check the basement, and go to sleep again. Morning, afternoon, even, dusk, dawn, twilight, every time I checked the downstairs window for the next three weeks, I saw the same day, always at noon, always sunny, even when it was rainy, foggy, or cloudy out here on the main floor.
+Sleep did not fix this as every day I would wake up, check the basement, go to work, come home, check the basement, and go to sleep again. Morning, afternoon, evening, dusk, dawn, twilight, every time I checked the downstairs window for the next three weeks, I saw the same day, always at noon, always sunny, even when it was rainy, foggy, or cloudy out here on the main floor.
 
 I ran an experiment one day: I opened the window from the inside and walked around the outside of the house to find the other end, to my surprise, the window was shut; thinking that maybe it closed on its' own, I returned to the basement and found that the window was still open from this side, which made me theorize that this window wasn't even part of the house at all.
 
-  
 One day, I got fed up with the strangeness of the window, so I stood in front of the open window and climbed through it. It didn't look or feel like it did from the view of looking through the egress, it felt warmer, more comforting, like it wasn't actually a summer day, it was a memory of a summer day, the best summer day you ever had, it felt familiar, like it was simultaneously the platonic ideal concept of a summer day, as well as being a summer day that had already happened. I tried to think hard, to find something, anything that would pin it down, why this felt so familiar, why it was this day and no other. Was it even about me?
 
 I had to take a step back to recalibrate, my mind was filling with questions that didn't make a lick of sense, why was I so quick to buy into this being a specific day in summer? It was just any old day in summer, because of course it was, it was today and today is not changing window or not... though even at the conclusion of that thought, I questioned my own statement.
@@ -65,19 +64,27 @@ I wanted to stay here. To understand it, to enjoy it, to know what it was all ab
 
 I checked my watch... and my spine ran cold. I couldn't even read the numbers, it all just looked like squiggles, just like the writing on the wall.
 
-I remembered the writing on the wall, I remembered a lot about the other side of the window. The more I remembered, the colder I felt and the hazier my watch got, until it snapped into focus and read 11:46 pm. All sounds and smells stopped when I read the numbers and I looked up, across the creek was a black figure, like a shadow without a man casting it, staring at me with two, unblinking white eyes. He looked familiar.
+I remembered the writing on the wall, I remembered a lot about the other side of the window. The more I remembered, the colder I felt and the hazier my watch got, until it snapped into focus and read 11:46 pm. All sounds and smells stopped when I read the numbers, as if I had done something wrong, something to disturb a world where was alone. I wasn't supposed to look at my watch, because somehow, it made it clear that I didn't belong. I looked up and across the creek was a black figure, like a shadow without a man casting it, staring at me with two, unblinking white eyes. I couldn't shake the feeling that he looked familiar.
+
+YOU DON'T BELONG...
 
 MY head was flooded with ideas, theories, all manner of answers to questions that were too numerous to ever hope to answer, but I knew in that moment that I had done wrong. I'm not supposed to know the time, but I brought a watch. I thought back to when I woke up in my bedroom and walked to the alarm clock, he was there, behind me.
 
-He didn't move at me, cross the river, or do anything that was directly threatening, he just stared, but I had to stop staring at him, because the more I did, the less was there around him. It looked at first like a fog had rolled in, covering the land behind him, but that wasn't true at all, there was no fog, the tree line and the mountains beyond that were once visible in the far off distance were simply gone, consumed by an encroaching tide of white that tore and shredded them to nothingness. I turned my head, it was happening all around me, encircling the house, closing in.
+YOU DON'T BELONG..
 
-I looked back, the figure was still across the creek, his hand was raised now, pointed behind me, back at the window. He didn't have a mouth, but I could almost hear him screaming in my mind "RUN!"
+He didn't move at me, cross the river, or do anything that was directly threatening, he just stared, but I had to stop staring at him, because the more I stared, the more I noticed him, the less I noticed behind him or in any way around me. It looked at first like a fog had rolled in, covering the land behind him, but that wasn't true at all, there was no fog, the tree line and the mountains beyond that were once visible in the far off distance were simply gone, consumed by an encroaching tide of white that tore and shredded them to nothingness. I turned my head, it was happening all around me, encircling the house, closing in.
+
+YOU DON'T BELONG.
+
+I looked back, the figure was still across the creek, his hand was raised now, pointed behind me, back at the window. He didn't have a mouth, but I could hear him screaming in my mind: "RUN!"
 
 The white light sped up, almost as if it 'saw' me and hastened its' approach. The figure did not heed its' own advice and when the light touched it, it disappeared as well.
 
 I scrambled to my feet and sprinted for the window, the white light closing in around me until I dove head first into the window, my field of vision being completely drowned out in the light.
 
-I woke up on the basement floor, the window was shut, with an impact crack in the center, like a large rock was thrown at the window from the outside (whether that outside was the real outside is up for debate). I opened the window again and saw it to be bright outside, not like before, it was still summer but it had to be around dusk, which was still wrong as it was now past midnight.
+I woke up on the basement floor, the window was shut, with an impact crack in the center, like a large rock was thrown at the window from the outside (whether that outside was the real outside is up for debate). I opened the window again and saw it to be bright outside, not like before, it was still summer, still sunny, still noon, which was still wrong as it was now past midnight. It looked nearly identical to that ideal summer day I had seen and experienced before, but it looked... Different. Something tiny, something you can't see until you're looking back, and now that I'm looking back, I can finally say that I know what had changed. One. Single. Fraction. Of. A. Second.
+
+One moment to the next. One moment at a time. Only passing or fading away into the fog when you notice that once the clock's hand twitches, it ends.
 
 I felt the pressure again, the draw to return to that place, but I knew that I could not stay. It mounted and mounted until I finally painted over the window and once again, no natural light entered the basement. I painted layer after layer until the pressure in my chest faded and I no long wanted to open the window and return to that 'perfect' place.
 
@@ -89,4 +96,4 @@ I think I know what I have to do, for him.
 
 I'm going to bulldoze the house, close the window for good. I'll take John's advice, because no one belongs there.
 
-No one except for that shadow figure I saw across the creek bed, but I still see him everyday, no matter what side of the window I'm on, he was my shadow, always walking behind me, staying behind in my memories while I move forward.
+No one except for that shadowy figure I saw across the creek bed, but I still see him everyday, no matter what side of the window I'm on, he was my shadow, always walking behind me, staying behind in my memories while I move forward into the many moments ahead, which I will most assuredly never notice when they pass away.
