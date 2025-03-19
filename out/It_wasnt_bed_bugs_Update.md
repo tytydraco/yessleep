@@ -77,3 +77,4 @@ What I’m saying is if a nurse operated out of here I would call the state medi
 
 I don’t know what it is they do when I’m gone, why Cindy is lying about work and potentially some nurse. It’s probably all bullshit. If that’s the case it's like she lives two different lives. I saw some comments on my previous post telling me to be wary of her friends, that she’s lying to me, and you’re probably all correct.  I’m gonna find out what they’re doing in this tetanus-ridden slab of concrete and metal, why she’s been lying to me, who she truly is. I need to know.
 
+Final update: https://www.reddit.com/r/nosleep/s/8ugplzYF2z

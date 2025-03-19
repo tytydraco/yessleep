@@ -1,3 +1,5 @@
+First update: https://www.reddit.com/r/nosleep/s/ZN3lC1ej29
+
 Previous update: https://www.reddit.com/r/nosleep/comments/1j914ty/it_wasnt_bed_bugs_update/
 
 I’m sorry to admit I was foolish enough to enter the warehouse. I am safe now, I think, but what I experienced there; the things I saw… I was not ready for it. A part of me, a proportionate chunk of my life, died there. It was sliced off, stomped on, and set ablaze by the abhorrent practices exercised in that warehouse and those who partook in them. I am not very religious, but I found myself praying after that experience. Only I, God, and the few who survived can truly know what happened there. It’s taking a lot out of me just to remember what I went through. I will do my best to explain what I saw. Hopefully this is a message to those who may fall for a queen's trap.
