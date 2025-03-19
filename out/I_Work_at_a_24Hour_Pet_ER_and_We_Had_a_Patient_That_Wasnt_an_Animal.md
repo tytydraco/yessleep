@@ -401,7 +401,7 @@ I choked on a scream. My body jolted as something gripped me. Those jagged finge
 
 I turned in a single heaving motion and I ran.
 
-The door gave way beneath my shoulder, and I burst into the hallway, feet pounding against the tile. Behind me, I heard the kennel door smash open. The sound of paws, heavy and fast, hitting the ground.
+The kennel door gave way beneath my shoulder, and I burst into the hallway, feet pounding against the tile. Behind me, I heard the kennel door smash open. The sound of paws, heavy and fast, hitting the ground.
 
 He was coming.
 
@@ -413,9 +413,9 @@ Just the rush of movement in the dark.
 
 A silent freight train, barreling toward me. So I spun, pressing my back against the door. The darkness beyond was absolute, thick and suffocating. The emergency exit sign glowed faint above me, swallowing the building in a weak neon glow.
 
-I saw the faint outline of a hunched beast. A panther crouched behind brush seeking out its prey. 
+The slap of paws on tile stopped. And I saw the faint outline of a hunched beast. A panther crouched behind brush seeking out its prey. 
 
-Breathing filled the void. Slow, wet and thick with. Then, a whisper of movement, so close I felt the air shift around my face. 
+Breathing filled the void. Slow, wet and thick with malice. Then, a whisper of movement, so close I felt the air shift around my face. 
 
 I turned and bolted down the hall. Instinct drove me forwards, without thought or plan. My body simply moved on its own accord.
 
@@ -427,7 +427,7 @@ And I fired.
 
 The first shot lit up the hall like a camera flash. In that brief flicker, I saw him—that snarling grin. The second shot. The third. His body jerked, but he didn’t fall. My ears buzzed with each concussive shot. 
 
-In the green shimmer of another exit sign, I saw that his lips were still curled back in that awful rictus.
+In the green shimmer of the exit sign, I saw that his lips were still curled back in that awful rictus.
 
 The sixth and final shot hit its mark. The left side of his skull caved inward, the muzzle of his face blown apart where the bullet had exited. Even in the thin light I saw how his jaw sagged open, how that tongue flopped out limp. 
 
@@ -451,7 +451,7 @@ I didn’t move.
 
 The hospital swarmed with police. I don’t know who called them or when, but they arrived fast. A slew of questions. I registered almost nothing in my haze.
 
-They took me into the back office, my hands still shaking, my ears still filled with phantom echoes. I knew exactly what I had to say. I knew how to frame it. Self-defense. My uncle Phillip was a defense attorney, he talked shop often with me on our fishing trip outings. So I knew a little more than I let on. And I managed to play my part well. And so, the police let me go.
+They took me into the back office, my hands still shaking, my ears still filled with phantom echoes. I knew exactly what I had to say. I knew how to frame it. Self-defense. My uncle Phillip was a defense attorney, he talked shop often with me on our fishing trip outings together. So I knew a little more than I let on. And I managed to play my part well. And so, the police let me go.
 
 We wrapped, bagged, and stuffed Mutt in the freezer, awaiting cremation. And I took time off work. Spent a few days in silence, trying to erase the memory of that voice. Tried to ignore that palpable sound of my name in some twisted, malformed mouth. As you likely imagined, it didn’t work.
 

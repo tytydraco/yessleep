@@ -40,7 +40,7 @@ He swings the bag and pour the contents in. Branches and weeds fall to the botto
 
 “Why don’t you just order some soil to fill it in?”
 
-“Eh,” he shrugs, “twigs and leafs work just fine.”
+“Eh,” he shrugs, “twigs and leaves work just fine.”
 
 Clearly not from the looks of it, but I’m not going argue with him.
 
@@ -72,7 +72,7 @@ I didn’t recognize the name, guess I forgot to ask for it when we last talked,
 
 Click. Weird guy. He definitely doesn’t sound like he’s looking to hire me. Oh well, if it saves me a trip to the dump then I don’t mind giving him my debris.
 
-The first comes. It’s shitstorming outside. I call Jacqueline and let her know that I’ll have to reschedule because of the weather. She’s unbothered. She knows that I’ll be back over there as soon as the weather allows. A few days pass and the weather clears up. It’s still muggy outside, but not so much so that I can’t work. I gather up my tools and head over to Jacqueline’s house. The storm must have been pretty violent. Tree branches and leafs litter the yard. Flowers are toppled over and looking sad. There’s a lot to clean up.
+The first comes. It’s shitstorming outside. I call Jacqueline and let her know that I’ll have to reschedule because of the weather. She’s unbothered. She knows that I’ll be back over there as soon as the weather allows. A few days pass and the weather clears up. It’s still muggy outside, but not so much so that I can’t work. I gather up my tools and head over to Jacqueline’s house. The storm must have been pretty violent. Tree branches and leaves litter the yard. Flowers are toppled over and looking sad. There’s a lot to clean up.
 
 After a long day of cleaning up the garden, and bagging all the leaf and branch litter from the yard, I’m finally finished, and just in time by the looks of it. The sun is already setting. There isn’t a spec of sunlight left by the time I get all the compost bags hauled to the van. The moment I open the trunk to toss the bags in John jumps out from the other side of the van.
 
@@ -90,7 +90,7 @@ He sounds offended, but it’s not like he’s my client. There’s no reason I 
 
 There was something off about John. Even in the dark he looked noticeably more haggard than the last time I saw him. His mere presence made me uncomfortable, but as much as I didn’t want to be around him any longer I wanted to haul this debris to the dump even less.
 
-John picks up a bag and rushes off in the direction of his yard. I pick up a bag and follow slowly behind. By the time I catch up to John he’d already dumped the contents of his bag in the pit. I walk up to the edge of the pit and John races past me, presumably back to the pile of bags sitting by the van. I lean over the edge of the pit and peer into it. It’s definitely gotten bigger. Leafs, debris, and dirty water swirl around slowly inside. It’s not nearly as full as it was the last time I saw it. It must be growing faster than he’s been filling it. But is it just going to keep growing? I watch, bewildered, as the leafs and muck swirl around inside. It’s somewhat hypnotic, pulling my gaze. Something about it fills me with a sense of unease. It shouldn’t be here, and I shouldn’t be near it. Still, I can’t help watching it with morbid curiosity.
+John picks up a bag and rushes off in the direction of his yard. I pick up a bag and follow slowly behind. By the time I catch up to John he’d already dumped the contents of his bag in the pit. I walk up to the edge of the pit and John races past me, presumably back to the pile of bags sitting by the van. I lean over the edge of the pit and peer into it. It’s definitely gotten bigger. Leaves, debris, and dirty water swirl around slowly inside. It’s not nearly as full as it was the last time I saw it. It must be growing faster than he’s been filling it. But is it just going to keep growing? I watch, bewildered, as the leafs and muck swirl around inside. It’s somewhat hypnotic, pulling my gaze. Something about it fills me with a sense of unease. It shouldn’t be here, and I shouldn’t be near it. Still, I can’t help watching it with morbid curiosity.
 
 “Don’t get too close.” John says, as he runs up with another bag. “You don’t want to fall in.”
 
@@ -113,8 +113,6 @@ I snap back to my senses and pour my bag in, then walk back towards the van to g
 “Yeah,” I nod. I’m not going to argue with him. “Well, it’s pretty late. I better get going. See you next month.”
 
 John doesn’t reply. He’s fixated on the pit, too focused to listen to whatever I had to say. I manage to pull my gaze away from the pit and turn around to walk back to the van.
-
-
 
 A few days later I get a call. “Hi, it’s John. I was wondering if you could come out and do some work for me.”
 
@@ -152,7 +150,7 @@ I walk through the gate and survey the yard. Not a thing looks like it’s been 
 
 “Naw,” he replies, not looking up from the pit. “Just trim up anything that looks like it needs trimming.”
 
-He did mention Hollies over the phone, so I start with those. They look nice enough when they’re groomed, but they have these pointy leafs that poke in you like little needles whenever you have to trim them. I’m not a fan of Hollies. Of course the yard is surrounded by them. I start shaping one, trying to avoid getting poked with needle leafs, finish, and move on to the next. After I’ve done a few, John walks over to the Holly I’d just finished trimming, and inspects it.
+He did mention Hollies over the phone, so I start with those. They look nice enough when they’re groomed, but they have these pointy leaves that poke in you like little needles whenever you have to trim them. I’m not a fan of Hollies. Of course the yard is surrounded by them. I start shaping one, trying to avoid getting poked with needle leafs, finish, and move on to the next. After I’ve done a few, John walks over to the Holly I’d just finished trimming, and inspects it.
 
 “You can cut ‘em back more than that,” he says.
 
@@ -170,7 +168,7 @@ I look at him, and look at the Holly I’d just trimmed. Normally, I wouldn’t 
 
 I return to the holly I’d just finished and start cutting away at it even more. John returns to the pit to continue watching it. Once I’ve finished one I move on to the next, then the next. I work fast, but It still takes hours to trim all the shrubs. The entire time I’m working, John just stares into the pit. I try not to think about him, and just work. I try not to think about how I’m essentially butchering these plants. I try not to think about the pit, but the longer I’m there the more thoughts of it creep in, until it’s all I can think about. So far, I’ve managed to avoid to so much as look at it since I’d arrived, however, now that all the vines are pulled and everything is trimmed, all that’s left to do is gather the debris and pour it in. It’s not like I can do that without going near the thing or looking at it.
 
-I grab my rake and start scooping the debris towards the pit. John just watches as I scoop the debris in. At one glance, I can tell it’s definitely gotten deeper than when I last saw it, much deeper. Leafs and debris cascade down the side of it, falling to the bottom. As much as I’m putting in, it should be filling up at least a little. I leave to gather another pile of debris. When I return, it’s already deeper. Every time I leave to gather another pile, it’s deeper as soon as I come back.
+I grab my rake and start scooping the debris towards the pit. John just watches as I scoop the debris in. At one glance, I can tell it’s definitely gotten deeper than when I last saw it, much deeper. Leaves and debris cascade down the side of it, falling to the bottom. As much as I’m putting in, it should be filling up at least a little. I leave to gather another pile of debris. When I return, it’s already deeper. Every time I leave to gather another pile, it’s deeper as soon as I come back.
 
 “Well, that’s all of it,” I say, as I scoop in the last rake-full of debris.
 
@@ -184,7 +182,7 @@ John jerks his head side to side, looking over the yard desperately. His eyes fo
 
 “I don’t care about the plants. Just help me cut these down.”
 
-Branches and holly leafs scrape against his arms as he frantically cuts into them. He either doesn’t notice or doesn’t care as his arms start dripping with blood.
+Branches and holly leaves scrape against his arms as he frantically cuts into them. He either doesn’t notice or doesn’t care as his arms start dripping with blood.
 
 “If you’re going to kill them anyways, there’s an easier way to do it,” I try to tell him.
 
