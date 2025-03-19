@@ -265,3 +265,5 @@ It was embarrassingly long before anyone had the courage to speak. Whatever was 
 I swallowed hard, and asked my friends. 
 
 “So, are we getting in?”
+
+[Link to Part Two](https://www.reddit.com/r/nosleep/s/afYQseuOEp)

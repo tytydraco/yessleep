@@ -24,6 +24,6 @@ On the paper was a child's drawing. It looked exactly like the creature that had
 
 A strange feeling washed over me. I was afraid of that horrid creature that tormented me in the night. But, I had a bittersweet mood. As strange as it may be, it was almost comforting to have even a remnant of my family, even if a distorted version.
 
-I know realized drawings and art hold more power than one may think. So be careful, you may see something you or a loved one has drawn creeping around in your room or on a lonely road at night. I’ve begun to wonder if this could be the explanation for children's imaginary friends and the monsters in their closets and under their beds. Maybe belief is what keeps them alive. 
+I now realized drawings and art hold more power than one may think. So be careful, you may see something you or a loved one has drawn creeping around in your room or on a lonely road at night. I’ve begun to wonder if this could be the explanation for children's imaginary friends and the monsters in their closets and under their beds. Maybe belief is what keeps them alive. 
 
 Every night, I jump at every shadow on the wall. I dread the night one of my son's drawings comes to life again. But, I’ve had an idea. A truly dreadful one. Maybe, just maybe, I can bring my family back. God help me.
