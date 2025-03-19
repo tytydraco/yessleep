@@ -155,7 +155,7 @@ Trying to convince the remaining survivors to dive into the heavens, thereby com
 
 It took a long while to calm Emi down, but once she soothed, my daughter was out cold for the rest of the night. Utter exhaustion is one hell of a sleep aid.
 
-As she slept, I softly made my way into Emi’s bedroom. While in middle school, she and Regina had gone through a very cute astrology phase. Puberty eventually beat the hobby out of both of their systems, as it tends to do with any passion that can be perceived as even slightly *nerdy*, but I knew she still had a semi-expensive telescope we got her for Christmas in her closet: the same model that Regina had, as a matter of fact.
+As she slept, I softly made my way into Emi’s bedroom. While in middle school, she and Regina had gone through a very cute astronomy phase. Puberty eventually beat the hobby out of both of their systems, as it tends to do with any passion that can be perceived as even slightly *nerdy*, but I knew she still had a semi-expensive telescope we got her for Christmas in her closet: the same model that Regina had, as a matter of fact.
 
 Before the shift, they’d still stargaze together, marveling at the constellations over their walkie-talkies in the dead of night. Emi was under the impression Ben and I hadn’t noticed, and we certainly didn’t let on that we had: she would have been mortified to be caught doing something so *childish*.
 
