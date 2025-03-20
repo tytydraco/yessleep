@@ -124,7 +124,7 @@ And then, almost too late, I realized—
 
 It had been staring at *me* first.
 
-Oh, great. Here I am, standing in some godforsaken sublevel of a tech company, and they’ve their own version of fucking *Ultron* stashed away down here.
+Oh, great. Here I am, standing in some godforsaken sublevel of a tech company, and they’ve got their own version of fucking *Ultron* stashed away down here.
 
 My hands were shaking so badly I thought TR-2 probably heard it. 
 
