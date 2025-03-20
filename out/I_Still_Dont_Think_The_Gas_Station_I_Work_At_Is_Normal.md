@@ -101,7 +101,7 @@ I slowly inched my hand to my waist searching for my knife to protect myself, to
 
 “Why… Did you let down your guard.” A confused expression fell across her face as I mustered up my last bit of strength and plunged the knife I death gripped into her neck, immediately I fell crashing onto the floor as I could see black sludge start to seep out of her neck. My brain finally gave up on me as I started to drift into unconsciousness, I could feel a light warmth start to swell on my wrist as my vision finally went dark, the last thing I heard was a deep echoey voice say “Scarlet” with a lighter voice responding “Oh no”.
 
-During my state of unconsciousness I was enveloped with a dream, I sat at the head of a long table aligned with blacked out figures filling each chair.  They were all engaged in a conversation I could not hear, some nodding while others flail their arms in annoyance. After what seemed like minutes all of them turned to face me and in unacince said “Right Landon?”
+During my state of unconsciousness I was enveloped with a dream, I sat at the head of a long table aligned with blacked out figures filling each chair.  They were all engaged in a conversation I could not hear, some nodding while others flail their arms in annoyance. After what seemed like minutes all of them turned to face me and in unison said “Right Landon?”
 
 
 
