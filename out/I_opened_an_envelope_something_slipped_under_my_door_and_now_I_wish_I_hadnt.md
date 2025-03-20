@@ -10,6 +10,10 @@ But instead of a recipe it read:
 
 *Or your ears will bleed till you die*
 
+*PS*
+
+*I'll get you, Walt! And, your little nose, too!*
+
 The penmanship was wack. Like bad graffiti from a Brooklyn train yard in the '80s.
 
 Well, that was this morning. Now I've just been sitting at my desk in shock watching the clouds roll by and wondering why I keep seeing things slither out of the corner of my eyes.
@@ -24,9 +28,9 @@ Edna was the new tenant who had moved into the apartment directly above me.
 
 I figured out there was a new tenant above me because I immediately started picking up bad vibrations. I mean her footfalls sounded like there was a baby brontosaurus running rampant in apartment #3D. And it appeared to be revved up like a deuce, another buffalo running blind in the night.
 
-Anyway, I caught sight of Edna in the ample flesh trying to open her mailbox the very next day. It appeared Edna was not doing well. She cornered me in the vestibule. 
+Anyway, I caught sight of Edna in the ample flesh trying to open her mailbox the very next day. It appeared Edna was not doing well. She cornered me in the vestibule.
 
-There was a sticky note she had apparently put on the mailbox. Then as if downshifting from thinking to *herself* to speaking to *me*, "and then, it just won't open. I put the sticky noot \[sic\] on the box with highlighter but nobody rang my bell or gave me a new key or my mail. I might have very important correspondence, Walter! 
+There was a sticky note she had apparently put on the mailbox. Then as if downshifting from thinking to *herself* to speaking to *me*, "and then, it just won't open. I put the sticky noot \[sic\] on the box with highlighter but nobody rang my bell or gave me a new key or my mail. I might have very important correspondence, Walter!
 
 ***Very, very important correspondence!*** **Don't you agree?!?**"
 
@@ -48,7 +52,7 @@ Anyway, I didn't see Edna after that, and the sticky note was off her mailbox so
 
 I even heard her open her front door and exclaim, "OH MY GOD! NO WAY! A RUG! FOR MY BEDDY! JUST WHAT I PRAYED FOR!"
 
-And just like that her buffalo steps were muffled enough to allow my life to return to some semblance of normalcy. Except for the teeth grinding and stuff. But you try to give up a 41 year nicotine habit cold turkey and you see if you get up to your ears in no sleep too.
+And, just like that, her beyond support-beam busting, buffalo steps were muffled enough by the rug's plushness to allow my life to return to some semblance of normalcy. Except for the teeth grinding and stuff. But you try to give up a 41-year nicotine habit cold turkey and you see if you get up to your ears in no sleep too.
 
 But then the tap-tap-tapping began. Right outside my bedroom window. Sounded like a marble hitting the glass. And every time I got up to investigate it would stop. Tap-tap-tap. Plus I had that 3M plastic insulation over the window cause of the air conditioner and well, Brooklyn winter ain't exactly balmy.
 
@@ -82,7 +86,7 @@ Some fucking Invasion of the Body Snatching bullshit right there I muttered unde
 
 Edna looked at me with the strabismus malocchio and said, "I knew you'd come for me, *Walt*!"
 
-"Don't call me, Walt," I said and meant it. 
+"Don't call me, Walt," I said and meant it.
 
 This was going too far. And there was a strange odor in her place. Like old cat food and mothballs and dirty socks.
 
