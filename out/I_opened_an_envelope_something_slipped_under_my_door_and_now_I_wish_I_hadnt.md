@@ -6,7 +6,7 @@ But instead of a recipe it read:
 
 *Dufus Dufi*
 
-*Now dufus-U gotsta die....*
+*Now dufus-U gotsta die!*
 
 The penmanship was wack. Like bad graffiti from a Brooklyn train yard in the '80s.
 
@@ -80,10 +80,18 @@ And then Edna's face changed. It no longer looked out of touch with reality but 
 
 "How do you know your head is not one of mine?"
 
-And that's when I felt somebody step on my grave and deked for my crib without further ado.
+Then, without warning Edna's flesh-roll-laden hand suddenly darted out making a soft fist. Edna pinched my nose between the top portion of her bent index and fuck finger before jamming her left thumb up in my right nostril.
+
+Her fingers smelled like cat food, mothballs and Velveeta.
+
+"GOT YOUR NOSE," she bellowed before breaking into a witchy cackle that eventually doubled her over. I noticed her fuchsia gabardine stretch pants began to darken with a rapidly expanding wet spot. It began north expanding across Edna's thighs. The spot became a line that thickened as it traveled down, down, down past her cankles before pooling at her feet and beginning to seep into the hallway.
+
+"Wanna come in and see my Walter collection, Walt?"
+
+And that's when I felt my ears began to ring. Then I felt somebody step on my grave. Horrified, I deked for my crib without further ado.
 
 Now I'm looking at the recipe card and wondering if I'm *cooked*....
 
-Anybody got advice for this tired-ass bald dude whose head may, or may not, be plastic?
+Anybody got advice for this tired-ass bald dude whose head may, or may not, be made out of *bloody* plastic?
 
 No cactus am I? Cacti?
