@@ -152,7 +152,7 @@ We all waited in anticipation for the Queen Bee to return.
 
 I was secretly dreading it. 
 
-I had a feeling she was going to keep us all up all night, sneaking into the boys dorm with the girls, and going on and on and on and on onnnnnn until I threw a pillow at the head. 
+I had a feeling she was going to keep us all up all night, sneaking into the boys dorm with the girls, and going on and on and on and onnnnnn until I threw a pillow at her head. 
 
 Still, though, I was excited to hear about her very first mission to save the world. 
 
@@ -228,7 +228,7 @@ But they were all screaming the same thing:
 
 Again, none of this information was shared outside the facility. 
 
-Not even world leaders/scientists/astronauts. 
+Not even world leaders/scientists.
 
 Per protocol, the first people who heard about potential world-ending disasters were us. 
 
