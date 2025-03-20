@@ -1,3 +1,5 @@
+***PART 2:*** https://www.reddit.com/r/nosleep/s/eBHxqk1bVz
+
 I found the chocolate bar by accident.
 
 It was tucked away on the lowest shelf in the corner shop, half hidden behind a row of dusty biscuit tins. The wrapper was matte black, unmarked except for an embossed gold logo – ***Huxley’s Original***. No price tag, no branding, nothing to indicate where it had come from. I turned it over in my hands. The weight of it was strange – heavier than it should’ve been, dense, almost unnervingly solid.
