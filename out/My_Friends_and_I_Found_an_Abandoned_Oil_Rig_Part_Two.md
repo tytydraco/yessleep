@@ -270,3 +270,5 @@ The intercom crackled to life, the words finally audible again.
 “NO, NO NO NO NO NO, I TOLD YOU NOT TO GO RIGHT, I TOLD YOU NOT TO GO THAT WAY!”
 
 I drowned out the incessant noise from the speaker, and collapsed with my back against the wall. I stared blankly at the trail of water which had led us into the research wing, the trail that curled towards the wall and ended in the spot where my sister now sat crying.
+
+[Link to Part Three](https://www.reddit.com/r/nosleep/s/QIXjDLBZNL)
