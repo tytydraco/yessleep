@@ -6,35 +6,45 @@ But instead of a recipe it read:
 
 *Dufus Dufi*
 
-*Now dufus-U gotsta die!*
+*Move from 2D to 3D*
+
+*Or your ears will bleed till you die*
 
 The penmanship was wack. Like bad graffiti from a Brooklyn train yard in the '80s.
 
-Well, that was this morning. Now I've just been sitting at my desk watching the clouds roll by and wondering why I keep seeing things slither out of the corner of my eyes.
+Well, that was this morning. Now I've just been sitting at my desk in shock watching the clouds roll by and wondering why I keep seeing things slither out of the corner of my eyes.
 
-I look back at the recipe card but it keeps saying the same thing. And there's a little blood maybe coming out of my ear. Anyway, I figured I'd just write it all out in case some baby cactus comes out of my gut like in Alien.
+I look back at the recipe card, but it keeps saying the same thing. And there's a little blood maybe coming out of my ear. Anyway, I figured I'd just write it all out in case some baby cactus comes shooting out my guts like in Alien.
 
-It's not like the envelope was totally unexpected. It all started about a month ago when I met....
+It's not like the envelope was unexpected. It all started about a month ago when I met....
 
 ***Edna***
 
-Edna moved into the upstairs apartment last month and I figured it out pretty quick because of the bad vibrations. I mean her footfalls sounded like there was a baby brontosaurus running rampant in #3D.
+Edna was the new tenant who had moved into the apartment directly above me.
 
-Anyway, I caught sight of her trying to open her mailbox the next day and she was not doing well. She cornered me in the vestibule. There was a sticky note she put on the mailbox and she said, like as if she went from thinking to herself to speaking to me, "and then, it just won't open. I put the sticky noot \[sic\] on the box but nobody rang my bell or gave me a new key or my mail. I might have very important correspondence Walter! Very important correspondance! Don't you agree?"
+I figured out there was a new tenant above me because I immediately started picking up bad vibrations. I mean her footfalls sounded like there was a baby brontosaurus running rampant in apartment #3D. And it appeared to be revved up like a deuce, another buffalo running blind in the night.
 
-I scratched my head as I stepped back. Edna was not a small girl in the way Fatty Arbuckle was not a small boy.
+Anyway, I caught sight of Edna in the ample flesh trying to open her mailbox the very next day. It appeared Edna was not doing well. She cornered me in the vestibule. 
 
-"I dunno. I haven't read your fan mail," I said and that's when Edna grabbed me and plainted, "What do I doooooo, Walt?"
+There was a sticky note she had apparently put on the mailbox. Then as if downshifting from thinking to *herself* to speaking to *me*, "and then, it just won't open. I put the sticky noot \[sic\] on the box with highlighter but nobody rang my bell or gave me a new key or my mail. I might have very important correspondence, Walter! 
 
-"Don't call me Walt," I said. "And call the landlord. They'll help."
+***Very, very important correspondence!*** **Don't you agree?!?**"
 
-"Can you come with to call, Walt-I mean Walter!"
+"I dunno. I haven't read your fan mail," I said and that's when Edna grabbed my upper arms hard and plainted, "What do I doooooo, Walt?"
 
-"No," I said, doing a low key Ali shuffle and out the vestibule door into the fresh air.
+"Don't call me Walt," I said. "And call the landlord. They'll help," as I wriggled free from her not negligible grip.
 
-"I love you, Walt!!!!" was the last thing I heard but like I said my ears keep getting a bit bloody so I ain't exactly sure what I heard is what was said if you catch my drift.
+"Can you come with to call, Walt-I-I-I mean Walter!"
 
-Anyway, I didn't see Edna after that, and the sticky note was off her mailbox so I kind of chalked it up to life sucking. And I did feel a little bad about stuff so I anonymously left a big thick burnt orange rug in a box on her doorstep.
+Scratching my head I stepped back.
+
+Edna was not a small girl in the way Fatty Arbuckle was not a small boy.
+
+"No," I said, doing a low-key Ali shuffle before floating like a butterfly out the vestibule door into the fresh air.
+
+"I love you, Walt!!!!" was the last thing I heard but like I said my ears keep getting a bit bloody as of late so I ain't exactly sure what I heard is what was said, if you catch my drift.
+
+Anyway, I didn't see Edna after that, and the sticky note was off her mailbox so I kind of chalked it up to life-sucking. And I did feel a little bad about stuff so I anonymously left a big thick burnt orange rug in a box on her doorstep.
 
 I even heard her open her front door and exclaim, "OH MY GOD! NO WAY! A RUG! FOR MY BEDDY! JUST WHAT I PRAYED FOR!"
 
@@ -70,9 +80,11 @@ Not just buffalo Edna. But the host of heads. Mannequin heads everywhere. And th
 
 Some fucking Invasion of the Body Snatching bullshit right there I muttered under my breath feeling anger getting the bitter of my better.
 
-Edna looked at me with the strabismus malochi and said, "I knew you'd come for me Walt!"
+Edna looked at me with the strabismus malocchio and said, "I knew you'd come for me, *Walt*!"
 
-"Don't call me Walt," I said and meant it. This was going too far. And there was a strange odor in her place. Like old cat food and mothballs and dirty socks.
+"Don't call me, Walt," I said and meant it. 
+
+This was going too far. And there was a strange odor in her place. Like old cat food and mothballs and dirty socks.
 
 "You're my soulmate!" she said and I said, "If you don't cut the shit Edna, I will complain. This is harassment."
 
