@@ -130,7 +130,7 @@ We played our hand. Showed her that not everyone was following Barrett’s dictu
 
 *“A-C-T-S-1-7-6 protocol, fulcrum imminent, 0:01”*
 
-Truthfully, I don’t think Barret had any awareness of the directives that motorized the shift. I think he believed whole-heartedly in every fatalistic word that dribbled from his lips. If he was working under Ulysses, though, he would have been trying to convince people *against* jumping.
+Truthfully, I don’t think Barret had any awareness of the directives that motorized the shift. I think he believed whole-heartedly in every fatalistic word that dribbled from his lips. If he was working under Ulysses, he would have been trying to convince people *against* jumping, not encouraging it.
 
 That’ll make more sense in a bit.
 

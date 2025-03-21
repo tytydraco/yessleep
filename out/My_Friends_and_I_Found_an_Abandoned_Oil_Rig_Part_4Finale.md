@@ -44,7 +44,7 @@ Maria moved closer, placing a gentle hand on Savannah’s shoulder. She gave me 
 
 I stooped down to the ground, gently picking Mark up. His withered corpse was much lighter than I’d expected, dried and lacking all substance. I stood, and silently made our way to the junction we’d now crossed several times before.
 
-Savannah trailed behind as I carried him down the unexplained corridor straight ahead, marked as Habitation. It didn’t take long to find a suitable place to lay him to rest. A door to our right laid cracked open, and inside was what appeared to be a communal bedroom. One bed stood out among the rest, positioned neatly in the middle of the room, illuminated by a single light from above. The sheets were dusty and ragged, but neatly laid across the bed.
+Savannah trailed behind as I carried him down the unexplored corridor straight ahead, marked as Habitation. It didn’t take long to find a suitable place to lay him to rest. A door to our right laid cracked open, and inside was what appeared to be a communal bedroom. One bed stood out among the rest, positioned neatly in the middle of the room, illuminated by a single light from above. The sheets were dusty and ragged, but neatly laid across the bed.
 
 Maria gently lifted the sheet, coughing as a cloud of ash and dust arose from beneath, tattered and rotted clothes filling the space under the sheets. Savannah gently removed Mark’s boots, and I laid Mark down in the bed, amidst the ash and the tattered rags that matched his. Savannah went to place the boots in the corner of the room, where dozens of identical pairs in varying states of decay already lie waiting.
 
@@ -84,7 +84,7 @@ The intercom crackled frantically, the voice barely audible through thickening s
 
 “The loop is destabilizing! You have to get in here NOW! There’s no more time!”
 
-I turned back Maria and attempting to rouse her from the floor. Her skin was cold to the touch, and as I felt for a pulse, I could discern a weak, unsteady heartbeat.
+I turned back Maria and attempted to rouse her from the floor. Her skin was cold to the touch, and as I felt for a pulse, I could discern a weak, unsteady heartbeat.
 
 “Maria please, please wake up. We have to go, we have to go now, please!”
 
@@ -214,7 +214,7 @@ We’ve just landed, and we’re laughing. Alive.
 
 I’m watching myself comfort my sister as she stares out into the blackness of the sea.
 
-I know they won’t be able to hear me until the morning, when they go to check the broadcast I’m sending to the control deck up top, but I know that I’m going to ask for their help. I’ll warn them of everything that I think the’ll understand, as little as that would be. I’ll do my best to get them down as quickly as possible, to rescue Maria and I down here. 
+I know they won’t be able to hear me until the morning, when they go to check the broadcast I’m sending to the control deck up top, but I know that I’m going to ask for their help. I’ll warn them of everything that I think they’ll understand, as little as that would be. I’ll do my best to get them down as quickly as possible, to rescue Maria and I down here. 
 
 Maybe this time they’ll listen to me. 
 Maybe this time will be different. 
