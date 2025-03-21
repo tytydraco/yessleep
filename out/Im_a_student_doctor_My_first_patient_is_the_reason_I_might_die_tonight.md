@@ -60,7 +60,7 @@ I’ve been trying to act normal since. I finished my shift early, told the nurs
 
 And now—this.
 
-I came home and the house was dark. I live alone, in a single-level terrace. Usually it feels cozy. Not tonight.
+I came home and the house was dark. I live alone, in a two-storey terrace. Usually it feels cozy. Not tonight.
 
 I locked the door, flicked the hallway light on.
 
