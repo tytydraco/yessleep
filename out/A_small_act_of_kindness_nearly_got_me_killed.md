@@ -98,7 +98,7 @@ I called the investigator in charge of my case. Told him about the text. They to
 
 Another text. “How could you do that to me?”
 
-I froze. How did he know? Were there more cameras?
+I froze. How did he know? Were there more cameras? Did he bug my phone? 
 
 My phone vibrated again. “I told you I loved you. Why did you call him?”
 
@@ -134,7 +134,7 @@ Her eyes widened further, and her lips parted.
 
 “Uhm, the guy you got a cookie for? He…he kept asking about you. He wanted to know who bought him the cookie, wanted footage from our surveillance cameras. We denied him that, of course. But then he guessed it was you. He had noticed you, in your red sweater. Then he just…kind of camped out here every day. Until that day, when you came in. I wanted to tell you that…well I thought maybe…” she trailed off, and bit her lip.
 
-“The guy who looked sad?”
+“The cookie guy, the guy who looked sad?”
 
 She nodded.
 
@@ -152,7 +152,9 @@ By the time I headed home, I had a new message, from yet another unknown number.
 
 I gritted my teeth and fought the powerful urge to fling my phone at the wall.
 
-“Fuck you,” I texted back. Not at all what the police had advised I should do.
+“Fuck you,” I texted back. Not at all what the police had advised I should do. 
+
+I downloaded a VPN and an antivirus software right after. 
 
 Nothing much happened over the next several days. By the time a week passed I thought that maybe, my stalker had given up.
 
@@ -182,7 +184,7 @@ I caught a glimpse of a small face in the background where the cat filter had de
 
 My blood froze in my veins.
 
-I switched the app off and called the police, while running for the door.
+I switched the app off and called the police, while dashing for the door.
 
 I had just unlocked the door, when a flurry of footsteps thudded rapidly towards me. I turned, just in time for someone to snatch the phone from my hands.
 
