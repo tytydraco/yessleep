@@ -126,6 +126,6 @@ I interrupted my mom.
 
 “Wait, why the fuck was he clawing at my door?” I asked, tightening my grip on the phone.
 
-“Your father and I talked about that later. We couldn’t think of any sure reason. But he did mention saying something like ‘there is no room for the blind’ and ‘I can show him more than he sees’ while your father was aiming the rifle at him.  He said his face absolutely unmoving like stone the whole time. That man was delusional. After the cops took him we never heard from him again, thank God.”
+“Your father and I talked about that later. We couldn’t think of any sure reason. But he did mention saying something like ‘there is no room for the blind’ and ‘I can show him more than he sees’ while your father was aiming the rifle at him.  He said his face was absolutely unmoving, like stone, the whole time. That man was delusional. After the cops took him we never heard from him again, thank God.”
 
 I thanked my Mom for telling me what had really happened. She asked if I was really okay and I told her we could meet soon for dinner. Hopefully she could explain more of what happened to me in person. I’m also posting this because I’m scared. I’ve started to think of more similar instances and each time I come to the conclusion that maybe someone was there. Does anyone else have experiences like this? If so, I’d really like to hear them. If you know more about this than I do, please feel free to help me. I’m freaking out.

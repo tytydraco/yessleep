@@ -52,7 +52,7 @@ He was waiting at the bottom of the stairs.
 
 He took a step up. Nicholas stepped in front of me and we both clattered down towards him. I screamed as a pair of hands shoved me from behind, and I started falling towards Grand-père’s sharp knife.
 
-Twisting my neck, I saw Grand-père above me.
+Twisting my neck, I saw Grand-mère above me.
 
 She didn’t follow us down.
 
