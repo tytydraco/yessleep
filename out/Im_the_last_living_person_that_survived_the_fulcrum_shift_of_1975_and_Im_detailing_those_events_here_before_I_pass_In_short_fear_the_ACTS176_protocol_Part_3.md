@@ -56,13 +56,13 @@ Emi already lost Ben, though.
 
 For her sanity, Regina needed to live.
 
-The memory of my husband pulling an ailing Mr. Baker across the street and towards our home suddenly flashed into my mind’s eye: his resolute, selfless focus. With every ounce of determination I had left, I held it there. Trapped the image in my skull long enough that it became almost tangible, like luring a ghost into the physical world with a ouija board. When the memory was so vivid that it felt nearly alive, I could sense Ben was with me. He leapt from the confines of the immaterial and into action, valiantly driving my terror away, forcing it to billow out of my lungs as I exhaled like a thick puff of black smoke dispersed by a gust of wind.
+The memory of my husband pulling an ailing Mr. Baker across the street and towards our home suddenly flashed into my mind’s eye - his resolute, selfless focus became a beacon. With every ounce of determination I had left, I held it there. Trapped the image in my skull long enough that it became almost tangible, like luring a ghost into the physical world with a ouija board. When the memory was so vivid that it felt nearly alive, I could sense Ben was with me. He leapt from the confines of the immaterial and into action, valiantly driving my terror away, forcing it to billow out of my lungs as I exhaled like a thick puff of black smoke dispersed by a gust of wind.
 
 Once the last atom of fear had rippled through spaces between teeth, the memory of that great man receded into the background, distant but never truly gone.
 
 I opened my eyes.
 
-My watch turned to *7:14 AM.* As if on cue, I heard a voice lapse through the walkie-talkie, which was propped up against the wall of the upturned atrium next to Emi.
+My watch turned to *7:14 AM.* As if on cue, I heard a voice lapse through the walkie-talkie, which was propped up against the wall of the overturned atrium next to Emi.
 
 *“A-C-T-S-1-7-6 protocol, fulcrum imminent, 0:16”*
 

@@ -1,6 +1,6 @@
-My father would know about it.  
-  
-High school is a weird place, for people that are disinterested in cliques and would rather spend their times in productive stuff that benefit the future. My father used to tell me that about 53% of our behavioral development comes through our life in high-school, yet, it is only 3 years of your life, so it is important to be mindful and weary.  
+My father would know about it.
+
+High school is a weird place, for people that are disinterested in cliques and would rather spend their times in productive stuff that benefit the future. My father used to tell me that about 53% of our behavioral development comes through our life in high-school, yet, it is only 3 years of your life, so it is important to be mindful and wary.  
 So, when we first moved to Moongrove, a small and a quiet town in Vermont, I had an indifference, see, change is inevitable, and if anything, I'd rather it happen naturally, instead of letting people influence me into changing me so I'd fit into their mold.
 
 But that's not what happened right? Life is unpredictable and is always a step ahead of you. You may think you can handle everything, but just when you think it is steady, life throws a curve ball at you, that changes the trajectory of your life.
@@ -10,8 +10,7 @@ You see, the people at Moongrove are.. eccentric. They believe in spirits and st
 Guess that's why I didn't question it when he started to lock all doors by 7 at night. When he asked me to turn off the lights at 11:05 sharp and letting me turn them back on exactly 7 minutes after.
 
 "Damn it dad, the hell are you doing? Why are you being so paranoid?" I groaned over my dinner at the table, going nuts over these new rules.  
-"Well, my sweet kitten, things may feel irrational to you, but.." He took a pause. His eyes darting around as if they were searching for an explanation. "Community you see. They'll shun you the minute you don't follow the rules. We have to live in this town for just another year, and I promise I'll find a more stable job in my area of expertise, and trust me, we'll be getting the hell out of this place as soon as we can" He smiled.  
-
+"Well, my sweet kitten, things may feel irrational to you, but.." He took a pause. His eyes darting around as if they were searching for an explanation. "Community you see. They'll shun you the minute you don't follow the rules. We have to live in this town for just another year, and I promise I'll find a more stable job in my area of expertise, and trust me, we'll be getting the hell out of this place as soon as we can" He smiled.
 
 I nodded. We'll be getting out of here. We absolutely will.
 
@@ -21,12 +20,12 @@ I began to understand this madness from 21st July 2023. It was 11:06 and I woke 
 
 You see, our kitchen had large windows, which my dad seldom forgot to close the blinds to. I was weirded out since he didn't draw them that day, and I was more weirded out at the creature that lie on the streets clutching its knees like a pained child. I filled my water jug and I placed it on the table, but it made a rather loud \*clang\* noise.
 
-That's when the creature whipped its head around in the direction of the noise- in the vicinity, was me standing still, eyes wide at this odd looking face eyes bulging out of its socket, it was large, but in a way it reminded me of an ugly hyena. We maintained eyecontact for a solid 5 minutes. It then cracked a smile, saliva dripping out of its jaundiced teeth. It still gives me chills to this day. My dad came in a few minutes later.
+That's when the creature whipped its head around in the direction of the noise- in the vicinity, was me standing still.  
+And the creature—God, the creature. Its limbs were wrong. Too long, too jagged, bending in directions that made my stomach churn. Its skin was a patchwork of graying flesh and sludgy, blackish veins, like it had been stitched together from the scraps of something that should have stayed dead. When it smiled, its jaundiced teeth were uneven, cracked like brittle bone, and I could see bits of **rotting meat stuck between them.** It didn’t just drool—it leaked, like its entire face was **slack and melting**. The saliva was viscous, yellowish, and pooled on the ground in thick globs. And when it moved? It didn’t walk—it skittered, limbs jerking with a snapping sound, like the tendons were **too tight or too loose**, making it stagger unevenly. When it ran toward me, I swear I heard **bones grinding against each other**, like its joints were sandpapered raw. And yet, somehow… it smiled the whole time.\*
 
 "Kitten? Oh my, how stupid of me, I forgot to draw the blinds" He muttered as he went to draw the blinds.  
 "You okay love?" He asked me.  
-"Dad.." I said, after a few seconds, my voice trembling.  
-
+"Dad.." I said, after a few seconds, my voice trembling.
 
 "I saw.. it"
 
@@ -36,8 +35,8 @@ My dad almost instinctively knew what I was saying. He rushed over to me and hug
 "Dad I am- I will.." I hesitated, finding for words.  
 "I am sorry, I'll be more co-operative from now on."
 
-And I was. I never acted like a brat to my dad, I was on the best behavior. My dad laid a heavier set of rules for me to follow since then, and actively tried to shield me from the impending doom, hoping we'd get away before 'it' does something.  
-  
+And I was. I never acted like a brat to my dad, I was on the best behavior. My dad laid a heavier set of rules for me to follow since then, and actively tried to shield me from the impending doom, hoping we'd get away before 'it' does something.
+
 But what harm did a little amount of fun ever do?
 
 A lot in my case.
@@ -46,8 +45,7 @@ I should have known. I should have been better, I wasn't. Time flew and before I
 
 "What's a party without lights for 7 minutes after 11:05?" I asked her, confused.  
 "Never heard of seven minutes in heaven?" She teased me.  
-"Oh please, spare me!" I made a gag face but I was intrigued. This would be my only real memory apart of 'fear' here.  
-
+"Oh please, spare me!" I made a gag face but I was intrigued. This would be my only real memory apart of 'fear' here.
 
 So, when my dad slept at 9 as he had work early the day after that, I snuck out of my house immediately, met up with Samantha and strolled over to the park, where I saw my crush Paul. My friend nudged my shoulder.  
 "Maybe if you get lucky, he'd be the one for the seven minutes, Karla." Samantha said, grinning like a cheshire cat.  
@@ -58,33 +56,40 @@ I was starting to get guilty. "Why am I doing this?" I thought and before I knew
 
 The light from the moon shone dimly amongst all of us.  
 "Seven minutes!" I heard someone yelling and almost immediately I heard gross sounds of kisses.  
-I felt a nudge on my shoulder.   
-I sighed. If I was committed to the 'acting-out' gig, I would make out with whoever it was, and that's what I decided to do.  
-I closed my eyes and placed on my hands on the chest, but before I could explain it, something shifted.  
-I ignored it, and then I heard violent screams... that sounded like me. Like I made them, but it was not coming from my chest. I looked around, and people looked at me and started shouting and screaming. Everyone I knew, was looking at me, like I were some monster.  
-Confused I looked down. I saw.. me? In shock. Samantha next to me. I looked at Samantha, Like, closely looked at her, and it was like.. I heard her thoughts.
+I felt a nudge on my shoulder.
 
-"I am sorry Karla. I am really sorry.. I needed my sister back."   
-Wait.. what was she talking about.  
-I saw her, hug me? Or really, whatever that looked like me.  
-I looked into a distance.  
+I sighed. If I was committed to this whole "acting out" thing, I might as well go through with it. I closed my eyes and placed my hands on the person’s chest. But before I could process it, something *shifted*.  
 I now had jaundiced teeth. My mouth was dripping saliva, I looked like an ugly creature... that was doomed.
 
+Then, I heard violent screams.
+
+Screams that sounded like me. But they weren’t coming from my chest.
+
+I opened my eyes—and realized everyone was staring at me. Horrified.
+
+I looked down and saw... *me*.
+
+And that was when I knew—I'd been switched.
+
+I looked at Samantha, like REALLY looked at her, and it was like I could hear her.  
+"Sorry, I had to save my sister" She said but she wasn't speaking. It was her thoughts I figured.
+
 I ran, but not on my two legs, but like an animal, to the only place I knew would do something.. to the only person who I knew, could put me out of this.  
-Except my father was home, Samantha by his side, and Karla on the other, How'd they get here before me. I was in the same position where I saw the form I assumed.. many months earlier.  
+Except my father was home, Samantha by his side, and Karla on the other, How'd they get here before me. And what were they even trying to explain?
+
+I was in the same position where I saw the form I assumed.. many months earlier.  
 I looked at my dad, and he looked at me.. The human form of me, pointed at me and muttered something, but I looked at my dad. He knew right? He had to know?
 
-Every night, at 11 since then, he had placed different notes on the table that faced our garden, which always read   
+Every night, at 11 since then, he had placed different notes on the table that faced our garden, which always read  
 "Please switch with someone else, my kitten. This is how your mother died here. I should have never moved back here."  
-But I didn't feel like condemning someone else with the cruel fate of living in the shadows, hunting for grubs on a rock to survive, looking at yourself from afar, knowing that it is an impostor that's living your life.   
-And I spent my days following that awful switch. Wondering how my mother died.   
+But I didn't feel like condemning someone else with the cruel fate of living in the shadows, hunting for grubs on a rock to survive, looking at yourself from afar, knowing that it is an impostor that's living your life.  
+And I spent my days following that awful switch. Wondering how my mother died.  
 Only today, after months, as I saw my dad send away the impostor me away for college, something he had always told me he would never, as I felt my energy leaking out of me like a faucet had been opened, did I realize.  
-My mother too was switched. She too was in the same situation as I was. she too refused to switch. I guess that's why my dad hated my mother. I guess that's why he tried hammering pragmatism and survival instincts since I was a kid.   
+My mother too was switched. She too was in the same situation as I was. she too refused to switch. I guess that's why my dad hated my mother. I guess that's why he tried hammering pragmatism and survival instincts since I was a kid.  
 And like I was attaining enlightenment, I realized. Every-time someone moves to Moongrove and the predecessor creature refused to switch, a random girl would be picked on a new moon, and thence, the the cycle repeats  
 But why did my dad still seem to care for the fake Karla?  
 I guess he wanted to cherish the vestige of me, before I perished. He knew.  
 I weep for him, for the souls that so loved life that they were ready to condemn others with hell as life. I weep for the ones that passed like me..  
 So, with the last amount of energy I have left in me, I say this to you.
 
-  
 **Don't ever move to Moongrove. Please, let this tradition die with me.**
