@@ -184,3 +184,5 @@ I backed up, breath catching in my throat, my pulse roaring in my ears.
 I reached my hand out to brace myself against the wall, and rough marks scratched the palm of my hand. I looked at the wall next to me, and stepped back in shock as dozens of tally marks sat scratched into the surrounding panels. 
 
 Next to the tallies, scratched large into the wall, were the words “I waited for days. You never came back.” The scratched were rusted over, as if they’d been made decades ago.
+
+[Link to Final Part](https://www.reddit.com/r/nosleep/s/E2zRDqhvrV)

@@ -82,7 +82,7 @@ On paper, the process might sound peaceful: an elderly woman, brimming with fait
 
 Like with most things, however, theory didn’t even loosely match reality.
 
-Because of her advanced age, she wasn’t strong enough to pull her body up to a sitting position on the window, its edge about at the level of her sternum. I could tell that her panic was growing with every failed attempt, as each subsequent attempt was more reckless and frenzied, like she believed her ticket to heaven was gradually drifting away, slipping further from her fingertips with each passing second. Eventually, Genillé tried throwing herself at a forty-five degree angle rather than forward, which caused the side of her hip to crash into the windowsill with enough force that the resulting bounce propelled her over the edge.
+Because of her advanced age, she wasn’t strong enough to pull her body up to a sitting position on the window, its edge about at the level of her sternum. I could tell that her panic was growing with every failed attempt, as each subsequent attempt was more reckless and frenzied, like she believed her ticket to heaven was gradually drifting away, slipping further from her fingertips with each passing second. Eventually, Genillé tried throwing herself at a forty-five degree angle rather than straight forward, which caused the side of her hip to crash into the windowsill with enough force that the resulting bounce propelled her over the edge.
 
 Unfortunately, because of Genillé’s diagonal orientation, the crux of her ankle hooked onto the corner of the window as she exited. As a result, the woman discharged two unbridled shrieks of pain: one when the bones in her feet were crushed by her own weight, and another when the circular motion caused by her latched extremity resulted in her forehead colliding against the solid brick below the window. Mercifully, her leg slipped out behind her after that.
 
@@ -98,7 +98,7 @@ I hadn’t felt it at all *since* the shift occurred. But now, I was somehow s
 
 *“Mom! Done!”* Emi yelled.
 
-I reached an open hand behind me while forcing my eyes away from the churning gray tide below and back towards Regina. When I felt soft wool against my palm, I grabbed it and began pulling the blanket towards me, fingertips becoming stained with wet paint.
+I reached an open hand behind me while forcing my eyes away from the churning gray tide below and back towards Regina. When I felt soft wool against my palm, I grabbed it and began pulling the blanket up to me, fingertips becoming stained with wet paint.
 
 *“A-C-T-S-1-7-6 protocol, fulcrum imminent, 0:13”*
 
