@@ -231,3 +231,5 @@ Not for me.
 Not for them.
 
 And sure as hell not for TR-2.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1jg7u7y/i_worked_as_an_intern_for_a_tech_company_i_barely/)
