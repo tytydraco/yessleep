@@ -169,7 +169,7 @@ He almost sounded like me talking to my childhood therapist.
 
 \- - - - -
 
-I might never uncover Dr. Auclair’s part in these events. In spite of that, another matter weighs more heavily on my mind than his role in my torment, Jack’s death, and his disappearance.
+I might never uncover Dr. Auclair’s part in these events. In spite of that, another matter weighs more heavily on my mind than his role in my torment and his cryptic disappearance.
 
 The paradox of it all.
 
