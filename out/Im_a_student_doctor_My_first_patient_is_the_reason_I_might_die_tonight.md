@@ -36,9 +36,9 @@ I referred him to our liaison psychiatrist. I also requested a follow-up with in
 
 He nodded. “You should lock your doors more. Especially after dark. You’re… warm. They’d like to wear you.”
 
-The next day, I visited the psychiatrist to check in on the referral.
+The next day, I visited the psychiatrist’s office to check in on the referral.
 
-His secretary looked up, confused. “He hasn’t come in. You haven’t heard?”
+The secretary looked up, confused at first, then her expression shifted—something quieter, tinged with sadness. “He hasn’t come in. You haven’t heard?”
 
 “Heard what?”
 
