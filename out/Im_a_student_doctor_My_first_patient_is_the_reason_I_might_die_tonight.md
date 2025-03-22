@@ -60,7 +60,7 @@ I’ve been trying to act normal since. I finished my shift early, told the nurs
 
 And now—this.
 
-I came home and the house was dark. I live alone, in a two-storey terrace. Usually it feels cozy. Not tonight.
+I came home and the house was dark. I live alone, in a two-storey terrace. Usually it feels cosy. Not tonight.
 
 I locked the door, flicked the hallway light on.
 
@@ -70,7 +70,7 @@ On the ceiling.
 
 Pressed against it like a spider. Barefoot. Clothes torn. Skin too pale, almost translucent now. The bruises had overtaken his limbs, crawling up his face in broken, inky veins.
 
-But it was his expression that paralyzed me. A smile so wide it stretched unnaturally, as if his cheeks were tearing from the force of it. His eyes… they were solid black now. Not just the irises. All of them. Like two obsidian marbles reflecting my horror back at me.
+But it was his expression that paralysed me. A smile so wide it stretched unnaturally, as if his cheeks were tearing from the force of it. His eyes… they were solid black now. Not just the irises. All of them. Like two obsidian marbles reflecting my horror back at me.
 
 He didn’t speak. He just moved. Not like a person. His limbs twisted at angles no joint should allow, slow and jerky like a puppet handled by someone who’s never seen one before.
 
