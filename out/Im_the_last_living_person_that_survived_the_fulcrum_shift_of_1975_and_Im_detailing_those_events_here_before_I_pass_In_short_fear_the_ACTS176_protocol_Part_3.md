@@ -242,6 +242,8 @@ His house was just *gone*.
 
 Vanished like it hadn’t ever been there in the first place.
 
+\ - - - - -
+
 Emi lived a good life, I think. She seemed, if not truly happy, at the very least contented. Married a lovely young man named Thomas. Never had any kids, which I think relates back to the trauma of losing Ben: essentially, she saw being childless as the only foolproof way to prevent anyone else from experiencing what she had.
 
 Died from pancreatic cancer a few months ago. She didn’t seem devastated. Again, she wasn’t happy, but she was peaceful. Thomas was there, and that was a blessing she did not appear take for-granted.
