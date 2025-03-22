@@ -417,7 +417,7 @@ I froze.
 
 Joe must have heard it too. His breath hitched, sharp over the line.
 
-A slithering rasp clawed up from beneath the jacket I’d tossed over the thing in the footwell. The sound of lips parting, of something speaking through a mouth that shouldn’t be able to.
+A slithering rasp clawed up from beneath the jacket I’d tossed over the head in the footwell. The sound of lips parting, of something speaking through a mouth that shouldn’t be able to.
 
 A voice. His voice.
 
