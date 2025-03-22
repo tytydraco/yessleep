@@ -1,6 +1,6 @@
 The Population Bracelet has been a mandatory device for every citizen in the country I live in for about a decade. The country faced a declining population, with a low birth rate which led to concerns about its future. The government needed to keep things updated in real-time as the numbers continued to decrease.
 
-The bracelet looks like a wristwatch, but instead of showing the time, it displays a number—a rank. The wearer's rank in the population. The oldest person on Earth has the number 1 displayed on their bracelet's screen.
+The bracelet looks like a wristwatch, but instead of showing the time, it displays a number—a rank. The wearer's rank in the population. The oldest person has number 1 displayed on their bracelet's screen.
 
 Mine? It displays 5 billion something. I'm only 30 years old right now.
 
