@@ -1,8 +1,8 @@
-It started with a dog. Or rather, a thing wearing a dog’s skin. I put it down, thinking I was doing the right thing. I wasn’t. And now, something worse is stalking me.
+It started with a dog. Or rather, something wearing a dog’s skin. I thought I was doing the right thing when I put it down. But now, something far worse is stalking me.
 
-If you haven’t read [Part 1](https://www.reddit.com/r/nosleep/s/rVmvxz7Rhz), you should do that now. Killing Mutt was just the beginning.
+If you haven’t read [Part 1](https://www.reddit.com/r/nosleep/s/rVmvxz7Rhz), you should do that now.
 
-I had to tie up some loose ends first. The biggest problem was the Euthasol I injected into that abomination Mutt. On my first day back, I staged an accident—pretending to slip and drop the bottle, shattering it into a thousand brown glass shards. It made logging the waste more complicated, but it did the trick. I don’t condone my actions. You shouldn’t either. But at the time, I thought I was doing the right thing.
+had to clean up a few things first. The worst of it was the Euthasol I used on Mutt. On my first day back, I staged an accident. I dropped the bottle and let it shatter across the floor. It complicated the logs, but it worked. I’m not proud of it. You shouldn’t be either. But at the time, it felt like the only option.
 
 I was wrong.
 
@@ -12,7 +12,7 @@ If you aren’t familiar with the bags we in the veterinary field use after pets
 
 Since Keeton wasn’t picking up the tab, I offered to cover the cremation costs. I wanted those ashes in an urn. For some reason, that felt important. Something bigger than myself, something I couldn’t explain.
 
-I didn’t feel relieved when they hauled Mutt’s body bag away with the two other dogs I’m convinced died because of him. I just kept hearing Keeton’s words ringing in my ears. 
+I didn’t feel relieved when they hauled Mutt’s body bag away with the two other dogs I’m convinced died because of him. I kept hearing Keeton’s words ringing in my ears. 
 
 *You’ve gone and made things so much worse.*
 
@@ -58,7 +58,7 @@ The clicking of bone filled the silence as the jaw pried open past natural limit
 
 Hot, damp breath washed over my face. My teeth clenched.
 
-The mouth inched forward, slow and deliberate, savoring the moment. Every nerve in my body screamed to move, to fight, but I was frozen, paralyzed beneath the weight of its presence. The gaping maw hovered just above my face, the serrated edges of its jaws twitching in anticipation. I could see the glistening sinew stretching as the jaws prepared to snap shut, feel the unbearable heat of its breath seeping into my skin.
+The mouth inched forward, slow and deliberate, savoring the moment. Every nerve in my body screamed to move, to fight, but I was frozen, paralyzed beneath the weight of its presence. The gaping maw hovered inches above my face, the serrated edges of its jaws twitching in anticipation. I could see the glistening sinew stretching as the jaws prepared to snap shut, feeling the unbearable heat of its breath seeping into my skin.
 
 A low, guttural growl rumbled from deep within its throat, vibrating through the mattress, through me. My pulse pounded against my temples, drowning out everything but the sound of that grinding, clicking jaw.
 
@@ -96,9 +96,9 @@ His voice wavered, struggling to stay steady.
 
 “I don’t know who would do that. Why? What did we ever do to that inbred piece of shit? So senseless. God, I told the police everything.”
 
-This was beyond them. Beyond what the police could understand. I’d sound insane if I told them everything. Even after I’d blown Mutt’s jaw apart, I had omitted so much from my statement. Keeton didn’t need a motive. He felt like something ancient, a force of chaos that existed only to sow pain.
+This was beyond them. Beyond what the police could understand. I’d sound insane if I told them everything. Even after I’d blown Mutt’s jaw apart, I had omitted so much from my statement. Keeton didn’t need a motive. He felt like it was ancient, a force of chaos that existed only to sow pain and reap a harvest of blood. 
 
-“He didn’t need a reason, Doc. Not to drop off that monster. Not to burn down our clinic. He just wanted us to suffer. He wanted to watch us die.”
+“He didn’t need a reason, Doc. Not to drop off that monster. Not to burn down our clinic. He wanted us to suffer. He wanted to watch us die.”
 
 Dr. Harkham was silent for a moment, my words hitting him like a blow.
 
@@ -106,10 +106,10 @@ Dr. Harkham was silent for a moment, my words hitting him like a blow.
 
 The line went dead.
 
-Another victim. Angie, gone. Another life swallowed by the plague of tragedy I couldn’t begin to understand. My hand trembled—not just from the horror of what I’d just experienced, but from the weight of everything I’d lost. From the thought of Ryan’s self-destruction.
+Another victim. Angie, gone. Another life swallowed by the plague of tragedy I couldn’t begin to understand. My hand trembled—not only from the horror of what I’d experienced, but from the weight of everything I’d lost. From the thought of Ryan’s brutal self-destruction.
 
 Some creeping apocalypse had wandered into my life, and it was clear now—it intended to stay.
-I couldn’t sleep again. I didn’t even try. My phone buzzed with texts from friends, family. One missed call stood out—my old friend Joe. Navajo Joe, we used to call him, always with a grin. He’d just laugh, that handsome, tough son of a bitch.
+I couldn’t sleep again. I didn’t even try. My phone buzzed with texts from friends, family. One missed call stood out; my old friend Joe. Navajo Joe, we used to call him, always with a grin. He’d just laugh, that handsome, tough son of a bitch.
 I should’ve called them all back immediately, but I had other more pressing things to do first.
 
 I gathered my belongings, flipped open the cylinder of my revolver, and loaded a cartridge into each chamber. The compact 9mm felt solid in my grip, its matte finish worn smooth from years of use. Despite its small frame, the steel carried weight, reassuring and steady. I tossed a couple of ammo boxes into my purse, the rounds light but lethal, their copper-jacketed tips catching the dim glow of my bedside lamp.
@@ -138,7 +138,7 @@ He had gotten it back. I’d placed it in the cremation bag with Mutt. But someh
 
 Maybe that thing in my trailer hadn’t been Mutt at all. Maybe it had been Keeton.
 
-Mutt was just the beginning. And this was spiraling into something I couldn’t contain. At least, not alone.
+Mutt was just the beginning. And this was spiraling into a situation I couldn’t contain. At least, not alone.
 
 I pulled out of my small patch of land, kicking up a flurry of red dust. My air conditioner hummed, my fingers drummed against the steering wheel.
 
@@ -168,7 +168,7 @@ Glass crunched beneath my boots as I landed inside. The rock I’d thrown had sk
 
 The space before me stretched out like a cavernous warehouse. To my left, four massive crematorium units, metal doors dull in the dim light. To my right, an entire wall of freezer units stood silent and still. Steel girders loomed overhead, casting long, skeletal shadows against the walls.
 
-It felt like I had walked into a place I wasn’t meant to be. Like intruding on something that had been waiting for me.
+It felt like I had walked into a place I wasn’t meant to be. Like intruding in a place that had been waiting for me.
 
 The silence wrapped around me, thick and uncertain. My heartbeat thumped against my ribs, steady but insistent, like a distant war drum. Behind me, the wind whistled through the broken window.
 
@@ -202,7 +202,7 @@ Mutt.
 
 His body was rigid, frozen stiff inside the thick layers of plastic. The paws pressed outward, twitching. I heard bones grinding, joints twisting, the sickening sound of something forcing itself to move when it shouldn’t. The stiff limbs pushed against the plastic like a baby kicking from inside the womb.
 
-I felt eyes on me. Something watching from behind. Shadows stretched and shifted in my periphery, but I couldn’t take my gaze off the thing in front of me.
+I felt eyes on me. Burning pupils watching from behind. Shadows stretched and shifted in my periphery, but I couldn’t take my gaze off the thing in front of me.
 
 The dog I had shot. The one with the caved-in skull. The one I had pumped full of euthanasia solution. The one that had been locked in a freezer for days.
 
@@ -220,7 +220,7 @@ I swung again. The shovel blade carved through tendons, severing the spine at th
 
 I kept going, hacking away at the frozen flesh until the head detached completely with a final, sickening crunch.
 
-The wind howled louder. But I could sense that it wasn’t just the wind anymore.
+The wind howled louder. But I could sense that it wasn’t only the wind behind me anymore.
 
 I turned.
 
@@ -228,7 +228,7 @@ Keeton.
 
 He loomed in the broken window, impossibly tall, his body twisted to fit through the jagged frame. One hand gripped the windowsill, fingers digging into the crumbling concrete, the other obscured in the shadows.
 
-His filthy blonde hair hung limp over a face that wasn’t quite human. His neck stretched forward, grotesquely elongated, the vertebrae bulging beneath thin, sallow skin. It didn’t just extend—it coiled, folding over itself like an accordion, fluid yet wrong in every conceivable way. The angle of it made my stomach lurch.
+His filthy blonde hair hung limp over a face that wasn’t quite human. His neck stretched forward, grotesquely elongated, the vertebrae bulging beneath thin, sallow skin. It didn’t just extend—it coiled, folding over itself like an accordion, fluid yet wrong in every conceivable way. The angle of it made my stomach twist. 
 
 His eyes were red, raw, pools of blood where the whites should have been and they pinned me in place. The pupils were black, dull, the color of tarnished coins left to rot in the dirt.
 
@@ -238,7 +238,7 @@ And then, his lips split apart, curling into a grin that stretched too wide, spl
 
 His chest heaved, a silent laugh rippling through him.
 
-And his head—God, his head—was so much closer than it should have been. His grotesque, sinuous neck had stretched impossibly far into the room, casting a long, warped shadow that swallowed the space between us.
+And his head, God his head, was so much closer than it should have been. His clicking, sinuous neck had stretched impossibly far into the room, casting a long, warped shadow that swallowed the space between us.
 
 Mutt’s body writhed behind me, flopping against the concrete like a fish without a head. The sickening smacks echoed through the cavernous room, each one more desperate, more wrong. I backed away from Keeton, slow and deliberate, my pulse hammering in my ears. He didn’t speak. He just breathed, deep and slow, savoring the moment, drinking in my fear like it was red wine.
 
@@ -314,7 +314,7 @@ A scream.
 
 Distant. Warped. Twisting through the air like the high-pitched wail of logs splitting in a fire.
 
-I turned toward the retort window.
+I turned toward the retort viewing window.
 
 Inside, Mutt’s body writhed as the flames engulfed him. The hairs curled first, blackening before catching fire, the flesh peeling away in layers. His limbs twitched, shuddering, the last vestiges of unnatural life refusing to die easily. The stench of burning fur and charred meat turned my stomach. I forced myself to watch as the thing that had haunted me was reduced to nothing more than a skeletal frame.
 
@@ -336,7 +336,7 @@ I thought about Ryan. Angie. The dogs. My clinic, reduced to nothing but cinders
 
 Too much.
 
-Half my life was just gone. I felt too hollowed out to even cry.
+Half my life was gone in an instant. I felt too hollowed out to even cry. Ripped out of my life in an instant, no rhyme or reason to it. 
 
 He could have killed me. Easily. He was toying with me, like a cat slapping around a finch with a broken wing, each swipe landing harder than the last. Soon, I reckoned he’d start biting.
 
@@ -362,7 +362,7 @@ Bile rose in my throat, but I swallowed it back, forcing my breathing steady. I�
 
 I grabbed an old jacket from the backseat and tossed it over the round heap. At least I didn’t have to look at him like that anymore.
 
-Then, I did the only thing I could—I called the only person who might be able to do something about this. The only one who might be able to pull me from the water I was drowning in.
+Then, I did the only thing I could do. I called the one person who might be able to do something about this. The only one who might be able to pull me from the riptide I was drowning in.
 
 Joe.
 
@@ -375,10 +375,14 @@ He picked up on the second ring. “Alison. Thank God.”
 Tears welled at the corners of my eyes. “God, Joe, it’s been so long—”
 
 “I saw the news. I know you worked there. I had to see if you were okay.”
+
 “Joe, I need to talk to you. Something’s after me. It’s been after me since I first saw it a few weeks ago. I need your help. A dog came into my clinic—bad fucking luck. Thing turned the building into a slaughterhouse without so much as a blink.”
 Silence.
+
 The joy in his voice faded, melted away like chocolate left too long in the sun. Outside, the sky burned with the last light of day, the sun dipping toward the edge of the world, flaring one final orange goodbye.
+
 “That’s not just bad luck, Alison. That’s something else. Something old. That’s bad medicine.” Joe clicked his tongue, the same way he used to. The sound hit something deep in my chest, a crack in my ribs I hadn’t noticed forming until now. I should’ve called him sooner. Maybe things would’ve turned out differently. Maybe not.
+
 “You got my address? Come down to the Rez. I’ll make sure they let you in.” His voice was steady, familiar. Safe. He gave me directions, the Navajo reservation a couple hours to the southwest.
 
 “I’ve got some ashes too,” I said. My fingers tightened around the small bag beside me. “I cremated his dog. The one he brought into my clinic before all this shit went south.”
@@ -389,7 +393,7 @@ He didn’t elaborate.
 
 “Not anymore.”
 
-A sharp, blistering pain tore through my calf. I sucked in a breath, my leg seizing, nerves screaming as if a white-hot blade had been pressed into my skin.
+A sharp, blistering pain grabbed my calf. I sucked in a breath, my leg shivering, nerves screaming as if a white-hot blade had been pressed into my skin.
 
 I yelped.
 
@@ -405,20 +409,20 @@ I froze.
 
 Joe must have heard it too. His breath hitched, sharp over the line.
 
-A slithering rasp clawed up from beneath the jacket I’d tossed over the thing in the footwell. The sound of lips parting, of something speaking through a mouth that shouldn’t be able to.
+A slithering rasp clawed up from beneath the jacket I’d tossed over the thing in the footwell. The sound of dry lips parting, of a raspy voice speaking through a mouth that shouldn’t be able to talk anymore. 
 
-A voice. His voice.
+His voice.
 
 “Aaaalllliiizzzzoooonnnnnn.”
 
-My breath stilled. A hollow, empty space opened in my chest.
+My breath stilled inside me. A hollow, empty space opened in my chest.
 
 Keeton.
 
-Keeton, speaking through lips that didn’t belong to him. Lips that belonged to someone I had cared about.
+He was talking through lips that didn’t belong to him. Lips that once belonged to Dr. Harkham. 
 
 The weight of his amusement pressed down on me, thick and choking. A grin curled in the dark, unseen but felt.
 
-The voice slithered through, dripping with something close to excitement.
+The voice slithered through, dripping with something close to excitement beneath the folds of my jacket on the floor. Slightly muffled, but clear enough to hear. 
 
 “I’m really starting to enjoy this game.”
