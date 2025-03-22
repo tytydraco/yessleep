@@ -2,7 +2,7 @@ It started with a dog. Or rather, a thing wearing a dog’s skin. I put it down,
 
 If you haven’t read [Part 1](https://www.reddit.com/r/nosleep/s/rVmvxz7Rhz), you should do that now. It turns out, killing Mutt was just the beginning.
 
-I had to tie up some loose ends first. The biggest problem was the Euthasol I injected into that abomination Mutt. On my first day back, I staged an accident—pretending to slip and drop the bottle, shattering it into a thousand brown glass shards. It made logging the waste more complicated, but it did the trick. I don’t condone my actions. You shouldn’t either. But at the time, I thought I was doing the right thing.
+I had to tie up some loose ends first. The biggest problem was the Euthasol I injected into that abomination. On my first day back, I staged an accident. I pretended to slip and drop the bottle, shattering it into a thousand brown glass shards. It made logging the waste more complicated, but it did the trick. I don’t condone my actions. You shouldn’t either. But at the time, I thought I was doing the right thing.
 
 I was wrong.
 
@@ -383,6 +383,7 @@ He picked up on the second ring. “Alison. Thank God.”
 Tears welled at the corners of my eyes. “God, Joe, it’s been so long—”
 
 “I saw the news. I know you worked there. I had to see if you were okay.”
+
 “Joe, I need to talk to you. Something’s after me. It’s been after me since I first saw it a few weeks ago. I need your help. A dog came into my clinic—bad fucking luck. Thing turned the building into a slaughterhouse without so much as a blink.”
 
 Silence.

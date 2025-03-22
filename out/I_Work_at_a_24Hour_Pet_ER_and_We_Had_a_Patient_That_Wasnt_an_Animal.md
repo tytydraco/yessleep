@@ -480,3 +480,5 @@ My second thought was frantic. Those words struck a chord deep inside my marrow.
 And for some reason, deep in the pit of my soul—
 
 *I believed him.*
+
+[Part 2](https://www.reddit.com/r/nosleep/s/MjxArmU0g3)
