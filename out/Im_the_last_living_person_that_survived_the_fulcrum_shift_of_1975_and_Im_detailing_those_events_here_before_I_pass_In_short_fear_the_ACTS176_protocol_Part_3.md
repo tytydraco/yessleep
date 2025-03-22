@@ -212,7 +212,7 @@ Perhaps you all will see the connective tissue within it that I never could.
 
 \-This next part might be trauma talking, but the silhouette seemed to be *flapping* like a tarp in the wind. Only the silhouette - none of the surrounding ceiling. Flapping was most intense by the red line, and it almost seemed like the figure was caving in on itself: appeared as if it could swing open from the center like saloon doors if I was able to reach up and push it.
 
-\-There was a desk hidden behind the generator that I wish I noticed sooner, because I would have maybe had more time with the papers scattered across it.
+\-There was an overturned desk hidden behind the generator that I wish I noticed sooner, because I would have maybe had more time with the papers I found in its drawers.
 
 \-From what I reviewed, most of it seemed like a journal. The parts that weren’t formatted like a journal had pictures of chemical structures with names I didn’t recognize under them. *Sotos* is the only one I remember, but that’s because it came up in the journals too. But there were many more. Only thing I can recall definitively about the others is that they were all palindromes (I.e., spelled the same word if you read them backwards or forwards, like “racecar” or “madam”).
 
