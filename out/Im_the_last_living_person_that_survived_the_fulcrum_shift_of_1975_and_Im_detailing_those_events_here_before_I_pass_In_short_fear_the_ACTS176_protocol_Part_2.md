@@ -1,6 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1jcv4mg/im_the_last_living_person_that_survived_the/)
 
-\- - - - -   
+\- - - - -  
 Have you ever experienced disbelief so powerful that it’s broken you?
 
 If you have to think about the question, if a particular memory doesn’t erupt to the forefront of your mind like it was shot out of a cannon, if you’re second guessing your answer for even a moment: trust me when I say that you haven’t, and you’re not missing out. Count yourself as fortunate, actually. There’s nothing positive to be gained from the experience of reality-wide disintegration, and for the curious among you, I’m going to do my best to explain it anyway.
@@ -244,3 +244,7 @@ Now, I need to consider what it could mean before going forward and finishing my
 *- - - - -*
 
 *-Hakura (Not my* [*real name)*](https://www.reddit.com/r/unalloyedsainttrina/)
+
+\- - - - - 
+
+EDIT: [Part 3](https://www.reddit.com/r/nosleep/comments/1jgoolb/im_the_last_living_person_that_survived_the/)
