@@ -216,11 +216,11 @@ Perhaps you all will see the connective tissue within it that I never could.
 
 \-From what I reviewed, most of it seemed like a journal. The parts that weren’t formatted like a journal had pictures of chemical structures with names I didn’t recognize under them. *Sotos* is the only one I remember, but that’s because it came up in the journals too. But there were many more. Only thing I can recall definitively about the others is that they were all palindromes (I.e., spelled the same word if you read them backwards or forwards, like “racecar” or “madam”).
 
-\-The journal discussed how “the land was fertile”. It contained “abnormally high” levels of *Sotos* particles. On a sheet that had the exact date and time of the shift labeled at the top, he detailed “the rite” and “the reaction”.
+\-The journal discussed how “the land was fertile”. It contained “abnormally high” levels of “*Sotos* particles”. On a sheet that had the exact date and time of the shift labeled at the top, he detailed “the rite” and “the reaction”.
 
 \-”The rite” seemed to describe the shift, or the circumstances that were required to make it occur. Most of it was completely incomprehensible: a cacophony of numbers and symbols and colors. I do distinctly recall the recurrent image of a rising sun, as well as it saying that “the radius would be about a half-mile”. The idea of a “radius” made me think of the membranous, honey-colored dome.
 
-\-”The reaction” seemed to describe the point of the whole damn thing. The mixing *sotos* particles with some other material that’s confined exclusively to the upper atmosphere was said to “promote the apotheotic threshold”, but that “the nebulous designed these materials to be present but impossibly separate” unless “concocted by the rite”. Once “the rite” ended, “the reaction” would fall to the earth, which could “unlock the gates to human transgression”.
+\-”The reaction” seemed to describe the point of the whole damn thing. The mixing of “*sotos* particles” with some other material that’s confined exclusively to the upper atmosphere was said to “promote the apotheotic threshold”, but that “the nebulous designed these materials to be present but impossibly separate” unless “concocted by the rite”. Once “the rite” ended, “the reaction” would fall to the earth, which could “unlock the gates to human transgression”.
 
 \-He seemed worried that “an excess of organic matter” might interfere with “the reaction”.
 
