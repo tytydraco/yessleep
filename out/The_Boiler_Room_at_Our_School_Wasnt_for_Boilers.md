@@ -64,7 +64,7 @@ But I knew I wasn’t alone.
 
 Then my phone vibrated.
 
-**“Come out now. A teacher is here. You’re not supposed to be down there.”**
+“Come out now. A teacher is here. You’re not supposed to be down there.”
 
 I ran.
 
@@ -104,4 +104,4 @@ Maybe this wasn’t a coincidence.
 
 Maybe the principal knew we had gotten too close.
 
-And maybejust maybe he didn’t want anyone finding out why those rooms had really been built.
+And maybe just maybe he didn’t want anyone finding out why those rooms had really been built.
