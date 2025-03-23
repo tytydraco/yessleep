@@ -248,7 +248,7 @@ I pressed my palm against the wood. It was ice cold.
 
 I looked through the peephole.
 
-It was then I saw a long dark shadow quickly running into a wall. 
+It was then I saw a long dark shadow quickly running into a wall.
 
 I fell backwards. But I got the courage to come back up and check again...
 
@@ -281,3 +281,213 @@ Knock. Knock.
 And a whisper.
 
 “I know you’ll open it next time.”
+
+Part 2 :   
+The first night, I didn’t open the door.
+
+But I knew it wasn’t over.
+
+I barely slept. Every sound felt like a whisper, every shadow a trick of the light. But nothing came. No knocks. No voices. No sobbing.
+
+Until 11:58 PM the next night.
+
+Two minutes before midnight.
+
+**Knock. Knock.**
+
+I sat up so fast my vision blurred. My phone was already in my hand. My breath hitched as I checked the screen.
+
+Nothing.
+
+No emergency alert this time.
+
+**Knock. Knock.**
+
+I clenched my jaw. My entire body tensed. The air felt thick again, wrong.
+
+It even smelled like rotten meat. But, I jolted at the sound that came shooting through the air.
+
+The voice.
+
+“I know you’re awake.”
+
+My stomach twisted.
+
+I knew that voice.
+
+I knew it *too well*.
+
+Because this time, it wasn’t my mother’s.
+
+**It was** ***mine***\*\*.\*\*
+
+I felt the blood drain from my face. My limbs locked up.
+
+No. No, no, no...
+
+The voice behind the door let out a soft, breathy laugh.
+
+“You didn’t open the door last time.”
+
+It was me.
+
+Every word, every breath, sounded exactly like me.
+
+“I get it,” the voice continued. “You were scared.”
+
+A pause.
+
+I covered my mouth with my hand, swallowing back the nausea creeping up my throat.
+
+Then the voice whispered:
+
+“But you *want* to see, don’t you?”
+
+The thing outside shifted. I heard it press against the door, the wood creaking under its weight.
+
+“You ***need*** to see.”
+
+My fingers twitched.
+
+No.
+
+I *didn’t*.
+
+**I** ***wouldn’t***\*\*.\*\*
+
+I squeezed my eyes shut, forcing myself to breathe through my nose, forcing my body to stay still.
+
+Then,
+
+A vibration.
+
+My phone lit up in my hand.
+
+A notification.
+
+**NEW MESSAGE FROM UNKNOWN:**  
+**“DO NOT REACT. DO NOT LISTEN. DO NOT LET IT IN.”**
+
+My grip tightened.
+
+Outside, the thing that sounded like *me* sighed.
+
+“Come on,” it murmured. “Why are you making this so difficult?”
+
+I crawled backwards. But, still I didn't feel better.
+
+Suddenly, I heard more noises.
+
+**Scraping.**
+
+Slow. Deliberate.
+
+Like nails dragging across the door.
+
+Then a *tap*.
+
+Right against the peephole.
+
+I bit down on my lip, fighting the urge to scream.
+
+My phone buzzed again.
+
+**NEW MESSAGE FROM UNKNOWN:**  
+**“IT WILL TRY TO BREAK YOU. IT WILL USE YOUR OWN VOICE AGAINST YOU.”**
+
+My body was trembling now.
+
+The thing outside let out another soft laugh.
+
+“You really think this little warning is going to save you?”
+
+I sucked in a breath.
+
+Then,
+
+I heard something that made my blood *freeze*.
+
+The door handle.
+
+It was turning.
+
+Slowly.
+
+Deliberately.
+
+Testing.
+
+A sharp, unnatural fear shot through me, wrapping itself around my ribs, squeezing tight.
+
+No.
+
+No, no, no. NO
+
+My phone vibrated violently in my hand.
+
+**NEW MESSAGE FROM UNKNOWN:**  
+**“DO NOT MOVE. DO NOT MAKE A SOUND.”**
+
+I pressed myself against the wall, forcing my breaths to slow.
+
+The handle stopped turning.
+
+For a moment, there was silence.
+
+But a sound broke it.
+
+A whisper.
+
+Lower this time.
+
+Right against the door frame.
+
+“You think locking the door will keep me out?”
+
+A pause.
+
+Then,
+
+Something *different*.
+
+A second voice.
+
+Weaker. Fainter.
+
+One I didn’t recognize.
+
+“Please… help me…”
+
+My breath hitched.
+
+No.
+
+No, that wasn’t real.
+
+It *wasn’t real*.
+
+The thing outside *laughed*.
+
+And then footsteps.
+
+Slow. Steady.
+
+Fading.
+
+After that, there was no noise.
+
+Just, silence.
+
+A silence that stretched for minutes, then hours.
+
+I stayed frozen until the first light of morning slipped through the blinds.
+
+Only then did I finally check my phone.
+
+One last message sat on the screen.
+
+**“DO NOT LEAVE YOUR HOME AFTER MIDNIGHT. IT KNOWS WHERE YOU ARE NOW.”**
+
+I let the phone slip from my fingers.
+
+And from the hallway... A soft, distant knock.
