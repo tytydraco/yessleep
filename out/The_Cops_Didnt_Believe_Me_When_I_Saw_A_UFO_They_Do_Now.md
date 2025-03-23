@@ -78,7 +78,7 @@ The front glass *imploded*, and a gust of cold air filled the room, reeking of b
 
 It was one of them.
 
-But this time, there were *many*.
+But then there were *many*.
 
 Chaos erupted.
 
