@@ -114,7 +114,7 @@ Father paused, so close to calling me Colton, which gave me a twinge of pride, u
 
 I had severed social connections with classmates and friends, so as to spend every waking hour studying. After that stay in the basement, my stomach, joints, and skull had ached far more than was healthy or natural for a five-year-old. I didn’t want to be banished to the basement ever again.
 
-Didn’t even want to see those three *sitters* again.
+Didn’t ever want to see those three *sitters* again.
 
 Years later, in 2016, Colton lost the motor functions necessary to live independently, so had to move home. My brother had become immobile and capable only of uttering a few staggered, struggling words. He was carried down to the kitchen by my father at dinnertime, but otherwise spent all of his time upstairs; my parents claimed that care was easier that way, but truthfully they simply wanted to keep him away from me. Away from the awfulness that Father wished to inflict upon me.
 
@@ -142,11 +142,11 @@ Mother winced. “Please, dear. I don’t like it when you talk that way.”
 
 Father shifted his weight on the floorboards outside my bedroom door, and I tightened the duvet cover under my chin, shuddering uncontrollably at the thought of them finding me eavesdropping.
 
-“Found a man who will help us,” Father explained.
+“Found a man with the requisite skills,” Father explained.
 
 “What have you done?” Mother gasped. “We promised that we would never say a word to another soul. Who have you told about our… *situation?*”
 
-“A man who will never tell our secret to another soul,” responded Father icily.
+“A man who will take our secret to the grave,” responded Father icily.
 
 I didn’t sleep that night.
 

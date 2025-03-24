@@ -314,7 +314,7 @@ Days became a blur of anxious adherence to the rules, waiting in fearful anticip
 
 Before leaving, I glanced at the cat statue. Its eyes stared wide open, accusingly, impatiently.
 
-“Needy little thing, aren’t you?” I chuckled uneasily, petting its cold, porcelain head. “Don’t wait up.”
+“Needy little thing, aren’t you?” I chuckled uneasily, petting its cold, porcelain head. “I'll be right back.”
 
 Dinner with April was a breath of fresh air. Her laugh was genuine, her stories engaging, and as we talked, I felt a rare sense of connection. She’d recently been promoted to a manager at a grocery company and was temporarily traveling to train at a distant store. The evening passed quickly, leaving us both eager for another meeting. As she drove away, I practically skipped to my car, the weight of recent horrors momentarily lifted.
 
