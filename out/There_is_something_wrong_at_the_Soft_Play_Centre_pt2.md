@@ -1,3 +1,5 @@
+[There is something wrong at the Soft Play Centre [pt.1]](https://www.reddit.com/r/nosleep/s/z51zC0jMZC)
+
 Hi guys, 
 
 I would like to apologise for any confusion caused…I think my overtime shifts at the Tunnelwig are draining me. As a result I’m even more stupid than usual.

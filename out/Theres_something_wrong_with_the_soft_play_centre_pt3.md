@@ -1,4 +1,6 @@
-Hi all,
+[There’s something wrong with the soft play centre [pt.1]](https://www.reddit.com/r/nosleep/s/z51zC0jMZC)
+
+[There’s something wrong with the soft play centre [pt.2]](https://www.reddit.com/r/nosleep/s/CSZg8TCmT3)
 
 Today was horrendous. I haven’t shaken off the nightmare, it feels as though something’s crawling in my brain. It’s not a physical feeling; more a long, thin shudder crawling in my imagination. I feel unwell. But rent is due in a week. 
 
