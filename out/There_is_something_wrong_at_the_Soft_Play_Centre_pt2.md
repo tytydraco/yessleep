@@ -89,3 +89,5 @@ I’m going to try and chill today. I’m taking my book down to the park. If yo
 I do not want to take more hours, but I need the money. I’ll let you know how tonight goes  and will update tomorrow. 
 
 Thanks. 
+
+[There’s something wrong with the Soft Play Centre [pt.3]](https://www.reddit.com/r/nosleep/s/sbGj5QzNPZ)

@@ -117,3 +117,4 @@ I sighed, and trudged back to reception to clock out. I scribbled something down
 
 These explanations are so rational that I can almost bring myself to believe them. Thing is, I’m on the bus to work now to start the next shift. Has anyone got any idea what might be in that beetle-bin that stinks so horribly? Ideally I don’t want to hear suggestions about severed limbs or dead kids. I’d feel a lot better if I knew what to tell the janitors so they take it away asap. If anyone’s come across anything like this before, please let me know if you can. 
 
+[There’s something wrong with the soft play centre [pt.2]](https://www.reddit.com/r/nosleep/s/ga3pcpnthw)
