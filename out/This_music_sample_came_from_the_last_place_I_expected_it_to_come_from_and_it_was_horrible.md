@@ -31,7 +31,7 @@ That only made me want it more.
 
 A week later, a package arrived at my door. No return address. Inside was an old VHS tape with **The Forgotten Symphony** scrawled in red marker.  
 
-I had to borrow a VHS player from a thrift store just to watch it. When I pressed play, the screen was black for a long time—then, grainy film footage.  
+I had to borrow a VHS player from a thrift store just to watch it. When I pressed play, the screen was black for a long time—then, grainy film footage.  It looked 70s ish in quality, although I don't know for sure
 
 A dimly lit room. A lone chair in the center.  
 
@@ -46,6 +46,8 @@ Someone was being dragged into the frame.
 A woman.  
 
 Her hands were bound, her mouth gagged, her eyes *wild* with terror.  
+
+Her head was smashed into the ground, brain showing afterwards 
 
 I stopped breathing.  
 
