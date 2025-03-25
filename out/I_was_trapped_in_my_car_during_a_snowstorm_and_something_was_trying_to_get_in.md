@@ -247,7 +247,7 @@ Soft. Sweet.
 
 Wrong.
 
-She’s been missing for three years.
+She’s been dead for three years.
 
 I shake.
 
