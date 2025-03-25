@@ -1,107 +1,58 @@
-I lean against the unfinished wood railing of the balcony, blowing out cigarette smoke and observing the forest below. As I roll them back and forth, my elbows can feel the hills and valleys of the wood through my flannel sleeves. The lights fixed around the perimeter of the tower shine down below, mixing with the moonlight beaming down from the cloudy night sky. I can feel some of my hair brush along my forehead as it’s being gently flurried by the late September breeze, which I can feel getting crisper by the day.   
+The Valley
 
-I begin to make my way back around the balcony to go inside and do my nightly report before heading to bed. I gather the necessary information and log it into the computer.  
+Hi 3 reddit followers! I am sorry for being gone for so long. You know how life can be. Devastating. Um I am writing this and posting it because I need answers and I think it’s a way for me to cope? Or at least that’s what my therapist said. 
 
-Date: **9-27-23**  
-Time: **11:37 P.M.**  
-Temperature: **55.2℉**  
-Wind Speed: **18 Knots**  
-Weather: **Cloudy**  
-Hikers Assisted: **7** (\*Note: There was one lone hiker that seemed off to me. I know this sounds weird, but it was something about the way they walked. They didn’t have any gear or water or anything either. Just themself. Remind me to fill out a report next time I’m at the office.)   
-Name: **Lee**  
-Tower #: **5**  
+Bear with me I am not much of a story teller. So about a month ago me, my best friend and boyfriend went about an hour south west of where we live to visit our friend.  For the sake of privacy I will call them Colby, Vincent & Ashley. 
 
-I start to drift off to sleep quickly as I had been woken up early this morning by the static and beeping of my radio. It was another lookout from the next tower over asking if I could bring some of my wood since they were running low. We both thought this was odd since they had just had a sufficient amount, and campers aren’t allowed at this time so the chances of someone stealing it was very low. My bed feels extra comfortable and warm tonight, probably due to the extent of my tiredness. I’m usually a pretty heavy sleeper, save when someone tries to call over the radio, but something else wakes me up tonight. It’s the sound of someone talking loudly. My eyes burn as I fight unconsciousness to open them and look at the time.   
+Ashley and I grew up together she is kind, easy going, and a crazy ass sense of humor! Colby is my boyfriend of almost 2 years. He is patient, protective, and honestly the best person I know! And Vincent, Vincent is spunky. He walks around wearing cowboy boots, he is loyal, personable, and adventurous! Vincent and Colby are best friends. So we’ve all become really close, we play xbox together, camp, get drunk,etc. Part of the way we bonded so fast and got so close was because we all share a love of the paranormal. Shocking I know. 
 
-**3:34 A.M.**  
+One weekend like many others Colby, Ashely and I pack up in Colbys car to make the drive down to see Vincent and do our usual activities getting drunk and ghost hunting. 
+The town Vincent lives in is weird. I don’t know how to explain it it’s just weird. Stuck in a different time, almost everyone there is old or been there since they were born and will never leave. It was an old mining town and the people there share story’s of their hard times working the mines and how business boomed and crashed within years of each other. But what almost everyone shares story’s of is the valley. 
 
-Who could possibly be walking through a forest at three in the morning? Hikers shouldn’t have been able to get in, and another lookout wouldn’t be making this much noise unless they were in trouble. As I wake up more and my mind becomes more clear, I can tell that it isn’t a voice I recognize, but they do sound… scared? They still sound a small distance away. Maybe like 50 yards? I think I can make out what they’re saying.  
+A canyon just off the 2 lane road referred to by locals as the freeway is what the people in town call “The Valley” a dead end canyon stretching no more than 15 miles. This is where all the mines were and still are. Now the town is dry and cold, the kind of cold that cuts through your skin and into your bone. The wind never stops. Summer, winter, spring or fall it’s always windy. Especially in the valley, the wind whips off the rock walls and roars through the dead trees. Some nights in town the wind coming out of the valley sounds like screams. 
 
-**HELP**  
-**HELLO**  
+The drive to see Vincent was as boring and ugly as usual. I sleep most the ride while Colby and Ashley bullshit about politics, religion, etc. I drift off to the start of another discussion I don’t care enough to be apart of. Just as quickly as i’m asleep I wake up to the sound of the wind hitting our car so hard I fear we might fly off the road. That’s how I know we’ve made it. We meet Vincent at his house and make up a plan for the night the spot we wanna get dinner at and where we want to ghost hunt. It’s a weekend but in town it’s dead. The hum of the neon side outside the restaurant we come to everytime we’re in town is the only thing breaking the silence, except the damn wind. 
 
-I would say a chill goes through my whole body, but it’s more like an electric shock that makes me jolt up. As I sit up, the feeling of the rug under my feet exposes my vulnerability and I quickly slip on my shoes, not even bothering to lace them. I stand up and look out my one unshuttered window to try and see where it’s coming from. Is it another lookout? Why would they be wandering around this late? Why didn’t they radio to let someone know what they were doing? Why are they yelling for help? Did a hiker somehow get lost deep enough that no one found them until now? How far would they have had to have gone for that to even happen?   
+As we sit down and order our usual dinner Vincent tells us that he has somewhere he wants to show us. It’s just up the valley it’s called “The devils playhouse”. Just as those words escape his lips the waitress on her way over with our pitcher drops and shatters the whole thing. She sheepishly apologizes sweeps it up but stops halfway.-“Did I hear you say the devils playhouse? Sorry it’s just I am new into town and have heard the rumors of that place did you know” Vincent shoots her a look that’s quick to shut her up and she leaves. I asked him what the stories were about this place. He leans in close to us and whispers. 
 
-It sounds like they’re getting closer to my tower. They’re still yelling, but I can tell now that something sounds weird about it. Are they smiling? I can still hear the urgency of their words, but it almost feels fake now as it sounds like they aren’t able to properly enunciate. Like when someone is smiling so hard that their mouth isn’t able to form the correct shape to say certain words. I’m shivering from a combination of fear and the cold as I see a figure pass through the border of darkness and into the light about a dozen feet from the bottom of my tower. My instinct to stay is anchoring my feet to the floor, but I can’t just leave someone wandering around if they really do need help.  
+-“Well as you guys know the valley, well actually the whole town was built for the mines. So when the miners settled here some weird people came with them.” He glances around to make sure nobody is listening and lowers his voice even more. “Well the people would take like horses, cows, even the miners fucking pets and take them up to their spot and slit there throats and fucked up shit like that. They said they did it for the devil.” He clears his throat and leaned back -“But that’s just an old rumor who knows what happened but either way the place is freaky.” Ashley looks around at us in a deep voice and says-“That’s what i’m going to do to you guys if you don’t venmo me for dinner” I laugh and roll my eyes.
 
-I grab bear spray, a pocket knife, and my flashlight and slowly open my door, begging it not to creak. I take a deep, shaky breath as I step out onto the balcony. The calm I felt earlier as I stood out here with my cigarette feels like a dream in contrast to the terror I’m feeling in this moment. I creep closer to the railing at the top of the stairs. I can see them begin to move in front of the tower, but I can’t see their face from this high up. Something is weird about the way they’re walking. Their legs are moving like they’re speed walking, but their body isn’t moving up and down like it usually does when someone walks. It’s smooth, like they’re gliding. I’ve seen this before. The suspicious hiker I saw the day before. Could it be the same person? Why are they still here?  
+We finish dinner pack up in the car -“Fuck!” Colby says feeling around in his pockets. “I lost my Zins can we stop at a gas station please?” Vincent pulls off into a gas station that consists of one pump and a small shop. We go inside and i’m browsing around when I see Ashley bump into a tall lankey awkward looking man. Knocking the items in his hand to the floor -“Oh i’m so sorry” she says!” The man turns around with a big smile on his face and says-“No worries ma’am” and picks up his car keys and a pack a cigarettes up off the floor. I watch as he walks out to the parking lot. Gets in his nice brand new truck and drives away. Ashley has moved onto the next isle when I realize i’m staring. Vincent walks up next to me-“you ready?” I asked him who that man was and he says-“Lance Cornell, dudes nice as hell he lives at the mouth of the Valley, funny enough he owns the beer, you know the place we had dinner at tonight” I smile and we all walk out the gas station and load back up into the car. 
 
-Why aren’t they stopping to get help? There’s absolutely no way they don’t see a giant tower surrounded by lights right next to them. I take another step closer to kneel down and look through the railing while hiding behind it. I grab onto a post and adjust my foot as I’m crouching down, but it slips over the top platform onto the first step. Just as they pass back into the darkness, they hear me and stop walking mid yell.  
+In the car Colby’s puts a hand on my thigh and rubs his finger against my jeans. Ashely whips her head around from the front and says-“You know what I think i’ve heard of this place, yah like some kids went missing hiking up here and were never seen from again” She narrows her eyes and looks right at me with a mincing glance. -“Hey stop that! She’s lying to you nobody’s gone missing” Vincent gives me a smile in the rear view mirror. The sun is just starting to go down when we get there. We’re swapping scary stories the drive up but as soon as we cross the threshold the stories stop and a sense of dread fills the space the stories held. 
 
-**HE-**  
+Vincent drives up to a gate with a giant no trespassing sign on it.
+-“Well this is it now we just hike up a bit. Watch for cars too this is like super illegal” 
+Me and Ashley share a glance and she smiles with her reassuring kind smile and we start walking.
+Hallfway up Colby takes my hand and winks at me he says-“How you feeling? Scared? Don’t be I won’t let anything happen to you! Plus all this stuff is total bullshit babe” He smiles and jogs up a little to catch up with the others. I stay behind, I am winded, cold and uneasy. I hear a snap of a twig behind me and whip around-“Holy fuck what was that?!” My friends turn around and watch as a bunny crosses the trail behind me.-“False alarm sorry guys” Vincent rolls his eyes and laughs. 
 
-I can see their body turn around to face the tower. I feel all the blood and color drain from my face. A wave of warmth and sweat washes over me counteracting the chill from before. I feel caught, like I’m the one under the spotlights they just passed through. I don’t know what to do, so I stand up.  
+After a short 20 minute walk the sun has completely set in the Valley and we turn on our flashlights to see the beast of a building standing in front of us. An abandoned minding building, must’ve been storage or something because the ones we drove past on the way in don’t even hold a candle to this. The wind going through the windows makes it look like the building itself is shriving in the cold air of the wind. -“Wow” Ashley says with a grin. -“Well come on in me casa es su casa” Says Vincent as he stands in the doorway.
+All the windows and doors are gone. There is a whole in the floor that looks like it leads somewhere but however people where getting down there has been gone for quite some time.-“Dude imagine there is just someone living down there” Ashley says and nudges me with a smile. -“what the fuck? what an odd thing to say”
 
-“Hello?” I try to sound assertive, but the fear strips the power from my voice. They give no answer. My feet feel like anvils as I force my way down the first few steps.  
+Ashely and Colby are taking pictures on her digital camera she carries with her everywhere! The odd thing is the place has no graffiti, it’s actually clean. -“No glass or anything” I say out loud. -“Yah well nobody ever comes up here because…well the cops are bored in a town like this” Vincent said like he was reading my mind. 
+-“Alright fuckers I say we split up” Colby says. -“Alright gang let’s look for clues” Ashely copy’s in a teasing voice 
 
-“Are you okay? How did you get here?” Still no answer.  
+My heart starts to race.-“the building is only one floor if you exclude the hole in the ground, just stay on the main floor and keep your light on just incase.” Vincent tells us we all nod and walk our separate ways, I begin to walk around the corner of the general area we’re in. I am looking around, still amazed at the cleanliness of this place. No dust, no leaves, nothing it’s wild! I turn around to see Colby right there -“ahh he screams” I shove him away and smack his chest. -“idiot” he leans in and tries to kiss me and as I lean into him I hear a loud-“What the hell!!”
 
-I debate if I should keep going down the stairs or go back up and radio another lookout. What if they’re gone by the time I’m able to contact someone? They don’t seem fully coherent, so I wouldn’t be surprised if they kept moving. They have the same opportunity with the amount of stairs I have left to go down, but I decide to take my chances.   
+ Ashley sounds scared we run over to find her looking at the ground with fear in her eyes. We pan our flashlights down to what she’s looking at. A dead fucking rabbit, fresh bright red blood pouring out of the whole in its body where its head use to be. I look away and throw up in my mouth. -“Dude what the fuck!!” Colby says! -“What the fuck is right!!” Ashely says sounding scared. -“Let’s leave I wanna leave please this is fucked up. This shit is like real like what the fuck?! we need to leave it’s the bunny from the trail!! What’re we waiting for” Ashley screams at us. I swallow my throw up and start walking to the door. The boys are standing there staring at it as I walk away I start to lose sight of them.
 
-“Stay where you are.” I turn my flashlight on and descend the stairs as quickly as I can while trying to keep an eye on the person’s silhouette.   
+It’s so dark that I don’t know how people would navigate without a source of light. And it’s so quiet almost peaceful. Wait a fucking minute it’s so quiet! What happened to the wind. My heart drops to my stomach and a pit joins it. It’s like we all notice it at the same time the silence. Deafening, no rubbing of tree branches, no bugs, no hum of electricity, no sound of shoes on the floor and most definitely no wind. -“wow” Colby’s says. -“Can we go now!?” asks Ashely? I pan my flashlight around to each of their faces. My heart is beating so loud it’s filling the silence. -“Chill” Vincent says “don’t freak yourself out okay it’s probably nothing let’s go okay. You’re right this was a mistake” he takes a step back and as he does I see a figure in the back hidden in the darkness take a step behind him. 
 
-I reach the ground, wishing I was still asleep in my bed. As I round the corner I point the flashlight on the ground in front of me to see where I’m going and try not to trip on my shoelaces. With the bear spray in my other hand, my chin trembles as I take another deep breath. I get closer and the light from my flashlight reaches their feet.   
+The figure smacks Vincent’s phone out of his hands and onto the floor, silencing my heart beat from my ears. -“Holy fuck! Wait what?! Vincent!!” Ashley screams. We all panic getting closer to each other. Just then the sound of footsteps on the floor running, no sprinting towards us. Colby yanks me out of the way but he’s not fast enough to grab Ashely the figure running picks her up in a single swoop and I hear her cry out as he voice gets more and more distant. -“Ash” I start to say as Colby covers my mouth with his hand. We back up into the darkness moving as quickly and quietly as we can. 
 
-“Hello?”   
+Suddenly the floor underneath my feet is gone and we fall right into the hole in the floor. Slamming my head against the cold damp cement floor I knock myself unconscious. I wake up to the sound of sobs and screams. It’s not dark anymore, the main room of the building is lit by candles burning and surrounding me, us in a circle. We’re all tied up bound by are hands and feet sitting next to each other. 3 hooded figures stand far enough away the candle light isn’t showing their face. -“What do you fucks want with us?!” Colby yells! -“Ya please let us go” Begs Ashley. One of the men steps forward and into the candle light. A bald man, who looks to be 60 is carrying the head of the rabbit. The blood still dripping on the floor. He holds the head above each of us while muttering under his breath. The blood is dropping onto my face. Warm,wet,sticky,the metallic smell filling my nose. I gag and cry and shake and all the things. 
 
-I finally get close enough that I no longer have to use my flashlight to see where I’m going. I lift it to point the light at them. As the light begins to pass over them I hear shuffling and see them quickly turning around. They move with such urgency that I still can’t see their face. With their back facing me, I’m hoping they aren’t hiding any weapons. I have my finger ready on the bear spray.   
+After the put the blood on Colby mine and Ashley’s heads and faces they stop at Vincent. One of the hooded figures step forward. A short fat hairy man in his 40s reaches out a hand towards Vincent. He mumbles something under his breath. Vincent crying looks at us and back at him and takes his hand. Tears streaming down his face he says-“I can’t do this please don’t make me do this please!! They’re my friends you assholes!!” The last robed man steps forward and the strong stench of cigarettes follows him. It’s the man from the gas. He grabs Vincent’s shoulder and says-“Vincent we talked about this. Think of your mother, your sister. Do it for them. I promised you something and I would never break a promise” 
 
-“Hello?” I say again, but this time with more frustration, like when you get no answer on the other side of the phone and have to say “hello” for a third time.  
+Vincent wipes away the tears and backs up into the darkness. -“VINCENT!!!” Colby screams! -“What’re you doing to him?! what’re you doing to us!?” Tears are gushing out of my eyes as I see the fear on Colby’s face. Before Colby can say another word his throat is slight and blood is spewing out all over his clothes. He looks at me his eyes widen with fear and his body slumps over. -“To appease ” they all say in unison Just then Vincent returns with container of lighter fluid. He drops it to the floor as he falls to his knees a blood curdling scream escapes his lips 
+-“NO!! I told you not him!! You told me you wouldn’t hurt him!! Please don’t” He is shaking and crying and holding Colby’s limp body, his blood soaking onto Vincent’s clothes. 
 
-**Hi! :)**  
+Cornell says something under his breath and the other 2 drag Vincent away while he is kicking and screaming. Suddenly the screaming stops. I am shaking, my heart is shattered i’m so shocked I almost forget Ashely is next to me until I hear a whimper and see her bloody, and shivering, a piss stain slowing showing on her pants. 
+The 2 men return one of them picking up the gasoline while the other picks up matches. They begin to make a ring around us and just as they’re about to light it Cornell mumbles something to the other 2 and they pick me up and untie me. I try to run over to ashley but they yank me back. -“NO WAIT I WANT TO SEE HER PLEASE WHATRE YOU DOING TO MY FRIENDS PLEASE NO” I can barely see through my tears. -“Run.” The bald man says. Leave this town and don’t ever come back. before I can dispute the circle around Ashley is ablaze and she is screaming, screeching, crying. I can’t take it anymore so I run. 
 
-I jump a little bit and take a step back, the electric shock feeling striking my body once again. There was an absolute enthusiasm in their voice that felt entirely out of place and inappropriate given the situation. I’m sure now that they’re definitely smiling. The kind of smile where it’s so big it makes your cheeks sore. No longer shouting, their voice was deep and airy, almost like it was being forced. The lack of distress in their voice furthered my suspicion that they aren’t fully coherent, but it also made me feel sick. Did they actually need help? Were they just trying to get me out here to kill me? My heart felt like it was about to explode and the cold air couldn’t break through the barrier of fear around me as sweat dripped down my forehead.  
+I leap out the window fall to my knees, but I don’t stop I get up the wind is back. It’s whipping the tears flowing down my face. My feet give under me and I fall down the mountain side. I slam my head on the ground, my hands, and bloody and scraped. I don’t stop I get up I am just at the car when  I stop. I turn back around and look up. I can hear loud chanting, rhythmic, and a scream like i’ve never heard. Something deep something guttural, primal. A howl of sorts and then light. A bright flash of light and then it’s all gone. And suddenly I can smell cigarettes. I get into Vincent’s car the thing is old, it barely stars but it does thank God. I sit there for a second looking up at the building and then I scream, I slam my hands on the horn, I cry and I cry and I cry. I slam on the gas and don’t stop until i’m out of the Valley, out of the town, until i’m back in my town. 
 
-“Who are you?” I ask, keeping my distance.  
+I show up at my local police station covered in blood. I tell them everything and they write it down and speed away. Sirens on, backup arriving the whole nine yards. They don’t find anything but a circle of dust and ash on the ground. The police told the parents what happened and i’ve been questioned multiple times although my story never changed. They’ve held 3 funerals but I didn’t attend Vincent’s. I couldn’t and will never enter that town again. I didn’t attend anyone’s. 
 
-**Just heading home :)**  
+So now i’m here. Alone, haunted by the memories of that terrible night, in a fuck ton of therapy, on the news, in pain and suffering. I just don’t understand why they didn’t kill me?! I wish they would’ve ended it all and killed me. Please kill me.Nobody believes me but I know what happened. It all happened in that fucking Valley. 
 
-I can feel the smile in my ears. They aren’t talking normally either. They speak in a cadence as if to the tune of a song, putting emphasis on all the wrong parts of the words.  
-
-“Why are you still here?”  
-
-**I got lost just heading home :)**   
-
-“Are you still lost?” They’re still turned away.  
-
-**No, I know this place :)**  
-
-“You mean you know where you are now? Are you sure? I just heard you yelling not far back.”  
-
-**I know  I can make it now :)**  
-
-I can’t tell if that was one sentence or two.   
-
-“You know where you are or you know I heard you?”  
-
-**:)**  
-
-“...Do you still need help?”   
-
-**I can make it now :)**  
-
-“I know there’s a parking lot nearby, but are you sure you don’t need like a flashlight or anything?”  
-
-**:)**  
-
-“If you need anything along the way, just stop at one of the towers. I’ll stay awake for a little while just in case and try to radio another lookout.”  
-
-**No. I can make it now :)**  
-
-“Um…okay…good luck.”  
-
-**:)**  
-
-I begin to back away in the direction of my tower, keeping the flashlight pointed at them. They still haven’t moved and I’m keeping focused on them, but I almost fall backwards after one of my shoelaces gets caught under my foot. Of course. I instinctively look down and hold my arms out to catch my balance, moving the flashlight away from them. As soon as I look away I hear shuffling and them breathing quickly and grunting. Panting?   
-
-I point the flashlight back to see them crawling on all fours in the other direction. Electric shock. Every part of me is screaming to turn around and run, but I’m frozen in place for what feels like an hour. I break out of the trance and start moving towards the tower stairs, but it feels like I’m moving through quicksand. As I make my way up the stairs the anvils that are my feet seem to double in weight. The combination of the blood having drained from my face, the cold, the sweat, and the newfound pounding in my head makes me feel like I may pass out. I’m determined to get inside and lock the door. I think they’re coming back, as I begin to hear them again, but I don’t dare turn around.   
-
-I make it inside and slam the door, locking both the doorknob and the deadbolt. Luckily, I closed all the shutters before going to bed so there’s no windows for them to look in… except the one behind the radio. I can hear them clobbering their way up the stairs so I don’t take my chances with the radio. I grab the walkie talkie from the table and hide under the bed. I grab whatever I can from the floor and move it in front of me to try and hide myself. I turn the volume down on the radio as I try to call to another tower without being too loud. I can hear banging at the door and no one’s answering the radio. The wave of feelings becomes too much and my body succumbs to its urge to pass out.  
-
-I don’t know how long it’s been, but I’m woken up by yelling. Deja vu.  
-
-**HELLO :)**  
-
-It’s coming from outside the door, but it sounds like it’s at the same level as me. Are they still on all fours? I slowly make my way out from underneath the bed as quietly as possible. I slink over to the door and lift the lowest blind as little as possible while still being able to see through. I should see their torso from where the window is, but instead I see… legs? Are they doing a handstand? I look through the side of the blinds to see the ground beneath them. They’re not doing a handstand. They’re standing on their head. Their hands at their sides, pointed up. I back away completely consumed with fear and unsure of what to do next. The door jumps from being hit. They’re kicking it.  
-
-**HELP :)**  
