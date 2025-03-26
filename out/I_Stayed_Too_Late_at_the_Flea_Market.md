@@ -1,3 +1,5 @@
+I stayed too late at the flea market and now I know why they close at 3PM.
+
 I’ve always loved flea markets. There’s something about them. Things left behind, forgotten, repurposed. That’s why I was thrilled when I moved to Ashbrook and heard about Cooper’s Market. It sat just outside town, tucked against a stretch of dense forest. It was open Tuesday to Sunday, from dawn until 3 PM, without exception.
 
 I assumed the closing hours were caused by a city ordinance, or just something people had always done? But the more I asked, the more people avoided answering.

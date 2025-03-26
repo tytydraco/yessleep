@@ -6,9 +6,9 @@ Let me start from the beginning.
 
 I’ve been working the night shift at Brookside Nursing Home for two months now. It’s just a part-time gig to cover bills while I try to finish up nursing school. It should’ve been a simple job that had me assisting, checking on the elderly residents, making sure everything was running smoothly. But it didn’t take long before I realized that Brookside wasn’t a place where people just grew old and quiet. No. There was something else here. Something dark that seemed to pulse beneath the surface, hiding in the cracks of the walls and down in to the floorboards. 
 
-The place itself? It’s everything you’d expect from a second-rate shitcan nursing home. Dim lighting, cracked flooring that seemed to absorb sound, the musty scent of antiseptic mingling with something… older. And the residents. Most of them are barely conscious, their faces blank and pale as they sit in front of TVs or drift off to sleep in their wheelchairs. A few get the occasional visitor, but it’s rare. Too rare.
+The place itself? It’s everything you’d expect from a second-rate shitcan nursing home. Dim lighting, cracked flooring, the musty scent of antiseptic mixed with something… older. And the residents. Most of them are barely conscious, their faces blank as they sit in front of TVs or drift off to sleep in their wheelchairs. A few get the occasional visitor, but it’s rare. Too rare.
 
-But still, something didn’t feel right. It wasn’t just the building. It was something… darker. Like there was a presence here, an energy that made the air thicker. Something sinister that clung to the walls. It felt as though the very ground beneath my feet was waiting for something. Watching. And I didn’t know what it was until I met it. Until I met her. 
+But still, something didn’t feel right. It wasn’t just the building. It was something… darker. Like there was a presence, an energy that made the air thicker. Something sinister that clung to the walls. It felt as though the very ground beneath my feet was waiting for something. Watching. And I didn’t know what it was until I met it. Until I met her. 
 
 Miss E.
 
@@ -20,11 +20,11 @@ She’d pass by me in the hall, humming. At first, I thought it was just a mindl
 
 And then, it got **worse**.
 
-It wasn’t just her humming anymore. It was a feeling. A constant, suffocating presence. Like there was always someone watching me, even when I couldn’t see them. I couldn’t shake the sensation, the hair standing up on the back of my neck. At first, I couldn’t figure out where it was coming from. But then I realized—**it was Miss E.**
+It wasn’t just her humming anymore. It was a feeling. A constant presence. Like there was always someone watching me, even when I couldn’t see them. I couldn’t shake the sensation. At first, I couldn’t figure out where it was coming from. But then I realized, **it was Miss E.**
 
-She would appear out of nowhere, standing in the shadows at the end of the hall or just outside a resident’s door, her eyes locked onto me. Her smile was unsettling—unnatural. It wasn’t the warm, friendly kind that you’d expect from an old woman. No, this was different. It was sharp, like something twisted beneath her skin, pulling at her features. A grin that wasn’t a grin at all. A smile that just didn’t belong anywhere.
+She would appear out of nowhere, standing in the shadows at the end of the hall or just outside a resident’s door, her eyes locked onto me. Her smile was unsettling and unnatural. It wasn’t the warm, friendly kind that you’d expect from an old woman. No, this was different. It was sharp, like something twisted beneath her skin, pulling at her features. A grin that wasn’t a grin at all. A smile that just didn’t belong anywhere.
 
-I tried to ignore it. I told myself it was just her age, maybe some kind of condition that made her act… off. That’s what I convinced myself. But deep down, I knew it was something more. Something was wrong. Very wrong.
+I tried to ignore it. I told myself it was just her age, maybe some kind of condition that made her act…off. That’s what I convinced myself. But deep down, I knew it was something more. Something was wrong. Very wrong.
 
 She never spoke to me, not in the first few weeks anyway. She would just watch, her eyes following me wherever I went. But one night, while I was charting at the nurses’ station, she came up to me. Silent at first, but this time, she didn’t just watch.
 
@@ -58,7 +58,7 @@ But then I saw **her.**
 
 **Miss E.**
 
-She was standing in the far corner of the room, her body so still it looked as though she were part of the shadows themselves. Her eyes were wide, too wide, staring at me with an intensity that felt like they could pierce my soul. And that smile… It was wrong. It twisted her face into something grotesque, something that shouldn’t belong to a human. Her nostrils flared, and I could hear her breath, shallow and uneven, wheezing in and out of her nose.
+She was standing in the far corner of the room, her body so still it looked as though she were part of the shadows themselves. Her eyes were wide, too wide, staring at me with an intensity that felt like they could pierce my soul. And that smile…It was wrong. It twisted her face into something grotesque, something that shouldn’t belong to a human. Her nostrils flared, and I could hear her breath, shallow and uneven, wheezing in and out of her nose.
 
 Then she spoke again, her lips curling upward, her voice sinking into a mocking sing-song tone.
 
@@ -70,13 +70,13 @@ I tried to get up, to stand, to break free of the paralyzing terror wrapping aro
 
 No. *Lunged*.
 
-Her body shot toward me with unnatural speed, and before I could even react, her bony fingers were digging into the sides of my temples. Her nails felt like daggers, pressing into my skin as her crazed eyes locked onto mine, wide and hungry. Her yellowed teeth gleamed in the dim light, strands of saliva hanging between them like a spiders web. I could feel her hot breath on my neck, the stench of something rancid and foul filling my nostrils.
+Her body shot toward me with unnatural speed, and before I could even react, her bony fingers were digging into the sides of my temples. Her nails felt like daggers, pressing into my skin as her crazed eyes locked onto mine, wide and hungry. Her yellowed teeth gleamed in the dim light, strands of saliva hanging between them like a spiders web. I could feel her hot breath on my neck, the stench of something foul filling my nostrils.
 
 ***“Do you remember,***” she whispered, her voice low and guttural, ***“how she kissed your forehead? Oh, so sweetly. You loved that, didn’t you?!”***
 
 I couldn’t breathe. It felt as if the world had narrowed to just her and I in this moment, this twisted and terrible moment. 
 
-Suddenly, my body jerked into motion, my fight-or-flight instincts kicking in. I jumped up from the chair, heart pounding in my chest, gasping for air. Miss E collapsed to the floor, her body writhing as she burst into laughter - laughter that was just wrong. It was ragged, frantic, like she couldn’t catch her breath. The sound was horrendous, almost as if the air around us was being sucked away, leaving only that laugh to fill the space.
+Suddenly, my body jerked into motion, my fight-or-flight instincts kicking in. I jumped up from the chair, heart pounding in my chest, gasping for air. Miss E collapsed to the floor, her body writhing as she burst into laughter - laughter that was just wrong. It was ragged and frantic, like she couldn’t catch her breath. The sound was horrendous, almost as if the air around us was being sucked away, leaving only that laugh to fill the space.
 
 ***“Ha ha ha. Awww. Don’t want to play with mommy, darling?”***
 
@@ -84,7 +84,7 @@ This wasn’t normal. This wasn’t anything even remotely realistic. This was s
 
 ***“What the fuck are you?”***
 
-Miss E rose to her feet with a slow, deliberate motion. Her back arched as if she was stretching from a long slumber, and then she smiled—wide and full of malice. Her eyes flickered with anger.
+Miss E rose to her feet with a slow, deliberate motion. Her back arched as if she was stretching from a long slumber, and then she smiled, wide and full of malice. Her eyes flickered with anger.
 
 ***“I’m not her,”*** she hissed, ***“I’m what comes after. I am what takes.”***
 
@@ -96,10 +96,10 @@ I found the service closet and slammed the door behind me, locking it, my breath
 
 That was hours ago.
 
-I still hear the shuffling. It’s closer now, almost like a heartbeat, beating in the walls. In the air. Every creak of the floorboards, every whisper of the wind through the vents—it’s her. She’s circling, waiting.
+I still hear the shuffling. It’s closer now, almost like a heartbeat, beating in the walls. In the air. Every creak of the floorboards, every whisper of the wind through the vents...it’s her. She’s circling, waiting.
 
 I don’t know if I’ll get out. I don’t know how long I can last in here.
 
-But if you’re reading this, don’t come looking for me. Don’t come near Brookside. I don’t care if it’s in the middle of the night or the middle of the day. Don’t come. Because I’m hiding from something far worse than you can imagine. Something that doesn’t just want you to suffer - it wants to *take* everything from you.
+But if you’re reading this, don’t come looking for me. Don’t come near Brookside. I don’t care if it’s the middle of the night or the middle of the day. Don’t come. Because I’m hiding from something far worse than you can imagine. Something that doesn’t just want you to suffer...it wants to *take* everything from you.
 
-If I don’t make it out… then let this be my warning. Stay far away. Because she doesn’t just want your body. She wants your ***soul.***
+If I don’t make it out…then let this be my warning. Stay far away. Because she doesn’t just want your body. She wants your ***soul.***

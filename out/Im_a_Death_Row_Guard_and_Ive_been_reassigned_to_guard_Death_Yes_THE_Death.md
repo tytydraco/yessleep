@@ -8,17 +8,17 @@ This made me indispensable. Forcing a guilty man to the gurney was traumatic for
 
 Did you know that actual innocence is not considered a mitigating factor to the court of criminal appeals? To vacate a conviction the inmate must prove his due process was violated. Exonerating evidence doesn't matter. Politics notwithstanding it makes my job a helluva lot more difficult. But I don't make the laws I enforce. 
 
-Also, my wife still thinks I look cute in a uniform. She would be the first to tell you a glimpse of me in my dress blues and…well, we had a good morning that day, the last day of my pleasant, albeit somewhat morbid existence. I now understand the weightlessness of ignorance.
+Besides, my wife still thinks I look cute in a uniform. She would be the first to tell you a glimpse of me in my dress blues and…well, we had a good morning that day, the last day of my pleasant, albeit morbid existence. I now understand the true power of blissful ignorance.
 
-Not long afterwards Texas's top brass informed me that I was being transferred 30 miles away to “captain an elite death watch”. Actually, they said layers away but I dismissed it as a brain fart. 
+Four hours later I was informed I was being transferred 30 miles away to “run an elite death watch”. Actually, the strange man had said 30 layers away but I assumed he had misspoke. 
 
-It wasn't, but we’re not there yet. First, you need to know that going from Warden to Captain is technically a demotion, but the salary…compared to what I was already making, which wasn't peanuts, it felt like Jeff Bezos, Bill Gates money. The shock of it was like I was the one seated on Ol’ Sparky.
+He hadn’t, but we’re not there yet. Going from DR Warden to Captain of Death Watch is technically a demotion, but the salary…compared to what I was already making, which wasn't peanuts, it felt like Jeff Bezos, Bill Gates money. The shock of it was like I was the one seated on Ol’ Sparky.
 
-The day had begun normally enough with what I thought was just another death watch tour (death watch is a separate unit for inmates with an execution date). We hold them surprisingly frequently. Most often we show higher-ups and politicians running tough-on-crime campaigns how the process works. That's what the lead up to murdering a man for murder is called. The process. The protocol. And finally, the *procedure*. Their COD is still classified as a homicide.
+I had thought it was just another death watch tour (death watch is a separate unit for inmates with an execution date). We have them surprisingly frequently. Most often we show higher-ups and politicians running tough-on-crime campaigns how the process works. That's what the lead up to murdering a man for murder is called. The process. The protocol. Their COD is still listed as homicide. 
 
-This tour went wonky. Barely a few minutes in and I was deeply uncomfortable. The stranger's questions were, well, I don't like to use this sort of language but they were fucking weird. A normal question would be related to maintaining security on the day of execution. This guy, whose name I don't recall…why don't I remember his name? Probably the shock. But he sure knew my last name was Reaper. Usually people do a double take, but Mr. X here seemed overeager to discuss it, practically salivating. He asked me my ethnic origins, if I had presided over any botched executions, and if so *how* botched? 
+Barely a few minutes into the tour I was deeply uncomfortable. The questions were, well, I don't like to use this sort of language but they were fucking weird. A normal question would be related to maintaining security on the day of execution. This guy, whose name I don't recall…why don't I remember his name? Probably the shock. But he knew my last name was Reaper. Usually people do a double take, but Mr. X here seemed overeager to discuss it, practically salivating. He asked me my ethnic origins, if I had presided over any botched executions, and if so *how* botched? 
 
-He took more than a passing interest in my feelings and coping mechanisms. He asked me how I went about hiring. Now that I could answer readily. This was my forte. The challenge, I explained, is that you have to find someone willing to end the life of another who was neither a sociopath, nor a man with unshakable morals. The first type belongs on the gurney themselves; the second type are likely to blow their brains out. My shpiel was practiced and I was even getting into the groove a bit when I noticed the visitor wore an even more manic expression. 
+He took more than a passing interest in my feelings and coping mechanisms. He asked me how I went about hiring, which I answered almost greedily. This was my forte. The challenge, I explained, is that you have to find someone willing to end the life of another who was neither a sociopath nor a man with unshakable morals. The first type belong on the gurney themselves; the second type are likely to blow their brains out. My shpiel was practiced and I was even getting into the groove a bit when I noticed the visitor wore an even more manic expression. 
 
 And then I felt it. Fear. A primal sense of revulsion I have only felt with the worst of the worst. The man who raped and cannibalized his own grandmother. The one who tortured his 8-year-old child to death for flushing his drugs. The guy who lit a gas station employee on fire when he refused service after the murderer's card declined. These were the men who triggered my lizard brain. Who I had no trouble shepherding from life to...after. I felt that fear with this strange agent who asked far too personal questions. 
 
@@ -34,19 +34,23 @@ And no door. The strange man led me to the doorless cube and told me to knock. �
 
 “What is written?”, I said, knocking lightly. *What the fuck was written?* 
 
-“That.” He pointed. The formerly solid space now revealed a sleek, monochromatic hallway. “That,” he repeated, “is Death’s Door. This is Death’s prison. Obviously, Her capture has not stopped her from taking souls. However, in absence of her scythe, we hoped she was confined to this facility.”
+“That.” He pointed. The formey solid space now revealed a sleek, monochromatic hallway. “That,” he repeated, “is Death’s Door. This is where Death is detained. Obviously, Her capture has not stopped her from taking souls. However, in absence of her scythe, we hoped she was confined to this facility.”
 
 “Hoped? Past tense?”
 
-Yes. Death has told us she can leave whenever she wants, at which point she will access the presently unknown layer that holds her cloak. While the cloak appears to be normally sized, the interior is capable of holding all souls living and dead from all universes. She has informed us that once she accesses her cloak, there will be no stopping her taking back the scythe, at which point she will trigger a mass extinction event. When asked why she didn't do it now, she simply responded, “Because it isn't time. My father is Time and one day I will take Time, too. As long as Time lives, so does Man. But Time’s time will be up, and the era of Man will die with my father. Until then, I will require staff. Bring me my Reaper. He is close.”
+Yes. Death has told us she can leave whenever she wants, at which point she will access the presently unknown layer that holds her cloak. While the cloak appears to be normally sized, the interior is capable of holding all souls living and dead from all universes. 
 
-“... It's just a last name, don't you think that''s a little on the nose?” This bothered me more than the revelation that death was a corporeal being, apparently female, the daughter of Time itself, and temporarily detained in a doorless prison from which she threatened to end the universe, which is infinite. Compartmentalization is another invaluable skill. I couldn't do what I did if I saw the whole picture. The childhood that led to the gang that led to the robbery that led to the shooting of a 93-year-old veteran that led to the trial that led to the death penalty that led a 24-year-old to the gurney, whose tears I wipe gently as he is restrained approximately 18 seconds after entering the death chamber. I only see a convicted killer with whom I will develop a relationship that inevitably ends with preparing his body for transport to the town funeral home. 
+She has informed us that once she has the cloak, there will be no stopping her taking back the scythe, at which point she will trigger a mass extinction event. When asked why she doesn't just get it over with, she simply responded, “Because it isn't time. My father is Time and one day I will take Time, too. As long as Time lives, so does Man. But Time’s time will be up, and the era of Man will die with my father. Until then, I will require staff."
 
-See? Compartmentalizing. 
+“... It's just a last name, don't you think that''s a little on the nose?” This bothered me more than the revelation that death was a corporeal being, apparently female, the daughter of Time itself, and kinda sorta detained in a doorless and windowless prison from which she threatened to end the universe. 
 
-I like to think I'm a tough guy, but I just wanted to go home and look cute to my wife in my uniform.
+Compartmentalization is another invaluable skill. I couldn't do what I did if I saw the whole picture. The childhood that led to the gang that led to the robbery that led to the shooting of a 93-year-old veteran that led to the trial that led to the death penalty that led a 24-year-old to the gurney, whose tears I wipe gently as he is restrained approximately 18 seconds after entering the death chamber. I only see a convicted killer with whom I will develop a relationship that inevitably ends with preparing his body for transport to the town funeral home. 
 
-A female voice echoed from past the door. “Abandon all hope ye who enter here, Officer Baconater.”
+I couldn't handle the prospect of preventing the destruction of infinite realities, but I could get pissed off at this guy for being a dick about my last name. See? Compartmentalizing. 
+
+I like to think I'm a tough guy, but at that moment I just wanted to go home and look cute to my wife in my uniform.
+
+It was not to be. A female voice echoed from past the door. “Abandon all hope ye who enter here, Officer Baconater.”
 
 I spun around, facing the strange man. “Is that her? Is that…Death?”
 
@@ -56,9 +60,11 @@ The strange man sighed. “No, that's just Karma. She's here too. Try not to let
 
 “I’M NOT A…nevermind. As I said, don't let her get to you. We’ll get you caught up soon enough. For now, read this.”
 
-I was handed a leatherbound black book titled “The Protocol of Death's Watcher”. The strange man informed me he wrote it himself, warning me to take it seriously.”
+I was handed a leatherbound black book titled “Death Watch Protocol”. The strange man informed me he wrote it himself, warning me to take it seriously.
 
-His expressionless face broke for a second, finally giving me a peak at whatever humanity he housed. “Listen, if you're going to survive death, there's something you have to do. You have to give up any pretense that you are in charge. You are not. You are here to entertain Death. She gets bored. She needs people to float ideas to, to threaten, to flirt with. And on that note, not that you would, but do not ever engage in sexual conduct with the inmate. It will be the last thing you ever do.”
+His expressionless face broke for a second, finally giving me a peak at whatever humanity he housed. “Listen, if you're going to survive Death, there's something you have to do. You have to give up any pretense that you are in charge. You are not. The inmate runs the asylum.
+
+You are here to provide entertainment and counsel to Lady Death. You are to use your formidable skills to de-escalate her when angry or bored, given her proclivity for pranking staff by killing them.
 
 Though I don't quite remember entering, the door shut behind me. Or did whatever a door does when it stops existing. The strange man was gone, and the scene before me looked like it had been picked from the set of a Southern Gothic period film. An old-timey lamp turned on from a desk that wasn't there before, and the book burned and became heavy in my hands. 
 
