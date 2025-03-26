@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1jk8pxe/i_heard_my_mom_whispering_to_herself_one_night/)
+
 My family has an odd history of tragedy—at least, that’s what my grandma would always say.
 
 ‘’It comes in waves; it comes when it wants to.’ She would ominously say but we all knew she was superstitious and generally odd. She had always been excentric according to my mom who has a much-strained relationship with her.
@@ -66,7 +68,7 @@ It became nearly impossible for me when a second whisper, which I KNEW wasn’t 
 
 ‘*’Something must be done about Dulian. He must be punished.*’’
 
-The pitch was all wrong—high and thin, with childish undertones. It wavered between something innocent and something utterly unnatural**,** twisting and twitching with a jagged, broken quality that sent a shiver down my spine. To my horror, I realized that somewhere in that angry, resentful pitch, were traces of Hol’s voice.
+The pitch was all wrong—high and thin, with childish undertones. It wavered between something innocent and something utterly unnatural\*\*,\*\* twisting and twitching with a jagged, broken quality that sent a shiver down my spine. To my horror, I realized that somewhere in that angry, resentful pitch, were traces of Hol’s voice.
 
 At first, I thought it was an echo. A trick of the mind. But then I heard it—the way she used to say my name. Dulian...  She never was able to pronounce the ‘J’’ part. But there was no warmth or innocence left in it… Just anger and something else... Hurt perhaps. Or disappointment.  
 
@@ -294,13 +296,13 @@ There was Leo, Hol’s favorite stuffed white tiger. She’d adored him, carryin
 
 Was I like that? Did I have trouble controlling my emotions? Did I take it out on Hol?
 
-*“*I was a kid*,”* I whispered aloud, trying to rationalize it. But the thought turned sour.
+*“I was a kid,”* I whispered aloud, trying to rationalize it. But the thought turned sour.
 
 Something shifted in the air, a barely perceptible sound—whispers carried by the attic’s stale breath. ‘’*No excuse.’’* The words coiled around me, soft at first, then louder, crashing in a rising crescendo. ‘’*No excuse!’’* I shook my head, desperate to quiet them. I hummed a tune I barely remembered, a childhood melody that brought me a sliver of comfort.
 
 Beneath the toys were drawings—mine, mostly. Memories of afternoons spent with crayons and markers came flooding back. Hadn’t I also drawn things for Hol? I had, I remembered. *“Draw me tigers, rainbows, and sunflowers,”* she’d say with wide eyes. And I’d oblige.
 
-*“*For Hol*,”* the words on the drawings said. The ones with tigers, rainbows, and sunflowers. Crudely drawn tigers played under rainbows; wobbly sunflowers stretched tall under bright blue skies.
+*“For Hol,”* the words on the drawings said. The ones with tigers, rainbows, and sunflowers. Crudely drawn tigers played under rainbows; wobbly sunflowers stretched tall under bright blue skies.
 
 But not all the drawings were like that.
 

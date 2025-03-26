@@ -36,11 +36,11 @@ There were no doors or windows. The strange man led me to the doorless cube and 
 
 “What is written?”, I said, knocking lightly. *What the fuck was written?* 
 
-“That.” He pointed. The formerly solid space now revealed a sleek hallway. “That,” he repeated, “is Death’s Door. She is...detained here, though she is not beholden to the laws of physics, which you will become painfully aware of over time. As you can testify, the machinery of death is well-oiled as ever. However, in the absence of her scythe--long story--we hoped she could be held long enough to make certain reasonable adjustments upon release. 
+“That.” He pointed. Where there was solid space just a moment ago was a perfect rectangle that revealed a sleek, modern hallway, like someone removed a door-sized jinga block. “That,” he repeated, “is Death’s Door. She is...detained here, though she is not beholden to the laws of physics, which you will become painfully aware of over time. As you can testify, the machinery of death is well-oiled as ever. However, in the absence of her scythe--long story--we hoped she could be held long enough to make certain reasonable adjustments upon release. 
 
 “Hoped? Past tense?”
 
-Yes. Death has made it clear that she can and will leave. She just likes it here. She is ancient, and this is new.  She is the shot caller of her own reality show. When she grows bored, she will access the presently unknown layer that holds her cloak. While the cloak appears to be a normal size, small if anything, the cloak's interior is best described as a black hole that will eventually consume all souls living and dead along with the infinate universe. Best not to think about it too hard. 
+Yes. Death has made it clear that she can and will leave. She just likes it here. She is ancient, and this is new.  She is the shot caller of her own reality show. When she grows bored, she will access the presently unknown layer that holds her cloak. While the cloak appears to be a normal size, small if anything, the cloak's interior is best described as a black hole that will eventually consume all souls living and dead along with the infinite universe. Best not to think about it too hard. 
 
 She has informed us that once she has the cloak, there will be no stopping her taking back the scythe, at which point she will trigger a mass extinction event. When asked why she doesn't just get it over with, she responded, “Because it isn't time. My father is Time and one day I will take Time, too. As long as Time lives, so does Man. But Time’s time will be up, and the era of Man will die with my father. Until then, I will require staff. Bring me the Reaper."
 
