@@ -256,7 +256,7 @@ Once I got home, my mom hugged me tight, tears running down her face. I unlocked
 One other thing I'm curious about is how Nick and I got away with speaking to each other from our windows. I still really don't know what to make of the whole thing. I'm running with the belief they were running tests on us, which would explain the torture they put us through. But why did they need to test on us?
 
 
-After a night of barely being able to sleep, I returned to school. I returned to my friends. My teachers. Although the unfamiliar setting scared me at first, I've realized it wasn't the setting I needed to worry about… it was the people in it. I want to find out where I was for those months. I want to know why the world map was so off. Was I really taken to another world? I don't want to become a conspiracy theorist and believe such a thing… but where was I???
+After a night of barely being able to sleep, I returned to school. I returned to my friends. My teachers. My 12th grade classes. Although the unfamiliar setting scared me at first, I've realized it wasn't the setting I needed to worry about… it was the people in it. I want to find out where I was for those months. I want to know why the world map was so off. Was I really taken to another world? I don't want to become a conspiracy theorist and believe such a thing… but where was I???
 
 
 There were good people in that unfamiliar setting too, of course!

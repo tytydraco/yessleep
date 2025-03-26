@@ -28,17 +28,17 @@ I'm back home now. I'm trying to get to the point, I am. I just don't know if I 
 
 The strange man did not mean miles when he said layers. It turns out there really is a fucking multiverse. *A multiverse*. 
 
-30 layers from a pound-me-in-the-ass prison in Texas is another prison. The architecture is a windowless black cube that reminded me of vanta black, a paint so black the human brain interprets it as a sort of void space. There was no barbed wire fencing. No sniper tower. 
+30 layers from a pound-me-in-the-ass prison in Texas is another prison. A smooth black cube that reminded me vaguely of Borg. A utilitarian monument in the middle of a disturbing lavender-colored desert. There was no barbed wire fencing. No sniper tower. Just the blackest black; vanta black, the famous black pigment so dark the human brain sees a bottomless void. 
 
-And no door. The strange man led me to the doorless cube and told me to knock. “Sir, respectfully, are you fucking with me?” “Just knock. It's already written one way or the other.”
+There were no doors or windows. The strange man led me to the doorless cube and told me to knock. “Sir, respectfully, are you fucking with me?” “Just knock. It's already written one way or the other.”
 
 “What is written?”, I said, knocking lightly. *What the fuck was written?* 
 
-“That.” He pointed. The formey solid space now revealed a sleek, monochromatic hallway. “That,” he repeated, “is Death’s Door. This is where Death is detained. Obviously, Her capture has not stopped her from taking souls. However, in absence of her scythe, we hoped she was confined to this facility.”
+“That.” He pointed. The formerly solid space now revealed a sleek hallway. “That,” he repeated, “is Death’s Door. She is...detained here, though she is not beholden to the laws of physics, which you will become painfully aware of over time. As you can testify, the machinery of death is well-oiled as ever. However, in the absence of her scythe--long story--we hoped she could be contained enough to make certain reasonable adjustments. 
 
 “Hoped? Past tense?”
 
-Yes. Death has told us she can leave whenever she wants, at which point she will access the presently unknown layer that holds her cloak. While the cloak appears to be normally sized, the interior is capable of holding all souls living and dead from all universes. 
+Yes. Death has made it clear that she can and will leave. She just likes it here. She is ancient, and this is new.  She is the shot caller of her own reality show. When she grows bored, she will access the presently unknown layer that holds her cloak. While the cloak appears to be normally sized, the interior is capable of holding all souls living and dead from all universes. 
 
 She has informed us that once she has the cloak, there will be no stopping her taking back the scythe, at which point she will trigger a mass extinction event. When asked why she doesn't just get it over with, she simply responded, “Because it isn't time. My father is Time and one day I will take Time, too. As long as Time lives, so does Man. But Time’s time will be up, and the era of Man will die with my father. Until then, I will require staff."
 
@@ -60,11 +60,11 @@ The strange man sighed. “No, that's just Karma. She's here too. Try not to let
 
 “I’M NOT A…nevermind. As I said, don't let her get to you. We’ll get you caught up soon enough. For now, read this.”
 
-I was handed a leatherbound black book titled “Death Watch Protocol”. The strange man informed me he wrote it himself, warning me to take it seriously.
+I was handed a leatherbound black book titled “Death's Watch”. The strange man informed me he wrote it himself, warning me to take it seriously.
 
-His expressionless face broke for a second, finally giving me a peak at whatever humanity he housed. “Listen, if you're going to survive Death, there's something you have to do. You have to give up any pretense that you are in charge. You are not. The inmate runs the asylum.
+His expressionless face broke for a second, finally giving me a peak at whatever humanity he housed. “Listen, if you're going to survive Death, there's something you have to do. You have to give up any pretense that you are in charge here. You are not. The inmate runs the asylum. The quicker you can accept that, the better. You are not the one who flips the switch. She is, and has always been, and will ever be.
 
-You are here to provide entertainment and counsel to Lady Death. You are to use your formidable skills to de-escalate her when angry or bored, given her proclivity for pranking staff by killing them.
+You are here to provide entertainment and counsel to Lady Death. You are to use your formidable skills to de-escalate her when angry or bored, given her proclivity for pranking staff by killing them. We believe with your skill set you will be spared of this fate."
 
 Though I don't quite remember entering, the door shut behind me. Or did whatever a door does when it stops existing. The strange man was gone, and the scene before me looked like it had been picked from the set of a Southern Gothic period film. An old-timey lamp turned on from a desk that wasn't there before, and the book burned and became heavy in my hands. 
 
@@ -74,6 +74,6 @@ Still, while I am used to 24/7 surveillance,  it has never been for *me*. Not li
 
 I opened the heavy book. Page 1, chapter 1.
 
-“A Reaper’s Guide to Inmate 00:00” 
+“Surviving Inmate 00:00 - Tips and Tricks” 
 
 Fuck. 
