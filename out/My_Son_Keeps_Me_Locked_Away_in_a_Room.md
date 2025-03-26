@@ -10,7 +10,7 @@ When Daniel talks about Mr. Jax, his eyes change. They get darker. Emptier. Like
 
 The doctors told me I have... what did they call it? Traumatic something. Brain injury. From the accident. Sometimes I can think just fine, like now. Other times I can't remember my own name. The words get stuck. The thoughts won't connect right. I get confused about what year it is. What day. Where I am. Sometimes I see shadows moving in the corners of my room. Shifting. Watching. Waiting.
 
-I used to be different. Before the pills, before the accident. I was a... a teacher. Math teacher. High school. I taught algebra and geometry. I remember the smell of chalk and the sound of the bell. I remember Lisa, my wife. And Tommy, my real son. My boy. I remember their smiles. Their laughter.
+I used to be different. Before the pills, before the accident. I was a... a teacher. Math teacher. High school. I taught algebra and geometry. I remember the smell of chalk and the sound of the bell. I remember Lisa, my wife. And Tommy, my first son. My boy. I remember their smiles. Their laughter.
 
 I can still hear their screams sometimes. In my dreams. In the walls. When I'm alone.
 
@@ -150,7 +150,9 @@ I have until morning to figure something out. My brain still works sometimes. Wh
 
 Because now I know part of the truth about Mr. Jax. He's not real. He's a voice in Daniel's head.
 
-But there's something else here too. Something that comes in the night. Something Daniel is afraid of. Something he's working for. Something that wants me.
+Or maybe Mr. Jax is real.
+
+I know there something else here too. Something that comes in the night. Something Daniel is afraid of. Something he's working for. Something that wants me.
 
 My tongue feels the pills I hid there. I spit them into my hand. Hold them tight.
 
@@ -158,10 +160,12 @@ I notice something on the wall I didn't see before. Scratched into the paint wit
 
 When 7:00 AM comes, I'll be ready. I might be damaged. Might be slow. But I'm not stupid.
 
-But I wonder... will the real Mr. Jax let me leave? The one who scratches at my door at night? The one who makes the house groan? The one who waits in the dark with patience that feels ancient and hungry?
+But I wonder... what do I need to do to get Mr. Jax to let me leave? Mr. Jax... He is it! The one! The one who scratches at my door at night? The one who makes the house groan? The one who waits in the dark with patience that feels ancient and hungry?
 
 Not anymore.
 
-UPDATE: It's nearly 7 AM. I can hear movement outside my door. Footsteps. Too many footsteps for one person. I've been up all night. Found more writing hidden in this room. Under the carpet. Behind the dresser. Lisa and Tommy were trying to warn me. Daniel isn't Daniel. Hasn't been for years. Something else wears him now. Something old. Something patient. Something that's been collecting our family one by one.
+I can stand up to Mr. Jax!
+
+UPDATE: It's nearly 7 AM. I can hear movement outside my door. Footsteps. Too many footsteps for one person. I've been up all night. Found more writing hidden in this room. Under the carpet. Behind the dresser. Lisa and Tommy were trying to warn me. Daniel isn't Daniel. Hasn't been for years. Something else wears him now. Something old. Something patient. Something that's been collecting our family one by one. My son Tommy left behind a drawing of Mr. Jax. It's unlike anything I've ever seen.
 
 The door is opening now. Time to find out what Mr. Jax really looks like.

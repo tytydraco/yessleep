@@ -8,17 +8,17 @@ This made me indispensable. Forcing a guilty man to the gurney was traumatic for
 
 Did you know that actual innocence is not considered a mitigating factor to the court of criminal appeals? To vacate a conviction the inmate must prove his due process was violated. Exonerating evidence doesn't matter. Politics notwithstanding it makes my job a helluva lot more difficult. But I don't make the laws I enforce. 
 
-Also, my wife still thinks I look cute in a uniform. She would be the first to tell you a glimpse of me in my dress blues and…well, we had a good morning that day, the last day of my pleasant, albeit morbid existence. I now understand the true power of blissful ignorance.
+Also, my wife still thinks I look cute in a uniform. She would be the first to tell you a glimpse of me in my dress blues and…well, we had a good morning that day, the last day of my pleasant, albeit somewhat morbid existence. I now understand the weightlessness of ignorance.
 
-Four hours later I was informed I was being transferred 30 miles away to “run an elite death watch”. Actually, the strange man had said 30 layers away but I assumed he had misspoke. 
+Not long afterwards Texas's top brass informed me that I was being transferred 30 miles away to “captain an elite death watch”. Actually, they said layers away but I dismissed it as a brain fart. 
 
-He hadn’t, but we’re not there yet. Going from DR Warden to Captain of Death Watch is technically a demotion, but the salary…compared to what I was already making, which wasn't peanuts, it felt like Jeff Bezos, Bill Gates money. The shock of it was like I was the one seated on Ol’ Sparky.
+It wasn't, but we’re not there yet. First, you need to know that going from Warden to Captain is technically a demotion, but the salary…compared to what I was already making, which wasn't peanuts, it felt like Jeff Bezos, Bill Gates money. The shock of it was like I was the one seated on Ol’ Sparky.
 
-I had thought it was just another death watch tour (death watch is a separate unit for inmates with an execution date). We have them surprisingly frequently. Most often we show higher-ups and politicians running tough-on-crime campaigns how the process works. That's what the lead up to murdering a man for murder is called. The process. The protocol. Their COD is still listed as homicide. 
+The day had begun normally enough with what I thought was just another death watch tour (death watch is a separate unit for inmates with an execution date). We hold them surprisingly frequently. Most often we show higher-ups and politicians running tough-on-crime campaigns how the process works. That's what the lead up to murdering a man for murder is called. The process. The protocol. And finally, the *procedure*. Their COD is still classified as a homicide.
 
-Barely a few minutes into the tour I was deeply uncomfortable. The questions were, well, I don't like to use this sort of language but they were fucking weird. A normal question would be related to maintaining security on the day of execution. This guy, whose name I don't recall…why don't I remember his name? Probably the shock. But he knew my last name was Reaper. Usually people do a double take, but Mr. X here seemed overeager to discuss it, practically salivating. He asked me my ethnic origins, if I had presided over any botched executions, and if so *how* botched? 
+This tour went wonky. Barely a few minutes in and I was deeply uncomfortable. The stranger's questions were, well, I don't like to use this sort of language but they were fucking weird. A normal question would be related to maintaining security on the day of execution. This guy, whose name I don't recall…why don't I remember his name? Probably the shock. But he sure knew my last name was Reaper. Usually people do a double take, but Mr. X here seemed overeager to discuss it, practically salivating. He asked me my ethnic origins, if I had presided over any botched executions, and if so *how* botched? 
 
-He took more than a passing interest in my feelings and coping mechanisms. He asked me how I went about hiring, which I answered almost greedily. This was my forte. The challenge, I explained, is that you have to find someone willing to end the life of another who was neither a sociopath nor a man with unshakable morals. The first type belong on the gurney themselves; the second type are likely to blow their brains out. My shpiel was practiced and I was even getting into the groove a bit when I noticed the visitor wore an even more manic expression. 
+He took more than a passing interest in my feelings and coping mechanisms. He asked me how I went about hiring. Now that I could answer readily. This was my forte. The challenge, I explained, is that you have to find someone willing to end the life of another who was neither a sociopath, nor a man with unshakable morals. The first type belongs on the gurney themselves; the second type are likely to blow their brains out. My shpiel was practiced and I was even getting into the groove a bit when I noticed the visitor wore an even more manic expression. 
 
 And then I felt it. Fear. A primal sense of revulsion I have only felt with the worst of the worst. The man who raped and cannibalized his own grandmother. The one who tortured his 8-year-old child to death for flushing his drugs. The guy who lit a gas station employee on fire when he refused service after the murderer's card declined. These were the men who triggered my lizard brain. Who I had no trouble shepherding from life to...after. I felt that fear with this strange agent who asked far too personal questions. 
 
@@ -34,9 +34,7 @@ And no door. The strange man led me to the doorless cube and told me to knock. �
 
 “What is written?”, I said, knocking lightly. *What the fuck was written?* 
 
-“That.” He pointed. The formey solid space now revealed a sleek, monochromatic hallway. “That,” he repeated, “is Death’s Door. Shortly after her imprisonment she informed staff of her complete control of who comes in, and who goes out. 
-
-Lady Death is not beholden to the laws of physics, though she is made vulnerable to containment when not in possession of her scythe. As you in particular would know, the machinery of death has not stopped and never will. However, in absence of her scythe, we hoped we could contain her long enough to change her views regarding certain universal laws. She has a rather liberal interpretation of the fabric of existence and has described herself as "a spirit of the law kind of gal". 
+“That.” He pointed. The formerly solid space now revealed a sleek, monochromatic hallway. “That,” he repeated, “is Death’s Door. This is Death’s prison. Obviously, Her capture has not stopped her from taking souls. However, in absence of her scythe, we hoped she was confined to this facility.”
 
 “Hoped? Past tense?”
 
