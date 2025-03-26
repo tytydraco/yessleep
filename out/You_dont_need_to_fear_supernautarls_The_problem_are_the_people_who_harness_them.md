@@ -1,6 +1,6 @@
 Chasey smiles at me while she playfully stirs her cocktail with her finger. I smile back. I know what she is doing, I’ve heard about the nail polishes, which change color to reveal drugs in your drink. But she has nothing to worry about. At least nothing like that.
 
-\-By the way. what are you studying? Sorry if you already said it, but I can’t remember. -she asks, looking deep into my eyes. She probably likes them. They are the only extra in my current form, green like the forest.
+\-By the way, what are you studying? Sorry if you already said it, but I can’t remember. -she asks, looking deep into my eyes. She probably likes them. They are the only extra in my current form, green like the forest.
 
 \-Informatics. It’s pretty boring, but at least it will give me a job. What about you?
 
@@ -74,7 +74,7 @@ For a moment, I switched back to a human form. Mark.
 
 Suddenly everything fell dark, as the doors of the barn closed behind me. I switched back, and I was able to see clearly in a moment. Will stepped toward me, whispering something. I leaned closer.
 
-\-Listen, quick, we only have minutes. I know ho to take off your necklace, but you have to trust me.
+\-Listen, quick, we only have minutes. I know how to take off your necklace, but you have to trust me.
 
 I froze. I didn’t even think about how he managed to escape. Warm hope rushed trough my body.
 

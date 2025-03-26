@@ -1,53 +1,31 @@
-The rain was relentless that night, hammering against the window of my office like it was trying to drown the world. My place above the bodega on 7th Avenue wasn’t much, but it had two things that mattered: privacy and character. It was a relic of a time before tech bro takeovers and corporate rebranding. Before everyone traded their souls for corner offices and company swag.
+The rain was relentless that night, hammering against the window of my office like it was trying to drown the world. My place above the bodega on 7th Avenue wasn’t much, but it had two things that mattered: privacy and character. It was a relic from before the tech bro takeover—before the city traded its soul for startup culture and slick rebranding.
 
-I was nursing a cup of coffee so bad it might have been brewed with gutter water when she walked in. Tall, poised, and wrapped in a trench coat that probably cost more than my monthly income. She didn’t bother with the formalities, just dropped a manila folder on my desk and gave me a look that could knock the wind out of you.
+I was nursing a cup of coffee so bad it could probably double as engine oil when she walked in. Tall, poised, and wrapped in a trench coat that probably cost more than my rent. She dropped a manila folder on my desk with the kind of grace that made it feel like a calculated move rather than an accident.
 
 "My husband’s missing," she said, her voice steady but strained. "He worked for Hyperion Dynamics. And I think they did something to him."
 
-"Hyperion Dynamics," I repeated, the name like acid in my mouth. I’d heard the stories: corporate overlords promising world-changing innovations while gutting lives behind closed doors. But missing executives? That was new.
+Hyperion Dynamics—the name alone made my skin crawl. A nonprofit think tank that claimed to be solving the world’s problems while leaving a trail of broken lives in its wake. Their motto was all about “empowering humanity,” but their boardroom was known as a battleground of unchecked egos and shadowy motives.
 
 
 
-Hyperion wasn’t a for-profit tech giant. It was a nonprofit think tank, the kind that claimed to be solving the world’s problems while quietly creating new ones. Their mission statement was all about "empowering humanity," but their boardroom was a breeding ground for unchecked egos and predatory behavior.
+Her husband, David, had been a lead researcher at Hyperion—a brilliant mind whose work in AI ethics had raised some eyebrows within the company. According to her, he had been growing increasingly paranoid in the weeks leading up to his disappearance, ranting about “the whispers” and “a choice he couldn’t make.” She showed me a photo: a gaunt man in his late thirties with kind eyes and a weary smile. The kind of guy who probably just wanted to make the world a little better but had stumbled into something much darker.
 
-Getting in wasn’t easy, but I wasn’t the kind to back down. A forged badge and some neotech tricks got me past the lobby guards. The deeper I went, the heavier the air felt—like the building itself was judging me for daring to intrude. Whispers began, faint at first but impossible to ignore. They echoed in my mind, fragmented words that weren’t my own.
+I took the case, and my first stop was Hyperion HQ. Getting past security took some finesse—false credentials, a neotech hacking tool, and a stolen keycard did the trick. The deeper I ventured into the building, the more I felt like I didn’t belong. The walls seemed to hum, almost breathing, as whispers brushed against my mind like cold fingers. My heart raced, but I pressed on.
 
-At the heart of the labyrinth was the boardroom. Marcela, Hyperion’s infamous CEO, sat at the head of the table. Her presence was magnetic and suffocating all at once. Around her, the managers chanted in unison. Their voices merged, distorted, inhuman. Their forms shimmered under the fluorescent lights—not quite human anymore. Not quite alive.
+At the center of the labyrinth was the boardroom. The lights flickered as I stepped inside, and there she was: Marcela, the enigmatic CEO. She was striking, her sharp features illuminated by the faint glow of the room’s holographic display. Around the table sat her senior staff, their forms flickering unnaturally. It was like looking through heat waves—human shapes warped and wrong.
 
-Marcela smiled like a predator sizing up prey. "Welcome, detective. You’re just in time to witness the future."
+Marcela smiled as if she had been expecting me. "Detective," she said, her voice smooth and commanding. "Welcome to the future."
 
+She gestured toward a large screen. On it was David—or what was left of him. He was strapped to a chair, his face pale and gaunt, eyes staring blankly ahead. Tendrils of light pulsed from a helmet on his head, connecting him to a swirling mass of data. The whispers grew louder.
 
-
-Marcela was a trans woman, and her journey to the top of Hyperion Dynamics had been anything but easy. She had fought tooth and nail to carve out her place in a world that seemed determined to erase her. But somewhere along the way, the fight had changed her. The whispers of the kototama had promised her power, control, and the ability to reshape the world in her image. And she had listened.
-
-Marcela wasn’t just a CEO. She was a puppet, a vessel for something ancient and hungry. The mid-level managers weren’t human anymore—they were creatures, their forms warped by greed and power. They fed on the souls of their subordinates, draining them dry to fuel their own twisted existence.
-
-"This is the future," Marcela continued, her eyes glowing with an unnatural light. "A world where the strong thrive and the weak are consumed. You should be honored to witness it."
+Marcela explained it with chilling detachment: David had discovered Hyperion’s true project—something they called “Resonance.” It wasn’t just about AI; it was about merging human consciousness with machine intelligence. David had tried to stop it, but they had silenced him, making him a part of the system he’d sought to dismantle.
 
 
 
-Among the managers, Miguel was the worst of them. He stormed through the office with the energy of a self-proclaimed emperor, his Napoleonic complex on full display. Always overcompensating, he barked orders to people twice as qualified and twice as experienced as him, using intimidation as his weapon of choice. Miguel was known for targeting consultants and employees—especially women—who’d given decades of their lives to the nonprofit, barely scraping by on wages that wouldn’t cover rent.
+I barely made it out alive. The boardroom erupted in chaos as I tried to free David, and the last thing I saw was Marcela’s unyielding smile as she whispered, “You can’t save him. You’ll only feed the system.”
 
-Miguel's power came from his toxic masculinity. He thrived on dominating others, crushing dissent under the guise of "strong leadership." Those who challenged him faced endless harassment, their contributions undermined and their reputations dragged through the mud. It wasn’t about efficiency or results—it was about control.
+I escaped with the manila folder clutched in my hand, but David was gone. His wife sat across from me in my office a week later, her eyes hollow as I told her everything. The truth didn’t set her free—it crushed her.
 
-Miguel had an enabler, Wei, who handled logistics with a quiet efficiency that masked deep-seated fear. Wei was loyal to Miguel, but not by choice. He kept his head down, afraid of the repercussions of speaking out. Together, they sabotaged projects, undermined employees, and twisted the nonprofit’s mission into something unrecognizable.
+But I wasn’t done. I’d seen the machine and the people who fed it. Hyperion wasn’t invincible, and the world needed to know its secrets. As long as I drew breath, I would fight to expose the horrors lurking behind those glass walls.
 
-And then there was Trish.
-
-Trish was the head of HR, the gatekeeper of complaints and the enforcer of silence. She was sharp, calculating, and utterly loyal to Marcela. Trish didn’t just ignore the reports of harassment and sabotage—she buried them. She turned victims into liabilities, framing their cries for help as "disruptions to team cohesion." Trish was the kind of person who could smile while signing off on someone’s termination, all in the name of "organizational efficiency."
-
-"HR is here to protect you," she’d say, her voice dripping with insincerity. But everyone knew the truth: HR wasn’t there to protect the employees. It was there to protect the company—and the predators who ran it.
-
-
-
-Mara, a junior analyst, was one of the few who hadn’t sold out. She told me about the "mentorship meetings" that always ended with closed doors and whispered threats. About the emails that vanished from inboxes and the ideas stolen by Miguel and his cronies. About the managers who thrived on exploitation, feeding off the desperation of those who were too invested in the mission to walk away.
-
-"They think they’re untouchable," Mara said, her voice trembling. "They think the rules don’t apply to them because they’re saving the world. But they’re not saving anyone. They’re destroying us."
-
-
-
-I barely escaped, but not before I saw the truth. Hyperion Dynamics wasn’t just a company. It was a gateway, a breeding ground for the creatures that thrived on humanity’s worst impulses. Marcela, Miguel, Trish, and their kind weren’t just destroying jobs—they were destroying humanity.
-
-The whispers still haunt me, echoing through my dreams. But I’m not done. If Marcela and her ilk want to rewrite the world, I’ll burn their script to the ground. The kototama and takemusuaiki are my weapons. Neotech is my edge. And I’ll fight, no matter the cost.
-
-Because the real horror isn’t the monsters. It’s the system that creates them—and the people who let it.
+Because the real horror wasn’t just the whispers or the monsters. It was the people who heard them and chose to listen.
