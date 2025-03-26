@@ -1,14 +1,14 @@
 I’ve never had much luck with love.
 
-Not for lack of interest, mind you; always wanted a family of my own. I just don’t think the good lord created me with romance at the forefront of their blueprint, though. Me on a date is like taking a sedan off-roading. Sure, it can be done, but it ain’t graceful, nor is it really the point of that particular vehicle, and most people don’t elect to give it a second try after the first. They lease out a jeep instead.
+Not for lack of interest, mind you; always wanted a family of my own. I just don’t think the good lord created me with romance at the forefront of their blueprint. Me on a date is like taking a sedan off-roading. Sure, it can be done, but it ain’t graceful, nor is it really the point of that particular vehicle, and most people don’t elect to give it a second try after the first. They lease out a jeep instead.
 
 A large part of it comes down to attraction. Simply put, I don’t think I'm most desirable bachelor.
 
 I’m bulky; not obese per se, but I’m not exactly chiseled, either. Closer to Dionysos than Adonis in terms of body frame. Not only that, but I’m not much of a conversationist. Even if I was born with a silver tongue, I wouldn’t have much to speak on. Never had much fascination with pop culture, music or cinema; topics that most folk are well-versed in that can help break the ice.
 
-No, my singular hobby has always been decidedly devoid of any and all sex-appeal, at least in my experience; woodworking.
+No, my singular hobby has always been decidedly devoid of any and all sex-appeal, at least in my experience: woodworking.
 
-What can I say? There’s just a certain satisfaction in handiwork that has always appealed to me. Not only that, but the act of creation can be meditative, like prayer. But unlike prayer, something actually comes of it in the end.
+What can I say? There’s just a certain satisfaction in handiwork that has always appealed to me. Not only that, but the act of creation can be meditative, like prayer. But unlike prayer, something actually comes of woodworking in the end.
 
 I suppose I appreciate the pursuit because it makes me feel useful, which is the best segue I can come up with to introduce Bella, the woman who sunk her canines into my back on the subway three weeks ago.
 
@@ -52,7 +52,7 @@ The pain was unreal, but somehow, the shock of it all was even worse. I didn’t
 
 Before I could even begin to process that statement, an explosive pain detonated in my shoulder blade. It felt like thousands of serrated pins swirling aimlessly through my flesh, eviscerating my brittle nerves until they were barely intact enough to cry out anymore. Honestly, I thought someone had shot me.
 
-I threw my hand around my back, looking to access the injury with my fingertips. There was something in the way, however. Whatever it was, the force of my movement broke through it with hardly any resistance, and my hand kept going until it crashed into something hot, sturdy, and pulsating.
+I threw my hand around my back, looking to assess the injury with my fingertips. There was something in the way, however. Whatever it was, the force of my movement broke through it with hardly any resistance, and my hand kept going until it crashed into something hot, sturdy, and pulsating.
 
 There was a muffled whimper, vocalizations vibrating uncomfortably against my back, and the pain lessened. When I spun around, my mind struggled to comprehend what I saw.
 
