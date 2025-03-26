@@ -202,4 +202,4 @@ A bunch of his belongings were gone, and on his bed he had left us a short, cryp
 
 **It's all my fault. I'm so sorry. I should have never** **left**.
 
-[Part 2.](https://www.reddit.com/r/nosleep/comments/1jjmwlx/do_you_believe_the_devil_is_back_part_2/)
+[Part 2.](https://www.reddit.com/r/Likeeyedid/comments/1jkb4nj/do_you_believe_the_devil_is_back_part_2/)
