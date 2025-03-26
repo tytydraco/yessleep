@@ -18,7 +18,7 @@ He hadn’t, but we’re not there yet. Going from warden of death row to captai
 
 A metric fuckton more money for less work? Fine by me.
 
-It all happened incredibly fast. Like I said, I had a death watch tour to conduct (death watch is a separate unit for inmates with an execution date). We have them surprisingly frequently. Most often we show higher-ups and politicians running tough-on-crime campaigns how the process works. That's what the lead up to murdering a man for murder is called. The process. The protocol. Finally, *the procedure*. This was all a favor to the living. The inmates' COD is still classified as homicide. "Judicial homicide", sure, but at the end of the day we still killed a guy for killing a guy. 
+It all happened incredibly fast. Like I said, I had a death watch tour to conduct (death watch is a separate unit for inmates with an execution date). We have them surprisingly frequently. Most often we show higher-ups and politicians running tough-on-crime campaigns how the process works. That's what the lead up to murdering a man for murder is called. The process. The protocol. Finally, *the procedure*. This was all a favor to the living. The inmates' CODs are still classified as homicide on their death certificates."Judicial homicide", sure, but at the end of the day we still killed a guy for killing a guy. 
 
 The tour was bizarre. Barely a few minutes in and I found myself deeply uncomfortable. The questions were, well, I don't like to use this sort of language but they were fucking weird. A normal question would be related to maintaining security on the day of execution. This guy, whose name I don't recall…why don't I remember his name? Probably the shock. But he knew my last name was Reaper. Usually people do a double take, but Mr. X here seemed overeager to discuss it, practically salivating. He asked me my ethnic origins, if I had presided over any botched executions, and if so *how* botched? 
 
@@ -32,9 +32,9 @@ I'm back home now. I'm trying to get to the point, I am. I just don't know if I 
 
 The strange man did not mean miles when he said layers. It turns out there really is a fucking multiverse. *A multiverse*. 
 
-30 layers from a pound-me-in-the-ass prison in Texas is another prison. A smooth black cube that reminded me vaguely of Borg. A utilitarian monument in the middle of a disturbing lavender-colored desert. There was no barbed wire fencing. No sniper tower. Just the blackest black; vanta black, the famous black pigment so dark the human brain sees a bottomless void. 
+30 layers from a pound-me-in-the-ass prison in Texas is another prison. A smooth black cube that reminded me vaguely of Borg. A utilitarian monument in the middle of a disturbing lavender-colored desert. There wasnnoqThes no barbed wire fencing. No sniper tower. Just the blackest black; vanta black, the famous black pigment so dark the human brain sees a bottomless void. 
 
-There were no doors or windows. The strange man led me to the doorless cube and told me to knock. “Sir, respectfully, are you fucking with me?” “Just knock. It's already written one way or the other.”
+There were no doors or windows. strange man led me to the doorless cube and told me to knock. “Sir, respectfully, are you fucking with me?” “Just knock. It's already written one way or the other.”
 
 “What is written?”, I said, knocking lightly. *What the fuck was written?* 
 
