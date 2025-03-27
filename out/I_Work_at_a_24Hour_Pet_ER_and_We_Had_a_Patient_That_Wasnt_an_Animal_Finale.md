@@ -309,7 +309,7 @@ The door splintered just as I dove. My teeth cracked against desert stone when I
 
 Something moved past me. Fast. Silent. Arms wrapped around my torso and dragged me away from the trailer. I heard the window slam shut behind me.
 
-Keeton’s voice roared from inside, a storm of curses and blasphemy. He screamed like a betrayed god, cornered and caged.
+Keeton’s voice roared from inside, a storm of curses and blasphemy. He screamed like a trapped coyote, cornered and caged.
 
 He’d sensed something was off, but it didn’t matter. His hunger had outpaced his instincts. Now he was trapped. The trailer groaned under the weight of his panic.
 
@@ -329,7 +329,7 @@ Inside the trailer, Keeton’s limbs thrashed. A hand burst through the kitchen 
 
 Joe stood nearby, rifle leveled, his breath slow and focused. The bullets he fired were ceremonial, silver-cast and marked with ash and pollen. Each one struck with meaning.
 
-Keeton screamed like something dying. His voice scraped against the trailer’s walls as flames began to rise from underneath. Black smoke licked upward, then billowed into the sky.
+Keeton screamed like something dying. His voice scraped against the trailer’s walls as flames began to rise from underneath.
 
 The tinder placed below had caught. Smoke coiled into the night sky, carrying something foul and wrong. The fire grew, hungry and bright, fed not only by gasoline but by intention. By design.
 
@@ -363,4 +363,4 @@ So much gone. So much taken.
 
 I used to believe in quiet deaths. Gentle ones. That was before Mutt. Before the laughing sickness that was Keeton.
 
-The world had gone still. No more chase. No more fire. No more road to burn through. Just the sound of my breath hitching, the dull ache in my limbs, and the weight of grief settling into my bones.
+The world had gone still. No more chase. No more fire. No more road to burn through. Just the sound of my breath hitching, the dull ache in my limbs, and the weight of deep grief settling into my bones.
