@@ -226,7 +226,7 @@ I jump at the call of my fake name, I didn’t expect to be included in the smal
 
 “Well, you see…About Gertrude,” We heard a rattle in the woods and looked into the forest as Andrew and Gertrude make their way back. 
 
-Jeremy gives us looks as though to say*, I didn’t say anything!*
+Jeremy gives us looks as though to say\*, I didn’t say anything!\*
 
 “We’re not being picked up early.” Charles huffed. 
 
@@ -241,3 +241,5 @@ Gertie sat next to me and looked strangely at Andrew.
 “I want to go home too!” Andrew said loudly. “I can’t wait to see my wife! And my children! And my grandchildren! They’re all so cute I could eat them up!” he smiled so broadly it freaked me out.
 
 *His eyes* I thought. *His smile doesn’t reach his eyes anymore…*
+
+[(Part2)](https://www.reddit.com/r/nosleep/comments/1jl5z63/theres_a_god_in_the_cave_and_its_not_yours_part2/)

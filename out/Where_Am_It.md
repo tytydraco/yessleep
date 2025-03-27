@@ -28,7 +28,7 @@ I tried meta-patterns of the meta-patterns, up as many levels as my formal skill
 
 But, then, at last, in a wild swing of desperation, I found something.  A syntax I’d never thought of before.
 
-I rushed to write it down, to finally capture maniacal pattern which eluded me up to now.  I programmed it into the computer, simulated the conditions which had been given to me, and slumped, exhausted and elated, into my chair as the predictions the model was making unfolded.
+I rushed to write it down, to finally capture this maniacal pattern which had eluded me up to now.  I programmed it into the computer, simulated the conditions which had been given to me, and slumped, exhausted and elated, into my chair as the predictions the model was making unfolded.
 
 The model was correct.  I had to push my capability to the limit, but nonetheless I had succeeded.
 
@@ -60,7 +60,7 @@ Now there was only the receiver and my notepad, the edge of chaos.  I feared ret
 
 At the thought that this planet was not only intelligent — it was *playing* with me.
 
-Unable to look at that receiver any longer, I jerked away from my station, preferring a seat against a corner on the floor.  My head throbbed, not painful, but profoundly tired, at the precipice of failure, of intellectual defeat.  For the first time, I’d actually considered giving up.  This was too hard.  On earth things are stable, hidden, elusive, but ultimately driven by a design buried in the space between its parts, in the rhythm of its process — but not here.
+Unable to look at that receiver any longer, I jerked away from my station, preferring a seat against a corner on the floor.  My head throbbed, not painful, but profoundly tired, at the precipice of failure, of intellectual defeat.  For the first time, I’d actually considered giving up.  This was too hard.  On earth things are stable — hidden, elusive, but ultimately driven by a design buried in the space between its parts, in the rhythm of its process — but not here.
 
 Here, the design itself was chaos, the hidden pattern not a pattern at all, but…
 
@@ -92,7 +92,7 @@ Where is…?
 
 I fall to the ground, my head buzzing, the dissonance unbearable.
 
-I keep trying to remember where I am, what’s happening.  I grasp in the depths of memory, but nothing, like clutching at the air.
+I keep trying to remember where I am, what’s happening.  I grasp in the depths of memory, but there’s nothing, like I’m clutching blindly at the air.
 
 The moment a thought emerges, it is gone.  Just like that.  No patterns, no coherence.
 
