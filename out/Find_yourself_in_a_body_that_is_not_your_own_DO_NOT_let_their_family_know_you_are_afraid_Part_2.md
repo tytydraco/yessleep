@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1ix490h/find_yourself_in_a_body_that_is_not_your_own_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1ix490h/find_yourself_in_a_body_that_is_not_your_own_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I appreciate everyone’s feedback regarding this whole ordeal. I will admit, it feels nice having validation after all this time. I’ve taken some time to really process what happened after that night. There’s a lot to cover, so I’m just going to dive in.
 

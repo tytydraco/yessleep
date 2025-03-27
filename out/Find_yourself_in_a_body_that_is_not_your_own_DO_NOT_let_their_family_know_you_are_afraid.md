@@ -1,8 +1,8 @@
-[Part II](https://www.reddit.com/r/nosleep/comments/1iypnm5/find_yourself_in_a_body_that_is_not_your_own_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1iypnm5/find_yourself_in_a_body_that_is_not_your_own_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-[Part III](https://www.reddit.com/r/nosleep/comments/1j3ji4s/find_yourself_in_a_body_that_is_not_your_own_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 3](https://www.reddit.com/r/nosleep/comments/1j3ji4s/find_yourself_in_a_body_that_is_not_your_own_do/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-[Part IV](https://www.reddit.com/r/nosleep/s/QZj7eEZgjg)
+[Part 4](https://www.reddit.com/r/nosleep/s/QZj7eEZgjg)
 
  
 I just want to start by saying I am sorry. If you find yourself in a situation like what I am about to describe, I can’t offer much comfort. Only a resolution. You can skip to the end if you feel so inclined. But I don’t think you’ll be able to stomach it. Not yet. I need you to see what I’ve seen to understand.
