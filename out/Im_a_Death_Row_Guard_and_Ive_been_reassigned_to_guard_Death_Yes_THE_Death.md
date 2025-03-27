@@ -32,9 +32,9 @@ I'm back home now. I'm trying to get to the point, I am. I just don't know if I 
 
 The strange man did not mean miles when he said layers. It turns out there really is a fucking multiverse. *A multiverse*. 
 
-30 layers from a pound-me-in-the-ass prison in Texas is another prison. A smooth black cube that reminded me vaguely of Borg. A utilitarian monument in the middle of a disturbing lavender-colored desert. There wasnnoqThes no barbed wire fencing. No sniper tower. Just the blackest black; vanta black, the famous black pigment so dark the human brain sees a bottomless void. 
+30 layers from a pound-me-in-the-ass prison in Texas is another prison. A smooth black cube that reminded me vaguely of Borg. A utilitarian monument in the middle of a disturbing lavender-colored desert. There was no barbed wire fencing. No sniper tower. Just the blackest black; vanta black, the famous black pigment so dark the human brain sees a bottomless void. 
 
-There were no doors or windows. strange man led me to the doorless cube and told me to knock. “Sir, respectfully, are you fucking with me?” “Just knock. It's already written one way or the other.”
+There were no doors or windows. The strange man led me to the doorless cube and told me to knock. “Sir, respectfully, are you fucking with me?” “Just knock. It's already written one way or the other.”
 
 “What is written?”, I said, knocking lightly. *What the fuck was written?* 
 
