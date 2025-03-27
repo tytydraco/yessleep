@@ -50,3 +50,7 @@ Any advice would be appreciated. I'm already planning to pick up more cameras.
 
 I'm about to head to bed, so I will update this thread in the morning if we capture anything!
 
+
+
+[Part 2] - https://www.reddit.com/r/nosleep/s/dpquSezwuY
+
