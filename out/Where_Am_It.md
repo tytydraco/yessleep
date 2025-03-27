@@ -2,7 +2,7 @@ I was sent to this planet on a purely exploratory mission, chartered in response
 
 With a background in astrophysics and cognitive science, I was chosen and sent off to this remote corner of our universe to determine exactly what the nature of this intelligence was.
 
-When I first arrived, stepping off the shuttle into a grey-green atmosphere, rocky, barren, cold, I noticed before anything else a strange tingling sensation at the forefront of my brain — mild, but undeniably present, causing little more than a slight numbing and and trivial disorientation.
+When I first arrived, stepping off the shuttle into a grey-green atmosphere, rocky, barren, cold, I noticed before anything else a strange tingling sensation at the forefront of my brain — mild, but undeniably present, causing little more than a slight numbing and trivial disorientation.
 
 I moved forward, fully suited, waiting for the nano-componentry to assemble into a pressurized laboratory from which I could begin my investigation.
 

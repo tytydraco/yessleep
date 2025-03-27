@@ -247,6 +247,12 @@ I sit across from him, then he asks me about the past four months. I answer all 
 “You may not speak with any individual but me regarding your experience. I will keep in contact with you. When you reunite with your loved ones or teachers, tell them you were kidnapped and do not wish to speak.”
 
 
+"W-what happened...?" I asked.
+
+
+"I am not at liberty to disclose that information," He said.
+
+
 As I left the hospital, I reached into my pocket and pulled out the hair I picked off of that bathroom man's head. I stuffed it back in, hoping I could use it to prove something someday.
 
 
