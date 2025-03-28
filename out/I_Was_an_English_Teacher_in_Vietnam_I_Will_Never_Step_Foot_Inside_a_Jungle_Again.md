@@ -56,7 +56,7 @@ Aaron and his friends must have received this ridicule a lot, because rather tha
 
 ‘Well, that’s why we’re here’ he says. ‘We’re paranormal investigators and filmmakers – and as far as we know, no one has tried to solve the mystery of the Vietnam Triangle. We’re in Biển Hứa Hẹn to interview locals on what they know of the disappearances, and we’ll follow any leads from there.’ 
 
-Although I thought this all to be a little cooky, I tried to show a little respect and interest in what these guys did for a living – but not Tyler, Chris or Brodie. They were clearly trying to have fun at Aaron’s expense.  
+Although I thought this all to be a little kooky, I tried to show a little respect and interest in what these guys did for a living – but not Tyler, Chris or Brodie. They were clearly trying to have fun at Aaron’s expense.  
 
 ‘So, what did the locals say? Is there a Vietnamese Loch Ness Monster we haven’t heard of?’  
 
