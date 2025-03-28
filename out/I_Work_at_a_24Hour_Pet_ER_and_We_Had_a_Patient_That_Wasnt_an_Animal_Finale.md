@@ -34,7 +34,7 @@ I crossed below the blanket of light cast by the overhang shining down on pumps.
 
 I stopped walking when I turned over and saw that the semi truck was empty. A wrongness crashed down around me. An all encompassing feeling of doom. 
 
-I surrendered to the feeling of doom, I didn’t walk towards the truck, didn’t go to investigate. I had a feeling that’s what Keeton wanted me to do. What he was waiting for me to do. 
+I surrendered to the feeling, I didn’t walk towards the truck, didn’t go to investigate. I had an idea that’s what Keeton wanted me to do. What he was waiting for me to do. 
 
 I kept my eye on the semi’s cab, inching backwards with a bag in one hand, a coffee in the other, purse slung over one shoulder. My breath sounded pitched in the darkness. Labored and heavy. 
 
@@ -78,11 +78,11 @@ A beat of silence.
 
 “We’re setting up now,” he said. “Called in a medicine man named Desbah. He knows that old stuff. Said what you told me last time was a bad shadow. Said that thing you shot might’ve been a mask. Not a real dog.”
 
-“It wasn’t,” I said, my voice wavering just a little.
+“It wasn’t a dog.” I said, my voice wavering just a hint.
 
 Joe exhaled through his nose. I could picture him standing outside his truck, wind tugging at his sleeves. Oiled gator-skin boots kicking at the weeds.
 
-“We set the circle near the arroyos. You’ll see it before the road curves west. Cedar, ash, pollen. Desbah’s been blessing it himself. That thing steps through, it’ll feel it. Might even stop it. Might not.”
+“We set the line near the arroyos. You’ll see it before the road curves west. Cedar, ash, pollen. Desbah’s been blessing it himself. That thing steps through, it’ll feel it. Might even stop it.”
 
 “I’ll drive through. I’ll lead it in.”
 
@@ -93,7 +93,6 @@ He paused.
 “No,” I said. “I’m not sure of anything. Except it’s not done with me.”
 
 His voice dropped.
-
 
 “Alison, if that doesn’t work, we’ve got a backup plan. If it follows past the ridge, lead it to the trailer up on the hill. It’s mine. Go in, make sure it follows, then slip out the bathroom window and shut it behind you. Locks from the outside. You won’t see anyone, but we’ll be in position. My cousins are posted nearby. Desbah will be with us.”
 
@@ -261,9 +260,9 @@ I focused the headlights on him. His thrashing slowed, then stilled. My tires th
 
 I stomped the gas, aiming to crush him beneath the weight of the truck. But he leapt at the last second, sprawling across the roof and smashing through the back windshield in a burst of glass.
 
-I slammed it into reverse. One tire crunched over his leg. For the first time, I saw pain in Keeton’s eyes. I clenched my teeth until my jaw ached.
+I flung the car into reverse. One tire crunched over his leg. For the first time, I saw pain in Keeton’s eyes in the rearview. I clenched my teeth until my jaw ached.
 
-Keeton clung to the frame, screeching. He yanked and pulled, his foot pinned like a plank beneath the tire. I slammed into drive. He flew backward, his limb bending and snapping like a brittle branch.
+Keeton clung to the frame, screeching. He yanked and pulled, his foot pinned like a plank beneath the tire. I slammed into drive. He flew backwards off of the car, his limb bending and snapping like a brittle branch.
 
 As I climbed toward the hill, I saw him rise again on all fours. One leg was twisted into broken segments, the foot dragging unnaturally across the dirt.
 
@@ -307,25 +306,21 @@ Pain flared along my back. The wound on my calf throbbed. Keeton was almost on m
 
 The door splintered just as I dove. My teeth cracked against desert stone when I hit the ground. A burst of white light exploded behind my eyes, and blood filled my nose, hot and thick. 
 
-Something moved past me. Fast. Silent. Arms wrapped around my torso and dragged me away from the trailer. I heard the window slam shut behind me.
+Something moved past me. Fast. Silent. I heard the window slam shut. Arms wrapped around my torso and dragged me away from the trailer, around to the front by my car.
 
 Keeton’s voice roared from inside, a storm of curses and blasphemy. He screamed like a trapped coyote, cornered and caged.
 
-He’d sensed something was off, but it didn’t matter. His hunger had outpaced his instincts. Now he was trapped. The trailer groaned under the weight of his panic.
+He’d sensed something was off, but he couldn’t help himself. His bloodlust had outpaced his instincts. Now he was trapped.
 
-I turned my face upward. The sky above the basin cracked with heat lightning. The air buzzed with insect calls and owl cries. The desert had awakened, and it seemed to know what was coming.
-
-Keeton had sensed something was off when he’d sniffed the air earlier, but couldn’t help himself. The bloodlust was stronger than the fear. The trailer rocked under the weight of his rage.
-
-Above us, the sky cracked in silence. Purple veins crawled across the clouds. The desert answered with the cries of night creatures, all stirred by something old. Something sacred.
+I turned my face upward. The sky above the basin cracked with heat lightning. Purple veins crawled across the clouds. The air buzzed with insect calls and owl cries. The desert had awakened, and it seemed to know what was coming.
 
 A man I didn’t recognize moved past me, wearing a bandolier of bundled sage and carrying a rawhide pouch that smelled of cedar and cornmeal. He approached the trailer with quiet purpose, opened my truck door, and retrieved the bundle of Mutt’s ashes and the shrouded head of Dr. Harkham. With steady precision, he placed them both through a window into the trailer.
 
 Another man knelt in the dirt near the rear axle. An elder in a long shirt embroidered with turquoise beads and white ochre. He began to sing in a language I didn’t understand. The words were low and heavy, his voice rolling like wind through canyon crests. He poured corn pollen in a slow arc around the trailer, his movements deliberate and unwavering.
 
-The others joined in. Their chant rose from the earth like black smoke from the trailer itself. The song was older than Keeton. Older than the desert. Then came the drumbeat, deep and rhythmic. A taut deerhide stretched over a cedar frame, struck in time with the chanting.
+The others joined in. Their chant rose from the earth like the black smoke from the trailer. The song was older than Keeton. Older than the desert. Then came the drumbeat, deep and rhythmic. A taut deerhide stretched over a cedar frame, struck in time with the chanting.
 
-Inside the trailer, Keeton’s limbs thrashed. A hand burst through the kitchen window, blistered and cracking. His skin was changing, splitting, leaking. The trailer groaned beneath the force.
+Inside the trailer, Keeton’s limbs thrashed. A hand burst through the kitchen window, blistered and cracking. His skin was changing, splitting, leaking.
 
 Joe stood nearby, rifle leveled, his breath slow and focused. The bullets he fired were ceremonial, silver-cast and marked with ash and pollen. Each one struck with meaning.
 

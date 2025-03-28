@@ -6,15 +6,15 @@ I suppose the best place to start is about 2 month ago. 
 
 
 
-I had finally finished moving into my new place, it was small but it was better than rotting barracks surrounded by 18 other delta force meatheads. I was alone in that crowd, a former French Foreign Legion “tourist.” of the 3rd infantry regiment, and was the only one who maintained some semblance of a sense of humor. I’m on a tangent, apologies. Vermont wasn’t my first pick, I’d much rather be sipping my brandie on the balcony of a cabin in Alaska, even if the visitor at the foot of my bed nightly was still included. But, it was close to family. And again, at least is not some where completely without hunting opportunities like fucking California.  
+I had finally finished moving into my new place, it was small but it was better than rotting barracks surrounded by 18 other delta force meatheads. I was alone in that crowd, a former French Foreign Legion “tourist.” of the 3rd infantry regiment, and was the only one who maintained some semblance of a sense of humor. I’m on a tangent, apologies. Vermont wasn’t my first pick, I’d much rather be sipping my brandy on the balcony of a cabin in Alaska, even if the visitor at the foot of my bed nightly was still included. But, it was close to family. And, then again at least is not some where completely without hunting opportunities like fucking California.  
 
 
 
-I digress. My brother, bless his heart, tried helping me get the moving process hurried along but he ain’t used to the prosthetic yet and so I had to take it on alone. I guess the creature had some manner of patience because only after all my sit was comfortably moved in did he make his presence known. In high sight, the knocks coming from the closet were likely the entity’s doing and those began a month before the fingers first showed up. 
+I digress. My brother, bless his heart, tried helping me get the moving process hurried along but he ain’t used to the prosthetic yet and so I had to take it on alone. I guess the creature had some manner of patience because only after all my shit was comfortably moved in did he make his presence known. In high sight, the knocks coming from the closet were likely the entity’s doing and those began a month before the fingers first showed up. 
 
 
 
-Each night, while the moon laid still, the lunar monolith reflecting solar rays to drip feed light into my room, the tapping would start. *Tap tap tap.* Three rhythmic taps muffed by the sliding oak closet door and that was all. Three and done. Like someone knocking, waiting for the door to be opened and invited in, but giving up quickly. A week later the knock now came in a pair: *tap tap tap… tap tap tap.* This is where I started to get tickled by a bit of concern. Three taps at the same time of night, everynight wasn’t of worry, I thought it was the water heater or another piece of cheaply constructed equipment accumulating in some way. But these taps were more deliberate, desperate. Pining to enter. 
+Each night, while the moon laid still, the lunar monolith reflecting solar rays to drip feed light into my room, the tapping would start. *Tap tap tap.* Three rhythmic taps muffed by the sliding oak closet door and that was all. Three and done. Like someone knocking, waiting for the door to be opened and invited in, but giving up quickly. A week later the knock now came in a pair: *tap tap tap… tap tap tap.* This is where I started to get tickled by a bit of concern. Three taps at the same time of night, everynight wasn’t of worry, I thought it was the water heater or another piece of cheaply constructed equipment actuating in some way. But these taps were more deliberate, desperate. Pining to enter. 
 
 
 
@@ -26,7 +26,7 @@ I sat up, unable to sleep. Another week passed and skipping straight passed thre
 
 
 
-Hollow darkness hung calmly. I flicked the light switch and cleared the closet swiftly. I signed in confusion. I had no mental ailments, every airhead they had said so, but still, it was hard to not question my own sanity. As I turned off the light I jumped, something brushed past my feet. The feeling was like standing in a flow of snakes in January. Something frigid and slithering. It flowed over my feet and underneath my bed. I clicked on the flashlight mounted on the bottom of the Sig and searched the ground. Nothing. 
+Hollow darkness hung calmly. I flicked the light switch and cleared the closet swiftly. I sighed in confusion. I had no mental ailments, every airhead they had said so, but still, it was hard to not question my own sanity. As I turned off the light I jumped, something brushed past my feet. The feeling was like standing in a flow of snakes in January. Something frigid and slithering. It flowed over my feet and underneath my bed. I clicked on the flashlight mounted on the bottom of the Sig and searched the ground. Nothing. 
 
 
 
@@ -66,7 +66,7 @@ We hauled out shit through the woods and made it up into the nook with little mo
 
 
 
-I switched on the safety and stew in the silence of the nook, watching that book through my binoculars. Still as a fucking statue.
+I switched on the safety and stewed in the silence of the nook, watching that buck through my binoculars. Still as a fucking statue.
 
 
 

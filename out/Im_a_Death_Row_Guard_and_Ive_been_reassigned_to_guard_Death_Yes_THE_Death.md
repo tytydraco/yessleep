@@ -40,7 +40,7 @@ I'm back home now. I'm trying to get to the point, I am. I just don't know if I 
 
 The strange man did not mean miles when he said tiers. It turns out there really is a fucking multiverse. *A multiverse*. He compared it to a cake with infinite tiers, then told me it wasn't the time to get into the technicalities of tier jumping. That was fine by me. 
 
-30 tiers from a pound-me-in-the-ass prison in Texas is another prison in a barren purple landscape with a green tinted sky you see sometimes in tornado season. There were no features except a giant, smooth black cube that reminded me vaguely of Borg. A utilitarian monument in the middle of a disturbing lavender-colored desert. I couldn't help but notice there was no barbed wire fencing. No sniper tower. Just the blackest black; vanta black, the famous black pigment so dark the human brain sees a bottomless void. It looked like an art installation. I wondered wildly if I was at Burning Man and this was all part of an elaborate ruse.
+30 tiers from a pound-me-in-the-ass prison in Texas is another prison in a barren landscape with a green tinted sky you see sometimes in tornado season. There were no features except a giant, smooth black cube that reminded me vaguely of Borg. A utilitarian monument in the middle of a disturbing lavender-colored desert. I couldn't help but notice there was no barbed wire fencing. No sniper tower. Just the blackest black; vanta black, the famous black pigment so dark the human brain sees a bottomless void. It looked like an art installation. I wondered wildly if I was at Burning Man and this was all part of an elaborate ruse.
 
 The cube had no doors or windows. The strange man led me to the doorless, windowless cube and told me to knock. “Sir, respectfully, are you fucking with me?” “Just knock. It's already written one way or the other.”
 
@@ -50,7 +50,7 @@ The cube had no doors or windows. The strange man led me to the doorless, window
 
 “Hoped? Past tense?”
 
-Yes. Death has made it clear that she can and will leave when she feels like a change of scenery. She just likes it here. She is ancient, and this is new.  She is the shot caller of her own reality show. When she grows bored, she will access the presently unknown tier that holds her cloak. While the cloak appears to be normally sized, small if anything, the interior is capable of holding all souls living and dead from all universes, and the universes.
+Yes. Death has made it clear that she can and will leave when she feels like a change of scenery. She just likes it here. She is ancient, and this is new.  She is the shot caller of her own reality show. When she grows bored, she will access the presently unknown tier that holds her cloak. While the cloak appears to be normally sized, small if anything, the interior is capable of holding all souls living and dead from all universes.
 
 She has informed us that once she has the cloak, there will be no stopping her taking back the scythe, at which point she will trigger a mass extinction event. When asked why she doesn't just get it over with, she simply responded, “Because it isn't time. My father is Time and one day I will take Time, too. As long as Time lives, so does Man. But Time’s time will be up, and the era of Man will die with my father. Until then, I will require staff. Bring me the Reaper."
 
