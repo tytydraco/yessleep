@@ -38,7 +38,7 @@ Sweat beaded on my forehead. More nervous dewdrops appeared every additional sec
 
 I lost control, and when my head started involuntarily tilting towards my feet, I saw the shadow-wreathed intruder turn and sprint away. My head shot up, the loud thumping of a hasty retreat becoming more distant as they raced through the first-floor hallway.
 
-*“****Hey!****”* I shouted after them, apparently at a loss for anything better to say. Once the word exploded from my lips, I felt my palm finally land on the handle of the bat. It was much deeper than I anticipated.
+*“****Hey!****”* I shouted after them, apparently at a loss for anything better to say. Once the word erupted from my lips, I felt my palm finally land on the handle of the bat. It was much deeper than I anticipated.
 
 As soon as I had pulled the weapon out from under the bed, I was rushing after the nameless figure.
 
@@ -78,7 +78,7 @@ I furrowed my brow and looked down at my hands.
 
 *Where the hell did the bat go?*
 
-I didn't remember dropping it, but the concern didn’t last. After a few seconds, I shrugged and started walking again. Figured I left it somewhere upstairs and that I could find it in the morning. Which, to reiterate, was a decision wholly detached from reality. As far as I knew, there was still some stranger skulking around my home with unknown intent.
+I couldn’t recall dropping it, but the concern didn’t last. After a few seconds, I shrugged and started walking again. Figured I left it somewhere upstairs and that I could find it in the morning. Which, to reiterate, was a decision wholly detached from reality. As far as I knew, there was still some stranger skulking around my home with unknown intent.
 
 The idea of *dealing with it in the morning* stirred something within me, though. As I proceeded down the unlit hall, all of those other questions, the ones from before I noticed the figure in the doorway, began gurgling back up to the surface.
 
@@ -142,7 +142,9 @@ As soon as I was alone, I rolled out from under the bed to discover that I was n
 
 Against all logic, I wasn’t concerned - I was drowsy. I knew I should lie down and fall asleep. I was aware that it was in my best interest to start the cycle all over again. But before I could, I noticed something outside my window. Something new. Something that hadn’t been there when I woke up the first time.
 
-I don’t know if the pilgrim intended to wrench me from my trance when he engraved those cryptic symbols on the tree right outside my bedroom window. Maybe it was just a coincidence. He’d drawn it pretty much everywhere: Lovecraftian graffiti scrawled across every available surface in the abandoned town.
+I don’t know if the pilgrim intended to wrench me from my trance when he engraved those cryptic symbols into tree right outside my bedroom window, on his way up the mountain to pay tribute to the thing that caused all of this. Maybe it was just a coincidence. He’d drawn it pretty much everywhere: Lovecraftian graffiti scrawled across every available surface in the abandoned town.
+
+Or maybe he could sense my trance: the circular motion that was warding off the change that had killed everyone else. Maybe he knew seeing those images would awaken me.
 
 Once my eyes traced those jagged edges, everything seemed to snap back into place. I was finally awake and truly alone in my house. The perpetual stage-play had come to a close.
 
@@ -180,7 +182,7 @@ Now that I’m out of my dormancy, he told me I’d start to change, too. He sai
 
 I can see the other patrons looking at me. Shocked, horrified stares.
 
-Need to find somewhere else to finish this.
+Need to find somewhere else to finish this. Once I’m safe, I’ll fill in the rest of the story: the pilgrim, the change, the thing we found under the soil that caused this. All of it.
 
 In the meantime, if you come across a forest where the tops of the trees are curling towards the ground and growing into themselves, and it smells of sugar mixed with blood, or lavender mixed with sulfur, and the atmosphere feels dense and granular, dragging against your skin as you move through it:
 
