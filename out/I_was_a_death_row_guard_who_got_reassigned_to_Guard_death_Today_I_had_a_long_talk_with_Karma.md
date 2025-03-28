@@ -7,7 +7,7 @@ Slightly calmer, I picked up a pen to take notes (a bic, thank God. Last thing I
 Extraordinary inmates require extraordinary protocol. I’ll try to make it short and sweet.
 
 DO NOT ATTEMPT TO ESCAPE. DO NOT KNOCK ON WALL INCESSANTLY, HOPING FOR A DOOR TO OPEN. YOUR DAY ENDS AT 5PM, A DOOR WILL OPEN (SOMEWHERE). 
-YOU WILL PROBABLY FIND IT. IF YOU DONT, EXPECT TO WANDER THE HALLS FOR MONTHS YEARS. TAKE HEART, SHE HAS NOT YET PERMANENTLY ABANDONED ANYONE. 
+YOU WILL PROBABLY FIND IT. IF YOU DONT, EXPECT TO WANDER THE HALLS FOR MONTHS OR YEARS. TAKE HEART, SHE HAS NOT YET PERMANENTLY ABANDONED ANYONE. 
 
 Death has total control of all mechanical processes in the facility. She has been relatively liberal with privileges, but beware of taking advantage–she offends easily and will proceed to what she refers to as a “clap back” that will be significantly unpleasant and cost the organization precious resources while you recover in our infirmary.
 
@@ -70,7 +70,7 @@ I stepped in. “Well, these weirdos seem to think I'm an ok guy, and whatever s
 
 Again, terror.
 
-*I*, unlike Justice, see nuance. I saw what Colton did to your daughter. I know you don't like to hear this but it's important, he killed her slow, choked her with her own lit Christmas lights.” It took him singing two full Christmas songs before she died. Sleigh Ride and Little Drummer Boy.
+"*I*, unlike Justice, see nuance. I saw what Colton did to your daughter. I know you don't like to hear this but it's important, he killed her slow, choked her with her own lit Christmas lights.” It took him singing two full Christmas songs before she died. Sleigh Ride and Little Drummer Boy."
 
 “STOP.”
 
