@@ -46,4 +46,4 @@ I turned around, my stomach twisting in knots, but the bathroom door was closed.
 
 It wasn’t stopping.
 
-And the mirror on the other side of the door—*it wasn’t empty*. It was waiting for me to return.
+And the mirror on the other side of the door—*it wasn’t empty*. It was waiting for me to return.                                                                                                                                                 
