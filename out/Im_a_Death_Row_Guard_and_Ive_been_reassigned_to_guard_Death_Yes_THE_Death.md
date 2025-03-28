@@ -89,3 +89,5 @@ I opened the heavy book. Page 1, chapter 1.
 “Surviving Inmate 00:00 - Tips and Tricks” 
 
 Fuck. 
+
+Next: https://www.reddit.com/r/nosleep/comments/1jlk7dn/i_was_a_death_row_guard_who_got_reassigned_to/
