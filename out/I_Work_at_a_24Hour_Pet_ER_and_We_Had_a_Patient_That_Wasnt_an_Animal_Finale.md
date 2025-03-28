@@ -332,7 +332,7 @@ Keeton howled as the medicine circle tightened around him. His bleeding eyes gle
 
 The chanting never stopped. Even when the trailer began to cave inward. Even when the screams turned wet and animal. The fire consumed. The wind shifted.
 
-I watched Keeton stop fighting. I saw his flesh pock, blister, rupture, and burn. He looked at me through the window, the same way Mutt had. With those vacant, unreadable eyes.
+I watched Keeton stop fighting. I saw his flesh pock, blister, rupture, and burn. He looked at me through the window, the same way Mutt had. With those vacant, unreadable eyes. Keeton sucked up lungfulls of empty breath.
 
 Joe watched his home burn to embers. For me. There wasn’t a trace of regret in his expression. Only that same ruthless, focused anger.
 
