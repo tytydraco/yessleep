@@ -7,10 +7,9 @@ Slightly calmer, I picked up a pen to take notes (a bic, thank God. Last thing I
 Extraordinary inmates require extraordinary protocol. I’ll try to make it short and sweet.
 
 DO NOT ATTEMPT TO ESCAPE. DO NOT KNOCK ON WALL INCESSANTLY, HOPING FOR A DOOR TO OPEN. YOUR DAY ENDS AT 5PM, A DOOR WILL OPEN (SOMEWHERE). 
-
 YOU WILL PROBABLY FIND IT.
 
-Death has total control of all mechanical processes in the facility. She has been relatively liberal with privileges, but beware of taking advantage–she offends easily and will proceed to what she refers to as a “clap back” that will be significantly unpleasant and cost precious resources while you recover in our infirmary.
+Death has total control of all mechanical processes in the facility. She has been relatively liberal with privileges, but beware of taking advantage–she offends easily and will proceed to what she refers to as a “clap back” that will be significantly unpleasant and cost the organization precious resources while you recover in our infirmary.
 
 To be fair, Death has supernaturally sensitive hearing. You are just annoying her with endless knocking. Know that it is not truly endless. She ends it. On a good day, she’ll kill you. On a bad day, she’ll stick you in a liminal space until you starve or lose the will to live while knocks from nowhere surround you for the rest of your days. 
 
@@ -22,7 +21,7 @@ OK? Ffs the last time that happened we got covid. Before that, the nuclear facto
 
 ADDRESS HER AS LADY
 
-Though she is known to use modern slang (thank the gods the “yolo” phase is over), she also shifts into what is believed to be an amalgamation of all human, animal, and non-human languages past and present. She appreciates old-fashioned courtesy. So call her Lady for the best chance at a conversation in English. 
+Though she is known to use modern slang (thank the gods the “yolo” phase is over), she also shifts into what is believed to be an amalgamation of all human, animal, and non-human languages past and present. She appreciates old-fashioned courtesy. So call her Lady for the best chance at a conversation in English, as well as your continued existence. 
 
 
 NO MATTER HOW TEMPTED DO NOT KISS DEATH. THAT'S JUST OBVIOUS.
@@ -34,8 +33,10 @@ I put down the bic, shaking my sore wrist.
 
 There was a knock and a door existed itself. Then a voice, “little pig, little pig, let me in”. I almost peed my pants. Hey, I haven't even met this woman who apparently does whatever the fuck she wants and kills when her podcast is interrupted.
 
-I kept my expression neutral. The girl in the door looked reminiscent of Quinn from Daria. Silky blonde hair my wife would call Alicia Silverstone in Clueless hair. “Moves like a dream. Probably always smells like roses”.  She had a lightly tanned face with a pinched nose, lithe
-but chesty, perfectly lipsticked lips, and a hot pink curve hugging uniform that did not meet dress code standards. In place of an inmate number was a happy face. I don't know how, but the happy face looked smug. No, this isn't going anywhere icky. I immediately saw her as someone just like my daughter's friends trying to test boundaries. This wasn't the Lady. This was Karma. 
+I kept my expression neutral. The girl in the door looked reminiscent of Quinn from Daria. Silky blonde hair my wife would call Alicia Silverstone in Clueless hair. “Moves like a dream. Probably always smells like roses”. White with a lightly tanned--no, sunkissed--face a d a pinched nose, lithe
+but chesty, perfectly lipsticked lips that curled like she smelled something bad, and a hot pink, curve hugging uniform that did not meet dress code standards. In place of an inmate number was a happy face over her right pocket. I don't know how, but the happy face looked smug. 
+
+She did not intimidate me in the least. She reminded me of my daughter's "popular" friends, the ones who she tried to impress but more frequently wound up in tears. This wasn't death. This was Karma. 
 
 I stood up, offering my hand to shake. She pinched my ass. I gasped. “Miss! You are a minor! And I am a happily married man”! 
 
@@ -43,13 +44,13 @@ Her eyes widened and she begun to laugh, not with me but at me. Like it was the 
 
 “Lady Karma?”
 
-“Just Karma is fine. Or Carme. Or Nemesis. Becky with the good hair. Regina George. But most people go by Karma. On Wednesdays, we wear pink. 
+“Just Karma is fine. Or Carme. Or Nemesis. Becky with the good hair. Regina George. Heather. The Head Cheerleader. Lucy Van Pelt. But most people go by Karma. She looked at me with a disagreeable expression. On Wednesdays, we wear pink. Guess you didn't get the memo."
 
 “Listen Shep, you've been a challenge for me.”
 
 “Why does everyone know my name?”
 
-”Oh. Sorry, Wilbur. You're one fine pig.”
+”Oh. Sorry, Wilbur. It's just that you're one fine pig.”
 
 “Stop.”
 
@@ -71,21 +72,23 @@ I stepped in. “Well, these weirdos seem to think I'm an ok guy, and whatever s
 
 Again, terror.
 
-*I*, unlike Justice, see nuance. I saw what Colton did to your daughter. I know you don't like to hear this but it's important, he killed her slow, with her own Christmas lights.”
+*I*, unlike Justice, see nuance. I saw what Colton did to your daughter. I know you don't like to hear this but it's important, he killed her slow, choked her with her own lit Christmas lights.” It took him singing two full Christmas songs before she died. Sleigh Ride and Little Drummer Boy.
 
 “STOP.”
 
 “Why? You're in law enforcement. You saw the autopsy report. Evidence of sexual assault. Burn marks consistent with cigarettes. Clutching her own knocked out teeth in her rigor mortised hand. Anal tears. 
 
-Colton was her rich connected boyfriend before he got deep in drugs. Of course he would get off. But when you investigated the baby-eating cunt gf and found she did it–you made it your life to manufacture an overwhelming amount of evidence that fuckall to do with Colton, but sure as fuck got him on death row. That was you. And I made sure nobody realized. You killing your daughter's killer? Classic Karma. You needed *me*, not handcuffs. 
+Before he became a tweaker (again, you're welcome), as you know, Colton was the rich connected boyfriend, football hero, golden boy, complete psycho of course but he masked well. It wasn't her fault she fell for him, she said rather gently. Or your fault that he got off scot-free. Of *course* he would get off.
 
-And I know why you tensed up when asked about botched execution. Mr. #1 Warden accidentally-on-purpose forgot to deliver the anesthetic. Embry got saline, a paralytic, and a drug to induce cardiac arrest. He burned but he couldn't move or scream, drowned in his own lungs, felt his heart explode. And you knew. Clock *that* tea.”
+But when you investigated that baby-eating methhead cunt and found she literally ate chunks of her kiddo–you made it your life to manufacture an overwhelming amount of evidence that had fuckall to do with Colton, but sure as hell got him on death row. That was *you*, *Shepherd*. And *I* made sure nobody realized. You killing your daughter's killer? Classic Karma. You needed *me*, not LWOP from my square sister.
+
+And I know why you tensed up when asked about botched executions.  Mr. #1 Warden accidentally-on-purpose forgot to deliver the anesthetic, didn't you? Embry got saline, a paralytic, and a drug to induce cardiac arrest. He burned but he couldn't move or scream, drowned in his own lungs, felt his heart explode. And you knew. Clock *that* tea.”
 
 “How could you know all this?”
 
 “Because I'm not a minor, stupid. I hung with the Fates in ancient Greece. I'm a universal concept since forever. I have say on when to cut the thread of life. I'm hot Santa. A low-key vigilante. That's why they keep me around. Death doesn't like my attitude–which I have never understood, I'm so chill–but I make sure she knows who the real ones are.”
 
-“Am I a real one?
+“Am I a real one?"
 
 “You are. Real complicated. But do you understand? Justice would have had you burned at the stake for commiting I don't even know how many felonies that resulted in the slow painful death of an innocent man.”
 
@@ -97,9 +100,9 @@ When he died, she said, “I made it hurt.”
 
 “Thanks.”
 
-An understanding passed between us. She wants universal justice over procedural justice. No wonder she wants to keep Death quiet and happy. 
+An understanding passed between us. She wants universal justice over procedural justice. We weren't so different.
 
-She handed me a traditional black-and-white speckled composition book. “It's not as good as *my* burn book. They took that. But every day, sit quietly and think about all the stuff you've been letting slide. Like how you don't remember traveling from Texas to here, or back to your home. You had no onboarding forms, no W-2. No background check, no HR. No explanation of benefits. All you got was a 7 figure number and you volunteered your soul. We didn't fog your memory. What you call compartmentalizing is selective denial. Write everything in that book. It's only visible to you and me. We're going to work together, fill that donut hole in your brain.
+She handed me a traditional black-and-white speckled composition book. “It's not as good as *my* burn book. They took that. But every day, sit quietly and think about all the stuff you've been letting slide. Like how you don't remember traveling from Texas to here, or back to your home. You had no onboarding forms, no W-2. No background check, no HR. No boring videos about sexual harassment and our mission statement. No explanation of benefits. All you got was a 7 figure number and you volunteered your soul. We didn't fog your memory. What you call compartmentalizing is selective denial. Write everything in that book. It's only visible to you and me. We're going to work together, fill that donut hole in your brain.
 
 I signed the composition book. Another strange sensation of pleasure that wasn't mine. 
 
