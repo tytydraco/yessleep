@@ -58,3 +58,5 @@ But one thing, as I've typed, has bothered me deeply. Like an itch, I can't scra
 No, not just that, I couldn't remember if I even had one!! It feels like a word on the tip of your tongue. Just out of reach…
 
 Help!
+
+[Part 3] - https://www.reddit.com/r/nosleep/s/zck2aVlO50

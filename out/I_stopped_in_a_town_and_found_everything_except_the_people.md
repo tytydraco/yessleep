@@ -37,5 +37,3 @@ At first, there was nothing but static. And then, a voice.
 “Why are you here?” it whispered.
 
 The line went dead.
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/1jlpfbh/i_stopped_in_a_town_and_found_everything_except/)
