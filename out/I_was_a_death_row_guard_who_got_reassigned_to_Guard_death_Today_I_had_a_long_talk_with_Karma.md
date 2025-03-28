@@ -7,36 +7,34 @@ Slightly calmer, I picked up a pen to take notes (a bic, thank God. Last thing I
 Extraordinary inmates require extraordinary protocol. I’ll try to make it short and sweet.
 
 DO NOT ATTEMPT TO ESCAPE. DO NOT KNOCK ON WALL INCESSANTLY, HOPING FOR A DOOR TO OPEN. YOUR DAY ENDS AT 5PM, A DOOR WILL OPEN (SOMEWHERE). 
-YOU WILL PROBABLY FIND IT.
+YOU WILL PROBABLY FIND IT. IF YOU DONT, EXPECT TO WANDER THE HALLS FOR MONTHS YEARS. TAKE HEART, SHE HAS NOT YET PERMANENTLY ABANDONED ANYONE. 
 
 Death has total control of all mechanical processes in the facility. She has been relatively liberal with privileges, but beware of taking advantage–she offends easily and will proceed to what she refers to as a “clap back” that will be significantly unpleasant and cost the organization precious resources while you recover in our infirmary.
 
-To be fair, Death has supernaturally sensitive hearing. You are just annoying her with endless knocking. Know that it is not truly endless. She ends it. On a good day, she’ll kill you. On a bad day, she’ll stick you in a liminal space until you starve or lose the will to live while knocks from nowhere surround you for the rest of your days. 
+To be fair, Death has supernaturally sensitive hearing. You are just annoying her with endless knocking. Of course, it is not truly endless. She ends it. On a good day, she’ll kill you. On a bad day, she’ll stick you in a liminal space until you starve or lose the will to live while knocks from nowhere surround you for the rest of your miserable days. 
 
 WEAR PROTECTIVE GEAR AT ALL TIMES Skin on skin contact can be interpreted as a “brush with death”, leading to fatalities.
 
 DO NOT TAUNT DEATH
 
-OK? Ffs the last time that happened we got covid. Before that, the nuclear factory incident in Japan. And politics are wilding out, more than usual. We all see it.
+OK? Ffs the last time that happened we got covid. Before that, the nuclear factory incident in Japan. And politics are wilding out, more than usual. We all see it. Don't piss off Lady Death. 
 
 ADDRESS HER AS LADY
 
-Though she is known to use modern slang (thank the gods the “yolo” phase is over), she also shifts into what is believed to be an amalgamation of all human, animal, and non-human languages past and present. She appreciates old-fashioned courtesy. So call her Lady for the best chance at a conversation in English, as well as your continued existence. 
-
+Though she is known to use modern slang (thank the gods the “yolo” phase is over), she also shifts into what is believed to be an amalgamation of all human, animal, and non-human languages past and present. It is indecipherable to all but those advanced in both multilingualism as well as non-linear communication skills. To circumvent this issue she appreciates old-fashioned Victorian Era chivalry.Thus, call her Lady for the best chance at a conversation with her speaking either the Queen's English, or in the accent of a Dickensian street rat.
 
 NO MATTER HOW TEMPTED DO NOT KISS DEATH. THAT'S JUST OBVIOUS.
 
-Death is objectively beautiful in her preferred form, a mixed-race waif with strikingly beautiful natural red lips, and cascading raven hair. Despite rumors, Death does not have black eyes, a bare skull, or empty eye sockets. She has pretty green eyes that gleam ember in times of high emotion.
-
+Death is objectively beautiful in her preferred form, a mixed-race waif with strikingly beautiful natural red lips, and cascading raven hair. Despite rumors, Death does not have black eyes, a bare skull, or empty eye sockets. She has pretty green eyes that gleam ember in times of high emotion. Again, she gets bored. She loves to flirt. She will take on any appearance to trick you into a kiss, such as your spouse, lover, childhood crush, etc. she can appear as male at will, if this is the most alluring image to her victim. 
 
 I put down the bic, shaking my sore wrist.
 
 There was a knock and a door existed itself. Then a voice, “little pig, little pig, let me in”. I almost peed my pants. Hey, I haven't even met this woman who apparently does whatever the fuck she wants and kills when her podcast is interrupted.
 
-I kept my expression neutral. The girl in the door looked reminiscent of Quinn from Daria. Silky blonde hair my wife would call Alicia Silverstone in Clueless hair. “Moves like a dream. Probably always smells like roses”. White with a lightly tanned--no, sunkissed--face a d a pinched nose, lithe
-but chesty, perfectly lipsticked lips that curled like she smelled something bad, and a hot pink, curve hugging uniform that did not meet dress code standards. In place of an inmate number was a happy face over her right pocket. I don't know how, but the happy face looked smug. 
+I kept my expression neutral. The girl in the door looked reminiscent of Quinn from Daria. Silky blonde hair my wife would call Alicia Silverstone in Clueless hair. “Moves like a dream. Probably always smells like roses”. White with a lightly tanned--no, sunkissed--face and pinched nose, lithe
+but chesty frame, perfectly lipsticked lips that curled like she smelled something bad, and a hot pink, curve hugging uniform that did not meet dress code standards. In place of an inmate number was a happy face over her right pocket. I don't know how, but the happy face looked smug. I wanted to punch it. Not her, just the happy face.
 
-She did not intimidate me in the least. She reminded me of my daughter's "popular" friends, the ones who she tried to impress but more frequently wound up in tears. This wasn't death. This was Karma. 
+She did not intimidate me in the least. She reminded me of my daughter's "popular" friends, the ones who she tried to impress but more frequently wound up in tears after bully bullshit--like the time they all said she was in the friend group, doing the secret handshake, then running away yelling she gave them fleas. Weeks later, the leader got severe hookworm, and her cohorts got at least 5 cold sores each. I smiled. This wasn't Death. This was Karma. 
 
 I stood up, offering my hand to shake. She pinched my ass. I gasped. “Miss! You are a minor! And I am a happily married man”! 
 
