@@ -1,4 +1,4 @@
-I wasn’t supposed to be here. 
+I wasn’t supposed to be here.
 
 A detour, a missed exit, and my phone’s GPS throwing a tantrum had landed me in this little speck of a town. Just a few hours off course, I told myself. Besides, a small town diner’s greasy breakfast sounded more appealing than another gas station sandwich.
 
@@ -37,3 +37,5 @@ At first, there was nothing but static. And then, a voice.
 “Why are you here?” it whispered.
 
 The line went dead.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1jlpfbh/i_stopped_in_a_town_and_found_everything_except/)
