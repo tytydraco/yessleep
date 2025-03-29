@@ -314,5 +314,4 @@ And I decided.
 
 I reached for the remnants of what was left of the world’s power, my fingers typing into nothing.
 
-If you can read this—if anything still remains—
-Please give us a sign.
+If you can read this—if anything still remains—please give us a sign.
