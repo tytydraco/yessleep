@@ -40,9 +40,9 @@ One of them caught my attention. It was the one in the middle—the third drawin
 
 But the other ones—the other five pictures—were even more unsettling. The first one, though a little wide, looked like some prehistoric skeleton, or a representation of a fossil. From there, the drawings were nearly incomprehensible.
 
-One was a long, angular skull that coincided with no animal I had ever seen. Another looked like the depiction of a bug, maybe a wasp or mantis, only bony and cadaverous.
+One was a long, angular skull that coincided with no animal I had ever seen. Another looked like the depiction of a bug, maybe a wasp or mantis, only bony and cadaverous. 
 
-All the minimalist drawings were placed in a line, all the same size and style, engraved into the metal.
+The one thing the images had in common was that in some way, they all looked like skulls.
 
 “What the fuck…” Stanley whispered.
 
