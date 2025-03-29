@@ -1,80 +1,68 @@
 **Day 3.**  
 
-My rations were gone by dawn. Three days in, and I’d burned through my supplies. Only a can of beans remained, the tin dented from a fall I couldn’t remember taking. My canteen was lost to the same stupor, vanished between one scramble and the next.  
+The beans ran out at first light. Three days. Three days of pissing yourself dry, of chewing bark to trick your stomach. The last can was dented, rust bleeding at the seams. I’d lost the canteen somewhere—probably when I fell, though the bruises all blurred together now.  
 
-Three days. Three days since I’d felt the weight of eyes on my spine, heard branches snap in a rhythm too deliberate to be chance. Three days since sleep had been anything but the edge of a knife.  
+Three days. Three days of footsteps pacing mine, always three seconds behind. Three days of waking to wet, clicking breaths outside the tent. Three days of no sleep. Just the knife in my hand.  
 
-The trail I walked on frayed to a scribble, devoured by thorns hooked deep. I knelt at a seep spring, water pooling in the cup of a skunk cabbage leaf, and drank.  
+The trail dissolved into thorns. I crawled to a seep spring, lapped water from a skunk cabbage leaf like a dog. The taste was mud and rot.  
 
-My fingers found the gashes before my eyes did.  
+That’s when I saw the tree.  
 
-Three trenches split the Douglas fir.  
+Splinters jutted from the Douglas fir like broken ribs. 
 
-Sap welled in the wounds, resinous, catching the light.  
+Three gashes split the trunk, nine inches between each. Sap oozed black, thick as clotting blood. Too deep for a bear. Too precise.  
 
-I told myself it was a *bear*—but I knew it was a lie. I measured the furrows. Nine inches between claw strikes, vertical.  
+I didn’t run.
 
-I made camp where the creek bent, the ground soft enough to stake the tent. The fire coughed smoke that coiled into the dark.  
+Running wasted calories.  
 
-The beans were cold. I ate them with my fingers, the last of my discipline dissolving as the can scraped against my teeth.  
+The campsite stank of wet stone and my own sour skin. I stabbed the tent stakes into the creek bend, hands shaking. The fire spat embers that died in the dirt. Cold beans trembled in the can. I scooped them with my fingers, metal scraping enamel. When I licked the lid, my tongue caught a rusted edge.  
 
-Empty now.  
+Empty.  
 
-No food.  
+No food. 
 
-No canteen.  
+No water. 
 
-Just the thing that had been stalking me since the first night, when I’d woken to the sound of my own name hissed in no human tongue.  
+Just the thing that had followed me since night one, when I’d heard my name—*James*—rasped in a voice that cracked like dry sticks.  
 
-As I sat in that darkness, the growl came.  
+Darkness came.  
 
-Not the thunder of a bear, but a sound stripped of warmth—a chainsaw’s snarl choked and raw.  
+The growl started low. 
 
-My flashlight beam cut across the birch trunks.  
+Not animal. 
+
+Not machine. 
+
+A wet, grating shudder, like something dragging a blade over bone. My flashlight flickered. Shadows pooled between the birches.  
 
 Nothing.  
 
-Then movement…  
+Then the trees *twitched*.  
 
-Not a shape, but the *absence* of one, darkness sliding between trees.  
+Not the wind. Branches jerked, torn by something moving too fast to see. The beam caught a flash of black—not fur, not skin. A hole. A void. The light bent around it.  
 
-I didn’t sleep that night.  
+I didn’t sleep.  
 
-I lay still on the tent floor, counting the arrhythmia of my heart.  
+I lay rigid, the tent floor gouging my spine. My heartbeat thumped in my throat. The woods held its breath. No crickets. No wind. Even the creek’s babble died, choked mid-flow.  
 
-The woods had gone quiet.  
+Something scraped the tent wall.  
 
-No voles.  
+A slow, deliberate drag. Claws? Antlers? The nylon shuddered. I stopped breathing.  
 
-No owl.  
+The silence split.  
 
-Even the creek fell silent.  
+A wet crunch, close. *Too close.* Like teeth sinking into gristle. The smell hit me—coppery, sweet. Meat left in the sun.  
+
+I didn’t move until dawn.  
+
+When I unzipped the tent, the fire pit was smeared with a black paste. Flies writhed in it. Half-buried in the ashes lay a deer’s skull, stripped pink. The spine dangled from a branch, vertebrae knotted with sinew.  
+
+The claw marks on the fir tree now numbered six.  
+
+Fresh sap dripped, hot and sticky, into my hair as I passed.
 
 **Day 4.**  
-
-Dawn came gray. I packed in the half-light, fingers numb, the tent stiff with dew. The creek’s banks were muddy, alive with decay.  
-
-That’s where I saw them.  
-
-Tracks.  
-
-The thing came near my camp.  
-
-Five-toed, splayed, each digit ending in a talon that punched six inches into the muck.  
-
-The arch was unnatural—a bridge too steep, the pressure points cratered.  
-
-No paw.  
-
-No hoof.  
-
-No primate.  
-
-A biped’s gait, but the stride stretched eight feet between prints, the depth suggesting a mass that defied logic.  
-
-I measured the tracks against my map.
-
-By noon, the map was useless.  
 
 I was lost.  
 
