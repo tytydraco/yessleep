@@ -1,0 +1,15 @@
+I don’t know if it’s something paranormal or just an incredibly strange coincidence, but it won’t let me sleep peacefully. Maybe someone else has experienced something similar.
+
+My brother Domas died three years ago a car accident on a slippery winter road. One day he texted me about some stupid movie he was watching, and the next day he was gone. It was horrifying. Our parents have never come to terms with it, and every day feels like a constant reminder of the void he left behind.
+
+After his death, we had to settle a lot of things bank accounts, social media profiles, his apartment. We closed everything except one thing: his phone number. Mom said she couldn’t cancel it. She admitted that sometimes she would call him just to hear that the number wasn’t in service. It was her way of holding onto him, a desperate grasp at something that could bring him back, even if just for a moment. We let her do that, knowing it was the only comfort she had left.
+
+A few months later, Mom finally decided to go to the service provider and cancel the number. That’s when she discovered something that shook us all to the core Domas’s number was still active, and someone was paying for it every month. According to the records, the payment is made on time every month from an unknown account. It wasn’t our money, and it wasn’t coming from his own closed account. The operator couldn’t offer any further explanation, only confirming that the service remained active and paid for.
+
+We tried calling the number, half expecting nothing more than silence. The phone rang, and after a few rings, someone answered. But nobody spoke. Instead, there was just a low, constant background noise, as if someone were holding the phone and deliberately keeping quiet. We sat there, stunned and speechless, the silence stretching on for about ten seconds before the call abruptly ended.
+
+In the days that followed, we tried calling again. The number would sometimes be disconnected, only to be reactivated the next day without any explanation. I even set up a schedule to check its status every month. Without fail, the number remains active, with payments being made from that mysterious account. It’s as if there is an invisible presence, carefully tending to this connection that should have been severed long ago.
+
+I’ve asked around online, in various forums and local groups, but no one has experienced anything like this. Some say it could be a glitch in the system; others whisper about supernatural forces or unfinished business from beyond. I’m not entirely convinced by any of the explanations. What I do know is that every time I check, I can’t help but wonder who is on the other end of that line. Who is answering, and why do they remain so silent?
+
+I spend sleepless nights questioning every possibility. Could it be that someone who knew Domas is keeping his memory alive? Or perhaps there is something inexplicable at work a lingering echo from the moment he left us. I have no answers, only more questions. And until I do, the mystery of the active phone number continues to haunt me every month.
