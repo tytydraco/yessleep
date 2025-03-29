@@ -19,7 +19,7 @@ I left the table, rushed outside the front door, nothing, no sound, all looks no
 I went back to the table, they asked me if I am feeling alright, I told them I do.
 
 A few days later, it happened again.  
-I was sitting with a friend at a restaurant, and then I heard it again… the same noise, it wasn’t a nice or normal noise, it was a low-tone noise, again the same musical notes, this time somewhat larger.
+I was sitting with a friend at a restaurant, and then I heard it again… the same noise, it wasn’t a nice or normal noise, it was a low-tone noise, again the same musical notes, this time somewhat louder.
 
 I have a friend who has a lot of knowledge in music, and he plays a piano. I pressed on the piano keys to try and mimic what I hear… he was in shock, he rushed away and brought a book with him, and he told me that it resembles “Hell Waltz”, which was made in the 1600s about a creature named “Asmodeus”.
 
@@ -35,11 +35,11 @@ I tried to focus on other things, tried to ignore it, but the noises kept coming
 
 I am not sure what is happening, but I am the only one to hear that noise, and I don’t understand what’s happening!
 
-After 2 days it happened again, me and my dad went back from the mall, I put the stuff on the floor and went to shower, before I could even realize- the noise happened again, stronger than ever, crippling, I then decided that I have to learn more about the meaning behind “Asmodeus”.
+After 2 days it happened again, I went back from the mall, put my stuff on the floor and went to take a shower, and before I could even realize- the noise happened again, stronger than ever, crippling, I then decided that I have to learn more about the meaning behind “Asmodeus”.
 
 It wasn’t like in the movies, there are no wikipedia guides on how to tell a demon to leave you alone. That wasn’t a Hollywood movie. I couldn’t find the video, I couldn’t find anything about the “deus” noise, all I knew was that I need help. I then went to the bathroom to wash my face, and I saw that I was bleeding… from the ears…. 
 
-Whatever this noise was, it started to take effect on my body, I washed it off but then the noise came again, and the bleeding was even more intense.
+Whatever that noise was, it started to take effect on my body, I washed it off but then the noise came again, and the bleeding was even more intense.
 
 Panicking, I went to the ER, they had no idea what happened, I never told them about this, they ran every test and couldn’t find any medical explanation for it.
 
@@ -47,14 +47,14 @@ I went back home, tired and scared. Googling for hours, eventually I found someo
 
 >*”If you hear it, don’t answer, don’t make a sound- don’t let him know you are listening, you have to survive 50 days.”
 
-50 days? I thought to myself, it’s already been around a couple of weeks, I must gather my strength and keep going, at least there’s hope.
+“50 days?” I thought to myself, it’s already been around a couple of weeks, I must gather my strength and keep going, at least there’s hope.
 
 The noises kept coming, back and forth, sometimes for longer times, sometimes louder, it really distracted me, I was having ear bleed often, but my only goal was to end those 50 days.
 
 It’s the last day of this nightmare, it will be over soon.  
 I kept silent, waiting for it to end, not telling anyone about this, it’s almost 50 days, just a few more minutes.
 
-Then it happened, the loudest noise I ever heard, I could swear that it could have shattered the windows, I couldn’t even hear afterwards, the noise lasted for a minute or two, it stopped, it ended, the 50 days are over, or at least I hoped so.
+Then it happened, the loudest noise I have ever heard, I could swear that it could have shattered windows, I couldn’t even hear afterwards, the noise lasted for a minute or two, it stopped, it ended, the 50 days are over, or at least I hoped so.
 
 A month went by, no noises since, no devil’s notes… nothing.  
 I have completely forgotten about it, I opened youtube to watch a video, and then it happened… youtube recommended me a new video from the same creator, no title, it was just another dibbuk box in the thumbnail.

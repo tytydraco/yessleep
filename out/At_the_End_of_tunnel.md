@@ -133,3 +133,5 @@ I shrugged again, “Pray we can still graduate?”
 “What if they kill someone else?! Someone we know? What if they kill one of us?” 
 
 I looked him in the eyes and replied in a cold deadpan voice, “Well, then I guess I hope whoever finds me under the concrete is less of a coward than I am.” 
+
+[Update!](https://www.reddit.com/r/nosleep/s/qLaqXWqr6w) 
