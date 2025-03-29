@@ -68,7 +68,7 @@ I was lost.
 
 I navigated by the sun’s haze, sweat welding my shirt to my skin until the fabric chafed raw.  
 
-Its stench arrived—wet iron and spoiled marrow.  
+Its stench arrived again.  
 
 It wasn’t stalking. It was *herding*. Driving me eastward.  
 
