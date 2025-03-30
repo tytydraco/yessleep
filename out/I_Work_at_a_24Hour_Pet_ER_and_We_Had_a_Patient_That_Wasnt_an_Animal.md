@@ -481,4 +481,6 @@ And for some reason, deep in the pit of my soul—
 
 *I believed him.*
 
-[Part 2](https://www.reddit.com/r/nosleep/s/AfygMEKlQQ)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1jhhly7/i_work_at_a_24hour_pet_er_and_we_had_a_patient/)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/XAVAAhaDUK)

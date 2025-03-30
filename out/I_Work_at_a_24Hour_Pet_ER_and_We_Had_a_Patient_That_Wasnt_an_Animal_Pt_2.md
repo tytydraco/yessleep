@@ -1,8 +1,8 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/rVmvxz7Rhz)
+
 It started with a dog. Or rather, something wearing a dog’s skin. I thought I was doing the right thing when I put it down. But now, something far worse is stalking me.
 
-If you haven’t read [Part 1](https://www.reddit.com/r/nosleep/s/rVmvxz7Rhz), you should do that now.
-
-had to clean up a few things first. The worst of it was the Euthasol I used on Mutt. On my first day back, I staged an accident. I dropped the bottle and let it shatter across the floor. It complicated the logs, but it worked. I’m not proud of it. You shouldn’t be either. But at the time, it felt like the only option.
+I had to clean up a few things first. The worst of it was the Euthasol I used on Mutt. On my first day back, I staged an accident. I dropped the bottle and let it shatter across the floor. It complicated the logs, but it worked. I’m not proud of it. You shouldn’t be either. But at the time, it felt like the only option.
 
 I was wrong.
 
@@ -426,3 +426,5 @@ The weight of his amusement pressed down on me, thick and choking. A grin curled
 The voice slithered through, dripping with something close to excitement beneath the folds of my jacket on the floor. Slightly muffled, but clear enough to hear. 
 
 “I’m really starting to enjoy this game.”
+
+[Part 3](https://www.reddit.com/r/nosleep/s/XAVAAhaDUK)
