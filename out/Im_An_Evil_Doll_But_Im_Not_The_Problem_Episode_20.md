@@ -487,3 +487,8 @@ I hate to say it, but I have no idea how we are getting out of this.
 Till next time, if there is one.
 
 Punch.
+
+
+If anyone needs to know how to navigate a liminal space, I've got you:
+
+https://www.reddit.com/r/nosleep/s/JIYnRBZ1CR
