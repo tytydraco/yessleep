@@ -350,7 +350,7 @@ Dying is easy.
 
  
 
-Mom and dad was never scared. Maybe they knew something would be coming for them. Hell, they might’ve known they’d end up dead in a lake, or worse. But maybe knowing the end to the story isn’t reason enough not to tell it. They’d held the truth from us, for better or worse, but in the wake of their deceit we found warmth. Falling asleep on my dad’s shoulder. Having my mom tuck me in after a long night. No matter where they would go, those moments would remain.
+Mom and dad were never scared. Maybe they knew something would be coming for them. Hell, they might’ve known they’d end up dead in a lake, or worse. But maybe knowing the end to the story isn’t reason enough not to tell it. They’d held the truth from us, for better or worse, but in the wake of their deceit we found warmth. Falling asleep on my dad’s shoulder. Having my mom tuck me in after a long night. No matter where they would go, those moments would remain.
 
 I’ll never deserve the luck of having a tourist family seeing the ice break from their cabin. Of being pulled out by the neck. Of having a retired nurse perform CPR as the locals flocked out in force to help from every corner. I just remember my eyes having frozen shut, and my lips painlessly cracking as I tried to speak.
 
