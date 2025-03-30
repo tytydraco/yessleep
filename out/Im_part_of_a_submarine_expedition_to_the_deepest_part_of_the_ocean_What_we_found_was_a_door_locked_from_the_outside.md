@@ -229,3 +229,9 @@ I say that because, after all of this—after what happened to Stanley—and wit
 I really want to turn the wheel.
 
 Worst of all, I don't even know why.
+
+---
+
+
+[Part 2](https://www.reddit.com/r/nosleep/s/s1snUstXsm)
+ 

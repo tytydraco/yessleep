@@ -158,8 +158,6 @@ At one point, there was only half a link.
 
 The metal had been broken in half. The giant link was split.
 
-I sat totally still.
-
 The computer screen lit up suddenly, catching me off guard.
 
 “Captain Morgan!” said a voice from the computer. “What the hell happened? You went dark, and now our scans detect that you're 500 meters from your previous location! We've been trying to reach you for hours!”
@@ -241,7 +239,7 @@ Whatever it is, it is also ascending. According to the data, it will surface in 
 
 I will not be alive to witness it. 
 
-It is predicted to surface beneath my ship
+It is predicted to surface beneath my ship.
 
 Whatever those massive chains were meant to hold… they are no longer serving their purpose. 
 
