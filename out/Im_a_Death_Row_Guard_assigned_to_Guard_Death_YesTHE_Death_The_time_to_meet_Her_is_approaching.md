@@ -12,17 +12,17 @@ She put the clicker back and I was audibly relieved. “Ok, what do you want?”
 
 “My paperwork, you were right! I didn't sign shit! NO orientation! No formal training! NO TAX FORMS! I'm lucky I brought my laptop.”
 
-She giggled. Yeah. Me and a few of my good Judy's are keeping it on the DL.”
+She giggled. "Yeah. Me and a few of my good Judy's are keeping it on the DL.”
 
 “Huh?”
 
 “It means you're safe, boomer. For now. We WANT the outside people to know.”
 
-“Ok, I’ll answer the boring stuff real quick. In the HQ tier–in your Texas–the paperwork is taken care of. You are, for lack of a better word, zapped in and out of your tier. We talked about installing a doppelganger but your wife would recognize it immediately. Your wife is smart, btw. Doesn't know it but she's part forest nymph. That's why she feels so free nature and loves to fu–”
+“Ok, I’ll answer the boring stuff real quick. In the HQ tier–in your Texas–the paperwork is taken care of. You are, for lack of a better word, zapped in and out of your tier. We talked about installing a doppelganger but your wife would recognize it immediately. Instead she sees you drive to an expertly built mirage. Your wife is smart, btw. Doesn't know it but she's part forest nymph. That's why she feels so free in nature and loves to fu–”
 
 “TMI.”
 
-“Well anyway, she's protected. Everyone knows you won't work without her. Regarding communication, it's different for all of us. All you have to do is right “Dear Karma, I require your guidance” in the composition book. Justice will give you a small set of scales.”
+“Well anyway, she's protected. Everyone knows you won't work without her. Regarding communication, it's different for all of us. All you have to do is write “Dear Karma, I require your guidance” in the composition book. Justice will give you a small set of scales.”
 
 “I thought she hated my guts.”
 
