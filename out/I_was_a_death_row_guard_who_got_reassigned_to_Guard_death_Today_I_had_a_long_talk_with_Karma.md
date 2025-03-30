@@ -108,5 +108,7 @@ I signed the composition book. Another strange sensation of pleasure that wasn't
 
 But I ain't one.”
 
+Next: https://www.reddit.com/r/nosleep/s/voJCcseBFZ
+
  
 
