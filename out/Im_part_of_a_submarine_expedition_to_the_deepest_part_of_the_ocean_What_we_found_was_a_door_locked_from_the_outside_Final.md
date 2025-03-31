@@ -242,7 +242,3 @@ I will not be alive to witness it.
 It is predicted to surface beneath my ship.
 
 Whatever those massive chains were meant to hold… they are no longer serving their purpose. 
-
-For now, I await his arrival.
-
-Goodbye.
