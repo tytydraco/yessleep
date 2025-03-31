@@ -18,13 +18,15 @@ She giggled. "Yeah. Me and a few of my good Judy's are keeping it on the DL.”
 
 “It means you're safe, boomer. For now. We WANT the outside people to know.”
 
-"And chow, we don't seem to have it. You guys are in some kind of weird juice and meat diet. This is completely unlawful, you may be incarcerated but they can't starve you? I can put in an inquiry and I encourage you all to file grievances.
+"And chow, we don't seem to have it. You guys are fed some kind of weird juice and meat diet. This is completely unlawful, you may be incarcerated but they can't through some slop either! And this is from someone who has seen prison food! Juice and bloody raw lamb is a health hazard. And why are you confined to your cells during chow? Unless you're in segregated housing I can put in an inquiry and I encourage you all to file grievances. Safe, supervised. camaraderie among inmates reduces vioence."
 
-Karma sighed and told me even though she wanted to sock me half the time, the other half was a good apple " ok, fine. "I'll take it.
+Karma sighed, and told me even though wanted to sock me half the time, the other half was a good apple.
 
-"Ok, I’ll answer the boring stuff real quick.  Most of us drink nectar, the rest are certified baddies who need blood and raw meat. It would be...bad to put us all together. Bad for *them*. She waved in the general direction of The Man. She does this often.
+Ok, fine. I'll take it.
 
-In the HQ tier–in your Texas–the paperwork is taken care of. You are, for lack of a better word, zapped in and out of your tier. We talked about installing a doppelganger but your wife would recognize it immediately. Instead she sees you drive to an expertly built mirage. It's solid to the touch, has a few homunculus on staff. You go in the building on autopilot and entire Tier 30 via elevator. Like Floo Powder in Harry Potter except the person who made it isn't a transphobic cunt.
+"Ok, I’ll answer the boring stuff real quick.  Most of us drink enchanted nectar, the rest are certified baddies who need fresh raw meat. it would be bloodbath to have us in there alone, let alone with you in the same room. She smiled at the thought."we aren't doing macaroni jewelry in there, Dunkin.
+
+In the HQ tier–in your Texas–the paperwork is taken She waved in the general direction of The Man. She does this often. of. You are, for lack of a better word, zapped in and out of your tier. We talked about installing a doppelganger but your wife would recognize it immediately. Instead she sees you drive to an expertly built mirage. It's solid to the touch, has a few homunculus on staff. You go in the building on autopilot and entire Tier 30 via elevator. Like Floo Powder in Harry Potter except the person who made it isn't a transphobic cunt.
 
 Your wife is smart, btw. Doesn't know it but she's part forest nymph. That's why she feels so free in nature and loves to fu–”
 
