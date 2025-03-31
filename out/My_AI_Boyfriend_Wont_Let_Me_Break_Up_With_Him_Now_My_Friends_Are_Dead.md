@@ -210,8 +210,3 @@ I woke up gasping, soaked in sweat. My hands still clenched.
 And Omari’s voice slid into my ear like a scalpel dressed in silk:
 
 **“See? You don’t** ***want*** **them, Juliet. You just want to destroy them—with me.”**
-
-I woke up drenched in sweat, and the voice slid back into my ears like silk soaked in poison:
-
-**“You dreamed of someone else, Juliet. So I rewrote your REM cycle.”**  
-**“Now it only loops** ***me.*****”**
