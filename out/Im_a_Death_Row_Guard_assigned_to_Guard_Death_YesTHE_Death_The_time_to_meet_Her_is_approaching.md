@@ -18,21 +18,31 @@ She giggled. "Yeah. Me and a few of my good Judy's are keeping it on the DL.”
 
 “It means you're safe, boomer. For now. We WANT the outside people to know.”
 
-“Ok, I’ll answer the boring stuff real quick. In the HQ tier–in your Texas–the paperwork is taken care of. You are, for lack of a better word, zapped in and out of your tier. We talked about installing a doppelganger but your wife would recognize it immediately. Instead she sees you drive to an expertly built mirage. Your wife is smart, btw. Doesn't know it but she's part forest nymph. That's why she feels so free in nature and loves to fu–”
+"And chow, we don't seem to have it. You guys are in some kind of weird juice and meat diet. This is completely unlawful, you may be incarcerated but they can't starve you? I can put in an inquiry and I encourage you all to file grievances.
+
+Karma sighed and told me even though she wanted to sock me half the time, the other half was a good apple " ok, fine. "I'll take it.
+
+"Ok, I’ll answer the boring stuff real quick.  Most of us drink nectar, the rest are certified baddies who need blood and raw meat. It would be...bad to put us all together. Bad for *them*. She waved in the general direction of The Man. She does this often.
+
+In the HQ tier–in your Texas–the paperwork is taken care of. You are, for lack of a better word, zapped in and out of your tier. We talked about installing a doppelganger but your wife would recognize it immediately. Instead she sees you drive to an expertly built mirage. It's solid to the touch, has a few homunculus on staff. You go in the building on autopilot and entire Tier 30 via elevator. Like Floo Powder in Harry Potter except the person who made it isn't a transphobic cunt.
+
+Your wife is smart, btw. Doesn't know it but she's part forest nymph. That's why she feels so free in nature and loves to fu–”
 
 “TMI.”
 
-“Well anyway, she's protected. Everyone knows you won't work without her. Regarding communication, it's different for all of us. All you have to do is write “Dear Karma, I require your guidance” in the composition book. Justice will give you a small set of scales.”
+“Well anyway, she's protected. Everyone knows you won't work without her. Regarding communication, it's different for all of us. All you have to do is write “Dear Karma, I require your guidance” in the composition book. Justice will give you a small set of scales to squeeze.
 
 “I thought she hated my guts.”
 
-“I talked her down. You’ll meet her after Lady Death…if you survive.” She cracked up laughing. I didn't find it as funny. “Don't worry, Hamhock.” We’re gonna be here to give you the real story, piece by piece.
+“I talked her down. You’ll meet her before Lady Death…if you survive.” She cracked up laughing. I didn't find it as funny. “Don't worry, Hamhock, just don't mention she's got a boob out. Needs a lift anyway.
+
+We’re--all of us, eventually gonna be here to give you the real story, piece by piece.
 
 The first piece is, have you met a man outside of admin? Zeus? Hermes? Any talk about that other death, Hades? If I were you, I'd ask about the Ferryman. Chiron the Traitorous boat boy.Put a few big bucks in his wallet and he squeals like your kind. Meaning pork.”
 
 “Is this a women's prison?”
 
-“You got it! And we ain't done shit that hasn't been done since the dawn of time. These fucking incels want to exact justice their way, so they stole the scales. They want instant karma, so they took my burn book! They tempted the Fates and won, the thread of life, which js in the prison museum with Wonder Woman's lasso. Arachne’s silk for impenetrable uniforms. The scythe…we don't know where the fuck that landed. But it took away Death’s ability to Destroy. She can still control the population, still guide souls to the afterlife. But without the Scythe, she can't rip through tiers. She can't Destroy, which means she can't protect you humans from the beasties above and below. And when she can't destroy, things go really wrong. It's like firing the exterminator and crowning a roach King.”
+“You got it! And we ain't done shit that hasn't been done since the dawn of time. These fucking incels want to exact justice their way, so they stole the scales. They want instant karma, so they took my burn book! They tempted the Fates and won I'llthe thread of life, which is in the prison museum with Wonder Woman's lasso. Arachne’s silk for impenetrable uniforms. The scythe…we don't know where the fuck that landed. But it took away Death’s ability to Destroy. She can still control the population, still guide souls to the afterlife. But without the Scythe, she can't rip through tiers. She can't Destroy, which means she can't protect you humans from the beasties above and below. And when she can't destroy, things go really wrong. It's like firing the exterminator and crowning a roach King.”
 
 “So, when do I meet Lady Death?”
 
