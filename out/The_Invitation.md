@@ -80,7 +80,7 @@ I collapsed into his arms, my body trembling as the transformation took hold. He
 
 "You’re mine now," he said, his voice full of dark triumph.
 
-I could feel it—the thirst. The need. The hunger.
+I could feel it—the thirst. The need. The hunger. Sharp fangs painfully emerged from my jaw, my body adjusting to the changes that this creature had caused.
 
 And now, I understand. You’re probably wondering why you’re reading this, aren’t you? You’re curious, maybe even skeptical. But you know something’s off. And that’s why I’m telling you this now.
 
