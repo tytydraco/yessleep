@@ -18,15 +18,16 @@ She giggled. "Yeah. Me and a few of my good Judy's are keeping it on the DL.”
 
 “It means you're safe, boomer. For now. We WANT the outside people to know.”
 
-"And chow, we don't seem to have it. You guys are fed some kind of weird juice and meat diet. This is completely unlawful, you may be incarcerated but they can't through some slop either! And this is from someone who has seen prison food! Juice and bloody raw lamb is a health hazard. And why are you confined to your cells during chow? Unless you're in segregated housing I can put in an inquiry and I encourage you all to file grievances. Safe, supervised. camaraderie among inmates reduces vioence."
+"And chow, we don't seem to have it. You guys are fed some kind of weird juice and meat diet. This is completely unlawful, you may be incarcerated but they can't give you some slop either! And this is from someone who has seen prison food! Juice and bloody raw lamb is a health hazard. And why are you confined to your cells during chow? Unless you're in segregated housing I can put in an inquiry and I encourage you all to file grievances. Safe, supervised camaraderie among inmates reduces vioence."
 
 Karma sighed, and told me even though wanted to sock me half the time, the other half was a good apple.
 
 Ok, fine. I'll take it.
 
-"Ok, I’ll answer the boring stuff real quick.  Most of us drink enchanted nectar, the rest are certified baddies who need fresh raw meat. it would be bloodbath to have us in there alone, let alone with you in the same room. She smiled at the thought."we aren't doing macaroni jewelry in there, Dunkin.
+"Ok, I’ll answer the boring stuff real quick.  Most of us drink enchanted nectar, the rest are certified baddies who need fresh raw meat. it would be bloodbath to have us in there alone, let alone with you in the same room. She smiled at the thought."We aren't doing macaroni jewelry in there, Dunkin.
 
-In the HQ tier–in your Texas–the paperwork is taken She waved in the general direction of The Man. She does this often. of. You are, for lack of a better word, zapped in and out of your tier. We talked about installing a doppelganger but your wife would recognize it immediately. Instead she sees you drive to an expertly built mirage. It's solid to the touch, has a few homunculus on staff. You go in the building on autopilot and entire Tier 30 via elevator. Like Floo Powder in Harry Potter except the person who made it isn't a transphobic cunt.
+In the HQ tier–in your Texas–the paperwork is done. She waved in the general direction of The Man. She does this often. You are, for lack of a better word, zapped in and out of your tier. They'll say it's for you're safety, but if you knew the entrance and exit and blabbed it could cause a breakout
+They talked about installing a doppelganger and just keeping you here in a dorm, but your wife would recognize it immediately. Instead she sees you drive to an expertly built mirage. It's solid to the touch, has a few homunculus on staff. You go in the building on autopilot and entire Tier 30 via elevator. Like Floo Powder in Harry Potter except the person who made it isn't a transphobic cunt.
 
 Your wife is smart, btw. Doesn't know it but she's part forest nymph. That's why she feels so free in nature and loves to fu–”
 
@@ -44,7 +45,7 @@ The first piece is, have you met a man outside of admin? Zeus? Hermes? Any talk 
 
 “Is this a women's prison?”
 
-“You got it! And we ain't done shit that hasn't been done since the dawn of time. These fucking incels want to exact justice their way, so they stole the scales. They want instant karma, so they took my burn book! They tempted the Fates and won I'llthe thread of life, which is in the prison museum with Wonder Woman's lasso. Arachne’s silk for impenetrable uniforms. The scythe…we don't know where the fuck that landed. But it took away Death’s ability to Destroy. She can still control the population, still guide souls to the afterlife. But without the Scythe, she can't rip through tiers. She can't Destroy, which means she can't protect you humans from the beasties above and below. And when she can't destroy, things go really wrong. It's like firing the exterminator and crowning a roach King.”
+“You got it! And we ain't done shit that hasn't been done since the dawn of time. These fucking incels want to exact justice their way, so they stole the scales. They want instant karma, so they took my burn book! They tempted the Fates and won the thread of life, which is in the prison museum with Wonder Woman's lasso. Arachne’s silk for impenetrable uniforms. The scythe…we don't know where the fuck that landed. But it took away Death’s ability to Destroy. She can still control the population, still guide souls to the afterlife. But without the Scythe, she can't rip through tiers. She can't Destroy, which means she can't protect you humans from the beasties above and below. And when she can't destroy, things go really wrong. It's like firing the exterminator and crowning a roach King.”
 
 “So, when do I meet Lady Death?”
 
