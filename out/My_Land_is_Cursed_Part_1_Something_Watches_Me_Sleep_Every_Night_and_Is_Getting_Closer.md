@@ -136,3 +136,4 @@ That’s all for now. I don’t know if I’ll have a need to post here again, o
 
 Who knows, maybe my land is cursed. It’d sure be good for stories.
 
+Link to part 2: https://www.reddit.com/r/nosleep/comments/1jo7gf7/my_land_is_cursed_part_2_trees_on_my_land_move/
