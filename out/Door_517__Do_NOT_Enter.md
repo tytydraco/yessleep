@@ -1,9 +1,9 @@
 It was a new job, very well paid.  
 The company is based on exporting and importing goods (worldwide).
 
-The company had 5 floors, and there were some rules, which were quite normal, except one- You can’t  enter Door 517.
+The company’s building consists of 5 floors, and there were some rules, which were quite normal, except one- You can’t  enter Door 517.
 
-The sign at the ground floor (Floor 1) wrote:  
+The sign at the ground floor (Floor 1) says:  
 *Floor 1 - Entrance*  
 *Floor 2 - Accounting*  
 *Floor 3 - Management*  
@@ -25,7 +25,7 @@ I started shouting:
 
 *”Hey, this is J, from accounting. I need to get more paper for my printer.*
 
-Nothing- darkness, silence. I walk for maybe 30 seconds, until I reached a T section, I took the left turn.  
+Nothing- darkness, silence. I walked for maybe 30 seconds, until I reached a T section, I took the left turn.  
 At the end, there was nothing, I went back and took the other way, I almost reached the end, then I saw something at the end, it was very dirty, I used my hand to brush the dirt away… and it said “517 - Authorized Personal Only”.
 
 I understood right away, I am at floor 5, I walked back towards the stairs, but then I heard a faint voice, coming from 517.
