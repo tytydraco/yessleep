@@ -1,0 +1,19 @@
+
+
+Many small towns have an urban legend or two, my hometown is no different. The story of Mary Jane was originally told to frighten/deter kids at a small summer camp from visiting a very old and remote neighboring graveyard. According to the legend Mary Jane was convicted of being a witch and was hung from an eerie stand alone tree in the center of the cemetery. She was allegedly buried in an unmarked grave near the tree. A large monument near the entrance does list her name as being buried there, the lack of a matching head stone seems to corroborate the legend.
+
+Due to the remote nature of the graveyard it has long been a gathering place for teens looking to drink, do drugs etc. According to the legend anyone who disrespects the tree that Mary Jane was hung from will meet a swift demise. Ask around and you will find someone who knows a person who urinated on the tree then got in a fatal wreck driving home.
+
+Even as a middle schooler I was skeptical of these sorts of stories, though like all things creepy I was fascinated. There was an incident my sophomore year of highschool that made me suspend my skepticism. One of my classmates bragged about visiting the graveyard, drinking some beers, and pissing on the tree “multiple times”. He fell out of a tree stand while hunting about a week after, he was in critical condition and nearly died. I remember when he returned to school he was a shell of his former self, the head trauma clearly taking its toll. He spoke slower and had clearly diminished motor skills.
+
+This weighed heavy on me when a small group of friends and I visited the graveyard. It was a particularly warm summer night, a light breeze stirring the tree limbs as it blew. The moon lit roads that lead us there were getting increasingly more rugged until we eventually turned down a single lane dirt path that led to the graveyard. If nothing else about the legend was true the remote location certainly was.
+
+Much to our surprise we were not the only ones who decided to make a visit that night. Another car load of kids from a neighboring school were already there, and quite relieved to see that we were not law enforcement as we pulled up. The graveyard itself is small, it didn't take long to explore it in its entirety. The tree itself is eerie, black sap oozing from its bark looked like blood under the moonlight. Before long we found ourselves bored and a little disappointed by the site. That's when I noticed a dark path in the corner of the graveyard.
+
+We decided to head down the path to hopefully find the scares we were seeking. The thick tree cover quickly blocked what little light from the moon we had. Of course nobody had a flashlight, so we blindly strolled. I was leading the way, listening to the conversation and the crackling of twigs and leaves that accompanied each step. Too many audible steps it seemed.
+
+“Guys, stop” I said quickly turning back towards the group. The sounds of their footsteps rapidly fell silent, highlighting the sound of two sets of footsteps coming from the darkness of the woods on both sides of us. The footsteps continued for a few paces then fell silent, almost as if whatever was producing them realized we had heard them. “OH HELL NO” one of our new acquaintances shouted as he turned to flee, we followed in his wake.
+
+I must have been whacked by a hundred branches as we ran, the feeling that something sinister was right behind me compelled me forward. I led the group into the woods meaning I was now at the back, the sacrificial lamb to whatever pursued us. Finally the graveyard came into view, we lept into our vehicles without so much as a goodbye. We sped down the dirt lane testing our suspensions as we sped into the night. Thankfully nobody desecrated the tree and we made it home safe and sound.
+
+

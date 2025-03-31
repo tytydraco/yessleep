@@ -4,7 +4,7 @@
 
 Every message, every signal, and every attempt to communicate with the surface was met with the same response.
 
-TURN THE WHEEL
+TURN THE WHEEL.
 
 I couldn't take it anymore.
 
