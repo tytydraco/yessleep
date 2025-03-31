@@ -49,7 +49,7 @@ The first piece is, have you met a man outside of admin? Zeus? Hermes? Any talk 
 
 “So, when do I meet Lady Death?”
 
-Thunder cracked, and for an instant I saw what I can only describe as Miss Goth Universe. Black hair. Caramel skin. Green eyes with golden flecks. Black hair that looked woven from shadow. 
+Thunder cracked, and for an instant I saw what I can only describe as Miss Goth Universe. Severe expression.Caramel skin. Green eyes with golden flecks. Black hair that looked woven from shadow. The reddest, plumpest lips I've ever seen.
 
 She looked me directly in the eyes with a half-snile.
 
