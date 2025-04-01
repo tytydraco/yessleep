@@ -418,6 +418,7 @@ After a pause, the guy offered a wry smile, “Were you at least a cool dog?”
 
 After some more back and forth between all of them, I wished the ELKS safe travels. In turn, they bade Orion good luck on whatever shitshow awaits us [next.](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD) 
 
+Update: 
 
 
-
+[The development company's owner/CEO is a prick. ](https://www.reddit.com/r/nosleep/s/5V83bdlJia)
