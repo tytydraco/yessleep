@@ -43,3 +43,5 @@ One night, alone in my apartment, I stood before the mirror again. My soul glowe
 “No,” I whispered, lunging blindly.
 
 But I couldn’t stop it.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/5gHZcoXbmK)

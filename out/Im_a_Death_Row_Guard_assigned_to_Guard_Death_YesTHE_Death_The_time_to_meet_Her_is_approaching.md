@@ -27,7 +27,7 @@ Ok, fine. I'll take it.
 "Ok, I’ll answer the boring stuff real quick.  Most of us drink enchanted nectar, the rest are certified baddies who need fresh raw meat. it would be bloodbath to have us in there alone, let alone with you in the same room. She smiled at the thought."We aren't doing macaroni jewelry in there, Dunkin.
 
 In the HQ tier–in your Texas–the paperwork is done. She waved in the general direction of The Man. She does this often. You are, for lack of a better word, zapped in and out of your tier. They'll say it's for you're safety, but if you knew the entrance and exit and blabbed it could cause a breakout
-They talked about installing a doppelganger and just keeping you here in a dorm, but your wife would recognize it immediately. Instead she sees you drive to an expertly built mirage. It's solid to the touch, has a few homunculus on staff. You go in the building on autopilot and entire Tier 30 via elevator. Like Floo Powder in Harry Potter except the person who made it isn't a transphobic cunt.
+They talked about installing a doppelganger and just keeping you here in a dorm, but your wife would recognize it immediately. Instead she sees you drive to an expertly built mirage. It's solid to the touch, has a few homunculus on staff. You go in the building on autopilot and enter tier 30 via elevator. Like Floo Powder in Harry Potter except the person who made it isn't a transphobic cunt.
 
 Your wife is smart, btw. Doesn't know it but she's part forest nymph. That's why she feels so free in nature and loves to fu–”
 
