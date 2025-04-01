@@ -316,4 +316,5 @@ I reached for the remnants of what was left of the world’s power, my fingers t
 
 If you can read this—if anything still remains—please give us a sign.
 
-[The Skyfall Part 2](https://www.reddit.com/r/nosleep/s/yzLq5xP2zf)
+[The Skyfall (Part 2)](https://www.reddit.com/r/nosleep/s/yzLq5xP2zf)
+[The Skyfall (Part 3)](https://www.reddit.com/r/nosleep/s/FJTgZn93CB)

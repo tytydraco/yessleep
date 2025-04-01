@@ -1,4 +1,4 @@
-I’ve been working at this supermarket for about three months now. It’s nothing special, just a way to make some cash while I figure out what the hell I’m doing with my life. Most nights are slow, and the worst thing I usually deal with is an old lady trying to use an expired coupon or a teenager sneaking beer into the self-checkout.
+I’ve been working at this supermarket for about three months now. It’s nothing special, just a way to make some cash while I figure out what the hell I’m doing with my life. Most nights are slow, and the worst thing I usually deal with is an old lady trying to use an expired coupon or a teenager sneaking beer into the self-checkout. It was usually $36 per hour. Not a bad job!
 
 But last night… last night was different.
 
@@ -20,6 +20,8 @@ I frowned but took the list. It wasn’t unusual for him to make up weird rules�
 10. Never, under any circumstances, look at your reflection in the freezer doors after 3:00 a.m.
 
 I laughed at first, thinking it was some elaborate prank. But Mr. Thompson didn’t laugh. “Just follow the damn rules,” he said, rubbing his temples like he had the worst migraine in the world.
+
+"Oh yeah. By the way, your pay has been increased to $45 per hour. So follow the rules." I immediately stopped laughing.
 
 By the time 11:15 rolled around, I was already on edge. I had my hands on the door, ready to grab the last few shopping carts, when my phone buzzed. A text from Mr. Thompson.
 
