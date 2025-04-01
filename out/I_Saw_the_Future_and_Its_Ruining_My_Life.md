@@ -1,0 +1,117 @@
+Did you know the Vatican has a time machine? That’s how the story goes. Its existence was first broadcast to the world by some wingnut radio jockey, on the Italian equivalent of *Art Bell’s Coast to Coast*. Maybe it was some fringe newspaper editorial. Created by a monk, and subsequently dubbed the ‘*Chronovisor’* by the whistle-blower, it was a camera that supposedly could snapshot any period in history. Supposedly, an image of a suspiciously Caucasian Jesus was taken in suspiciously shitty quality, and the device was supposedly squirrelled away to the depths of the old world. There it remains to this day, lorded over by cloaked archivists in some torch-lit cellar adorned with skulls and crossbones on each padlock. Supposedly.
+
+ 
+
+I remember the night my good friend died, vividly. Not that I imagine most would forget such a thing. The panes of my bedside window cowered under the abuse of the greasy rain; the doorbell spammed a string of screeches; the pounding of balled fists and outstretched palms howled on the door. No one was there, though it admittedly took several minutes to build up the nerve to investigate. What greeted me instead was a cardboard box, glistening under the porch light, skidding across its sodden surface. On top sat a note, written in delicate, recognisable penmanship.
+
+ 
+
+We had been friends since we were teenagers – a kinship born almost entirely of proximity (a choice first encounter at the local psychiatric clinic sealed our fate.) We were both troubled, lonely, and very scared kids, sharing the same insecurities and anxieties about the world. By anyone else’s standards, we were far from close, but to us, we were the most important people in both our lives.
+
+ 
+
+He had been working on remote Research and Development projects at Bell Labs for a few years now, but seemingly stopped showing up for work for several weeks. He took an expensive loan, which I highly doubt he had planned to pay in hindsight. Any attempt to communicate – a text, a call, sending a meme, a knock on the door of his tiny little suburban house – he’d refuse to reciprocate. His curtains were pulled tight, his lights were off, he didn’t leave the house. His sister said that she thought he was physically fine, but that she had called a wellness check on him after he stopped returning her calls. The most I could do is slip a note through his letterbox, order a pizza to his house every so often. I wanted him to know I was a shoulder to lean on, but certainly didn’t want to exasperate any kind of negative circumstance he had found himself in.
+
+ 
+
+Whatever I was imagining then is now laughable. I think about those fleeting moments of uncertainty with fondness. I recall the torque of the knife as it slid through the packing tape. The sprawl of my fingers to stop the heavy contents from gutting through the sopping mess.
+
+ 
+
+The note was concise yet articulate. He had outlined his intention to kill himself, an incredibly premeditated decision in his part. Wracked with remorse for his actions - something from work he had pursued in his on free time - he couldn’t feasibly see a world with him in beyond his constant physical and mental suffering. He had invented a *time machine*.
+
+ 
+
+The machine in the box, in all honesty, resembled a *Virtual Boy*. It was both boxy yet conical in shape, with a waxy, amateurish red paint job to unsuccessfully veil the crude grain of the machining. It was weighted on an elevated tripod, with rubbery lips on the widest end to press your eyes into and had a pliable chinrest and a tactile, retro keyboard and scroll ball for control. There it sat on my kitchenette, draped in cheap cabling, like some analogue, space-age plaything.
+
+ 
+
+The rest of the box was stacked with paper. A little instruction manual sat loose in its string eyelets; blank sheets and a torn-up novel scrunched into balls had once padded the headrest like Styrofoam peanuts. In vaguely chronological order was his research journal. It didn’t seem to always read chronologically, as if it were arranged on a moment’s whim, but it was easy to clock the sequencing by following how coherent a page was. He began by detailing the history of the project at work, sandwiched between copy after copy of sensitive documents. His explanations of how it worked were vast – pages worth of complex, carry-on equations, and frequent, detailed diagrams of looping holes and scientific notation. Frankly, I wasn’t intelligent enough to make anything of it. He discussed trials, tests, anxieties surrounding it, and then his eventual use of it. He never talked about *what* he saw, simple *that* he saw, for hours and hours a time, every day. This was problematic, because, well, it made him batshit.
+
+ 
+
+The paced, communicative notes at-once became crabbed, illegible tangles of neuroses. Incomprehensible pseudo-philosophical schizo-babble; a grotesquery of doodled hallucinations he saw visit him in the bedroom mirror. Pages worth of itemised gangstalking suspicions conducted courtesy of his employers; chewed up paper carved with the manic spirals of a dead ballpoint pen. Chicken scratch word-vomit about changing physiognomy and railing OxyContin and self-harm and indescribable, profoundly dizzying depression. Rhetorical pontification on whom he should give the machine to. Why bother destroying it – someone else will just make one anyway, he’d reason again and again to no-one but himself. And lastly, eventual pleading not to surrender the machine to any three-letter agency, for the sake of the lives of whomever the recipient should hold dear. I shouldn’t tell anyone, he instructed.
+
+ 
+
+I sat there on my sofa, drinking milquetoast coffee for the remainder of a sleepless night. It naturally took a while for everything to fully absorb, wringing the cold, sloshing liquid between my hands. By the time golden sunbeams parsed between my bright shutters, the thought had finally hit me – my friend was *dead*.
+
+ 
+
+A less cowardly person would’ve called his sister sooner, but I am not that person. She called me, around midday. We talked for a bit, and she told me that he was dead. Though I definitely should’ve had more tact, the guilt was sickening. I asked if she knew why he did it. As the words left my mouth, I cringed into my shoulders, and then the recesses of my sofa. My voice sounded so monumentally small and weak. No, she told me. The weight of her burdened tone was crushing. I wanted to die just hearing it. By the time the call finished, I was filled with a searing, ugly, righteous anger. What *right* did he have to leave her, to leave me? What about this fucking thing was so worth dying over?
+
+ 
+
+The more emotional someone is, the more progressively stupid they become. It’s quite impressive, in hindsight, how much basic self-preservation I was able to counteract in my upset. I combed through the instruction manual – simply turn on the machine, wait for it to calibrate, and use it. It seemed impossibly simple. It required a wall outlet for power, *obviously*, as all time machines do. When cabled up, a delicate purr began to carry out the narrow end of the flute, and some blinkering LEDS dotted the sides. I slammed my ass into the barstool, and pressed my eyes into the holes. Swirling arabesque patterns of some incomprehensible colour seized my attention from the creeping self-doubt, and a series of blinding shapes flashed before my eyes. Before I knew it, I was using the machine.
+
+ 
+
+It was the back of my head, as I sat on the barstool, looking in the device, in my tiny home. I scrolled around, and I touched the keyboard, and the camera moved. *What the fuck?*  I jolted out of the device, but before long curiosity got the better of me. I clipped the camera through my walls, and saw Kat and Danny moving furniture next door. *He wasn’t this smart. Nobody was*. I followed a dog walker out the street. I reasoned explanation after explanation – this was pre-recorded footage, this was genAI, this was an elaborate prank, this was a *dream* \- one that was so honest and so real that you could touch it. I followed a dog walker, and brought the camera close to her face. Her stray tendrils of hair looked as full and warm as the curtains draping her face did in the midday sun; her eyes looked the colour of a forest’s floor. This was *real*.
+
+ 
+
+I watched the uncontacted Sentinelese sleep in their huts under star-spangled skies, and I discovered that the earth’s mantle is, unsurprisingly, kind of boring and pitch black. London, Cairo, Tokyo. I watched the sun skirt through coral clouds from atop a lonely Everest. By the time I felt I should take a break, my head screamed, and it was night, so I slept a still sleep. It was one of those sleeps your body takes out of sheer necessity. It bought no respite.
+
+ 
+
+Morning hit, and I sat at the kitchenette again. I piloted between high rises and terraced cottages around the world. I’d find couples fucking, and I’d watch and breathe so hard the chinrest nearly shook loose. It struck me not long after. I should see him. I skimmed the manual, learned how to access the ‘forth dimensional axis’, and before long, there I was inside his little house, waiting. It looked like a hurricane had hit – towers of papers and manuscripts were askew everywhere, and the ceiling was lined in scrunched tin-foil. I watched him enter having delivered the package, and I watched him slump down in his desk chair, recite some kind of prayer quietly, pull out a revolver from his waistband and shoot himself. The ringing was so sharp and spontaneous that the noise didn’t even register. His fingers uncurled against the oily, dank air, and the free-bleeding hole left the scene caked in a cloudy miasma. It was all so sudden. I watched his soulful eyes. Anyone who’s ever seen someone die will tell you the light doesn’t snuff instantly. They glossed over with seafoam haze, and they sat limp in their dun-coloured sockets. Little sclera veins reddened like tabasco. I withdrew my head. It was night already. That didn’t seem right.
+
+ 
+
+I sat on the toilet in the dark, soothing my pounding migraine from screenglare. It felt like no matter how much I shat, more kept coming. *Genuinely, why did I watch that?* I hoped it was some kind of esoteric search for closure, I feared it was some voyeuristic exercise in power. No, I loved him. I’d never do that. I must’ve been compelled for a reason, grief does strange things to people. *Wait, how did I hear the sound?* It must have been the calibration process. This thing doesn’t make sense, no point in questioning it. I reached for the toilet paper and stopped – he knew he was going to do it. Did he do it because he knew he was going to? How self-fulfilling is this? This *really* doesn’t make sense. *Nothing* about this makes sense.
+
+ 
+
+I slept between bouts of shivers, fighting the urge to vomit. Morning. Again. When I woke up, everything seemed stuck in some disorienting blur until I hit the machine. I watched my parents’ wedding. Seeing them so young was surreal. I cried. They seemed so genuinely happy. I watched the crow’s feet around my mother’s doe eyes, she smiled bigger than I think I’ve ever seen her smile. I went to the hospital, some years later. I trained the camera into my mother’s head, and watched my father’s grip, his tawny fingers sprawling the length of her forearm. I watched myself in the maternity ward. I watched myself learn to ride a bike, I watched myself get bullied in school, I watched myself befriend him; I watched a defective person cry themselves to sleep night after night after night fearing their life would pass them by. I watched myself sit there, dishevelled and deprived of food and sleep, staring into the device. I couldn’t help it. I went further. I watched myself go and eat food. I had forgotten to do that in the last few days. I watched myself gag into the sink. I watched days, I watched weeks; I watched myself unravel. The little camera view from my bedroom corner saw the shadows twist and pivot like some expressionist dance as the sun rise and sank. I scrubbed forward, and saw myself in my room, hanging from the ceiling fan. I turned it off for the day.
+
+ 
+
+There’s something so sickeningly melancholy about seeing people you know, younger than you’ve ever known them. Time manifests as this creeping omnipresence that just rapes and ravages with no remorse. Then to know they’ll get older than you’ll ever know is an existential traipse through territory very few people deal with. And whilst you’re always aware of it to *some* extent, you never really know how much of your memory is bullshit until you’ve seen the *real* deal - uncorrupted by the foibles of our brain’s bandwidth. It’s so alienating from the thoughts and feelings you think you have. I didn’t really have it in me to become emotional. It felt like too much effort to reconcile my emotions with my experiences. I had stepped in territory one other human being had been in. I couldn’t sleep, yet I denied myself the privilege of histrionics. When I did sleep, I watched chapters of my life skip past me like a DVD menu, each time I close my eyes. Time I’ll never get back. I hadn’t felt warmth in a long time.
+
+ 
+
+The future goes far beyond the immediate so I went forward. Time passes differently with the machine, it’s almost inexplicable. Thousands of years can pass within hours, like crude montage of things that transpire, and the right minute can last for what feels like a day. I’m almost anxious about revealing the wrong thing, though I already know what I’m to say. There’s no grand cataclysm. Things get worse, we come up with a way to make things work a little, and they get worse again. This is the nature of people. It’s unchanging, and infallible, and inevitable. I’ve seen the whole thing. It’s surreal. The heat death of the sun, the end of it. The profound absence of anything at all, it goes beyond darkness as we know it, so pervasive and tactile it drowns you.
+
+ 
+
+I found a hospital, I don’t quite remember which, and I don’t remember when. I picked a baby in a ward, and oriented the view to his perspective. I watched us collapse into our mother’s open arms after our first pattering steps, her toothy smile snapping into a mosaic of genuine joy. I watched us cup our dog’s aged head in our dark little hands, our shape in their watery, starry eyes. I watched blades of grass skirt between our fingers on a lazy afternoon. I watched us graduate; I watched the tiny crinkle in our girlfriend’s nose as she laughed at our shitty jokes. I watched us tumble over decorating our first Christmas tree; I watched us tumble over decorating our last Christmas tree.
+
+ 
+
+I witnessed our universal progenitor lurch over, masturbating their animal form. I saw Hitler’s final moments. I saw Jesus Christ (for what it’s worth, not *that* white). I know what *Croatoan* means, I know what happened to the Mary Celeste. When we make first contact some hundred years from now, it isn’t exciting, and some Maasi tribesmen beat the history books to it. These big events, these larger-than-life lives, they lose their bite after the nth go-around. And I’ve lived a thousand lives, each one mundane and small in their own ways, and lived a trillion of those tiny genocides that domesticity offers up each day. I wasn’t cut out for it, living.
+
+ 
+
+A realisation that I believe most people come to face is that their life isn’t going to turn out the way they want it to. Their childhood dreams escape them. Maybe the storybook closure they might so desperately seek is an impossible dragon to chase. In spite of this, they keep living, and persevering like people do. In my majorly depressive state, I’ve read everything I can find about worldlines and the metaphysical guardrails and tramlines of reality. I’ve stalked some of the most astute theoretical physicists of our civilisation. Some of it can explain, but none of it can help my brain grasp the circumstances it finds itself in. It all feels like some cosmic punishment. Some things can’t be answered, some things can only be felt – isolation, sadness, and the walls of agency collapsing around you, throwing you into the dark.
+
+ 
+
+A couple days ago, I began seeing *it*. One of the things from the chicken scratch notes. It looks like a silhouette, but with more than 2 dimensions. From up close you can make out some features, pearlescent teeth that hang loosely in the absence of a skull, small whites that float too close together to resemble eyes. It initially lurked behind corners, receding into the pillars of gloom that built up my dreary home. When I went to shave, it was in the mirror, watching me from the door. Now it’s everywhere: shadowing me from behind via the shiny handle of my coffee maker, my reflection in the night-time rain when I step outside.
+
+ 
+
+As I lay curled between the shower and the toilet during a notably nasty bout of diarrhoea, I saw it again, watching from the bathroom mirror. An outstretched finger prodded the glass, shaking the mirror off the wall. It dropped, splintering chunks of shimmery resin across the laminate floor. I remember not really acting, just crying; I took the mirror outside into the cool dusk air to confirm, in the presence of the rest of the apathetic world. I combed through the words he wrote, labouring over them for the tiniest reference to my experience. If I had found anything, I doubt it would’ve helped.
+
+ 
+
+I can barely stay awake at any given point, I shake and vomit until I can’t throw up any more. Any time spent not looking into the machine imparts me with a pained, disembodied delirium. Just writing this out on my laptop is torturous. I know it’ll be done. I know it’ll be posted, and I know where. It’s not going to be believed, so it might as well be shared to some fucking *horror forum*, mightn’t it? That’ll get it a little more recognition, rather than the purported true-life ramblings of a madman. At least then my existence is eked out in the tapestry of time just a little bit longer.
+
+
+
+I’ve stopped showering, the last time I did I clutched around a fistful of loose hair from my head. I’ve stopped shaving, stopped cleaning, stopped eating, and I look like complete shit. My skin is sallow and thin, laden with bruises and cuts both self-inflicted and spontaneous. I can’t rationalise where I pick them all up from. Each waking second, I hear *something* behind the tinnitus. Be it laughter, crying, snoring; the names of someone or something I’ve encountered and forgotten in one of my many lifetimes. I can barely drown out the noise, I can barely sleep. *We* aren’t designed for this, neurologically speaking.
+
+ 
+
+When I do sleep, I have this recurring dream of being lost in an indescribably dark ocean. I thrash and pull fistfuls of seafoam into my chest; I turn my arms into adamantine oars and heave myself through the water. I get nowhere. When I can’t swim, I let the waves carry me up to some higher vantage, only to confirm that I’m helplessly alone. Sometimes, I put out a decent fight, other times, I don’t even try. I let myself slowly carry down. I see the slithers of navy moonglow weave through the water above me, I feel my body crumple under a million years of hardship. My slaving lungs burn and all I taste is salinated copper. It’s agonising, but as I watch the light, I don’t feel sadness.
+
+ 
+
+I went to the store a few days ago, and each face, each person, each body - they were all rendered in this smeary residue from a million memories more than I should have. Their vacant eyes, each pair indeterminable from the next, bore holes into me. Like the waifish shapes from sleep paralysis made into golems of flesh. I called my mother, and I snatched a glance of her grey, milky eyes, and cried. I didn’t even recognise her face. Time doesn’t even work correctly anymore. Reaching to pick up a glass of water could feel like minutes, even if I can logically assert it isn’t. I’ve been listening to a lot of music – my favourites, my parents’ favourites, music from the background of a memory I’d have deemed as window-dressing. A song can last a few seconds, if I’m lucky enough to focus on it.
+
+ 
+
+I bought a very expensive Taylor guitar, because why not. I frankly doubt I’ll use it that much. I got a thirteen shot espresso earlier in public as a last farewell trip, and thought about that fake Jesus photo in the Vatican. I think it was from a postcard, if I’m remembering correctly. Yeah, that sounds right.
+
+ 
+
+I’m going to take my own life very soon. Between the prosopagnosia, my failing body, my wavering grip on the world, my insurmountable burden and inevitable fate - this is a comfort, *believe me*. I trace the delicate branches snaking inside my wrist, contemplating how I’m going to do it, but I’ve seen the technique. I’ve thought about destroying the machine, but it seems hopeless. If you’re reading this, let me know if you have any interesting life experiences, and at least extend the charity and give me something to fill my time. I already know which ones I’ll pick anyway.
