@@ -1,97 +1,105 @@
+I didn’t sleep that night. How could I? My face was on a missing persons list. A year gone. Just like that. The moment I got home, I locked every door and turned on every light in my apartment, but no matter how bright the room was, it didn’t help. The feeling was still there, that creeping, gnawing sense of being watched. Like I never really left.
 
-I don’t even know why I’m writing this. Maybe I just need someone to believe me. Maybe I need to get it out of my head before it eats me alive.
+At exactly 12:30 AM, my phone buzzed.
 
-There’s a town that shouldn’t exist. It’s not on any map, no records, nothing just a name whispered between truckers and late-night travelers. Black Hollow.
+UNKNOWN CALLER.
 
-No one plans to go there. It just shows up.
+I stared at the screen, my pulse hammering in my ears. I wasn’t answering that. No way. But as soon as the call ended, another notification popped up.
 
-If you’re ever driving down Route 29 past midnight, you might see a road that wasn’t there before. A cracked asphalt path winding into the fog, with an old wooden sign barely holding on. The letters are faded, peeling. But if you look close enough, you’ll see it.
+One New Photo Saved to Gallery.
 
-Welcome to Black Hollow.
+My blood ran cold as I opened it. It was a picture of me. Standing in front of the gas station. But I never took that picture.
 
-I made the mistake of taking that road.
+And worse, there was someone standing right behind me.
 
-I was driving through the backroads, running low on gas, GPS acting up. It was one of those nights where the world feels empty, where you go too long without seeing another pair of headlights, and it starts messing with your head.
+Tall. Blurred. Wrong.
 
-Then I saw it.
+A cold wave crawled down my spine. My mouth felt dry. I told myself it was a prank, but deep down, I knew better. My hands shook as I set the phone down.
 
-The turnoff.
+Then I noticed the silence.
 
-A gas station’s neon glow barely visible through the fog. I figured, why not? Fill up the tank, grab a coffee, keep moving.
+I live in the city. There’s always noise of cars, sirens, distant chatter. But now? Nothing. Not even the hum of the fridge. Not the ticking clock above my desk. Just emptiness.
 
-But as soon as I turned onto that road, something felt… off. The air got thick, like it was pressing down on me. The fog swallowed my car whole, my headlights barely cutting through. My radio crackled, then died.
+Then the lights flickered.
 
-Then my phone screen glitched out.
+And the air changed.
 
-That should’ve been my first warning.
+Thick. Heavy. The same dense, choking air from Route 29.
 
-The town looked frozen in time—rows of old houses, a diner, a gas station. But no streetlights. No sound. Just stillness.
+I turned toward my door....
 
-Yet, the gas station lights were on.
+And my stomach dropped.
 
-I pulled in, relieved, but the place was empty. No attendant, no cars, no sound. The pumps were ancient, the kind with rolling numbers instead of a screen.
+The wood looked old now. Warped, cracked. The handle, rusted. Like it had been there for years.
 
-And then I heard it.
+And carved into the surface, deep and jagged, were the words I never wanted to see again.
 
-A whisper. Right behind me.
+WELCOME TO BLACK HOLLOW. YOU CAN CHECK IN, BUT YOU CAN’T CHECK OUT.
 
-I spun around, heart hammering. Nothing. Just my own shadow stretching too long under the flickering station light.
+My chest tightened. I took a step back.
 
-I hurried inside. The bell above the door jingled, but the store was empty. Shelves were stocked, but covered in dust. It was like everything had been waiting for someone to show up.
+Then, KNOCK. KNOCK. KNOCK.
 
-And then I saw the newspaper on the counter.
+Slow. Deliberate.
 
-"BLACK HOLLOW MISSING AGAIN. TOWN DISAPPEARS FOR 30TH YEAR IN A ROW."
+I shook my head. No. No, I left this place. I escaped.
 
-The date? Exactly one year ago.
+KNOCK. KNOCK. KNOCK.
 
-My stomach dropped. I turned to run.....
+Louder now. More forceful.
 
-And that’s when I saw them.
+Then, my phone buzzed again.
 
-Figures. Standing outside. Watching me. Their faces weren’t right—blurry, like looking at a reflection in broken glass.
+LIVE VIDEO - NOW STREAMING.
 
-My pulse pounded in my ears. The store lights flickered, and for a split second, I saw their faces clearly.
+I didn’t open it. I couldn’t.
 
-They weren’t strangers.
+But then, the video opened on its own.
 
-They were people I’d seen before. On missing posters. On the news. Faces of people who had vanished.
+The screen flickered. A dark, grainy feed appeared. The camera was pointed at my apartment door.
 
-And then.....
+The very same door standing right in front of me.
+
+But I wasn’t holding my phone anymore.
+
+My breath hitched. In the video....
+
+The door was already open.
+
+A shadow stood in the hallway. Still. Waiting.
+
+Then movement.
+
+The figure tilted its head.
+
+And then, in real life....
+
+My doorknob turned.
+
+I staggered back, a strangled noise escaping my throat. I squeezed my eyes shut, muttering that this wasn’t real, that I was just imagining things.
+
+But when I opened them, I wasn’t in my apartment anymore.
+
+The walls were different. The air smelled stale, like dust and rot. The lights above me flickered dimly, their bulbs swaying as if disturbed by something unseen.
+
+I turned to my hallway mirror.
+
+And I saw it.
+
+At first, my reflection looked normal. Same clothes. Same terrified expression.
+
+Then it grinned.
+
+Not a normal grin. It stretched too wide, teeth too sharp. Its eyes black and empty.
+
+And then, it moved.
+
+Not in sync with me. Not like a reflection should. It took a step forward. Closer.
+
+"You never left."
 
 The lights went out.
 
-I don’t remember running to my car, but I must have. My tires screeched as I tore down that road, the town stretching on like it didn’t want to let me go. The fog thickened, twisting like it was alive.
+And this time....
 
-And then I saw the sign again. But this time, the words had changed.
-
-“WELCOME TO BLACK HOLLOW. YOU CAN CHECK IN, BUT YOU CAN’T CHECK OUT.”
-
-Then—blackness.
-
-I woke up on the side of Route 29. My car was parked neatly on the shoulder, gas tank full. My phone worked again. The time on the dash? 12:30 AM.
-
-Like nothing had happened.
-
-But when I got home, I checked the missing persons reports.
-
-And there, in the latest update…..
-
-My face.
-
-It had only been a few hours since I left that town. But the report said I had been missing for a year.
-
-I don’t know how much time I lost in that place. But I know one thing for sure.
-
-Black Hollow is real.
-
-And it’s still out there, waiting.
-
-I should have never turned down that road.
-
-So if you’re ever driving on Route 29 past midnight…..
-
-Keep going.
-
-Because if you see the turnoff, it means Black Hollow has already chosen you.
-
+I knew I wasn’t waking up in my apartment again.
