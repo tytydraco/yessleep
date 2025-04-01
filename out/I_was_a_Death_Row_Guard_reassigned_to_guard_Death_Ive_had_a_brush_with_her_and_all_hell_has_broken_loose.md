@@ -54,9 +54,9 @@ Liberty looked at me directly in the eyes. “They took my crown. They took my t
 
 “NO YOU WON’T.”
 
-“I will,” said Liberty said. It's your sworn duty to God.” 
+“I will,” Liberty said. It's your sworn duty to God.” 
 
-“TELL THE OLD BOOMER I SAID THOUGHTS AND PRAYERS.”
+“TELL THE OLD BOOMER I SEND THOUGHTS AND PRAYERS.”
 
 Then all hell broke loose.
 
