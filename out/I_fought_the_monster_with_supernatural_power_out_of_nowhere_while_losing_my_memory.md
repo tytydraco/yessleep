@@ -1,4 +1,4 @@
-5:30 pm, when it was gradually turning to dusk, at this time, most of the customers had left “Moonlight” cafe where I was working for a living, and I would be the one who was in charge of closing the cafe. I was sitting in the chair behind Michael Conslake- one of his colleague and falling asleep on the table with an exhausted condition while cleaning the tables and chairs in the cafe. I dreamed that strange dream: I found myself staying inside a deep cave and was witnessing two supernatural entities confronting each other. One of them ws in the form of a girl who wore a white dress, and another one was an entity covered by black fog with a big pair of crimson eyes and terrifyingly sharp teeth.
+5:30 pm, when it was gradually turning to dusk, at this time, most of the customers had left “Moonlight” cafe where I was working for a living, and I would be the one who was in charge of closing the cafe. I was sitting in the chair behind Michael Conslake- one of my colleague and falling asleep on the table with an exhausted condition while cleaning the tables and chairs in the cafe. I dreamed that strange dream: I found myself staying inside a deep cave and was witnessing two supernatural entities confronting each other. One of them ws in the form of a girl who wore a white dress, and another one was an entity covered by black fog with a big pair of crimson eyes and terrifyingly sharp teeth.
 
 Two forces from two white and black power spheres were shot at each other. From my perspective, it was just like a scene from a science-fiction movie. A white aura surrounded the girl, and the force of the black fog was getting stronger. This created a huge vibration that shook the whole cave, and everything around it was being cracked up. The space was covered with two colors: black and white.
 
@@ -26,7 +26,7 @@ Suddenly, the girl turned her eyes to me. I realized that she was also aware of 
 
 "I’m so sorry. It's all for the future of humanity. I want to say that I don't regret choosing this path."
 
-Then Goddess recited a spell: "Maruva...- Creating the barrier". Suddenly, her body radiated a huge light, causing Victor to be dazzled, so he covered his eyes with his hand instinctly.
+Then Goddess recited a spell: "Maruva...- Creating the barrier". Suddenly, her body radiated a huge light, causing me to be dazzled, so I covered my eyes with his hand instinctly.
 
 I woke up, then stood up, shouting: "Don't!", while stretching out my hands, and turning my open left palm toward Michael who was sweeping the floor. Michael was startled, jumped up, his face panicked abit, said:
 
@@ -109,9 +109,9 @@ I know I can’t help but asking that entity for my curiosity:
 
 That ghost in the background began to speak:
 
-"Hey you, you may not know it, but we are the gods who protected humans 1000 years ago, so don’t give me orders, human.”
+"Hey you, you may not know it, but I am one of the gods who protected humans 1000 years ago, so don’t give me orders, human.”
 
- “How arrogant he is. Such a pain”- I whispered with discomfort.
+ “How arrogant he is. Such a pain”- I muttered with discomfort.
 
 “I can hear what you said even when you didn’t say it loud, tho. Watch your mouth if you want to talk to us, human”- Thedus chewed me out.”  
 Then I knew he’s exactly the type of guy I thought, so I changed my attitude for my sake and said:
@@ -128,12 +128,12 @@ Michael immediately took a thing that as similar to my Elemental Card but with b
 
 "Got it. But can you tell me why I had such a strange dream? And the reason humanity like us were chosen to be warriors."
 
-Thedus remained silent a few seconds, didn't know what he's thinking. And then answered me:
+Thedus remained silent a few seconds, didn't know what he's thinking. And then he answered me like that:
 
 "I don't know anything about your dream and the reason why you had such a weird dream. As for the reason why we chose humans, you will find out later. What you have to do is keep fighting and exploring the secret behind yourself."
 
 Suddenly, my Elemental Card lighted up, and so did Michael’s. He looked at me as if he realized what it meant. Michael dropped the mop from his hand and said:
 
-"There is a monster in the city. Through how bright our Elemental Cards are, the monster is very close to us. We got to go now, guys."
+"There is a monster in the city. Through how bright our Elemental Cards are, the monster must be very close to us. We got to go now, guys."
 
  <to be continued>

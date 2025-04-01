@@ -24,7 +24,7 @@ One crisp April morning, seven months after the accident, I stood in my bathroom
 
 Panic clawed at my chest. I stumbled back, knocking over a bottle of soap, and called for Mia. She rushed in, her voice tight with worry. “What’s wrong? Ethan, talk to me!” I couldn’t explain—not fully—but I grabbed her arm and rasped, “I need a doctor. Now.”
 
-At the hospital, the tests were a blur. Bloodwork, scans, an EKG. I sat rigid, the red glow of my soul pulsing in my mind, brighter than ever. The doctor returned with a frown. “You’re lucky you came in,” he said. “We found a clot in your lung—a pulmonary embolism. Another few hours, and…” He didn’t finish. He didn’t need to. My hands trembled as they hooked me to an IV, pumping me full of anticoagulants. The red faded from my vision by nightfall, replaced by the familiar green of my living soul.
+At the hospital, the tests were a blur. Bloodwork, scans, an EKG. I sat rigid, the red glow of my soul pulsing in my mind, brighter than ever. The doctor returned with a frown. “You’re lucky you came in,” he said. “We found a clot in your lung—a pulmonary embolism. Another few hours, and…” He didn’t finish. He didn’t need to. My hands trembled as they hooked me to an IV, pumping me full of anticoagulants.
 
 I’d cheated it. For the first time, the red hadn’t won.
 
