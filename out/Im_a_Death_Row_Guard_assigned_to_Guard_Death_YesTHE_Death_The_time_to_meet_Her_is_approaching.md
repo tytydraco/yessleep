@@ -61,6 +61,8 @@ Then disappeared as suddenly as she came in.
 
 Sunday, March 30th, I wrote in my book. I met her sort of. She said “SOON”. Tf?
 
+Next: https://www.reddit.com/r/nosleep/s/PADQ10lMqN
+
 
 
 
