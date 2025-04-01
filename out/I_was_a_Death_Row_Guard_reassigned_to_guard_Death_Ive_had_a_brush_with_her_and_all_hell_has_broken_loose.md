@@ -10,7 +10,7 @@ That case always bothered me. Hank was an asshole, and maybe a small, bad part o
 
 It was lost in police custody. The biggest piece of evidence in a murder case and someone just what, forgot it somewhere? Lost an XXL blood soaked coat with a huge tag that said “evidence”? 
 
-Fishy, if you asked me. Hank’s case was presided over by a former sheriff, now a judge, who was responsible for arresting Hank in a series of petty misdemeanors. They hated each other. Seemed like a conflict of interest to me, but no one ever asks the executioner. Hank was driven to the Death House (the unit where we perform executions) three times, and was stayed three times. It went to the supreme Court back then. Four in favor of resentencing to Life Without Parole, 5 who voted to kill him. 
+Fishy, if you asked me. Hank’s case was presided over by a former sheriff, now a judge, who was responsible for arresting Hank in a series of petty misdemeanors. They hated each other. Seemed like a conflict of interest but no one ever asks the executioner. Hank was driven to the Death House (the unit where we perform executions) three times, and was stayed three times. It went to the supreme Court back then. Four in favor of resentencing to Life Without Parole, 5 who voted to kill him. 
 
 In his notes, a member of the Supreme Court of the United States, I wont say who, wrote “Sometimes when something doesn't pass the smell test, you just gotta throw the whole thing out.”
 
@@ -18,17 +18,17 @@ Hank was never executed. He died at 68 of a heart attack. No conspiracy, no nefa
 
 Had he made it to the death chamber, I would have pushed the plunger. What is my life? Am I a just man? I put my head in my hands.
 
-I felt a gentle hand on my shoulder. “Yes, Shepherd Reaper. You are a good man.” I looked up and knew I was staring at Lady Justice. In a way she scared me more than Death. Death can kill me, but Lady Justice can judge me.This lady knew all my deeds and misdeeds. Let's face it, I totally killed a guy. Her duty was not exacting petty revenge like Karma. This woman was the one with the scales. How many of can say, really say with confidence, that the bad wouldn't tip the scales? Especially if you used the legal system to murder your daughter's rapist? The fear was there, sure, but so was grief and rage. I don't understand why that demon took my daughter. Where was Justice then?
+I felt a gentle hand on my shoulder. “Yes, Shepherd Reaper. You are a good man.” I looked up and knew I was staring at Lady Justice. In a way she scared me more than Death. Death can kill me, but Lady Justice can judge me.This lady knew all my deeds and misdeeds. Let's face it, I totally killed a guy. Her duty was not exacting petty revenge like Karma. This woman was the one with the scales. How many of us can say, really say with confidence, that the bad wouldn't tip the scales? Especially if you used the legal system to murder your daughter's rapist? The fear was there, sure, but so was grief and rage. I don't understand why that demon took my daughter. If he was going to rape and kill her, why the violence? Why did he choke her while singing Christmas carols? She loved Christmas, and they were perverted for her, tainted, in her last moments on earth. She could have lived and recovered. Where was Justice then? If any of you are parents and you had the chance to do what I did...would you?
 
-I can tell you that now she was fully covered in what looked like SWAT gear. Bullet proof vest, expertly shined shoes, and sure enough, aviator glasses. Apparently sewn by Arachne. She looked to be in her late 30s, possibly early 40s. Quite attractive, though no one compares to my wife. I missed my wife. 
+I digress. Lady Justice certainly did not "have a titty out" as she does in sculptures. Karma bends the truth.Justice was fully covered in what looked like SWAT gear. Bullet proof vest, expertly shined shoes, and sure enough, aviator glasses. Apparently the gear was all sewn by Arachne. She looked to be in her late 30s, possibly early 40s. Quite attractive, though no one compares to my wife. I missed my wife. 
 
-“I cannot intervene in the process of a crime. Otherwise the boy who harmed your daughter would be in a meat grinder right now. I can oversee due process. Restore balance, in the end..Sometimes the end takes a long time. You should not have interfered. You made a mockery of the justice system. As it turns out, however, this one is above my pay grade.
+“I cannot intervene in the process of a crime. Otherwise the boy who harmed your daughter would be in a meat grinder right now. I can oversee due process. Restore balance, in the end..the issue is sometimes the end takes a long time. Years. Sometimes lifetimes. You should not have interfered. You made a mockery of the justice system. Of my duties. As it turns out, however, this one is above my pay grade.
 
-Then a cold breath in my ear, not from Justice but some invisible presence, whispered, “But some people deserve to die. Fear not. Colton will never feel warmth again. There is no sun where he is. No people. His death is one of sparsity, cold, and isolation.”
+Then a cold breath in my ear, not from Justice but some invisible presence, whispered, “He deserved to die. Fear not. Colton will never feel warmth again. There is no sun where he is. No people. His death is one of sparsity, cold, and isolation.”
 
 I had just heard the voice of death, and I was relieved. Ain't that some shit?
 
-“Ah, I hear she spoke to you. My sister tells me she appeared the other nigjt. You are getting closer to meeting our Lady of Death. We do not tease to be cruel. Unlike your God, you are to have as much knowledge as possible.Your brain is your most powerful armor; the knowledge within your greatest protector. Without knowledge, I fear you would go insane. I've seen it happen.”
+“Ah, I hear she spoke to you. My sister tells me she appeared the other night. You are getting closer to meeting our Lady of Death. We do not tease to be cruel. Unlike your jealous God who would hoard all for himself, you are to have as much knowledge as possible.Your brain is your most powerful armor; the knowledge within your greatest protector. Without knowledge, I fear you would go insane. I've seen it happen.”
 
 I shuddered.
 
@@ -54,7 +54,7 @@ Liberty looked at me directly in the eyes. “They took my crown. They took my t
 
 “NO YOU WON’T.”
 
-“You will,” said Liberty said. It's your sworn duty to God.” 
+“I will,” said Liberty said. It's your sworn duty to God.” 
 
 “TELL THE OLD BOOMER I SAID THOUGHTS AND PRAYERS.”
 

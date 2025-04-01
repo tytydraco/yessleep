@@ -46,7 +46,7 @@ Now I rolled my eyes. Of course. My bullshit meter was going into hyperdrive: I 
 
 I hesitated for a moment. I could always try the IVF again. A new method was being pioneered down at the Mayo Clinic, something to do with treating the ovaries with stem cells, maybe? But I could only imagine it ending in utter, expensive failure.
 
-And then there was the other issue. Marlon, my boyfriend of five years, had thrown his hands up at the whole thing, frustrated at my tenacity, which he called obsession. A few days earlier, after our latest fight, he’d stormed out of the apartment without a word and hadn’t responded to any of my texts since.
+And then there was the other issue. Marlon, my boyfriend of eight years, had thrown his hands up at the whole thing, frustrated at my tenacity, which he called obsession. A few days earlier, after our latest fight, he’d stormed out of the apartment without a word and hadn’t responded to any of my texts since.
 
 “I can help you,” she added.
 
@@ -80,7 +80,7 @@ I had to stop myself from making a joke about magic carpets. Inge looked deadly 
 
 “And I can wish for anything?”
 
-“Most wishes are acceptable but it’s good to know ahead of time that there are limits. You cannot use the wishes to ask for more wishes or to kill a living thing or raise one from the dead. Or to negate the wish of another. Such things are against the nature of the spirit. It is a generous being by nature, looking to grant the heart’s desire of the worthy.”
+“Most wishes are acceptable but it’s good to know ahead of time that there are limits. You cannot use the wish to kill a living thing or to negate the wish of another. Such things are against the nature of the spirit. It is a generous being by nature, looking to grant the heart’s desire of the worthy.”
 
 “My wish is worthy,” I said.
 
@@ -268,7 +268,7 @@ The woman held up the bits of yarns in her lap. They seemed to vibrate, the danc
 
 In these shadows, a vision formed: it was my daughter years in the future, my same age. She was here in this very room, kneeling on this very same rug. Time moved in fast motion as I watched her suffer just as I had, her body breaking down, her mind drying into a husk as the lack of sleep and water broke it.
 
-But in the end, she too survived the trial. She took crawled to the old woman to make her wish.
+But in the end, she too survived the trial. She, too, crawled to the old woman to make her wish.
 
 “I don’t want to die,” she said through chapped lips. “But I wish I was never born. Could you do that for me?”
 
