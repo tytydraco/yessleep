@@ -484,7 +484,13 @@ Cobb had turned to face us. He looked even more terrifying now, dead skin hung l
 
 “Damn you boy, go now!” Yelled the captain, “I’ll hold them off.” 
 
-He gave me a shove out of the engine room, then slammed the door behind him. With no other option in sight, I ran. I ran as fast as I could to the wheelhouse. I found the inflatable life raft and made my way out onto the deck, then hesitated. Could I really leave the captain and the others here? Where was I supposed to go if I did leave the ship? Maybe I could find a weapon and help the captain fight them. Yes, I thought. I would help the captain; we would save the others.  
+He gave me a shove out of the engine room, then slammed the door behind him. With no other option in sight, I ran. I ran as fast as I could to the wheelhouse and found the inflatable life raft. I was about to leave the wheelhouse when the radio crackled.
+
+"Horven. This is the cargo ship Weston. We are always out from you yet, but we are coming. You men just hold on." 
+
+I snatched up the radio transmitter to respond, "Weston. This is The Horven, please hurry. I don't know how much longer we can last." 
+
+But there was no response, only static. I tried a few more times but still got nothing. I made my way out onto the deck, then hesitated. Could I really leave the captain and the others here? The life raft had a distress beacon on it, I was sure that the Weston would see it, even through the storm. Maybe I could find a weapon and help the captain fight them. Yes, I thought. I would help the captain; we would save the others.  
 
 I began looking around for something, anything I could use as a weapon, then I heard it. A wet, broken, gargled voice from behind me.  
 
@@ -508,7 +514,11 @@ I jumped to my feet, “The others?” I asked. 
 
 The captain shook his head, “Nothing to be done. Get the raft inflated, now. It's coming.”  
 
-I grabbed the life raft and pulled the cord, the raft self-inflated in a sudden whoosh of air.  
+I grabbed the life raft and pulled the cord, the raft self-inflated in a sudden whoosh of air. 
+
+"There's a ship on the way. The Weston, they said they were still a ways out but they are coming." I told him. 
+
+"Good. Let's get the raft in the water. That thing will be here any second." 
 
 “Wait.” I said, “Can't it just follow us into the water?”  
 
@@ -524,9 +534,9 @@ He nodded, “Thats right. Back in Norway, my grandfather would always tell me t
 
 “What name?” I asked. 
 
-He smiled a grim smile, “Kraken.” 
+ “Kraken.” 
 
-I shook my head, “No. That's just a story...” 
+I shook my head in disbelief, “No. That's just a story...” 
 
 He put his hand on my shoulder silencing me, “Maybe it is just a story. Or maybe, by naming my ship after the beast, I cursed us all. Either way, it's here and I’ll not leave while it lives.” 
 
@@ -548,6 +558,6 @@ The waves quickly pulled my raft out to sea, away from The Horven. I managed to 
 
  
 
-I was only at sea for a few hours before another crab boat came along. Their captain had heard our distress call and came looking for us. After getting me some dry clothes and a blanket, they asked if there had been any other survivors. I thought about Jimbo and Ramirez, if they were alive, they were probably infected with whatever changed Cobb. I thought about the captain, I hoped he had survived, but didn't think he had. If he didn't manage to kill the creature, he’d be in the same shape as the other two. 
+I was only at sea for a few hours before the cargo ship Weston came along. Their captain had heard our distress call and came looking for us in our last known location. After getting me some dry clothes and a blanket, they asked if there had been any other survivors. I thought about Jimbo and Ramirez, if they were alive, they were probably infected with whatever changed Cobb. I thought about the captain, I hoped he had survived, but didn't think he had. If he didn't manage to kill the creature, he’d be in the same shape as the other two. 
 
 “No.” I said after a while. “There was no one else.” 
