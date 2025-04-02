@@ -98,7 +98,9 @@ I can barely stay awake at any given point, I shake and vomit until I can’t th
 
 
 
+
 I’ve stopped showering, the last time I did I clutched around a fistful of loose hair from my head. I’ve stopped shaving, stopped cleaning, stopped eating, and I look like complete shit. My skin is sallow and thin, laden with bruises and cuts both self-inflicted and spontaneous. I can’t rationalise where I pick them all up from. Each waking second, I hear *something* behind the tinnitus. Be it laughter, crying, snoring; the names of someone or something I’ve encountered and forgotten in one of my many lifetimes. I can barely drown out the noise, I can barely sleep. *We* aren’t designed for this, neurologically speaking.
+
 
  
 
