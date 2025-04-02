@@ -24,7 +24,7 @@ As I followed her into an austere office, the flicker went away, and I saw the p
 
 “Do you have children?” I asked, and she shook her head.
 
-“I’ve never wanted them,” she said. “It complicates this line of work. Certain clients see fit to threated your family’s safety if they can’t get what they want. Things get quite ugly.”
+“I’ve never wanted them,” she said. “It complicates this line of work. Certain clients see fit to threaten your family’s safety if they can’t get what they want. Things get quite ugly.”
 
 She said this with an air of someone who’d crossed many dangerous people and come out on top. I thought it best not to inquire further.
 
