@@ -242,3 +242,4 @@ I stood and brushed the dirt off my legs then held out my hand to help her up. S
 
 “Bye again Everett.” She turned her back towards me and started off into the woods. I began my journey back but not before looking behind me again wishing we could've stayed longer. As I looked over my shoulder I noticed she had seemed to disappear completely, and looking back at the tree, I noticed a small purple flower next to where she was sitting, that hadn't been there before. 
 
+[Part 2](https://www.reddit.com/r/nosleep/s/OVl7S23LXf)
