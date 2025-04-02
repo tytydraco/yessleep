@@ -194,7 +194,11 @@ There was no time to process the unholiness and inexplicableness of such things 
 
 “*RUN!*” I screamed, grabbing my wife’s hand.
 
-I tore her down the stairs, feeling the warmth of her hand in mine this time—I’d finally pried her away from the landing. Away from the terrifying pursuer. Its spectral energy clung to our world, blaming us for its demise, and I didn’t plan on letting it rob us of life too—of bringing us into its world.
+As I turned to flee, one of the creature's gnarled fingers tore into my forearm, leaving a jagged wound that is still festering as I type now.
+
+I yelped and pulled Monica away, hoping to save her from that fiend.
+
+As we tore down the stairs, I felt the warmth of her hand in mine this time; I’d finally pried her away from the landing. Away from the terrifying pursuer. Its spectral energy clung to our world, blaming us for its demise, and I didn’t plan on letting it rob us of life too—of bringing us into its world.
 
 There came a rush of freedom both physical and supernatural as I rushed through the front door and the air hit my face. The unliving thing was bound to its resting place. It could not follow beyond that threshold.
 

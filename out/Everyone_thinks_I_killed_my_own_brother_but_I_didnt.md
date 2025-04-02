@@ -100,4 +100,4 @@ Mom believed it was over when she killed him, but it wasn’t. Greg followed in 
 
 Maybe now she can finally have some peace, though it came at such a high price.
 
-"Let's go home," she murmurs, her voice heavy with sorrow, gripping my hand tightly. And we go.
+"Let's go home," she murmurs, her voice heavy with sorrow, gripping my hand. And we go.
