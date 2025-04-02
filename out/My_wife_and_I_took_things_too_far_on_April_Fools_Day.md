@@ -194,7 +194,7 @@ There was no time to process the unholiness and inexplicableness of such things 
 
 “*RUN!*” I screamed, grabbing my wife’s hand.
 
-As I turned to flee, one of the creature's gnarled fingers tore into my forearm, leaving a jagged wound that is still festering as I type now.
+As I turned to flee, one of the creature's chipped, discoloured nails tore into my forearm, leaving a jagged wound that is still festering as I type.
 
 I yelped and pulled Monica away, hoping to save her from that fiend.
 
