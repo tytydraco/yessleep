@@ -336,3 +336,4 @@ I looked at Willow seeking approval. She nodded and smiled at my mother.
 
 I made sure to grab my flashlight before we set out. Willow jumped in front of me practically running out the door, her hand trailing behind her, reaching for mine. 
 
+[Part 3](https://www.reddit.com/r/nosleep/s/AkiLm0M3cx) 
