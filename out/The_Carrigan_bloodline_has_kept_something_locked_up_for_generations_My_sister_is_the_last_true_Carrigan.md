@@ -1,6 +1,6 @@
 It started when my mother died.
 
-The unknown number introduced themselves as Harold Tawney from Tawney & Sons, a local funeral parlour just south of Saltpenny. He delivered the news like I already knew it—courteous, flat, like a weatherman reporting on some distant tornado that had torn through someone else’s town, left behind somebody else’s wreckage. She’d been dead a while, he told me, left sitting around in the open Missouri heat long enough that he was quick to suggest a closed-casket service.
+The unknown number introduced themselves as Harold Tawney from Tawney & Sons, a local funeral parlour just south of Saltpenny. He delivered the news like I already knew it—courteous, flat, like a weatherman reporting on some distant tornado that had torn through someone else’s town, left behind somebody else’s wreckage. She’d been dead a while, he told me, left sitting around in the open Louisiana heat long enough that he was quick to suggest a closed-casket service.
 
 I told him that wouldn’t be necessary, that I’d probably just get her cremated, and besides—who the hell in Saltpenny would be seen dead paying their respects at the casketside of Bonnie-Ann Carrigan?
 
@@ -22,7 +22,7 @@ It slipped through the half-cracked windows—keeled-over nature left to rot, as
 
 Saltpenny was more bones than body now, a worn-down main street lined with dusty display windows, their glass streaked with years of neglect. Faded yellow signs still clung to the doors—CLOSING DOWN SALE! EVERYTHING MUST GO!—but everything had already been gone a long time.
 
-I stopped off at a petrol station to top up and buy myself some crisps.
+I stopped at a gas station to top up and buy some snacks.
 
 It’s a testament to how frozen in time this shithole is, because the eyes that followed me—this outsider with bare shoulders and a tattoo snaking up her neck—knew me by name, never mind that the last time anybody laid eyes on me, I was hollering and bucking in the back of a police cruiser almost twenty-five years ago.
 
@@ -38,7 +38,7 @@ It should’ve collapsed by now. Should’ve sunk into the mud and been swallowe
 
 I stepped through the creaky front door, letting out a breath like I’d been punched in the gut. The air inside was thick with time, a snapshot frozen in place. The place was worn, but clean—smelled of Lysol and mothballs.
 
-On the dining table, a calling card sat untouched. Missouri State Social Services. So Abilene hadn’t been completely abandoned, then.
+On the dining table, a calling card sat untouched. Louisiana State Social Services. So Abilene hadn’t been completely abandoned, then.
 
 The stairs groaned beneath my weight as I climbed. The hallway upstairs seemed longer now, as though it had stretched itself to accommodate the weight of everything that had happened since I left. I turned into the first room on the left.
 
@@ -355,7 +355,7 @@ Another thump, this time from inside the closet. The door, which I was certain I
 
 As if in answer, every door in the house slammed shut at once—a percussive blast that shook the walls and sent dust raining from the ceiling. From Abilene's room came a thin, terrified wail.
 
-I was on my feet before I could think, stumbling toward her room, my phone's light carving a frantic path before me. The air felt thick, resistant, as if I were trying to run underwater. And it was cold—a bone-deep, unnatural cold that had nothing to do with the Missouri night and everything to do with the wrongness spreading through the house like ink through water.
+I was on my feet before I could think, stumbling toward her room, my phone's light carving a frantic path before me. The air felt thick, resistant, as if I were trying to run underwater. And it was cold—a bone-deep, unnatural cold that had nothing to do with the Louisiana night and everything to do with the wrongness spreading through the house like ink through water.
 
 I reached Abilene's door and found it locked. Not stuck—locked. From the inside.
 
