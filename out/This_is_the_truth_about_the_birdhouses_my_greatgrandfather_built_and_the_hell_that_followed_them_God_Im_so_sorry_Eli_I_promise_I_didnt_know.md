@@ -68,7 +68,7 @@ And yet, I couldn’t answer the knocking. All I could do was stare at the dark 
 
 My great-grandfather unlatched the lock and pulled it open. The music of death swept through our home, followed by Eli’s parents shortly after. Sounds of anger, sorrow, and disbelief: the holy trinity of despair. Wails that wavered my faith in God.
 
-Mom guided me upstairs while Antonio went to go speak with them in our kitchen. They were pleading with him, but I couldn’t comprehend about what.
+Mom guided me upstairs while Antonio went to go speak with them in our kitchen. They were pleading with him, but I couldn’t comprehend what they were pleading for.
 
 \- - - - -
 
@@ -184,7 +184,7 @@ Through the open door, down a cramped, narrow hallway, I spied him sitting on th
 
 Sighing, I dropped my book on the floor aside the couch and buried my face in my hands. I couldn’t concentrate on my assigned reading: futilely re-reading the same passage over and over again. My mind kept drifting back to Antonio, that immortal, living statue gawking at nothing only a few feet away from me. It was all so impossibly peculiar. The man cleaned himself, ate food, drank water. According to his doctor, he was remarkably healthy for someone in their mid-nineties, too. He was on track to make it a hundred, maybe more.
 
-But he didn’t talk, not anymore, and he moved when he absolutely needed to. His “sessions” with all the grieving townsfolk had long since come to an end because of his mutism. Eli’s parents, for whatever it’s worth, were the last to go. His strange candlelight vigils from within the circle of birdhouses hadn’t ended with the “sessions”, though. I’d seen another taking place the week prior as I pulled out of the driveway in my mom’s beat-up sedan, on my way to pick up a pack of cigarettes.
+But he didn’t talk, not anymore, and he moved only when he absolutely needed to. His “sessions” with all the grieving townsfolk had long since come to an end because of his mutism. Eli’s parents, for whatever it’s worth, were the last to go. His strange candlelight vigils from within the circle of birdhouses hadn’t ended with the “sessions”, though. I’d seen another taking place the week prior as I pulled out of the driveway in my mom’s beat-up sedan, on my way to pick up a pack of cigarettes.
 
 The thought of him surrounded by his birdhouses in dead of night doing God knows what made a shiver gallop over my shoulders.
 
@@ -192,7 +192,7 @@ When I pulled my head from my hands, the sun had fully set, and house had darken
 
 I scowled, chastising myself for being such a scaredy-cat. With my stomach rumbling, I reached over to unzip my bag stationed on a nearby ottoman. I pulled a single wrapped cookie from it and took a bite, sliding back into my reclined position, determined to make a dent in my American Literature homework: needed to be half-way done *A Brave New World* by Aldous Huxley before I went to sleep that night.
 
-As I tried to get comfortable, I could tell something was desperately wrong. My throat felt dry and tight. My skin itched. My guts throbbed. The breath in my chest felt coarse, like my lungs were filled to capacity with asphalt pebbles and shards of broken glass bottles. I shot up and grabbed the cookie’s packaging. There was no ingredient label on it. My college’s annual Spring Bake Sale had been earlier that day, so the treat had probably been individually wrapped by whoever prepared it.
+As I tried to get comfortable, I could tell something was desperately wrong. My throat felt dry and tight. My skin itched. My guts throbbed. The breath in my chest felt coarse, like my lungs were filled to capacity with asphalt pebbles and shards of broken glass. I shot up and grabbed the cookie’s packaging. There was no ingredient label on it. My college’s annual Spring Bake Sale had been earlier that day, so the treat had probably been individually wrapped by whoever prepared it.
 
 I was told the cookie contained chocolate chips and nothing else. I *specifically* asked if there were tree nuts in the damn thing, to which the organizer said *no*.
 
