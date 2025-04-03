@@ -132,7 +132,7 @@ What I didn't understand as a child was that this disease was cruel.
 
 It wasn't going to leave anything behind. 
 
-It made her scream and cry, and in the later stages, try and throw hands at my mother, who she no longer recognized. 
+It made her scream and cry, and in the later stages, try and throw her hands at my mother, who she no longer recognized. 
 
 “I want to die in the water! I *want* to die in the water! Let me die in the water!”
 
@@ -666,6 +666,12 @@ The water rippled, but the merman didn't break through.
 
 “There's no way you *know* my grandma,” I gritted out. “So, what the fuck *are* you?”
 
+It hit me, then, that Grammy really did drown. 
+
+This thing was fucking with my head. 
+
+The merman only shot me a knowing smile. 
+
 Roman disappeared for a moment, reappearing with a bottle of water. 
 
 He downed the whole thing, scrunching it up and throwing it in the pool. 
@@ -692,13 +698,17 @@ Before dropping onto his stomach and slurping up the spilled water letting out h
 
 I jumped up, grabbed his ankles, and dragged him away from the pool. 
 
-“Fuck.” Roman finally spluttered, coughing something up. “I can't… I can't breathe.”
+“Fuck.” Roman finally spluttered, coughing something up. 
+
+“I can't… I can't *breathe*.”
 
 His short, panting gasps turned into heaves for breath. 
 
 Rolling him onto his side in the recovery position, I waited for him to start puking up water, but he didn't. 
 
-His cheeks were sickly pale, almost gaunt, like something was sucking the life out of him. When I grabbed Roman’s leg, I saw it, like a virus, rippling over his bare flesh. 
+His cheeks were sickly pale, almost gaunt, like something was sucking the life out of him. 
+
+When I grabbed Roman’s leg, I saw it, like a virus, rippling over his bare flesh. 
 
 In a panic, I plucked off a slimy scale, but another grew in its place, then another, his skin hardening into a marble-like substance, bleeding into fish-like scales.
 
@@ -706,7 +716,7 @@ In a panic, I plucked off a slimy scale, but another grew in its place, then ano
 
 The merman was leaning over the edge of the pool, chin resting on his fist.
 
-"Right now, his body is changing, and if you don't let it, his lungs will reject the change, shrivel up, and the body will die."
+"Right now, his body is changing, and if you don't let it, his lungs will reject the change, shrivel up, and the host will die."
 
 I was paralyzed before it hit me. 
 
@@ -716,7 +726,7 @@ I think I apologized or tried to, my heart in my throat. I tried to roll him int
  
 “No, he needs the *sea*,” the boy said sternly. “If you want him to breathe long enough to get him into the sea, you need to slice into his lower back and his neck.”
 
-Roman was conscious enough to protest, squeezing out a, “No! Are you fucking serious? *don't* touch me!"
+Roman was conscious enough to protest, squeezing out a, “No! Are you fucking serious? *Don't* touch me!"
 
 His voice dropped into a snarl, eyes rolling back. 
 
@@ -756,15 +766,17 @@ The mer-man didn't want a Queen to *marry*.
 
 I felt sick, my stomach contorting.
 
-“You only drown men,” I said, the words tumbling from my mouth. “So, why did you take *her*?”
+“You only drown men,” I said, the words tumbling from my mouth. 
 
-When the mer-man inclined its head, I knew exactly what it was thinking.
+When the merman inclined its head, I knew exactly what it was thinking.
 
-“You can't tell the difference between us. So you wait to see if we will change.”
+“You can't tell the difference between us." I said. "So you wait to see if we will change.”
 
-“You've got to be fucking *kidding* me.” 
+“You've got to be fucking *kidding* me!” 
 
-Roman was coughing, spluttering, his eyes wide. But even conscious, he was crawling toward the pool, toward water. 
+Roman was coughing, spluttering, his eyes wide. 
+
+But even conscious, he was crawling toward the pool, toward water, dragging himself, like the thing inside him was in full control. 
 
 I grabbed him before he could, scooping him into my arms. 
 
@@ -776,7 +788,7 @@ The boy’s smile was filled with thread-like worms.
 
 “The body doesn't have long.”
 
-As if emphasising his words, Roman’s body was jerking in my arms, trying to get back to water. 
+As if emphasizing his words, Roman’s body was jerking in my arms, trying to get back to water. 
 
 His eyes weren't his, quivering lips screaming at me to throw him in. 
 
@@ -802,15 +814,15 @@ The merciful thing would have been to kill him.
 
 To stop the parasites writhing beneath his skin, already coiling around his iris.
 
-But I couldn't. 
+But I couldn't. I was paralysed, watching my friend suffocate on land. 
 
 I watched the merman drag him out into the ocean, the two of them disappearing under the surf. 
 
 I wanted to believe that the parasite didn't take all of them. 
 
-Just like my Grammy, who was conscious enough to tell the ‘merman’ about me. 
+The merman seemed to retain human speech. 
 
-Maybe Roman was the same. 
+Maybe Roman would be the same. 
 
 I went home and took three showers, scrubbing my body until I was screaming. 
 
@@ -820,9 +832,7 @@ And then I fucking cried.
 
 Roman’s disappearance was ruled a drowning. 
 
-Just like my Grandma. 
-
-One year later, it's spring break, and my parents have been trying to convince me to rent out the house to college kids. 
+A year later, it's spring break, and my parents have been trying to convince me to rent out the house to college kids. 
 
 I've been refusing. I don't want anyone near the pool. I clean it every weekend, but I can't bring myself to actually use it. 
 
@@ -860,13 +870,19 @@ I don't know why my Grammy described the tails as *magical*, and *breathtaking*.
 
 She didn't see the reality of Sebastian. 
 
-There was nothing magical about the parasite clinging to my friend's body, a cruel mimic of what this thing *thought* a tail was, human bones contorted and forcibly molded and *shaped* to adapt. 
+There was nothing magical about the parasite clinging to my friend's body. 
+
+A cruel mimic of what this thing *thought* a tail was. 
+
+Human bones contorted and forcibly molded and *shaped* to adapt. 
 
 There was nothing *beautiful* about his unblinking, colorless eyes staring at me. 
 
-Nothing enchanting about the crown of sea glass forced onto his head, beads of velvety red staining his temples, or the strands of seaweed tangled in his hair. 
+Nothing enchanting about the crown of sea glass forced onto his head. 
 
-I saw it for him for what he really was; a drowned husk of flesh infested with a parasite. 
+Beads of velvety red staining his temples, or the strands of seaweed tangled in his hair. 
+
+I saw him for what he really was; a drowned husk of flesh infested with a parasite. 
 
 There was no recognition in his expression, and yet he was still *here*.
 
