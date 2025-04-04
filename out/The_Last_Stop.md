@@ -1,33 +1,109 @@
 
+It was the summer of 1986. Darren and Jason had been driving back from a week-long camping trip in the Appalachian foothills, the kind of place where the air smelled like pine and time moved slower. They were young, sunburned, and tired—just two twenty-somethings in a 1971 Plymouth Hemi Cuda, running low on gas as dusk fell across the Pennsylvania highway.
 
-I always hated night shifts, but the pay was good, and the station was always quiet after 2 a.m. That’s when the last train would leave, and the place would descend into an eerie stillness. The kind that makes you feel like you’re the only person left in the world. 
+“I think I saw a sign back there,” Jason said, pointing. “Exit in one mile.”
 
-Two weeks ago, something changed.
+They took it.
 
-It was a Tuesday — I remember because my girlfriend was mad at me for missing our ‘date night.’ I sat in the control booth, watching the flickering lights of the empty platform when I saw him. A man in a dark coat, standing perfectly still at the far end of the station. At first, I thought he was waiting for a train, but no trains were scheduled. He just stood there, head bowed, face obscured by the shadows.
+The road led them down a narrow lane flanked by towering trees. It was quiet—too quiet. No cars. No lights. Then, up ahead: a small gas station, its sign faded but intact. A diner was attached, humming softly with a flickering neon glow that read: “FOOD & FOUNTAIN.”
 
-I glanced away for just a moment, and when I looked back, he was gone. I shrugged it off as some poor soul looking for shelter. People did that sometimes. But then, a few nights later, he was back. Same spot. Same stance. I felt a chill run down my spine, but I didn’t want to overthink it. Night shifts do weird things to your mind.
+Darren slowed. “This place looks like something outta your granddad’s war stories.”
 
-That night, I left the booth and decided to check things out. My footsteps echoed loudly as I walked down the platform. I called out, "Hey! Station's closing up!" But he didn’t move. As I got closer, I realized there was something odd about him. His clothes looked outdated, like they were from another era. And his hands… they were too pale, almost translucent under the flickering lights. 
+“I kinda dig it,” Jason said, stepping out.
 
-When I was about 10 feet away, he turned his head slowly. My breath caught in my throat. His face… it wasn’t quite right. It was almost as if his skin was stretched too tight over his skull, eyes too wide, mouth too thin, as if drawn on with a shaking hand. And then he smiled. Not a friendly smile, but one that seemed to say, “I know you.”
+They noticed it immediately: the atmosphere was off. People inside the diner were dressed like extras from a 1940s film reel—high-waisted skirts, suspenders, wool suits, vintage hats. Everything—from the jukebox to the menu prices—was frozen in the past.
 
-I took a step back, and in that moment, the station lights flickered and went out. Just for a second. When they came back on, he was gone. The platform was empty again. I checked the CCTV footage later, and there was nothing there — no sign of him at all.
+Jason, intrigued, ordered a burger and a shake from a cheerful waitress with Victory Rolls in her hair. Darren, uneasy, excused himself to the bathroom.
 
-This continued for days. Every night, he would appear, always at the same time, always in the same spot, and always disappearing the moment I got too close. I started losing sleep, feeling like he was watching me even when I was at home. My girlfriend said I looked like a ghost myself.
+At the urinal, something struck Darren’s shoulder—a square of tile from the ceiling. It shattered on the floor, brittle and yellowed with age.
 
-Then, last night, things took a turn for the worse.
+He looked up.
 
-I was in the booth, fighting to keep my eyes open, when the radio crackled to life. Static filled the air, but through it, I could make out a faint whisper: “Last stop… last stop…” My blood ran cold. I looked at the platform, and there he was again. Only this time, he was closer. Much closer. Just standing outside the control booth door, staring right at me.
+An eye stared back.
 
-I panicked, fumbling with the radio to call for backup. But the moment my hand touched the dial, the lights went out again. Total darkness. I felt a presence behind me, a cold breath on the back of my neck, and then… nothing.
+Human. Wet. Watching.
 
-When the lights flickered back on, I was alone. The booth door was wide open, the cold air blowing in from the platform. I checked the cameras. No sign of him, but I noticed something else. On the floor of the booth, right where he had been standing, was a single, wet footprint. Just one.
+He bolted. His boots squealed against the linoleum as he ran into the diner, breath catching in his throat.
 
-I’m writing this from the station now. I don’t know what’s going on. I’m scared. I can’t quit — I need this job. But I feel like I’m being watched, and every night, he gets closer. 
+Jason was sitting at a booth, untouched shake in front of him. Around him, every single diner patron had left their seat. They stood motionless in a wide circle, staring at him with eerily calm expressions.
 
-I don’t know what he wants, but if you don’t hear from me again, remember this: if you ever see a man in a dark coat standing alone at the last stop, don’t approach him. Just… turn around, and leave. 
+“Jason!” Darren shouted, running to him.
 
-Because once he sees you, he never stops looking. 
+Jason looked up, slowly. “What’s wrong?”
 
-And the last stop is closer than you think.
+“We’re leaving.”
+
+Jason didn’t protest. He stood, seemingly confused, and followed Darren out the door. The customers watched them go but didn’t move.
+
+They jumped into the Cuda and peeled out of the parking lot, engine roaring. The road twisted, the trees swallowed them again, and within minutes, they were back on the highway.
+
+Jason was quiet the entire ride.
+
+
+
+Three days later, Jason seemed… off. His voice was slower. His movements more deliberate. He stared too long at things.
+
+When Darren asked if he was okay, Jason just smiled. “I feel better.”
+
+On the fourth night, Darren had a nightmare. In it, Jason was sitting in the booth again, surrounded by the 1940s crowd, who whispered in unison: “He’s ours now.”
+
+Darren woke in a sweat.
+
+⸻
+
+Unable to shake it, Darren convinced Jason—and both their girlfriends—to return to the exit.
+
+They followed the same path. Took the same turn.
+
+But the gas station was gone.
+
+All that remained was a weed-choked lot. The pumps were rusted and broken. The diner was nowhere to be seen. Just a cracked slab of concrete, overgrown with vines.
+
+Their girlfriends joked it must’ve been torn down—but Darren wasn’t laughing.
+
+Later that night, back at Darren’s apartment, he stepped into the bathroom and froze.
+
+There, sitting on the counter, was a square tile. Yellowed. Brittle. The same kind that had hit him at the gas station. He hadn’t brought it. No one had.
+
+He walked out, pale. Jason was sitting at the kitchen table, flipping through an old newspaper Darren knew he didn’t own.
+
+“Where’d you get that?” Darren asked.
+
+Jason looked up. His eyes were different—too bright. Too wide. He smiled in a way that didn’t belong to him.
+
+“I’ve always had it.”
+
+In the days that followed, things only got stranger.
+
+Jason stopped sleeping.
+
+Darren would get up in the middle of the night and find him sitting on the couch, staring at the blank television screen, grinning faintly. Once, Darren woke to a low hum—an old jazz tune—playing softly from the living room. Jason was whistling along to it, eyes closed, hands folded in his lap like he was sitting in that diner again.
+
+He wore different clothes now—button-ups, tucked-in slacks. Vintage shoes he couldn’t have owned before. Darren asked about it once, and Jason responded flatly: “Just something I found in the closet.” But Darren knew those clothes weren’t there before.
+
+One night, Darren came home to find the entire apartment smelling like coffee and grease. Jason had made a full meal—burgers, fries, even hand-spun milkshakes—laid out on the table like a 1940s dinner special.
+
+“You hate milkshakes,” Darren said.
+
+Jason smiled. “Not anymore.”
+
+The final straw came when Darren found Jason talking to someone in the bathroom. But there was no one else there.
+
+He heard the voice—Jason’s voice—muttering softly behind the door: “…yes, I remember now… I’m still him… he’s just sleeping… it’s fine… no, they don’t suspect… not yet…”
+
+Darren left that night and never went back.
+
+He filed a missing persons report two weeks later.
+
+When police entered the apartment, they found it empty. Dusty. Abandoned. But one officer reported something strange: a boot print, clear in the dust on the bathroom floor—pointing up at the ceiling.
+
+And in the cabinet beneath the sink, tucked behind old towels, was a yellowed newspaper.
+
+The date on it: July 16, 1947.
+
+The headline read: “Young Man Vanishes from Roadside Diner. Family Believes He Was Taken.”
+
+The photo beneath it? A black-and-white shot of a young man with slicked hair and a familiar smile.
+
+The caption read:
+“Jason W. Taylor, Age 22. Missing Since July 12.”
