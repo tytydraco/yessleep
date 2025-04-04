@@ -122,7 +122,7 @@ Every few days, Eli’s parents would again arrive at our door. The knocking wou
 
 It was like hope without the brightness. Big, colorless smiles. Wide, empty eyes. Seeing their uncanny expressions bothered the hell out of me, so as much as I wanted to know what they were doing with Antonio in the basement for hours on end, I stayed clear. Just accepted the phenomenon without questioning it. If my mom’s reaction to those birdhouses taught me anything, it’s that there are certain things you’re better off not knowing.
 
-Fast forward a few years. Antonio was having “sessions” daily. Sometimes multiple times a day. Each with different people. Whatever he had been doing in the basement with Eli’s parents, these new people had come to want that same service. There was only one common thread shared by all of Antonio’s guests, too.
+Fast forward a few years. Antonio was having “sessions” daily. Sometimes multiple times a day. Each with different people. Whatever he had been doing in the basement with Eli’s parents, these strangers had come to want that same service. There was only one common thread shared by all of Antonio’s guests, too.
 
 Someone they loved had died sometime *after* the circle of birdhouses in our backyard appeared.
 
@@ -332,7 +332,7 @@ I hope Antonio and my mother are resting peacefully.
 
 I haven’t forgiven them yet.
 
-Someday I will but today is not that day.
+Someday I will, but today isn’t that day.
 
 I’m so sorry, Eli.
 
