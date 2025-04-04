@@ -82,13 +82,13 @@ About an hour later, I fell asleep in my mom’s arms, out of tears and exhauste
 
 When I woke up the following morning, two things had changed.
 
-First, Antonio’s extensive collection of birdhouses had moved. Under normal circumstances, his current favorite would be hung from the largest blue spruce in our backyard, with the remaining twenty stored in the garage, where our car used to be before we sold it. Now, they were *all* in the backyard. In the dead of night, Antonio had erected a sprawling aerial metropolis. Boxes with varying colorations, entrance holes, and rooftops hung at different elevations among the trees, roughly in the shape of a circle a few yards from the kitchen window. Despite that, I didn’t see an uptick in the number of birds flying about our backyard.
+First, Antonio’s extensive collection of birdhouses had moved. Under normal circumstances, his current favorite would be hung from the largest blue spruce in our backyard, with the remaining twenty stored in the garage, stacked where our car used to be before we were forced to sell it. Now, they were *all* in the backyard. In the dead of night, Antonio had erected a sprawling aerial metropolis. Boxes with varying colorations, entrance holes, and rooftops hung at different elevations among the trees, roughly in the shape of a circle a few yards from the kitchen window. Despite that, I didn’t see an uptick in the number of birds flying about our backyard.
 
 Quite the opposite.
 
 Honestly, I can’t recall *ever* seeing a bird in our backyard again after that. Whatever was transpiring in that enclosed space, the birds wanted no part of it. But between the spruce’s densely packed silver-blue needles and the wooden cityscape, it was impossible for me to tell what it was like at the center of that circle just by looking at it.
 
-Which dovetails into the second change: from that day forward, I was forbidden to go near the circle under *any* circumstances. In fact, I wasn’t allowed to play in the backyard at all anymore, my mom added, sitting across from me at the breakfast table that morning, sporting a pair of black and blue half-crescents under her eyes, revealing that she had barely slept.
+Which dovetails into the second change: from that day forward, I was forbidden to go near the circle under *any* circumstances. In fact, I wasn’t allowed to play in the backyard at all anymore, my mom added, sitting across from me at the breakfast table that morning, sporting a pair of black and blue half-crescents under her eyes that signaled she had barely slept.
 
 I protested, but my mom didn’t budge an inch. If I so much as step foot in the backyard, there would be hell to pay, she said. When I found I wasn’t making headway arguing about how unfair that decision was, I pivoted to asking her *why* I wasn’t allowed to go in the backyard anymore, but she wouldn’t give me an answer to that question either.
 
