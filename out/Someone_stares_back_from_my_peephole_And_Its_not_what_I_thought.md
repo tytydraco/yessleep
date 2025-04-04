@@ -105,3 +105,5 @@ Two days now, and fear consumes me, a living weight in my chest. My eyes remain 
 Something whispers my eyes will open again, a quiet instinct flickering in the void. I don’t know when, the uncertainty a pressure that grows with each hour.
 
 This darkness devours me, a slow unraveling of my mind. But I’m ready for the next blinking session, braced for whatever it might reveal.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/1vRuP1EG4c)
