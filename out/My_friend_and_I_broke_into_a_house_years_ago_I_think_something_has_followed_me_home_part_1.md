@@ -32,77 +32,77 @@ Except me.
 
 ____________
 
-***It was 1983. The summer before big school. We’d spent the whole day building a ramp out of bricks and a plank of wood. I remember the sun was orange on the hedges, the tarmac still warm under our bikes.
+***It was 1983. The summer before big school. We’d spent the whole day building a ramp out of bricks and a plank of wood. I remember the sun was orange on the hedges, the tarmac still warm under our bikes.***
 
-We were riding back through the old allotment trail when William stopped and pointed through the nettles.
+***We were riding back through the old allotment trail when William stopped and pointed through the nettles.***
 
-*“There it is,”* he said.
+***“There it is,” he said.***
 
-I looked. And I felt my chest tighten.
+***I looked. And I felt my chest tighten.***
 
-*Barrow Hill House.*
+***Barrow Hill House.***
 
-Nobody lived there. They said someone had, once—a sculptor or collector. Someone rich and strange. But the story was always changing. I’d heard it was abandoned. I’d heard it was haunted. I’d heard a girl had gone inside on a dare and never come out.
+***Nobody lived there. They said someone had, once—a sculptor or collector. Someone rich and strange. But the story was always changing. I’d heard it was abandoned. I’d heard it was haunted. I’d heard a girl had gone inside on a dare and never come out.***
 
-William dropped his bike and started walking toward the fence.
+***William dropped his bike and started walking toward the fence.***
 
-*“Bet you won’t go in.”*
+***“Bet you won’t go in.”***
 
-I scoffed. *“You wouldn’t either.”*
+***I scoffed. “You wouldn’t either.”***
 
-*“Bet I would.”*
+***“Bet I would.”***
 
-He looked back at me. Grinned.  *”Come on then.”*
-
-••
-
-The garden had swallowed the path. Nettles and brambles and fern-like things brushed against our knees. Everything smelled damp. Heavy. Wrong.
-
-Then we saw the statues.
-
-They weren’t like the ones in town. These weren’t marble angels or dignified lions. These were taller, leaner. Their shapes were wrong. Backs too bent. Necks too long. One leaned forward like it was listening. Another slouched by the wall, face buried in its hands.
-
-There were dozens of them. Some on plinths. Some half-buried in the mud. Some missing limbs. One had a mouth wide open in a silent scream, arms locked mid-shriek.
-
-Another had no face at all. Just a smooth, pitted stone where the eyes and mouth should be.
-
-William stared at them. *“My mum said the guy who lived here made these.”*
-
-*“They don’t look right,”* I whispered.
-
-He pointed at an empty plinth. *“That one’s missing.”*
-
-I didn’t want to ask what had happened to it.
+***He looked back at me. Grinned.  ”Come on then.”***
 
 ••
 
-The house itself was worse.
+***The garden had swallowed the path. Nettles and brambles and fern-like things brushed against our knees. Everything smelled damp. Heavy. Wrong.***
 
-The back door was off its hinges. Ivy had grown through the cracks and crawled across the walls. The air changed when we stepped inside. It got cold. Not just chilly—off. Like the house had its own climate.
+***Then we saw the statues.***
 
-The living room was intact. Table, chairs, shelves. Dust everywhere. Black mould spread like cracks across the ceiling.
+***They weren’t like the ones in town. These weren’t marble angels or dignified lions. These were taller, leaner. Their shapes were wrong. Backs too bent. Necks too long. One leaned forward like it was listening. Another slouched by the wall, face buried in its hands.***
 
-There were more statues inside.
+***There were dozens of them. Some on plinths. Some half-buried in the mud. Some missing limbs. One had a mouth wide open in a silent scream, arms locked mid-shriek.***
 
-One near the fireplace. Another by the stairs. But these ones…
+***Another had no face at all. Just a smooth, pitted stone where the eyes and mouth should be.***
 
-They looked newer.
+***William stared at them. “My mum said the guy who lived here made these.”***
 
-Less worn. Smoother. Still coated in a pale grey dust like they’d just been shaped.
+***“They don’t look right,” I whispered.***
 
-One looked like a child.
+***He pointed at an empty plinth. “That one’s missing.”***
 
-I looked away.
+***I didn’t want to ask what had happened to it.***
 
-That’s when William grabbed my arm.
+••
 
-*“Do you hear that?”*
+***The house itself was worse.***
 
-I froze.
+***The back door was off its hinges. Ivy had grown through the cracks and crawled across the walls. The air changed when we stepped inside. It got cold. Not just chilly—off. Like the house had its own climate.***
 
-Footsteps.
+***The living room was intact. Table, chairs, shelves. Dust everywhere. Black mould spread like cracks across the ceiling.***
 
-Upstairs.***
+***There were more statues inside.***
+
+***One near the fireplace. Another by the stairs. But these ones…***
+
+***They looked newer.***
+
+***Less worn. Smoother. Still coated in a pale grey dust like they’d just been shaped.***
+
+***One looked like a child.***
+
+***I looked away.***
+
+***That’s when William grabbed my arm.***
+
+***“Do you hear that?”***
+
+***I froze.***
+
+***Footsteps.***
+
+***Upstairs.***
 
 _______________
 
@@ -118,7 +118,7 @@ I’m scared to sleep.
 
 ••
 
-It’s 4:26 am. I tried. Turned the lights off. Got under the duvet like a kid again.
+It’s 4:26 am. I tried to sleep. Turned the lights off. Got under the duvet like a kid again.
 
 But something woke me up—this time not a knock.
 
@@ -137,75 +137,75 @@ If you’re reading this—just know I’m not making any of it up. I haven’t 
 _______________
 
 
-***The footsteps upstairs didn’t sound heavy.
+***The footsteps upstairs didn’t sound heavy.***
 
-They weren’t stomping around. They were soft. Barefoot, maybe. Measured. Like someone trying not to be heard—but failing just enough to let us know they were there.
+***They weren’t stomping around. They were soft. Barefoot, maybe. Measured. Like someone trying not to be heard—but failing just enough to let us know they were there.***
 
-We stood in the hallway, frozen.
+***We stood in the hallway, frozen.***
 
-William looked at me. *“Maybe it’s the wind.”*
+***William looked at me. “Maybe it’s the wind.”***
 
-It wasn’t the wind.
+***It wasn’t the wind.***
 
-We walked deeper into the house, past the old armchair and the smashed vase on the floor. The smell was getting worse—something between rot and wet stone.
+***We walked deeper into the house, past the old armchair and the smashed vase on the floor. The smell was getting worse—something between rot and wet stone.***
 
-Then we found the hall of portraits.
+***Then we found the hall of portraits.***
 
-That’s what it looked like at first. A long, narrow corridor with frames on both sides, lit only by the grey light leaking through warped glass. But when I got closer, I realised they weren’t paintings.
+***That’s what it looked like at first. A long, narrow corridor with frames on both sides, lit only by the grey light leaking through warped glass. But when I got closer, I realised they weren’t paintings.***
 
-They were mirrors.
+***They were mirrors.***
 
-Each one tall and arched, rimmed in blackened wood.
+***Each one tall and arched, rimmed in blackened wood.***
 
-But they didn’t show reflections.
+***But they didn’t show reflections.***
 
-They showed people.
+***They showed people.***
 
-No—things. Watching us.
+***No—things. Watching us.***
 
-Their heads were tilted, hands folded, eyes wide like mannequins caught mid-glance. All stood in hallways just like ours. But they weren’t looking at each other—they were looking out.
+***Their heads were tilted, hands folded, eyes wide like mannequins caught mid-glance. All stood in hallways just like ours. But they weren’t looking at each other—they were looking out.***
 
-At us.
+***At us.***
 
-One had no mouth. Just torn skin, as if something had peeled it off. Another was reaching out of the frame—fingers stretched long, pushing at the glass like it wanted to come through.
+***One had no mouth. Just torn skin, as if something had peeled it off. Another was reaching out of the frame—fingers stretched long, pushing at the glass like it wanted to come through.***
 
-*“James,”* William whispered, backing away. *“They’re moving.”*
+***“James,” William whispered, backing away. “They’re moving.”***
 
-And they were.
+***And they were.***
 
-Just slightly.
+***Just slightly.***
 
-The tilt of a head. The blink of an eye. One figure now had both hands pressed against the inside of the glass, mouthing something we couldn’t hear.
+***The tilt of a head. The blink of an eye. One figure now had both hands pressed against the inside of the glass, mouthing something we couldn’t hear.***
 
-That’s when the floorboards above us creaked again.
+***That’s when the floorboards above us creaked again.***
 
-Closer now.
+***Closer now.***
 
-We ran.
+***We ran.***
 
 ••
 
-We bolted through the house—past the collapsed dining room, past a toppled statue sprawled across the floor, its face crushed into something that looked like pain.
+***We bolted through the house—past the collapsed dining room, past a toppled statue sprawled across the floor, its face crushed into something that looked like pain.***
 
-We reached the front hallway.
+***We reached the front hallway.***
 
-Then William stopped dead.
+***Then William stopped dead.***
 
-There was something on the stairs.
+***There was something on the stairs.***
 
-Not at the top. Not in full view. Just a hand visible on the bannister. Bone-thin. Dusty. Bent at the wrong angles. Its nails scraped gently on the wood as it moved, inch by inch, toward us.
+***Not at the top. Not in full view. Just a hand visible on the bannister. Bone-thin. Dusty. Bent at the wrong angles. Its nails scraped gently on the wood as it moved, inch by inch, toward us.***
 
-*“Go,”* I hissed.
+***“Go,” I hissed.***
 
-But William stood staring.
+***But William stood staring.***
 
-And then something else moved—fast—at the end of the hall.
+***And then something else moved—fast—at the end of the hall.***
 
-A shape in the mirror.
+***A shape in the mirror.***
 
-But this time it wasn’t behind glass.
+***But this time it wasn’t behind glass.***
 
-It was in the house with us.***
+***It was in the house with us.***
 
 __________
 
