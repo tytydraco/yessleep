@@ -26,7 +26,7 @@ Horrified, I stumble back to my apartment, slamming the door and locking it with
 
 **Then the bell rings again.**
 
-Trembling, I walk to the kitchen and grab a knife. This time, instead of looking through the peephole, I open the door—and place a small circular mirror over the peephole. Moments later, I witness the same black liquid finding its way into my apartment.
+Trembling, I walk to the kitchen and grab a knife. This time, instead of looking through the peephole, I place a small circular mirror over the peephole. Moments later, I witness the same black liquid finding its way into my apartment.
 
 And then I see him.
 
