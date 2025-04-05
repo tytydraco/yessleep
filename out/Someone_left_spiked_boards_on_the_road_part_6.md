@@ -1,0 +1,30 @@
+
+“Today is not a starting too well” I thought to myself, one hand on the wheel, the other scratching the numerous spider bites coated in gasoline. Despite the setback, I made my way back to main street, beginning the directions to the church as described in the book. Right at the stop sign, left, left, right, right at the light, go straight, left left left left left. The directions didn’t make any sense, but when did anything in this town?
+
+Approaching the first stop sign, I turn to the right, exiting the “comfort” of the illumination of main street and went back to the darkness of the side roads. Turning left, more buildings to the left and right of me. Turning left again, more buildings. Turning right, I was met with a dirt road, against all logic, the buildings to the left and right of me abruptly ended, once again entering the forest. I continued forward, turning right at the light, picking up speed as I drove down the dirt road.
+
+My car shook from the unevenness of the ground, shaking me back and forth, left and right. My lights serving as the only illumination as the moon decided to leave it’s throne in the sky, probably out tearing more smiling deer apart on the highway. The comforting thought of the smiling deer getting their asses kicked distracted me enough that I almost didn’t notice the nail boards fast approaching in the middle of the road.
+
+Slamming on the breaks, I braced as my car cried and squealed from the sudden deceleration. Who would put these out here, and for what reason I thought to myself. I checked my rear view mirror, nothing, to my left and right the forest remained empty, maybe I could move a couple of them and be on my way? Though, just in case, I grabbed a flare from my glove box, I did not want to be caught in the darkness if, for whatever reason, my car’s headlights went out. With a loud THLUNK I opened my car door, stepping out into the cold night, and made my way to the nail boards, my only source of light coming from my car’s headlights.
+
+Making my way up to one of the boards, I look down, making sure to not impale my hands on any of the numerous nails sticking out of the board. Lifting it up, I peer to my right for a place to throw it, and stealing a glance down the road, my heart sank. There stood a tall figure, cloaked in a white robe stained in the front with a large crimson symbol of a hanged man. The robe draped over him, obscuring his arms, legs, face, even his hands. Though the robe didn’t obscure what he was holding, a long noose swung from the opening of his long sleeve. He stood motionless, as if waiting to see what I would do.
+
+I took my eyes off of him, turning around, only to see two more cloaked figures standing next to my car, both slowly dropping nooses from their sleeves. I then began hearing crunching noises of what seemed to be multiple people coming out of the tree lines near me. My heart raced, hearing my heart beating as if someone was playing a drum in my ears, I watched in fear as one of them entered my car, the hum of my engine abruptly ending.
+
+Darkness bathed the area as my headlights turned off, only to be re-illuminated by the red glow of my road flare. The cloaked figures began their approach, their feet crunching against the cool dirt, the sounds of rope gliding across their fingers. I started hearing laughing and giggling around me as they came closer, the nooses beginning to drag against the dirt road. I backed up slowly, putting distance between the quickly encroaching nooses.
+
+My breath was cut short however, feeling the noose of the robed figure behind me tightening around my neck. I tried to gasp, feeling my body demand air yet being unable to have any enter my lungs. Taking the flare I stabbed behind me into the robe figure, it screaming in pain as the flare set it on fire, and that’s when I noticed what he, it truly was. As the robes burned off, I saw a decaying man, his body branded all over with the same symbol, a hanging man in front of a church. He screamed, attempting to pat the flames out to no avail, sprinting into the woods to what I assume was water nearby. This screaming stopped the other cloaked creatures in their tracks.
+
+I took a step toward my car, yet they stood still, and that’s when I knew they knew. My flare may be good now, but all they need to do is wait, which I won’t be giving them. I charged forward with flare in hand, sprinting towards the driver’s side of my car. They attempted to wrap their nooses around my neck, but a quick stab with the flare persuaded them to release me. Turned back on my car, my engine roaring to life and that’s when I made possibly the worse, yet best decision I could make. Slamming on the gas I drove over the nail planks, my tires popping but I didn’t care. Yes my car would be damaged but at least I’ll be alive.
+
+I drove down the road, my car’s rims shaking against the hard ground, till I was met with a T section, a left, then another left, left left left, and began pulling into the parking lot of a tall church. The windows of the church were shattered, the towering steeple beginning to lean to the right as it began to crumple under it’s own weight. The white paint on the church had stripped away years ago, leaving only grey, with spots of black mildew. The doors hanged open, barely clinging to the rusted hinge, as if wanting me to peer inside.
+
+Shuddering I exited my car, and made my way over to the church doors, peering inside, I saw one of the hanging creature’s victims. A preacher hung by a noose in the entrance, stained with blood, hung within the church, his body still in the night, I made my way around him, I’ll check his body for something useful, but first I’ll search the church, but then I heard it. Not the approach of robed figures, not the wailing of smiling deer in the forest, but whispering. Turning back to the hanged man, I stood in shock. He had turned to face me, his face bloated from being hung so long ago, but his lips were still moving. Getting closer, I made out what he was whispering
+
+.
+
+.
+
+.
+
+“For what, would you like to know?”
