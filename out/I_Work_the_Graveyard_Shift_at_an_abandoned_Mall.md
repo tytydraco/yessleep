@@ -293,3 +293,6 @@ And again.
 And again.
 
 Like I never left.
+
+  
+[**Night Two**](https://www.reddit.com/r/nosleep/comments/1js202f/i_work_the_graveyard_shift_at_an_abandoned_mall/)
