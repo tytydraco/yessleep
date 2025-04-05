@@ -6,7 +6,7 @@ I park in the same spot as last night, under the one flickering light in the oth
 
 But the moment I step inside, something feels *off*.
 
-The air is thick, stale, carrying a scent that wasn’t there before—something faintly metallic, like old pennies left in the sun. The silence feels *deeper*, heavier, as if the mall itself is holding its breath. I scan the entrance, the rows of shuttered storefronts, the dead electronic kiosks covered in dust. Everything looks exactly as I left it.
+The air is thick, stale, carrying a scent that wasn’t there before, something faintly metallic, like old pennies left in the sun. The silence feels *deeper*, heavier, as if the mall itself is holding its breath. I scan the entrance, the rows of shuttered storefronts, the dead electronic kiosks covered in dust. Everything looks exactly as I left it.
 
 Still, my fingers tighten around my notebook.
 
