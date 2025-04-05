@@ -146,7 +146,7 @@ As I stared at the flames burning away in front of me, I started thinking about 
 
 “You think she finally came today?” I asked Uncle Teddy out of the blue, breaking the silence between us. 
 
-He sighed before taking a swig of his cigarette.
+He sighed before taking a puff of his cigarette.
 
 “Don’t worry, Donald. Janice probably just wants to make sure she’s together before she comes along. She’ll be through here eventually…..I promise,” Uncle Teddy assured.
 
