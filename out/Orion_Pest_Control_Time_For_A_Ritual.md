@@ -290,7 +290,7 @@ Dreamers wouldn't have been ideal either. It'd be too easy for someone to ration
 
 Lastly, the False Tree would probably kill the chairperson on sight if it figured out that he was one of the humans responsible for the construction in its territory. So, what did that leave? 
 
-The answer floored me: a Wild Huntsman. Namely, a certain thorny boi. 
+The answer floored me: a Wild Huntsman. Namely, a certain [thorny boi](https://www.reddit.com/r/atypicalpests/s/1OYaFXSnfE). 
 
 “At first, a Huntsman - particularly *that* Huntsman - was last on my list of potential collaborators.” Victor had explained. “But as far as Neighbors go, they have a remarkable degree of self-control. They're not as prone to acting on instinct. It's just a matter of finding the right bribe and when it comes to that, Briar is the easiest to work with.”
 
