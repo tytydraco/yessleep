@@ -1,3 +1,9 @@
+[Part 1 ](https://www.reddit.com/r/nosleep/comments/1jqj69g/my_coworker_and_i_were_looking_for_the_storage/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1jrrrmb/my_coworker_and_i_were_looking_for_the_storage/)
+
+
+
 *When I opened my eyes I was on the ground, not where I’d fallen asleep. I found myself back in the middle of the open basement. Sitting upright I wondered how I could’ve moved myself so far without waking up, I’d never been one to sleepwalk.*
 
 *There was something new now: a smell. I realized that throughout everything I hadn’t noticed anything distinct until now. I surely would have noticed this before if it had been there at least.*

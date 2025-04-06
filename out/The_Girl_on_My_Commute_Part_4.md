@@ -189,8 +189,14 @@ Claire added the necklace, pressing it gently into my fingers. “It belongs to 
 
 As I headed back to the train, I turned back one last time to see them walking hand in hand, finally free. Three down, two to go. 
 
-Everything shifted back to normal, Percy gave me a pat on the back. “You’re getting good at this, kid. At this rate, you’ll empty the train before your time’s up. Although, I think mine might be a bit more difficult.”
+“You really did it,” said Zoe, flopping down in the seat across from me, copper curls bouncing around her shoulders. Her freckles lit up like constellations in the dim light of the train car.
 
-I let out a small laugh, but as I did, I immediately knew something was wrong. My breath curled in front of my mouth, white and slow. The temperature dropped like a trapdoor opening under our feet, which only meant one thing. Zoe and Percy saw the shift in my face as I looked behind them. They turned, only to join in my horror. 
+Beside her stood Percy, always buttoned-up, even in death—tie straight, coat folded neatly over one arm, like he still had a meeting to get to. He gave a small, respectful nod.
+
+“I’ve seen people try,” Percy said. “They don’t usually get that far, let alone survive it twice. At this rate, you’ll empty the train before your time’s up. Although, I think mine might be a bit more difficult.”
+
+I offered a small smile, but I didn’t feel like celebrating. Not yet. “*He’s* not going to like it,” I said.
+
+Percy’s expression darkened. Zoe sat up straighter. That was when the cold hit, the temperature dropping like a trapdoor under our feet, which only meant one thing . It rolled in like fog, thick and heavy, turning my breath to ice. As it curled over my mouth, the windows frosted over instantly. Zoe and Percy saw the shift in my face as I looked behind them. They turned, only to join in my horror. 
 
 It was the Thin Man, and he did *not* seem pleased. 
