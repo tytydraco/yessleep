@@ -1,4 +1,4 @@
-**These are the first two entries from my exploration journal. I was documenting the ABC Cinema for a personal project, but things went sideways. I don’t know if I’ll post the rest, but if anyone’s experienced something similar—please let me know. I need to know I’m not the only one.**
+**These are the first entries from my exploration journal. I was documenting the ABC Cinema for a personal project, but things went sideways. I don’t know if I’ll post the rest, but if anyone’s experienced something similar—please let me know. I need to know I’m not the only one.**
 
 
 

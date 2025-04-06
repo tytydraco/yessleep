@@ -132,7 +132,7 @@ The radio clicked on. Volume knob useless.
 
 Static flooded the cab, thick, choking, smelling faintly of ozone and decay. And the pulse. Thump-thump… pause… THUMP-THUMP… pause… Pressure, vibrating the steering wheel, resonating in my sternum, shaking my teeth.
 
-Whispers writhed within the static. Fragmented, sibilant. Not direct accusations, but echoes. Familiar voices, warped. "...running from..." (like Chloe's mother's sigh) "...so hungry..." (a dry rasp, like the mechanic's) "...stay with us..." (a chorus, hollow) "...the bills... fear..." (my own anxieties, twisted back) "...mother's echo..." (a weeping sound) "...taste lingers..."
+Whispers writhed within the static. Fragmented, sibilant. Not direct accusations, but echoes. Familiar voices, warped. "...running from..." like Chloe's mother's sigh, "...so hungry..." a dry rasp, like the mechanic's, "...stay with us..." a chorus, hollow, "...the bills... fear..." my own anxieties, twisted back, "...mother's echo..." a weeping sound, "...taste lingers..."
 
 Chloe whimpered, hands over ears. "Make it stop, Liam! Please!"
 
