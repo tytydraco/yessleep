@@ -12,7 +12,7 @@ It was strange, sure. But the money was real. I made $1,200 in three days.
 
 Then, the tone shifted.
 
-**TASK: Leave a dead rat on the front steps of 1849 Huntington Ave.** **PAY: $500**
+**TASK: Leave a dead rat on the front steps of 1849** \[**Redacted**\] **Ave.** **PAY: $500**
 
 I hesitated. The address was close. Less than ten blocks. My rent was overdue. My fridge was empty. The rat was provided — in a sealed cooler left on my doorstep.
 
