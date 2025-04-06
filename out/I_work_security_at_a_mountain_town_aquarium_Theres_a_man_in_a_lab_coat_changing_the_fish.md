@@ -1,10 +1,10 @@
-The mere idea of an aquarium in Poprad is a cruel joke. Slovakia has no access to the sea. Poprad is a mountain town of fifty thousand that has zero reason or desire for anything fish related. 
+The mere idea of an aquarium in Poprad is a cruel joke. Slovakia has no access to the sea. Poprad is a mountain town of fifty thousand that has zero reason or desire for anything fish related.
 
 The aquarium should not exist, yet it does. I have always been confused by its existence, but when I saw a posting for a night watchman job I didn’t hesitate.
 
 It was in a quiet part of town. Seemed like easy money.
 
-The only expensive thing in the aquarium was its prize attraction, *Jánošík* — the giant squid. The many limbed creature must have cost a fortune, and transporting it to Central Europe could not have been easy — yet the money spent on *Jánošík* would have not been of any interest to the local hooligans or drug addicts that might try to break in during the night.
+The only expensive thing in the aquarium was its prize attraction, *Jánošík* — the giant octopus. The many limbed creature must have cost a fortune, and transporting it to Central Europe could not have been easy — yet the money spent on *Jánošík* would have not been of any interest to the local hooligans or drug addicts that might try to break in during the night.
 
 *Jánošík* didn’t have a care in the world. He would just float around the central tank of the aquarium, occasionally snacking on one of the squids that were imported for him. All around the mammoth sea creature sat exhibits of freshwater fish native to the area. Carp, catfish, eels, trout — the selection of the other exhibits didn’t differ much from the frozen food isle. If *Jánošík* was an avocado, he was surrounded by a field of potatoes.
 
@@ -205,4 +205,3 @@ Willow’s questions that night made me deeply uncomfortable, yet it wasn’t un
 It was not a question. It was not a job offer. It was a statement.
 
 As Henry Willow and his massive bodyguards left the aquarium, I couldn’t help but think of how sick Mr. Kuffa looked last time I saw [him](https://www.reddit.com/r/MJLPresents/comments/q2qjz1/%D2%93%D1%8B%D0%BB%D1%8B%D0%BC%D0%B8_%D2%9B%D0%BE%D0%BD%D0%B4%D1%8B%D1%80%D2%93%D1%8B/).
-

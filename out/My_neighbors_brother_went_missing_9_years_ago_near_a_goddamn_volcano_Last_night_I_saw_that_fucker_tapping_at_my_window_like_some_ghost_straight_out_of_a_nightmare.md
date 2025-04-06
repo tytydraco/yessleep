@@ -1,5 +1,5 @@
-
 I’m not messing with you my neighbor’s brother disappeared 9 years ago near a damn volcano, and last night, that kid was tapping at my window like he’d dragged himself out of hell.
+
 This went down in my sleepy-ass Oregon town too quiet, until it decides to bite. I grew up next to the Hartleys, basically my second family. Lynn, the mom, always looked like she was one bad day from breaking; Greg, the stepdad, creeped me out with his muttering; and Eliora she’s been my ride-or-die since we were kids stealing tampons and sneaking smokes. She’s loud, fearless, the kind of girl who’d watch The Conjuring and call it cute. We’d hit the lake at night, chain-smoking until our throats burned, swapping ghost stories to see who’d crack first.
 
 Last week, she wrecked me.
