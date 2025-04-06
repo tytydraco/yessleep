@@ -1,53 +1,185 @@
-There’s tell of a house in my town, past the creek near the woods edge, they say it’s haunted and that folk who walk by see visions in the windows, twisted versions of themselves in the reflections of the glass and like there’s eyes on them as they strut by.
 
-Hogwash. The house has stood for as long as it can and it’s on its last legs, sure it looks creepy but there’s nothing in there, and half the damn windows are broken so how do these people see anything if they aren’t getting so close as to notice that.
 
-I tell this to my friends and my family, they’re all firmly planted in their beliefs of the supernatural, that there’s something beyond all this that lingers to stake its claim on its land, on its possessions, or to enact some semblance of revenge against ‘all those who’ve wronged them in their lives’ so my mother says. It’s a hot topic of debate at the dinner table if it ever comes up, I know when to hold my tongue, but I can’t resist a call out if it’s brought up. And so, one night, I was as stupid as a teenager could be, and intercepted such a call out.
 
-“No one dares go near that house now, the Jones’ boy went there just the other night and now he’s got the devil in him” my father proudly stated in a feign effort to scare us away.
 
-“No dad”, I retorted, “he stepped on a nail and got tetanus, you know, the very treatable infection that doesn’t involve a book and boiled water to get rid of”
+"I had promised myself I’d never go back there.
+Since that night, the house had remained shut, forgotten at the end of the road.
+But time passed, and its silence turned into dust and cracks in the walls.
+The real estate agent told me someone was interested in buying it. So I went back, just to fix things up and get the house ready for sale. Simple. Quick.
+But the moment I touched the rusty doorknob… I knew it wouldn’t be."
 
-“Believe what you want son but something evil is in them walls and I daren’t spend the night even camping on the grounds. No one would”
+The door gave way easily, like it had been waiting for me.
+The air was still, but not dusty — it was heavy.
+The paintings on the walls looked darker than I remembered.
+The silence inside was disturbing.
 
-“Is that a challenge?” I asked, in a very smart-ass manner.
+Every corner held memories of us.
+Her laughter on the porch, Sunday lunches, arguments that always ended in reconciliation.
+But after that last fight, everything changed.
+I left and she stayed, crying. I never saw her again.
+At least not alive.
 
-“No, it’s not, and you better not take it as such, you hear?!”
+The living room was just the same. The crooked couch, the squashed cushions.
+On the wall, the marks of time looked like shadows that hadn’t been there before.
+I slowly climbed the stairs to the second floor, where our bedroom was.
+My hands were trembling for no clear reason.
+Guilt weighed heavy on my chest.
 
-“Understood”, I stated, subtly keeping my tone. Because the damage was already done and my plan was already halfway complete. Tonight, I made my leave.
+In the hallway, the air grew colder.
+As if I were stepping into another time, another dimension of the house.
+I passed one of the bedrooms and something made me stop.
+Out of the corner of my eye, I saw a figure cross the open doorway.
+It was her face. Quick. Faint. Unmistakable.
 
-11:07 PM. I started my journey, it wasn’t too cold seeing as we were in the midst of a particularly warm summer but a nice breeze carried me and kept me from working up a sweat. However, despite it being the start of July, it was almost pitch black which was unusual for obvious reasons but I didn’t take it much into account, much less an omen.
+My heart nearly stopped.
+It couldn’t be. I was alone.
+But I saw it. I saw it.
+That apparition wasn’t my imagination.
+It was a warning.
 
-I got to the house at just gone half past, it wasn’t that far a walk all things considered, I quite enjoyed it. However the first thing to unsettle me was the creek, you see this creek wasn’t big by typical standards but it had enough to it to attract some kind of wildlife, crickets, locusts, fireflies and the like, and the house was within view of this creek once you passed some of the overgrown parts. And so far the cacophony of insect communication was in full swing, keeping me company on my trek, and when I passed that foliage and finally saw the old, rundown rust bucket, my surroundings fell to a dead silence, as if they knew something I didn’t about this place, like they knew when to hold their tongues. But I couldn’t admire this likeness for long because I got a sudden chill, my head spun and my hairs stood on end, all these signals firing as if I was being watched, but no one dares to come here, so I was alone. Right?
+I stepped into the room and there was nothing.
+No sign of disturbed dust, no presence, no life.
+But her familiar scent lingered in the air — not perfume, just… presence.
+Like when someone hasn’t truly left yet.
+As if she were watching me from a place I couldn’t reach.
 
-Nevertheless, I pressed on, being careful not to end up like that Jones boy, watching each step in the darkness using my flashlight to blight every spot I needed to plant my feet. Say what you will but puss doesn’t bode well with me, especially when I’m trying to prove a point.
+I sat on the bed and stayed there for a while.
+Trying to figure out if it was regret, guilt, or something beyond that.
+That night — our last night together — I said things I should’ve never said.
+She cried. Begged me to stay.
+And I left, slamming the door behind me.
 
-And very strangely, once I’d made it to the porch and walked through the wonky, moulded and splintered front door, I didn’t feel watched anymore. It felt dirtier than that, more guttural, like I was somewhere I shouldn’t be, not like trespassing, this area wasn’t owned by anyone and I’m no stranger to that crime, it wasn’t anything I felt before.
+I spent the night in the room.
+I didn’t sleep.
+Every time I closed my eyes, I saw her shadow in the hallway.
+And at some point, I was sure: it wasn’t just a shadow.
+She was there. Watching me.
 
-I shouldn’t have been there, by all means I could’ve gone back, no one knew I’d left, no one would know I chickened out and my dad would actually think I listened to him for once, although I’m sure he suspected I hadn’t. But in spite of everything, I swallowed my pride and forced myself to explore. Once I knew every inch of this place it could maybe make me feel more cozy.
+In the morning, I went down to the kitchen and found a cup on the table.
+The same one she used. Intact, clean, like it had just been placed there.
+There was no dust on it.
+I shook.
+That wasn’t possible.
 
-It was pretty much what you’d expect of a dilapidated, old house. Wallpaper clinging on with every morsel of its being as if it could bring life back to this shallow corpse, holes in the walls, floorboards, the ceiling, just about any surface you can think of had a hole either chewed out or decayed by something or other. 
+I spent the following days trapped there.
+I couldn’t leave. Literally.
+The doors locked on their own. The windows wouldn’t open.
+My phone lost signal the second I stepped inside.
+It was like the house had swallowed me whole.
 
-When I ventured up the staircase though, it felt odd, it was firm and the stairs themselves made no noise, but with each step I could feel the house groan, a deep grumble that reverberated through me and where I’d stepped as if I was making the place uncomfortable. I’d be lying if I said I hadn’t debated the worst for a minute there, but I had to see this through.
+On the third day, I heard the stairs creaking.
+I was downstairs, and I knew no one else was there.
+I looked up, and for a second, I saw someone’s bare foot vanish at the top.
+I ran up. Nothing.
+Just the same presence, the same cold.
 
-Once I’d thoroughly explored I went to what I believe was the old living room and rolled out my sleeping bag and fluffed my travel pillow ready for a night of rest. I think I’d finally settled my mind enough to stop it wandering, no ghosts came to get me for traversing their halls, no devils possessed me through rusted nails creeping out of the woodwork, and I was finally comfy enough to doze off, so rolling onto my side, I closed my eyes and imagined all the credit I’d get for braving a night here.
+I started talking to her.
+Apologizing. Saying I regretted everything.
+Saying I’d do anything to have her back.
+And the house’s silence seemed to listen.
+Until one night, she answered.
 
-I don’t know how long I was out, and frankly I didn’t care to check because at some point in the night, even in as deep a sleep as I was, I felt someone breathing on my neck.
+It was her voice. Low, behind me.
+“You came back.”
+I turned around in a flash, but there was only darkness.
+It wasn’t a threat.
+It was more like… a statement.
 
-I woke up with a start, surveying my surroundings with expert precision, taking in as much as I could. I heard no footsteps, saw nobody and felt nothing more than a sigh upon my nape. Except, I saw one thing that I might’ve dismissed at first, but I swore I saw the floorboards contract, just for a second, but in that second the two boards that were pressed against each other levelled out and disappeared into the rest of the floor.
+After that, she started showing up more often.
+Sometimes next to me in bed.
+Other times, standing on the porch staring out.
+Always silent.
+Always with sunken eyes, like she hadn’t blinked in years.
 
-In the midst of my disbelief, my waking nightmare began, the walls shook as if an earthquake hit, whatever unbroken picture frames were left smashed to shards and the furniture scuttled across the floor, passing me as if I was nothing more than an obstruction. The blinds opened and shut rapidly blinding me with the moonlight in my dazed state, so I made a run for it, I don’t know where I wanted to end up, but I wanted out of that room until I found it to be happening everywhere.
+The first time she appeared beside me, I froze.
+I didn’t feel fear — I felt shame.
+Her eyes weren’t the same anymore.
+They looked like dark wells, too deep to stare into.
+But even so, I begged for forgiveness.
 
-The house was creaking, the clutter scattered about attacked me, falling towards me, leaving me with scrapes and bruises, nothing much, but enough to shock me out of my disbelief, I needed to get out, because whatever was in this house wanted me gone, or worse.
+She didn’t speak.
+She just reached out and touched my face.
+Cold like stone, but soft like when she was alive.
+I closed my eyes, holding my breath.
+And wished she’d take me with her.
 
-I tried the door but it closed on my arm, splinters almost acting like teeth, biting down on my skin. Once I was free I tried to open the windows to avoid climbing over the broken glass, but I heard a shriek like a dying animal beating down on my eardrums when I tried. I went back up the stairs, the house raising it’s obvious distress with each step, and I darted into every room to look for something to help me get out, a crowbar, a pipe, damn even a mostly intact chair would help, but I came up short. And as I was preparing to descend the stairs, they gave way, and I fell…
+The next morning, I woke up alone.
+But her touch was still on my face — a faint redness.
+I started thinking maybe it was fair.
+Maybe my punishment was to stay there with her.
+And maybe she was just waiting for me to accept it.
 
-All the way down.
+I lived the routine of a condemned man.
+I spoke to her, even when she didn’t answer.
+Left a chair pulled out at the table.
+Slept on the same side of the bed as before.
+And waited.
 
-I must’ve hit the basement because I was suddenly surrounded by concrete and dirt, and something else. It felt sticky at first, then it burned, really burned, so much that I could barely feel it anymore and I found that what I was actually feeling was my skin slowly melting. It was dark apart from a dim light signalling my way out back the way I came and with everything I had I found the courage to climb, something was broken, my skin was smearing and all I wanted was to give in but against all odds, I got up. With my summoned strength I burst through the door and made a break for the path home.
+One night, I heard something fall in the bedroom.
+It was one of our picture frames — the one from the beach trip.
+It lay on the floor, glass shattered.
+But what was strange… her face had vanished from the photo.
+As if she’d never been there.
 
-I stopped to catch my breath with the morning light glazing the house and I felt it again, eyes on me in the eerie silence. As the sunlight bounced off of the shattered panes of the windows it came to me, I drew the connections. Those were the windows to the soul, the creaking that sounded like old, laboured breathing, and how I’d been swallowed whole.
+That shook me to the core.
+I began to suspect she was erasing the traces.
+Or worse: preparing me for something I didn’t yet understand.
+A trade, maybe.
+An unspoken pact.
 
-It wasn’t haunted, but there was something evil in the walls, and it was alive.
+On the seventh day, she spoke again.
+“You know what I want.”
+Her voice was low, emotionless.
+It wasn’t a request. It was a reminder.
+And I knew exactly what she meant.
 
-So when you hear tell of an old house in this town, past the creek near the woods edge, know this. It is real, it lives, and it hungers.
+I went up to the attic.
+There was an old rope tied to a beam.
+She stood below, in the dark, watching.
+With a slight nod of approval.
+And I… for a moment, I considered it.
+
+But something stopped me.
+It wasn’t fear — not anymore.
+It was a primal survival instinct.
+And when I hesitated, she disappeared.
+
+The next day, something had changed.
+The walls seemed narrower, like they were slowly closing in.
+The hallway, which I remembered as short, grew longer each time I walked through it.
+The kitchen door creaked on its own, even when locked.
+The house was falling apart from the inside.
+Or adapting to what it had become.
+
+A prison made of guilt.
+And I was the prisoner.
+Or the visitor.
+Or maybe the last bit of living flesh she still needed.
+To become whole.
+
+I tried to burn the house down.
+I built a fire with the curtains and furniture.
+But the flames wouldn’t rise.
+They just danced low, like they were mocking me.
+She wasn’t going to let it happen.
+
+So I screamed.
+I screamed everything I’d kept inside for two years.
+The truth.
+That yes, I loved her.
+But I never meant to promise what I couldn’t keep.
+
+That night, she appeared one last time.
+A figure standing at the foot of the bed.
+And for the first time… she was crying.
+But said nothing.
+
+The next morning, the front door was open.
+Light poured in like the world had returned to normal.
+I walked out without looking back.
+But I know she’s still in there.
+Waiting for me to keep my promise.
+
+
+
+
