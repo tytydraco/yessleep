@@ -189,8 +189,8 @@ Claire added the necklace, pressing it gently into my fingers. “It belongs to 
 
 As I headed back to the train, I turned back one last time to see them walking hand in hand, finally free. Three down, two to go. 
 
-Everything shifted back to normal, Percy gave me a pat on the back. “I think you’re getting the hang of this, kid. Although, I think mine might be a bit more difficult.”
+Everything shifted back to normal, Percy gave me a pat on the back. “You’re getting good at this, kid. At this rate, you’ll empty the train before your time’s up. Although, I think mine might be a bit more difficult.”
 
-I let out a small laugh, but as I did, I immediately knew something was wrong. My breath ran cold, I could see the vapor, which only meant one thing. Zoe and Percy saw the shift in my face as I looked behind them. They turned, only to join in my horror. 
+I let out a small laugh, but as I did, I immediately knew something was wrong. My breath curled in front of my mouth, white and slow. The temperature dropped like a trapdoor opening under our feet, which only meant one thing. Zoe and Percy saw the shift in my face as I looked behind them. They turned, only to join in my horror. 
 
 It was the Thin Man, and he did *not* seem pleased. 
