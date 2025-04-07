@@ -176,3 +176,5 @@ Slowly, I tilt the rearview mirror. And in the dim glow of the streetlights, I s
 And then…
 
 It smiles.
+
+[Night Three](https://www.reddit.com/r/nosleep/comments/1jttazr/i_work_the_graveyard_shift_at_an_abandoned_mall/)
