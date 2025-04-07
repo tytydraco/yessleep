@@ -1,0 +1,39 @@
+Being popular in college was something I loved. To be honest, I didn’t really do much to be popular. It just came to me. I had a pretty face, and I was a born extrovert. I was going to parties almost every week, going on dates, hanging out with my friends, just the normal popular stuff. Now the thing is, my friend Jocelyn was the complete opposite. An introvert who just happened to be my friend. Everyone just knew her as “my friend.” She would always be the one walking behind my friend group, trying her best to fit in and be like me. Don’t get me wrong, me and her had been pretty close, we were friends since the beginning of high school. We used to be the best of friends, but my popular status in college definitely got the best of me. I began to talk to her less, and her presence was starting to annoy me. I had always thought Jocelyn was quite pretty, but people always made fun of her looks every chance they’d get. My friends hated her and wanted her to stop following us around, but as much as I was beginning to not like her I always told them to leave her be. 
+
+A few months ago Jocelyn had started to distance herself from us. At the time me and my friends were happy she was gone, and people would ask us “Where did your little follower go?” Me, being the horrible person I was would laugh along with my friends. Not once did I even think to myself whether she was okay or not. I just continued partying and living my life without the person who had supported me throughout high school. Jocelyn began to get bullied more and more to the point where she started to not come to school at all. I didn’t even notice until teachers started asking me where she was since she was my friend. I just shrugged and went about my day. 
+
+She didn’t come to school for a month then came back. Something was different about her, something that actually made me notice her for once. She had lost a significant amount of weight, her eyes were hollow, and red as if she had been crying, and she wore an oversized hoodie, with sleeves so long they almost covered her hands. You’d think I’d come up to her and ask if she was okay, right? I didn’t. I once again, went about my day and ignored the fact that she was clearly struggling. People started making more fun of her, calling her “bony bitch,” laughing right in her face, my friends made fun of her every day and I just laughed along with them. Each time. I didn’t even fucking think for once, “How is she dealing with all of this?” I just laughed. Laughed at her existence. Laughed at every single demeaning joke my friends made. And she got worse. And worse. She got skinnier. And skinnier. And as she walked the hallways she looked deprived of life, of happiness. Of energy. Then once again, she stopped coming to school. 
+
+We all didn’t care. We thought she was just attention seeking so someone would actually care about her. Until last month. There were news reports of Jocelyn going missing. All of a sudden we were worried as if we had cared about her in the first place. My friends, who hated her guts said they missed her, people were putting her missing posters around the school, and even I volunteered and helped them put those posters around the school. Her case was pretty popular around our small town, and every day after school I’d watch each and every news update, praying for her to come back. 
+
+Then she started coming to me in my dreams.  Each day I’d go to sleep, I’d have a dream where I would go to the beach by myself, and find her body washed up along the shore, and her eyes, devoid of life would look straight into mine. It was almost like her eyes were staring straight into my soul. The oversized hoodie she wore had the words “I miss you.” on it. Every time I woke up from that dream Id sob. And I’d regret every single thing I had done to her. The dream was tormenting me and I knew I deserved it. Even if I had a nap I’d dream of the same thing. I couldn’t escape it. It was the consequences of my actions. 
+
+My friends started to get worried about me because I started to become more paranoid. I told them about the dreams, of course, and they said it was probably because I was thinking about her too much. Sometimes I swear I could hear her voice, whispering something unintelligible in my ear. Some of my friends started to hang out with my friend group less, for reasons unknown. My friend group was practically falling apart because deep down we all knew we did something wrong. 
+
+Yesterday night, I was home alone, drawing to distract myself from everything going on. And all of a sudden, I heard a knock at the door. “Who is it?” I shouted as I went down the stairs. 
+
+“Amber, it’s Jocelyn, your bestieeeee…” Her voice sounded distorted. 
+
+“Jocelyn..? Are you okay? Oh my God!”
+
+“Let meeee innnnnnn…I miss you….”
+
+Since I was so worried about her, without hesitation I opened the door. And what I saw made my heart drop. And made my stomach churn. Jocelyn was standing there with a smile, with a rusty knife stuck in her neck, and her neck had dried blood all over it. She was wearing the same hoodie I saw in my dreams, which once again, had the words “I miss you” on it. From looking at her neck and face, she was decomposing. Sand covered her long, black hair.  Her neck had bugs feeding on her discoloured flesh, and she smelt like death. Literal death. Her usual vibrant blue eyes were a colourless grey, and I could tell her eyes were starting to seal completely shut. 
+
+“What the fuck— JOCELYN??” I screamed. 
+
+“You know, Amber, soon you’ll be just like me. We both have the same fate. You may be popular now, but it’ll all end the same. Soon, No one will  care about your existence, until you end up like this.” She pointed at herself. “I’m just a different version of you. The neglected version. But it all ends the same.” She stepped closer to me and the putrid smell of death filled my nostrils. “You don’t know it yet, Amber. You’ll never know. Until it’s you next. And you will be next. Maybe if you actually treated me like a person worthy of life, our fates would be different.” 
+
+I start backing up, almost tripping on the living room table. “W-What the FUCK ARE YOU? GET AWAY FROM ME!! YOU’RE NOT JOCELYN!” I start to hyperventilate. “THIS IS ALL A DREAM ISNT IT? GET ME OUT OF THIS DREAM!” 
+
+Jocelyn laughed to herself. “You think this isn’t real, huh?” She took the knife out of her neck, but no blood came out. She grabbed my arm and slowly cut it. I just watched her do it with tears in my eyes, the pain not even registering. I could see the white cut slowly fill up with blood which dripped onto the floor. 
+
+“Let’s see..if you wake up with this cut tomorrow, you know this is real. Because it is.” She laughed again. “I’ll see you soon, Amber. We share the same soul. And soon, you’ll end up just like me. The butterfly effect is real, Amber.” She touched the bleeding cut on my arm and all of a sudden, I felt lightheaded. My vision became blurry and for a few seconds, The face looking back at me as my vision blurred looked exactly like me. I tried to shout, scream, or do something. Anything. I couldn’t. 
+
+Then,  my legs gave out and I collapsed onto the floor. My vision was still blurry and my ears began to ring. I could still slightly hear the sound of a door closing. And then, my vision went black. 
+
+Today, I woke up on the floor, my head pounding and my arm stinging. I remembered everything that happened yesterday, and trust me I still thought it was a dream until I looked at my arm. The cut was still there, and the blood that dropped onto the floor was still there too. I cleaned the blood up, put a bandage on my arm and tried to sleep, but I just couldn’t. Now I’m on here, writing everything that happened. What did she mean by we share the same fate, does this mean she cursed me? Is she even human? And what did those reoccurring dreams mean? 
+
+
+
+
