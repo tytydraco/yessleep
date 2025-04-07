@@ -234,7 +234,7 @@ As expected, I was left alone with my labored breathing for only a moment- cut o
 
 I was no longer alone, no longer in “hiding.”
 
-How ironic that the words that comforted me for so many years, would now be the last words I ever heard…
+How ironic that the words that comforted me for so many years, may be the last words I ever heard…
 
 The creature that once disguised itself as my mother was no longer recognizable.
 
