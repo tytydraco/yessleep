@@ -352,12 +352,8 @@ I turned in place. There was no snow. No cubes. No station. No ice. No Hägglund
 
 Just field after endless field of wheat, stretching as far as I could see, broken only by a rusted barbed-wire fence and a pale white water tower far in the distance. I staggered backward a few steps, nearly tripping over the only mark left behind — a patch of scorched earth beneath where I had lain, exactly one meter by one meter, perfectly etched into the soil. My hand still burned. Looked down at my one gloveless palm, half expecting my skin to be gone. But it was there — red, raw, shaking — the anomaly still imprinted in my nerves.
 
-I checked my radio. Fried. I looked at my wristwatch. Still blank. I was somewhere else now. Somewhere real.  
-  
-  
-  
-Somewhere…  
-  
-  
-  
+I checked my radio. Fried. I looked at my wristwatch. Still blank. I was somewhere else now. Somewhere real.
+
+Somewhere…
+
 Wrong.
