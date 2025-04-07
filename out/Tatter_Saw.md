@@ -1,0 +1,25 @@
+If you've ever driven through rural northern Alabama, you've probably seen the sign:
+
+**Tatter Saw**
+
+Next 1/2 Mile
+
+
+
+It's a small exit; the on-off ramp and Interstate 65 are surrounded by a thick forest. There are no other signs of the exit, no loading, no food, etc. I'm 99.9% certain there was a gas station sign at some point, but every time I drive by the exit, I never see one. If you take the exit ramp going north, there is a gas station about 1/2 a mile off the exit going east. Oddly, there isn't a road going west- it's blocked off by a "road closed" blockade.
+
+From what I know, that gas station was never busy. If you go another 10 miles down the dark and cracked road, you'll run into an old town. Two subdivisions, a joint police and fire department, an old church, one grocery store- you get the picture. A tight-nit, small, and creepy ass town. Roads are cracked, the painted lines are faded, and some of the roads aren't even roads but gravel paths that lead down a twisting maze.
+
+The police and fire departments are joined; we never had enough people to have one of each. If a fire did ever break out, it was mostly volunteers that helped put it out. There's one grocery store, which is run by Mr. and Mrs. Smith. In all honesty, I'm sure that isn't their real name (they are super shady people). There's one other gas station in town, which doubles as a convenience store. When I lived in the town, my friends and I used to stop there all the time and grab junk food for movie nights. If we wanted to, we would drive out to the gas station near the interstate and get alcohol. Mrs. Hillary never checked IDs; whether she didn't care or just wanted us to have fun, I'll never know.
+
+There were two different subdivisions, but it felt more like one big neighborhood. They were only a mile down the road from one another, and everyone knew everyone. There was one house, the Millers, who would host large barbeques during the summer months. They also put on New Year's, 4th of July, Christmas, and other holiday-themed parties throughout the year. Everybody loved them, me included. There was one school, which was still incredibly small. Teachers taught multiple subjects and grades, classrooms were kind of crammed, etc. If I'm not mistaken, my graduating class only had about 20 people.
+
+There's the old church that sits across the street from the grocery store. But it burned down when I was a kid. It became a local legend and something scary for teenagers to explore. For a while, there was a big challenge among the teenagers in the town; if you could stand 20 minutes in the church, you were seen as brave and super cool. I know; it was dumb. The only other thing in our town was the handful of houses that sat in the thick woods around the town. Some of those houses were abandoned, some had people living in them, and I think someone used theirs as an Airbnb. Sometimes, the older teenagers would drive out there and explore a lot of the abandoned buildings, but it stopped after someone was attacked by a squatter.
+
+I never really thought anything strange of my town. I grew up there, and it was once in a blue moon that I would leave the area. My family never really had enough money for a vacation, and it seemed to be the same for most people in our town. It wasn't until I left for college that I became aware of just how strange my little community was.
+
+When I met my roommate for the first time, I told them where I was from. My roommate, Sidney, was from Oklahoma City, so she was curious about a small rural town. When she looked it up, she thought I was playing some joke on her. She couldn't find the town online anywhere; it wasn't on Google Maps. I thought it was weird, but I told her it was super small and off-road, so it might not show up. I'll be honest; it did bug me, but I tried not to think about it. Google Maps knew everything right? It should be able to find a small town. 
+
+However, the alarm bells started going off when I told Sidney stories about my childhood. I told her about the old church and how kids would suddenly be plagued with depression and nightmares after visiting. I admitted that there was one confirmed case that visiting the church had caused some kid to kill himself. I told her about the Millers, how kind but secretive they were. How I was certain that "Smith" wasn't actually the Smiths' last name. When I told her about a kid being killed by a squatter, she had enough. She told me to shut up, she didn't want to hear any more about my creepy hometown. 
+
+I was pissed off with her a little, yelling at me the way she did, but it got me thinking. Why didn't my town show up on maps? Who were the people I was living with? What was the deal with the old church? In about a week, I'll be done with this semester of school, and I'll be able to go home. I've decided that I was going to investigate a little; curiosity was getting the best of me. And I would keep an eye out for that stupid gas station sign. 
