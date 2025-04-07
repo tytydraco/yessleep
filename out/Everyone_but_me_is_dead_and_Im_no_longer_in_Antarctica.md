@@ -2,6 +2,8 @@ As I write this, it is currently 2226 hrs. on April the 3rd of 2025. For now, my
 
 I’m leaving this memo in case… Something were to happen—
 
+—
+
 In Antarctica, nothing drifts off course by accident — not the wind, not the snow, and certainly not the dead. We operated Vireo Station under strict compartmentalization protocols. No satellite uplinks. No GPS beacons. Not even a formal designation in the Antarctic Treaty registry. It was a black-site research outpost, established well outside the operational boundaries of known facilities — far southeast of Vostok Station. The fewer people who knew we existed, the better. That included the ones delivering our lifeline.
 
 Our resupply was orchestrated with clinical precision to maintain plausible deniability. We were provided with a sustainment palette via airdrop every three months. The Globemaster pilots flying out of Christchurch were given one simple instruction: “Drop at coordinates XX°S, XX°E.” A dead zone. A patch of polar plateau that, to nearly anyone looking at it on paper, meant nothing. The crews didn’t know who or what they were supplying — just that they were to fly a designated corridor under EmCon and drop a sealed pallet from altitude at a timestamp synchronized with satellite overpass windows. The idea was simple: even if someone intercepted the flight data, saw them on radar or observed via eyesight, they still wouldn’t be able to trace it back to us.
@@ -62,8 +64,7 @@ And left me.
 
 I dropped from the pilot seat into the waist-deep waves drifting up the side of the cold, dead, vehicle. The cold burned through my thermals like dry ice. I staggered through the gale, following the marker flags toward the vestibule.
 
-The main door was ajar.
-No light spilled out. Just wind and frost and the faint whine of air moving through a dead vent.
+The main door was ajar. No light spilled out. Just wind and frost and the faint whine of air moving through a dead vent.
 
 I stepped inside and found the station silent.
 
@@ -89,8 +90,7 @@ Mark was crumpled at the workstation, collapsed over his laptop in his chair. A 
 
 I couldn’t breathe. My team—my colleagues, my friends—were dead.
 
-They had been executed. Coldly, efficiently. And judging from the disrupted state of the lab—someone had clearly been looking for something.
-I backed out of the room slowly. I needed air. I needed to try to restore the power before the generator froze over completely and I was dead too — Who knows how long the power was out.
+They had been executed. Coldly, efficiently. And judging from the disrupted state of the lab—someone had clearly been looking for something. I backed out of the room slowly. I needed air. I needed to try to restore the power before the generator froze over completely and I was dead too — Who knows how long the power was out.
 
 Outside, I fought through the wind and reached the generator housing. The gen-set had been shut down—manually. Breakers flipped. Fuel valves closed. Whoever did this didn’t just kill—they wanted the station to die.
 
@@ -200,8 +200,7 @@ A glow.
 
 Soft. Blue. Static. Roughly two miles out by my estimation — low on the horizon, barely visible through a light veil of blowing surface snow. At first I thought it might be the aurora on the horizon — but it was localized. Too steady. It was a ground source.
 
-Help, maybe?
-I climbed back into the BV, fetched the binoculars, and propped my elbows on the dash. No radio towers. No structures. Just a single low, steady point of bluish-white light.
+Help, maybe? I climbed back into the BV, fetched the binoculars, and propped my elbows on the dash. No radio towers. No structures. Just a single low, steady point of bluish-white light.
 
 I checked the map again, fanned out on the rear seat. According to every known coordinate plotted on the Vostok route vector, there shouldn’t be anything out here. No weather station. No field camp. No markers or terrain features at all. Just bare glacial plateau.
 
@@ -356,4 +355,3 @@ Just field after endless field of wheat, stretching as far as I could see, broke
 I checked my radio. Fried. I looked at my wristwatch. Still blank. I was somewhere else now. Somewhere real. Somewhere…
 
 Wrong.
-
