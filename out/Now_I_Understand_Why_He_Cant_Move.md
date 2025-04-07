@@ -19,7 +19,7 @@ Today, I visited the hospital again, hoping—praying—for some kind of change.
  
  
  
-Dr. Charles Perez met me outside Rudy’s room, his face grim as always. 
+Dr. Perez met me outside Rudy’s room, his face grim as always. 
  
 "Any news?" I asked. 
  

@@ -1,6 +1,6 @@
 Traveling in a beautiful, lesser known city, I made a mistake. When I was traversing this dazzling place, I came across many wishes. At least, that's what I assumed them to be.
 
-A large elephant shrine sat shrouded by red, yellow, red, and white tokens. All in a line on a string, dangling down. A bell was at the bottom of each string. Each one had something written on it, mostly in Sharpie, in a language I unfortunately didn't understand.
+A large elephant shrine sat shrouded by red, yellow, and white tokens. All in a line on a string, dangling down. A bell was at the bottom of each string. Each one had something written on it, mostly in Sharpie, in a language I unfortunately didn't understand.
 
 After seeing this, I was under the assumption that these were wishes. Placed here by locals and perhaps some tourists. The beauty and seriousness of the whole display made me think that perhaps it was actually real. 
 
