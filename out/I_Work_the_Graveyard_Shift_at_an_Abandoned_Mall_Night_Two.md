@@ -74,7 +74,7 @@ I see myself, frozen in the frame, standing exactly where I was seconds ago. But
 
 Gone.
 
-I run my hand over the cover of an old logbook, feeling the cracks in the old leather. It’s warped from time, the pages inside stiff with age. The mall kept records of its guards, but this isn’t part of the official reports. This is something else. I flip through the pages, scanning the cramped handwriting. Most of it is mundane: notes about trespassers, maintenance requests, the usual. Then, the entries change. The writing grows shakier, more urgent.
+I run my hand over the cover of an old logbook that I'd briefly looked at the previous night, feeling the cracks in the old leather. It’s warped from time, the pages inside stiff with age. The mall kept records of its guards, but this isn’t part of the official reports. This is something else. I flip through the pages, scanning the cramped handwriting. Most of it is mundane: notes about trespassers, maintenance requests, the usual. Then, the entries change. The writing grows shakier, more urgent.
 
 *"Night One: Small things. Lights flickering. Thought I heard voices, but the mall creaks a lot at night. It’s probably just the vents."*
 

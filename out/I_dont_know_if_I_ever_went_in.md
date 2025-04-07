@@ -2,10 +2,12 @@
 
 
 
-**For more information, and for those who don’t know, I was documenting the old ABC cinema in Glasgow for a personal project—nothing out of the ordinary. But something went wrong. I realise I didn’t specify the location before, I guess I wasn’t sure if I really wanted to know if anyone else had experienced it. I don't know if I’ll ever be able to explain what happened, or if anyone will even believe me.** 
+**For more information, and for those who don’t know, I was documenting the old ABC cinema in Glasgow for a personal project—nothing out of the ordinary. But something went wrong. I realise I didn’t specify the location before, I guess I wasn’t sure if I really wanted to know if anyone else had experienced it.** 
+
+**I don't know if I’ll ever be able to explain what happened, or if anyone will even believe me.**
 
   
-***I don't even know if I believe myself.*** 
+***I don't even know if I believe myself.***
 
 
 
@@ -144,7 +146,7 @@ I hadn’t walked here. I hadn’t sat down. I hadn’t even decided to turn bac
 
 I blinked hard, then checked my phone for confirmation. **3:10PM.** Same.
 
-The last three hours were… gone.
+The last four hours were… gone.
 
 I gripped the edge of the seat, trying to ground myself, but it was no use. My legs were shaking.
 
