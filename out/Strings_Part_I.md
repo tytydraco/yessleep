@@ -245,3 +245,5 @@ I watched that one. I was sure I had gotten the kid laughing while the man swore
 I’ve been processing all of this for a few days now. Logan thinks I’m making it up. I decided to post here just to see if there’s anyone who’s had a similar experience. I haven’t seen our neighbors since they’ve had dinner with us a couple days ago. I’ve never believed in ghosts but now I’m starting to wonder if there’s something to those stories.
 
 I’ll post more when something happens.  
+
+Update: [https://www.reddit.com/r/nosleep/comments/1ju6ruo/strings\_part\_ii/](https://www.reddit.com/r/nosleep/comments/1ju6ruo/strings_part_ii/)
