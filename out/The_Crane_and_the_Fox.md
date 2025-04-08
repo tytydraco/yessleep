@@ -12,7 +12,7 @@ New chances not to fuck it up again.
 
 The building itself is forgettable—four stories of glass pretending to be modern, sitting like a plastic tooth in the middle of a dull business park off I-90. Everything smells like stale HVAC air and hand sanitizer. I memorized the layout the first day, because that’s what you do when you’re trying not to be noticed. You become part of the floor plan. You fade in.
 
-Pod C is where I’ve been assigned. An open-concept block of six desks shaped like a malformed hexagon, surrounded by half-hearted privacy screens that don’t actually provide privacy. I sit across from Cynthia (HR assistant, forty-three, chews on pen caps) and to the left of Marcus (IT, mild halitosis, never breaks eye contact with his monitor). Neither of them talks to me, which is a relief.
+Pod C is where I’ve been assigned. An open-concept block of six desks shaped like a malformed hexagon, surrounded by half-hearted privacy screens that don’t actually provide privacy. I sit across from Cynthia (HR assistant, forty-three, chews on pen caps) and to the left of Marcus (IT, mild halitosis, never breaks eye contact with his monitor). Neither of them talk to me, which is a relief.
 
 But today, he arrived.
 
