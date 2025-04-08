@@ -485,3 +485,8 @@ Till next time.
 Avoid the darkness. 
 
 Punch.
+
+
+Things get worse
+
+https://www.reddit.com/r/nosleep/s/niY1JbGR6H
