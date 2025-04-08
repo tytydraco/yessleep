@@ -71,7 +71,7 @@ I’m worried about Priscilla.
 
 Her confidence, her experience as a test subject, her knowledge—they reassured me. But this wasn’t like before. This was different.
 
-A week later, she entered the OT. My hands trembled at the thought of freeing her from the cluster. We’d already moved her cat and a dog to her sister’s place—she wouldn’t be able to look at them again. Her eyes held calm and confidence. I was nervous. She uplifted me.
+A week later, she entered the OT. My hands trembled at the thought of freeing her from the cluster. We’d already moved her cat and a dog to her sister’s place—she wouldn’t be able to look at them again. Her eyes held calm and confident. I was nervous. She uplifted me.
 
 The operation took over twenty-six hours. Red Bull cans littered the floor. Twenty-six sleepless hours etched into our bodies.
 
