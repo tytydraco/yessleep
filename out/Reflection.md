@@ -1,0 +1,15 @@
+
+
+(I'm an amateur so this may not be perfect)
+
+Me and 2 friends Bob and Samantha wanted to have a little fun, we went to the theater to go watch this movie called "The Last Summer". We got to the theater, it was really busy. 3 tickets for The last summer, I said. The employee had a gloomy look on her face as she gave us 3 tickets without saying anything.
+
+We were the only ones in this movie theater which was strange because it was busy. The movie is about to start so we put our distractions away. The entire room flashed bright red and pitch dark over and over. The screen showed a reflection of the movie theater. But something was off, there was a strange dark figure with glowing bloodshot eyes at the corner seat in the theater. We all looked back and he wasn't there. We looked back at the reflection and he was one seat closer to us than he was before. Samantha ran out of the theater, but the exit led directly back into the theater, we were stuck here. We tried to leave again, but no matter how many times we tried, the exit just led back into the same room. We had no choice but to stay, if we looked away from the screen he would get closer in the reflection, we didn’t want to find out what would happen if he got to us.
+
+The tension in the room grew, and it felt suffocating. Voices echoed throughout the theater, it was difficult to make out but it didn’t sound friendly. They were like whispers that sent chills down my spine. The air seemed to grow colder with every passing minute, and the theater still continued to blink bright red and pitch dark. The constant flickering made it hard to focus, but we kept our eyes glued to the screen.
+
+About 2 hours passed and the ghost had gotten closer and closer until he was just a couple seats from us. We focused intently at the reflection, barely daring to blink. It felt like hours had passed, though time seemed to be moving differently in there. Every time we looked away, the figure inched forward. My heart raced as I realized we were running out of time. The ghost was so close, we could almost feel his presence.
+
+All of the sudden, the lights stopped blinking and everything went back to normal. The screen switched to the end credits, and the theater seemed to return to its original state. The air was warmer, and the eerie whispers faded. An intercom made an announcement: “We hope you enjoyed the movie, we hope you visit again soon.” The relief that washed over us was overwhelming. We were able to leave.
+
+I got home and went online to look up what "The Last Summer" was, and to my surprise, it turns out "The Last Summer" isn’t an actual movie. In fact, there was nothing about that movie anywhere, not a single mention of it. It’s like it never existed in the first place. There were no reviews, no trailers, not even a simple page. I just wonder what would have happened if the ghost had gotten to us. What would the movie have done to us? I don’t think I’ll ever be able to shake that thought.
