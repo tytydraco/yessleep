@@ -67,7 +67,7 @@ Dustin was yelling into the phone, “He’s trying to get in our house NOW. Tel
 The man was just standing there on the other side of the glass, watching us. I noticed then that he had gnarly, twisted ears that, with his bald head, made him look like some sort of gangly orc. He took the steak knife and started sawing another sheet of flesh off his chest. I felt bile rise in my throat, and Dustin drew the curtains shut.
 
 
-Part of me wanted to run, to put as much ground between me and that thing. But his feet disappeared from under the patio door curtains, and he could have been hiding anywhere. We checked our other windows—for a second I thought I saw light flit in our living room, like the curtains move, and then it was gone.
+Part of me wanted to run, to put as much ground between me and that thing. But his feet disappeared from under the patio door curtains, and he could have been hiding anywhere. We checked our other windows—for a second I thought I saw light flit in our living room, like the curtains moved, and then it was gone.
 
 
 Dustin was by the front door. “They're here. I see them coming down our street now.”
