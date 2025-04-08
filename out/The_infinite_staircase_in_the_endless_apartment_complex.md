@@ -43,3 +43,5 @@ I shrugged “some video tape from the store floor. I was wondering if we could 
 Ji took it from my hands and tapped it on her leg as she looked around “well. We might be able to find something. Come on, it doesn't hurt to look.” 
 
 For the next few hours we wandered around the lobby, it's actually much bigger than I thought it was with rooms and sub-rooms and closets in closets. Eventually we found a kind of board room with an old crt TV, the kind that had the VHS player right in it. Without much forethought or fanfare we settled into the board room and slipped the tape into the player. With all of us pulling up chairs and scooting the table out of the way we clustered together with snacks and drinks to watch the mysterious tape. It's just about to begin. Apparently there was some setting that was wrong that took Nikolai and Ji working together to figure out. But they got it. I might tell you what's on the tape, I might not. We'll see.
+
+Edit: holy cow! It's been more than a day or two since I uploaded the first one. I genuinely have no idea how time works here. But hey we're gonna figure it out.
