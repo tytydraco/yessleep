@@ -98,7 +98,9 @@ I couldn’t help but wonder if I was making a mistake. 
 
 But I was desperate to be close to her—as close as I could get—I pushed the thought aside and readied myself for the 12-and-a-half-mile walk to the camp spot. 
 
-The path was rugged and poorly maintained. Just setting foot on it again gave me that familiar, wild feeling—like I was somewhere I wasn’t supposed to be. It was probably used more by wild animals than people. I paused to breathe it in—the crisp mountain air, the quiet stillness, the way the light caught the dew as it slowly evaporated, the droplets twinkling like stars. This was what life was meant to feel like. Eilidh had always known that.
+The path was rugged and poorly maintained. Just setting foot on it again gave me that familiar, wild feeling—like I was somewhere I wasn’t supposed to be. It was probably used more by wild animals than people. 
+
+I paused to breathe it in—the crisp mountain air, the quiet stillness, the way the light caught the dew as it slowly evaporated, the droplets twinkling like stars. This was what life was meant to feel like. Eilidh had always known that.
 
 Usually, when I pictured her alone up there—gale-force winds battering her tent, scared and cold—it tore me apart. But now that I was back on the trail? 
 

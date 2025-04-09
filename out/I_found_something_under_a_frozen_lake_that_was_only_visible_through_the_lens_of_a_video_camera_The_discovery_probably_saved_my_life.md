@@ -216,6 +216,6 @@ Was his plan to eventually starve and hang me as well?
 
 Does he want to be caught?
 
-If they’re any big updates, including the answers to those nagging questions, I’ll be sure to [post them.](https://www.reddit.com/r/unalloyedsainttrina/)
+If there are any big updates, including the answers to those nagging questions, I’ll be sure to [post them.](https://www.reddit.com/r/unalloyedsainttrina/)
 
 \-Kaya
