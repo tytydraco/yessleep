@@ -1,0 +1,53 @@
+The woods were my escape. Now, they haunt every dream I have. Growing up in a house filled with chaos, arguments, and discomfort, the dense forest behind our yard became my refuge until that forest changed into a traumatic scar in my mind.
+
+
+
+I grew up in the most rural part of my state, where woods would stretch for miles. They seemed to loom over everything. The roads and towns were nothing more than reprieves from its leaf-covered shroud. The forest was so dense that someone would get lost at least once a year. As a kid, it never seemed like a big deal when it happened. They would be gone for hours, but they almost always made it back. What confused me at the time was how terrified they were when they returned. Even as a child, you could see the panic and fear on their faces. You could tell how relieved they were that they had returned to civilization. It always made me wonder just what was so terrifying about it.
+
+
+
+So, with curiosity and a need to escape, I walked through those woods every chance I got. I knew them better than my own home. My house and family were chaotic. Arguments would turn into physical fights that could last the day. That place never felt safe, never felt like a home. I would go home only to feel chewed up and spat back out. Because of that, I would escape every chance I got, rain or shine. Those woods felt like my own personal safe haven. My little slice of paradise away from the hell of my home life. But as time passed and I grew older, I'd go further. One day, though, I went far enough to understand what made people so afraid of getting lost in those woods.
+
+
+
+It started like any other day. I got home from school. I found my house as filthy as the previous day and searched for what little food we had before heading for my daily hike. My house had a large backyard that sloped down before meeting the tree line. At the edge of the trees was a chain-link mesh tunnel with vines growing all around it. It looked like an entry into another world when you walked through it. It was a ritual for me to walk through it to enter the woods. In my head, it was like I was entering another world. All the negative thoughts and events of the day would be left on the other side. I completed my journey through the tunnel and made my way onto one of the less-used walking paths through the woods. I knew most of the trails and where they lead. 
+
+
+
+There was only one path that I had never gone down. The path was a shallow line of compacted dirt that you would lose if you weren't careful. I've been saving going down this path for a while. There was a subtle anxiety whenever I thought about going down it. I always assumed it was from how easy I knew it would be to get lost on it. The leaves on the ground and roots pulled at the edges and covered it. It felt like the woods were trying to reclaim that part of the forest floor and remove the traces that man had forced on it. I was sympathetic to its cause. If I could erase the memories and evidence of my family, I would have. I decided I would put the fear and anxiety away. 
+
+
+
+So, I began my pilgrimage down the path, taking turns and switching paths when needed. I made my way deep into the depths of the forest. The path grew smaller and more challenging to see. I pushed on, but at this point, unease swept over me. Every step felt like I was stepping on glass. Something sacred was being disturbed by my presence. I was trespassing on a world that was better off without me. Yet I could feel a pull like my wanderings did not upset something. It felt like something was glad I respected it enough to see its true nature. It felt like I was discovering a place not seen by human eyes in years.
+
+
+
+My pace slowed as the forest loomed over me. The tree branches were twisting above me to block me in. There was a cliff to my right and a drop to my left. The path had no other way but forward and back. As a kid, it's easy to get scared when you're out there all alone. You start making up creatures and monsters that follow you. In my mind, I could hear my family or the few friends I had from school calling me back. Part of me thought I should. My heart knew I would refuse the call. Two hours of walking led me to an alien place in the forest. Slowly descending the narrow path, I realized the forest had gone quiet. There were no bugs, wind, or even animals. There was a thumping sound echoing. I felt it rattle me around. The only break from the quiet, and I realized it was my heart. I had heard the forest only gets quiet when there are predators near. Only the sound of my hesitating footsteps dared to break the sound of silence that permeated here.
+
+
+
+My thoughts and feelings of fear were stopped in one moment. At the end of the bend, going around the large hill to my right, I saw something impossible. Nestled at the crossroads of four walkways sat a perfectly built suburban home. It looked like everything I thought a home should be: clean white paint, a warm, friendly glow, and a lovely flower garden right out front. I froze on the spot as my brain registered what I saw. I tried to make sense of what I was seeing. How could there be a house so perfectly maintained this deep in the woods? I thought to myself. I had walked for over two hours from the starting path—nearly five hours to get to this spot. There was no way for anyone to get the materials out here to build something like this. It felt wrong just looking at it. My stomach felt tight, like the nerves when you get to your friend's house for the first time.
+
+
+
+My breath hitched as the door slowly creaked with a high-pitched whine from disuse. The most disturbing part was how inviting it was. It opened like someone saw you coming and wanted to hold it open for you. The inside was black, but a soft melody flowed from the open door. It sounded like a harp backed by a piano and violin. The surrounding woods were motionless. Before I knew what I was doing, my feet shuffled forward, moving in a clunky, unfamiliar manner. I moved like a marionette, strings pulled by unseen hands, every step jerky and unnatural. Long and bouncing steps that drew me closer to the house. My feet dragged with slow scraping that matched the song from the house.
+
+
+
+Panic swept over me. The urge to vomit overwhelmed my senses. I did everything in my power to turn back, to run away. Yet my eyes stayed locked on the door. My body continued to move on its own. From the darkness of the home crept an outstretched arm. It looked emaciated, how thin and frail it was. With long, branch-like fingers, it gestured me forward. It stretched out longer than any arm should. Its long fingers danced in a beckoning wave. I felt my arm lifting out, preparing to grab it when I got close. An urge to hold its needle-like fingers for comfort. The gnarled fingers creeping towards me that would pull me close to whatever that thing was with a forced smile on my face. The stench of rotten decay flowed out the doorway, Mixed with honey and flowers. "Smells like home," echoed in my empty mind.
+
+
+
+The darkness of my new home lifted the closer I got. To my horror, it thinned enough to see pulsating flesh that made up the interior walls. Teeth jutted out haphazardly, and I realized that I was walking into a mouth. And that arm was its tongue, probing me. It wanted to get a taste before it pulled me inside to swallow me whole. Or did it want me to know it was there for me? Despite my fear, it wanted to welcome me and make me feel safe with its paternal gestures of care. I wanted to go home and run away from here. It was then I realized why I couldn't do that, why I hadn't run away even with the fear. I didn't have a home to run back to. It was just a prison full of pain and abuse. Wasn't this much more of a home than that? I understood why those people who got lost never went back in now, why some were never able to get back home. This thing pulled them in and forced them to come inside its open mouth.
+
+
+
+Internally, I was screaming in fear. My body walked happily despite that fear. With all of my willpower, I managed to move my teeth. My teeth crashed down on my tongue, and the bolt of pain tore through me. Alien thoughts, or maybe insidious internal ones of my own, stopped. As quickly as I could, I turned and started running. I heard the music cut out and knew the arms were rushing out to grab me. A low, grumbling roar bellowed behind me. The hungry roar of a starved stomach. Or the cry of a parent losing their child. That parental horror when your child runs away, never to be seen again. I sprinted past the curve and ran down the path. In my panicked state, I sprinted so hard that my legs burned and my feet ached. I saw that arm reach out behind every tree to grab or trip me up. Sometimes, I could see its form behind a tree as if begging me to return with it. After hours, I saw my house and the vine-covered tunnel.
+
+
+
+The noise of nature only returned as I came out to the other end of my backyard. My lungs felt like they were on fire, and my body was sweaty. I looked back into the woods and felt ice in my veins as I saw the arm at the end of the tunnel. It waved me a sad, slow goodbye before retreating into the dense woods. Since that day, I've never been in the woods again. I still have dreams of that day, though, reliving the moments again and again. Each time, I get closer to that hand and house. What scares me the most is how much I want to go back.
+
+
+
+I'm writing to tell you how wrong I was to run. I'll be going back as soon as this is posted. Some might say it's in my head. That it wants to eat me, but I know in my heart that's wrong. My mind made it seem like it was evil or a monster. I can't keep living with my family. Where I'm at isn't a home, and I yearn to return to my real home in the woods. It's where I've always been happiest. That thing is the only one to have ever loved me. The only thing to want me and to take care of me. I've avoided this and made my parent wait far too long. Every night for the last week, I've seen it smiling at my window—such a beautiful and joyous smile as it whispers a lullaby that drowns out the arguments. I'm holding its hand as I finish writing this. Its soft, long fingers hold mine, and I can't wait to leave. I just have one final thing I'd like to say. If you are out in the woods and you see a home there, don't be afraid because something that loves you is waiting behind that door. We'll be waiting for you to find your way home.

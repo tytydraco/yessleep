@@ -1,3 +1,5 @@
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1jutck0/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 It started with that strange email I received. It was some kind of job listing. It promised a straightforward payday, just logging and moving freight. It sounded good and was something I had experience in, so it seemed like an ideal match for the kind of work I needed.
 
 I had been recently laid off from my previous warehouse job, and the hours at the part-time gig I picked up afterward were abysmal. So, when the peculiar offer came from a company called PT Shipping and Logistics, a name I'd never come across before, I didn't hesitate. The opportunity to get back to good paying work was too appealing to pass up.
