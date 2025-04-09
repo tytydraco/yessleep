@@ -1,0 +1,13 @@
+So this happened when I was in 10th grade. My class went to the state fair for an agriculture show. The class was pretty small and the teacher was kinda doing his own thing. He told us that we should all meet up at a certain location at a certain time. 
+
+Me and 2 other classmates (I cannot even remember who they were now) just started to enjoy the fair and hit some rides. Now, I’m not personally into fairs, cheap rides and carnival games so I was just in a blah mood. 
+
+This girl bumps into me while we were standing in line. We both apologized and chuckled about it. She was my age (looked) she was nice and pretty. She seemed into me and was very handsy. She never asked to tag along with us but just naturally did. I never even questioned it because she was hot and I was interested in the girl.
+
+Here’s where it gets weird. Looking back I see a lot of red flags, but in the moment it was awesome. We went on this dark ride supposed to be scary. You know, the ride where you ride a moving seat into a crazy looking clown head. She snuggles up and says she’s scared. Well after about 10 seconds of grabbing my arm she reaches down to grab my penis. She is giving me an over the pants hand job. 
+
+Well the ride ends, nothing happened with me ( no release of you will) and now she’s hanging onto my arm while we walk the fair grounds. She’s giddy, I’m happy, she starts telling me how she’s from Hawaii and they used to have fires on the beach and play music on a guitar and how she misses it.
+
+Well, she says let’s go somewhere. Sure thing! Whatever you say lady! She proceeds to take me to the section of campers where all the carni’s live after work. She takes me to this specific spot where three campers were in the shape of a triangle and we were in the center. She pulls me close to her body and starts making out with me like a mad person. Keep in mind I’ve barely done anything like this. I was scared out of my mind of getting caught. She keeps my attention to her because I was looking around. She asked if I wanted to go inside. I said “inside where?” She said “that camper”, and pointed to a crusty camper. And I was about to say sure and then a security guard caught us and made us leave the area. She bolted and I went back to my friends. I didn’t see her the rest of the time we were there which was another couple hours. 
+
+I have thoughts about what was in that camper, what would have happened to me. Was she a prostitute, was she a ploy to get me inside and they lock me in a box just big enough to live until I was transported. Would I have been in the sex industry the rest of my life? I have trauma and nightmares from this and it may have just been a worry now in my life. Maybe she really did want to hook up? 

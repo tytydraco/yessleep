@@ -77,6 +77,8 @@ The operation took over twenty-six hours. Red Bull cans littered the floor. Twen
 
 Something’s wrong with me, too. Even the thought of cats and dogs haunts me now. I must stop thinking of them. Their very imagery unsettles me.
 
-Priscilla is still asleep.
-And I’m afraid.
+Priscilla is still asleep. And I’m afraid.
+
 What will happen when she wakes up?
+
+[Part 2](https://www.reddit.com/r/nosleep/s/kIUZCpakvY)

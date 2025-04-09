@@ -244,7 +244,7 @@ And then, near-silence.
 
 When my head reached the inside, the voices had disappeared, and the only thing that replaced them was the pulpy sounds of a chewing jaw. Soft, moist grinding of teeth, like a child working through a mouth overfilled with salt-water taffy.
 
-But there was no child: only Antonio, standing with back to me, making those horrific noises.
+But there was no child: only Antonio, standing with his back to me, making those horrific noises.
 
 Whatever he was eating, he was eating it ravenously. It sounded like he barely even paused to swallow after each voracious bite. His arms kept reaching into something suspended in the air by a metal chain that was tethered to the thick branches above us, but I couldn’t see what exactly it was with him in the way.
 
