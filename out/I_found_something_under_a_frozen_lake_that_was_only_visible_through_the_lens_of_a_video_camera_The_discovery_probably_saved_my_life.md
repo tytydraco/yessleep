@@ -14,7 +14,7 @@ His lips curled into a wry, playful smile. Clearly, my fiancé garnered a bit of
 
 I gave him the side eye as I thrust some scrambled eggs into my mouth. James saw my dismay and recalibrated.
 
-*“Look, Kaya, I know what you’ve recorded isn’t as cut and dry as developing code. But wasn’t that the point of taking a leave of absence? To give yourself some space out in the real world? Develop other passions? Self-realize? That job was making you miserable. It’s going to be there when you’re ready to go back, too. Just…I don’t know, enjoy the mystery? Stop looking at it like it’s a problem that needs to be fixed. This has no deadline, sweetheart. None that I'm aware of, at least.”*
+*“Look, Kaya, I know what you found out there isn’t as cut and dry as developing code. But wasn’t that the point of taking a leave of absence? To give yourself some space out in the real world? Develop other passions? Self-realize? That job was making you miserable. It’s going to be there when you’re ready to go back, too. Just…I don’t know, enjoy the mystery? Stop looking at it like it’s a problem that needs to be fixed. This has no deadline, sweetheart. None that I'm aware of, at least.”*
 
 He chuckled again and my expression softened. I felt my cheeks flush from embarrassment.
 
@@ -140,7 +140,7 @@ When I checked the camcorder to ensure it was operational, I found the side scre
 
 That camcorder’s newly compromised battery was the closest thing to divine intervention I think I’ll ever experience in my lifetime.
 
-I rushed over to the sink, plugging the camcorder into an outlet aside the toaster oven, hoping I could siphon enough charge to power the device before I missed my opportunity to record the phantoms. Minutes passed as I stared at the battery icon, but it didn't blink past red. At 8:57, I removed the device and started pacing towards the door, but the machine went black within seconds.
+I rushed over to the sink, plugging the camcorder into an outlet aside the toaster oven, hoping I could siphon enough charge to power the device before I missed my opportunity to record the phantoms. Minutes passed as I stared at the battery icon, but it didn't blink past red. At 8:57, I pocketed the device and started pacing out the door towards the lake, but the machine went black about thirty seconds later.
 
 A massive, frustrated gasp spilled from my lips, and I felt myself giving up.
 
