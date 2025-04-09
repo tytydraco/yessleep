@@ -180,4 +180,4 @@ Then, in a voice I recognize as my own, it speaks one last time:
 
 "*Night Three is complete. Welcome hom*e."
 
-[**Night Four**](https://www.reddit.com/r/nosleep/comments/1jufebs/i_work_the_graveyard_shift_at_an_abandoned_mall/)
+[**Night Four**](https://www.reddit.com/r/nosleep/comments/1juz90t/i_work_the_graveyard_shift_at_an_abandoned_mall/)
