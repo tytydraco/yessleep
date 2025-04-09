@@ -1,5 +1,7 @@
 [\[Part 33\]](https://www.reddit.com/user/RandomAppalachian468/comments/1j80v9l/the_call_of_the_breach_part_33/)
 
+[\[Part 35\]](https://www.reddit.com/user/RandomAppalachian468/comments/1juy5bm/the_call_of_the_breach_part_35/)
+
 Around me, the team froze in place, and I blinked.
 
 “What . . . what are you doing here?” I shook my head in disbelief.
