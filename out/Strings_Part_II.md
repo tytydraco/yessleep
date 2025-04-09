@@ -192,7 +192,7 @@ My dad did talk to my mom about what happened. She came to my room and made sure
 
 Dad already left for the woods with his buddies, Colleen’s husband among them. Mom told me that Colleen had a bad fall at the Kinseys and busted her shoulder pretty bad.
 
-“She was really embarrassed. Has it wrapped up right now,” Mom said. “She was meeting them for a job as their sister. I’m glad they’re following through on that.”
+“She was really embarrassed. Has it wrapped up right now,” Mom said. “She was meeting them for a job as their sitter. I’m glad they’re following through on that.”
 
 I wasn’t too comfortable with my mom’s explanation. I still think about Colleen’s face that I saw through the binoculars. Her smile so uncomfortable to look at. My mom said she seems fine but something must have happened. Something must be happening.
 
