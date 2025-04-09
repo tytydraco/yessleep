@@ -108,3 +108,6 @@ It was him. It had to be. I mean—how could it not be?
 Still, I walked onto the plane two steps behind him.
 
 Like I was following a stranger wearing my brother’s skin.
+
+
+[(Part 1 Continued)](https://www.reddit.com/u/AdFragrant4136/s/SvML3ZoCTR)
