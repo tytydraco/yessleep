@@ -698,10 +698,6 @@ And I loved him. I still do.
 
 But love isn’t always enough to hold someone back from the other side of the mirror.
 
-
-
-
-
 Last weekend, when we returned to São Thomé, I saw it again.
 
 Not the house. Not the board.
@@ -743,3 +739,7 @@ And me?
 **I was the key.**
 
 — Sophia
+
+\----------------------------------------------------------------------------------------------------------------------------
+
+All rights reserved. Do not copy or reproduce without permission.
