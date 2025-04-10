@@ -82,7 +82,7 @@ And amidst all this chaos, the newly discovered dimension earns a name:
 
 **Link 37.**
 
-Yet, despite the noise; the articles, the debates, the feverish speculations—Priscilla and I remain silent. We are not convinced. Something crucial is missing. Something buried in that dark fold of reality that demands to be pried open, dissected.
+Yet, despite the noise; the debates, the feverish speculations—Priscilla and I remain silent. We are not convinced. Something crucial is missing. Something buried in that dark fold of reality that demands to be pried open, dissected.
 
 Later, whispers of rogue surgeons and black docs begin to spread, we ignore them for now.
 
