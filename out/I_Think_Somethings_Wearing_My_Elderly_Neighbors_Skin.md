@@ -357,16 +357,10 @@ She opened the door and tried to ask me more. She tried so hard, and I lied righ
 
 But she’s smarter than that. Always has been. She’ll get it out of me one way or another.
 
-I called the police again, I tried to explain what happened. Part of me wonders if this was some sort of delusion? Was I going through an episode of stress-induced psychosis? What will the police find down there. 
-
 I can’t stop imagining the visage of Jack, the man I’d once known, squeezing through a gap in the partially opened door the size of my fist. Unhinging his being. Sliding apart his bones.
 
 And that wasn’t even the worst part.
 
 It’s the frown I saw carved deep in the groove of his mouth. The pleading look in those beady insect eyes.
 
-It was the way his mouth opened up right before I slipped through the window and said,
-
-“Please… He…lp… me.”
-
-Like there was a piece of him still left alive inside of that thing. 
+Like there was a piece of him still left in there.
