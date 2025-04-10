@@ -2,7 +2,7 @@ For those needing to know what's gone on recently in town: [https://www.reddit.c
 
 I told Logan about what happened at school. He said that I’m finally coming around to the “real town experience.” I can finally consider myself a bonified Ampletonian since I witnessed a supernatural event. I hate the way he said it and I told him that there was nothing supernatural about it.
 
-My camera was just not capturing the kid in the dark. He had to have been out of frame and out of the range of my phone’s microphone to not in the mover’s video. These were the explanations my mom gave when I explained it to her. She was upset about Rowan being out in the dark. She told me that she went over to the Kinseys’ House, still feels weird saying that, and confronted them about the child being out.
+My camera was just not capturing the kid in the dark. He had to have been out of frame and out of the range of my phone’s microphone to not be in the mover’s video. These were the explanations my mom gave when I explained it to her. She was upset about Rowan being out in the dark. She told me that she went over to the Kinseys’ House, still feels weird saying that, and confronted them about the child being out.
 
 According to what I was told at the dinner table, the old couple didn’t deny it. They said that Rowan had gotten lonely while they were out and helped himself out of the house knowing they would be next door. Before they’d known he wasn’t in his room he was already knocking on the door.
 
@@ -32,7 +32,7 @@ I laughed. Almost chocked on the water I was drinking. I shook at my head at thi
 
 I think I better leave out the tangent we went on since there’s a lot to cover and covering the horrors of the sexy vampire trend would take pages. There’re more important things to cover here.
 
-Logan said that he wants to come over my house to see it for himself. He’s certain that there’s something about the Kinseys. People don’t buy a century old mansion without knowing the rumors.
+Logan said that he wants to come over to my house to see it for himself. He’s certain that there’s something about the Kinseys. People don’t buy a century old mansion without knowing the rumors.
 
 “Could be they’re witches,” Logan said.
 
@@ -58,7 +58,7 @@ Despite the difficult decision between spotting America’s only aquatic songbir
 
 “Is there anyone in this town who would even come to one?” I asked.
 
-My dad took a moment. His lower lip rising as he pondered it for a moment. I’m sure it’s the same look he gives when he’s measuring up a tree at work. Deciding if it’s the right size and material for the company.
+My dad took a moment. His lower lip rising as he pondered it for a moment. I’m sure it was the same look he gives when he’s measuring up a tree at work. Deciding if it’s the right size and material for the company.
 
 “I heard Norris has a keg or two of his own moonshine,” Dad replied.
 
@@ -102,9 +102,7 @@ I handed the binoculars to Logan. I grabbed another slice of pizza and started t
 
 “Someone’s coming.”
 
-I went back to the window. A car pulled up behind the Kinseys’ car. Logan couldn’t tell who the person in the raincoat was and I asked him to hand me the binoculars.
-
-As I looked through the binoculars, the Kinseys were guiding their visitor into the living room. I knew who she was the moment I saw her blonde hair out of the hoodie.
+I went back to the window. A car pulled up behind the Kinseys’ car. Logan couldn’t tell who the person in the raincoat was and I asked him to hand me the binoculars. As I looked through the binoculars, the Kinseys were guiding their visitor into the living room. I knew who she was the moment I saw her blonde hair out of the hoodie.
 
 “That’s Colleen,” I said.
 
@@ -152,7 +150,7 @@ I had to take a moment to process this. I put the binoculars down, the Mario Kar
 
 I don’t think I’ve had a truly scary moment in my life. There was one time when I stared down a cliff on a hike with my dad and felt really dizzy staring down at the water crashing onto the rocks below. This was similar to that sensation. I felt the dizziness as my skin started to sweat. I tried to prepare myself for the sight that would greet me as I looked out the window. It was just going to be the neighbors. They were just people. They weren’t anything close to a steep cliff.
 
-I was worse. When I looked through the window, I didn’t need the binoculars to see how the Kinseys’ were smiling. Their mouths were clear enough as they stood behind their couch. While it was difficult to make out and I think this might be a figment of my scared brain, I remember Mrs. Kinseys’ one blue eye glowing. At least I thought it did.
+It was worse. When I looked through the window, I didn’t need the binoculars to see how the Kinseys’ were smiling. Their mouths were clear enough as they stood behind their couch. While it was difficult to make out and, I think this might be a figment of my scared brain, I remember Mrs. Kinseys’ one blue eye glowing. 
 
 I didn’t have long to look at it as the Kinseys’ suddenly laid their heads back on their necks. The motion was so quick that I would’ve thought they’d snapped them if they didn’t keep standing. Logan was back at the window with me as the Kinseys’ raised their arms. The hands loose on the wrists as if there was no muscle in them. They started to flail them back and forth. The motions distorted in the rain.
 
@@ -176,13 +174,13 @@ I blurted out that it was and Logan even offered to pour some into his hand to t
 
 “Let me try that salt,” Dad said.
 
-I yelled at him that we were telling the truth. Logan poured some salt into my dad’s hand and tasted it. He grimaced after he tried it.
+I yelled at him that we were telling the truth. Logan poured some salt into my dad’s hand. He tasted it. Grimacing after he tried it.
 
 “Okay, Miles. Okay,” Dad said. “You said Colleen was there? She should have a shift with Mom tomorrow. I’ll ask her to ask about it before I leave.”
 
 My dad told us to clean up the sauce and salt as he left the root beers with us. After we’d cleaned, Logan and I spent a lot of time glancing at the window. I didn’t try to go to sleep, neither did Logan. At any moment I expected the Kinseys or their freaky child to appear outside my window. We kept ourselves awake by watching YouTube videos. Logan searched for ones covering the occult and possessions. I listened intently to each bit of information while always making sure the living room curtains were still closed at the Kinsey House.
 
-We didn’t spend the rest of the weekend together. Logan stayed that night but went home the next morning. He told me he needed to do some research. He left the cross with me and told me to put some salt on the ledge.
+We didn’t spend the rest of the weekend together. Logan stayed that night but went home the next morning. He told me he needed to do some research. He told me to keep putting salt on the ledge.
 
 “Actually, better do it around the whole house. Just to be safe.”
 
