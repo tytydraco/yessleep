@@ -248,6 +248,6 @@ I turned around now, staring dead into his eyes. They looked hollow. He was star
 
 Tears ran down my cheeks and I felt like I was broken. Coach Oleander basked in the experience before turning and walking towards the door.
 
-“Get back to work.
+“Get back to work.”
 
 I reached into my pocket and pulled out the lighter. I took a step towards him and flicked it on, hoping to anything above that I could kill him with a seizure right then and there. Instead, he stopped, soaked in the feeling of the flame, turned around with a friendly smile, and said: “No smoking indoors.”
