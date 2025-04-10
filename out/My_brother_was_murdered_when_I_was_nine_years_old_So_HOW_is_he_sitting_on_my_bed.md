@@ -50,7 +50,7 @@ I wanted to be a writer like him, follow his footsteps, and create my own Barbie
 
 But, all good things come to an end– or in this  case, they abruptly stop. 
 
-When Jem turned seventeen, I was ten years old. 
+When Jem turned seventeen, I was nine years old. 
 
 That's a big age gap. 
 
@@ -62,7 +62,9 @@ Jem got mean. Like, *really* mean.
 
 He started calling me names, throwing things at me when I asked him to play with me, and teasing me for playing dolls. 
 
-Look, I don't know why I liked playing with dolls at ten years old. There's nothing wrong with it, and it anything, it wasn't the *dolls* I was having fun with. 
+Look, I don't know why I liked playing with dolls at that age. 
+
+There's nothing wrong with it, and it anything, it wasn't the *dolls* I was having fun with. 
 
 It was the stories I was making myself. 
 
@@ -78,7 +80,7 @@ There were two boys and a girl.
 
 Reece, this guy with glasses, a face full of acne, and a lisp. 
 
-He was nicest, often chastising (in a teasing way) my brother, for telling me to fuck off. 
+He was the nicest, often chastising (in a teasing way) my brother, for telling me to fuck off. 
 
 His other friends were assholes. 
 
@@ -232,7 +234,7 @@ Ella, a quiet girl who also played with dolls (and was bullied mercilessly for i
 
 Ella felt like a breath of fresh air that I desperately needed. 
 
-Ella poked at Cindy’s, who I was re-dressing. 
+Ella poked at Cindy, who I was re-dressing. 
 
 “Do you have any spare heads?” she asked, picking through my dolls.
 
@@ -318,7 +320,7 @@ I remember not being able to fucking breathe. But Ella was grabbing, and draggin
 
 They fucking haunt me. 
 
-Ella pointed to the fourth headless hanging from the hook. 
+Ella pointed to the fourth headless body hanging from the hook. 
 
 It wore fresh jeans, a t-shirt, and cowboy boots, its skin shining, perfectly embalmed. 
 
@@ -378,7 +380,7 @@ But no.
 
 Jem. 
 
-Eighteen year old Jem, who died when I was eight years old, sitting cross-legged on my sheets. 
+Eighteen year old Jem, who died when I was nine years old, sitting cross-legged on my sheets. 
 
 Positioned like a doll, his hands were in his lap. His hair had been combed, and he had a full face of make-up. 
 
