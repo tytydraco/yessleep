@@ -1,0 +1,92 @@
+This is a recording of my great grandfather, Friedrich Köhler’s experiences post WW1. By the time that this takes place my grandfather is already convinced in France, which Friedrich didn’t know. This is based on his personal diary, written in the third person, as according to a note at the beginning, he intended to turn it into a book. I have recently acquired this, as well as his military records, and people in the diary’s accounts, which their families have been so kind as to personally lend me to complete his story. PS, not every word in his diary had a direct or correct translation to English, so if parts are more americanized than it should be based on the period that is why. Here is part 1 memoir, as it will take time to translate the rest, but I have it so be patient. If it's slow hold on, better parts will come, just wait. Here it is:
+
+\-------------------------------------------------------------------------------------------------------------------------------  
+A boot steps down onto the train platform. It is made of leather, caked with mud, torn at the toe, and made dull by time. Another quickly follows. The man is in no better shape than his boots. His hands are covered in scars and scrapes. Dirt has entrenched itself under his nails. He wears a gray wool coat, covered in smudges and stains, with a faded red lining and gold buttons that do not match, some look new off the factory line, some have seen everything he has. His trousers are the same gray wool, except that they are covered in tears, and seem to have been soaked in mud and filth. A pack lay on his back containing all of his possessions. He wears a steel helmet with abundant scrapes and dents. He no longer needs it as he is back in Dresden, the city he left so long ago, but refuses to remove it, something so deeply ingrained in him over his time. His hair is short and unkempt. His face is clean shaven as is customary for those who need to wear a mask.
+
+He walks off the platform and into the station. Everything looks just how it was when he was there last over three years ago now. Same brick walls, same marvelous pillars, same steeples. It may have looked the same but it is not really where he left from. No cheering or throwing flowers as he and his friends get on the train and are sent away. Yes the foundations and stones are the same but the spirit of the people and nation itself have eroded. Not many are seen and those who are are solemn and quiet. The man sits on a bench at the station to think for a moment. He supposes that those in France and Britain are probably coming home to crowds and celebrations. While yes every nation lost people it feels as though Germany's losses were most severe. They have no victory to take their minds off the friends, children, or fathers they’ve had ripped away so quickly. There is only loss. That of the war, that of the soldiers, that of the civilians, that of the German pride which had carried them this far. Just loss.
+
+No point dwelling on it now, and afterall he is back and should be happy for that at least  presumes the man as he gets up and continues on. Walking out of the station he looks for his old apartment. He saw it from a little while away. It was the same four stories of brick and mortar with a sign outfront simply with “Apartment” across it. He walked inside to see a new clerk from when he was there previously. It was a girl, no older than their late twenties at most. She had a down expression and seemed to light up when the man entered through the doors. She was short with striking features, fair skin, blue eyes, and blonde hair put into a chignon. Something about her eyes stood out to him. It looked like an empty space behind them, one that had been vacant for some time but has finally come to terms and is ready to be filled.
+
+“Hello sir, what may I have the pleasure of helping you with today?”
+
+“How much is a room?”
+
+“50 Marks a month.”
+
+“Certainly has steepened a bit.” Said the man sifting through his wallet and handing over the 50 Marks. “Is room 11 open, that was mine before I went off”
+
+“Indeed it is.” Said the clerk turning around to look for a key. She began to speak again with waning enthusiasm as she said, “A lot of the rooms opened up when this all started and… well… let's just say the old owners aren’t coming back to fill them up. A lot of sad mothers around here.”
+
+“Oh I know.”
+
+“Have you visited yours yet? They probably would like to know you’re back and ok.” Still looking through the drawers behind the counter.
+
+“No, I haven’t talked to them much since I came down here from Leipzig.”
+
+“Well no time like the present.” She said while handing over the key. “And what name would you like me to put that under again?”
+
+“You can put it under Friedrich Köhler, or just shorten it to Fritz.”
+
+“Alright you’re all set. Have a good day Mr. Köhler. I hope to see your face around.”
+
+“Thank you, likewise.”
+
+Fritz walks up a flight of stairs. Even after being separated from his old residence for so long he remembers it all. Every chip in the paint, every slightly cracked brick, every grain in the banister, and the light hanging from the top of the stairwell. He makes his way to the room he called home before he went away. Inserting the key into the hole he twists it and with a creek the door opens. Looking around you’ll see a small stove and cold water sink right at the entrance and going ahead you’ll see a modest bed and chair in the opposite corner, the whole thing dimly lit by a few lights. He removes his coat, places his bag with his possessions under the sink, and collapses on to the bed. Many times he dreamed of a bed while away. On Fritz’s mental list he crosses out “Bed”, now only “Shower” and “Pub” remain. Lucky enough for him the apartment has one of those two on the first floor right next to the restroom. That can be done in a moment once he is satisfied with laying down in the luxury of his bed.
+
+The air of late November required him to return to his coat. With this he set back off, exiting the room, locking the door, and descending the stairs. Walking down the hall he found the bathhouse unoccupied to his pleasure. Within seven minutes Fritz emerged fresher than he had been in months. While no he was not spotless by any metric it was refreshing all the same. With a shirt now slightly dampened by his skin he returned quickly up the stairs to his room. He retched the pack he had carried to remove his items from it and make himself more settled in. He reached in and took out a notebook which he had documented a few experiences in, everything from describing Artillery barrages and assaults, to shooting at rats and bailing water.  A few photographs and a camera he had saved from a friend named Paul who was making a collection from all of the towns they went to during their time lay in his bag as well. One day Paul went on a scouting party to cut some British wire at Guillemont and never returned to the German front. It’d be a shame and disrespect to Paul if he let his hard work get left behind, so Fritz took the camera and photos and finished the collection Paul started to honor him.
+
+A 37mm shell was one of the souvenirs Fritz kept. It had a design at the top with pedals sticking out at an angle, and little holes in the shell beneath each pedal. This was acquired on a raid in a British trench at Cambrai. As the old owner would not be advancing back to their old trench there was no point in letting it go to waste. A spare shirt and some socks had been provided by the army while the soldiers were handing most of their gear back. He was able to hold on to a mess kit that he was given. A few cigarettes in a tin box that had engravings of an iron cross and eagle he had received in 1915. Also in the box was an Iron Cross 2nd Class which he was awarded. Finally he had a match box, razor, standard issued knife, and a small sack with the rest of his pay in it. With now sprawled out on his chair he checked the time seeing it was now about seven p.m. After a couple more minutes enjoying his bed he left to find a place to drink.
+
+Swiftly exiting the apartment Fritz began to walk in the direction that his old favorite pub was in. Walking beside the road he began to notice many shops or restaurants he used to enjoy now had shut doors and closed signs, and even then those that were open didn’t look in the best shape. The solemness of the mournful city returns. People quietly walk to and fro, uninterested in the doings of others. There is the same feeling of loss permeating in the air as before. Fritz pushes it all out of his mind, afterall he is back and should enjoy being back. A quick ten minute stroll later he arrived at the pub “Stadtkrug”. Opening the doors a yeasty aroma of freshly brewed beer is smelt. Many people sit and talk in small groups, and many others sit alone. Walking up he orders a Pilsner and joyfully anticipates its arrival.
+
+The bartender returns to his stool. He seemed to be in his thirties and by the hollow wooden thump against the ground made every time he takes a step, it’s evident that he got out of the war early. Fritz couldn’t help but let out an empty chuckle and silently think to himself “lucky bastard.” He grasped the drink in its cage of glass and slowly pressed it to his lips, ready to bask in its full glory. When he first left he was hardly at the age to enjoy drinking, especially with the example of his father still fresh in his memory and his vow to never touch alcohol. This quickly dissipated. When every day is a miracle you, naturally, wish to do everything as soon as possible in case you don’t have the chance. Him and Karl had a scavenger hunt to see who could complete everything faster, which included getting drunk and enjoying a woman. If you ever met Karl you know that he had no problem with the alcohol, while Fritz had his luck with the French women, a period of which he looks back on with shame. All the older soldiers said how awful the ration beer was.
+
+“What is this trench water! Back in Berlin we had real beer. “Making beer out of potatoes” who do they think we are, Ivans? Sooner or later they’ll have us drinking that disgusting backyard brew the Kosaken tries to pass for alcohol.”
+
+He didn’t drink it. He wanted a first experience that truly encapsulated the glories and culture, not whatever that was.  Since Karl was clearly not going to complete his part, Fritz figured he might as well finish the race that was no longer competitive of course.
+
+With a slight rise in elevation the golden Pilsner flowed into his mouth, and in a very short time he had officially won the competition. It was not how Fritz imagined it. During the war all of his older comrades talked about how the first thing they would do when they got home, before reuniting with their families which they held so dearly, was to stop by the pub. Fritz was so deeply excited to try this for himself, but now it seemed so flat or dry. The enjoyment and euphoria that was anticipated simply didn’t appear. Dismay washed him over and he began to lose focus on the world around him. His eyes were open yes, but he was not seeing anything in front of him. His mind was thinking no thought, and for a second it was as if he didn’t exist. Such bliss can be found in non-existence sometimes.
+
+He felt a hand on his shoulder. A damn frog eater! He jumped forward, hitting into the wall of the trench held together by sticks, beams, and pure determination. His arm tore through the air with a raging fury to grab his shovel. In one swift motion he brought it to his head level and swung it at the Franzmänner’s head. The ensuing sounds were all too familiar, the transition from pressing into skin to hitting solid bone, to feeling it break away and shatter. Some pieces went out the side, some deeper into his head where the blade continued to push them deeper until it was solidly entrenched in the man's head. At least that's what he would have felt. What he thought he felt if he had his spade. If he was in France. If he wasn’t in the bar staring into a man's wide eyes.
+
+“I see, still war weary. Don’t worry I was the same when I first came back. They say it shows weakness but I say it shows we’re just ready for a fight wouldn’t you agree?” He pulled over a stool from further down the counter. “What's your name?”
+
+“Friedrich.” He responded with the cold blank tone of one who still isn't sure of their exact surroundings.
+
+“Well Friedrich it’s nice to meet you, I'm Hans. I’m sure you’ve heard of the Freikorps.” Said the stranger with a pause and look indicating to Fritz he should respond.
+
+“I don't know. Like the old ones? Like The War of Liberation… something with Napoleon I think.” He said in a state of unthawing from his episode, completely uncaring of what this man has to say.
+
+“No no no, the new one. Me and a bunch of ex-German soldiers are putting together a group, a militia of sorts.”
+
+“Listen sir, the war is over. It’s done, you heard what the politicians said the same as I did. I just want my old life back, not the trenches again.”
+
+“Oh I heard the politicians alright. Damn traders like it more, selling us down the river, being walked on by the French and British, listening to the American lies. They’re German, they win, what don't they understand?”
+
+“I guess so, hell I mean we got pretty close at least. Wasn’t there something about the Navy too?”
+
+“Them, those sailors, the bankers, liberals, oh and don’t get me started on the communists! The Spartacists, taking the high road, “I don’t like war,” “I’m going to go on strike like the Brits and Frenchies,” “I want more money so I'm going to stop working so the soldiers putting their asses on the line for us run out of ammo and die in the French mud!” They piss me off to the ends of the Earth! I could only think what I’d do if I had one right here.”
+
+“I think one of my buds got a letter about that from his girl. Did they really just stop working, even on war materials? In a time like that? I’ve seen men get gunned down, torn to pieces because they didn't have enough ammo. It’s always when you have a clear shot on their officer that you find you’re missing a bullet.”
+
+“Exactly! Give us a few weeks, no, days even and we’d have been in Paris. I mean look at you, with you in our army clearly it’s not the quality of soldiers keeping us down. We did so much in so little time that if they hadn't turned on us at our moment of triumph we would have won for sure. Think how many of our pals would still be alive if they hadn’t leashed us and pulled us away, kicking and streaming, from Paris.”
+
+“You’re right, what's this Freikorps’ goal anyway?”
+
+“Well to protect the Germans of course. Our people, our identity, our unity. They’re coming for us, the Tommies, the Frogs, the Bolschewiken, and the Amerikanische mercenaries! Even on the inside they’re trying to cave us, the damned Spartacists! In Latvia, where our knights first landed those ages ago, they're still fighting to keep out the Red Pests. They spread like a plague and infect everything they touch, waves of them. They’re doing the best they can, but it certainly wouldn't hurt if a few thousand hardened veteran soldiers such as yourself. You’re the prime example of a Zäher Hund you know. A true front-line pig, a real man, a guy who comes back again and again and again no matter how much is thrown at him.”
+
+“How would one sign up for this organization if they were to go relieve the struggling garrisons in the Baltic, to protect the innocent Germans from the murderous Reds of course?”
+
+“Well right here in Dresden we have a head of the Freikorps Hasse. I’ll try to get into contact with Hauptmann Waldemar Pabst. He’s one of us, a real man. In two days I can ask him to meet you at the Residenzschloss, he’ll point you to where you can go to reach the Baltics.”
+
+“Thank you Hans. What about you? Are you going to the Baltic?”
+
+“No, I’m planning on staying here, probably going to keep an eye on the socialist in Leipzig. They act up one bit, and I’ll show them that despite their best efforts I still have at least one bullet left for each of them.”
+
+“Alright then, I best be heading out.” Said Fritz, pushing off his legs with his hands to stand up off his seat.
+
+“Likewise,” was the response given by Hans.
+
+With a slight grunt he lifted himself and reached out his hand, slightly sticky from the Pilsner, which Hans didn't seem to mind as he swiftly and firmly grasped his hand and gave a firm handshake before walking off to the door. Fritzed hollered for the bartender to return as he handed him a portion of the leftover pay that he had brought with him. With that he turns and walks out of Stadtkrug’s double doors.
+
+Walking out into the fresh November air, the coldness he had felt before seemed less piercing, to the point where he was able to remove his coat for the remainder of his walk. Something about the atmosphere had changed. Everything seemed slightly brighter than before, as if the darker clouds looming over the city had begun to subside, if only over Fritz. No one was stirring, not at this hour. There was something that seemed to push him forward, something in his step allowing him to walk more upright and powerful than on the trip there. This was not unnoticed by Fritz. He began to think of what has changed. Perhaps it was the stars providing better illumination, or was it a shift within himself? Was it the conversation with Hans, did he just need a comrade in this trying time? Possibly. Or was it the destination that he was now moving towards? Yes, on the trip to the pub he had an ending location but not a path. The previous destination was one that was unimportant and had no effect. Nothing would change if he went or did not go. Nothing would change if he went now or years from now, but now he has a deadline and a group that wants him, no, needs him like Hans said. In some way, the screws put on him by his new limitations and requirements almost willingly forces him to move forward compared to an unstructured path. Water in a river will move further and more vigorously than water in a lake as the strict constraints of the banks on either side force it to go in a direction, while a lake has no limitations, no structure, but no movement. That must be it.
