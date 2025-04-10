@@ -202,7 +202,7 @@ But maybe it’s high time I reconsider my understanding of the universe, and wh
 
 I just got off the phone with the lead detective on the case. James hasn’t returned to the cabin yet, but the police are staking it out. The manhunt is intensifying by the minute, as well.
 
-That said, have any of you ever even heard of “*The Gulf Coast Hangman*”?
+Have any of you ever even heard of “*The Gulf Coast Hangman*”?
 
 Apparently, coastal Florida was terrorized by a still uncaught serial killer in the late nineties, and their M.O. earned them that monicker. Woman would go missing, only to reappear strung up in the Everglades months later. They had been starved before they were hung, withered till they were only skin and bone. As of typing this, the killer has been inactive for nearly two decades. The last discovered victim attributed to *“The Hangman”* was found in early 2005.
 
