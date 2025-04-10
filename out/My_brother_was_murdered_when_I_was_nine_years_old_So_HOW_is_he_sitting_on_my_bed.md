@@ -32,7 +32,7 @@ I was very protective of my dolls, and when he left one of them outside in the s
 
 But again, I was eight. This is to be expected of an eight year old. But the thing is, we always made up. 
 
-He was my brother, if course we did. 
+He was my brother, of course we did. 
 
 Mom was basically MIA for the majority of my childhood. Jem was the reason why I wasn't lonely— why I continued to play with dolls, even when the kids at school teased me for being childish. 
 
@@ -298,9 +298,15 @@ Her eyes were still wide open, lips forcibly stretched into a grin, glitter on h
 
 Clee. 
 
-I skipped over the other two, my gaze finding the last one. Closed eyes, lips pressed into a peaceful smile. 
+I skipped over the other two, my gaze finding the last one. 
 
-His hair had been savagely cut. I started forwards, trembling, whispering, my brother’s name choking my throat. 
+Closed eyes, lips pressed into a peaceful smile. 
+
+His hair had been savagely cut, and it looked so *wrong*.. 
+
+Jem would never let his hair get so messy. 
+
+I started forwards, trembling, whispering, my brother’s name. 
 
 The worst part is, I don't remember any blood.
 
