@@ -1,6 +1,6 @@
 [There's](https://www.reddit.com/r/nosleep/comments/1hvw5z3/im_performing_an_autopsy_on_a_pregnant_woman_and/) just something about the darkness, that deepens the horror of seeing a fresh print of a child's hand on your window. During the day, it is disturbing. During the night, it makes your stomach turn.
 
-Especially when you live alone. Especially after having done an autopsy on a pregnant woman whose baby was never found. Especially when the print is on the *inside* of the glass. 
+Especially when you live alone. Especially after having done an autopsy on a pregnant woman whose baby was never found. Especially when the print is on the *inside* of the glass.
 
 I'd seen the print that morning, yet refused to acknowledge it until late at night. I figured I was just tired, or disturbed by the previous events, and my mind was playing tricks on me. However, after getting out of the shower and seeing the fogged up mirror, I gently pressed my hand on it and stared at the print, then compared it to the one in my bedroom.
 
@@ -8,11 +8,11 @@ It was a child's hand. Could it be related to the baby I couldn't find? I know, 
 
 One thing was certain. I was not sleeping that night.
 
-I remembered the picture I'd taken of the symbols carved on her ribs, and pulled my phone out. I opened the photo, and there they were. The bone displayed a continuous line of writing, some letters repeating, symbols so intricate, they resembled hieroglyphs. The details were so tiny that it seemed impossible for anyone to carve them there - it looked like the bone had eroded itself to form them. 
+I remembered the picture I'd taken of the symbols carved on her ribs, and pulled my phone out. I opened the photo, and there they were. The bone displayed a continuous line of writing, some letters repeating, symbols so intricate, they resembled hieroglyphs. The details were so tiny that it seemed impossible for anyone to carve them there - it looked like the bone had eroded itself to form them.
 
 I debated using Google reverse image search to match the symbols, since I couldn't identify their language or purpose. However, a more rational approach made me realize that I can't just upload a picture with the insides of a woman onto Google's servers. I decided to trace them on paper and reverse image search *that* picture.
 
-I sat at my kitchen table and tensed up as I copied, as accurately as I could, the strange writing. I had a sense it had something to do with some cult or ritual, but I still wanted to know what I was dealing with. 
+I sat at my kitchen table and tensed up as I copied, as accurately as I could, the strange writing. I had a sense it had something to do with some cult or ritual, but I still wanted to know what I was dealing with.
 
 The first symbol resembled an open hand, missing it's ring finger. I did my best to draw it, then moved to some sort of swirls around a triangle. By then, I'd only done 2 out of the dozens of symbols, and my hand felt numb. My back was starting to hurt from crouching at the table. I was compelled to finish, so that I could just move on and break the awful silence that had found its rest in my apartment. From my position, I could still see the child's hand print on my window. That had placed an unmovable knot in my stomach.
 
@@ -20,9 +20,9 @@ The third symbol had a... tongue, I think. I wasn't sure. My shoulders were tens
 
 You like to think you know yourself. You believe you'd react a certain way in a situation, but unless you actually go through it, you can never truly know. There are three types of responses to this absolutely ghastly, disgusting appearance. Fight, flight or freeze.
 
-Apparently, I am the type of person who freezes. 
+Apparently, I am the type of person who freezes.
 
-I looked up and made eye contact with her. Hey eyes were similar to one of those paintings that claims to trap one's soul inside, and her face was unbelievably human and, yet, missing something. She didn't smile, cry, or yell. She just stared at me, then lifted a hand with absolutely no lines or skin folds, a completely smooth hand, and placed one of her completely smooth fingers on the paper. On the symbols.
+I looked up and made eye contact with her. Her eyes were similar to one of those paintings that claims to trap one's soul inside, and her face was unbelievably human and, yet, missing something. She didn't smile, cry, or yell. She just stared at me, then lifted a hand with absolutely no lines or skin folds, a completely smooth hand, and placed one of her completely smooth fingers on the paper. On the symbols.
 
 I think she wanted me to keep writing. By that point, my heart was pounding in my chest, and I felt incredibly light headed. The room began to tremble, then blur, and I think I passed out.
 
@@ -30,9 +30,9 @@ I woke up, and I was alone. I think. I could see, in the hallway, right where th
 
 I looked back down at the symbols, and decided I would stop searching for this thing alone. My front door was at the end of the hallway, and something tells me that if I'd passed that thing, I would not be alive today.
 
-I did the only logical thing and jumped out the window, then got into my car and called a friend. 
+I did the only logical thing and jumped out the window, then got into my car and called a friend.
 
-As I was waiting for him to pick up, the woman appeared in my window, and tilted her head. I was shaking so hard, I could barely hold my phone. Then, she disappeared into my home. 
+As I was waiting for him to pick up, the woman appeared in my window, and tilted her head. I was shaking so hard, I could barely hold my phone. Then, she disappeared into my home.
 
 It was her. The woman I'd done the autopsy on. The pregnant woman. She was in my house.
 
@@ -54,9 +54,9 @@ I looked up, to see the woman standing in my doorway. Fuck. Fuck, fuck, fuck-
 
 I started the engine, and looked up to see the woman standing closer to my car. Her hospital gown was drenched in blood, or mud, or both. She bared all her teeth to me in an exaggeration of a smile, and my hand slipped from the steering wheel from the sweat. *Work, work, work, oh my God... God gracious...*
 
-I yelled all the prayers I knew out loud as I was pulling onto the main street and driving away. I didn't care that the front door to my house had remained practically open. 
+I yelled all the prayers I knew out loud as I was pulling onto the main street and driving away. I didn't care that the front door to my house had remained practically open.
 
-I'd forgotten I was still on the phone with Tom. 
+I'd forgotten I was still on the phone with Tom.
 
 "Dude, stop yelling! Are you... praying? What's going on, are you alone?"
 
@@ -114,7 +114,7 @@ We unfortunately got jumpscared by some obscure forums, and were beginning to lo
 
 We began reading through his logs.
 
-*For privacy reasons call me Keith. Yeah, I mean the most batshit insane rituals I've seen, and believe me, I've seen a LOT:)))) are tied to the Moewe Otherhood. That's their english name, but I think their traditional name is Ma'hajrka Reha, or worshippers of the dead mother. They originated from some very avid idolizers of Virgin Mary and developed the ideology that the Antichrist or whatever was gonna be born after the death of the mother. He had to be born in death. From death. It's like, a whole process, spanning over years.* 
+*For privacy reasons call me Keith. Yeah, I mean the most batshit insane rituals I've seen, and believe me, I've seen a LOT:)))) are tied to the Moewe Otherhood. That's their english name, but I think their traditional name is Ma'hajrka Reha, or worshippers of the dead mother. They originated from some very avid idolizers of Virgin Mary and developed the ideology that the Antichrist or whatever was gonna be born after the death of the mother. He had to be born in death. From death. It's like, a whole process, spanning over years.*
 
 Some other user had asked ***so, like, every woman part of the cult wants to birth the antichrist???***
 
@@ -126,23 +126,23 @@ Some other user had asked ***so, like, every woman part of the cult wants to bir
 
 ***that scared the shit out of me lmao. im tempted to write some symbols & check whether this is true or bullshit***
 
-*Don't write anything, don't read anything out loud, don't do any of that! They're clingy as fuuuck, my aunt could not get RID of them.* 
+*Don't write anything, don't read anything out loud, don't do any of that! They're clingy as fuuuck, my aunt could not get RID of them.*
 
 ***what if i already did?***
 
-*Just wait it out. It'll pass. They can't hurt you unless you continue to acknowledge them. If they're after you, just give them what they want.* 
+*Just wait it out. It'll pass. They can't hurt you unless you continue to acknowledge them. If they're after you, just give them what they want.*
 
 I stared at the text, dated over seven years ago.
 
-*They can't hurt you unless you continue to acknowledge them.* 
+*They can't hurt you unless you continue to acknowledge them.*
 
-*They can't hurt you unless you continue to acknowledge them.* 
+*They can't hurt you unless you continue to acknowledge them.*
 
-*They can't hurt you unless you continue to acknowledge them.* 
+*They can't hurt you unless you continue to acknowledge them.*
 
 How much would it count as continued acknowledgement? Did I really have to live my life in danger from now on, petrified to close my eyes? Had I done too much?
 
-Was it too much attention? The autopsy, the pictures, writing the symbols down, searching the web... 
+Was it too much attention? The autopsy, the pictures, writing the symbols down, searching the web...
 
 I spent the night at Tom's. I had this semi-dead ex-pregnant woman on my tracks, and something told me she wasn't the only one.
 
