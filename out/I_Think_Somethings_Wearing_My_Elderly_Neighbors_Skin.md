@@ -2,7 +2,7 @@ Jack’s been my neighbor for ten years. Vietnam broke him. Isolation finished t
 
 I know what stress looks like. I’ve seen people unravel. I’ve seen dementia hollow out their eyes until nothing’s left but blinking.
 
-But whatever’s inside Jack now—it’s not forgetting.
+But whatever’s inside Jack now, it’s not forgetting.
 It’s pretending. Pretending to be Jack.
 
 And it’s doing a damn bad job of it.
