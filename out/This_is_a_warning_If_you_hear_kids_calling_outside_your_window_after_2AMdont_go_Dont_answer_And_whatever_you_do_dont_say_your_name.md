@@ -24,7 +24,7 @@ Our town had lots of these stupid tales. The older kids always used to try and s
 
 “If you hear kids playing outside your house after 2AM—don’t go. Don’t answer. Don’t say your name. Or you’ll join them.”
 
-We were out in the yard late one night riding bikes.  Mom called for us to come inside jokingly  warning us that the night kids would get us. Afterwards I explained the tale from our neighborhood to her. “If you hear the kids, don’t go outside.”
+We were out in the yard late one night riding bikes.  Mom called for us to come inside jokingly warning us that the night kids would get us. Afterwards I explained the tale from our neighborhood to her. “If you hear the kids, don’t go outside.”
 
 She laughed. “What kids?”
 
@@ -97,4 +97,3 @@ Then Emily’s voice.
 Right outside my window.
 
 She said my name.
-
