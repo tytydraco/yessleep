@@ -1,4 +1,4 @@
-[Part 1.](https://www.reddit.com/r/nosleep/comments/1jt9s73/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 1.](https://www.reddit.com/r/nosleep/comments/1jt9s73/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 3](https://www.reddit.com/r/nosleep/comments/1jwffxk/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 The drive to Denny's gave me time to think, maybe too much time. Every scenario my mind conjured was worse than the last. Drug smuggling. Organ harvesting. Human trafficking. None of them quite fit what I suspected I saw, or at least thought I saw. Based on the hints and unnerving glimpses I really did not know anything for sure about what was really going on at PT. Shipping, yet anything seemed plausible.
 
@@ -53,8 +53,6 @@ Her eyes narrowed and she responded,
 “Because you need to know, that you can’t just quit now. You are in this, whether you like it or not. If you want to not disappear too, then just keep your head down, keep quiet and do not rock the boat, the less you know the less danger you are in. I have to go, you should get some sleep and remember what I told you. I am off tomorrow, try and keep safe while I’m gone, and take care.”
 
 She threw some money on the table and walked out without another word and I was left stunned and speechless. It sounded like I was stuck and I still had no idea what I had gotten myself into?
-
-
 
 My anxiety was palpable and I hardly got any sleep when I returned home. If what Jean said was true, then the place I had just gotten a job at, was hiding a dark secret and I could not uncover it or leave and run away. I was forced for the time being, to continue working for the bizarre company. Continue shifting those mysterious boxes without ever knowing what horrors they might contain.
 
@@ -146,7 +144,7 @@ Just as I finished securing the last container, the lights in cold storage flick
 
 Back on the main floor, I discovered that two more trucks had arrived while I'd been occupied in the cold storage area. My heart sank at the sight of the endless freight waiting to be processed. Without the forklift, I'd have to move everything by hand. Matt was nowhere to be found, likely still dealing with that mysterious red-tagged container.
 
-I grabbed another dolly and set to work, my muscles already protesting from the strain of moving the first batch of containers. These new shipments weren't the black boxes but were still unnervingly heavy,crates of "textile equipment" according to their manifests, though they weighed far more than any sewing machine I'd ever encountered. 
+I grabbed another dolly and set to work, my muscles already protesting from the strain of moving the first batch of containers. These new shipments weren't the black boxes but were still unnervingly heavy,crates of "textile equipment" according to their manifests, though they weighed far more than any sewing machine I'd ever encountered.
 
 I tried to maintain a rhythm as I wheeled crate after crate to their designated areas. The warehouse seemed to stretch endlessly before me, distances expanding impossibly between loading dock and staging areas. My shirt clung to my back with sweat despite the building's chill.
 
@@ -166,6 +164,6 @@ I was about to offer some reassurance when the air was pierced by an intensifyin
 
 I turned away, closing my eyes, and tried to steady my thoughts as I waited. Eventually, someone announced we had just one minute before maintenance time ended. We lined up to return to our stations, and I caught sight of the man who had asked about his co-worker, shuffling despondently behind me. His face was a mask of hopelessness and despair. We all had a sense that something terrible had happened to his friend, but no one knew what and no one dared to voice it.
 
-I returned to my station. So far behind in my remaining work that I felt hopeless. I toiled on mechanically, my mind a tumult of uncertainty and dread. My shift came and went, stretching nearly to twelve hours, finally ending after 9:00 a.m. Despite the exhaustion, I couldn't shake the feeling of disbelief over my circumstances. 
+I returned to my station. So far behind in my remaining work that I felt hopeless. I toiled on mechanically, my mind a tumult of uncertainty and dread. My shift came and went, stretching nearly to twelve hours, finally ending after 9:00 a.m. Despite the exhaustion, I couldn't shake the feeling of disbelief over my circumstances.
 
 I staggered back to my car and drove home.  My second day was over and I found myself wishing I could just ignore the reality of my situation. I went to sleep and tried to forget it all for the small portion of the day I had left, before I had to go back for my third day.
