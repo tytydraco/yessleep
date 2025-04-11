@@ -150,7 +150,7 @@ I had to take a moment to process this. I put the binoculars down, the Mario Kar
 
 I don’t think I’ve had a truly scary moment in my life. There was one time when I stared down a cliff on a hike with my dad and felt really dizzy staring down at the water crashing onto the rocks below. This was similar to that sensation. I felt the dizziness as my skin started to sweat. I tried to prepare myself for the sight that would greet me as I looked out the window. It was just going to be the neighbors. They were just people. They weren’t anything close to a steep cliff.
 
-It was worse. When I looked through the window, I didn’t need the binoculars to see how the Kinseys’ were smiling. Their mouths were clear enough as they stood behind their couch. While it was difficult to make out and, I think this might be a figment of my scared brain, I remember Mrs. Kinseys’ one blue eye glowing. 
+It was worse. When I looked through the window, I didn’t need the binoculars to see how the Kinseys’ were smiling. Their mouths were clear enough as they stood behind their couch. While it was difficult to make out and, I think this might be a figment of my scared brain, I remember Mrs. Kinseys’ one blue eye glowing.
 
 I didn’t have long to look at it as the Kinseys’ suddenly laid their heads back on their necks. The motion was so quick that I would’ve thought they’d snapped them if they didn’t keep standing. Logan was back at the window with me as the Kinseys’ raised their arms. The hands loose on the wrists as if there was no muscle in them. They started to flail them back and forth. The motions distorted in the rain.
 
@@ -195,3 +195,5 @@ Dad already left for the woods with his buddies, Colleen’s husband among them.
 I wasn’t too comfortable with my mom’s explanation. I still think about Colleen’s face that I saw through the binoculars. Her smile so uncomfortable to look at. My mom said she seems fine but something must have happened. Something must be happening.
 
 In the meantime, I’ve been making sure to pour some salt around the house. I even made a cross out of pieces of wood that I found in the firewood pile my dad keeps next to the house. I’m still waiting to hear back from Logan. He’s been slow to answer my text. I think I’ll have to wait to talk with him at school.
+
+New post: [https://www.reddit.com/r/nosleep/comments/1jwvn53/strings\_part\_iii/](https://www.reddit.com/r/nosleep/comments/1jwvn53/strings_part_iii/)
