@@ -95,3 +95,5 @@ Priscilla and I turn to him.
 In perfect unison, we answer:
 
 **“Their brains.”**
+
+[Part 3](https://www.reddit.com/r/nosleep/s/iUpwpenziB)
