@@ -72,9 +72,9 @@ I couldn't fall back asleep, just staring at the ceiling in complete silence. I 
 
 He came back up the steps, and stopped outside the bedroom door. The doorknob rattled and he tried to open it. He couldn't get it open with the chair and knocked on the door.
 
-"Let me sleep in the bed." He said through the door.
+"Let me sleep in the bed, Mickey." He said through the door.
 
-"No, Mickey. Go sleep on the couch. We can talk about this in the morning." I told him, not playing this game with him tonight.
+"No, Kyle. Go sleep on the couch. We can talk about this in the morning." I told him, not playing this game with him tonight.
 
 He knocked louder. "Let me sleep in the bed." The intonation was the exact same.
 

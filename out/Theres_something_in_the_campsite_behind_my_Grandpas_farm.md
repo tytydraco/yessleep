@@ -1,0 +1,14 @@
+For context, my Grandpa, a caring, Santa Claus like figure in the small Midwestern town he lived in, and left his prized farmhouse to me in his will, despite my protests. I’m a city boy, so it surprised everyone, and the air of the funeral was electric with unease and glares at me.
+
+After he passed, I (26M) moved into the farmhouse until we could get the will changed and the house in my brother’s (24M) name.
+
+If I remember correctly, this whole thing took place on a fall night. Me and my brother’s family were out near our trailers in the campsite behind the farmhouse. We were all sitting in front of the fire, making s’mores and telling jokes and stories.
+
+After what must have been hours, we all decided to head inside our trailers for the night, and bid our “good nights,” to each other. After an hour or so, I felt nature calling, and crawled out of bed to get out of my trailer. See, my trailer was one of those small trailers, the ones that sit on top of your truck, so there was no bathroom, and only one way in or out. Anyways, I was two steps out of bed, when I saw… something. It was a large, dark shape, almost human, but the proportions were wrong. I stifled a gasp as I watched it sit, hunkered down over some small object.
+
+As my eyes slowly adjusted to the dark, I saw more and more defining features on the thing. Its head was animalistic, almost like someone wanted to draw a farm animal, but got everything wrong about it, and perched its head on the body of a frail, diseased man. Its arms were too long, and its legs looked like they had been shattered multiple times.
+
+The creature continued to hunch over the small object, seemingly infatuated with the object. I glanced down, and saw the object. It was a small, childlike bone. I stifled another gasp and slowly crept back into bed. The goat-human creature must’ve seen or heard me, because it quickly jerked itself up, and slowly stumbled towards the bed. Its head brushed against the ceiling of the trailer, and its breath was shallow, raspy and watery, like its lungs were full of liquid. I shut my eyes as it approached the bed, and after what felt like hours, I heard some shuffling and the door to the trailer opening and closing. After the creature left, I quickly shot up and looked out of the window. I saw the shadow of the creature walking around, before quickly slumping down and using its stubby, clubbed fingers to begin knuckle-walking away.
+
+The next morning, I found the small bone missing, and have never seen it since. After a while, we all drove away, and now I write this back at home, and the will was changed to my brother's name, and he got the farmhouse. I never went back there again, never wanting to see that thing at the campground. My family says I’m just a city boy, and that I couldn’t handle nature. I like to play along, making up excuses, but I’ll never tell them about what had actually happened.
+
