@@ -206,7 +206,7 @@ It recognized the number—it was Richele. “You’re right,” she said breath
 
 “What?” I asked, my voice hoarse.
 
-“About the alert. My husband… he has some friends who work with the cell phones and stuff… and he…” She took a deep breath, trying to steady her voice. “They traced the signal. It’s not coming from the government or the town hall or whatever.”
+“About the alert. My husband… he has some friends who work with cell phones and stuff… and he…” She took a deep breath, trying to steady her voice. “They traced the signal. It’s not coming from the government or the town hall or whatever.”
 
 I chewed my lip, held my breath.
 
