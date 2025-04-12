@@ -169,3 +169,5 @@ EMERGENCY ALERT
 ALL CLEAR.
 
 PLEASE RETURN HOME IMMEDIATELY.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1jx7ue8/emergency_alert_do_not_enter_your_basement_stay/)
