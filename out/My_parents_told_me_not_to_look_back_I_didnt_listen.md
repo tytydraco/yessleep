@@ -2,9 +2,9 @@
 
 “Come on, of course it is!” I replied, electrified on the idea I had suggested. 
 
-"But didn’t your parents tell you to not look back? There must surely be a reason for that” Linette joined in. “Maybe, there are aliens?”
+"But didn’t your parents tell you to not look back? They must have a reason for that” Linette joined in. “Maybe, there are aliens?”
 
-“Oh please, aliens? Seriously? It’s their fault for not telling me the reason. I have to find it out myself. Plus, I don't believe those stupid conspiracy theories about aliens. I have lived in that house for years and I am still well and alive right now,” I replied with a jubilant tone. "Trust me, it's gonna be fun! Plus, both of you can step out of your comfort zone.”
+“Oh please, aliens? Seriously? It’s their fault for not telling me the reason. I have to find it out myself. Plus, I don't believe those stupid conspiracy theories about aliens. I have lived in that house for years and I am still well and alive right now,” I replied with a jubilant tone. "Trust me, it's gonna be fun! Plus, both of you can step out of your comfort zones."
 
 That house I have just described was where I lived before moving into the city area. When I lived there, I often got called names such as ‘The Other Tarzan’ or ‘The Girl Who Lived In The Middle Of Nowhere’. That's because my house was surrounded by tons of trees, just like the Amazon Rainforest. It was as if I lived in a forest, in the middle of nowhere. The atmosphere of this wooden house was perfect. Everyday, the birds’ melodious singing, along with the bright, golden sunshine from the big fireball would shine onto my face, waking me up. It gets better when it rains, as the smell from the fresh wood and nature really awakes me.
 
@@ -20,7 +20,7 @@ For the rest of the final school week, I gathered 3 more friends: Chris, Joel an
 
 Everyone nodded, except for the two girls. “Wait! Remember Evelyn said something about her parents’ warning? I’m sure there’s a reason for that! I don’t think it’s a great idea to stay overnight…” Jane complained.
 
-“Oh please, I am going back there to find out what the issue is. If you are scared, you can ‘drop out’ of here.” Chris complained.
+“Oh please, I am going back there to find out what the issue is. If you are scared, you can ‘drop out’ of here.” I complained.
 
 All eyes were on the two girls. 
 
@@ -30,9 +30,7 @@ All eyes were on the two girls.
 
 After the long dreaded school week, the long awaited day has finally arrived.
 
-“Okay, so here’s the plan. The forest is 30 minutes to an hour away. We are gonna take a bus to a bus stop nearest to the forest, which is about 10 stops away. After that, we would need to walk into the woods. It might take awhile.” I said
-
-“Yep..and also, the bus only comes once every hour, so we definitely cannot miss the first bus.”
+“Okay, so here’s the plan. The forest is 30 minutes to an hour away. We are gonna take a bus to a bus stop nearest to the forest, which is about 10 stops away. After that, we would need to walk into the woods. It might take awhile.” I said. "Yep..and also, the bus only comes once every hour, so we definitely cannot miss the first bus.”
 
 At 8am, we gathered at a bus stop near the café, where we boarded bus 45. 
 
@@ -54,7 +52,7 @@ Sunlight shone through the small gaps from half-eaten leaves left by hungry cate
 
 “I love this atmosphere! Better than urban area!,” Jane smiled. All of us nodded with excitement. “This journey is definitely worthed it!”
 
-As we ascended deeper into the woods, things started to take a turn. Mammoth sized trees surrounded us, along with humongous brown, dried leaves that covered most sources of sunlight. It was also shaped in a way where there were crooked tree branches sticking out, which looks absolutely terrifying. The surface felt damper, and it was getting incredibly difficult to walk normally. Soon, the whole atmosphere turned pin-drop silent. We stopped seeing and hearing nature. It was as if we were gradually descending into a deep, dark abyss. 
+As we descended deeper into the woods, things started to take a turn. Mammoth sized trees surrounded us, along with humongous brown, dried leaves that covered most sources of sunlight. It was also shaped in a way where there were crooked tree branches sticking out, which looks absolutely terrifying. The surface felt damper, and it was getting incredibly difficult to walk normally. Soon, the whole atmosphere turned pin-drop silent. We stopped seeing and hearing nature. It was as if we were gradually descending into a deep, dark abyss. 
 
 “This is straight out of a horror movie,” Chris commented, while taking his torchlight out from his bag. 
 
@@ -66,7 +64,7 @@ As he switched on his high-power, gigantic torchlight, the rays of light did not
 
 “Hey uhm…Evelyn, are you sure you are leading us to the correct path?” Geselle asked, concerned.
 
-“Yeah, I have walked through this path for decades. It’s usually a little dark with nature, perhaps its climate change."
+“Yeah, I have walked through this path for decades. It’s usually a little dark with nature, perhaps its climate change." I replied.
 
  As we walked, the surface became muddier. The only way we could walk was to lift our feets up one by one. The only thing leading us was Chris’s torchlight and my memory.
 
@@ -243,11 +241,11 @@ Chris’s body was gone, only his shoes remained, and a trail of dark, sticky fo
 
 I couldn’t breathe. Joel stepped forward. “He went down there.”
 
-“No,” Jane whispered. “No, we’re not following. We’re not that stupid.”But we were, because something in us knew, we had to go down, not because we wanted to, but because this house wasn’t letting us leave until we did. I led the way, Chris’ torchlight flickering as we descended step by step into darkness.
+“No,” Jane whispered. “No, we’re not following. We’re not that stupid.”But we were, because something in us knew that we had to go down, not because we wanted to, but because this house wasn’t letting us leave until we did. I led the way, holding Chris’ flickering torchlight as we descended step by step into darkness.
 
 The air was damp. Rotten. The walls were pulsing, like they were made of flesh and not wood. Symbols covered every surface, ancient, twisting…Alive.
 
-At the center of the room…Chris stood, but he wasn’t alone.
+At the center of the room…Chris stood, but he wasn't alone.
 
 Around him were the figures. Not shadows anymore. They were real. Tall, thin, and grotesquely human. Their faces were smooth, featureless, except for one thing: Eyes. Hundreds of eyes, embedded all over their heads, staring, unblinking. 
 
