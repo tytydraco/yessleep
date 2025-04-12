@@ -1,4 +1,4 @@
-My shop is in the down below. On the periphery of the shops you go to. No one finds my shop by accident. There has to be… intention.
+My shop is in the down below. On the periphery of all the other shops you go to. No one finds my shop by accident. There has to be… intention.
 
 Conscious, unconscious, it doesn’t matter what type of attention. What matters is that you have something you need to get rid of, and something I want.
 
@@ -204,7 +204,7 @@ I understood then how Zeus felt trapping the titan Prometheus.
 
 In the end I stopped it for good. But ultimately it had won, and it knew it. It had cracked my facade. It had taken a piece of me with it into the black pocket dimension of the gun safe.
 
-There’s one I don’t like to talk about. I guess I just needed to get it off my chest. A choice like that cuts deep, even for someone who’s lived as many centuries as I have.
+That’s one I don’t like to talk about. But I guess I just needed to get it off my chest. A choice like that cuts deep, even for someone who’s lived as many centuries as I have. 
 
 But there are other things that don’t belong in my shop. Ones I don’t leave out on display. That I don’t stow away, dip in acid, or donate to a thrift store. Ones that don’t belong anywhere in our world anymore. That don’t deserve to be untethered either.
 
@@ -260,7 +260,7 @@ As I held the child to my chest, the tears turned to quiet sobs. Most young spir
 
 And between you and me, these are the moments I value the most. I adore these brief moments where I don’t have to prattle on about contracts or threaten or bind wicked spirits.
 
-As I held him closer to my chest, the impossibly small weight of his odd blue form, I noticed the hue of his skin turning lighter. Softening into a warmer shade of cyan, like the shallows of a warm ocean beach.
+As I held him closer to my chest, the impossibly small weight of his odd blue form, I noticed the deep bluish black hue of his skin had begun shifting to a lighter tone. Softening into a warmer shade of cyan, like the shallows of a warm ocean beach.
 
 I moved into my back room and slipped open the door of a rickety old dumbwaiter. I slid the infant inside. He was smiling now. Arms extended further. Less fear in his eyes.
 
