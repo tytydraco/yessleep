@@ -249,7 +249,7 @@ It took about five minutes to comfortably make it into the chamber without makin
 
 I looked around into the small room we’d now found ourselves. It seemed to be only semi-artificial, with numerous stalactites hanging from the ceiling on one side of the area, wooden support columns propping up the other side. The small entrance we came through seemed to be one of many, as other passageways branched in and out of the room. The Yarrows, who I now numbered to be eight, huddled together in the middle of the room, unmoving and unblinking. In our silence, we must have been undetectable to them- they certainly wouldn’t be able to smell us, as the rancid stench of rot overpowered anything else in the room. They wore tattered rags, and a couple wore nothing at all. Their breathing was ragged and laborious, every inhalation a raspy gasp. 
 
-We had just begun to slowly turn to exit when I heard it begin. It started as almost a groan, a low guttural noise coming from one of the three women in the group. I turned to look just in time to see her sitting under straighter, the noise continuing and purifying in her voice. Another joined in with her, his scratchy voice almost harmonious with her dim howl.
+We had just begun to slowly turn to exit when I heard it begin. It started as almost a groan, a low guttural noise coming from one of the three women in the group. I turned to look just in time to see her sitting up straighter, the noise continuing and purifying in her voice. Another joined in with her, his scratchy voice almost harmonious with her dim howl.
 
 Within a few seconds, every Yarrow present had joined in, the sound reverberating and echoing down myriad tunnels extending outward. I realized quickly that they were indeed harmonizing, and had begun to hum a tune, one that I recognized but couldn’t quite place my finger on.
 
@@ -293,7 +293,7 @@ The larger hallway ended up ahead, only a short distance from the huddled group 
 
 Shane approached the crack in the wall flashlight in hand, and swiftly moved to enter it when his feet knocked against something on the ground. He turned the light downwards, and we both let out a small gasp.
 
-There, so withered and grey that it had nearly blended in with the stone, was a withered corpse in shredded pastor’s vestments, huddled against the base of the wall. Its arms were painfully thin and bony, wrapped around its shriveled, dry head as it held its knees close to its chest. 
+There, so withered and grey that it had nearly blended in with the stone, was a dry corpse in shredded pastor’s vestments, huddled against the base of the wall. Its arms were painfully thin and bony, wrapped around its shriveled, dry head as it held its knees close to its chest. 
 
 Shane was about to push it out of the way to proceed when Reverend Yarrow’s arm grabbed his outstretched wrist.
 
