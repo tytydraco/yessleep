@@ -4,7 +4,7 @@ We got to my mom’s house around midnight. A squat, brick ranch on a residentia
 
 Mom was sitting at the kitchen table, waiting for us. Her fingers rapped against the mug in her hand. The entire house smelled like that familiar mix of coffee and dust.
 
-I started for the stairs—and then got a better idea.
+I started for the guest bedroom—and then got a better idea.
 
 The ranch had a lower level that was half underground. It had been finished into an office, but there was a couch down there. I could have Grace sleep on the couch, and we could sleep on the floor…
 
