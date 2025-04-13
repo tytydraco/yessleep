@@ -34,7 +34,7 @@ I clicked my tongue in response. A matronly devil. When you’re a spiteful hag,
 
 “If you have a stabbing exterior in life,” I pointed past him, towards her ridged spines, “you get to have one in death, too.”
 
-He flicked his head groggily. If he saw her, his eyes didn’t show it.
+He turned his head to look behind him groggily. If he saw her, his eyes didn’t show it.
 
 I flicked my fingers in front of his eyes.
 
@@ -84,7 +84,7 @@ Fear dawned on the peeling folds of her face.
 
 She had settled into a frigid crouch. Her spines had begun to sag back down into place.
 
-“Good. You’re going to be relocated then. Placed on the shelf at a local thrift store. You’re going to sign a contract with me, bound in your blood. You’re not going to torment me anymore. All you did was torment in life, even in death. That ends now, here. The next person who picks you up will find that their luck has changed for the better. Maybe their missing car keys turn up on the stairs. Maybe they find an extra twenty in their coat pocket.”
+“Good. You’re going to be relocated then. Placed on the shelf at a local thrift store. You’re going to sign a contract with me, bound in your blood. You’re not going to hurt another living soul. All you did was torment in life, even in death. That ends now, here. The next person who picks you up will find that their luck has changed for the better. Maybe their missing car keys turn up on the stairs. Maybe they find an extra twenty in their coat pocket.”
 
 I could see the rise of disgust, of inconvenience in her eyes. She delighted in herself. She’d always made things about her. I knew the type well.
 
@@ -142,7 +142,7 @@ As I stared into the crackling black mass, the visions overcame me.  Women with 
 
 I watched deft hands douse the screaming women in kerosene, laughing like it was the funniest thing it’d ever seen. 
 
-Rough, calloused work hands flicked a lighter on and off. Taunting. The four women were stylized in 80’s fashion, at least as far as I could tell beneath all the blood. 
+A rough, calloused thumb flicked the lighter on and off. Taunting. The four women were stylized in 80’s fashion, at least as far as I could tell beneath all the blood. 
 
 It didn’t take long for him to flick the lighter forward. The women were consumed in a storm of fire. 
 
@@ -192,7 +192,7 @@ Oh, how the entity laughed.
 
 Oh, how I died a little inside.
 
-It had attached to his skull somehow. And the whole night it took me to cleave the man’s head apart. For days, as the carrion beetles I purchased ate away at the flesh. As I made the rest of his body disappear. As I cleaned up the blood. That oppressive cloud of static never left my side. Never stopped writhing with glee.
+It had attached to his skull somehow. And the whole night it took me to cleave the man’s head apart. For days, the carrion beetles I purchased ate away at the flesh stuck in all the little crevices of his skull. I made the rest of his body disappear. I cleaned up the sticky pools blood. That oppressive cloud of static never left my side. Never stopped writhing with glee in the corner od my sjop. 
 
 It didn’t care that it would be imprisoned in eternities of agony. Because it was going to make me pay dearly for the opportunity.
 
@@ -203,6 +203,10 @@ That entity was a serial murderer in life. In death, it was somehow worse. A roi
 I understood then how Zeus felt trapping the titan Prometheus.
 
 In the end I stopped it for good. But ultimately it had won, and it knew it. It had cracked my facade. It had taken a piece of me with it into the black pocket dimension of the gun safe.
+
+But having that type of evil out in the world… it’s what causes wars, famine, mass violence. We all like to play around with hypotheticals. I had to make that choice.
+
+One soul, to save thousands. A choice i’d pick every time. 
 
 That’s one I don’t like to talk about. But I guess I just needed to get it off my chest. A choice like that cuts deep, even for someone who’s lived as many centuries as I have. 
 
