@@ -1,0 +1,26 @@
+I never believed in ghosts, or demons, or whatever is supposed to be out there. But living in a corner of the world where everyone knew everyone else, stories get passed around and this is one of them. I will be sharing a lot of what has happened to me and my friends, or someone who knew someone who knew someone who encountered it.  
+  
+This first story happened to me when I was younger. Things were already in place—a semi-urban place that was rapidly urbanizing and industrializing. My childhood home was technically located in the suburbs until the city took over. The gardens slowly disappeared, and concrete jungles took over every space the eye can see. My city is situated in the hills, so there are many zig-zags and streams between hills, and a locality has several hundred houses.  
+  
+This incident happened during the concrete creeping into our green surroundings, I used to have a friend, let’s call him Nick, he and I were close, so close you had to separate us at night or else sleepovers happened. My parents rented an apartment at the top of a 4-storey building, which was cheap because of how far we were from the main road. As it was, during those times, we would play Pokémon on the computer, Gameboys didn’t actually reach our place, even today, Switch was a luxury only rich people could afford. Right after playing Pokémon, my mother asked us to pluck the avocados from the roof. One person had to hook them from the roof, and one person had to be on the ground to collect them. Nick decided he was better at hooking the fruits loose, and I was on ground duty.  
+  
+Nothing went wrong, I already had a couple of avocados in the bamboo basket, and I yelled towards Nick ,”This should be enough. Stop plucking.” He immediately replied with,” Let’s do some more to share it with the neighbors.” And then tried to hook the ones a bit further up the tree, one came loose easily and dropped. “This one’s bigger than your head!” he shouted, trying to pull the fruit loose, his hand slipped and he fell. I remember it so clearly, there was a slight whimper, not even a scream, then a thud. He fell right in front of me. My shock got to me and I couldn’t even talk, more so collect myself and help Nick.  
+  
+But before I could help him or do whatever was needed, call for help, whatever. Nick slowly got up again, with one of his eyes popped up, his mouth deformed a few teeth that broke with his fall, his shoulder crushed, which made his stance uneven. He slowly whispered to me,”Did you see me fall ? I’ll go up again, watch closely this time.” He did not even blink as he spoke those words. Then he ran up the stairs.  
+  
+The place where he fell still had the pool of blood, the broken teeth, and the ground that showed something had fallen there. And then from the roof, he called out to me by my full name, clear and crisp. “ Watch closely.”  
+  
+Then he fell exactly how he fell. This time without a whimper, but the thud sounded the same. I was the one who let out a slight whimper. The body stayed the same for quite some time, not moving a muscle.  
+  
+Then it slowly stood up again. “ Did you see it ? Did you see it?”  
+  
+My mind went black, and I believe I fainted then and there. I woke up at night, not too late, just before dinner. If not mother would’ve searched for us.  
+It was dark just enough for me to make out Nick’s body on the ground. Then the realization hit me, and I ran up the stairs as fast as I could.  
+  
+I was afraid something would pull me by my ankles as I ran up, but I never dared to look back. On the first floor, I saw Nick just going out of my vision, which made me stop in my tracks. But I remember him lying there on the floor. So I kept on running, the lights encouraged me a little. Then I ran to the second floor stairs, the same thing, I saw Nick, his eyes looking at me as he went out of sight around the corner, I tried to convince myself that it was my mind playing tricks on me. I stopped for a second, the world was quiet, and behind me a whisper, calling my full name again, this time, not as a call, but a deliberately slow callout. Which made me run at my full speed again, I didn’t see anything on the third floor to my apartment.  
+  
+Mother was already angry with me, as she was about to scold me for taking too long on the avocados. She noticed how I looked, ragged, dirty, and somewhat half-crying, half-relieved to see her. “Where is Nick?” was the first thing she asked.  
+As I explained everything, she called for my dad, and they went down to the ground floor near the base of the tree. The body was not there anymore, but the blood and the teeth were still there.  
+My parents and some of the families who lived on the building searched with us, in the night, Nick’s family looked at me as if I had done something unforgivable.  
+  
+But after an hour of searching, we found Nick under the old pig sty, covered in leaves. The post-mortem made my story check out, but we don’t talk about Nick anymore; I don’t even talk to his family. [I](https://substack.com/@chawng) still miss him.
