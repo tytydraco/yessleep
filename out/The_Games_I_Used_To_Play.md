@@ -52,3 +52,4 @@ What Adrienne said next will forever be etched into my memory as one of the most
 
 “Then why did I hear two pairs of footsteps?”
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/1jz6xnf/the_games_i_used_to_play_part_2/)
