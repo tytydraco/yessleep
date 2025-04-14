@@ -6,7 +6,7 @@ They didn’t leave me much. A couple of old wingback chairs, some pots and pans
 
 Then I saw the shoebox.
 
-It was at the bottom of the chest, with my name scribbled across the top in childish handwriting.
+It was at the bottom of the chest, with a name scribbled across the top in childish handwriting.
 
 **BENNY.**
 
@@ -90,7 +90,7 @@ I ended the call and sank into my armchair, heart racing.
 
 **Benny.** How did I forget?
 
-Then I heard it—a terrible *crash* upstairs. I ran up the steps and threw open the attic door. It was *freezing*. Middle of July, but I could see my breath.
+Then I heard it—a terrible *crash* upstairs. I ran up the steps and threw open the attic door. It was *freezing*. I could see my own breath.
 
 I walked inside, looking around.
 

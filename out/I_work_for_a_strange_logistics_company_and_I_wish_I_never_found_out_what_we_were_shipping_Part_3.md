@@ -1,4 +1,4 @@
-[Part 2.](https://www.reddit.com/r/nosleep/comments/1jutck0/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1jutck0/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 4.](https://www.reddit.com/r/nosleep/comments/1jyp6hl/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 Predictably I had only gotten a few meager hours of sleep. Even then, my dreams were haunted by the events of the previous shift. They kept replaying in my mind, the strange containers, the horrifying sounds during "maintenance," and most disturbing of all, the missing worker no one would acknowledge.
 
@@ -10,7 +10,7 @@ The parking lot was nearly empty when I arrived, just like before. I recognized 
 
 "Didn't sleep much," I admitted, dropping my voice. "Not after what happened yesterday."
 
-Jean's fingers paused over the screen. 
+Jean's fingers paused over the screen.
 
 "What happened yesterday?"
 
@@ -22,7 +22,7 @@ Jean's expression didn't change, but her shoulders tensed almost imperceptibly. 
 
 "That wasn't an accident," I hissed. "Whatever happens during 'maintenance' killed someone."
 
-Jean slammed her tablet down and fixed me with a cold stare. 
+Jean slammed her tablet down and fixed me with a cold stare.
 
 "Keep your voice down. You want to be next?"
 
@@ -52,7 +52,7 @@ Jean gave me a sidelong glance, seeming to weigh whether answering was worth the
 
 "I'm sorry about your mother," I said quietly.
 
-Jean nodded once, acknowledging my sympathy without inviting further discussion. 
+Jean nodded once, acknowledging my sympathy without inviting further discussion.
 
 "Second truck's due in five minutes. I need to check the manifests."
 
@@ -118,7 +118,7 @@ Matt studied me for a long moment, his weathered face unreadable in the harsh of
 
 "You did better than most would have," he admitted grudgingly. "At least you didn't try to open them."
 
-A chill ran down my spine at his words. Had he somehow known I'd considered it? Matt's jaw shifted into something akin to a smile. 
+A chill ran down my spine at his words. Had he somehow known I'd considered it? Matt's jaw shifted into something akin to a smile.
 
 "Temperature control failure. Happens sometimes during transport." He reached into his desk drawer and pulled out a small metal flask. Taking a deep swig, he offered it to me. "Drink. It'll help with the exposure."
 
@@ -128,17 +128,15 @@ I hesitated, but the burning in my throat from the chemical fumes made the offer
 
 “You did well, take a break and have a breather outside. We still need to sanitize bay B. You can get back to it when you return.”
 
-
-
 I was thankful to get the impromptu break to clear my head from the things I had just witnessed. I stepped outside just as Jean was returning. She nodded briefly at me in passing and moved on before I could try and speak with her. I figured she must have been busy, but I wanted to tell her about what I saw. I went outside and got in my car, trying to decompress.
 
 I closed my eyes and leaned back against the headrest, trying to make sense of what I'd witnessed. The thrashing inside that container, the amber fluid eating through concrete, none of it could be explained by any legitimate shipping operation.
 
-The tap on my window nearly made me jump out of my skin. A woman stood beside my car, her face partially obscured by the hood of a dark jacket. When I didn't immediately respond, she tapped again, harder this time, her knuckles rapping impatiently against the glass. I lowered the window a few inches, caution overriding courtesy. 
+The tap on my window nearly made me jump out of my skin. A woman stood beside my car, her face partially obscured by the hood of a dark jacket. When I didn't immediately respond, she tapped again, harder this time, her knuckles rapping impatiently against the glass. I lowered the window a few inches, caution overriding courtesy.
 
 "Can I help you?"
 
-In one fluid motion, she pulled a gun from her pocket and aimed it directly at my face. 
+In one fluid motion, she pulled a gun from her pocket and aimed it directly at my face.
 
 "Don't scream. Don't move." Her voice was steady despite the slight tremor in her hand. "Get out of the car, you are going to help me get in there and find my brother."
 
@@ -174,7 +172,7 @@ I got back to the door and looked at Lisa and she nodded. I pressed the button o
 
 "Put that down before you get yourself killed." Jean said, her voice flat and emotionless.
 
-Lisa's hand trembled, the gun now wavering between Jean and me. 
+Lisa's hand trembled, the gun now wavering between Jean and me.
 
 "Stay back! I just want to find my brother. Mike Donovan. He worked here and now he's gone."
 
@@ -198,7 +196,7 @@ I followed along in a conflicted daze. Distracted as I was, I barely registered 
 
 We walked along for a while and everything was strangely quiet. We arrived at a side entrance near the storage rooms. We stopped moving and Lisa looked nervous and asked,
 
-"What is this? Why are we stopping?" Jean turned around and flatly stated, 
+"What is this? Why are we stopping?" Jean turned around and flatly stated,
 
 “To say I am sorry about this for you and for Mike.” I was confused and Lisa looked concerned.
 
@@ -210,11 +208,11 @@ Lisa struggled beneath his massive frame, gasping for air as he twisted her arm 
 
 The large man looked up at Jean and then at me and growled out a brief introduction.
 
-"Charles Stanton, security chief. I see the firearm so I presume you were taken by force and have not failed to detain the target yourselves." His voice had a strange air of accusation, like it was our fault for not arresting the woman who had us at gunpoint and making him do his job. 
+"Charles Stanton, security chief. I see the firearm so I presume you were taken by force and have not failed to detain the target yourselves." His voice had a strange air of accusation, like it was our fault for not arresting the woman who had us at gunpoint and making him do his job.
 
 Stanton suddenly yanked Lisa to her feet. His face was a mask of professional detachment, but his eyes... there was something predatory in them that made my blood run cold.
 
-"Civilian trespasser," Jean explained, brushing dust from her uniform. "Armed as you saw. Took us hostage." 
+"Civilian trespasser," Jean explained, brushing dust from her uniform. "Armed as you saw. Took us hostage."
 
 Stanton nodded his head and looked at me.
 
@@ -228,7 +226,7 @@ Something in his tone didn't match his words. It did not feel like it was standa
 
 "I just want to know what happened to my brother!" Lisa shouted, struggling against her restraints. "Please, Mike are you here!"
 
-Stanton's massive hand clamped over her mouth, silencing her instantly. "That's enough," he growled, all pretense of professionalism vanishing. I took a hesitant step forward. 
+Stanton's massive hand clamped over her mouth, silencing her instantly. "That's enough," he growled, all pretense of professionalism vanishing. I took a hesitant step forward.
 
 "Maybe I should stay. I mean, I was involved, so I should probably give a statement or something."
 
