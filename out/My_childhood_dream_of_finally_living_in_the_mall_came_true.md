@@ -28,7 +28,7 @@ I looked outside the glass walls from the outermost part of the mall. I relaxed 
 
 I went back to the book shelves to read again. And after I read I felt sleepy again. And just like before, I slept on the sofa.
 
-The night came. I was looking for a more comfortable thing to sleep on.  I found a pikachu-designed mattress and I unrolled it and layed it on the floor. It was a good thing they let the lights on even during the nights so I can grab anything I want before I sleep.
+The night came. I was looking for a more comfortable thing to sleep on. I found a pikachu-designed mattress and I unrolled it and layed it on the floor. It was a good thing they let the lights on even during the nights so I can grab anything I want before I sleep.
 
 Something bothered me that I wasn't prepared for- mosquitoes. I looked for an insect repellent lotion and squeezed a handful and rubbed some all over my body, even my face. The amount of mosquitoes attacking me was insane I let out a soft rage. The repellent wasn't enough. I looked for a mosquito net and set it up.
 
@@ -106,8 +106,8 @@ When the researchers went on their way they left a folder containing papers abou
 
 I got curious about their papers so I flip through the pages. I saw a page that contains photos and aftermaths of the previous participants:
 
-**David Jackson- 1 week and 3 days. Suffered from paranoia. Can't speak. Shell-shocked face.**
+David Jackson- 1 week and 3 days. Suffered from paranoia. Can't speak. Shell-shocked face.
 
-**Belle Clarisse Martin- Presumably dead after 2 days. Suffered from stomach rupture and possible cause was eating everything she can eat in the mall.**
+Belle Clarisse Martin- Presumably dead after 2 days. Suffered from stomach rupture and possible cause was eating everything she can eat in the mall.
 
-**Gavin Taylor- Presumably dead after 6 days. We forgot to give him the phone. Was found dead with glass shards all over him but the cause of death was poison. Was probably trying to escape by throwing chairs at the glass door but shards got into his eyes and slipped on the floor full of glass shards. He suffered too much pain and eventually grabbed any inedible liquid to kill himself.**
+Gavin Taylor- Presumably dead after 6 days. We forgot to give him the phone. Was found dead with glass shards all over him but the cause of death was poison. Was probably trying to escape by throwing chairs at the glass door but shards got into his eyes and slipped on the floor full of glass shards. He suffered too much pain and eventually grabbed any inedible liquid to kill himself.

@@ -6,39 +6,17 @@
 
 “Oh please, aliens? Seriously? It’s their fault for not telling me the reason. I have to find it out myself. Plus, I don't believe those stupid conspiracy theories about aliens. I have lived in that house for years and I am still well and alive right now,” I replied with a jubilant tone. "Trust me, it's gonna be fun! Plus, both of you can step out of your comfort zones."
 
-That house I have just described was where I lived before moving into the city area. When I lived there, I often got called names such as ‘The Other Tarzan’ or ‘The Girl Who Lived In The Middle Of Nowhere’. That's because my house was surrounded by tons of trees, just like the Amazon Rainforest. It was as if I lived in a forest, in the middle of nowhere. The atmosphere of this wooden house was perfect. Everyday, the birds’ melodious singing, along with the bright, golden sunshine from the big fireball would shine onto my face, waking me up. It gets better when it rains, as the smell from the fresh wood and nature really awakes me.
+That house I have just described was where I lived before moving into the city area. When I lived there, I often got called names such as ‘The Other Tarzan’ or ‘The Girl Who Lived In The Middle Of Nowhere’. That's because my house was surrounded by tons of trees, just like the Amazon Rainforest. It was as if I lived in a forest, in the middle of nowhere. The atmosphere of this wooden house was perfect.
 
 I had to move from this rural house as it was difficult for me to go to school in the city area. However, I was told to never look back at the house when I left. Whenever I asked my parents about it, all they did was avoid this particular question. This always leaves me wondering why there is this peculiar rule. From the moment I left that wooden house, I have had this burning desire and dedication to find out the reason for this rule. I had to find out why. 
 
-“Hey uhm, i know this is an extra thing, but do you mind calling a few more friends to follow us?” Linette asked with pleaful eyes. I agreed, as this was a great idea.
-
 For the rest of the final school week, I gathered 3 more friends: Chris, Joel and Geselle. 
 
-“Oh, why bother asking me? You know how much i like these type of adventures.” Chris chortled when I asked him. For some reason, they were not like the other 2 girls, but were rather exuberant for this trip to come after I explained about my situation. 
-
-“Why don’t we make this a camp? I am sure staying overnight there would be so fun!” Chris suggested.
-
-Everyone nodded, except for the two girls. “Wait! Remember Evelyn said something about her parents’ warning? I’m sure there’s a reason for that! I don’t think it’s a great idea to stay overnight…” Jane complained.
-
-“Oh please, I am going back there to find out what the issue is. If you are scared, you can ‘drop out’ of here.” I complained.
-
-All eyes were on the two girls. 
-
-“Okay fine...But if anything happens…” Before Linette can finish her sentence, Geselle budged in. 
-
-“Don’t jinx anything stupid okay? We will be fine, as long as we stay together.” All of us nodded. 
+“Oh, why bother asking me? You know how much i like these type of adventures.” Chris chortled when I asked him.  
 
 After the long dreaded school week, the long awaited day has finally arrived.
 
-“Okay, so here’s the plan. The forest is 30 minutes to an hour away. We are gonna take a bus to a bus stop nearest to the forest, which is about 10 stops away. After that, we would need to walk into the woods. It might take awhile.” I said. "Yep..and also, the bus only comes once every hour, so we definitely cannot miss the first bus.”
-
-At 8am, we gathered at a bus stop near the café, where we boarded bus 45. 
-
-“The bus is so vacant, its kinda eerie,” Linette commented.
-
-“It’s normal as bus 45 is rarely used. No one really goes to the places this bus goes.” I replied.
-
-After that, most of us took a good nap which felt like an overnight sleep. Sometimes hours can feel like minutes. We tapped out of the bus, where we arrived at an old, deserted bus stop. 
+At 8am, we gathered at a bus stop near the café, where we boarded bus 45. After that, most of us took a good nap which felt like an overnight sleep. Sometimes hours can feel like minutes. We tapped out of the bus, where we arrived at an old, deserted bus stop. 
 
 “Everything here is covered in mould and grass,” Geselle commented.
 
@@ -48,17 +26,15 @@ After that, most of us took a good nap which felt like an overnight sleep. Somet
 
 All of us looked at each other. Taking a deep breath, we took a step into the woods, away from civilisation.
 
-Sunlight shone through the small gaps from half-eaten leaves left by hungry caterpillars. The smell of greenery diffused into the air as we walked in. Birds’ chirping and crickets’ high pitched noises filled the air. Though we couldn’t see any signs of water, we could vividly hear loud splashes from waterfalls and rivers. The forest was full of life. It was really peaceful. Personally, I would rather live here than the city area.
+The forest could be described as "full of life". It was really peaceful, filled with water splashes and crickets' noises. Personally, I would rather live here than the city area.
 
 “I love this atmosphere! Better than urban area!,” Jane smiled. All of us nodded with excitement. “This journey is definitely worthed it!”
 
-As we descended deeper into the woods, things started to take a turn. Mammoth sized trees surrounded us, along with humongous brown, dried leaves that covered most sources of sunlight. It was also shaped in a way where there were crooked tree branches sticking out, which looks absolutely terrifying. The surface felt damper, and it was getting incredibly difficult to walk normally. Soon, the whole atmosphere turned pin-drop silent. We stopped seeing and hearing nature. It was as if we were gradually descending into a deep, dark abyss. 
+As we descended deeper into the woods, things started to take a turn. Mammoth sized trees surrounded us, along with humongous brown, dried leaves that covered most sources of sunlight. The surface felt damper, and it was getting incredibly difficult to walk normally. Soon, the whole atmosphere turned pin-drop silent. We stopped seeing and hearing nature. It was as if we were gradually descending into a deep, dark abyss. 
 
 “This is straight out of a horror movie,” Chris commented, while taking his torchlight out from his bag. 
 
 As he switched on his high-power, gigantic torchlight, the rays of light did not reach anywhere far. The darkness simply ‘reflected’ the light back to us. 
-
-“Oh wow, looks like you have just wasted your money on this high tech, expensive ‘special’ torchlight that doesn’t even work,” Geselle mocked. Chris stared down at Geselle with a grave look, rolling his eyes.
 
 “It’s crazy how dark 9.30am can be,” Joel muttered, after looking at his watch. 
 
@@ -68,7 +44,7 @@ As he switched on his high-power, gigantic torchlight, the rays of light did not
 
  As we walked, the surface became muddier. The only way we could walk was to lift our feets up one by one. The only thing leading us was Chris’s torchlight and my memory.
 
-“Ew, do y’all smell a disgusting odour?” Linette asked, with a disgusted face. All of us looked at one another, with a confused expression. However, the atrocious odor hit us moments later as we walked towards Linette. The smell was simply too horrendous to be described. What I can say is that it gave off an old rotten smell, which is similar to decomposed matter. 
+“Ew, do y’all smell a disgusting odour?” Linette asked, with a disgusted face. The atrocious odor hit us moments later as we walked towards Linette. The smell was simply too horrendous to be described. What I can say is that it gave off an old rotten smell, which is similar to decomposed matter. 
 
 “Why is the ground getting softer and more moist?” Joel questioned.
 
@@ -82,29 +58,25 @@ As he switched on his high-power, gigantic torchlight, the rays of light did not
 
 “Wait, why is there fresh blood?” Chris questioned with wide eyes. 
 
-We looked at one another, eyes widened. “Uhm, maybe the weather affected them…right?” Evelyn said with an unsettling smile.
-
 “I am not going to continue this journey. I don’t wanna die!” Linette screamed. 
 
 “Look, even if you wanna turn back, its impossible. We have come this far into the forest. The 6 of us will always be together. For now, lets get out of this monstrosity.” I assured. 
-
-“Not gonna lie, I am quite invested to find out what happened,” Chris said, dragging the rest to agree. We continued the journey reluctantly without any choice. 
 
 After walking a little longer on the bodies with our lives depended on the rays coming from the torch, we reached a proper, walkable surface again. The strong smell slowly diffused away from our noses, fading away into the darkness. 
 
 “It’s gone,” Everyone heaved a sigh of relief. 
 
-Then, something struck our eyes. Somehow, we could see a small building in the darkness. As we got closer to it, it looked like a small wooden cabin, surrounded by tall, crooked trees. The air around us got thinner as well.
+Then, something struck our eyes. Somehow, we could see a small building in the darkness. As we got closer to it, it looked like a small wooden cabin, surrounded by tall, crooked trees. 
 
 “Is that..is that your house?” Jane stuttered.
 
-I could not believe my eyes. There used to be sunshine, greenery, life here. The place had turned completely upside down, becoming unrecognisable. I stood there, stunned at what I had seen. 
+I could not believe my eyes. There used to be sunshine, greenery, life here. The place had turned completely upside down, becoming unrecognisable. 
 
 “Is this why your parents warned you to not come back?” Joel asked. 
 
-“I don’t know. You know what? Let's go inside the house to take a look.” I replied, with tears forming in my eyes. The place that was once filled with my memories, had turned into some kind of horror movie.
+“I don’t know. You know what? Let's go inside the house to take a look.” I replied, with tears forming in my eyes. 
 
-The wooden floorboards creaked under our weight as we stepped into the house. I could feel my heartbeat in my ears. The air was thick, too  thick to breathe properly, and it smelled like mold mixed with something…older. Like the scent of time standing still. Everything was exactly how I left it; The faded brown couch, the cracked mirror by the hallway, my old shoes at the doorway, still muddied from my last time here.
+The wooden floorboards creaked under our weight as we stepped into the house. I could feel my heartbeat in my ears. The air was thick, too thick to breathe properly, and it smelled like mold mixed with something…older. Like the scent of time standing still. Everything was exactly how I left it; The faded brown couch, the cracked mirror by the hallway, my old shoes at the doorway, still muddied from my last time here.
 
 “This place gives me the creeps,” Joel whispered.
 
