@@ -4,7 +4,7 @@
 
 "But didn’t your parents tell you to not look back? They must have a reason for that” Linette joined in. “Maybe, there are aliens?”
 
-“Oh please, aliens? Seriously? It’s their fault for not telling me the reason. I have to find it out myself. Plus, I don't believe those stupid conspiracy theories about aliens. I have lived in that house for years and I am still well and alive right now,” I replied with a jubilant tone. "Trust me, it's gonna be fun! Plus, both of you can step out of your comfort zones."
+“Oh please, aliens? Seriously? It’s their fault for not telling me the reason. I have to find it out myself..and i have lived in that house for years and I am still well and alive right now,” I replied with a jubilant tone. "Trust me, it's gonna be fun! Plus, both of you can step out of your comfort zones."
 
 That house I have just described was where I lived before moving into the city area. When I lived there, I often got called names such as ‘The Other Tarzan’ or ‘The Girl Who Lived In The Middle Of Nowhere’. That's because my house was surrounded by tons of trees, just like the Amazon Rainforest. It was as if I lived in a forest, in the middle of nowhere. The atmosphere of this wooden house was perfect.
 
@@ -56,15 +56,11 @@ As he switched on his high-power, gigantic torchlight, the rays of light did not
  
 “Yes! I just don’t know what happened! It was never like this, dark and gloomy; it was never filled with dead matters and dried horrifying trees,” I shouted back. I felt devastated. The forest was never like this. What had happened? Climate change couldn’t be the only factor. There must've been something. Something else.
 
-“Wait, why is there fresh blood?” Chris questioned with wide eyes. 
-
 “I am not going to continue this journey. I don’t wanna die!” Linette screamed. 
 
 “Look, even if you wanna turn back, its impossible. We have come this far into the forest. The 6 of us will always be together. For now, lets get out of this monstrosity.” I assured. 
 
 After walking a little longer on the bodies with our lives depended on the rays coming from the torch, we reached a proper, walkable surface again. The strong smell slowly diffused away from our noses, fading away into the darkness. 
-
-“It’s gone,” Everyone heaved a sigh of relief. 
 
 Then, something struck our eyes. Somehow, we could see a small building in the darkness. As we got closer to it, it looked like a small wooden cabin, surrounded by tall, crooked trees. 
 
