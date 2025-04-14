@@ -144,8 +144,9 @@ I hear the screeching at night in my dreams. I clutch my child closely and fear 
 
 I wonder when she’ll “be in touch.”
 
-I know Linda is still waiting. Lurking.   
+I know Linda is still waiting. Lurking.  
 So is he. 
 
 But so am I. Because my love for my daughter and our relationship is a powerful force, too.
 
+*A flier for Jack's Tonic found in the basement:* [*https://imgur.com/a/jack-s-tonic-health-long-life-fullness-of-form-cold-kept-shake-before-sinning-SdUV5gd*](https://imgur.com/a/jack-s-tonic-health-long-life-fullness-of-form-cold-kept-shake-before-sinning-SdUV5gd)
