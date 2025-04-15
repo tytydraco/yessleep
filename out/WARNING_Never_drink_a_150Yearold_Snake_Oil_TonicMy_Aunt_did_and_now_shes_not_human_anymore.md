@@ -149,4 +149,4 @@ So is he. 
 
 But so am I. Because my love for my daughter and our relationship is a powerful force, too.
 
-*A flier for Jack's Tonic found in the basement:* [*https://imgur.com/a/jack-s-tonic-health-long-life-fullness-of-form-cold-kept-shake-before-sinning-SdUV5gd*](https://imgur.com/a/jack-s-tonic-health-long-life-fullness-of-form-cold-kept-shake-before-sinning-SdUV5gd)
+*A flier for Jack's Tonic found in the basement:* [https://imgur.com/gallery/jack-s-tonic-health-long-life-fullness-of-form-cold-kept-shake-before-sinning-PEy7h0U](https://imgur.com/gallery/jack-s-tonic-health-long-life-fullness-of-form-cold-kept-shake-before-sinning-PEy7h0U)
