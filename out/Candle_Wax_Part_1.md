@@ -1,3 +1,7 @@
+[Next](https://www.reddit.com/r/nosleep/comments/1jzwfcg/candle_wax_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+
+
 Should I have stayed in Toronto? It’s the question I keep asking myself. If I knew what would happen when I moved to Greenwood, I’m sure I would have stayed as far away as possible. But if I had the chance to erase it all now, would I? I would be happier if I didn’t know what was out there, but it would be a lie.
 
  
