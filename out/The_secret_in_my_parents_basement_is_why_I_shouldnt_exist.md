@@ -14,7 +14,7 @@ I was never a part of any of THIS.
 
 Look, I’ve always been the odd sibling out.
 
-By that, I mean while my brother and sister were clearly my parents' favorites. 
+By that, I mean my brother and sister were clearly my parents' favorites. 
 
 I was always the last to know anything, even as a little kid. 
 
@@ -38,7 +38,7 @@ He kept whispering about *the screams.*
 
 *Ghosts*, he said, tugging me closer. 
 
-Noah shoved me. *“Did you know the cellar is so cold you can see your breath?" 
+Noah shoved me. *“Did you know the cellar is so cold you can see your breath?"*
 
 He pulled me further down the steps to the wine cellar, giggling. 
 
