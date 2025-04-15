@@ -124,7 +124,7 @@ I looked up. Looked over to Eilidh, pleading with my eyes.
 
 
 
-She didn’t move—just stepped back, her eyes black and face blank, unreadable.  
+Her face didn’t move—she just stepped back, her eyes black and face blank, unreadable.  
 
 
 
