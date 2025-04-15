@@ -1,4 +1,4 @@
-Last July, my mom got surgery to have her big toe amputated. While doing a mail run, she cut her toe, and it got infected. Her diabetes kept her from feeling it until the infection reached the bone. After consultations with her doctor, it was decided that her toe could not be saved. At the time, I lived almost 2,000 miles away in California. I still remember Mom asking me to keep in touch with my thirteen-year-old sister, who would be home alone for a few days while Mom recovered in the hospital. For a reason I cannot explain, I had a terrible feeling she would be in the hospital longer than expected.
+Last July, my mom got surgery to have her big toe amputated. While doing a mail run, she cut her toe, and it got infected. Her diabetes kept her from feeling it until the infection reached the bone. After consultations with her doctor, it was decided that her toe could not be saved. At the time, I lived almost 2,000 miles away in California. I still remember Mom asking me to keep in touch with my thirteen-year-old sister, who would be home alone for a few days while she recovered in the hospital. For a reason I cannot explain, I had a terrible feeling she would be in the hospital longer than expected.
 
 “I’ll keep in touch. Of course. But maybe she should stay with her dad for a while? If something goes wrong…” I said.
 
@@ -12,13 +12,13 @@ She cut me off.
   
 “Okay, mom. I’ll check in,” I said, afraid to push further.
 
-I remember hanging up the phone feeling guilty for stressing her out. I’m sure it was hard to lose a part of your body, even if it was only a toe. I also wondered if she snapped at me because I mentioned my sister staying with her dad. Their relationship was toxic. He cheated and spent little time with my sister. When he did, he would bad mouth Mom. I understood why she did not want him involved.
+I remember hanging up the phone feeling guilty for stressing her out. I’m sure it was hard to lose a part of your body, even if it was only a toe. I also wondered if she snapped at me because I mentioned my sister staying with her dad. Their relationship was toxic. He cheated and spent little time with my sister. When he did, he would bad mouth Mom. I understood why she did not want him involved. Most of all, my mom took pride in doing things herself.
 
 Unfortunately, on the day of the surgery, my worst fears were realized. Doctors did not know she had a weakened heart. When they gave her fluids pre-surgery, she had a heart attack, which sent her into heart failure. She survived, though needed assistance for basic everyday tasks. Because of this, I decided to move back home to care for her and my sister.
 
 The following few months were rough. She developed several more infections at the amputation site. One amputation led to two and two to three, which resulted in her losing everything below the knee. Even though she never showed my sister and me how much it affected her, I would often hear her sobbing late at night before I went to bed.
 
-She refused to give up, though, and would often attempt—against doctors' orders—to do everything she used to. My sister and I would watch as she lugged laundry baskets down the basement stairs.
+She refused to give up, though, and would often attempt—against doctors' orders—to do everything she used to. My sister and I watched as she lugged laundry baskets down the basement stairs.
 
 “Mom, I can get that for you. Those basement stairs are steep. You’re gonna fall and hurt yourself.”
 
