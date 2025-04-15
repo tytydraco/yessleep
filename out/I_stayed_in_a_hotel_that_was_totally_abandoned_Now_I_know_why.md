@@ -474,12 +474,8 @@ Two days later, a postcard arrived in the mail.
 
 
 
-\*Stay again soon!\*
-
-
-
 \*Signed,\*
 
 
 
-\*Todd Kowalski.\*
+\*Todd K.\*
