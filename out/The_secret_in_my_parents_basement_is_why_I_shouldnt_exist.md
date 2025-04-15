@@ -106,7 +106,7 @@ She was one with the grades, the awards, the captain of her varsity soccer team,
 
 Mom had all her paintings hung up in the hallway. 
 
-Drawings Anastasia had drawn as a child, framed in gold, while the masterpieces my brother and I drew were in some random closet in her room. 
+Drawings Anastasia had drawn as a child, framed in gold, while the masterpieces my brother and I drew were in some random closet. 
 
 Anastasia had, of course, gotten pregnant the second she finished college. 
 
@@ -114,7 +114,7 @@ I wouldn't call her twins perfect. The two were screeching the second I stepped 
 
 Anastasia completely ignored my greeting, and waddled over to me wearing this huge smile, like she had been waiting for *me* specifically. 
 
-She immediately asked me if I had a boyfriend, and looked surprised when I said I didn't have one. 
+She immediately asked me if I had a boyfriend, and looked surprised when I said I didn't. 
 
 I glimpsed Noah already guarding the drinks table, already drunk as usual. 
 
@@ -208,7 +208,9 @@ Anastasia strode down the hall, and, just as I thought, headed towards the basem
 
 When my sister disappeared behind the old wooden door, her dress pooling beneath her, I hurried to catch up. 
 
-I felt the temperature the second I stepped over the threshold, leading to concrete steps. I shivered, wrapping my arms around myself. The ground floor *was* ice-cold. 
+I felt the temperature the second I stepped over the threshold, leading to concrete steps. 
+
+I shivered, wrapping my arms around myself. The ground floor *was* ice-cold. 
 
 Just like my brother said. 
 
@@ -234,7 +236,9 @@ She continued drinking, downing half of the bottle, before coming up for air.
 
 When Anastasia twisted around, I followed her, very slowly, stepping behind a shelf. 
 
-With a full view, I couldn't fucking believe what I was seeing, bile creeping up my throat. I remember slamming my hand over my mouth, but there was no scream. 
+With a full view, I couldn't fucking believe what I was seeing, bile creeping up my throat. 
+
+I remember slamming my hand over my mouth, but there was no scream. 
 
 I felt like I was suffocating. There was a man in our basement. No. It was a boy. 
 
@@ -264,7 +268,9 @@ A human body with the sprouting wings of something *not*.
 
 I can't call him an angel. 
 
-He was more a mockery of one, horrific wing-like appendages jutting from his naked spine. His head hung low, filthy brown curls falling into half-lidded eyes.
+He was more a mockery of one, horrific wing-like appendages jutting from his naked spine. 
+
+His head hung low, filthy brown curls falling into half-lidded eyes.
 
 In front of him stood an altar, lit by the orangeade flame of a candle. 
 
@@ -302,7 +308,9 @@ He did, unblinking, like he was blank, mindless, a body only existing as glue.
 
 “You obviously prefer my brother,”she murmured. 
 
-“It's been clear since we were kids, but…“ my sister sighed. “Well, I suppose I always had a stupid little crush.”
+“It's been clear since we were kids, but…“ my sister sighed. 
+
+“Well, I suppose I had a stupid little crush.”
 
 The boy didn't jerk away from her grasp. “You look like you're having a bad day.”
 
@@ -334,7 +342,9 @@ But, just as I was slowly backing away, he jolted back to life, choking, splutte
 
 Straight into her face. 
 
-“Fuck.” He shook his head, spitting up more water. I noticed that when it splashed onto the floor, it immediately froze over.
+“Fuck.” 
+
+He shook his head, spitting up more water. I noticed that when it splashed onto the floor, it immediately froze over.
 
 Anastasia noticed the glittering ice across the floor, clinging to her heel, and staggered back. 
 
@@ -352,9 +362,11 @@ He smiled thinly.
 
 His voice trailed off. His gaze drifted, unfocused, until it landed on my sister.
 
-“Are you ever cold?” he asked softly. “Like she was meant to be? Like I am?”
+“Are you ever cold?” he asked softly. “Like she was meant to be? Like *I* am?”
 
-He shivered. And this time, I saw it clearly, a glittering frost creeping over his cheek, spiderwebbing down his neck, crystallizing in sticky strands of his hair. 
+He shivered, trembling in his restraints. 
+
+And this time, I saw it clearly, a glittering frost creeping over his cheek, spiderwebbing down his neck, crystallizing in sticky strands of his hair. 
 
 He tipped his head back, mockingly, waiting for the blade.
 
@@ -430,11 +442,13 @@ Free from the house, from my family's bindings.
 
 He screamed, raw and painful, struggling to breathe.
 
-The boy demanded what I was doing to him in a cry, like he had become so used to breathing through the house, he didn't know any other way. I didn’t think. 
+The boy demanded what I was doing to him in a cry, like he had become so used to breathing through the house, he didn't know any other way. 
+
+I didn’t think. 
 
 I wrapped my arms around him and dragged him up the cement staircase, where, to my horror, blood was flowing.
 
-Like the house was bleeding.
+Like the house was *bleeding*.
 
 When a cry sounded upstairs, I wavered in my steps.
 
@@ -442,7 +456,11 @@ Anastasia.
 
 Then, my mother.
 
-“What are you doing?” he whispered through strangled breaths. The blood was getting thicker, streaming over each step.
+“What are you doing?” he whispered through strangled breaths. "Put me back!" 
+
+His agony was evident, and yet part of me could hear his relief. 
+
+The blood was getting thicker, streaming over each step.
 
 Upstairs, I was hit with the fallout. 
 
@@ -452,7 +470,17 @@ It was like a virus, spreading through the house.
 
 I passed my mother, her hair growing white, her face crumbling, her entire body coming apart in front of me. 
 
-All I could do was push further forward, keeping hold of the boy.
+I couldn't do anything but watch, my heart pounding in my chest. 
+
+Maybe I made a mistake, I thought, hysterically. 
+
+But putting him back, chaining this boy to our walls, killing him over and over again to keep our family intact... 
+
+I couldn't do that to him again. 
+
+All I could do was push further forward, keeping hold of him.
+
+I needed to get him out, away from my psycho family. 
 
 Mom was flesh, her eyes wide, lips screaming. Then blood and bone.
 
@@ -462,7 +490,11 @@ Our entire extended family was there for Mom’s brunch.
 
 Every single person connected to this house, to my great-grandmother.
 
-And they were gone, leaving only the younger generation.
+12 people. 
+
+Gone.
+
+Leaving only the younger generation.
 
 Anastasia was screaming, her hands over her ears.
 
@@ -476,7 +508,9 @@ My sister’s children were crying, and Anastasia herself grabbed me by the hair
 
 She tried to grab the boy, but she was weak. To my surprise, Noah violently yanked her back.
 
-We made it to the door and out into the sunlight. The boy was staggering, and behind us, my mother’s house was slowly coming apart, the foundations waning.
+We made it to the door and out into the sunlight. 
+
+The boy was staggering, and behind us, my mother’s house was slowly coming apart, the foundations waning.
 
 But not falling.
 
@@ -536,7 +570,11 @@ I think I was going to ask *where*, so I could free them.
 
 But then he dropped the bombshell.
 
-“You’re still going to rot,” the boy said, pointing to the pearly-white bones of my toes. I was trying to hide them, but it was getting increasingly obvious, creeping up my ankle. “Because you shouldn’t exist.”
+“You’re still going to rot,” the boy said, pointing to the pearly-white bones of my toes. 
+
+I was trying to hide them, but it was getting increasingly obvious, creeping up my ankle. 
+
+His lip curled, eyes narrowing in disgust. “Because you shouldn’t exist.”
 
 He’s right.
 
@@ -566,9 +604,13 @@ Edit:
 
 Noah came to see me earlier.
 
-His entire arm has been stripped of skin, down to the bone, like some kind of flesh-eating virus. With him, it’s faster.
+His entire arm has been stripped of skin, down to the bone, like some kind of flesh-eating virus. 
 
-I don’t understand why. He's only two years older than me. 
+With him, it’s faster.
+
+I don’t understand why. 
+
+He's only two years older than me, right? 
 
 The rot seems to have changed my brother’s perspective.
 
