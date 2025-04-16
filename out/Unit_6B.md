@@ -1,94 +1,114 @@
-There is a man who lives in the unit above me, his name is Luke. And for the last month, I keep on hearing strange noises coming from upstairs. 
+[REWRITTEN]
 
-At first, I tried to excuse it: maybe he had a friend or a girlfriend over at his apartment, or he was moving furniture, practically anything that would explain the noises I heard from his unit. 
+There’s a man who lives in the unit above mine—his name is Luke. And for the past month, I’ve been hearing strange noises coming from his apartment. 
 
-I’ve tried going up to him personally to ask what was wrong. But I never got an answer from him. 
-Luke was a good man--good as in terms of staying inside his apartment and never causing trouble. 
+At first, I brushed it off—figured maybe he had a friend or girlfriend over, or maybe he was just moving furniture around. 
 
-I’m pretty positive he was just a gas station cashier, which would explain why he was living in the dumps of this apartment complex. 
+I told myself it could be anything, really—anything normal.
 
-It’s the kind of place no one ever really notices, a place where people who were hermits could hide out in the complex that smells like cat-piss and depression. 
+I even tried to go upstairs personally to ask him about it, to see if something was wrong, but he never answered the door.
 
-But it was perfect. Perfect for me at least. 
+Luke always struck me as a decent guy—or at least the kind of decent that meant staying in his unit and keeping to himself. 
 
-The times I would see Luke, he was either checking his mail or coming back from his job in his old uniform.
+I’m pretty sure he worked at a gas station, which would make sense for someone like him living in this dump of a complex:
 
-He was quiet and looked like a mutated snail, but he never gave off the vibe that he was someone to look out for. 
+This place isn't the kind that gets put on maps. It’s where people go when they want to disappear—hermits, burnouts, people with pasts. 
 
-The type of man parents would tell their children to stay away from. 
+The halls always smell like cat piss and stale loneliness.
 
-Nothing seemed out of the ordinary until I started to hear the noises coming from Luke’s Unit. 
+But for me, it was perfect. Quiet. Forgotten. Just the way I liked it.
 
-Unit 6B. 
+The few times I ever saw Luke, he was either checking his mail or trudging back from work in that worn-out red uniform. 
 
-The walls of the apartment complex were thin enough that people could sometimes hear each other if they spoke loud enough. 
+He was quiet, hunched, and moved like a sluggish, mutated snail—but he never gave off an overall threatening vibe. 
 
-And Luke was doing that just: sometimes I’d hear him talking to someone upstairs, but I never would hear a reply back; he stomps around, and moves his furniture constantly. 
+He wasn’t the kind of man who’d make you cross the street, or someone you’d barely register out in the day. He was just another invisible tenant.
 
-After the first two weeks of knocking on his door, I eventually gave up. 
+Nothing seemed off until the noises started coming from Unit 6B—Luke’s place.
 
-But that was until the smell started. 
+You could practically hear someone breathe if they were loud enough.
 
-The ventilation systems between Luke and I’s unit are interconnected between the units, so whatever smell comes from his unit can come down to mine, and mine goes to his. 
+And Luke, who once barely made a sound, suddenly wasn’t so quiet. I’d hear him talking to someone upstairs, though I never heard anyone talk back. Just his voice—low, mumbling, sometimes agitated. 
 
-But just recently I began to smell a faint, sweet, earthy aroma, like it was a rotting fruit mixed with something bitter or chemical.
+Then came the stomping, like he was throwing himself around in his apartment like a feral dog. 
+
+I could also hear scratching coming from up there. I assumed it was his furniture being dragged across the floor like he was rearranging the place every other night.
+
+Like I said before. For two weeks, I tried knocking on his door. I figured maybe he was going through something—needed help or at least a reminder he had neighbors. But he never answered. Eventually, I gave up
+
+That was before the smell.
+
+The ventilation systems here are all connected. Whatever stench brews in one unit can drift into the next, and lately, a foul smell has started seeping into mine. 
+
+It wasn’t too noticeable at first; a strong, earthy scent that soon turned into a foul smell I can only describe as rancid peanut butter. 
 
 The first time I smelled it, I thought maybe I’d left something to rot in the kitchen. I tore the place apart looking for it. 
 
-But nothing turned up. I even cleaned the fridge — a rare event, believe me. 
-
-But the smell never went away no matter what I did. 
+But nothing turned up. I even cleaned the fridge — a rare event, believe me. But the smell kept getting stronger, and always found a way to hide from me.
 
 Then came the spores.
 
-Tiny white puffs drifted out of the vent and drifted around my apartment. 
+Tiny white puffs started drifting out of the grates. They clung to surfaces, and left sticky trails whenever I touched them. 
 
-They clung to surfaces, leaving faint, sticky trails whenever I touched them. I tried to vacuum and wipe them down from any of my furniture, but every morning, there’d somehow be more.
+I tried to vacuum and wipe them down from any of my furniture, but every morning, there’d somehow be more.
 
-After the fourth day of dealing with the spores, I eventually filed a maintenance ticket. 
+By the fourth day of dealing with the spores, I gave in and filed a maintenance ticket. I even called the building manager—Hoffman. But he was as useful as a wet paper towel. 
 
-I even got on a call with the building manager, Hoffman, but he was as useful as a wet paper towel. 
+“It’s probably just dust,” he told me over the phone. “The vents are old. I’d advise you to deal with it until we can get someone out there.”
 
-“It’s probably just dust,” he said over the phone.
+That someone never came.
 
-"The vents are old. I’d advise you to deal with them until we can get it solved.” I could also hear him smirking. 
+Nothing got fixed. 
 
+No one followed up. And the spores kept coming and flooding my apartment. 
 
-It never got solved. 
+I couldn’t sleep nor breathe properly without opening my window, even then the stench wouldn’t leave. 
 
-Another week goes by. And with the noises, the smell, and the spores, I’ve had enough, and for one last time, just in spite, I went back up to unit 6B to try and confront Luke one last time. 
+Days went by. And between the noise, the smell, and the ever-thickening spores, I’d had enough. 
 
-It was just after 8. 
+Out of spite, I decided to try one last time—to go back upstairs and confront Luke face to face.
 
-I stood outside 6B for a full minute before knocking. 
+It was just after 8 p.m, on a Sunday night.
 
-The hallway was dead silent. The only sounds that came were the cars passing by and the crickets chirping.
+I stood outside Unit 6B for a full minute before knocking. The hallway was silent—eerily so. 
 
-I knocked again, and again, and for the fourth time I knocked once again, louder that time. 
+No footsteps, no muffled TVs behind doors. 
+
+Just the occasional hum of cars on the road outside and the slow chirp of crickets cutting through the stillness.
+
+I knocked again. Then again. The fourth time, I knocked harder—loud enough to echo.
 
 Nothing.
 
-I thought that it was going to be like the last time when I tried to speak to him. So, I turned my heel to begin walking back down the stairs, until I heard a creak. 
+I sighed. “Whatever…” I muttered to myself. Another dead end, maybe this time I will hire HVAC people to come and fix the vent. 
 
-The door opened just a sliver. A pale, glassy eye stared out at me through the crack.
+I was already turning to leave, but I hadn’t even touched the first step until I heard it—a faint creak of a door.
 
-“Yes?” Luke answered. 
+I turned around to see that Luke’s door opened with just a sliver. 
 
-He was quiet and sounded like he was fearful, but overall, nothing out of the ordinary that I could see. 
+And when I stepped back closer to the door, I could see a pale, glassy eye staring out at me through the crack.
 
-“Uh, hi. I’m Shawn. I live below you—unit 5B. I think something might be coming through the vents — like spores or smoke or something? It’s starting to affect my place.”
+“Yes?” Luke said.
 
-There was an awkward silence on his end. Nothing out of the ordinary for me; I thrive in silence and respect silent and introverted people. 
+He was quiet and sounded like he was fearful, But outwardly, nothing out of the ordinary that I could see. 
+
+“Uh, hi. I’m Shawn. I live below you—unit 5B. I think something might be coming through the vents — like spores or smoke or something? It’s starting to affect my place and I think it’s coming from…your place.”
+
+There was a pause. Long and quiet. I didn’t mind—I thrive in silence and respect silent and introverted people. 
 
 But in Luke’s case, I felt an uneasy tension coming from within that door. 
 
-“You’ve seen the smoke?” he asks. 
+Then, finally, Luke spoke again.
+
+“You’ve seen the smoke?”
 
 “Yeah. It smells.”
 
-The door creaked more open, I could now see parts of Luke’s blonde hair that looked greasy, and half of his sluggish face. “It’s not for you,” he tells me. 
+The door creaked more open, and I caught a glimpse of Luke’s blonde hair that looked greasy. His skin looked too sallow, and his face was uglier than ever, 
 
-“It’s not for anyone,” I remind him, “I just want to know what’s causing it. Mold? Fungi? If it’s dangerous—”
+“It’s not for you,” he said. 
+
+“It’s not for anyone,” I replied. “I just want to know what’s causing it. Mold? Fungi? If it’s dangerous—”
 
 “—It’s not dangerous,” he said too quickly. “Unless you see her.”
 
@@ -96,52 +116,75 @@ I blinked. “What?”
 
 The door slammed shut.
 
-I stood there for a moment, and for the first time I thought ‘what if I was imagining it all?’ the noises, the smell, all of it. 
+I stood there, staring at the peeling paint on the doorframe, my eyes traced the cracks without really seeing them, wondering—just for a moment—if I was imagining all of it. 
 
-But when I returned to my apartment, the smell was stronger than ever. The spores were thicker and were getting harder to clean. 
+The noises coming from Unit 6B, the rancid peanut butter smell coming from the vents, and the spores. 
 
-That night, I slept with a damp towel pressed against the vent. It didn’t help.
+Maybe the isolation that I have been experiencing has now been eating me away like I was nothing. 
 
-The next morning, I called a private HVAC guy and told him I would pay if he came over to check the vent. 
+I stood there longer than I should have, listening to nothing, before I slowly turned back and walked down the stairwell and into my apartment.
 
-When he popped open the vent, he looked confused and even a little nervous.
+That night, I slept with a damp towel pressed against the vent. It didn’t help keeping the smell at bay.
 
-“There’s definitely something coming from upstairs,” he said, coughing as he leaned into the shaft. “Kind of… fungal, maybe. I’d need to get into the unit above to know more.”
+The next morning, I was done waiting. I called a private HVAC technician I found online—someone local, not affiliated with the building.
 
-“Good luck with that,” I muttered.
+Told him I’d pay whatever he wanted if he could come out that same day to check the vent system in my unit.
 
-Paul left my apartment promising he’ll come back with a solution, and returned a few days later with a friend. 
+He showed up around noon. His name was Paul—young fellow, compact build, smelled like motor oil and mint gum, and looked like a baby duck. 
 
-They installed a filter and sealed off the ductwork to 6B. I paid them under the table. 
+He gave the place a quick once-over, then grabbed his tools and a step ladder.
 
-Whatever the hell was up there, I didn’t want it coming down into my lungs anymore.
+When he popped open the vent, he looked confused and even a little nervous. He leaned in closer, flashlight in hand, shining the beam into the dark shaft. 
 
-After that, things got better.
+“There’s definitely something coming from upstairs,” he said, coughing hard. “Kind of… fungal, maybe.” 
 
-The smell faded. The spores stopped. I started sleeping again. 
+There was a moment of silence before he leaned back and looked at me and pointed at a spot inside of the vent.
 
-My apartment finally didn’t smell. And for the first time in weeks, I felt like myself.
+“You see that?” He gestured for me to take a look.
 
-Until last Friday night.
+I stepped closer. Inside the vent, clinging to the metal walls, were faint web-like strands. Not dust. Not lint. These had a texture—fibrous, pale, slightly glistening in the light. 
 
-It was 3:33 AM when I woke up to the sounds of footsteps walking inside of my apartment. 
+Some kind of growth that smelled more awful closer.
 
-Then, a loud bang — like furniture being overturned.
+“I’d need to get into the unit above to know more,” Paul muttered.
+
+“Good luck with that,” I said under my breath. “Guy barely opens his door. Might as well be a ghost up there.”
+
+Paul gave a small, uncertain nod. “Well… I’ll see what I can do. In the meantime, I’ll think of a workaround.”
+
+He left not long after. And true to his word, he came back a few days later—this time with a buddy, another contractor who I didn’t speak to.
+
+They installed a filter over my end of the vent and sealed off the ductwork leading to 6B completely. 
+
+Thick tape. Extra padding. Metal plating. Like they were trying to wall off a disease.
+
+“You’re good now,” Paul said, wiping his hands on a rag. “Whatever was up there won’t get into your unit anymore, it should smell better now.”
+
+I thanked them, and paid them with the promise amount under the table, I was now finally comfortable in my own home: 
+
+The smell began to fade, no more rancid stench in the air, the spores stopped appearing, and for the first time in what felt like forever, my apartment didn’t reek anymore.
+
+For the first time in weeks, I felt like myself again.
+
+Almost.
+
+Until last night.
+
+It was 3:33 AM when I woke up to the sounds of footsteps walking inside of my apartment. Then, a loud bang — like furniture being overturned.
+
 Silence followed afterwards. 
 
-I sat in my bed wondering what I should do. 
-
-There was a locked safe in my closet where I kept a loaded handgun. 
+I sat in my bed wondering what I should do. There was a locked safe in my closet where I kept a loaded handgun. 
 
 Slowly, I  slipped out of bed barefoot to retrieve the handgun. The closet was only a few feet away, but it felt like crossing a minefield. 
 
-I punched in the code with shaking fingers, praying I hadn’t fumbled the digits. 
+I punched in the code with shaking fingers, praying I hadn’t fumbled the digits. And with a beauty, the safe clicked open.
 
-And with a beauty, the safe clicked open.
+I now have the Glock 19.
 
-I now had the Glock 19.
+I clicked off the safety and held it low as I crept down the hallway. 
 
-I clicked off the safety and held it low as I crept down the hallway. My legs were stiff, like they didn’t want to obey. I reached the living room and flicked on the light.
+I reached the living room and flicked on the light.
 
 Nothing.
 
@@ -159,27 +202,31 @@ I always keep it shut. Always.
 
 My grip on the gun tightened.
 
-Slowly, I stepped forward. One inch at a time. I reached out with my left hand— a man lunged at me.
+Slowly, I stepped forward. 
 
-He came out like a shadow thrown into motion — a blur of limbs and adrenaline. I stumbled back, firing—
+One inch at a time. I reached out with my left hand— a man lunged at me.
+
+A blur of limbs came and grabbed my shoulders. I stumbled back, firing—
 
 BANG.
 
-I blew a hole in the ceiling. The impact of his shoulder knocked me off my feet. 
+I blew a hole in the ceiling. The impact of his shoulder knocked me off my feet. We crashed to the floor, gun tumbling from my hand, skittering across the hardwood.
 
-We crashed to the floor, gun tumbling from my hand, skittering across the hardwood.
+He was on top of me before I could even breathe, fists swinging. 
 
-He was on top of me before I could even breathe, fists swinging. He was yelling and hollering like a maniac. 
+He was yelling and hollering like a maniac. One punch caught me across the jaw, and it stung. 
 
-One punch caught me across the jaw, and it stung. The second I blocked with my forearm, pain shot down to my elbow.
+The second I blocked my forearm, pain shot down to my elbow.
 
-I twisted, got my knee between us, and kicked him in his balls. He grunted, crawling back, clutching onto his manhood.
+I twisted, got my knee between us, and kicked him in his balls. 
+
+He grunted, crawling back, clutching onto his manhood.
 
 I scrambled toward the gun. He grabbed my ankle, trying to drag me back, but I kicked wildly, caught him in the chest. 
 
 When I was close to grabbing the gun, he tackled me again, and he pulled me up by my collar, and we slammed into the wall. 
 
-He slammed my head so hard I thought I saw stars. My back was against the wall, and I could see from within the darkness and blonde hair, a very angry and possessed Luke. 
+He slammed my head so hard I thought I saw stars. My back was against the wall, and I could see from his face a very angry and possessed-looking Luke. 
 
 "Luke?" I choked out. "What the hell—?"
 
@@ -195,11 +242,11 @@ I stood over him, panting, gun raised, every nerve on fire. Blood smeared the wo
 
 “Luke—what the hell are you doing in my apartment?!” I demanded.
 
-He was silent for a long, choking second.
+He was silent for a long, choking second. Then something changed in his expression — the madness drained, replaced by something far more human.
 
-Then his face shifted. From what used to be anger was now shifting to terror. 
+Terror.
 
-His pupils widened, and he stuttered. 
+His pupils widened, breath stuttering. 
 
 “No,” he whispered. “No, no, no—she told me you were next—”
 
@@ -208,6 +255,7 @@ I stepped closer, Glock still trained on him. “Who told you?”
 Luke’s eyes filled with tears. He was shaking now, mumbling nonsense between shallow gasps.
 
 Then, in one final, lucid moment, he met my eyes.
+
 “She has her eyes on you now.”
 
 He grabbed the Glock from my hand, and in one swift motion, he aimed it inside of his mouth and pulled the trigger. 
@@ -216,30 +264,59 @@ Blood and brains splattered across the walls, and from what was left of Luke wer
 
 Luke was dead. He killed himself. But why?
 
-After the incident, I couldn’t leave my house. I don’t know why I didn’t call the police but I never did nor did they ever come. 
-
-But ever since that night, I’ve started seeing things.
+After the incident, I couldn’t leave my house. I don’t know why I didn’t call the police but I never did nor did they ever come. But ever since that night, I’ve started seeing things.
 
 Just at the edge of my eyes, I could see a shape in the corner of the room. 
 
-A blotch of color that vanishes when I look straight at it. 
+A blotch of color that vanishes when I look straight at it. I’ve caught some glimpses of it, and from the sight of it, it looks like a flower. A fucked up, mutated flower. 
 
-I’ve caught some glimpses of it, and from the sight of it, it looks like a flower. A fucked up, mutated flower. 
+The smell came back and soon the spores. 
 
-The smell and the spores then came back, and I was now back in the routine of smelling and cleaning the spores and trying to barricade myself from the smell. 
+Then more. And more.
+
+Until the air was thicker than ever, my lungs raw, my tongue coated with a bitter and nauseating aftertaste.
 
 I started moving furniture. Tearing open vents. Peeling back wallpaper. I keep thinking if I find it — if I can dig it out — it’ll stop.
 
-But it doesn’t stop.
+But it didn’t stop.
 
-And I eventually gave up. 
+It only got worse.
 
-Now, I am alone in my apartment. I like being alone, that’s why I moved to this complex. I can see something staring at me from the corner of my living room. 
+Eventually, I gave up. Not out of exhaustion, but out of acceptance, maybe. 
 
-A tall, pale, slender woman with white Datura petals and spores coming out of her petals and investing my apartment. 
+Now I sit alone in my apartment. The way I liked it when I first moved here. Alone. Undisturbed. Hidden from the world. But I’m not really alone anymore.
+
+She’s here.
+
+Tall and slender, her limbs too long for comfort, her neck stretched like a flower stalk reaching for light. Her skin is a  pale bone white and from behind her back and along her arms, and blooming from the base of her neck, flowers grow.
+
+Datura.
+
+White, trumpet-shaped, wide open like they’re drinking in the air. The petals pulse gently, and from them rise those tiny white spores. I don’t breathe when she’s near. I can’t.
 
 She talks to me. 
 
 And I am deeply afraid of her.
 
-She tells me that Luke was useless to her, but I now have a chance to prove to her my worth.
+She tells me that Luke was useless to her. That he broke too easily. That I could now have a chance to prove my worth to her because Luke infested me with her poison.  
+
+I want to run. I want to tear open my walls and dive into the insulation if it means getting away from her.
+
+But I don’t.
+
+I just sit here, paralyzed, staring into her eyeless face and the flowering poison blooming from her. As she talks to me. 
+
+There is someone knocking on my door, my next door neighbor. 
+
+I can hear him through the door telling me that I need to answer the door, that there is a smell coming from the vents and he knows it’s me. 
+
+
+
+
+
+
+
+
+
+
+
