@@ -1,4 +1,4 @@
-[Part 3.](https://www.reddit.com/r/nosleep/comments/1jwffxk/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 3.](https://www.reddit.com/r/nosleep/comments/1jwffxk/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Final Part.](https://www.reddit.com/r/nosleep/comments/1k06z5q/i_work_for_a_strange_logistics_company_and_i_wish/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I tried to sleep but couldn't. Every time I closed my eyes, I saw Lisa's terrified face, heard her desperate pleas for her brother. I kept thinking of the containers, the amber fluid, the thrashing inside. The pieces were starting to fit together in my mind, forming a picture too horrifying to believe.
 
