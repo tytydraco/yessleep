@@ -1,6 +1,4 @@
-[Previous](https://www.reddit.com/r/nosleep/comments/1jz1md1/candle_wax_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
-
+[Previous](https://www.reddit.com/r/nosleep/comments/1jz1md1/candle_wax_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Next](https://www.reddit.com/r/nosleep/comments/1k0owpb/candle_wax_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I didn’t do well with uncertainty. Uncertainty was an annoying little worm and no matter how hard I tried, it continued to wriggle in the grooves of my brain. It was both a help and a hindrance to my job. It made me dedicated, but it also made me obsessive. Gray was correct though, as much as I hated to admit it: It’s a cruel fact of life that not all loose ends get tied.
 

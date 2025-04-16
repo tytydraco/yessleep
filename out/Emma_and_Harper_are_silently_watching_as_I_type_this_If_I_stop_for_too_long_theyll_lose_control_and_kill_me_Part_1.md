@@ -14,6 +14,8 @@ My eyelids reopened to a quiet hospital room in the middle of the night. The tra
 
 A few dozen panic attacks later, I started to get a handle on the situation.
 
+- - - - -
+
 Now, I recognize this is not the note these types of online anecdotes normally start on. The ones I've read ease you in gradually. They savor a few morsels of the uncanny foreplay before the main event. An intriguing break in reality here, a whispered unraveling of existence there. It's an exercise in building tension, letting the suspense bubble and fester like fresh roadkill on boiling asphalt, all the while dropping a few not-so-subtle hints about what’s *really* happening.
 
 Then, the author experiences a moment of clarity, followed by the climatic epiphany. A revelation as existentially terrifying as it is painfully cliché. 
@@ -174,7 +176,7 @@ He vividly recalled leaving the front door ajar.
 
 The exact sequence of events for the half-hour that followed remains unclear to this day. In essence, he discovered his wife, Linda \[*maiden name redacted*\], strung upside down by her ankles. Linda’s death would bring AEK’s (*The Angel Eye Killer*) body count to seven. Per his M.O., it had been exactly one-hundred and eleven days since he last claimed a life.
 
-*“She was facing me when I first saw her. There was a pool of blood below where he hung her up. The blood was mostly coming from the gashes on her wrists, but some of it was dripping off her forehead. It appeared as if she was staring at me. When I got closer, I realized that wasn’t the case. Her eyes had changed color. They used to be green. The prosthetics he inserted were blue, and its proportions were all wrong. The iris was unnaturally large. It took up most of the eye, with a tiny black pupil at the center and a sliver of white along the perimeter. Her face was purple and bloated. She wasn’t moving, and her screams had turned to whimpers. I become fixated on locating her eyelids, which had been excised. I couldn’t find them anywhere. Sifted through the blood and made a real mess of things. Then, I started screaming.”* (11:14 PM, response to question “***how did you find her***?”)
+*“She was facing me when I first saw her. There was a pool of blood below where he hung her up. The blood was mostly coming from the gashes on her wrists, but some of it was dripping off her forehead. It appeared as if she was staring at me. When I got closer, I realized that wasn’t the case. Her eyes had changed color. They used to be green. The prosthetics he inserted were blue, and its proportions were all wrong. The iris was unnaturally large. It took up most of the eye, with a tiny black pupil at the center and a sliver of white along the perimeter. Her face was purple and bloated. She wasn’t moving, and her screams had turned to whimpers. I become fixated on locating her eyelids, which had been excised. I couldn’t find them anywhere. Sifted through the blood and made a real mess of things. Then, I started screaming.”* (11:14 PM, response to the question “***how did you find her***?”)
 
 Although AEK wasn’t consistent in terms of a stereotyped victim, he seemed to have some clear boundaries. For one, he never targeted children. His youngest victim was twenty-three. He also never murdered more than one person at a time. Additionally, the cause of death between cases was identical: fatal hemorrhage from two slit wrists while hung upside down. Before he’d inflict those lacerations, however, he’d remove the victim’s eyes. The prosthetic replacements were custom made. Hollow glass balls that had a similar thickness and temperament to Christmas ornaments.
 
@@ -182,7 +184,7 @@ None of the removed eyes have ever been recovered.
 
 Something to note: AEK’s moniker is a little misleading. The media gave him that nickname because the victims were always found in the air, floating like angels, not because the design of the prosthetics held any known religious significance.
 
-*“I heard my next-door neighbor entering the house upstairs before I realized that Linda and I weren’t alone in the cellar. Kneeling in her blood, sobbing, he snuck up behind me and placed his hand on my shoulder. His breathing became harsh and labored, like he was forcing himself to hyperventilate. I didn’t have the bravery to turn around and face him. Didn’t Phil \[Dr. Rendu’s neighbor\] see him?”* (11:49 PM, response to question “***did you get a good look at the man?***”)
+*“I heard my next-door neighbor entering the house upstairs before I realized that Linda and I weren’t alone in the cellar. Kneeling in her blood, sobbing, he snuck up behind me and placed his hand on my shoulder. His breathing became harsh and labored, like he was forcing himself to hyperventilate. I didn’t have the bravery to turn around and face him. Didn’t Phil \[Dr. Rendu’s neighbor\] see him?”* (11:49 PM, response to the question “***did you get a good look at the man?***”)
 
 Unfortunately, AEK was in the process of crawling out of a window when the neighbor entered the cellar, with Dr. Rendu curled into the fetal position below his wife.
 
