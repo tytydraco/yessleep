@@ -1,5 +1,3 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/16b4fiw/my_babys_first_words_have_left_me_totally_paranoid/)
-
 I know it’s cliché, but ever since Edward was born, I’ve wanted him to say "Mama."
 
 Before I go any further, please know that I’m in a state of grieving. 
@@ -92,7 +90,7 @@ Like I said, he probably has a speech impediment or learning disability.
 
 But then–and I don’t really know how to say this...
 
-That’s when strange stuff started to happen. 
+That’s when strange stuff started to happen.
 
 Like, *weird* stuff.
 
@@ -134,7 +132,7 @@ Under a deluge of the unexplained, I can’t deny that something is deeply wrong
 
 Darren said,
 
->I should have been elated, but inside, all I felt was terror.   
+>I should have been elated, but inside, all I felt was terror.  
 Eddie said my name and that meant somehow, at some unknown moment, I was going to be next.
 
 Maybe Darren was *next*.
