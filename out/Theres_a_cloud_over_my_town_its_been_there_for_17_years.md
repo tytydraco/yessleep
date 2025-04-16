@@ -110,7 +110,7 @@ Saturday- 1 September.
 
 I'm not the problem. 
 
-I've have a few life long friends in this town. Or at least- had. 
+I have a few life long friends in this town. Or at least- had. 
 
 They don't remember me. 
 
@@ -143,6 +143,6 @@ I don't know what to do.
 
 
 
-So yeah. I'm on my bed. Typing this out. I had a good night's sleep and I calling in sick today because I need to figure this out. Does anyone have information regarding where I could be. What's happening. And why only I seem to be noticing?
+So yeah. I'm on my bed. Typing this out. I had a good night's sleep and I'm calling in sick today because I need to figure this out. Does anyone have information regarding where I could be. What's happening. And why only I seem to be noticing?
 
 Please help me

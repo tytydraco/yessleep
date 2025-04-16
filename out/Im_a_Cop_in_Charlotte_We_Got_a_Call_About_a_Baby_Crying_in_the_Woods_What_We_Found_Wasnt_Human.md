@@ -1,21 +1,22 @@
 This happened a couple nights ago and I gotta write it down. Thinking it and saying it sound too crazy. 
 
-I’ve been with CMPD long enough to know the worst calls always start the same way.
+I’ve been a cop long enough to know the worst calls always start the same way.
 
 “Can you check out a noise complaint? Sounds like a baby crying.”
 
 That came over dispatch just after 2:00 AM. I’m a dad so of course I’m gonna go make sure everything’s okay. 
-Area was west Charlotte, just past Mount Holly Road—old woods near a defunct substation Duke Energy fenced off years ago. I knew the area. Dense, overgrown, not the kind of place you walk a stroller. It IS where a lot of people camp if they don’t have homes so my brain made the call that some poor mama was out there with her baby. 
+Area was west [redacted], just past 
+[redacted]—old woods near a defunct substation Duke Energy fenced off years ago. I knew the area. Dense, overgrown, not the kind of place you walk a stroller. It IS where a lot of people camp if they don’t have homes so my brain made the call that some poor mama was out there with her baby. 
 
 I was wrong. 
 
 Caller didn’t leave a name. Just said the sound came from “deep in the trees.” some drunk guy on his boat probably out trying to catch some blue cats heard spooky sounds in the woods (been there, done that, got the tshirt) 
 
-I went alone. Protocol said I should wait for backup, but I didn’t think much of it. Probably a fox. They make noises that’ll raise the hairs on your neck. That or someone dumped a cat in the brush. Or at WORST it’s a damn bobcat. Reason I know this is I’ve had my run in’s with them in the lake Norman side of Charlotte quite a few times. 
+I went alone. Protocol said I should wait for backup, but I didn’t think much of it. Probably a fox. They make noises that’ll raise the hairs on your neck. That or someone dumped a cat in the brush. Or at WORST it’s a damn bobcat. Reason I know this is I’ve had my run in’s with them in the lake [redacted] side of [redacted] quite a few times. 
 
 They are mean as hell but trick you by sounding like a baby. 
 
-I parked on the shoulder and walked about fifteen minutes into the woods. No trails. Just soft earth and low branches clawing at my vest. The deeper I went, the colder it got. The kind of cold that doesn’t belong in Carolina in April, but it’s there anyway because the weather can’t make up its damn mind. 
+I parked on the shoulder and walked about fifteen minutes into the woods. No trails. Just soft earth and low branches clawing at my vest. The deeper I went, the colder it got. The kind of cold that doesn’t belong in [redacted] in April, but it’s there anyway because the weather can’t make up its damn mind. 
 
 Then I heard it.
 
@@ -51,7 +52,11 @@ Waaah.
 
 I know I couldn’t see my reaction, but I know that all color from my body left me at once. I felt hot. 
 
-I should’ve run. I didn’t.
+I should’ve run. I didn’t. 
+
+What came next was odd to say the least. I lost about an hour of consciousness. 
+
+When I came to I was still standing among the deer in the trees. The crying had never stopped, I had a sharp pain in my jaw and I could taste warm thick blood running down the back of my throat. But there was also a smell. I started shaking and gagging, and I swear it looked as if a few of them were….smiling? 
 
 I raised my light. And they turned—all of them—at once.
 
@@ -61,7 +66,7 @@ And the crying stopped.
 
 Just like that.
 
-I stayed there another thirty seconds before my legs started working again. I also might have pissed myself. 
+I stayed there another thirty seconds before my legs started working again. I also might have pissed myself. I checked my watch 3:30 AM. About an hour after I parked and radioed in dispatch. I had no recollection of the last hour. And the oddest thing? I was missing a molar. 
 
 Back at the cruiser, I tried to call it in. Static. My radio didn’t work until I was five miles down the road. And brother that was a long walk. 
 
@@ -79,11 +84,11 @@ But here’s the thing.
 
 Since I’ve brought that tooth home. I’ve caught glimpses of white deer in my yard at night. When I’m driving out on patrol they run out in front of me. 
 I’ve heard babies crying from the woods behind my house. 
-I hear babies crying when I’m hiking in the mountains about 200 miles away from Charlotte. 
+I hear babies crying when I’m hiking in the mountains about 200 miles away from home. 
 I hear them before I go to bed. 
 My daughter is 14. I don’t have a baby. She doesn’t even live with me I’m divorced. 
 
-And the worst thing is, I don’t know where that tooth is now. And the reason I’m writing this is because as I sit here in my home I’m watching my security cameras. 
+And the worst thing is, I don’t know where that baby tooth is now. And the reason I’m writing this is because as I sit here in my home I’m watching my security cameras. 
 
 There’s a white deer in my yard. 
 
