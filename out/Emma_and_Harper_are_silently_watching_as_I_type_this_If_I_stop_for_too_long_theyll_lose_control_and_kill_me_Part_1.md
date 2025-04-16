@@ -216,9 +216,9 @@ What could be better?
 
 Just spotted Dr. Rendu pulling into the hotel parking lot from the window. I hope he brought some heavy-duty tranquilizers. It’s going to take something potent to sedate Emma and Harper. Watching me type keeps them docile - pacifies them so they don't tear me to pieces. I’d rather not continue monologuing indefinitely, though, which is where the chemical restraints come into play.
 
-That said, I want to make something clear: I didn’t need to create this post. I could have just transcribed this all into Microsoft Word. It would have the same placating effect on them. But I’m starting to have my doubt about my mentor, Dr. Rendu. In light of those doubts, the creation of a public record feels like a timely thing to do.
+That said, I want to make something clear: I didn’t need to create this post. I could have just transcribed this all into Microsoft Word. It would have the same placating effect on them. But I’m starting to harbor some doubts about my de facto mentor, Dr. Rendu. In light of those doubts, the creation of a public record feels like a timely thing to do.
 
-Dr. Rendu told me he has this all under control over the phone. He endorsed that there’s an enormous sum of money to be made of the situation as well. Most importantly, he believes they can be refined, too. Molded into something more human. All it would take is a little patience and a lot of practice.
+Dr. Rendu told me he has this all under control over the phone. He endorsed that there’s an enormous sum of money to be made of the situation as well. Most importantly, he believes they can be refined. Molded into something more human. All it would take is a little patience and a lot of practice.
 
 Just heard a knock at the door.
 
