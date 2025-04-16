@@ -121,7 +121,7 @@ Just last night, though - I woke up to that familiar acrid scent I still remembe
 
 The ashen man. He didn't move, nor did he speak - he just stood there grinning, face half masked by the lamp's head, eyes stark black in white and staring into my soul.
 
-He vanished the moment I blinked. The lamp briefly flickered to dim life in the darkness.
+He vanished the moment I blinked. The lamp briefly flickered to dim light in the darkness.
 
 I really don’t know what that thing was. But I think I gave it something worse than a form... I gave it a name.
 

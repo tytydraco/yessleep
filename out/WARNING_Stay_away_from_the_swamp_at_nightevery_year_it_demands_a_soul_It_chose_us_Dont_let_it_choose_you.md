@@ -80,9 +80,9 @@ He stepped over her and looked around. “Tara? I know you’re in here.”
 
 I bolted out the door. Didn’t care that I couldn’t see. I made it five yards before he tackled me into the mud.
 
-“You think you’re getting away from this?” he growled. “You think anyone gives a fuck about you?”
+“You think you’re getting away from this?” he growled as he kicked me in the stomach. He grabbed my throat and squeezed. “You think anyone gives a fuck about you?”
 
-But someone was.
+But someone did.
 
 From behind us, there was a groaning sound like trees bending under centuries of weight. Carter turned, still on top of me. The girl from the shack stood in the doorway—but she was changing.
 
@@ -96,15 +96,15 @@ Her mouth stretched, split open in four directions, and out of it came a word no
 
 She descended on him like wrath itself. His screams turned to gurgles as his head came free from his neck. She held it in her hands and wept—not for him, but for what he reminded her of.
 
-I was frozen, covered in Carter’s blood. When she turned to me, I thought she might finish the job, but she slowly transformed back into the young woman again. Still holding Carter’s head, she knelt beside me and whispered something I’ll never forget.
+I was frozen in fear, covered in Carter’s blood. When she turned to me, I thought she might finish the job, but she slowly transformed back into the young woman again. Still holding Carter’s head, she knelt beside me and whispered something I’ll never forget.
 
 “Be careful who you follow into the darkness,” she said. “Some people were born with the swamp inside them.”
 
-This was Polly. She pointed toward a trail of dry stones that hadn't been there a moment before. With a grin of sanity long surrendered, she smiled at me. I felt her pain, her sorrow, and her warning hit me like a sobering slap. I shuddered. She dropped Carter’s head and it rolled down an embankment, as she tenderly put her hand on top of mine. 
+This was Polly. She pointed toward a trail of dry stones that hadn't been there a moment before. With a grin of sanity long surrendered, she smiled at me. I felt her pain, her sorrow, and her warning hit me like a sobering slap. I shuddered. She dropped Carter’s head and it rolled down an embankment, as she tenderly put her hand on top of mine.
 
 At that moment I felt something akin to the static shocks I used to make with my socks on my grandma’s carpet when I was little.
 
-“You’re not like them,” she said softly, brushing hair from my face. “But you would’ve been, if you stayed.  Never forget that. Now go. Walk. Far from here. Never come back.” 
+“You’re not like them,” she said softly, brushing hair from my face. “But you would’ve been, if you stayed.  Never forget that. Now go. Walk. Far from here. Never come back.”
 
 I did. I walked until I saw stars, until the air no longer smelled like decay, until the forest was behind me. I grabbed the money from the car and kept walking.
 
