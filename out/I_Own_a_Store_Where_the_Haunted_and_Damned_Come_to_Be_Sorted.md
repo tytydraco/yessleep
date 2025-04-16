@@ -192,7 +192,7 @@ Oh, how the entity laughed.
 
 Oh, how I died a little inside.
 
-It had attached to his skull somehow. And the whole night it took me to cleave the man’s head apart. For days, the carrion beetles I purchased ate away at the flesh stuck in all the little crevices of his skull. I made the rest of his body disappear. I cleaned up the sticky pools blood. That oppressive cloud of static never left my side. Never stopped writhing with glee in the corner od my sjop. 
+It had attached to his skull somehow. And the whole night it took me to cleave the man’s head apart. For days, the carrion beetles I purchased ate away at the flesh stuck in all the little crevices of his skull. I made the rest of his body disappear. I cleaned up the sticky pools blood. That oppressive cloud of static never left my side. Never stopped writhing with glee in the corner of my shop. 
 
 It didn’t care that it would be imprisoned in eternities of agony. Because it was going to make me pay dearly for the opportunity.
 
