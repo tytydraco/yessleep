@@ -10,13 +10,13 @@ Then, I blinked.
 
 The various noises of the party seemed to blend together into a writhing mass of sound, twisting and distorting until it was eventually refined into a high-pitched ringing.
 
-My eyelids reopened to a quiet hospital room in the middle of the night. The transition was nauseatingly instantaneous. I went from believing I was thirty-nine with a wife and a kid back to being in alone in my late twenties, exactly as I was before the stroke.
+My eyelids reopened to a quiet hospital room in the middle of the night. The transition was nauseatingly instantaneous. I went from believing I was thirty-nine with a wife and a kid back to being alone in my late twenties, exactly as I was before the stroke.
 
 A few dozen panic attacks later, I started to get a handle on the situation.
 
 Now, I recognize this is not the note these types of online anecdotes normally start on. The ones I've read ease you in gradually. They savor a few morsels of the uncanny foreplay before the main event. An intriguing break in reality here, a whispered unraveling of existence there. It's an exercise in building tension, letting the suspense bubble and fester like fresh roadkill on boiling asphalt, all the while dropping a few not-so-subtle hints about what’s *really* happening.
 
-Then, the author experiences a moment of clarity, followed by the climatic epiphany. A revelation as existentially terrifying as it is painfully cliché. If you shut your eyes and listen closely when the trick is laid bare, you should be able to hear the distant tapping of M. Night Shyamalan’s keyboard as he begins drafting a new screenplay.
+Then, the author experiences a moment of clarity, followed by the climatic epiphany. A revelation as existentially terrifying as it is painfully cliché. 
 
 *“Oh my god, none of that was real. Ever since the accident, my life has been a lie. I’ve been in a coma since \[****insert time and date of brain injury here****\].”*
 
@@ -38,7 +38,7 @@ Ten years later, my gut doesn’t work too well, and my muscles can’t really g
 
 Because of that, the waking world has become my bad dream. An incomprehensible mess ideas and images that could easily serve as the hallucinatory backbone of a memorable nightmare.
 
-Tiny, empty black holes. Book deals and TedTalks. Unidentifiable, flayed bodies being dragged into an attic. The smell of lavender mixed with sulfur. Tattoos that pulse and breathe. The Angel Eye Killer. My brother's death.
+*Tiny, empty black holes. Book deals and TedTalks. Unidentifiable, flayed bodies being dragged into an attic. The smell of lavender mixed with sulfur. Tattoos that pulse and breathe. The Angel Eye Killer. My brother's death.*
 
 In real time, I thought all these strange things were separate from each other. Unrelated and disarticulated. Recently, however, I've found myself coming to terms with a different notion.
 
@@ -56,7 +56,7 @@ That said, they aren’t reacting to this sentence.
 
 I just paused for a minute. Gave them space to provide a rebuttal. Allowed them the opportunity to inform me they are capable of reading. Nothing. Honestly, if I couldn’t see them in the reflection, I wouldn’t even be sure they were still here. When I’m typing, the room is deafeningly silent, excluding the soft tapping of the keys.
 
-If I stop typing, however, they become agitated. It’s not immediately life-threatening, but it escalates quickly. Their bodies vibrate and rumble like ancient radiators. Guttural, inhuman noises emanate from deep inside their chests. They bite the inside of their cheeks until the mucosa breaks and they pant like dying dogs. Sweat drips, pupils dilate, madness swells. Before they erupt, I type, and slowly, they’ll settle back to their original position standing over me. Watching it calms their godforsaken minds.
+If I stop typing, however, they become agitated. It’s not immediately life-threatening, but it escalates quickly. Their bodies vibrate and rumble like ancient radiators. Guttural, inhuman noises emanate from deep inside their chests. They bite the inside of their cheeks until the mucosa breaks and they pant like dying dogs. Sweat drips, pupils dilate, madness swells. Before they erupt, I type, and slowly, they’ll settle back to their original position standing over me. Watching words appear on-screen calms their godforsaken minds.
 
 Right now, if I really focus, I can detect the faint odor of the dried blood caked on their hands and the fragments of viscera jammed under their fingernails. It’s both metallic and sickly organic, like a handful of moldy quarters.
 
@@ -70,7 +70,7 @@ In the meantime, best to keep typing, I suppose.
 
 No one could tell me why I had the stroke. Nor could anyone explain what exactly had caused me to awaken from the resulting coma three years later. The best my doctors could come up with was *“well, we’ve read about this kind of thing happening*”, as if *that* was supposed to make me feel better about God flicking me off and on like a lamp.
 
-What followed was six months and eight days of grueling rehabilitation. Not just physically grueling, too. The experience was mentally excruciating as well. Every goddamned day, *at least* one person would inquire about my family.
+What followed was six months and eight days of grueling rehabilitation. Not just physically grueling, either. The experience was mentally excruciating as well. Every goddamned day, *at least* one person would inquire about my family.
 
 *“Are they thrilled to have you back? Who should I expect to be visiting, and when are they planning on coming by? Is there anyone I can call on your behalf?”*
 
@@ -98,7 +98,7 @@ What I did to Dave was unforgivable.
 
 ***March, 2015***
 
-As strange as it may sound, if you compare my life before the stroke to my life after the coma, I actually *gained* more than I lost, but that’s only cause I had barely anything to lose in the first place. I mean, really the only valuable thing I had before my brain short-circuited was my career, and that didn’t go anywhere. Thankfully, the medical examiner’s office wasn’t exactly overflowing with applications to fill my position as the county coroner’s assistant in my absence.
+As strange as it may sound, if you compare my life before the stroke to my life after the coma, I actually *gained* more than I lost, but that’s only because I had barely anything to lose in the first place. I mean, really the only valuable thing I had before my brain short-circuited was my career, and that didn’t go anywhere. Thankfully, the medical examiner’s office wasn’t exactly overflowing with applications to fill my position as the county coroner’s assistant in my absence.
 
 But the proverbial cherry-on-top? Meeting Dr. Rendu. That man has been everything to me this last decade: a neurologist, friend, confidant, and literary agent, all wrapped into one bizarre package.
 
@@ -182,7 +182,7 @@ None of the removed eyes have ever been recovered.
 
 Something to note: AEK’s moniker is a little misleading. The media gave him that nickname because the victims were always found in the air, floating like angels, not because the design of the prosthetics held any known religious significance.
 
-*“I heard my next-door neighbor entering the house upstairs before I realized that I wasn’t alone in the cellar. Kneeling in her blood, sobbing, he snuck up behind me and placed his hand on my shoulder. His breathing became harsh and labored, like he was forcing himself to hyperventilate. I didn’t have the bravery to turn around and face him. Didn’t Phil \[Dr. Rendu’s neighbor\] see him?”* (11:49 PM, response to question “***did you get a good look at the man?***”)
+*“I heard my next-door neighbor entering the house upstairs before I realized that Linda and I weren’t alone in the cellar. Kneeling in her blood, sobbing, he snuck up behind me and placed his hand on my shoulder. His breathing became harsh and labored, like he was forcing himself to hyperventilate. I didn’t have the bravery to turn around and face him. Didn’t Phil \[Dr. Rendu’s neighbor\] see him?”* (11:49 PM, response to question “***did you get a good look at the man?***”)
 
 Unfortunately, AEK was in the process of crawling out of a window when the neighbor entered the cellar, with Dr. Rendu curled into the fetal position below his wife.
 
@@ -204,7 +204,7 @@ He pleaded his innocence. Begged me to believe him.
 
 I didn’t.
 
-Two days later, he was killed in a holding cell by the brother of AEK’s second victim. Caved his head in against the concrete floor like a sparrow’s egg.
+Two days later, he was killed in a group holding cell by the brother of AEK’s second victim, who was being held for a DUI at the same time. Caved his head in against the concrete floor like a sparrow’s egg.
 
 One short year after that, my hybrid true-crime/memoir would hit number three on the NY Time’s Best Sellers list. The world had become downright obsessed with AEK, and I shamelessly capitalized on the fad.
 
@@ -216,7 +216,7 @@ What could be better?
 
 Just spotted Dr. Rendu pulling into the hotel parking lot from the window. I hope he brought some heavy-duty tranquilizers. It’s going to take something potent to sedate Emma and Harper. Watching me type keeps them docile - pacifies them so they don't tear me to pieces. I’d rather not continue monologuing indefinitely, though, which is where the chemical restraints come into play.
 
-That said, I want to make something clear: I didn’t need to create this post. I could have just transcribed it all into Microsoft Word. It would have the same placating effect on them. But I’m starting to have my doubt about my mentor, Dr. Rendu. In light of those doubts, the creation of a public record feels like a timely thing to do.
+That said, I want to make something clear: I didn’t need to create this post. I could have just transcribed this all into Microsoft Word. It would have the same placating effect on them. But I’m starting to have my doubt about my mentor, Dr. Rendu. In light of those doubts, the creation of a public record feels like a timely thing to do.
 
 Dr. Rendu told me he has this all under control over the phone. He endorsed that there’s an enormous sum of money to be made of the situation as well. Most importantly, he believes they can be refined, too. Molded into something more human. All it would take is a little patience and a lot of practice.
 
