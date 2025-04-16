@@ -76,7 +76,7 @@ The door opened just a sliver. A pale, glassy eye stared out at me through the c
 
 He was quiet and sounded like he was fearful, but overall, nothing out of the ordinary that I could see. 
 
-“Uh, hi. I’m Shawn. I live below you—unit 5B. I think something might be coming through the vents — like spores or smoke or something? It’s starting to affect my place and I think it’s coming from…your place.”
+“Uh, hi. I’m Shawn. I live below you—unit 5B. I think something might be coming through the vents — like spores or smoke or something? It’s starting to affect my place.”
 
 There was an awkward silence on his end. Nothing out of the ordinary for me; I thrive in silence and respect silent and introverted people. 
 
@@ -179,7 +179,7 @@ I scrambled toward the gun. He grabbed my ankle, trying to drag me back, but I k
 
 When I was close to grabbing the gun, he tackled me again, and he pulled me up by my collar, and we slammed into the wall. 
 
-He slammed my head so hard I thought I saw stars. My back was against the wall, and I could see from his face a very angry and possessed-looking Luke. 
+He slammed my head so hard I thought I saw stars. My back was against the wall, and I could see from within the darkness and blonde hair, a very angry and possessed Luke. 
 
 "Luke?" I choked out. "What the hell—?"
 
@@ -195,12 +195,9 @@ I stood over him, panting, gun raised, every nerve on fire. Blood smeared the wo
 
 “Luke—what the hell are you doing in my apartment?!” I demanded.
 
-He looked up at me, his face pale and twitching.
-"Luke," I said again, "what were you doing in my apartment?"
+He was silent for a long, choking second.
 
-He was silent for a long, choking second. Then something changed in his expression — the madness drained, replaced by something far more human.
-
-Terror.
+Then his face shifted. From what used to be anger was now shifting to terror. 
 
 His pupils widened, and he stuttered. 
 
@@ -239,10 +236,10 @@ And I eventually gave up.
 
 Now, I am alone in my apartment. I like being alone, that’s why I moved to this complex. I can see something staring at me from the corner of my living room. 
 
-A tall, pale, slender woman with white petals and poisonous spores coming out of her. 
+A tall, pale, slender woman with white Datura petals and spores coming out of her petals and investing my apartment. 
 
 She talks to me. 
 
 And I am deeply afraid of her.
 
-She tells me that Luke was useless to her, but I now have a chance to prove to her my worth. 
+She tells me that Luke was useless to her, but I now have a chance to prove to her my worth.
