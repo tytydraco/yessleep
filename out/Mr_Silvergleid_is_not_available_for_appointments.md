@@ -32,7 +32,7 @@ The door to the outside swings open.
 
 This is both unexpected and largely unprecedented.  I have by now been in Mr. Silvergleid’s employment for almost three weeks, and our association has settled into a predictable routine.  I arrive shortly before ten, put on a pot of coffee, and greet Mr. Silvergleid as he bustles in and closes his office door gently behind him.  Four hours later, he emerges and hands me a crisp stack of bills as he bids me good night.
 
-In the interim, I am free to pursue whatever avenues of inquiries suggest themselves, so long as the coffee remains hot and the stationary stacked high.
+In the interim, I am free to pursue whatever avenues of inquiry suggest themselves, so long as the coffee remains hot and the stationary stacked high.
 
 Our cozy arrangement has been interrupted only twice – once by a gentleman in a sleeveless shirt who wishes to ascertain whether this is Nasty Boy’s joint, and a second time by a dark-haired beauty whom I recognize immediately from the photograph on Mr. Silvergleid’s desk.  She offers a cheery wave and deposits on my desk a large plate covered in foil.
 
@@ -68,9 +68,11 @@ To say that these remarks throw me off-balance would be putting it mildly.  Deac
 
 Deacon Keyhole does not answer.  And when the silence stretches too long and I look up, the office is empty.
 
-I am seized with alarm.  The outer door remains closed; deacon Keyhole must have taken advantage of my preoccupation to sneak past me into Mr. Silvergleid’s office.  My employer will doubtless be displeased, and I will lose a job which has provided me with both quiet study time and a growing bank balance.  I lurch from my chair and rip open the inner door to Mr. Silvergleid’s sanctum, a hasty apology already forming on my lips.
+I am seized with alarm.  The outer door remains closed; deacon Keyhole must have taken advantage of my preoccupation to sneak past me into Mr. Silvergleid’s office.  My employer will doubtless be displeased, and I will lose a job which has provided me with both quiet study time and a growing bank balance.  
 
-Mr. Silvergleid is at his desk, writing, undisturbed.  He looks up with mild concern.  "Everything all right, kid?"  He is, as ever, alone.
+I lurch from my chair and rip open the inner door to Mr. Silvergleid’s sanctum, a hasty apology already forming on my lips.
+
+Mr. Silvergleid is at his desk, writing, undisturbed.  He looks up with mild concern.  "Everything all right, kid?" 
 
 I blink, staring at each corner of the room in turn.  "I – uh – deacon Keyhole – "
 
@@ -158,7 +160,7 @@ I do not.  And before I know it, I have stumbled away from him and out the front
 
 In the parking lot, all is quiet.  There are no alarms, no smoke.  And no fire trucks, of course.  Why would there be?
 
-My battered Dodge Charger sits waiting in the parking lot.  I fumble in my pocket for the keys, still staggering backwards, expecting the firefighter to emerge any moment – to emerge and to show me his eyes.  But he does not – no one does.
+My battered Dodge Charger awaits nearby.  I fumble in my pocket for the keys, still staggering backwards, expecting the firefighter to emerge any moment – to emerge and to show me his eyes.  But he does not – no one does.
 
 And as my hand finds the keys – I realize: *Mr. Silvergleid is still in his office*.
 
@@ -300,13 +302,13 @@ One that now takes place in less than twenty-three minutes.
 
 My hands shake, and I will them to stop.  There is still time.  I can still fix this.
 
-"I must fix this," I say out loud.  And I know it is true.
+"I *must* fix this," I say out loud.  And I know it is true.
 
 I put the hammer down, and the Charger leaps forward into the driving rain.
 
 \_\_\_
 
-I scrape and bounce into the bakery’s parking lot a bare five minutes later, screech to a halt just outside the office and launch myself from the car.  As I scramble into the outer office I am already shouting: "Mr. Silvergleid?  *Mr. Silvergleid!*  I’m so sorry – I made a mistake – you have to – "
+I scrape and bounce into the bakery’s parking lot a bare five minutes later, screech to a halt just outside the office, and launch myself from the car.  As I scramble into the outer office I am already shouting: "Mr. Silvergleid?  *Mr. Silvergleid!*  I’m so sorry – I made a mistake – you have to – "
 
 And I stop short, as Mrs. Silvergleid stares at me nonplussed from the visitor’s chair.  On my desk in front of her sits a plate of muffins.  She stands, her beautiful face creased with concern.  "Nathan?  Whatever’s the matter?  You look like – "
 
@@ -382,6 +384,6 @@ And do you know what, dear reader?  He is entirely right.
 
 This is, perhaps, a good time to wrap this tale up.  I am about to head out on a very special assignment for Mr. Silvergleid, and I do not yet know exactly when I will return.
 
-In the meantime, I want to thank you for allowing me to get all of this off my chest.  It has been immensely helpful, and I want to close by recommending that you too find a trusted friend to unburden yourself to.  Give that person a call, and set a time to meet and talk through whatever is ailing you.
+In the meantime, I want to thank you for allowing me to get all of this off my chest.  It has been immensely helpful, and I want to close by recommending that you too find a trusted friend to whom you can unburden yourself.  Give that person a call, and set a time to meet and talk through whatever is ailing you.
 
 Your call should not, however, be to Mr. Silvergleid.  He is not available for appointments.
