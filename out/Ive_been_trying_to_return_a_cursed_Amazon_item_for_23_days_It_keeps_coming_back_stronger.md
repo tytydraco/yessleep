@@ -1,4 +1,3 @@
-
 It started 23 days ago. A package arrived on my doorstep, slapped with an Amazon logo but no Prime tape, no branding, just plain brown cardboard. I order stuff constantly: late-night impulse buys, weird gadgets from algorithm recommendations, half-conscious browsing at 3 a.m. But this time, I hadn’t ordered anything. I scoured my emails, my order history, my cart. Nothing. Not a trace.
 
 The box looked wrong. A fragile sticker, yellowed and curling, seemed like it belonged on a crate from the 1940s. The shipping label was handwritten in jet-black ink, my full name spelled perfectly, but the letters were jagged, like whoever wrote it was trembling or hadn’t held a pen in centuries. The delivery date? March 3, 1903. I laughed, a nervous chuckle, thinking it was a prank. Maybe a friend messing with me. But my social circle is small, and nobody I know would go this far.
