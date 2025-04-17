@@ -10,6 +10,8 @@ Then, I blinked.
 
 The various noises of the party seemed to blend together into a writhing mass of sound, twisting and distorting until it was eventually refined into a high-pitched ringing.
 
+Silence: as quickly as it came, the ringing was gone.
+
 My eyelids reopened to a quiet hospital room in the middle of the night. The transition was nauseatingly instantaneous. I went from believing I was thirty-nine with a wife and a kid back to being alone in my late twenties, exactly as I was before the stroke.
 
 A few dozen panic attacks later, I started to get a handle on the situation.
