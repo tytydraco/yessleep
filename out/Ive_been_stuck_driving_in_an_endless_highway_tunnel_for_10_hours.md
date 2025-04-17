@@ -143,3 +143,5 @@ I’m freaking out. I’m so thankful I bought these cigarettes. 
 If anyone has any idea how I can get out of this, please tell me. I’ll try anything. 
 
 If anything else happens in here, I’ll keep you updated. I pray to God this posts.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1k0zuhn/ive_been_stuck_driving_in_an_endless_highway/)
