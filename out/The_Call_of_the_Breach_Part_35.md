@@ -1,5 +1,7 @@
 [\[Part 34\]](https://www.reddit.com/user/RandomAppalachian468/comments/1jen20y/the_call_of_the_breach_part_34/)
 
+[\[Part 36\]](https://www.reddit.com/user/RandomAppalachian468/comments/1k1400r/the_call_of_the_breach_part_36/)
+
 *Snap.*
 
 Overhead, the braided steel zipline cable gave as the Oak Walker strode forward, breaking the anchor bolt free of the tower with its broad wooden chest. The rusted metal line ripped a narrow path of destruction as it tore out of the tower room, smashing pedestals and scattering trinkets everywhere. With more wind pouring into the gouged-out tower, the flames leaped higher, feeding on the dry vines with a voracious appetite. The heat reached near-searing levels of intensity, and I dragged myself behind a scorched partition just to evade the flames.
