@@ -1,6 +1,4 @@
-[Previous](https://www.reddit.com/r/nosleep/comments/1jzwfcg/candle_wax_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
-
+[Previous](https://www.reddit.com/r/nosleep/comments/1jzwfcg/candle_wax_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Next](https://www.reddit.com/r/nosleep/comments/1k1j013/candle_wax_part_4/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 “Get the guys down here to the woods by Greenwood.” Gray instructed into his cell phone as I leaned against his car, still unable to wrap my head around what I saw in those trees.
 
@@ -202,7 +200,7 @@ She held her hand out flat over top of the candle’s flame and took a few deep 
 
  
 
-[“Candle Caine walks in the candle light. Can’t wear skin, it is far too tight.]()
+“Candle Caine walks in the candle light. Can’t wear skin, it is far too tight.
 
 He makes no sound, he leaves no tracks. Candle Caine lives in the candle wax.
 
