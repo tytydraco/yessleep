@@ -146,3 +146,7 @@ I don't know what to do.
 So yeah. I'm on my bed. Typing this out. I had a good night's sleep and I'm calling in sick today because I need to figure this out. Does anyone have information regarding where I could be. What's happening. And why only I seem to be noticing?
 
 Please help me
+
+Edit: It's the next day. Quite a bit has happened...
+
+Here's the post: (https://www.reddit.com/r/nosleep/s/3VzMhJX9j4)

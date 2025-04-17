@@ -322,6 +322,6 @@ Maybe I'll go with Morphine Nessa's brilliant suggestion to get a hook. Arrrrg, 
 
 **Update 2:** My hospital bill was completely paid for by an anonymous donor. I'm not entirely certain who is responsible for this generous deed. Considering that my bill was horrific, I won't look this particular gift horse in the mouth for now. I'm not going to say how much. Just know that there were a painful amount of zeros behind the [eight.](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD) 
  
-
+Update 3: [A tower appeared in the woods. ](https://www.reddit.com/r/nosleep/s/gPmHr3l39G)
 
 
