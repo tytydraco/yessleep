@@ -1,4 +1,7 @@
   
+EDIT - I can see this post is being shared but not interacted with in any way, could someone explain this? 
+
+
 I'm thinking of buying one of them E-Bikes, apparently *isn't* the right response when your friend that you see quarterly when he's back in town, is telling you about the criminal amount of insurance he's paying as a new driver.  What the fuck do I know right? It happens slowly, your friend's outgrowing you financially. I salute them, they did the right things after all. Although I have a sneaking suspicion that somewhere along the line they were let into some secret fast track that wasn't afforded to me.
 
 
