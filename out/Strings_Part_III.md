@@ -229,3 +229,5 @@ When I was sure I had made a safe enough perimeter, I contacted Logan. I advised
 We have a way to defend ourselves. Now we need to form a plan. Some way to end the Kinseys. We need to find a way to Tinsdale. We need answers. Hopefully this can be over soon.
 
 I’ll post again soon. In the meantime, stay safe.
+
+Update: [https://www.reddit.com/r/nosleep/comments/1k1u84g/strings\_iv/](https://www.reddit.com/r/nosleep/comments/1k1u84g/strings_iv/)
