@@ -314,4 +314,4 @@ Her attention turned to me and her eyes filled with fear. Her legs began to shak
 
 I watched her as she was hoisted into the air and disappeared behind the fence. I collapsed to the ground as anxiety filled in my chest. I had just missed an entire class, and almost got a kid killed. I feared what would happen next, but to my surprise, I was never called back inside, nobody came to get me in trouble, and when I made it home, relief washed over me when I smelt the dinner in the oven.
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/1jykt4u/i_met_her_beneath_the_willow_tree_little_did_i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 4](https://www.reddit.com/r/nosleep/s/8Mz2Vz4uVt)
