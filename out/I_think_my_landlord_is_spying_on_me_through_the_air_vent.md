@@ -1,6 +1,6 @@
 I'll start this story by saying I really needed a place to live.
 
-And not like the "I want the new iPhone" kind of need—more like the "I live in my car and shower at a gym" kind.
+And not like the "*I want the new iPhone*" kind of need—more like the "*I live in my car and shower at a gym*" kind.
 
 I'm telling you this so you won’t find it weird that I was willing to rent any place available—the cheaper, the better.
 
@@ -20,15 +20,15 @@ I loved it. Definitely an upgrade from my nissan.
 
 I made an offer on the spot—15% below the already low asking price—and to my surprise, she accepted immediately.
 
-"You can move in right away," she said slowly with a crooked half-smile. 
+"You can move in right away," she said slowly with a crooked half-smile.
 
-And that’s what I did. 
+And that’s what I did.
 
 I finally had a place to call home. She even told me I didn’t need to sign anything at the moment.
 
-***
+\*\*\*
 
-She gave me the keys, and I spent the afternoon fixing the toilet and cleaning out the cobwebs and dust. I couldn’t figure out the window, though. 
+She gave me the keys, and I spent the afternoon fixing the toilet and cleaning out the cobwebs and dust. I couldn’t figure out the window, though.
 
 I took my first shower under my new roof—so happy I could have cried—then got ready for bed on that old mattress, now covered with sheets I’d stolen from my parents’ house a few years ago.
 
@@ -42,13 +42,13 @@ I fell asleep like a rock, exhausted from the day’s work, but woke up sometime
 
 I took the opportunity to take a leak and went back to bed. And just as I settled in, I heard it again—this time from the wall, near the air vent. Something moved in there, I was sure of it, then it stopped.
 
-Thought it was a rat. Not great, but manageable. 
+Thought it was a rat. Not great, but manageable.
 
 Just as I was about to fall asleep again, I heard it once more.
 
 And this time I knew exactly where to look: the air vent.
 
-From my bed in the dark, staring through the white slats of the vent, I could clearly see two white points. 
+From my bed in the dark, staring through the white slats of the vent, I could clearly see two white points.
 
 Eyes. They looked like eyes.
 
@@ -60,7 +60,7 @@ I tried to get back to sleep but couldn’t fully relax.
 
 My brain kept circling back to one strange detail. Those eyes-things I saw... they looked just like the landlord’s. Bulging.
 
-***
+\*\*\*
 
 The following morning, I was still unsettled.
 
@@ -104,8 +104,6 @@ As I was exiting the building, the janitor was handling some mail by the entranc
 
 He told me no one had lived there for almost a year.
 
-***
-
 That day’s work was long and exhausting, but it distracted me for a while. Still, between rides, I kept checking my phone to see if Gina had found anything. She kept replying she could only dig deeper after her swim lesson.
 
 I ate a hot dog for dinner and headed home.
@@ -138,9 +136,9 @@ My face went pale. I just stared at it, frozen.
 
 I didn’t respond. I felt something else and tore further into the mattress.
 
-And there it was. Half a head, which I assumed was where the ear had come from. 
+And there it was. Half a head, which I assumed was where the ear had come from.
 
-An older man’s head—mustached, its skin gray and sunken. There were clear bite marks in what was left of his face and neck. 
+An older man’s head—mustached, its skin gray and sunken. There were clear bite marks in what was left of his face and neck.
 
 As I held it in my hands, something in me told me this probably was Mr. Garcia.
 
@@ -148,7 +146,7 @@ But then who the hell is that woman?
 
 While I was catching my breath to answer Gina, I heard a knock on the door.
 
-***
+\*\*\*
 
 “Uncle?” Gina said on the other end, concerned by my silence.
 
@@ -168,7 +166,7 @@ At that moment, the door gave in. A heavy slam sent the doorknob flying across t
 
 And then I saw her—those bulging eyes—peeking through the door frame. But not on the 5'4" the landlord had just yesterday.
 
-The… thing at the door was so large it had to bend its long, thin legs to fit through the doorway. Its limbs were grotesquely stretched, arms hanging unnaturally low, fingers twitching slightly, as if reaching for something. Its skin was sickly pale—almost translucent. 
+The… thing at the door was so large it had to bend its long, thin legs to fit through the doorway. Its limbs were grotesquely stretched, arms hanging unnaturally low, fingers twitching slightly, as if reaching for something. Its skin was sickly pale—almost translucent.
 
 And her face had completely changed. Angular and sharp, with a jutting jaw and hollow cheeks. It felt like the skull of a starving animal. Eyes wide and fixed, and the way it held its head—tilted slightly, as if gauging the best way to strike—reminded me of a predator sizing up its prey.
 
@@ -176,7 +174,7 @@ I backed away slowly.
 
 My hand brushed the half-head I still held, and I glanced at the jammed window, caught in the corner of my eye.
 
-Without thinking, I grabbed the head and hurled it at the window with everything I had. The glass cracked loud and sharp. 
+Without thinking, I grabbed the head and hurled it at the window with everything I had. The glass cracked loud and sharp.
 
 The creature’s head snapped toward the sound. Then it moved—fast.
 
@@ -187,8 +185,6 @@ I launched myself through the opening with everything I had, glass cutting my ar
 The apartment was on the third floor, and the fall felt so fast; all I remember is seeing the parked car I crashed onto.
 
 And then it all went dark.
-
-***
 
 The following days were incredibly tough for me. And still are, because I’m writing this at the hospital, yet in recovery.
 
@@ -202,7 +198,7 @@ Even my father, whom I hadn’t spoken to in two years, spent a few nights with 
 
 But what I really needed were answers—and the police didn’t give me many.
 
-By the time they arrived at the apartment, there was no one there. The landlord was gone, somehow, and not a single trace of her was left behind. 
+By the time they arrived at the apartment, there was no one there. The landlord was gone, somehow, and not a single trace of her was left behind.
 
 No one saw her leave, and neither did the building’s security cameras. It was as if she had vanished into thin air.
 
@@ -212,9 +208,6 @@ Whatever investigation is being carried out, I am left in the dark, which only m
 
 Every night in the hospital is a torture. I lie awake for hours, staring at the door—or the air vent on the wall—waiting for it to come back and finish what it started.
 
-And then there's this new nurse who’s been coming to check on me since the beginning of the week. She seems normal—young, and I dare say, kind of pretty. But there’s something off about her. 
+And then there's this new nurse who’s been coming to check on me since the beginning of the week. She seems normal—young, and I dare say, kind of pretty. But there’s something off about her.
 
 Her eyes… they’re wide and dark. Different. Bulging.
-
-
-

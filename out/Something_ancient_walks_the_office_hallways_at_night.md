@@ -1,3 +1,5 @@
+Link to [part 2](https://www.reddit.com/r/nosleep/comments/1k26wjy/others_in_my_office_building_have_seen_it_too_and/)
+
 I’m not sure if this is the right place for this, but I need to get it off my chest.
 
 I work in an office building in Denmark, and something happened to me last winter that I’ve never been able to explain. I’ve always been a skeptic — the kind of guy who rolls his eyes at ghost stories — but this experience left a mark on me.
@@ -5,8 +7,6 @@ I work in an office building in Denmark, and something happened to me last winte
 Since then, I’ve heard whispers from others in the building. A few coworkers have mentioned strange sounds, unexplained power outages, and that feeling of being watched when no one else is around. I haven’t told them what I saw — not yet — but I’m considering asking around.
 
 If this post gets any interest, I’ll try to collect their stories too. For now, here’s mine.
-
-
 
 I’m Danish, and I’ve always considered myself rational — maybe *too* rational. I don’t believe in ghosts, spirits, or the supernatural. That stuff always felt childish to me. Scandinavian folklore, with all its trolls and forest spirits and shadow creatures? Interesting, sure, but fiction. Fairytales for long winters.
 
