@@ -1,0 +1,27 @@
+I think my neighbor is trying to kill me. I can’t quite prove it, it’s a feeling in my spine, but there are also signs. Incongruities linger, threats echo from just beyond the boundaries of intelligibility, murmurs under the breath and fleeting glances from the stormy ambiguity of their erraticism.
+
+It began three years ago, when I first moved in. I sensed a shadow lurking through my wall, but could not give it name or form. A rumbling or a shuffling at the very edge of perception that stopped suddenly whenever I tried to ensnare it firmly in the grasp of my direct focus, as if it sensed my awareness. It was as though a presence, barely beyond the limits of my perspective, had only just been moving, stalking, following, preying, only to freeze and stare fixedly from the edge of the tall grass, having sensed the sudden erection of my own anxious guard. 
+
+Their perpetual absence was itself a threat. That we never crossed paths despite sharing so many common routes led me to begin to believe I was being so assiduously avoided I could only be being followed. To know my movements so well as to perfectly anticipate and negate them was surely to have studied them. Only my own shadow ever followed me so closely.
+
+In time, I began to observe more keenly: the muffled sounds of their comings and goings. The scrape and thud of a heavy load being dragged across the floor. Jarring traces of manic laughter, quickly suppressed, leaking in through a cracked window, rippling the still evening air, insidious thumps and murmurs drifting through the drywall.
+
+These fragments eluded my firm grasp, slipping away into the dissolute void whenever I tried to hold them firmly. Still, traces remained.
+
+Their door would slam shut an instant before I poked my head from my own, as if they had been keenly listening only to flee from the sound of my lock turning. I tried for months to catch them, beginning to creep rather than step across my threshold. I would rip my door open with sudden force, sure I could ambush them, only to find myself facing the same absence, but for an ineffable wake in the aether, the only sign of their momentary passing.
+
+To hover so close to invisibility while still remaining undeniably present rendered them a gapping void, an abyss, a singular object and phantom haunting the boundary of my reality. 
+
+And still, I listened, ever more closely. I crouched in the corner for hours, bunched against the wall, my ear pressed tight to the plaster and my breathing jagged, gasping between long held breaths, straining to hear. Alas, my pains were only ever rewarded with an all the more tantalizing elusivity! The baritone cadences and resounding thumps I had once heard gave way to ever fainter traces: ragged, harried whispers and faint shuffles, as though they sensed my surveillance and perpetually retreated, receding forever like a silhouette at dusk, hovering just beyond clear resolution and sight.
+
+I would jump, suddenly, without rhythm, from one side of the room to the other, leaping and whooping in percussive bursts, sure I could startle the creature into revealing itself, but always and inevitably my provocations were met with a more profoundly hushed silence. Indeed, as ever, the harder I strained to see them, to perceive them clearly, the more unresolved and phantasmic they became, receding and retreating in perfect symmetry with my own squinting and straining. 
+
+Only in my own protracted quietus could I properly observe and study my antagonist, learning their habits and strategems. When I held my breath and sat still for days, slowly they would reemerge. A lilting sigh, a creaking step—once, an unmuffled coughing spurt! Had my tormentor grown complacent? I laughed with delighted glee, crowing with the thrill of vindicated mirth, only to hear their spluttering quickly stifled. My shadowy quarry still feared the righteous light of my direct perception it seemed! 
+
+I grew doubly wary now, anticipating their sure retort. We had seen each other clearly now at last, and with the die so cast, there must surely come a crisis and climax of confrontation.
+
+Yet as ever, they slipped away into obscurity. In the weeks that followed, I once again heard only shards and contours of them. I strained myself day and night to perceive them clearly, listening as before and hoping to assemble a clear picture of their practical intentions. I had revealed myself, and a reckoning must surely come. 
+
+As they continued to evade me, I grew ever more fixated, obsessed with the counterstroke I knew must be at hand. I slammed my fist against the wall — “I KNOW YOU’RE THERE!” I shouted, only to be met with the most complete silence I had yet encountered, absolute tension and stillness, like a mouse caught in the light, frozen and coiled. I waited in silence but no response forthcame. 
+
+I have waited since in silence for some sign or hint, a trace of the shufflings and mutterings to reemerge, certain that their patterns must resume. But there has only been silence in the weeks since I revealed myself fully. Howsoever much I have strained and stretched the limits of perception, I can no longer detect them. There is only silence. So I wait now at the wall, threatened by the purity and acuteness of their quietude. Such stillness can only be a prelude, an interbellum. I am sure what comes next must be their fatal blow. So I must wait, and listen, preparing myself. I am waiting and listening.
