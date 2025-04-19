@@ -1,4 +1,4 @@
-Let me clarify something to begin with- we're not devil worshipers-...yet. We believe- my wife and I- that we should be praying a God to begin with. We weren't even sure we believed in the idea of a God in the first place. Until this happened. 
+Let me clarify something to begin with- we're not devil worshipers-...yet. We believe- my wife and I- that we shouldn't be praying a God to begin with. We weren't even sure we believed in the idea of a God in the first place. Until this happened. 
 
 Our beliefs centered around doing what's best for you. Then doing what's best for others. Putting yourself first- that's it- and yes, the devil is a huge symbol in our community of fellow Satanists. Not because we believe in the dude, more-so because the devil represents everything from freedom to rebellion and self pleasure in every aspect of that concept. 
 
@@ -120,7 +120,7 @@ She's branched out. Painting- sketching- sculpting. Remarkable at all of them. U
 
 I will say. She had an eye for the morbid. I've walked in on her clay covered hands- on the large desk stood at the center of her room, there was a still-wet statue of a man. Knelt with both hands to the sky. A cross in his vice grip. And beneath him, lied a mountain of parts. Human- animal, you name it. In exquisite detail. Every last crevice. Only blending into lumps where flesh naturally would in that circumstance. 
 
-Tommy... I'd grown paranoid with. He sleept in our room most nights. 
+Tommy... I'd grown paranoid with. He slept in our room most nights. 
 
 We'd searched the house. We'd search it every day. We'd installed security. And considered asking all of our kids to sleep in our room. Ultimately decided against it. 
 
@@ -156,7 +156,7 @@ But their ours. And we love them. We'll be damned if anything hurts them.
 
 Meek and stood in the shadows of our bedroom. 
 
-I sat up, immediately flicked on the lamp and took I the sight of our daughter. 
+I sat up, immediately flicked on the lamp and took in the sight of our daughter. 
 
 Our fearless. Cold. Morbid daughter- clutching her own body to stop a shiver. 
 
@@ -260,7 +260,7 @@ And the tension lightens into small giggles from all of us.
 
 "Then why...?", Izzy's question trails off. She's unable to finish it for obvious reasons. She hates talking about him. We all do, except for Tommy. 
 
-I gueed her question would be, "then why are they haunting us?"
+I guessed her question would be, "then why are they haunting us?"
 
 To which I'd say, "I don't know honey...".
 
