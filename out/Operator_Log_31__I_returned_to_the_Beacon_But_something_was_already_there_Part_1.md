@@ -1,5 +1,3 @@
-\[DISCLAIMER AT THE END\]
-
 Operator Log #31 – 21 October 2024, 23:57
 
 104.6 FM – Pinehaven Mountain Relay
@@ -603,17 +601,3 @@ The control room vibrates with low‑grade hum, like we’re inside a sleeping b
 We pin a handwritten card above the fader:
 
 \*\*Objective: Break the Pocket — Set Her Free — Remain Loud\*\*
-
-\---
-
-\> \*\*DISCLAIMER\*\*
-
-\> This is a fan-made story inspired by “The First Lonely Broadcast” and its narrations by SleepWell and Wendigoons.
-
-\> I do not own the original concept, characters, or universe.
-
-\> I just deeply love this story and wanted to write a possible continuation as a tribute to the original author (u/The\_Rabbit\_Man), whose work kept me awake at night in the best way possible.
-
-\> If any part of this post needs to be edited or removed, I will respectfully comply.
-
-part 2 soon avaible.
