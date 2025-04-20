@@ -162,7 +162,7 @@ He must have fired six times. Jenna was lying in a pool of blood.
 
 He stepped closer, still aiming at her head.
 
-“Don’t do this, please. I’ll stay still,” she begged—but he pulled the trigger one last time in her head.
+“Don’t do this, please. I’ll stay still,” she begged—but he pulled the trigger one last time.
 
 That’s when my body unfroze, and I collapsed to the floor, gasping for air, sobbing uncontrollably.
 
