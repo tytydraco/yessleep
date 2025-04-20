@@ -662,5 +662,3 @@ I saw him.
 
 Argus.
 
-Part 2:  
-[https://www.reddit.com/r/nosleep/comments/1k3gura/we\_brought\_back\_the\_dire\_wolf\_it\_was\_an/](https://www.reddit.com/r/nosleep/comments/1k3gura/we_brought_back_the_dire_wolf_it_was_an/)
