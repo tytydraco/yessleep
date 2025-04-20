@@ -284,8 +284,6 @@ But deep down, I knew better.
 
 I was on edge the next morning — nerves twitching just under the surface — but I tried to push it down and throw myself into the work. Distraction through productivity, or whatever they say.
 
-
-
 My task was routine, at least on paper: a genomic reconstruction on Argus, one of our more stable dire wolves. The goal was ambitious but straightforward — eliminate the need for surrogate mothers entirely and engineer self-sustaining embryo growth from the genetic level up.
 
 But as I combed through the data, something stopped me cold.
@@ -530,8 +528,6 @@ I stared at the mangled cage.
 
 I shook my head. “I can’t think of anything else that could explain it.” Not sure how much I should disclose about G wing.
 
-
-
 We stood there for a beat—just long enough for dread to fully settle in.
 
 “But we don’t have time to sit here and theorize,” I said. “There’s no telling what kind of chaos that thing could unleash. It MUST be contained. By any means necessary.”
@@ -666,3 +662,5 @@ I saw him.
 
 Argus.
 
+Part 2:  
+[https://www.reddit.com/r/nosleep/comments/1k3gura/we\_brought\_back\_the\_dire\_wolf\_it\_was\_an/](https://www.reddit.com/r/nosleep/comments/1k3gura/we_brought_back_the_dire_wolf_it_was_an/)
