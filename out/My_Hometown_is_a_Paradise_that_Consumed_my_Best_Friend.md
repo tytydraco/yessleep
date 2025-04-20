@@ -71,3 +71,5 @@ I was the only one left, and somehow, I felt more watched than ever. So I left.
 But I still dream about it. I still feel it sometimes, when the night gets too muted, and the skies are too inky. The creak of wood. The whisper of dirt shifting. The pull of something that’s never really let go of me.
 
 And now, decades later, I’ve made the mistake of coming back. I didn’t imagine it would take away more from me. It was calling for me.
+
+Part 3: https://www.reddit.com/r/nosleep/comments/1k3qqdr/my_hometown_was_a_paradise_that_devoured_my/

@@ -61,3 +61,5 @@ The sound that didn’t belong in such a peaceful morning. A banshee’s howl ec
 My father never spoke of the creature again. He never even said Joanne’s name. But I heard him some nights. Whispering. Praying. Sometimes begging. He would talk in his sleep, intelligible mumbles of dread and suffering. I never went near the edge of the forest again. Not for years. Not even when I was older, stronger, or foolish enough. Because Pilar has never forgotten what happened. You see, what happened to Joanne, is just one story. One of many I could tell you. There are others. This place, this beautiful, cursed place—it remembers everything. And if you stay long enough, like I did, so will you.
 
 Part 2: https://www.reddit.com/r/nosleep/comments/1k1q686/my_hometown_is_a_paradise_that_consumed_my_best/
+
+Part 3: https://www.reddit.com/r/nosleep/comments/1k3qqdr/my_hometown_was_a_paradise_that_devoured_my/
