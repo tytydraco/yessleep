@@ -211,3 +211,5 @@ It recognized the number—it was Richele. “You’re right,” she said breath
 I chewed my lip, held my breath.
 
 “It’s coming from the middle of the woods.”
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1k39tc2/emergency_alert_do_not_enter_your_basement_stay/)
