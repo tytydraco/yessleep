@@ -74,7 +74,9 @@ She still wore her fine jewelry, glittering at the throat and wrists. But her bo
 
 Her form shifted as she stood. Soft bones ground against one another, twisting and churning like stone in a mortar bowl beneath the flowing folds of her dress, black and soaked through with darker red. Her eyes never wavered. Two pools of milky white, threaded with vines of crimson, locked tight to mine.
 
-And from that day on, she was my shadow. Most cannot see the revenants that haunt them, the spirits that follow close in the still hours of the night. I’ve always been different in that way. Perhaps that’s why I was chosen to be a shopkeeper’s apprentice.
+And from that day on, she was my shadow. 
+
+Most cannot see the revenants that haunt them outright, they can usually only see their manifestations. I’ve always been different in that way. Perhaps that’s why I was chosen to be a shopkeeper’s apprentice.
 
 I tried to throw the bracelet away. I couldn’t even sell it. No one would buy such a fine thing from a filthy street boy. They’d ask questions, call for the constables.
 
@@ -132,7 +134,7 @@ I was horrified to see what clambered in behind him. Dozens of them. An amalgama
 
 I could sense it right away. Many spirits stitched into one. The thing behind him rambled in ten tongues, all spitting and biting at the air.
 
-“I destroyed their vessel,” he said. “The jewelry box. Incinerated it in an iron crucible. It could never come back. I broke into a steel mill to do it.”
+“I destroyed their vessel,” he said. “The jewelry box. Incinerated it in an iron crucible. It could never come back. I broke into a steel mill to do the deed.”
 
 His voice was far away, like it was being spoken through layers of fog.
 
@@ -211,13 +213,13 @@ We have a sort of no-touching policy. He will sit on my lap, but he will strike 
 
 I brought up Ramses to the totem that houses the spirits of the former shopkeepers. They chortled and laughed, offered such useful advice as, “Feed him a sprinkle of tuna,” and, “Damned if I’d know.”
 
-Whatever was done to this poor beast must have been something awful. He carries it with him like an iron barbell.
+Whatever was done to this poor beast must have been something awful. He carries it with him like he’s dragging behind him an iron barbell.
 
 The appearance of him scared me at first. The damage done to him in life had been so profound, it broke even his spiritual form nearly beyond repair. An anomaly among the scant animal spirits I’ve encountered.
 
 Ramses is a thing plated in overlapping fish-like scales. He watches blankly behind unknowing eyes, slitted diagonally like a snake’s. Puckered things, swollen from sockets high up on his head. Rows of mismatched, curved teeth fill his mouth.
 
-Hairless still, but more amphibious than he must have been in life.
+Hairless still, but decidedly more amphibious than he must have been in life.
 
 I offered him treats of the kind a spiritual being can taste. He offered me claws and teeth in return, then ate the treats once I’d retreated far enough away.
 
