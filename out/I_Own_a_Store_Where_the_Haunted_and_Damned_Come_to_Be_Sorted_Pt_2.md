@@ -233,7 +233,7 @@ I purchased him a soft bed, yet he always chooses my lap. The bed has grown dust
 
 He has even started purring. I’m unsure if it’s from comfort, or simply the joy of ownership. Because make no mistake, I belong to him now.
 
-Despite being rough around the edges, I’ve fallen into a quiet rhythm with him as I sit behind the counter. I spin my yarns with Ramses during the quiet hours. He is bad at many things, but being a dutiful listener he is not.
+Despite being rough around the edges, I’ve fallen into a quiet rhythm with him as I sit behind the counter. I spin my yarns with Ramses during the quiet hours. He is bad at many things, but he is a dutiful listener.
 
 I often stay frozen with him perched on me like some kind of tamed iguana until my legs prickle with pins and needles. Because I’ve learned the wrath of a de-lapped Ramses is not something I would wish on my worst enemy.
 

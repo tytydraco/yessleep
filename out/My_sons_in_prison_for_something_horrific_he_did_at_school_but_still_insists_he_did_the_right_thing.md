@@ -136,7 +136,7 @@ Her face was blank. Robotic. Emotionless.
 
 She took a few steps toward me.
 
-“I don’t know what Adam told you or what he left behind,” she said, voice flat. “But I can’t let you keep it.”
+“I don’t know what Adam told you or what he left behind as evidence,” she said, voice flat. “But I can’t let you keep it.”
 
 Then her eyes turned white, just like the three kids in the picture. 
 
@@ -154,11 +154,11 @@ She raised her hands, and her fingers began to shift—turning into blades, thic
 
 That’s when I heard the gunshots.
 
-Multiple. Quick. Jenna collapsed in front of me, riddled with bullets.
+Multiple and quick. If I could I would've closed my eyes shut, but I saw Jenna collapse in front of me, riddled with bullets.
 
 The man from the black car—the same guard who had stood with Adam—was behind her, holding a gun, his eyes locked on her body.
 
-He must have fired six times. Jenna was lying in a pool of blood.
+He must have fired half a dozen rounds because Jenna was lying in a pool of blood.
 
 He stepped closer, still aiming at her head.
 
