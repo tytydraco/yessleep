@@ -288,7 +288,7 @@ Curiosity got the better of me one night.
 
 I looked up my dad on Facebook.
 
-He had a new wife. Two daughters.
+He has a new wife. Two daughters.
 
 A big smile on his face.
 
