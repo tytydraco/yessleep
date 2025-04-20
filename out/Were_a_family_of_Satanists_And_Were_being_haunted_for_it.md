@@ -339,3 +339,5 @@ All eyes fall on me.
 I take a shuttering breath. Knowing there's a line of no return. And we might just have to cross it. 
 
 "...I have an idea"
+
+[part 2](https://www.reddit.com/r/nosleep/s/Zb4xwZ6LKd)
