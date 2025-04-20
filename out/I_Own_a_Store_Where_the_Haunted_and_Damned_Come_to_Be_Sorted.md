@@ -275,3 +275,5 @@ I slid the fire truck in and closed the door after him. He was clapping his hand
 The dumbwaiter disappeared above me, gone into an ethereal, swimming, bright sea I caught only glimmers of.
 
 I don’t know where that path leads. I only know that it is bright and full of joy. A place so much better than here. 
+
+[Part 2](https://www.reddit.com/r/nosleep/s/UqWBEnpIrM)
