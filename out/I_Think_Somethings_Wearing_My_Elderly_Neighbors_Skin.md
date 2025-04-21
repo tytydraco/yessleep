@@ -19,7 +19,7 @@ The door opened and I had to stop myself from wincing. He looked bad compared to
 
 He eyed me up and down, stared at the plastic grocery bags in my hand, then opened the door the rest of the way.
 
-Jack isn’t the warmest of folks, as you can probably surmise. His time in Vietnam sure did a number on him, and the sheer isolation he faced afterward had finished him off. But he reminded me of my wicked old grandpa before he passed away.
+Jack isn’t the warmest of folks, as you can probably surmise. But he reminded me of my wicked old grandpa before he passed away.
 
 And I had a bit of a soft spot for the old liver-spotted bastard.
 

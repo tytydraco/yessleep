@@ -20,7 +20,7 @@ I called my brother. I had no idea what was going on. Maybe my mom had come to v
 
 It’s been getting worse and worse. At night, I can hear footsteps. But when I get up to look for their source, they vanish- leaving me questioning if I really heard anything at all. 
 
-Last night, I woke up around three in the morning to the sound of humming. It was faint-barely audible-but I recognized the melody instantly. It was the lullaby my mom used to sing to me when I was little, the one she hummed when I had nightmares. I froze. It was coming from my bedroom doorway. I couldn’t bring myself to look. I just shut my eyes and lay there, stiff under the covers, trying not to breathe too loudly. Eventually, the sound faded. When I finally worked up the nerve to turn on the light, the room was empty. But the closet door, which I always leave open, was shut.
+A few nights ago, I woke up around three in the morning to the sound of humming. It was faint-barely audible-but I recognized the melody instantly. It was the lullaby my mom used to sing to me when I was little, the one she hummed when I had nightmares. I froze. It was coming from my bedroom doorway. I couldn’t bring myself to look. I just shut my eyes and lay there, stiff under the covers, trying not to breathe too loudly. Eventually, the sound faded. When I finally worked up the nerve to turn on the light, the room was empty. But the closet door, which I always leave open, was shut.
 
 I’ve been calling her during the day, but it’s no use. She either denies any of it, or simply speaks as if nothing was wrong. More often than not, she goes off on tangents that frustrate me to no end. 
 
