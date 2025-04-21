@@ -1,6 +1,4 @@
-[Previous](https://www.reddit.com/r/nosleep/comments/1k0owpb/candle_wax_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
-
+[Previous](https://www.reddit.com/r/nosleep/comments/1k0owpb/candle_wax_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Next](https://www.reddit.com/r/nosleep/comments/1k4ff31/candle_wax_part_5/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 “Well there goes your theory then.” Gray quipped, but with a twist of unease in his voice that he didn’t do well to hide.
 
