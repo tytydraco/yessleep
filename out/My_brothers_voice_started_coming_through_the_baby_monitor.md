@@ -47,3 +47,5 @@ We’re staying at a hotel now. I don’t know who “he” is. I don’t want t
 But tonight, the monitor’s light blinked on again.
 
 And it’s not Caleb’s voice anymore.
+
+[Continued ](https://www.reddit.com/r/nosleep/s/u21wyQsG6J)

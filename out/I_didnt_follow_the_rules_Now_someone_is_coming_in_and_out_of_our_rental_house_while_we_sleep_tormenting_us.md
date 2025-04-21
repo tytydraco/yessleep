@@ -1,12 +1,12 @@
-Looking back, I should have trusted my instinct when I first saw it—*the symbols*. I should have followed the house rules. Now it’s too late, and they’re coming for us.
+I should have trusted my instinct and canceled the reservation when I first saw it—*the symbols*. I should have followed the house rules and never entered that room.
 
 
 
-**Arrival: Three Days Ago**
+••
 
+ 
 
-
-My wife and I reached our vacation rental in Flagstaff, AZ. When we saw the listing, we knew it was “the one” for our long weekend getaway. A small guest house with a private entrance, green space, a deck, and a small backyard tucked against the pines. The house is removed from downtown, yet only a short 15-minute drive to bars and restaurants. Perfect.
+My wife and I reached our vacation rental in the mountains. When we saw the listing, we knew it was “the one” for our long weekend getaway. It was a small guest house with a private entrance, green space, a deck, and a small backyard tucked against the pines. The house is removed from downtown, yet only a short 15-minute drive to bars and restaurants. Perfect.
 
 
 
@@ -46,7 +46,7 @@ I proceeded to the kitchen. On the counter next to the farmhouse sink, a note:
 
 
 
-I paused for a moment and tried to make sense of the demands. I reread the note over and over, but couldn’t shake the feeling that something was wrong. What do the symbols mean? And why would someone go into the woods at night? 
+I paused for a moment and tried to make sense of the demands. I reread the note, but couldn’t shake the feeling that something was wrong. What do the symbols mean? And why would someone go into the woods at night? 
 
 
 
@@ -70,7 +70,7 @@ Only the guest bedroom remained. 
 
 
 
-As I stepped into the spare room, I was suddenly met with a brief, foul stench of wet earth and decay. Before I could pinpoint the source of the repulsive smell, my attention quickly snapped to the back of the room. 
+As I entered the spare room, I was suddenly met with the foul stench of wet earth and decay. Before I could pinpoint the source of the repulsive smell, my attention quickly snapped to the back of the room. 
 
 
 
@@ -86,11 +86,7 @@ In the distance, another house nestled deeply into the woods was visible.  It h
 
 
 
-The slate colored dwelling almost looked like it was alive, feeding on the forest. 
-
-
-
-Stalking *this* house with its single lit-up eye. 
+The slate colored dwelling almost looked like it was alive, feeding on the forest. Stalking *this* house with its single lit-up eye. 
 
 
 
@@ -130,19 +126,11 @@ She would have demanded that we cancel and find another place. I pulled myself a
 
 
 
-**Night One**
+That night, without warning, I woke up abruptly. Three sounds reverberated from somewhere *inside* the house. The first sound was sharp, the second dull and drawn out, the last *booming*.
 
 
 
-Without warning, I woke up abruptly. Three sounds reverberated from somewhere *inside* the house. 
-
-
-
-The first sound was sharp, the second dull and drawn out, the last *booming***.**
-
-
-
-Knock. *Draaaagg…* ***BAAANGGG!!***
+Knock. *Draaaagg…* *BAAANGGG!!*
 
 
 
@@ -150,11 +138,7 @@ I looked anxiously at the clock: 2:17 am. 
 
 
 
-I grabbed my phone and pocket knife from the nightstand, quietly slipped out of bed, and began to search the house. As I moved between rooms, the floorboards moaned, aching from old age. 
-
-
-
-The air was still, and I could hear myself breathing heavily. My heart was pounding as I found my way through the dark, unfamiliar home.
+I grabbed my phone and pocket knife from the nightstand, quietly slipped out of bed, and began to search the house. As I moved between rooms, the floorboards moaned, aching from old age. The air was still, and I could hear myself breathing heavily. My heart was pounding as I found my way through the dark, unfamiliar home.
 
 
 
@@ -166,11 +150,7 @@ Shit. 
 
 
 
-I opened the door to survey the backyard. The forest was pitch black now. Even the house deep in the woods was blanketed in darkness, the window no longer lit.
-
-
-
-I let out a deep sigh of relief, stepped back inside, and locked the door tightly.
+I opened the door to survey the backyard. The forest was pitch black now. Even the house deep in the woods was blanketed in darkness, the window no longer lit. I let out a deep sigh of relief, stepped back inside, and locked the door tightly.
 
 
 
@@ -178,7 +158,7 @@ I let out a deep sigh of relief, stepped back inside, and locked the door tightl
 
 
 
-***“The house is old. Pipes will make noise. Don’t be alarmed.”***
+*“The house is old. Pipes will make noise. Don’t be alarmed.”*
 
 
 
@@ -186,11 +166,7 @@ I let out a deep sigh of relief, stepped back inside, and locked the door tightl
 
 
 
-**Night Two**
-
-
-
-It was a little after 11:30 pm. We had just finished watching a movie and were ready to call it a night. This time, I double-checked both external doors. After the first day, I wasn’t taking any chances. 
+The next evening, a little after 11:30 pm. We had just finished watching a movie and were ready to call it a night. This time, I double-checked both external doors. After the first day, I wasn’t taking any chances. 
 
 
 
@@ -202,7 +178,7 @@ I started walking toward the guest room. Through the window off the kitchen, I c
 
 
 
-I made my way to the back door. It was gaping open again.
+I made my way to the back door to find it was wide open again.
 
 
 
@@ -228,23 +204,17 @@ I couldn’t see their face, but I could feel them gazing directly at me. Like t
 
 RUN BACK TO THE HOUSE.
 
-  
 
 
-**“*****Don’t enter the woods after 11 pm.”***
+"*Don’t enter the woods after 11 pm.”*
 
-  
 
 
 ••
 
 
 
-**Night Three**
-
-
-
-I was jolted awake: 2:17 am again, exactly. I heard noise from inside the house again, only this time it was long, jagged like teeth, and clawing against walls.
+The next night, I was jolted awake: 2:17 am again. There were noises resonating from inside the house. This time, the sounds were long, jagged like teeth, and clawing against walls.
 
 
 
@@ -252,11 +222,7 @@ Scraatcch. Scraaaaatch.
 
 
 
-Darcy woke up. She looked panicked, pale, as if she’d seen a ghost.
-
-
-
-“Did you hear tha…?”
+Darcy woke up. She looked panicked, pale, as if she’d seen a ghost. “Did you hear tha…?”
 
 
 
@@ -264,17 +230,7 @@ Darcy woke up. She looked panicked, pale, as if she’d seen a ghost.
 
 
 
-The hair on my neck stood straight up, nerves on fire. 
-
-  
-
-
-***“The house is old. Pipes will make noise, don’t be alarmed.”***
-
-  
-
-
-I jumped out of bed, slowly moved into the living room, and passed the kitchen. As I turned the corner, I saw it. The back door was wide open. 
+The hair on my neck stood straight up, nerves on fire. I jumped out of bed, slowly moved into the living room, and passed the kitchen. As I turned the corner, I saw it. The back door was wide open. 
 
 
 
@@ -282,11 +238,7 @@ I jumped out of bed, slowly moved into the living room, and passed the kitchen. 
 
 
 
-I looked at the adjacent wall of the guest room. This time, the closet door was also gaping open. The dresser inside moved to the right, exposing a hole that led to a hidden room. 
-
-
-
-A crawl space that shouldn’t be there. It didn’t fit the layout of the house.
+I looked at the adjacent wall of the guest room. This time, the closet door was also gaping open. The dresser inside moved to the right, exposing a hole that led to a hidden room. A crawl space that shouldn’t be there. It didn’t fit the layout of the house.
 
 
 
@@ -306,14 +258,12 @@ A black box.
 
 
 
-It looked heavy, about 12 inches square. There was a thick liquid seeping from the bottom across the dirt floor. I froze as I further inspected the box. On the upper right corner, two symbols were imprinted in wet ebony paint:
-
-  
+It looked heavy, about 12 inches square. A thick red liquid was seeping from the bottom across the dirt floor. I froze as I further inspected the box. On the upper right corner, two symbols were imprinted in wet ebony paint:
 
 
-**§∆**
 
-  
+§∆
+
 
 
 Suddenly, I heard Darcy dart into the guest room behind me. She sounded panicked.
@@ -324,7 +274,55 @@ Suddenly, I heard Darcy dart into the guest room behind me. She sounded panicked
 
 
 
-“Whatever you do, **do** ***NOT*** **come in here**!”
+“Whatever you do, do *NOT* come in here!”
+
+
+
+“We have to leave\*,\*” I said desperately. “Darcy, pack up our things and get in the car. I'll be right behind you.”
+
+
+
+“What the hell is going on!?”
+
+
+
+“I’ll explain on our way home. Right now, I just need you to trust me. We need to leave… *NOW.*”
+
+
+
+I began to make my way out of the crawl space when I suddenly felt a hand grab my left ankle, dragging me back inside. I tried to kick free, screaming in horror, but its grip was too tight.
+
+
+
+I turned around quickly to see what had me in its clutches.
+
+
+
+It was a woman wearing a cloak. Her long, jet-black hair spewed out from the opening of the hood, covering most of her sunken face. Her arms were long and spindly. Her hands were twisted. Her long nails were sharp, broken, and black.
+
+
+
+She released me as I saw her pull a knife from inside her cloak. She managed to plunge the knife into my shoulder, barely missing vital organs. I could hear her chanting words under her breath. I screamed in horror as she twisted the knife, wrenching it deeper into my flesh. She quickly pulled the blade out as a river of blood ran down my arm.
+
+
+
+If I don't act now, I'm never leaving this house alive.
+
+
+
+I grabbed a handful of dirt from the floor and threw it in her face. She dropped the knife to shield her face and wipe away the earth. This is my chance.
+
+
+
+My heart racing, shoulder throbbing, I crawled as quickly as I could out of the hidden room. I got to my feet and ran out the front door. Darcy had already started the car. Headlights on, ready to escape.
+
+
+
+I  hauled down the long, narrow dirt road away from the house. Darcy was in shock, crying, and I felt overwhelmed with panic. As we continued to descend the driveway, I took one last glance in the rearview mirror at the guest house.
+
+
+
+The front door was now wide open. The *witch* was running out of the house, knife in hand… *running after the car,* *shrieking.* She reached the end of the driveway and abruptly stopped. She was just standing there, staring, as we continued to drive away, the house vanishing from view.
 
 
 
@@ -332,70 +330,18 @@ Suddenly, I heard Darcy dart into the guest room behind me. She sounded panicked
 
 
 
-**Right Now**
+An hour later, Darcy was still understandably distraught. She interrupted the silence.
 
 
 
-I dragged myself out of the crawl space, trying to process what I’d just seen. I felt like I couldn’t breathe. 
+“Wh… why was there a hidden room behind the closet!? Why are you bleeding!?”
 
 
 
-“We have to leave*,*” I said desperately. “Darcy, get your things and get in the car.”
+I didn’t know how to explain what had happened. The witch was *living in the house.* In that secret room. We’d broken her rules.
 
 
 
-“What the hell is going on!? *WHAT WAS THAT*!?”
+§∆
 
-
-
-“I’ll explain on our way home. Right now, I just need you to trust me. We need to leave… ***NOW***”
-
-
-
-We left the room, the back door still open. Darcy started chaotically stuffing our clothes and belongings into our bags while I started the car. I ran back into the house, grabbed everything, and tossed it into the backseat.
-
-
-
-Finally, I began driving down the long, narrow dirt road away from the house. Darcy was in shock, crying. I felt overwhelmed with panic. 
-
-
-
-As we continued to descend the driveway, I took one last glance in the rearview mirror at the guest house.
-
-
-
-The front door was now wide open. 
-
-
-
-I see someone exiting the house… *running after the car,* ***shrieking*****.** 
-
-
-
-They quickly reach the end of the driveway and abruptly stop. Standing there, staring as we continued to drive away, the house vanishing from view.
-
-
-
-••
-
-
-
-An hour later, on the way home, Darcy was still understandably distraught. She had her phone out when she interrupted the silence in the car as she read from her news feed.
-
-
-
-“Police have responded to a call from neighbors who heard screaming in the night. They found a body deep in the woods near an abandoned A-frame. The body was severely burned from a bonfire the night before. A few trees had a mysterious symbol carved into them. This has all the signatures of continued occult activity in the area.”
-
-
-
-She paused for a moment before looking me in the eyes.
-
-
-
-“The body is missing its head.” 
-
-  
-
-
-**§∆**
-
+,
