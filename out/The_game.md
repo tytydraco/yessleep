@@ -33,3 +33,35 @@ His attacker just nodded, caught up in the trajectory of making a clean escape a
 
 The blood from the separated thumb slowly soaking a silver dollar sized hole, like a reverse sponge, staining his back pocket as he left casually but with purpose.
 
+Chapter 2
+The trial 
+As Mr. Jackson continued to drone on about god knows what, she knew why they nicknamed him "grey noise."
+
+The words and sounds that continued to escape his mouth produced an almost sleep-inducing effect, causing her eyes to get heavier and heavier, so that when the pencil fell out of her half-clasped hand, she was almost in between a much-needed sleep but so on edge that even the light resounding thud of the pencil on the grey padded carpet was enough to jar her out of whatever momentary escape she had gone to, 
+
+clinging to the few seconds not caught in a reality as chemically unbalanced as her brain, now in its fourth year of being fed happiness in pill and powder form—the only regret that she hadn’t stumbled onto this form of coping much earlier in her life.
+
+She honestly was miserable, not content with how that feeling felt but without enough hope needed to either pull oneself out or do the only sensible thing and stop the tape.
+
+Fingers crossed that the grand director or whoever is running the show, this show called life, has a sense of humor and will allow for non-positive feedback.
+
+Lately, she felt completely numb, and not just a side effect of the opiates, uppers, and highly alcoholinated mouthwashes, not even concerned that before a new mouth-freshening product could even be considered to take home, it must be checked for alcohol content.
+
+And it wasn’t that getting so messed up time felt movable and fluid; it was also the perfect antidote for an anxiety that’s not merely a disorder but more of a secondary lifestyle that accompanies those with superior intellects but inferior motivation.
+
+God might not have a sense of fairness, but he has a very believable motivation and a specific skill set.
+Why do I bring up God, you ask?
+Ruining a perfectly good introspection with Catholic guilt?
+
+Because you have to want to know what that feels like, at least for her sake; if not, she won’t even get a chance at a fair character representation; you’ll only see the after skipping past the before picture of one who birthed something so sinister  and labeling them guilty by creation.
+
+Just because a man makes a bomb, is he responsible for the chaos the bomb inflicted?
+You might not agree, but your verdict is more than just an indictment of her and what she built; it’s a representation of what bad people do to kind-hearted geniuses pushing them.
+Yes, people were… affected.
+
+Affected and embalmed by what she made, and those were the lucky ones; if you’re not changed by raw human cold, sweating, hard-beating pain, then maybe you should be on trial.
+
+He nodded at Sara, giving the jury one last brainwash, letting his opening remarks settle in.
+
+The courtroom was cold, not a climate condition but a mood forced upon by a girl who tried to change the world by piling up casualties and making them examples.
+
