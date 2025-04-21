@@ -257,3 +257,5 @@ For now, I just need to lay here for a bit and catch my breath, mentally and phy
 The person who left the note made it very clear that I’m on a time limit to escape this place, and if I don’t get looking fast, I might end up like who I can only assume is Juarez upstairs.
 
 I’ll update you again when I figure out more, and if I’m not dead by then. Pray this goes through for me?
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1k41grg/im_trapped_on_the_edge_of_an_abyss_something_that/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

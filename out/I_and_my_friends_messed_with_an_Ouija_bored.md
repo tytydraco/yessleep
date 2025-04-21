@@ -1,0 +1,20 @@
+I was working for the government in an isolated part of America, living a pretty quiet life, going to work, and gaming with online friends.  I think it was two years into this job when a friend whom I will call a happy bird for the sake of his privacy.  We learned we both shared similar interests. We both played the same type fo games, we both came from broken homes, and we both were interested in the supernatural.
+
+Time went on, and soon we both mentioned how we were curious about whether Ouija boards worked or were just bull manure. So I bought one, and we "spoke on it" or whatever term you'd use.  We learned we weren't the first people to talk to this entity. What we talked about I can't remember, but I know me and my friend saw ourselves as the sam and dean of that base.
+
+I started talking to some of the other people where I worked about the last guy who used an Ouija board at the spot where I worked. A few years before I came, A rather unlikable person had brought in a board and asked everyone on shift that night to play with it. He asked whatever he was speaking to attack one of his bosses because they didn't see eye to eye, to put it kindly.  So for those who don't know, there is a few rules for using Ouija boards. One of the rules is ythat ou always keep your hands on the planchet, and you always say goodbye.   This person thought it'd be funny to scream and make everyone just let them let go, but when he did this, the light in the ceiling fell out above them. I can vouch for this as when I was there until they updated the building, they had used zip ties to fix the lights. A  bit later the said person was either fired or changed locations. The boss they tried to curse?  For years nothing happened, but that's when we get when me and Happy Bird got involved.
+
+So as he used this board more and more it painted a picture for us that we believed and took to heart. it told us the fool from years ago had opened a portal and never closed it, allowing spirits to freely harass the employees at the work location. We believe it, as at the time this was happening, the location had nearly a 60 percent suicide rate.
+
+So we both started researching various biblical entities as well as more occult-based things, both me, Happy Bird, two future exe's, and 2 future roommates and future roommates started looking for means to help both us and people who were actively being attacked by these forces, and maybe a way to stop them.
+
+This is when Happy Bird started to change. He started developing terrets out of nowhere. He also started dressing up like the Joker, talking like the Joker, and wearing makeup like the Joker.  All the while he tells me he has made a deal with a particular entity I will refer to as Mr B.
+
+This is when he tells me he is doing all this to find out what ritual his mother did while was in the womb. According to Happy Bird, his mother was a devout cultist and had cursed him to attract evil spirits so his brother would be safe,
+
+This is when He found a ritual to bind said spirit to something other than the building we thought the spirit was lurking in, and the only thing I can remember from the ritual is he used his own blood, and I used a card I had in my wallet at the time.  We stayed away from one another for a few days and waited.
+
+After this, the door to my room started knocking every night at witching hour 3 times, and my bathroom door every time I shut it, and the few times I was near Happy Birds' living area something was always in the corner of my vision, and my chest started to tighten,  The figure always looked the same. A black outline of what looked to be a man built like a football player and about the same size as Agent 47 would stalk me until I left the area where he lived.
+
+The only evidence I have other than what the board said after, and no I don't trust it anymore, is that a month or so later a higher-up at our job was removed for favoritism, and the place where we worked started giving more mental health and more suicide prevention classes, but that only came after Happy bird was fired for..not being ok.
+
