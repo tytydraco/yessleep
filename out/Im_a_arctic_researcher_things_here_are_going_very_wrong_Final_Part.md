@@ -6,7 +6,7 @@ It was the radio; it was finally working. I had to call help. But that meant tra
 
 That low rumbling was persisting, but I paid it no mind at the time. The air was still and freezing. When I finally got to the radio room, I saw that the headset wasn’t plugged in, which was why I could hear it. 
 
-“Base NOSLEEP this is Quebec-01, are you ready for pickup?” A voice yelled through the radio.
+“Base xxxxx this is Quebec-01, are you ready for pickup?” A voice yelled through the radio.
 
 I rushed over and grabbed the radio. 
 
