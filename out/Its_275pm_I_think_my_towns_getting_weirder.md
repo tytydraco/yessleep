@@ -1,6 +1,6 @@
 I made a post yesterday. Talking about Saintviews- my hometown. The only home I've ever known. And how it's unraveling before my eyes. 
 
-Here's the post: (https://www.reddit.com/r/nosleep/s/8UXyH60jev)
+[Part 1](https://www.reddit.com/r/nosleep/s/mM22rYO3ZY)
 
 A few days ago. I noticed there's a cloud here. It doesn't move. It stays perfectly unfazed by all the elements. And unaffected by time. It's been there for 17 years. And I'm the only one who seems to have noticed. 
 

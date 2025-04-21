@@ -11,15 +11,22 @@ I don’t know why they shook me so bad, maybe I was desperate, but when my land
 I wasn’t stupid. OnlyFans meant baring myself, but I’d be careful. I created Avery, a version of me who was fearless and seductive, nothing like quiet Joce who faded into shadows. I dyed my mousy brown hair a deep crimson red, letting it fall in loose waves to my shoulders, and paired it with smoky eyeliner to make my eyes pop. I didn’t stop there. I bought a few wigs to switch things up: a platinum blonde bob for a sultry vintage vibe and a jet-black, pin-straight one that hit my waist for a more mysterious look. For outfits, I scoured thrift stores and online shops, picking things I’d never wear as Joce: a sheer black lace bodysuit that hugged my curves, a red satin slip dress with a plunging neckline, and a fishnet top with tiny silver studs that caught the light. I used clever angles and dim lighting to keep my face secret, focusing on my body, the way the fabric clung to my skin, or how my hair spilled over my shoulders. My first post, a shadowy shot of me in the red satin dress, kneeling on my bed with the blonde wig, got 50 subscribers overnight. By the week’s end, I had 200, and the tips were unreal. $500. $800. $1200. Every ping on my phone was a high, like I was finally someone. I paid rent, bought groceries, and got a new phone. I was flying.
 
 My content started simple but suggestive: a video of me slipping off the fishnet top, revealing a black bra underneath, my crimson hair glowing under the lamp; a photo set in the lace bodysuit, posing on my knees with my back arched, the platinum wig catching the light; a teasing clip of me running my fingers through the black wig, the satin dress slipping off one shoulder as I blew a kiss to the camera. I kept it flirty, never too explicit, always leaving them wanting more. Subscribers ate it up, begging for the next post, the next reveal. But the rush dragged something heavy. Comments turned hungry.
+
 “You’re gorgeous,” they started, but soon it shifted.
 “Give us everything,” they demanded.
 
 If I didn’t give in, they got nasty.
 
 “You’re nothing without us,” one subscriber sneered.
-I called them trolls, until I noticed something worse. Subscribers started dropping details they shouldn’t know.
+
+I called them trolls, until I noticed something worse.
+
+Subscribers started dropping details they shouldn’t know.
+
 “Loved your red hoodie today, Joce,” one commented.
+
 “You looked stressed at the library,” another added.
+
 I never shared my real life, never showed my face, but they knew. It started small, like coincidences, but soon it was every day.
 
 “Love that coffee shop you go to,” a subscriber wrote, mentioning my favorite spot.
@@ -47,8 +54,11 @@ One night, I woke to scratching at my window, fourth floor, no way up. I yanked 
 “You looked terrified last night, Evangeline. I’m watching,” it read.
 
 I tore it up and checked the locks, but the smell of those flowers lingered for days, like it was soaked into my skin.
+
 I didn’t delete OnlyFans then. I should’ve, but the money was my lifeline, and I thought I could gut it out. I started filming in a corner of my apartment, away from windows, using a cheap backdrop to hide anything personal. It didn’t help. The comments got weirder and more specific.
+
 “Why’d you move the lamp, Joce?” one subscriber asked.
+
 “That green wall’s new,” another pointed out.
 
 I hadn’t shown my apartment, not once, but they saw it. I stopped eating in my kitchen and stopped sleeping in my bed, curling up on the couch instead with the phone clutched like a weapon.
@@ -73,14 +83,17 @@ I deleted OnlyFans that day, hands trembling so bad I could barely tap the scree
 I burned the photo, but the next day, another appeared under my pillow, identical, the ink still wet.
 
 I moved to a new apartment, thinking distance would help. The first night, I found a crack in my bathroom mirror, hairline thin, like it’d been scratched from the inside. I covered it with a towel, but the gifts followed: a bracelet I’d never seen, a torn page from a 60s fashion magazine, and a key that didn’t fit any lock I owned. My new phone, barely a week old, started glitching, apps opening on their own, photos I didn’t take filling my gallery, all of the mirrors, reflecting nothing but darkness.
+
 Then Collector_J texted my new number, one I hadn’t shared.
 
 “I have something you want, Evangeline. A video. Not yours. Hers. Do what I ask, and I’ll give it to you. Don’t, and everyone sees your face again,” he wrote.
 
 My stomach dropped. Another video? Hers? I didn’t know what he meant, but the threat of my face being exposed again, after that nightmare post, was too much. He sent a photo next: a grainy still of a woman who looked like me, dressed in 60s clothes, her eyes wide with fear, standing in front of a mirror. Another text followed.
+
 “She’s why they watch you. First request: find an old payphone, call the number I send, say her name three times. $500. I’ll know if you don’t,” he instructed.
 
 I couldn’t breathe. That woman, her face so close to mine, and the idea that she was tied to this, to me, made my skin crawl. I didn’t want to do it, but the video he promised might explain who Evangeline was and why he was doing this. And if I didn’t, he’d ruin me, splash my face across the internet for those faceless subscribers to devour. So I went. I found a payphone, rusted and half-dead, in a sketchy lot. The number connected to static, then a faint hum, like someone breathing.
+
 “Evangeline,” I whispered, my voice breaking as I said her name three times, then hung up.
 
 My phone buzzed: $500 in my account, and a text followed.
@@ -88,7 +101,9 @@ My phone buzzed: $500 in my account, and a text followed.
 “Good. She heard you,” Collector_J wrote.
 
 The requests kept coming, each one weirder, each one tightening the knot in my chest. He texted again.
+
 “Find a woman’s scarf from the 60s in a thrift store, wear it for a day. $700. I’ll know if it’s not hers,” he demanded.
+
 I rummaged through musty shelves, found a silk scarf with faded flowers, and wore it. It reeked of old perfume, and all day, I felt watched, like the fabric was choking me. When I took it off, my neck had faint red marks, like fingerprints. I tried to throw it out, but it was back in my closet the next morning, neatly folded. The payment came with another message.
 
 “She liked it, Evangeline,” he wrote.
@@ -98,11 +113,13 @@ Another request followed.
 “Take a Polaroid of yourself, leave it under a streetlight at midnight. $900. Don’t look back when you walk away,” he instructed.
 
 I used a beat-up camera from a pawn shop, snapped the photo, and left it where he said. Footsteps echoed behind me, too close, but I didn’t look. The next morning, the Polaroid was outside my door, my face scratched out, replaced with hers, eyes hollow. I locked it in a drawer, but that night, I heard scratching inside, like nails on wood. The payment came with another message.
+
 “She’s closer now, Evangeline,” he wrote.
 
 He asked me to record a voice memo, just me reading a poem he sent, something about mirrors and lost names, and upload it to a dead website. $1000. I did it, my voice shaking as I read the words, feeling like they weren’t mine. The site was gone the next day, but my phone started playing the memo at random, even when powered off, her voice mixing with mine, saying “Evangeline” at the end. The money hit with another message.
 
 “She’s speaking through you, Evangeline,” he wrote.
+
 The last request was the worst.
 
 “Stand in front of a mirror, hold a candle, stare at your reflection for ten minutes. $1200. Don’t blink too much,” he demanded.
@@ -117,8 +134,12 @@ I tried to fight back. I stopped looking at reflective surfaces, taped paper ove
 
 Last week, I found a Polaroid in my mailbox. A woman who could’ve been my twin, same jaw, same hair, dressed in clothes from the 60s. On the back, in faded ink, it read: “Evangeline, 1963.” My phone buzzed with a text from Collector_J.
 
-“She was sold too, Evangeline. Betrayed by her pictures. One last request. Check your closet,” he wrote.
+“She was sold too, Evangeline. Betrayed by her pictures.
+
+One last request. Check your closet,” he wrote.
+
 I didn’t want to, but my legs moved like they weren’t mine. I opened the closet, and there was a mirror I’d never seen, full-length, edges cracked. My reflection wasn’t me. It was her, Evangeline, smiling, her eyes boring into mine. She raised a hand, pressed it against the glass, and whispered my name, Jocelyn, like she owned me. The air turned thick, and I swear I smelled those lilies again, sharp and wrong. I stumbled back, but the mirror kept showing her, even when I turned away.
+
 I smashed it and broke it into a hundred pieces, but every shard still showed her face. My phone buzzed with a video from an unknown number. It was me, smashing the mirror, but from an angle inside the closet, like someone was right behind me. The text followed.
 
 “You’re hers now, Evangeline,” it said.

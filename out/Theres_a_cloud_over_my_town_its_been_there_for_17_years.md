@@ -147,6 +147,4 @@ So yeah. I'm on my bed. Typing this out. I had a good night's sleep and I'm call
 
 Please help me
 
-Edit: It's the next day. Quite a bit has happened...
-
-Here's the post: (https://www.reddit.com/r/nosleep/s/3VzMhJX9j4)
+[part 2](https://www.reddit.com/r/nosleep/s/mM22rYO3ZY)

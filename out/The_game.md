@@ -1,4 +1,5 @@
-Something I just stated I have a vision of where I want to take this without going where everyone thinks it might if you want to hear more let me know. Any and all feedback is welcome 
+
+Detailed incident #qr-13lm. #325-a
 
 He couldn’t believe what he was doing.
 A year ago, if you told him he’d be with the white-haired fat man, talking himself up enough to steal the man’s thumb by force, he might have believed you.
@@ -8,7 +9,7 @@ He was reckless and liked ending up in weird situations, but he’d have had que
 Tonight, after chasing the white-haired fat man down and knocking him unconscious with the broad end of the flashlight, there would be no questions, only actions.
 He gritted his teeth as he held down the man’s wrist, pressing the thumb into the meat of the three-day-old Wendy’s baked potato.
 
-Then, before the man could regain consciousness, he lifted the knife, aligning it with his shoulder, and brought it down hard, severing it almost with an almost surgical precision, muttering to himself, “Damn it,” when the thumb hung onto the remaining flesh, refusing to separate.
+Then, before the man could regain consciousness, he lifted the knife, aligning it with his shoulder, and brought it down hard, severing it with an almost surgical precision, muttering to himself, “Damn it,” when the thumb hung onto the remaining flesh, refusing to separate.
 
 But with another quick, deliberate slice, it was properly detached, though looking like a jagged puzzle piece that had been ripped out of place, the little cardboard-like fold of skin flapping like an eel placed on a cutting board.
 
