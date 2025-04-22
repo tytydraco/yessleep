@@ -1,5 +1,7 @@
 [First:](https://www.reddit.com/r/nosleep/comments/1fz6zph/im_never_doing_door_to_door_sales_again/)
 
+[Previous:](https://www.reddit.com/r/nosleep/comments/1irxfug/im_a_contract_worker_for_a_secret_corporation/)
+
 It seems like I’ve lost track of time and my voice. The days of picking up jobs blended together. Each one I needed to do alone. No matter how hard I tried I couldn’t form words. Dr. Fillow looked at my throat unable to find an explanation for my sudden lack of speech. In fact, he didn’t find any new issues with my body aside from being underweight.  
 
 Unfortunately, my bad leg remained. From what Dr. Fillow guessed, the flesh between the leg healed over. Right now, it was being held on with magic bandages and whatever spell he used. If I kept straining it, I would lose the leg.  
