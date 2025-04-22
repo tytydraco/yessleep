@@ -225,3 +225,5 @@ For a second, I thought I was going to see my worst nightmare. But instead, I lo
 Jamie shot up and walked over to me. Gently, she pushed back the cloth of my shirt, exposing the wound on my shoulder.
 
 “Necrotic tissue,” she whispered. She shook her head sadly. “It’s begun.”
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1k4ulg9/emergency_alert_do_not_enter_your_basement_stay/)
