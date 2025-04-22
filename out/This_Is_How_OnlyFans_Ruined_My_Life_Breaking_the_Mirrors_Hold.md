@@ -1,54 +1,93 @@
 Not sure how I got here? Read what happened before:
 https://www.reddit.com/r/nosleep/s/KXblCV3AFQ
 
+I thought I was done running. The mirror? Shattered into jagged teeth that glinted under the moonlight. The gown? Sealed in a box I swore I'd never touch again, its white lace stained with something I couldn't name. Collector J had gone silent, his cryptic messages vanishing like breath on a cold window. I told myself it was over. I even believed it for a fleeting, fragile minute.
 
-It's been a long time since I last updated, and I'm sorry for the silence. I've been running from shadows that won't let me go. I thought smashing that closet mirror would break Evangeline's hold on me, but I was wrong. After I shattered it into a hundred pieces, each shard still showing her hollow eyes, I got that video from an unknown number, filmed from inside the closet, capturing me as I broke the glass. The message that came with it still haunts me: "You're hers now, Evangeline." I've moved again since then, hoping a new apartment would stop the mirrors from cracking, stop that silk scarf from reappearing with its red marks on my neck, stop her from taking me over. But nothing's changed. I'm still not safe, and I can feel myself fading into her.
+Then the video came.
 
-Then I found it: a dusty film reel, tucked inside a wooden box under my bed, where I'd never looked before. It wasn't there last week. I know it wasn't.
-The reel was old, its metal canister scratched with faint initials: E.R., 1963. My hands shook as I held it, the same cold as that key I keep finding. I didn't want to watch it, but Collector_J's last text echoed in my head.
+It arrived in my inbox at 3:33 a.m., no sender, no subject. The footage was grainy, shot from inside my closet the one I hadn't opened in months, its door warped and swollen as if it held something alive. The camera angle was impossible, perched high in a corner where no human could stand. It showed me destroying that mirror. Frame by frame, it captured every ragged breath, every twitch in my jaw, every bead of sweat that slid down my temple like a tear. I looked hunted, possessed, my eyes wide and glassy, reflecting something that wasn't there. Worse I looked like her.
 
-"I have something you want, Evangeline. A video. Not yours. Hers," he had written.
+The message beneath the video was scrawled in a font that flickered like it was written in candlelight:
+"You only broke the glass. Not the story."
 
-This had to be it, the video he promised, the one he said would explain her. I borrowed a projector from a thrift store, set it up in my new apartment's bare living room, and let the reel spin.
+The words sank into my chest like a blade. My apartment felt too small, the air too thick, as if the walls were exhaling. I checked the locks, the windows, the closet door. Nothing was out of place. But the shadows seemed to lean closer, their edges sharper, like they were listening.
 
-The footage was grainy, flickering like it was fighting to be seen. A woman appeared:
-Evangeline, unmistakable, her face so like mine it stole my breath. She wore a white lace gown, delicate but heavy, like a wedding dress for a ghost. She stood in a dimly lit room, staring into a cracked mirror, her eyes wide with fear. The camera lingered, unnaturally long, as if it was feeding on her. There was no sound, just her lips moving, forming words I couldn't read. The scene cut abruptly, unfinished, but her expression burned into me. I'd seen that look in my own reflection, in every mirror I couldn't escape.
+So be it.
 
-I played it again, and this time, I noticed something worse. In the mirror behind her, a shadow moved: formless, but watching. It wasn't in the room with her. It was in the glass. The reel ended, and my apartment went dark.
+If they wanted an ending, I'd give them one. But it wouldn't be hers. It would be mine.
 
-"Evangeline," a whisper hissed from the projector, so faint I thought I'd imagined it.
+I went deeper than the web, past the surface of search engines and into the digital abyss. I clawed through forgotten caches, redacted studio logs, abandoned metadata folders, and rotting film review forums where usernames glowed like gravestones. These were places you didn't find by chance you were pulled. The deeper I went, the colder my apartment grew, the lights flickering as if the electricity was bleeding out. That's where I found her Evangeline Romanova. Starlet. Missing since 1963. Last seen in a cursed, incomplete film called Reflections of the Forgotten. 
 
-My skin crawled, and when I turned, my reflection in the window wasn't mine. It was her, in that gown, smiling with eyes too old for her face.
+Her story wasn't just buried; it was entombed.
 
-I researched her name, scouring library archives and old microfiche. Evangeline Romanova, a 1960s starlet, vanished after filming an unreleased movie called Reflections of the Forgotten. The articles were sparse, but the details chilled me. She'd been a rising star, lured into private photo sessions to pay her way, her images sold to men who thought they owned her. The movie was her last project, abandoned when she disappeared. Rumors swirled: powerful men, secret deals, a betrayal that left her erased. One grainy magazine ad showed her in that white gown, standing before a cracked mirror, with the tagline: "She vanished. But her story didn't end." The ad felt like a warning, like she'd been trapped in that moment, waiting.
+Newspaper clippings described her as radiant, untouchable, until she vanished mid production. The film was never released. Crew members whispered of accidents, of mirrors cracking unprovoked, of Evangeline's voice echoing in empty soundstages long after she'd left for the night. Some said she didn't fade. She was silenced. Others said she never left the set at all.
 
-Collector_J knew. His texts started again, slipping through my new number like water through cracks.
-"You're the final piece, Evangeline. Finish what she started, or you'll be lost like her," he wrote.
+Then Collector J returned.
 
-I tried to block him, but my phone glitched, opening to photos I didn't take: Evangeline in her gown, then me, my face morphing into hers. The requests had stopped, but his demands grew sharper, like he was running out of time. I wanted to run, to burn the reel and leave, but the key was back, sitting on my kitchen counter, colder than ever. It didn't fit my locks, but I knew it belonged to her story, to that unfinished film.
+His message appeared on my screen without a notification, the text pulsing like a heartbeat:
 
-Then the gown arrived. It came in a package with no return address, wrapped in tissue paper that smelled of lilies. The same white lace from the reel, heavy with age, its hem frayed like it'd been worn through decades. A note was pinned to it, inked in shaky script.
+"You're not her. But you're the only one left who can finish what she started."
 
-"Wear it, Evangeline. Become her," it read.
-My stomach twisted, but the scarf from before, the one that left red marks on my neck, flashed in my mind. I'd tried throwing it out, and it came back. This gown felt the same, like it was already part of me.
+I typed back, my fingers trembling: "Then stop calling me Evangeline."
 
-His final text came that night.
+His reply came instantly, as if he'd been waiting inside my screen:
 
-"Step into the gown. Stand before the mirror. You will see her. And you will become her," Collector_J demanded.
+"Because you said yes when everyone else said no. Because Evangeline isn't a name it's a role. And you're already playing it."
 
-I knew it was a trap, just like the payphone, the scarf, and the Polaroid. Every request had pulled me closer to her, made my eyes look less like mine. But the reel haunted me: her fear, her unfinished story. If I didn't do this, Collector_J would expose me, splash my face across the internet, or worse, let her take me without a fight. I had to know what she wanted and why she was doing this.
+Rage burned through my fear. They weren't just taunting me; they were grooming me, sculpting me into a replacement. Not for Evangeline the woman, but for the myth a ghost they could crown in her place. I slammed my laptop shut, but the room didn't feel empty. The air buzzed, like static crawling across my skin. 
 
-I slipped on the gown, its weight pressing into my skin like damp earth. It fit perfectly, too perfectly, like it was made for me. My apartment was mirrorless since I'd taped paper over every reflective surface, but I'd kept one, hidden in the closet, the cracked full-length mirror from the last place. I dragged it out, my hands trembling, and stood before it. The air thickened, the lily scent choking me. I stared into the glass, and there she was. Not me. Evangeline. Her smile was wrong, not joy but inevitability, like she'd waited decades for this moment.
+That night, I woke to a scratching sound under my bed. Not loud, but deliberate, like nails carving wood. I didn't want to look, but my body moved anyway, drawn by a compulsion I couldn't name. My flashlight trembled in my hand as I peered beneath the frame. There, half hidden in the dust, was a film reel in a metal canister, its surface scratched with the initials E.R., 1963. It reeked of mildew and something sweeter, like decaying flowers. The canister was warm, as if it had been held moments before. It hadn't been there yesterday. 
 
-"Evangeline," I whispered, repeating her name three times, like the payphone ritual.
+I touched it, and the static in the air surged, prickling my scalp. The reel hummed, not with sound but with intent, like a voice trapped in its celluloid veins, whispering just below my hearing. I wanted to burn it, to throw it into the street, but my hands wouldn't let go. 
 
-The mirror shimmered, ripples spreading across the glass like water. My reflection shifted, my face melting into hers: same jaw, same eyes, but hollow, ancient. A flash blinded me, and I heard a click, like a camera shutter. When my vision cleared, a Polaroid lay at my feet. It showed her, in the gown, standing before the mirror, her eyes wide with fear, just like the reel's final frame. But the face was mine. Jocelyn, gone. Evangeline, real.
-Everything went black.
+I borrowed a projector from a pawn shop, its owner eyeing me like he knew what I was carrying. Back home, I set it up in my living room, the windows blacked out with taped garbage bags. The reel clicked into place, and the projector whirred to life, casting a sickly yellow light across the wall. The film flickered like it was fighting to stay alive, each frame stuttering as if the story itself was in pain.
 
-I woke on the floor, the gown still clinging to me, the mirror dark. My phone was dead, its screen cracked like the mirror. The Polaroid was gone, but I felt her, heavier now, like she was inside my skin. The key in my pocket burned with a cold I'd never felt before, and I noticed something new: a tiny lock on the mirror's frame, hidden in the cracks. My hands shook as I slid the key in. It fit. A click echoed, and the mirror glowed, Evangeline's face appearing one last time. Her lips moved, forming words I could finally hear.
+There she was Evangeline. Pale as bone, unblinking, her eyes like wells you could fall into and never climb out. She wore the white lace gown, its fabric clinging to her like a second skin, stained with faint, rust colored smears. She stood before a mirror, her lips moving silently, forming words I couldn't hear but felt in my chest, heavy and sharp, like a curse being woven. The set around her was wrong too dim, too vast, the shadows pooling in corners like spilled ink. 
 
-"You can leave, but one must stay," she whispered, her voice like ice.
+Then I saw the reflection.
 
-I understood. The mirror was her prison, Reflections of the Forgotten a curse that needed a vessel. I could trade places with her, let her take my body and walk free, while I stayed trapped in the glass, or I could refuse and lose myself completely. I thought of my life, my name, everything I was. I couldn't let her have it. With every ounce of will I had left, I smashed the mirror again, screaming my name, Jocelyn, until the glass was dust. The gown fell from my shoulders, the air cleared of lilies, and my reflection in a nearby window was mine again. But as I turned to leave, I saw the key on the floor, glowing faintly, and I knew: she was gone, but the curse wasn't.
+It wasn't Evangeline. It was me.
 
-Someone else would find it, and the loop would begin again. I walked away, free, but haunted by the thought that I'd only delayed the inevitable.
+Not a trick of light. Not a glitch. My face, my movements, my trembling hands, mirrored perfectly in that impossible glass. But my reflection's eyes were wrong too dark, too knowing, like they saw me watching. The reel cut to black, and my apartment plunged into silence so deep it felt like drowning. The projector stopped, but the bulb kept glowing, casting a single beam that pulsed like a dying star.
+
+Then a buzz. My phone lit up on the table, skittering an inch across the wood. A text from an unknown number:
+
+"The final scene is yours now."
+
+I didn't sleep. The air in my apartment grew heavier, the shadows thicker, as if the film had left something behind. At dawn, a knock came soft, deliberate, like a heartbeat against my door. I opened it to find a package, unmarked, its edges damp with something that smelled of lilies and mold. Inside was the gown. The same white lace, its fabric impossibly soft yet heavy, like it carried the weight of a body. It was pristine, but the stains were there, faint and red, blooming like wounds under the light.
+
+I didn't hesitate.
+
+I slipped it on.
+
+The fabric clung to me, cold and alive, tightening with every breath. My reflection in the cracked mirror shifted, the shards knitting together in a way that defied physics, forming a jagged mosaic of my face. But I wasn't scared. I wasn't spiraling. I wasn't a scream waiting to happen. I was grounded, observant, and ready. The gown didn't own me. I owned it.
+
+The mirror waited, its surface humming with a low, guttural sound, like a throat trying to speak. I stood before it, and there she was not Evangeline exactly, not me either, but something in between, an echo caught in a loop it couldn't escape. Her face was mine, but older, hollowed, her eyes like pits that swallowed light. Her smile was a wound, slow and deliberate, peeling back to show too many teeth.
+
+"You can leave," she whispered, her voice slithering through the glass, wrapping around my spine. "But one of us has to stay."
+
+The air turned sour, thick with the scent of lilies and something metallic. The walls creaked, as if the apartment itself was bending toward the mirror. I didn't flinch.
+
+"You've been waiting decades for someone weak," I said, my voice steady, cutting through the hum. "You misjudged me."
+
+She tilted her head, just like I do when I'm amused. It was a tell, and I read her. Her smile faltered, and the mirror rippled, its surface buckling like water. 
+
+"You think this is a ritual," I said, stepping closer, my breath fogging the glass. "A passing of the crown. But I don't want it. And that's exactly why I win."
+
+I raised my hand and pressed it to the mirror. The glass was warm, pulsing like flesh. She flinched, her reflection fracturing, her eyes widening with something primal fear. For the first time, she was afraid.
+
+"You're not my ending," I said, my voice low, a blade. "I'm your rewrite."
+
+The mirror didn't just crack it screamed. The sound was inhuman, a wail that clawed at my ears as the glass collapsed inward, shards exploding across the room like a storm of knives. I hit the floor, the gown unraveling like cobwebs, dissolving into ash that stung my skin. The air cleared, and the reflection returned. Mine. Jocelyn. But sharpened, my eyes harder, my jaw set, my shadow longer.
+
+Among the shards lay a key, small and silver, its surface etched with symbols that hurt to look at. It was cold, yet it hummed with her, with Evangeline, with the story that refused to die. But now it wasn't her prison.
+
+It was mine to hold.
+
+I closed my fist around it, the metal biting into my palm. The apartment was silent, but the silence was mine. The shadows retreated, the air lightened, and the closet door stood still, its secrets sealed.
+
+I'm keeping the key.
+
+Let the mirror stay shattered. Let the story breathe but on my terms. Because I'm not haunted anymore.
+
+I'm the haunting.

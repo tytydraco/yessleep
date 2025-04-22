@@ -1,4 +1,4 @@
-\[[Part One](https://www.reddit.com/r/nosleep/comments/1hxpcvj/im_a_arctic_researcher_things_here_are_going_very/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)\] \[Part Two\] \[[Part Three](https://www.reddit.com/r/nosleep/comments/1j57vfj/im_a_arctic_researcher_things_here_are_going_very/)\]
+\[[Part One](https://www.reddit.com/r/nosleep/comments/1hxpcvj/im_a_arctic_researcher_things_here_are_going_very/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)\] \[Part Two\] \[[Part Three](https://www.reddit.com/r/nosleep/comments/1j57vfj/im_a_arctic_researcher_things_here_are_going_very/)\] \[[Final Part](https://www.reddit.com/r/nosleep/comments/1k493f0/im_a_arctic_researcher_things_here_are_going_very/)\]
 
 We waited till sunrise to talk, as I had suggested. The things I saw from last night still reeling in my head, I kept trying to rationalize what I saw, I just simply can’t. Maybe I never will. We all sat in the lounge, me, Olivier, Wyatt and Garret. We were in a malformed circle trying to figure out what happened.
 
