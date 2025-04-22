@@ -265,3 +265,5 @@ I looked down. The marking was now:
 # III
 
 Eyes widened. “Okay… well that’s… *something.*”
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1k5czac/and_when_the_lights_came_back_on_there_was_a/)
