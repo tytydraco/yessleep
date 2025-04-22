@@ -4,7 +4,7 @@ I didn’t even know it had followed me.
 
 At least, not at first.
 
-Two months ago, I camped through a stretch of the Allegheny I had never set foot in before, despite living near Clarion, Pennsylvania, all my life. The forest there is old—older than memory, older than names—but I hadn’t thought much about that when I set out. My plan was simple: a friend dropped me off at the far edge of my route, and over the next few days, I’d wind my way toward a secluded parking spot where I had left my car, waiting to take me home.
+Two months ago, I camped through a stretch of the Allegheny I had never set foot in before, despite living near that side of Pennsylvania, all my life. The forest there is old—older than memory, older than names—but I hadn’t thought much about that when I set out. My plan was simple: a friend dropped me off at the far edge of my route, and over the next few days, I’d wind my way toward a secluded parking spot where I had left my car, waiting to take me home.
 
 It should have been an ordinary trip. But now, back in my quiet little town, something is wrong.
 
