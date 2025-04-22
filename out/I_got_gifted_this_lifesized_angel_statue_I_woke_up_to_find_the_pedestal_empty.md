@@ -170,4 +170,4 @@ The worst thing is, they won't allow me to leave my house until they find me inn
 
 Now, the statue had no place to stand on anymore. Which means it keeps wandering around the house. I never look directly at it. I thought it might be one of those weeping angels, but I think I might be wrong.
 
-I don't know where it is right now.
+I don't know where it is right [now.](https://www.reddit.com/r/castellanstories/comments/1k57irh/i_got_gifted_this_lifesized_angel_statue_i_woke/)

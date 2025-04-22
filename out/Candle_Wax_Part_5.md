@@ -1,6 +1,4 @@
-[Previous](https://www.reddit.com/r/nosleep/comments/1k1j013/candle_wax_part_4/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
-
+[Previous](https://www.reddit.com/r/nosleep/comments/1k1j013/candle_wax_part_4/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Next](https://www.reddit.com/r/nosleep/comments/1k58e26/candle_wax_part_6/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I felt like hell, and once again I didn’t get the sleep I needed. When morning rose, I had to remove a few reps from my workout because my head just couldn’t take it and I felt like throwing up. The first time in years that I couldn’t complete my routine.
 
