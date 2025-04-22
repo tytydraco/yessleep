@@ -30,7 +30,7 @@ From what I knew, sleepwalkers usually repeated daytime routines—making sandwi
 
 Ahead, a soft orange glow emanated from a stone cave. Smoke drifted out. Gus stepped inside. I could hear whispering… and a strange sucking sound. I crept forward. Inside, a campfire lit a wider chamber. Eight or nine naked people—men and women, fit and fat—stood around it, shoulders slumped, heads down, moaning and swaying. The circle wasn’t sensual—it was formal. In the firelight I saw crude symbols painted in ash on each chest. They stood motionless except for a low chant.
 
-A shadow shifted. The smoke cleared, revealing a strange man prowling behind the circle. His body was covered in thin, bristly hair—dense with tiny follicles, like a cactus or a spider. When the smoke parted, his mouth area twisted open and a funnel-like office extended out and plunged into one of the naked victims’ necks.
+A shadow shifted. The smoke cleared, revealing a strange man prowling behind the circle. His body was covered in thin, bristly hair—dense with tiny follicles, like a cactus or a spider. When the smoke parted, his mouth area twisted open and a funnel-like orifice extended out and plunged into one of the naked victims’ necks.
 
 I gasped—too loud—and clamped my hand over my mouth. The creature turned toward me. I scrambled back but knocked a pile of rocks loose. They tumbled down stone steps, echoing through the cave. The thing screeched. From behind, a damp cloth pressed to my mouth—I struggled, head spinning—then nothing. When I came to, I lay tangled in my sheets, a burning pain behind my eyelids. I recalled the events of the night and shook Gus awake, but he didn't remember any of it. I wrote everything down in case I soon struggled with the same haze.
 

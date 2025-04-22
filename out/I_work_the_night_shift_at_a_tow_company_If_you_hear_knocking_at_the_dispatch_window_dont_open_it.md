@@ -8,12 +8,12 @@ Carl worked here for forty years. Quiet guy. Didn’t say much unless it was wor
 
 *He didn’t say goodbye. Didn’t write a long message. Just a list.*
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 ***Subject: Rules***
 
-*Rule 1: f you hear someone knocking at the dispatch window, don’t open it.*  
-*Rule 2: IDon’t answer calls after 3:00 a.m.*  
+*Rule 1: If you hear someone knocking at the dispatch window, don’t open it.*  
+*Rule 2:Don’t answer calls after 3:00 a.m.*  
 *Rule 3: Ignore the passenger in the back seat of a tow truck in the shop.*  
 *Rule 4: Don’t assign any calls to Driver 13.*  
 *Rule 5: If the GPS glitches to a blank screen, reboot PulsePoint.*  
@@ -28,7 +28,7 @@ Carl worked here for forty years. Quiet guy. Didn’t say much unless it was wor
 *Rule 14: If the phone rings three times and stops, don’t answer.*  
 *Rule 15: If you hear music playing out of nowhere, shut everything down.*
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 I thought it was a joke. Something he left behind to mess with the new kid. But that first rule had me sweating. I’d gotten a call the night before from a woman crying about a wreck on the highway. She said her husband wasn’t breathing. We sent someone, but there was nothing there. Just an empty stretch of I-66.
 
@@ -63,15 +63,13 @@ That’s when I knew it wasn’t him. It wasn’t anyone from the company.
 
 I stayed in my chair. Didn’t move. Didn’t speak. Just stared at the screen until the lights in the building buzzed once, then settled.
 
-At exactly 3:00 a.m., a new email popped up. No subject, just a single line from Carl.
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+At exactly 3:00 a.m., a new email popped up. No subject, just a single line from *\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_*
 
 **Subject: Untitled** 
 
 *You can look all you want. They’re not really there. Not yet.*
 
-*\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_*
+*\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_*
 
 I didn’t move until the morning shift walked in. They found me still at my desk, eyes locked on the window.
 
