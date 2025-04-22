@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/uBr2jpsFyf) [Part 2](https://www.reddit.com/r/nosleep/s/JlyurSuD3O)
+
 We didn’t pack. Just grabbed Ellie, the diaper bag, and the keys. No checkout. No plan. Just distance. Just instinct.
 
 I drove like the roads would disappear if I slowed down. Back roads, service routes, even dirt paths—anywhere but the places it had already touched. My wife, Sam, sat silent in the passenger seat, Ellie asleep in her arms, her tiny hand curled tight around that fraying blanket.
