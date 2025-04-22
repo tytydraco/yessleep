@@ -1,3 +1,7 @@
+Not sure how I got here? Read what happened before:
+https://www.reddit.com/r/nosleep/s/KXblCV3AFQ
+
+
 It's been a long time since I last updated, and I'm sorry for the silence. I've been running from shadows that won't let me go. I thought smashing that closet mirror would break Evangeline's hold on me, but I was wrong. After I shattered it into a hundred pieces, each shard still showing her hollow eyes, I got that video from an unknown number, filmed from inside the closet, capturing me as I broke the glass. The message that came with it still haunts me: "You're hers now, Evangeline." I've moved again since then, hoping a new apartment would stop the mirrors from cracking, stop that silk scarf from reappearing with its red marks on my neck, stop her from taking me over. But nothing's changed. I'm still not safe, and I can feel myself fading into her.
 
 Then I found it: a dusty film reel, tucked inside a wooden box under my bed, where I'd never looked before. It wasn't there last week. I know it wasn't.

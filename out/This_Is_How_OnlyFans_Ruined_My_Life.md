@@ -148,3 +148,4 @@ He never sent the video he promised, the one of her. I don’t know who Collecto
 
 I’m not just me now. She’s taking over, and I’m terrified she’s already won.
 
+Want to know what happened next? https://www.reddit.com/r/nosleep/s/kiDqakt3Cb
