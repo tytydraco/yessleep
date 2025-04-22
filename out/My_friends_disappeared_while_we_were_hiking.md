@@ -1,4 +1,4 @@
-My friends and I went on a hike today. I took the lead for the first few kilometres, guiding our group of five across the open bog since I, supposedly, understood the marshy terrain the best. And I did a good job picking out the safe paths, there were only a few minor mishaps resulting in soft cursing and muddy bottoms, but we persevered until we found the bog road that led us up the mountain. 
+My friends and I went on a hike the other day. I took the lead for the first few kilometres, guiding our group of five across the open bog since I, supposedly, understood the marshy terrain the best. And I did a good job picking out the safe paths, there were only a few minor mishaps resulting in soft cursing and muddy bottoms, but we persevered until we found the bog road that led us up the mountain. 
 
 Periodically I looked behind me to check on my friends, but also to take in the view behind us. As we got steadily higher, the little sliver of sea visible above faraway hills got steadily wider. The view from the top promised to be spectacular. 
 
