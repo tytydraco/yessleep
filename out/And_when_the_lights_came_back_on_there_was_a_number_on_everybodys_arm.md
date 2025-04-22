@@ -196,7 +196,7 @@ The long thread of mob violence that chained centuries was going to see represen
 
 I steeled myself. Grabbed a pen from my desk and pocketed it—the only self-defense item I had available—as I noticed groups slowly gathering amongst themselves. I just needed *one last thing to happen.* I watched and waited until—
 
-A woman, with a seat *right next to the hallway,* casually got up, yawned, stretched, and stepped out with no great urgency. That was my meal sticker. The ground had now been broken. 
+A woman, with a seat *right next to the hallway,* casually got up, yawned, stretched, and stepped out with no great urgency. That was my meal ticket. The ground had now been broken. 
 
 Slowly, I—
 
@@ -264,4 +264,4 @@ I looked down. The marking was now:
 
 # III
 
-Eyes widened. “Okay… well that’s… *something.*” 
+Eyes widened. “Okay… well that’s… *something.*”
