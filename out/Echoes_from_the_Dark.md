@@ -1,5 +1,3 @@
-Part One- What happened to Emily?
-
 *55..56..57…58…59…*
 
 10 more minutes to go.
@@ -384,8 +382,7 @@ Coroner.
 
 I stepped forward to push through the heavy metal doors. As I shifted my weight to push, a hand grabbed my arm. 
 
-“Sam. Wait. “She-she doesn’t look like herself-“ 
-Henderson started.
+“Sam. Wait. “She-she doesn’t look like herself-“ Henderson started.
 
 “I don’t care” I snatched my arm from his grasp. 
 
