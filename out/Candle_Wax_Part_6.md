@@ -1,6 +1,4 @@
-[Previous](https://www.reddit.com/r/nosleep/comments/1k4ff31/candle_wax_part_5/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
-
+[Previous](https://www.reddit.com/r/nosleep/comments/1k4ff31/candle_wax_part_5/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Next](https://www.reddit.com/r/nosleep/comments/1k62eic/candle_wax_part_7/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 Gray propped my arm over his neck to hold me straight as we walked back through the trees. My consciousness slipped a few more times, but my body continued to move on autopilot despite it.
 
@@ -254,7 +252,7 @@ We had our own evidence board at the office, but there were several things I cou
 
  
 
-[Dreams. Left Eye. Missing Goats. Candle Caine. Headaches. Fake Videos. ]()I wrote out the strangest pieces vaguely on index cards and hung them up. Hoping that maybe if I stared at them long enough, it would all make sense. But that didn’t seem to be happening right now, so I moved on to the second deleted video.
+Dreams. Left Eye. Missing Goats. Candle Caine. Headaches. Fake Videos. I wrote out the strangest pieces vaguely on index cards and hung them up. Hoping that maybe if I stared at them long enough, it would all make sense. But that didn’t seem to be happening right now, so I moved on to the second deleted video.
 
  
 
