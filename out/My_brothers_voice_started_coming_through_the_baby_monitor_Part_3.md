@@ -155,3 +155,5 @@ Smiling.
 Like nothing was wrong.
 
 “Well, hey! What a surprise,” he said. 
+
+[Continued ](https://www.reddit.com/r/nosleep/s/fB3qwymcby)
