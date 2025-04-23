@@ -43,3 +43,5 @@ She’s not just a target.
 She’s the opening.
 
 And it’s getting closer.
+
+[Continued ](https://www.reddit.com/r/nosleep/s/rTq0UJWYKt)

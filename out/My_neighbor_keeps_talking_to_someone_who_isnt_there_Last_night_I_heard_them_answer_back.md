@@ -8,7 +8,7 @@ The first time I noticed Mr. Talbot, it was raining. I was drinking coffee at th
 
 I waved—instinct, I guess—but he didn’t respond. Just turned and walked out of sight.
 
-I figured he didn’t see me. Or maybe he was hard of hearing. Or maybe he just didn’t care. I mean, people keep to themselves out here. That’s part of the appeal, right?
+I figured he didn’t see me. Or maybe he just didn’t care. I mean, people keep to themselves out here. That’s part of the appeal, right?
 
 Still, after that, I started noticing more.
 
