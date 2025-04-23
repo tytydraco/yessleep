@@ -4,7 +4,7 @@ I’m sorry it’s taken me so long to update, but I’m here now, and ready to 
 
 After just barely escaping whoever was after me at the Denver airport, I went to a cockroach infested motel in Commerce City. The bed had so many stains I didn’t know what color it even was originally, but I felt relieved to be somewhere safe. I paid in cash and had trashed my cellphone before I got here, so despite the dinginess of the place, it felt like paradise.
 
-I had only been in the motel for a few days, surviving off takeout and still trying to figure out what to do next when I was roused by a phone call on the motel phone. I was startled, but answered assuming it was the property manager or something else. Instead, I nearly had a heart attack when I heard my boss on the other end.
+I had only been in the motel for a few days, surviving off takeout and still trying to figure out what to do next when I was roused by a phone call on the motel phone. I was startled, but answered assuming it was the property manager or something like that. Instead, I nearly had a heart attack when I heard my boss on the other end.
 
 “Hey - I heard you had moved, and you didn’t come into work today, so I just wanted to call to make sure you were okay and were going to come in tomorrow - I’d hate to have to fire you. One of the maintenance guys told me you got into an area where they handle noxious chemicals, and seemed to have a freakout.”
 
