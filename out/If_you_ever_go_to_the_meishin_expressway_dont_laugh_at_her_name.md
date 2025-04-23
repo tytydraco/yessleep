@@ -45,9 +45,9 @@ She dragged herself toward me her torso unnaturally twisted skin pale and stretc
 Leaving streaks of crimson behind
 
 Her face was contorted into rage her eyes were wide and hollow.her lips cracked into a twisted grin
-Her mouth let out silent sobs a smell of decay filled the 
+Her mouth let out silent sobs a smell of decay filled the platform
 
-Her eyes then locked onto mine
+Her eyes were locked onto mine and asked :
 Where...are my....legs? Her voice was soft at first,barely a whisper,but they carried a weight that made my blood run cold
 
 Her gaze never wavered as she stepped closer to me.I could hear the breathing,the gagging that sounded almost human yet so wrong
@@ -56,12 +56,12 @@ As if waiting for an answer
 
 She moved closer and asked again this time more vengeful more desperate this was my last chance to answer 
 
-Where....are my....legs.i  gasped for air and my voice above a whisper answered at the meishin expressway there was a sound os scrapping. Had I defeated her
+Where....are my....legs.i  gasped for air and my voice above a whisper answered at the meishin expressway there was a sound of scrapping. Had I defeated her
 
 When I opened my eyes her face was in front of me staring at me as if saying we will meet again before disappearing 
 
 I didn't stick around and ran all the way back to my hotel room I am currently booking my flight back to London there is no need for me to stick around 
 
-Before I go I should warn you all never to make fun of spirits big or small,malevolent of benevolent,helpful or dangerous they might decide to have a little fun of their own
+Before I go I should warn you all never to make fun of spirits big or small,malevolent or benevolent,helpful or dangerous they might decide to have a little fun of their own
 
 
