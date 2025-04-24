@@ -1,6 +1,4 @@
-[Previous](https://www.reddit.com/r/nosleep/comments/1k58e26/candle_wax_part_6/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
-
-
+[Previous](https://www.reddit.com/r/nosleep/comments/1k58e26/candle_wax_part_6/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Next](https://www.reddit.com/r/nosleep/comments/1k6wmn4/candle_wax_part_8/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 Gray went to bat for me hard after everything that happened. I don’t know if it was because he really did believe in me, or if it was just the Partner Code that he talked about, but either way I was grateful.
 
