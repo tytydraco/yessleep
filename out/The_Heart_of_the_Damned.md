@@ -40,7 +40,7 @@ I spent the day pacing my apartment, waiting for something, anything to happen. 
 
 Stunned, I backed away from my window, in a state of pure shock that I have never been close to feeling again. As soon as the man was out of view, the fire came back. Taking over my body, burning every square inch of flesh that I had. It was as if I dipped myself into a vat of lava, but I wasn’t. I was rolling around screaming in pain on my living room floor for what felt like hours.
 
-Then, it was gone, just as it was before. I looked at the clock to see the time. 8:38 p.m. It had felt like hours—like the flames would never release me from their grasp. Yet only minutes had passed.
+Then, it was gone, just as it was before. I looked at the clock to see the time. 6:38 p.m. It had felt like hours—like the flames would never release me from their grasp. Yet only minutes had passed.
 
 I began to wonder if I was dead. If I had died during the surgery and this was my hell, all it was going to take was for my brain to realize before I was left with the flames and the demons and nothing else for eternity. Suddenly, I collapsed. I contribute that to the shock of the man and the extreme pain that consumed my body. All I know is that I was weirdly happy it happened.
 
