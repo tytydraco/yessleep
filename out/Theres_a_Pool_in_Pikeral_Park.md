@@ -12,7 +12,7 @@ Dylan rolled his eyes and elbowed me.
 
 "The girl who has wanted nothing to do with you since junior year?"
 
-"The very same." He wrapped an arm around me. "Until I slipped her some beautiful poetry straight from the heart that made her \*swoon\*."
+"The very same." He wrapped an arm around me. "Until I slipped her some beautiful poetry straight from the heart that made her *swoon*."
 
 "That's an odd way to say: 'Thank you, Scott, for making me sound less like a creep'."
 
@@ -24,7 +24,7 @@ Dylan rolled his eyes and elbowed me.
 
 I raised an eyebrow at that. "...At a park. At midnight?"
 
-"A \*haunted\* park at midnight, Scottie." I hated it when he called me Scottie. "It's the one where that Clemmens kid went missing."
+"A *haunted* park at midnight, Scottie." I hated it when he called me Scottie. "It's the one where that Clemmens kid went missing."
 
 I parked myself at the door of Mr. O'Reilly's Calculus class. "And you think that lovely background is going to get you an award-winning hand job from Amber?"
 
@@ -40,9 +40,7 @@ I shot him a glare, it was all Dylan needed to kill that line of thought.  He p
 
 "All right, all right. But you know I got a point."
 
-I didn't know that. At the time, I was convinced of everything but. Dylan had spent too much energy convincing me of what I needed lately. The only thing I knew for certain, was my best friend was 
-
-becoming a real pain in the ass; even if a well-intended one.
+I didn't know that. At the time, I was convinced of everything but. Dylan had spent too much energy convincing me of what I needed lately. The only thing I knew for certain, was my best friend was becoming a real pain in the ass; even if a well-intended one.
 
 And yet, I found myself ready at eleven that night, zipping up my hoodie and making my way towards a party that, at best, got my best friend laid. I didn't even want to consider the worst case. Some things are better left as surprises.
 
@@ -74,7 +72,7 @@ I looked at Dylan.
 
 Dylan shrugged. "Just what it's called, man. You know, Camelot and shit."
 
-"Right. The famous story of King Arthur and the Lady of the \\\*Pool\\\*."
+"Right. The famous story of King Arthur and the Lady of the *Pool*."
 
 Dylan opened the door. "Never heard it. Too busy listening to the Dillweed in the Subaru Outback. Would you just get out of the car?"
 
@@ -182,7 +180,7 @@ It was a small memorial. A cylindrical cedar post, painted white, and adorned w
 
 "In loving memory of Isaac Clemmons. Whose hugs, kisses, and laughs saved our day, every day.  Our loss is Heaven's gain. Miss you, bud."
 
-The words fell out of my mouth like stones. We sat in silence. No one moved. Afraid to disturb the tension as unbroken as the lake. With each passing second, the reality of our situation worsened. We all thought the same thing. Six loser kids, ready to get trashed and literally dance atop a kid’s grave. Motivated by shit beer and second base. It made me sick.
+The words fell out of my mouth like stones. We sat in silence. No one moved. Afraid to disturb the tension as unbroken as the lake. With each passing second, the reality of our situation worsened. We all thought the same thing. Seven loser kids, ready to get trashed and literally dance atop a kid’s grave. Motivated by shit beer and second base. It made me sick.
 
 Then, Dylan walked up to Isaac's memorial, knelt, and placed his hand on the top of the post.
 
@@ -450,9 +448,7 @@ A silence fell over us. A warm one. One of comfort that eased the hallucination 
 
 There were so many more things we could have said. But much like how the water had held us in this strange warmth, the aftermath of our baptisms had a similar hold. We all but Dylan shared the same look at first. A deep confusion we exchanged for relief bit by bit. The need to wonder lessened. I don’t believe much in God, but if those who witnessed Jesus’s miracles are to be believed, then I understand them now. Some things are too beautiful to ask more information about. Sometimes, you have to let a miracle be a miracle.
 
-The fears, the horror, the insecurity, had all been swallowed by the water. We were 
-
-cleansed, but not completely. In a way, we were still damp, but on our way to being dry and no longer held beneath the water. And as we made our way back to our cars, we joked. Laughed. Talked about things like we hadn’t experienced anything crazy at the lake at all. In some way, the experience faded. We remember, I certainly still do, but not in the way you remember an event. More like how you see an era of your life. A collage of experiences you wandered through and internalized. It was this precious, glass-sealed gift we had been given. None of us had any interest in shattering that seal. 
+The fears, the horror, the insecurity, had all been swallowed by the water. We were cleansed, but not completely. In a way, we were still damp, but on our way to being dry and no longer held beneath the water. And as we made our way back to our cars, we joked. Laughed. Talked about things like we hadn’t experienced anything crazy at the lake at all. In some way, the experience faded. We remember, I certainly still do, but not in the way you remember an event. More like how you see an era of your life. A collage of experiences you wandered through and internalized. It was this precious, glass-sealed gift we had been given. None of us had any interest in shattering that seal. 
 
 But the gifts didn't stop at the lake. When I got home, ready to pick up my father off the floor, I found him upright on the couch instead, still draped in the blanket I had given him. The plate on the table before him was cleaned, and he had a *sober-ish* smile on his face as he stared at Mom’s photo. I took a seat next to him.
 
@@ -460,7 +456,7 @@ But the gifts didn't stop at the lake. When I got home, ready to pick up my fath
 
 He turned to me, and I swore he saw the scab on my heart that started to form. He hugged me suddenly, but it wasn’t for my sake. He did it like someone lost adrift in a blizzard, desperate to find heat for survival. It was as if he could sense the dryness inching away at the damp, and pulled himself to leech a bit for himself. And I knew, then and there, that he deserved it too. I lost my mom. He lost that and more.
 
-I don't know if what happened was real. Maybe we were crazy, or drunk, or lost. I know I didn't drink that night, but is it more plausible to believe I \*couldn't\* have than what I remember? My life hasn't been perfect since I went to Pikeral Park, but the pain I felt up to my plunge doesn't ache like it used to. The scar is still there, but it has healed. It's firm now. Strong. But has faded to a benign mark. And, yes, I do muse some nostalgia over the broken windows in my glasshouse.
+I don't know if what happened was real. Maybe we were crazy, or drunk, or lost. I know I didn't drink that night, but is it more plausible to believe I *couldn't* have than what I remember? My life hasn't been perfect since I went to Pikeral Park, but the pain I felt up to my plunge doesn't ache like it used to. The scar is still there, but it has healed. It's firm now. Strong. But has faded to a benign mark. And, yes, I do muse some nostalgia over the broken windows in my glasshouse.
 
 Whether or not it was real doesn't matter. Because my life turned around that night and the morning after. I don't know what compelled me to ask him, but I am glad I did.
 
