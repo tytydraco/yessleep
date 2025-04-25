@@ -1,6 +1,4 @@
-[First](https://www.reddit.com/r/nosleep/comments/1jz1md1/candle_wax_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Previous](https://www.reddit.com/r/nosleep/comments/1k62eic/candle_wax_part_7/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) 
-
-
+[First](https://www.reddit.com/r/nosleep/comments/1jz1md1/candle_wax_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Previous](https://www.reddit.com/r/nosleep/comments/1k62eic/candle_wax_part_7/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) | [Next](https://www.reddit.com/r/nosleep/comments/1k7px4o/candle_wax_final/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 The next few hours were a blur. I told Gray to leave, but he stayed until the ambulance took me. The paramedics got to work removing the tacks one by one and it was torture. I was concussed, my orbital bone was fractured, and my nose was broken. They had my head wrapped up in all kinds of bandages and supports. Gray checked up on me early the next morning.
 
