@@ -2,11 +2,11 @@ Hello, everyone. I'm Audery Roan, 42 years old. For the past few years, once a m
 
 It took a while for people to understand what was happening. At first, they assumed I was part of a set of twins. But now that the body count has reached 72, that theory is obviously absurd. Both of my parents have passed away, and I’m an only child.
 
-In the beginning, the remains were barely recognizable—just garbage bags filled with what looked like meat, hidden deep in the woods. . At first, the killings were thought to be missing teens or other drifters. But eventually, one of the bodies had my head on it. and one of the officers recognized me because I sold his son a car at my job. And when they went to investigate my house, they were shocked to see me there. So then I gave them a swab and they checked it. Over time, whatever is doing this has grown bolder, dumping the bodies in public places I frequent
+In the beginning, the remains were barely recognizable—just garbage bags filled with what looked like meat, hidden deep in the woods. . At first, the killings were thought to be missing teens or other drifters. But eventually, one of the bodies had my head on it. and one of the officers recognized me because I sold his son a car at my job. And when they went to investigate my house, they were shocked to see me there. So then I gave them a swab and they checked it.
 
 It's Crazy to actually wake up one morning and find out you're dead. I thought angels or the grim reaper would be involved.
 
-Authorities have confirmed the bodies are human, but many are missing vital organs—usually the brain, lungs, but sometimes limbs are absent as well. It’s also believed that not all of them were killed… assuming they were ever truly alive to begin with.
+Authorities have confirmed the bodies are human, but many are missing vital organs—usually the brain, lungs, but sometimes limbs are absent as well. It’s also believed that not all of them were killed… assuming they were ever truly alive to begin with. Over time, whatever is doing this has grown bolder, dumping the bodies in public places I frequent
 
 On Christmas of 2021. I woke up hungover from the party I held at my house the night before. Came down, went to the kitchen to get my morning coffee. My kitchen is directly to the right of my living room, and my living room has these glass doors that go out to my deck out back and there was a giant "comical " present. right outside. At first i thought it was a just a simple joke from my friends. Because every year I make a big stink about not wanting anything because i personally like to provide for others and hate being a burden. And SO they got me something while I was asleep as a sorta "haha enjoy it you grinch."
 
