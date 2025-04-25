@@ -436,15 +436,22 @@ That night, I couldn’t sleep. When I finally drifted off, the dream came.
 
 I saw a veranda. Faded wood, creaking under the weight of late summer heat. Two young people, maybe twenty, twenty-two, sat there. A girl in ripped jeans rubbed her temples like she was fighting off a migraine. A boy in a tweed jacket scrolled lazily through TikTok shorts on his phone, half-listening.
 
+The girl pressed her fingers against her temple, scowling.  
 — My head hurts.  
-— Again?  
-— No, it's different. I can feel it. Something’s... wrong. We have a new enemy.  
-— Haha, good. Maybe things will finally get interesting.  
-— You're an idiot as always, Kuba.  
-— Come on, don't be so serious. It’s probably just the Tusk and his peons whining again.  
-— It’s not that. It’s something sharper. Closer.  
-— That’s normal you head's explodin' every after the feedback. Mother’s stirring shit again, as usual.  
-— Be careful.  
-— Oh, please. Old Grandpa Lucek didn’t jump at every shadow. Maybe we should remember that.  
-— Grandpa's dead.  
-— And yet somehow, he handled things better than half this room.
+The boy didn’t even bother glancing up from his phone.  
+— Shocker. Maybe it’s because you think too much.  
+— No, idiot. It’s different. There’s something out there. Something small. Rotten.  
+The boy smirked, flicking through some mukbang short.  
+— We have a new enemy? How cute.  
+— It’s not funny. — She leaned forward, eyes narrowing. — It’s sharp. Focused.  
+The boy stretched like a cat, completely unimpressed.  
+— So what? Let the worms crawl. It's probably just Tusk and some of his peons are whinning. No one is stupid enough to attack us directly.  
+The girl’s mouth twisted in something between a smirk and a grimace.  
+— That arrogance will get you gutted one day.  
+— Only if we let them get close. — He shrugged, finally looking at her. — Which I won’t.  
+— You think old grandpa Lucek would’ve let his guard down?  
+— Grandpa wasn’t perfect. — The boy grinned, cruel and lazy. — If he was, he'd still be here cleaning up after Mother’s messes.  
+— Careful. — Her voice dropped, low and dangerous. — He knew how to survive without throwing tantrums.  
+— Survival’s easy. — The boy slipped his phone into his pocket and stood, towering over her. — We just have to remember what we are. And what they’re not.  
+He stepped off the veranda into the night, the wooden boards creaking under his boots. Over his shoulder, he added, almost lazily:  
+— If they come at us, sis? We crush them, burn them, dig out children from the bellies of their wives by unsharp knife, whatever what'll be fun and games. Simple as that.  Wanna order some KFC?
