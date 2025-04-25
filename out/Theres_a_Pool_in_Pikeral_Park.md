@@ -456,7 +456,7 @@ But the gifts didn't stop at the lake. When I got home, ready to pick up my fath
 
 He turned to me, and I swore he saw the scab on my heart that started to form. He hugged me suddenly, but it wasn’t for my sake. He did it like someone lost adrift in a blizzard, desperate to find heat for survival. It was as if he could sense the dryness inching away at the damp, and pulled himself to leech a bit for himself. And I knew, then and there, that he deserved it too. I lost my mom. He lost that and more.
 
-I don't know if what happened was real. Maybe we were crazy, or drunk, or lost. I know I didn't drink that night, but is it more plausible to believe I *couldn't* have than what I remember? My life hasn't been perfect since I went to Pikeral Park, but the pain I felt up to my plunge doesn't ache like it used to. The scar is still there, but it has healed. It's firm now. Strong. But has faded to a benign mark. And, yes, I do muse some nostalgia over the broken windows in my glasshouse.
+I don't know if what happened was real. Maybe we were crazy, or drunk, or lost. I know I didn't drink that night, but is it more plausible to believe I *couldn't* have than what I remember? My life hasn't been perfect since I went to Pikeral Park, but the pain I felt up to my plunge doesn't ache like it used to. The scar is still there, but it has healed. It's firm now. Strong. Faded to a benign mark. And, yes, I do muse some nostalgia over the broken windows in my glasshouse.
 
 Whether or not it was real doesn't matter. Because my life turned around that night and the morning after. I don't know what compelled me to ask him, but I am glad I did.
 
@@ -464,4 +464,4 @@ Whether or not it was real doesn't matter. Because my life turned around that ni
 
 “Yeah, Scottie?” His breath smelled of whisky, but the word Scottie didn’t sting. I hadn't realized how much I had missed it.
 
-“There’s this pool in Pikeral Park. Will you go with me tonight?"
+“There’s this pool in Pikeral Park. Will you go with me?"
