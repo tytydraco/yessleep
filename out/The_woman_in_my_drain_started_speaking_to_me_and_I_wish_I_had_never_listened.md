@@ -62,7 +62,7 @@ I was a little taken aback.
 
 "With your new eye" Melissa said. Then the tap turned on and began to run a fluorescent green liquid as she continued on. "Just cover one eye, and run the other under this this. Be sure to bandage it up and wrap it in gauze afterwards. In the morning, cut the bandages off and you'll have a new eye, one that can see all things dead and far into the other side."
 
-I was a little shocked at her proposal. But I didn't know how shocked I could be. I *was* having a conversation with my kitchen sink. I approached the running faucet, hesitated, then held my hair behind my head with one hand, covered my right eye with the other and let the water trickle over my left.
+I was a little shocked at her proposal. But I didn't know how shocked I should be. I *was* having a conversation with my kitchen sink. I approached the running faucet, hesitated, then held my hair behind my head, covered my right eye and let the water trickle over my left.
 
 The water had a weird tingling sensation to it. Like somebody was tickling the back of my eyeball with a feather and I desperately wanted to scratch it. I ignored the feeling until the water shut off.
 
