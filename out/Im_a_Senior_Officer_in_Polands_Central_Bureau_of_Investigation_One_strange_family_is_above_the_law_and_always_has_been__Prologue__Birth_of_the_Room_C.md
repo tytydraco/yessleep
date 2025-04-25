@@ -71,9 +71,9 @@ Operations Terminated.
 Further Activity Restricted.  
 THIS CASE IS NOT IN YOUR JURISDICTION.
 
-For a long second, none of us moved. Magda slowly turned her head toward me. Her bony fingers bony fingers, with bitten nails and unrestored green nail polish, hovered frozen above the keyboard. Her lips parted as if to speak, but nothing came out. The color had drained from her face. I felt it too, that pressure in the chest, like the air had thinned. As if someone had cracked open a vacuum and sucked all the oxygen out of the room. And then, finally, in a whisper barely audible over the hum of the monitors, Magda said the words we were all thinking.
+For a long second, none of us moved. Magda slowly turned her head toward me. Her bony fingers, with bitten nails and unrestored green nail polish, hovered frozen above the keyboard. Her lips parted as if to speak, but nothing came out. The color had drained from her face. I felt it too, that pressure in the chest, like the air had thinned. As if someone had cracked open a vacuum and sucked all the oxygen out of the room. And then, finally, in a whisper barely audible over the hum of the monitors, Magda said the words we were all thinking.
 
-It’s her. It came from above.  From someone we couldn’t se From the one person in Poland who could kill an operation like Świetlik with a single phone call.
+It’s her. It came from above.  From someone we couldn’t se From the one person in Poland who could kill an operation like Skylight with a single phone call.
 
 The Matriarch.
 
@@ -99,7 +99,7 @@ Jacek stood up, wobbling slightly as he rubbed his eyes.
 
 I stared at the screen. The cursor was still blinking, a little digital metronome keeping time with the end of our careers.
 
-— They told us to dig, — I said. — They gave us clearance. Oversight, Ops, fuckin’ Coordination Group. Two weeks ago, they were screaming for blood. *Get the Fundusz Sprawiedliwości clowns before they poison the vote.* Their words, not mine.
+— They told us to dig, — I said. — They gave us clearance. Oversight, Ops, fuckin’ Coordination Group. Two weeks ago, they were screaming for blood. *Get the Justice Fund clowns before they poison the vote.* Their words, not mine.
 
 And now?
 
@@ -424,8 +424,27 @@ And then, as if that exhausted whatever thin reserve of candor he had left, he c
 
 \-----------------------------------------------------------------------------------------------------------------------
 
- I thought I’d buried it. That night on the veranda, the way my father’s voice dipped into something colder and smaller when he talked about the Bińskis. The way the conversation ended — not with an explanation, not with advice, but with a silent warning: don’t dig. I thought I filed it away forever, locked it deep under “shit I’ll never understand” — right next to Vatican finances and what really happened to that MiG crash in ‘96. But memories have a funny way of clawing their way back when you’re angry enough. And that night, standing under the dead buzz of fluorescent lights, staring at the empty, blinking cursor where Operation Skylight used to be, I remembered everything. Not scared. Not spooked. Just… pissed off. 
+ I thought I’d buried it. That night on the veranda, the way my father’s voice dipped into something colder and smaller when he talked about the Bińskis. The way the conversation ended — not with an explanation, not with advice, but with a silent warning: don’t dig. I thought I filed it away forever, locked it deep under “shit I’ll never understand” — right next to Vatican finances and what really happened to that MiG crash in ‘96. But memories have a funny way of clawing their way back when you’re angry enough. And that night, standing under the dead buzz of fluorescent lights, staring at the empty, blinking cursor where Operation Skylight used to be, I remembered everything. Not scared. Not spooked. Just… pissed off.
 
 Pissed that even my father, the always-on-the-top man who raised me to believe in facts, in work, in doing the hard thing, had folded like it was nothing. Pissed that for all their money, all their myths, all their careful, invisible hands, the Bińskis were still just people. Pissed because I wanted to be a good guy. Still. Even now. And when I looked around that wrecked ops room, I saw it in their faces too. Magda, chain-smoking with one boot braced against the wall, daring the ceiling to fall. Jacek, scowling at nothing, because nothing was all we had left. Mateusz, pale and stubborn, blinking too fast like he wasn’t gonna cry but maybe could’ve. They wanted the same thing. Not glory. Not revenge. Just to be good people in a system that didn’t want good people anymore. That’s why we did it.
 
 That’s why Room C was born.
+
+\---------------------------------------------------------------------------------------------------------------------------
+
+That night, I couldn’t sleep. When I finally drifted off, the dream came.
+
+I saw a veranda. Faded wood, creaking under the weight of late summer heat. Two young people, maybe twenty, twenty-two, sat there. A girl in ripped jeans rubbed her temples like she was fighting off a migraine. A boy in a tweed jacket scrolled lazily through TikTok shorts on his phone, half-listening.
+
+— My head hurts.  
+— Again?  
+— No, it's different. I can feel it. Something’s... wrong. We have a new enemy.  
+— Haha, good. Maybe things will finally get interesting.  
+— You're an idiot as always, Kuba.  
+— Come on, don't be so serious. It’s probably just the Tusk and his peons whining again.  
+— It’s not that. It’s something sharper. Closer.  
+— That’s normal you head's explodin' every after the feedback. Mother’s stirring shit again, as usual.  
+— Be careful.  
+— Oh, please. Old Grandpa Lucek didn’t jump at every shadow. Maybe we should remember that.  
+— Grandpa's dead.  
+— And yet somehow, he handled things better than half this room.
