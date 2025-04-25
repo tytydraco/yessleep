@@ -240,7 +240,7 @@ Ray nodded solemnly. "They’re saying it might be some kind of chemical hazard.
 
 "Has anyone else reported anything unusual?" I asked in a barely audible whisper. "Anything about the building? The elevator?"
 
-Ray’s expression shifted subtly. "Funny you should ask. Mrs. Henderson from 1202 mentioned something about the elevator stopping on a floor that doesn't exist." He shook his head. "I told her she must have pressed the wrong button or imagined it. You know, thirteenth floor superstition gets to people. This building is old enough to have its quirks."
+Ray’s expression shifted subtly. "Funny you should ask. Mrs. Henderson from 1214 mentioned something about the elevator stopping on a floor that doesn't exist." He shook his head. "I told her she must have pressed the wrong button or imagined it. You know, thirteenth floor superstition gets to people. This building is old enough to have its quirks."
 
 I nodded mechanically; someone else had seen it. I wasn’t losing my mind.
 
@@ -256,7 +256,7 @@ Glancing around once more, Ray motioned for me to lean closer. "There have been 
 
 His eyes widened, and he nodded slowly.
 
-For a long, heavy moment, Ray was silent. Finally, he sighed, his shoulders slumping. "I've worked here for sixteen years. I’ve seen residents come and go. I’ve watched this building age. Three years ago, the night janitor quit without notice, left his keys, his uniform, everything. He just disappeared. Before he left, he told me something I’ve never forgotten." He swallowed hard. "He said he’d seen Death itself in the service elevator, wearing a heavy white coat."
+For a long, heavy moment, Ray was silent. Finally, he sighed, his shoulders slumping. "I've worked here for thirty years. I’ve seen residents come and go. I’ve watched this building age. Three years ago, the night janitor quit without notice, left his keys, his uniform, everything. He just disappeared. Before he left, he told me something I’ve never forgotten." He swallowed hard. "He said he’d seen Death itself in the service elevator, wearing a heavy white coat."
 
 A chill ran down my spine. "And did you believe him?"
 
