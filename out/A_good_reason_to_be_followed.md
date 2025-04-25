@@ -1,0 +1,13 @@
+This will sound like a fictional story to some but to others who have felt it (kind of) will think of this as a good reminder to always watch your back. 
+
+6 years ago I was in a coffee shop at Starbucks and I was ordering a cappuccino and I saw someone in the corner of my eye. Watching me, I sat down and had my drink and then I left but when I was walking to the shop to get some food the person was still following me so I did something now that I think was stupid.
+
+I went to the men’s toilets and locked myself in a bathroom, I heard a knock on the door and I said what anyone would say “someone is in here, sorry.” But they stood there still for about 2-3 mins because I could see their feet bellow the door and I “asked what do you want?” And the man said “I was paid to kidnap you, but I’m doing the right thing. I won’t do it.” I wondered why me? It turns out a group of people were following me for 5 months because of past family history.
+
+I then left the stall and talked to him in private next to a shop alley. He was about 6ft 1 with black hair and green eyes and we talked for about 10 mins and then we exchanged numbers so I could check on him when he was in a safe place from the people. 
+
+He walked me home and I trusted him because if he really did want to do something to me he would of done it in the alley, I waved him off but I saw 2 men in masks down about 50-70 feet away from my house watching in ski masks. I then messaged him about 30 mins later saying “how you doing?” The man then said “I’m walking home now but I do not know what the people will do to me.” I then said “don’t worry just go to the police and write a statement.” The man then replied very fast saying “that isn’t possible.” And I was extremely confused because anyone normal would do that. He then said “I have a history of violence including the police.” And I then thought and said “go home, lock your doors and just wait in case somebody knocks and if they do, call the police.” And the man agreed and then he messaged me later in the evening messaging me “they found me.” I was in shock because he sent me a photo of the people and 1 of the men wasn’t wearing a mask. It was my uncle who was an alcoholic 10 years ago and it seems he was still on it, the man messaged me saying “I know them, I owe them money. I stole from them a few weeks ago .” I then messaged him saying “call the police now, do it.” …The man never messaged me again, I never saw him again and to this day I have not seen my uncle since.
+
+I then a week later went to the police to do a missing persons report and a restraining order against my uncle and hopefully I never see him again. 
+
+I do not want it to happen again.
