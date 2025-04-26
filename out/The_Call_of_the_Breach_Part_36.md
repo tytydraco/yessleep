@@ -1,5 +1,7 @@
 [\[Part 35\]](https://www.reddit.com/user/RandomAppalachian468/comments/1juy5bm/the_call_of_the_breach_part_35/)
 
+[\[Part 37\]](https://www.reddit.com/user/RandomAppalachian468/comments/1k83hj1/the_call_of_the_breach_part_37/)
+
 Soft wind kissed my face, a cool summer breeze that bore the sweetness of fresh blossoms, laced with the rustle of a thousand blades of grass. Light filtered through the skin of my closed eyelids, and the generous warmth of the sun flowed over me, a familiar radiance that drove the chill from my skin bit by bit. Tender patches of vegetation cushioned each limb, lush clover, ryegrass, and speltz damp with the morning’s dew. Birds chirped to one another somewhere overhead, and insects hummed amongst the grass in the world began its day.
 
 I blinked, my eyes fluttered open as air rushed into my lungs and squinted against the bright sunshine.

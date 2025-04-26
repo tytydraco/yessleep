@@ -108,3 +108,4 @@ I walked out.
 
 Didn’t look back.
 
+[Continued](https://www.reddit.com/r/nosleep/s/l1EerR5JXs)

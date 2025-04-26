@@ -191,7 +191,7 @@ When I placed my head on the wall farthest from the door, I knew I was getting c
 
 I stepped back to fully examine the wall, trying to and failing to comprehend the phenomena. There was barely any hollow space behind it. Not enough to fit a sound system or a record player, that's for certain. If I took a sledgehammer to the plaster, I would just create a hole looking out into the backyard.
 
-I stared at the decaying wallpaper, dumbfounded. I dragged my eyes over the surface of the wall, again and again, but no epiphany came. All the while, the song kept looping.
+I stared at the decaying wallpaper, dumbfounded. I dragged my eyes over the crumbling surface, again and again, but no epiphany came. All the while, the song kept looping.
 
 On what must have been the twentieth re-examination, my gaze finally hooked into something new. There was a faint sliver of darkness that ran the length of the wall, from ceiling to floor, next to the corner of the room.
 
@@ -269,11 +269,11 @@ The man was also gone, but something replaced him. Like the scratched-out people
 
 All I could appreciate were the polaroids.
 
-Thousands of nearly identical images seemed to form its body. They jutted out of the entity at chaotic-looking angles: reptilian scales that had become crowded over time, and each one was fighting to maintain a tenuous connection to the flesh hidden somewhere underneath.
+Thousands of nearly identical images seemed to form its body. They jutted out of the entity at chaotic-looking angles: reptilian scales that had become progressively overcrowded, each one now fighting to maintain a tenuous connection to the flesh hidden somewhere underneath.
 
-It didn’t have fingers. Instead, the plastic squares formed a kind of rudimentary claw. Two-thirds down the arms, its upper extremities bifurcated into two saucer-shaped, plate-sized digits.
+It didn’t have fingers. Instead, the plastic squares formed a kind of rudimentary claw. Two-thirds down the arms, its upper extremities bifurcated into a pair of saucer-shaped, plate-sized digits.
 
-I watched as the right arm curved towards its torso. The motion was rigid and mechanical, and it was accompanied by the squeaking of plastic rubbing against plastic. It grasped a single picture at the tip of its claw. Assumably the one that had just been taken.
+I watched as the right arm curved towards its belly. The motion was rigid and mechanical, and it was accompanied by the squeaking of plastic rubbing against plastic. It grasped a single picture at the tip of its claw. Assumably the one that had just been taken.
 
 The one that included me.
 
