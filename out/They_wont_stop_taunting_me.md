@@ -15,3 +15,21 @@ I want to restate that I have nowhere to live and live far out from any towns. W
 Despite my best efforts to keep truckin' through, they just keep getting to me. I’m not even scared of the supernatural or paranormal, just annoyed at this point. With all of my focus being on this, my work has started to decrease in quality. 
 
 I'm not entirely sure what I'm looking for, but I need some form of distraction for a solution. Something, even if it's just writing to keep myself from losing my mind.
+
+
+
+Edit
+
+Hey everyone. I'm still surprised anyone has even seen this. It has been a few days since my last post, and I really appreciate everyone who believes in me. Since I'm alone out here and I'm so far removed from everyone, I honestly needed this. I loved how some of you really started looking into these things on my behalf. I even tried some of the tips you all have left. Unfortunately for me, I haven't been able to see any success. If anything, I think it's getting worse.. For those of you who didn't see my last post, hi, I'm Margrett, and I've been dealing with various strange occurrences in my new house. (Northern mountain range, btw) .No, my main reason for posting last time was that I was stressed beyond belief by the weird stuff that's been happening on my property. I've tried taking longer breaks to relax and meditate, and I’ve even started DOING YOGA EVERY MORNING NOW! Nothing, and I mean nothing, has helped. Sure, my work has improved a bit since I've been taking more breaks to relax, but these problems have just been getting worse, and I'm losing sleep over it. 
+
+The other day, I was doing yard work, mainly just cleaning up leaves. While I was breaking my back over that, any time I looked away from my barrel of sticks, when I looked back, it would be 5 feet away from me. (I'm not sure what is with the fives, but it's weirdly consistent.t) When I say every time I look aw, ay even if it's a glance, if I'm not holding on to the barrel itself it's gone when I look back to put sticks in it. This isn't even life-ruining; it's just petty. 
+
+It must have taken me a whole hour longer than usual to clean up the fallen branches around the house.  
+
+The following days weren't any better. Despite working online, I'm supposed to go for walks every day to avoid getting stagnant. I had noticed earlier that morning a few things were missing from my porch. 
+
+  Things on my porch have started to go missing, only to show up on the trails. And I know my things, not just me misplacing stuff and finding it in the woods.
+
+When I went inside, any time I walked past a window, I swear I could have seen them. Their faces this time.  Their uncanny pale faces are only ever out of the corner of my eye.
+
+And this morning, I woke up only to then find a bunch of silhouettes sitting on my porch. I rushed out of my house only to find that they were all gone. There had to have been at least 8 people, and by the time it took for me to walk out of the kitchen and onto the porch, not only were they all gone, no, oh no, I don't even get the satisfaction of hearing them running off into the woods. The closest tree was 8 yards away, and there wasn't a sound or any trace of them being there in the first place. I was so close to catching them. I swear that I'm going to lose it. 

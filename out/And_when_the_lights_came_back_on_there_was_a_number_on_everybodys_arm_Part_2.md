@@ -235,3 +235,5 @@ And I tuned into Chris’s repeating, distorted message again. “*Do you want, 
 And as Blair seemingly took the reigns of being the commander and lens for our final sprint, I tried to sit with that pointed, subtextless message and reconcile with the reality that I’d just now broached something completely inconsistent with *me,* the *me* I thought I was, though said reconciliation wasn’t completely hitting as I also had to come to terms with the fact that it wasn’t a trick of the light, and that indeed Lindsey, marketing lead, frequent all-hands presenter and group leader of our social committee was *absolutely* bent over looking at us with a smile on her face and blood dropping from her mouth.
 
 “*You two,*” she said, “*It’s so good to see you here, right now.*” 
+
+[Part Three \[FINAL\]](https://www.reddit.com/r/nosleep/comments/1k8kf2f/and_when_the_lights_came_back_on_there_was_a/)
