@@ -8,11 +8,7 @@ All I wanted in life was to be loved.  
 
 And for a while, I thought I’d finally found it. But I left something behind over there—something I know I’ll never get back. And something else followed me home.  
 
-
-
 —
-
-
 
 It started with a trip to Europe. After five gruelling years of law school, l'd stumbled into a job at one of the most cutthroat corporate firms-the kind where the paycheques numbed the soul-crushing hours. Will, my best friend, had been there two years already, a golden boy with a knack for charming clients and a salary that funded his taste for single malts and bougie clubs. He took me under his wing, teaching me the unspoken rules of"real law": how to bill ruthlessly, schmooze judges, to understand and break the rules.
 
@@ -132,11 +128,7 @@ I inhaled—jasmine, vanilla, the musk of her perfume—as she struck the bowl. 
 
 The last thing I remember is her smile—tender, almost maternal—as the world dissolved into warmth. 
 
-
-
 —
-
-
 
 I awoke in my hotel bed, the sheets tangled around me. My head felt light, as if a vice I hadn’t noticed had finally loosened its grip. Exhilaration buzzed under my skin, electric and unfamiliar. Memories of the night before flooded back—soft whispers, the warmth of her body against mine, the way her hands had traced patterns I’d only dreamed of. Passion. Pleasure. Connection.  
 
@@ -146,21 +138,13 @@ I fell back onto the pillows, a grin spreading across my face. For the first tim
 
 My phone buzzed on the nightstand. A single message from an unknown number:  
 
-
-
 **“I hope you had a wonderful time, Lieverd.”**
-
-
 
 My chest tightened. I wanted to reply, to thank her, to ask if I’d see her again—but I stopped myself. This wasn’t about her. Not really. Sable had been the spark, but the fire was mine. For the first time, I felt a flicker of confidence, a lightness in my step. She’d given me a glimpse of what I could be, and I wasn’t going to let that slip away.  
 
 I wish I could have held onto that feeling, bottled it like a rare perfume. I wish I could have kept it close, a talisman against the grey monotony of my old life. But the light she’d ignited never burned as brightly ever again.  
 
-
-
 —
-
-
 
 The conversation with Will was a blur of backslaps and crude jokes. He congratulated me in that blokish way of his, grinning like we’d just won a bet. “Soon you’ll be pullin’ as much as me!” he crowed, jabbing my ribs. I cringed at his theatrics but let him revel in it. I spared him the details—to his disappointment—but he could tell I’d changed. My silence felt lighter, my posture less hunched.  
 
@@ -182,11 +166,7 @@ He shrugged. “Look, there’s cheaper ways to get laid, but if you need the co
 
 Will studied me, then smirked. “All good, we’re here for fun.”  
 
-
-
 —
-
-
 
 That night, the district felt different. At first, I revelled in it—the garish neon, the bass thudding through the cobbles, the way the fog clung to the streetlamps like smoke. I let myself be swept up again, chasing that fleeting high. For a moment, it worked: the lights blurred into a kaleidoscope, the laughter of strangers fizzed like champagne in my veins, and I thought, ‘This is it. This is living.’ 
 
@@ -212,13 +192,9 @@ My throat tightened. I fumbled for my phone, the screen glaring in the dark. Bef
 
 **“Are you there?”**
 
-
-
 The reply came seconds later, as if she’d been waiting:  
 
 **“You know where to find me.”**
-
-
 
 I pushed through the crowd, shoulders hunched against the predatory stares, the hissed offers, the grasping hands. I was no longer prey—I had a purpose. When I broke free of the throng, she stood there, waiting.  
 
@@ -250,11 +226,7 @@ I obeyed, inhaling jasmine, vanilla, her.
 
 I fell into her, and the world dissolved.  
 
-
-
 —
-
-
 
 I awoke in my bed yet again. A swell of pride filled the hollow where Sable had drunk her fill. My body hummed with the ghost of her touch, every nerve still singing. The memories of the night swirled—slippery, fragmented. A gasp. A shudder. A moan. But when I tried to grasp them, they dissolved like smoke, leaving only her face: Sable, fully clothed, those red lips curved in a smile. Her voice lingered, a phantom whisper: ‘Think of me.’
 
@@ -262,11 +234,7 @@ And I did. 
 
 But as the morning wore on, the glow faded. The memories felt like a dream half-remembered—edges blurred, colours bleached. The fuzzy blurring bled into my vision, the colours of the hotel room fainter than before. 
 
-
-
 —
-
-
 
 Will cornered me over my morning coffee, his brow furrowed. “You plotted the next stop yet?”  
 
@@ -288,17 +256,11 @@ But as he left, the lie curdled. I pulled out my phone, thumb hovering over Sabl
 
 **“You know where to find me.”**
 
-
-
 Outside, the rain began to fall—soft, relentless—and with it, the faintest whisper of jasmine lingered in the air.
 
 I almost heard a whisper from the pattering on the window. “*Hello, Lievard*.” 
 
-
-
 —
-
-
 
 I picked a destination at random, my thoughts syrupy and scattered. We packed haphazardly, then hauled our bags down to reception. The female concierge—bright-eyed, polished—smiled as we stepped off the lift. “Checking out?”  
 
@@ -332,11 +294,7 @@ The machine chirped cheerfully.  
 
 “Enjoy the rest of your trip!”  
 
-
-
 —
-
-
 
 In the lift, Will eyed me. “Your account empty or somethin’?”  
 
@@ -352,11 +310,7 @@ The doors opened to the garage. Will dragged his suitcase out, the wheels screec
 
 By the time I reached the car, my shirt clung to me with a strange cold sweat. We drove out of Amsterdam in silence.
 
-
-
 —
-
-
 
 The drive was uneventful. Will tried to lighten the mood with his usual banter, but my responses were clipped, distant. He sensed the tension but didn’t press—just filled the silence with jokes and anecdotes. I let him talk, my mind elsewhere. Five days in Amsterdam. The thought gnawed at me. What had I done?  
 
@@ -386,37 +340,23 @@ I typed:  
 
 **“Hey.”**
 
-
-
 The cursor blinked, mocking my hesitation. I added:  
 
 **“How much did I spend with you?**”
-
-
 
 The reply came faster than I expected.  
 
 **“You certainly liked my company. It was quite a number of times.”**
 
-
-
 I frowned.  
 
 **“My memory is hazy. Did we do any drugs?”**
 
-
-
 **“We did not. I only did as you purchased. I made you relaxed.”**
-
-
 
 **“Then why is it so hard to remember?”**
 
-
-
 **“My methods are… unique.”**
-
-
 
 I stared at the screen, my mind racing. What had she done to me? I tried to claw back the memories—fragments of candlelight, her voice, her touch—but they slipped through my fingers like smoke.  
 
@@ -424,33 +364,21 @@ A tone suddenly rattled through me, vibrating deep in my chest, a pleasant hum t
 
 I checked my phone. Another message waited.  
 
-
-
 **“*****Lieverd*****, I help people unwind. Guide them into a state where their thoughts quiet, their bodies listen. It’s all about letting go, surrendering to what they truly need.”**
-
-
 
 My stomach twisted. Below her message, a reply I didn’t remember sending:  
 
 **“I see.”**
 
-
-
 The conversation continued:  
 
 **“If you’ve been dissatisfied with our sessions, I offer a partial refund. If you truly want it,Lieverd.”**
-
-
 
 Another unrecognised reply:
 
 **“No, it’s okay. Thank you, Sable.”**
 
-
-
-**“Thank you,** ***Lievard*****.”**
-
-
+**“Thank you,** ***Lievard***\*\*.”\*\*
 
 The panic that had gripped me moments ago melted away. That name-*Lievard*\-sent a shiver of warmth through me. I couldn’t help but smile, my earlier fears suddenly forgotten.  
 
@@ -458,11 +386,7 @@ The car door swung open, jolting me from my thoughts. Will slid into the driver�
 
 I looked outside and saw Will had definitely finished fuelling up. I nodded and laid back in my seat, suddenly desperate for the sense of calm I just lost.
 
-
-
 —
-
-
 
 I lay awake in my hotel room, staring at the ceiling, the dim glow of the bedside lamp casting restless shadows along the walls. Through the thin partition, I heard it again—a soft, breathy sound of pleasure. Will’s room. Another conquest. Another night of indulgence.
 
@@ -478,8 +402,6 @@ But before I could silence the impulse, my phone was already in my hand, a messa
 
 **“Hey, I know it’s late and you’re probably busy, but can we talk?”**
 
-
-
 I waited, shaking my head at the stupidity of it.
 
 Then—message read. My body tensed.
@@ -488,13 +410,9 @@ The typing bubbles began to bounce. My grip tightened around the phone as if it 
 
 Her reply came.
 
-**“What is it,** ***Lieverd*****?”**
-
-
+**“What is it,** ***Lieverd***\*\*?”\*\*
 
 My pulse quickened. **“I know it’s stupid, but… can you send me a photo of your beautiful face? Just so I can remember you?”**
-
-
 
 Message read. The knot in my stomach pulled tighter.
 
@@ -514,8 +432,6 @@ My excitement grew.
 
 **“Beautiful as ever, Sable. But… I’m lonely tonight. Can I see more?”**
 
-
-
 The wait was longer this time, time itself stretching, taunting me. I stared at the blinking cursor, anticipation curling around my ribs.
 
 Had I been too bold? Did I sound desperate? Was I just a creep?
@@ -528,23 +444,13 @@ A link.
 
 **PayPal.**
 
-
-
 **“I only ask for a small donation, Lieverd. Then you may see what you desire.”**
-
-
 
 My mind wrestled with the implications, the unspoken transaction. But as I read her message again, the fear, the doubt—all of it melted away. A slow, familiar exhilaration replaced it, spreading like warmth through my veins.
 
-
-
 **“Must I? I only ask for one picture.”**
 
-
-
 **“If you truly desire it. Yes.”**
-
-
 
 A new image appeared.
 
@@ -558,11 +464,7 @@ I scrolled up. My thumb hovered over the link.
 
 And I clicked.
 
-
-
 —
-
-
 
 I woke at dawn, tangled in sweat-damp sheets, my clothes strewn like roadkill across the floor. The air was thick with the scent of shame and stale arousal.
 
@@ -588,19 +490,11 @@ Then, at the very top of the screen, I froze.
 
 The unknown number had a name now.
 
-
-
 **Your Love—Sable.**
-
-
 
 I stared at it, my skin crawling with something nameless before forming into a loving caress. I wanted to type, to beg for the pictures back, to ask her what was happening. My thumbs hovered over the keyboard, but my breath hitched as my eyes caught her final message.
 
-
-
-**“Sleep well,** ***Lieverd*****.”**
-
-
+**“Sleep well,** ***Lieverd***\*\*.”\*\*
 
 A smile consumed me, I drifted into the feeling.
 
@@ -636,3 +530,4 @@ The car turned.
 
 And I had no idea where we were going.
 
+[PART 2](https://www.reddit.com/r/nosleep/comments/1k7z8pk/i_was_solicited_while_abroad_and_now_my_memory_is/)
