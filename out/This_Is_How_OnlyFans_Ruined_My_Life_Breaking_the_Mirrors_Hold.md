@@ -91,3 +91,5 @@ I'm keeping the key.
 Let the mirror stay shattered. Let the story breathe but on my terms. Because I'm not haunted anymore.
 
 I'm the haunting.
+
+What happened after that: https://www.reddit.com/r/nosleep/s/icGIPUKxRJ
