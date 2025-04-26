@@ -378,7 +378,7 @@ Another unrecognised reply:
 
 **“No, it’s okay. Thank you, Sable.”**
 
-**“Thank you,** ***Lievard***\*\*.”\*\*
+**“Thank you,** ***Lieverd***\*\*.”\*\*
 
 The panic that had gripped me moments ago melted away. That name-*Lievard*\-sent a shiver of warmth through me. I couldn’t help but smile, my earlier fears suddenly forgotten.  
 
