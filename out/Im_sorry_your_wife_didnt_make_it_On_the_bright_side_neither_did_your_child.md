@@ -366,13 +366,13 @@ Then he stood, "Fine then. Follow me.", is all he said, walking around his desk 
 
 I followed. Down the hall, into the elevator. 
 
-He didn't press a button. He pressed a certain sequence if then. 
+He didn't press a button. He pressed a certain sequence of them.
 
 1-91-3-89-6-7
 
 And the elevator reacted. Closing its doors. And going down. 
 
-I sniffled softly, keeping my tears to myself. I guess I'd only had so long until I really started to dawn on me that Tiffany wasn't coming back.
+I sniffled softly, keeping my tears to myself. I guess I'd only had so long until it really started to dawn on me that Tiffany wasn't coming back.
 
 He stood, not acknowledging my quiet whimpers. And I appreciated it. 
 
@@ -444,7 +444,7 @@ And I had no response worthy of countering it. So I just continued to walk behin
 
 "A *lot* of you couldn't keep it in your damn pants.", he said under his breath, annoyed. 
 
-"Do not interrupt the doctors. You're here to *see* your daughter. Nothing more", is te last thing he said, oping the door. 
+"Do not interrupt the doctors. You're here to *see* your daughter. Nothing more", is the last thing he said, opening the door. 
 
 We stepped in. And I immediately felt my fists clench. Adrenaline once again flooding my veins at the sight. 
 
@@ -618,7 +618,7 @@ I parked in my front yard. Walked into my home.
 
 *I cleaned the house. Took out the trash. Trimmed the lawn. And went to work.*
 
-*I made funeral arrangements. I waked Tiffany's body get lowered.*
+*I made funeral arrangements. I watched Tiffany's body get lowered.*
 
 *I didn't jump in.*
 
