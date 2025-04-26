@@ -167,7 +167,7 @@ You see, there were three rooms that split off from the hallway that led to the 
 
 *Maybe I’m just forgetting the layout. I haven’t been here that long, after all.*
 
-I remembered there being three rooms, but I was looking at four doors, and the muffled sounds of “*My Dark Star”*were coming from the room I couldn’t remember.
+I remembered there being three rooms, but I was looking at four doors, and the muffled sounds of *”My Dark Star”* were coming from the room I couldn’t remember.
 
 My palm lingered on the doorknob. Despite multiple commands, my hand wouldn’t obey. I couldn’t overcome my fear. Eventually, though, I found a mantra that did the trick. Three little words that have bedeviled humanity since its inception: a universal fuel, having ignited the smallest of brutalities to the most pervasive, wide-reaching atrocities over our shared history.
 
