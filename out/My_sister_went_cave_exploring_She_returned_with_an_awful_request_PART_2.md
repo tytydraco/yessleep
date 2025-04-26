@@ -78,7 +78,7 @@ My eyes stung from the tears. "Look at me."
 
 "You were there for a few hours. You couldn't have crawled too deep."
 
-"No. Time is different down there. I knew you wouldn't understand."
+"No. Time is different down there. I knew you wouldn't understand. You need to be there, I thought, Jude... that I was hearing my heartbeat, but it was the Earth's..."
 
 The food had gone cold. All was cold and bland. The house was still. Nothing mattered to me anymore.
 
@@ -106,8 +106,8 @@ I drove to my mother and told her everything. We came back to the house in the m
 
 Our backyard had a small opening in the ground, enough so that someone could crawl through it.
 
-Em has been missing for over 6 days now, and sometimes I can hear her calling my name, a barely perceptible whisper, echoing through the tunnel in our yard.
+Em has been missing for over two weeks now, and sometimes I can hear her calling my name, a barely perceptible whisper, echoing through the tunnel in our yard.
 
 I know you'll say I should move out, but she's my sister.
 
-And I don't want to let her rot down there.
+And I'm still hoping that she'll come out.
