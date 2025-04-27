@@ -10,7 +10,7 @@ But instead, after giving us a look of contemplation, she just backed away, cont
 
 Blair and I went for it—a mad dash this time.
 
-“Go, go,” I said, as we sprinted around tables, bodies, and violent strangers to close the last few meters between us and the hallway. I heard multiple “Hey’s!” coming from distant corners and from folks crawling out from cover. I prayed Blair still had her half of a scissor blade if needed, but as we stepped out of the open office, it was clear that the department fights, megaphones, and now—Sabrina’s hollow gun—served as enough of a powder keg to make our small fireworks presentation seem lame in comparison. 
+“Go, go,” I said, as we sprinted around tables, bodies, and violent strangers to close the last few meters between us and the hallway. I heard multiple “Hey’s!” coming from distant corners and from folks crawling out from cover. I prayed Blair still had her half of a scissor blade if needed, but as we stepped out of the open office, it was clear that the department fights, megaphones, and now—Lindsey’s hollow gun—served as enough of a powder keg to make our small fireworks presentation seem lame in comparison. 
 
 I turned to look—no one was after us.
 
@@ -220,7 +220,7 @@ The doors started closing—until a hand slipped in, stopping them.
 
 They slid open again. Chris, the man with the megaphone entered. “*Ladies*,” he said. They closed again. “We all going up?”
 
-“Yes,” both Blair and I said in unison, to Sabrina’s shock.
+“Yes,” both Blair and I said in unison, to Lindsey’s shock.
 
 “Wait,” she said. “This is going up?”
 
