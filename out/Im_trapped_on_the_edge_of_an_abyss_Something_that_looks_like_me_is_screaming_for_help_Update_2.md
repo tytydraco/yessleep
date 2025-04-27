@@ -441,3 +441,5 @@ I let things mellow out and focused on getting Hope settled in before getting ba
 Things just keep getting more strange around here, and I’m wondering if I’m ever going to find some answers to balance it out.
 
 Hopefully talk to you all again soon.  
+
+[Next update](https://www.reddit.com/r/nosleep/comments/1k9eybx/im_trapped_on_the_edge_of_an_abyss_the_dead/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
