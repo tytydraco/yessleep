@@ -196,5 +196,6 @@ At the door back into existence swinging open before him.
 
 He hesitated.
 
+[Continued](https://www.reddit.com/r/nosleep/s/loCCKzAsur)
 
 
