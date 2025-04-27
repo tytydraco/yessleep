@@ -55,9 +55,9 @@ Not in sound — in motion.
 
 The floor writhed underfoot, stretching and tearing, the hallway out bulging and buckling like the world itself was trying to push us back.
 
-The doors along the corridor slammed open, then shut, then open again — a stuttering, furious heartbeat.
+Doors along the corridor slammed open, then shut, then open again — a stuttering, furious heartbeat.
 
-We ran anyway.
+We ran.
 
 I grabbed Sam’s hand and pulled her forward, feeling the house tug at my shoulders, trying to rip us loose.
 
@@ -101,7 +101,7 @@ We stood in the dirt and watched it die.
 
 --
 
-It's been four years.
+It's been three years.
 
 Different state.
 Different house.
