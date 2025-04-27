@@ -129,3 +129,5 @@ But last night I woke up in the middle of the night. Emma was still asleep, her 
 I’ve spent the entire day today trying to figure out what caused it. Wasted my entire Sunday. I tore the house apart and checked every inch of the exterior. Every bush, every tree, anything that could reproduce the knock. But it was a dead end at every turn. In the back of my mind, I knew I was simply delaying the answer I already knew was right. Emma thinks I’m going crazy trying to find the source of a knock that wasn’t even loud enough to wake her up. But she doesn’t understand and I don’t intend to explain it to her. Not yet anyway. 
 
 I’m afraid to go to sleep tonight. I don’t know what will happen. Maybe nothing, maybe the same thing, maybe something worse. The unknown worries me, because the Knocker isn’t the worst thing I encountered on that job. And as much as he terrifies me, there are much bigger fish in the sea.
+
+[Next post](https://www.reddit.com/r/nosleep/s/hZ1fHCySXj)
