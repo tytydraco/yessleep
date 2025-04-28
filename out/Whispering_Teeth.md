@@ -74,9 +74,11 @@ Until last month, when it became my turn to deal with his uncanniness. I receive
 
 It was time to bury him.
 
-Historically, the unclaimed dead were eventually buried in what’s called a *Potter’s Field*. I don’t know the exact origin of the term. Try not to hold that against me. I’m confident it’s a biblical reference. Beyond that, your guess is as good as mine.
+Historically, the unclaimed dead were eventually buried in what’s called a *Potter’s Field*, on the state’s dime, of course. I don’t know the exact origin of the term. Try not to hold that against me. I’m confident it’s a biblical reference. Beyond that, your guess is as good as mine.
 
-Most cities have strayed for that practice nowadays. Cremation is cheaper than a pine box, and it’s a smaller burial plot. I live in one of the few hold-out cities that still utilize Potter’s Fields. If I had to speculate, I’d say we’ve resisted that change because of the high percentage of Greek Orthodoxy present in our community. It’s one of the few Christian faiths that hasn’t evolved to accept cremation.
+Basically, it was a mass grave with a nicer name. 
+
+Most cities have strayed from that practice nowadays. Cremation is much cheaper than a pine box. I live in one of the few hold-out cities that still utilize Potter’s Fields. If I had to speculate, I’d say we’ve resisted that change because of the high percentage of Greek Orthodoxy present in our community. It’s one of the few Christian faiths that hasn’t evolved to accept cremation.
 
 I procured only the finest of pine boxes for our old friend Dough. Less than forty-eight hours later, we lowered him into an unmarked grave.
 
@@ -94,7 +96,9 @@ Mr. Thompson, our grounds keeper, just wasn’t prepared for such an onslaught. 
 
 Yesterday morning, Mr. Thompson barged into the house, drenched in sweat and trembling like a child. He begged me to follow him. There was something I needed to see with my own eyes.
 
-When we approached Dough’s grave, I couldn’t quite grasp what I was looking at. From the front, it appeared to be some sort of discolored potato, a red-blue spud peeking out of the soil. The growth had many ridges, tubes that slithered and twisted under the violaceous peel towards the apex, almost vascular in their appearance, accompanied by what looked to be a few bite marks. Hundreds of incredibly thin, crimson sprigs emerged from the length of the tuber: dainty threads that connected it to the surrounding dirt, faintly pulsing every second or so.
+When we approached Dough’s grave, I couldn’t quite grasp what I was looking at. From the front, it appeared to be some sort of discolored potato, a red-blue spud peeking out of the soil. The growth had many ridges, tubes that slithered and twisted under the violaceous peel towards the apex, almost vascular in their appearance. I spied a few bite marks as well.
+
+I squinted and noticed something else: hundreds of incredibly thin, crimson sprigs emerged from the length of the tuber: dainty threads that connected it to the surrounding dirt, faintly pulsing every second or so.
 
 *“What do you suppose it is?”* I asked Mr. Thompson, standing in front of the mysterious polyp, perplexed but not yet afraid.
 
@@ -106,14 +110,14 @@ A glossy, curved half-crescent covered the back-half of the growth. It was opaqu
 
 It looked like a fingernail.
 
-Something about the soil had allowed Dough to bloom.
+Something about the soil had allowed Dough to…I don’t know, expand? Bloom? I’m not sure what the right word is.
 
 And when I listened closely, I could appreciate a high-pitched, rapid, clicking sound in the earth below my feet. 
 
 
 \- - - - - 
 
-The last twenty-four hours have been an absolute whirlwind. Long story short, the entire Cemetary is on lockdown. In the meantime, they’ve quarantined me, Jim, Paige, and Mr. Thompson to the house. Armed men standing at every exit, something I thought only really happened in the movies.
+The last twenty-four hours have been an absolute whirlwind. Long story short, the entire Cemetary is on lockdown. We called the cops, and they called in the government. They’ve quarantined me, Jim, Paige, and Mr. Thompson to the house. Armed men standing at every exit, something I thought only really happened in the movies.
 
 I think their efforts may be too late, though.
 
@@ -124,5 +128,7 @@ I crawled out of bed and found our dog lying on the floor. unresponsive and puls
 A sound cut our deliberations short. We rushed out of the room and shut the door behind us.
 
 That said, I can still hear it from across the hall. The chaotic ticking of a time bomb that we’re praying isn’t airborne.
+
+A call of sorts, whispering in a language I don’t understand.
 
 The clicking of Pippin’s [chattering teeth.](https://www.reddit.com/r/unalloyedsainttrina/s/fa07YuRH0e)
