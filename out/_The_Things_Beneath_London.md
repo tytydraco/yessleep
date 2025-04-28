@@ -18,7 +18,7 @@ He looked away, his eyes darting to the shadows. “They’ve been evolving. Gro
 
 I felt a chill run down my spine. “Evolving? In the tunnels?”
 
-The old man nodded slowly, his gaze flicking nervously to the dark corners of the station. “It’s the heat from the trains, the moisture. The deeper you go, the more you feel it. Those tunnels? They’re more than just old railway lines. They’ve become something else. And those mosquitoes? They're not the only things that adapted.”
+The old man nodded slowly, his gaze flicking nervously to the dark corners of the station. “It’s the heat from the trains, the moisture. The deeper you go, the more you feel it. The rats, the cockroaches...they’ve changed too. But the mosquitoes? They’ve found something. They’ve started feeding on more than blood. Their bites—if they don’t kill you—they make you different.”
 
 Before I could ask more, the last train pulled into the station. He gave me a sharp look and turned away, disappearing into the shadows. I didn’t get the chance to ask him anything else.
 
@@ -26,9 +26,9 @@ I tried to shake off his words, but the feeling of dread only deepened. When I s
 
 But this time, it wasn’t just a single prick. It felt deeper. Like something was crawling under my skin. The sting burned like it was digging in. And the worst part? I could feel them moving, burrowing deeper. I couldn't stop it. They were inside me.
 
-I started to panic. I pushed my way through the train, desperate to get to the door, but the tunnel seemed to stretch out of control. The train kept moving, but I wasn’t sure it was even taking me anywhere anymore. I didn’t know if I was still in the Underground. The station, the workers, the train—they all blurred together into one sickening, feverish dream.
+I started to panic. I pushed my way through the train, desperate to get to the door, but the tunnel stretched endlessly before me, a dark, twisting maze I couldn’t escape. The train kept moving, but I wasn’t sure it was even taking me anywhere anymore. Was I still in the Underground? Or had I crossed into something else? The station, the workers, the train, they all blurred together, a sickening fever dream.
 
-By the time I reached the platform again, I was dizzy, and shaking. The mosquitoes were still biting, their wings buzzing in a low, sinister hum. I managed to make it to the surface, gasping for air. But the bites didn’t stop. My skin was on fire, crawling with an itch I couldn’t shake. Even outside, in the cold London air, they wouldn’t leave me alone.
+The pain in my skin intensified as I reached the platform again, dizzy and shaking. The mosquitoes were still biting, still buzzing in my ears. I staggered to the surface, gasping for air. But they didn’t stop. My skin was on fire, crawling with an itch I couldn’t shake. Even outside, in the cold London air, they wouldn’t leave me alone.
 
 I still hear them. Every night. The buzz of their wings, crawling under my skin. I don’t know what happened down there, or what the workers knew, but I feel... different.
 
@@ -36,6 +36,9 @@ Some say the mosquitoes aren’t just biting anymore. They’re changing us in t
 Passing things in their saliva.  
 New infections, maybe.  
 Maybe something else.
+
+  
+I’ve heard stories. People who’ve gone missing, found weeks later with bites all over them, twitching and mumbling in strange, half-forgotten languages. Their bodies look wrong, like they’ve been remade, remolded for life underground.
 
 You can still ride the Underground safely.  
 Mostly.
@@ -50,4 +53,3 @@ They can *follow movement*.
 
 The tunnels are their world now.  
 We’re just passing through.
-
