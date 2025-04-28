@@ -123,7 +123,7 @@ I think their efforts may be too late, though.
 
 It’s the middle of the night where I live. An hour ago, I woke up to a weighty thump at the foot of our bed, where Pippin likes to sleep.
 
-I crawled out of bed and found our dog lying on the floor. unresponsive and pulseless. I shook Jim awake. We argued about what to do. How to tell Paige.
+I crawled out of bed and found our dog lying on the floor, unresponsive and pulseless. I shook Jim awake. We argued about what to do. How to tell Paige.
 
 A sound cut our deliberations short. We rushed out of the room and shut the door behind us. 
 
