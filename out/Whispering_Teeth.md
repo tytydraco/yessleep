@@ -125,10 +125,12 @@ It’s the middle of the night where I live. An hour ago, I woke up to a weighty
 
 I crawled out of bed and found our dog lying on the floor. unresponsive and pulseless. I shook Jim awake. We argued about what to do. How to tell Paige.
 
-A sound cut our deliberations short. We rushed out of the room and shut the door behind us.
+A sound cut our deliberations short. We rushed out of the room and shut the door behind us. 
 
-That said, I can still hear it from across the hall. The chaotic ticking of a time bomb that we’re praying isn’t airborne.
+That said, I can still hear it from across the hall. The chaotic ticking of a time bomb that we’re praying isn’t airborne. 
 
-A call of sorts, whispering in a language I don’t understand.
+Birds are beginning to crash into our bedroom window. 
 
-The clicking of Pippin’s [chattering teeth.](https://www.reddit.com/r/unalloyedsainttrina/s/fa07YuRH0e)
+If I had to guess, I think it’s a call of sorts: sharp whispering in a language we can’t understand. 
+
+The dead clicking of Pippin’s [chattering teeth.](https://www.reddit.com/r/unalloyedsainttrina/s/fa07YuRH0e)
