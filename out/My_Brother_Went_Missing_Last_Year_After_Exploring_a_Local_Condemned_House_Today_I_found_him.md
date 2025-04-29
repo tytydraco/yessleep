@@ -88,7 +88,7 @@ As I neared the entrance of the house, I was horrified to find the wardrobe stuc
 
  The room was illuminated by the moon outside. I sprinted to the bathroom and slammed the door, locking it as I did so. Looking to the right, I saw it, my way out. Grasping the bottom part of the window, I went to open it.
 
-*Nothing*,
+*Nothing*.
 
 What the hell? I began to panic once more and looked down. The window was nailed shut. As I was attempting to formulate another way out, I heard something; *quick footsteps coming up the basement stairs*. As quicky as I heard the footsteps, I heard what I assumed was the basement door open.
 
@@ -140,7 +140,7 @@ It was a pretty shitty family reunion if you ask me, but sometimes you need to t
 
  If something was to happen, I would want somebody to know what happened to us. As I finish typing and remove the password from my phone, I can only think of one thing.
 
-\*Way to disappoint your brother, Rich\*.
+*Way to disappoint your brother, Rich*.
 
 As I look at the thing wearing William’s skin, I put the last of my thoughts together and prepare myself for whatever is about to happen.
 
@@ -148,7 +148,7 @@ The edge of my hometown. There, a house lies, but you shouldn’t go. It’s a b
 
 I don’t know what this thing is, and I don’t think I ever will. It took my brother’s friend. It took my brother.
 
-And it’s going to take \*me\* next.
+And it’s going to take *me* next.
 
  
 
