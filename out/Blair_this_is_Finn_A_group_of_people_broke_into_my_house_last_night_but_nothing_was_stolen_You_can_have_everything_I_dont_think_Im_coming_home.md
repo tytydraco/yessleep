@@ -149,7 +149,7 @@ A few birds cawed and rustled in the pine trees that circled the house’s perim
 
 My fury dissipated. Logic found its way back to me.
 
-Why was I expecting anyone to be there? The nearest house is a half-mile away. Blair wouldn’t hire anyone to torment me in such an astoundingly peculiar way, either. One, she wasn’t creative enough, and two, she wasn’t truly malicious. My former affluence was the foundation of our marriage. I knew that ahead of time. Once it was gone, of course she wanted out.
+Why was I expecting anyone to be there? The nearest house was a half-mile away. Blair wouldn’t hire anyone to torment me in such an astoundingly peculiar way, either. One, she wasn’t creative enough, and two, she wasn’t truly malicious. My former affluence was the foundation of our marriage. I knew that ahead of time. Once it was gone, of course she wanted out.
 
 Before I could spiral into the black pits of self-loathing, a familiar hideaway, my ears perked.
 

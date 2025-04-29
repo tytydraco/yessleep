@@ -1,36 +1,34 @@
 Hi.  My name is… well my name isn’t important I guess. If I’m right everyone will know the details soon and if I’m wrong it doesn’t matter.  Nobody will believe this without evidence and if there is evidence nobody will be able to deny it.  So what I say ain’t a hill of beans, but I need to say it.
 
-I work at a no kill animal shelter.  But it’s not the kind you’re thinking of.  We’re not doing pet adoptions or rehab.  We’re not a rescue.  We’re in a small town down South, middle of nowhere. 
+I work at a no kill animal shelter.  But it’s not the kind you’re thinking of.  We’re not doing pet adoptions or rehab.  We’re not a rescue.  We’re in a small town down South, middle of nowhere.
 
-We aren’t a no kill shelter because we don’t want to kill the animals.  We’re a no kill shelter because we can’t kill them..  
+We aren’t a no kill shelter because we don’t want to kill the animals.  We’re a no kill shelter because we can’t kill them..
 
 The animals here just won’t die.  Or at least they won’t stay dead.
 
-It’s mostly all your normal pet species.  Cats, dogs, a ferret or two, a parrot.  A few others.  
-
 We house animals that can’t die.  Near as I can tell this started happening back in the 60s.  Story goes, or at least the old timer who had this job before me and taught me everything I know claims that the local shelter, the regular old SPCA shelter, had a dog brought in one night.  Dog had been hit by a car and was in bad shape.  They were trying to get the emergency vet on the phone when the dog just… comes back to life.  But the dog was different.  It could scurry up the side of the wall like a lizard.
 
-And then another.  And another.  Animals that both can’t die and are… not normal.  You could take any animal here, pound it flat with a hammer until it was fur and powder, and within a day it’s back to normal.  We don’t understand it.  Or at least I don’t.  The old timers around here are a superstitious bunch and they say it’s best not to think about it.  But it happened more and more as time went on so in the 1980s the town decided they needed a place for them.  There was this old abandoned factory, just outside town, had been a place that made big metal body frames for campers and trailers I think someone said, that had closed in the late 60s.  They gutted it, turned it into this shelter.  
+And then another.  And another.  Animals that both can’t die and are… not normal.  You could take any animal here, pound it flat with a hammer until it was fur and powder, and within a day it’s back to normal.  We don’t understand it.  Or at least I don’t.  The old timers around here are a superstitious bunch and they say it’s best not to think about it.  But it happened more and more as time went on so in the 1980s the town decided they needed a place for them.  There was this old abandoned factory, just outside town, had been a place that made big metal body frames for campers and trailers I think someone said, that had closed in the late 60s.  They gutted it, turned it into this shelter.
 
-We’ve got 138 animals as of this morning.  All of them weird.  All of them immortal.  Some of them dangerous.  We’ve got a bunch of dog sized runs, kind you would see in a normal shelter.  Cages for cats.  Terrariums, aquariums, bird cages of all sizes.  
+We’ve got 138 animals as of this morning.  All of them weird.  All of them immortal.  Some of them dangerous.  It’s mostly all your normal pet species.  Cats, dogs, a ferret or two, a parrot.  A few others.  We’ve got a bunch of dog sized runs, kind you would see in a normal shelter.  Cages for cats.  Terrariums, aquariums, bird cages of all sizes.
 
 6 guys work here.  Most of the work goes on during the day but we rotate through staying overnight.
 
-We’ve got dogs.  Lots of dogs.  We’ve got a Great Dane with 6 legs. Adorable but he’s clumsy as hell, tripping over himself.  We love him though.  There’s a small mutt terrier mix we call GiGi who’s got a tongue like one of those chameleon lizards.  You can hold a dog treat out 8 feet from her and she snatches it right out of your hand with it.   That always gets a laugh. 
+We’ve got dogs.  Lots of dogs.  We’ve got a Great Dane with 6 legs. Adorable but he’s clumsy as hell, tripping over himself.  We love him though.  There’s a small mutt terrier mix we call GiGi who’s got a tongue like one of those chameleon lizards.  You can hold a dog treat out 8 feet from her and she snatches it right out of your hand with it.   That always gets a laugh.
 
-Lot of cats too.  A tabby we call Phoenix is actually on the desk in the office while I’m typing this, curled up purring in the top of an old printer paper box with a folded up old towel in it asleep.  She’s hot to the touch.  Not hot enough to burn you instantly like a stove burner but I mean you put your hand flat on her side and it’s so hot you’ll have to pull it away after a few seconds and I guess if you held her to someone’s skin for 30 seconds or so you’d give them a nasty burn.  Amazed she doesn’t set stuff on fired as much random stuff as she likes sleeping on.  One of the many reasons we don’t wear shorts on the job is because Phoenix likes rubbing up against people and that’s no fun with a bare leg.  
+Lot of cats too.  A tabby we call Phoenix is actually on the desk in the office while I’m typing this, curled up purring in the top of an old printer paper box with a folded up old towel in it asleep.  She’s hot to the touch.  Not hot enough to burn you instantly like a stove burner but I mean you put your hand flat on her side and it’s so hot you’ll have to pull it away after a few seconds and I guess if you held her to someone’s skin for 30 seconds or so you’d give them a nasty burn.  Amazed she doesn’t set stuff on fired as much random stuff as she likes sleeping on.  One of the many reasons we don’t wear shorts on the job is because Phoenix likes rubbing up against people and that’s no fun with a bare leg.
 
 There’s Bruce.  Bruce is a common Boa Constrictor.  About 6 feet long.  Actually pretty friendly as far as big snakes go.  Doesn’t cause us any issue but goddamn is he creepy.  His ribs all just jut out from his body about a 6 inches or so and he walks around and climbs the walls of his enclosure with them like a centipede instead of slithering like a normal snake.  I hate the scritch-scratch sound he makes when moving around.  But as long as he has a warm UV lamp to bask under and a thawed rabbit every couple of weeks he’s no real problem at all.
 
-There’s a flock of cockatiels, 14 of them, all the standard colors and patterns of them that you’d see in a pet store.  We’ve got a nice big cage, the size of a large closet or small room for them.  They all have an extra ridge of small feathers going down their back like a sail and those feathers are sharp enough to cut you.  And they drink blood like vampire bats.  They sing pretty though.  
+There’s a flock of cockatiels, 14 of them, all the standard colors and patterns of them that you’d see in a pet store.  We’ve got a nice big cage, the size of a large closet or small room for them.  They all have an extra ridge of small feathers going down their back like a sail and those feathers are sharp enough to cut you.  And they drink blood like vampire bats.  They sing pretty though.
 
-Baron is a ferret but he’s almost 4 feet long.  I mean stretched out, he’s regular ferret size as far as how big his head and limbs are but his middle part between his back and front legs is just like 3 or 4 times as long as a regular ferret.  He kills mice by construction like a snake.  He regurgitates them back out like an hour or so later, we still have to feed him regular ferret food but he gets cranky and bitey if we don’t give him a mouse to eat every week or so.  
+Baron is a ferret but he’s almost 4 feet long.  I mean stretched out, he’s regular ferret size as far as how big his head and limbs are but his middle part between his back and front legs is just like 3 or 4 times as long as a regular ferret.  He kills mice by construction like a snake.  He regurgitates them back out like an hour or so later, we still have to feed him regular ferret food but he gets cranky and bitey if we don’t give him a mouse to eat every week or so.
 
 There’s a fish tank, normal 60 gallon job we got from the Petsmart next town over.  Got a bunch of those little fish that glow under UV light, Tetras I think they are called.  But these guys don’t just glow they leave these… trails of light behind them as they swim around.  And they don’t need a UV light they just glow all the time.  One of the guys says he don’t like looking at them, says the light trails make his head feel funny.  I think he’s full of shit but I make a habit of always looking away from them every few moments if I’m working near them alone.  No point in being stupid and taking a risk.
 
 So many more.  Each one weirder than the last.
 
-Some of the animals are dangerous.  We’ve had incidents.  Last fall one of the guys was taking in a new animal, this was a chinchilla.  He broke protocol, picked it up without gloves before the observation period was complete.  The little thing did this little adorable shake like they do when they are in a dust bath and about a dozen quills, like porcupines, just popped out of his body.  Three of them caught the guy right in the palm, another one even went clear through his little finger.  Dude’s throat immediately started swelling up, like an allergic reaction.  We tried the Epi-Pen from the first aid kit but it didn’t make no difference.  We told his family he had been bitten by a rattlesnake.  I don’t think… hell I know they didn’t believe us, but they didn’t press the issue.  The chinchilla is still here. 
+Some of the animals are dangerous.  We’ve had incidents.  Last fall one of the guys was taking in a new animal, this was a chinchilla.  He broke protocol, picked it up without gloves before the observation period was complete.  The little thing did this little adorable shake like they do when they are in a dust bath and about a dozen quills, like porcupines, just popped out of his body.  Three of them caught the guy right in the palm, another one even went clear through his little finger.  Dude’s throat immediately started swelling up, like an allergic reaction.  We tried the Epi-Pen from the first aid kit but it didn’t make no difference.  We told his family he had been bitten by a rattlesnake.  I don’t think… hell I know they didn’t believe us, but they didn’t press the issue.  The chinchilla is still here.
 
 If you just use your head these animals are weird and can take you by surprise, but most of them aren’t any more dangerous than handling a normal animal.  So, most days are fine.
 
@@ -40,17 +38,17 @@ We… we don’t even know what Omega is.  We think he might be a horse.  Or use
 
 Omega came here about ten years back, a year or so before I started working here.  But I’ve heard the story enough times from the different people involved and they all match up more or less so I reckon this is what happened.
 
-One night about 11:30 Ricky, he’s the fellow that runs the scrap yard and had the only decent tow truck in town, got a call from Cyrus.  Now Cyrus is this old fart, he would have already been about 65 by that point, who was the closest thing we had to a town bum.  Cyrus was a constant in the town, always begging for money and winding up in jail for getting drunk and starting something.  But hell he never meant no harm. 
+One night about 11:30 Ricky, he’s the fellow that runs the scrap yard and had the only decent tow truck in town, got a call from Cyrus.  Now Cyrus is this old fart, he would have already been about 65 by that point, who was the closest thing we had to a town bum.  Cyrus was a constant in the town, always begging for money and winding up in jail for getting drunk and starting something.  But hell he never meant no harm.
 
 Anyway, that night Cyrus called Ricky from the payphone on the gas station on the edge of town.  Said he needed the tow truck which Ricky thought was weird seeing as how Cyrus didn’t have a car.  Cyrus said an out of towner’s car had started overheating on the freeway and he had managed to limp the car to the next exit, not knowing the gas station had gone from 24 hours to only day shift months ago, but now it was dead and wouldn’t start.
 
-Ricky didn’t even bother to ask what Cyrus was doing up there.  Cyrus was one of those all-purpose bums and one of the places he liked to sleep when no place else was available was out back of the old gas station.  It was safe enough and he could start begging for money and cigarettes early when the gas station opened.  
+Ricky didn’t even bother to ask what Cyrus was doing up there.  Cyrus was one of those all-purpose bums and one of the places he liked to sleep when no place else was available was out back of the old gas station.  It was safe enough and he could start begging for money and cigarettes early when the gas station opened.
 
-Ricky, when he tells this story, always includes the part about how he wished he had just let the phone ring that night or just rolled over and went back to bed.  But he could hear the rain drumming on the roof of the old mobile home he lived in right next to the scrap yard and he couldn’t bring himself to leave someone out in that.  And hell he knew he’d wind up bringing Cyrus back with him, sure as shit.  
+Ricky, when he tells this story, always includes the part about how he wished he had just let the phone ring that night or just rolled over and went back to bed.  But he could hear the rain drumming on the roof of the old mobile home he lived in right next to the scrap yard and he couldn’t bring himself to leave someone out in that.  And hell he knew he’d wind up bringing Cyrus back with him, sure as shit.
 
-So, Ricky put on his big high visibility rain jacket, cranked up his old International 4300 and started heading out to the gas station.  He was halfway there, as he tells it, when for some reason he got on the radio and called the Highway Patrol, just telling him where he was headed and why.  All the Highway Patrol guys, even the overnight dispatcher, knew Ricky well enough, he was the guy they called for wrecks most of the time.  
+So, Ricky put on his big high visibility rain jacket, cranked up his old International 4300 and started heading out to the gas station.  He was halfway there, as he tells it, when for some reason he got on the radio and called the Highway Patrol, just telling him where he was headed and why.  All the Highway Patrol guys, even the overnight dispatcher, knew Ricky well enough, he was the guy they called for wrecks most of the time.
 
-He got to the gas station just before midnight.  Cyrus was there, sure enough talking the ear off the guy.   
+He got to the gas station just before midnight.  Cyrus was there, sure enough talking the ear off the guy.
 
 Sorry I know I’m rambling.  None of this really matters.  I guess I just ain't in a hurry to get to where this story is going.
 
@@ -120,7 +118,7 @@ The out of towner was shaking his head.  “No. This is some kind of scam.  You 
 
 Ricky reached down for the radio, intending to call Mike and tell him to put some extra hurry on getting someone out there.  He keyed it but nothing happened.  He cursed.  The truck was still off and had turned off the accessory power after a few minutes to save power.  He cranked the engine.  When he did the headlights turned back on.
 
-The out of towner had only made it a few hundred feet down the road, if that.  He turned around when the lights turned on, his hand in front of his face.  
+The out of towner had only made it a few hundred feet down the road, if that.  He turned around when the lights turned on, his hand in front of his face.
 
 Behind him, maybe another few dozen yards down the road, Omega stepped out of the woods and onto the road.
 
@@ -134,9 +132,9 @@ Ricky was fumbling with the radio.  In the dark and panic he hit the wrong butto
 
 On the road, Omega’s head snapped up.
 
-“Fuck oh fuck…” Ricky said.  
+“Fuck oh fuck…” Ricky said.
 
-Omega slowly stalked down the road, its attention now on the truck.  Closer and closer it came.  There was a terrible moment when it got close enough that Ricky and Cyrus couldn’t see it over the huge hood of the truck.  
+Omega slowly stalked down the road, its attention now on the truck.  Closer and closer it came.  There was a terrible moment when it got close enough that Ricky and Cyrus couldn’t see it over the huge hood of the truck.
 
 Then with a single bound the creature jumped on the hood, only the windshield between it and them.  Both men screamed.  Omega kicked at the glass, spiderwebbing it.
 
@@ -158,13 +156,13 @@ Sorry I got rambling again.  I’ve heard this story so many times it’s hard t
 
 The guys from the Shelter, one of them was the old timer who taught me, loaded Omega up on the truck.  They knew they had to get him somewhere secure before he woke up again.  Sheriff just had the whole road closed off for the rest of the night.  Called for another officer to drive Ricky home and let Cyrus sleep at the station.  Got the coroner out to collect the body.  When morning came they drove Ricky back to drive the Tow Truck back to the scrap yard.  They wrote it up as a traffic accident.  Official story was the driver just lost control on a rainy night and spun out on a well known dangerous curve.  Guy didn’t have any close family so nobody looked too deep into it.
 
-We kept Omega in an old shipping container for about a week.  Couple of guys from the local metal works made the run for Omega.  It’s heavy high security fencing, the kind they use to keep bears out of the shelters on the Appalachian trail.  Fully enclosed, set in concrete.  Nobody even remembers exactly where the name Omega came from, but someone called him that and it stuck.  
-  
+We kept Omega in an old shipping container for about a week.  Couple of guys from the local metal works made the run for Omega.  It’s heavy high security fencing, the kind they use to keep bears out of the shelters on the Appalachian trail.  Fully enclosed, set in concrete.  Nobody even remembers exactly where the name Omega came from, but someone called him that and it stuck.
+
 Cyrus hit the bottle hard and drank himself to death about 3 or 4 years after that night.  Ricky still owns the scrap yard, but he hired a new guy to do the actual tow truck driving.  Of the two guys from the Shelter one of them stayed on until he died of cancer last year, that was the old guy who taught me, the other one tried to stay on but couldn't be around Omega.  He quit and moved out of state.  I was his replacement.
 
 And I told you this story.  Sitting here at the desk in the shared office, smoking through an entire pack of cigarettes so fast I might as well have been eating them like candy.  My hands are shaking.
 
-Because you see Omega’s not in his run.  It doesn’t make any kind of sense.  He was there when I checked on him at the start of my shift and he’s not there now.  Me and one of the day shift guys gave him his dinner, standard two-man procedure like I talked about.  No issues.  Day shift guy went home.  I checked the other animals, feed some of them.  And then I noticed Yertle walking around without his shell.  Yertle’s a Russian Tortoise but he actually can leave his shell, like in the old wife’s tales.  So at least once a shift you have to make sure Yertle hasn’t wandered too far away from his shell and forgot where it was.  So, I did a quick loop around the building, finding Yertle’s shell in front of enclosure with the weird Blue and Gold Macaw we have that has a toucan beak and a full-size lizard tail for some reason, and on the way back to the office I checked on Omega out of habit… and he wasn’t there.  
+Because you see Omega’s not in his run.  It doesn’t make any kind of sense.  He was there when I checked on him at the start of my shift and he’s not there now.  Me and one of the day shift guys gave him his dinner, standard two-man procedure like I talked about.  No issues.  Day shift guy went home.  I checked the other animals, feed some of them.  And then I noticed Yertle walking around without his shell.  Yertle’s a Russian Tortoise but he actually can leave his shell, like in the old wife’s tales.  So at least once a shift you have to make sure Yertle hasn’t wandered too far away from his shell and forgot where it was.  So, I did a quick loop around the building, finding Yertle’s shell in front of enclosure with the weird Blue and Gold Macaw we have that has a toucan beak and a full-size lizard tail for some reason, and on the way back to the office I checked on Omega out of habit… and he wasn’t there.
 
 The run was intact.  No holes in the fence or broken latches on the door.  No signs that he somehow dug under the fence.  Goddamn monster just up and vanished.
 
