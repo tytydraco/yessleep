@@ -343,3 +343,5 @@ The door started to open. I saw my mom’s face appear from the other side. She 
 I say nearly because that was when I noticed my mom’s left eye. It was blue.
 
 I was too late. The child had found a replacement. My mom was no longer my mom.
+
+Next entry: [https://www.reddit.com/r/nosleep/comments/1kapw7f/strings\_v/](https://www.reddit.com/r/nosleep/comments/1kapw7f/strings_v/)

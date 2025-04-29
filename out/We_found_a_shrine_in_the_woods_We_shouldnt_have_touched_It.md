@@ -1,3 +1,5 @@
+***Volume One: Things Left Buried***
+
 The first time I saw her, she was standing in front of a wall of overpriced coffee beans, looking like she was about three minutes away from committing a felony.
 
 It was a Tuesday. One of those brittle city mornings where the sky feels too heavy and every car horn sounds like a threat. I was just there for beans — the good stuff — because I’m too stubborn to drink whatever watered down nonsense the corner bodega tries to pass off as coffee. She looked like she might’ve been there for the same reason. Or maybe just to start a fight.
@@ -260,7 +262,7 @@ I stumbled back from the shrine, boots slipping in the mud; when my heel caught 
 
 It wasn’t a stone. It *gave* under me — soft and brittle — with a sound that vibrated through my teeth.
 
-*Crack.* 
+*Crack.*
 
 Ugly. Wet.
 
