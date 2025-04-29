@@ -440,3 +440,5 @@ Deirdre leaned closer to me to whisper, “It's been a long night for everyone. 
 Long story short, the seeds went in, but it was *not* pretty. Briar had needed to shove them under her skin, which was still tender and healing after the amputation. Even with whatever he gave her, she'd still had to be restrained to keep from lashing out. 
 
 We're not sure if the seeds have taken root yet. The Hunters said only time would [tell.](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD)
+
+Update: We're getting the hell out of this [broke ass apartment ](https://www.reddit.com/r/nosleep/s/lQSH0DbjnK)
