@@ -86,7 +86,9 @@ There was much left for me to explore on the DOV3S website, but after my discove
 
 I needed sleep, but knew it would be nearly impossible, and so I popped a few sleeping pills and crossed my fingers. After tossing and turning in bed for a few minutes, I got up to use the bathroom, which required walking down the hallway past my front door. When I got to said door, I stopped, noticing a strange shadow coming from the hallway. It looked as though someone had placed an object right outside my door. I walked closer to look, about to crouch to peek under the door, when the shadow suddenly moved. It hadn't been an object at all, but rather a person standing in front of my door. I heard their footsteps thudding down the carpeted hallway. By the time I looked through the peephole, it was too late to see anyone, and I certainly wasn't about to open the door to look for them. I immediately suspected that it had something to do with the blue Cherokee, which was still parked across the street when I stole a glance out the window. 
 
-Suddenly, I had no desire to sleep anymore, but the pills were already doing their job. I wanted to stay alert in case whoever was outside my door returned, but fighting against the drowsiness was like trying to outrun a monster in a nightmare. The last thing I imagined before I slipped into unconsciousness was my own face smiling jubilantly as a hammer smashed my hand into a [bloody pulp](https://www.reddit.com/user/11velociraptors/comments/1k9fr99/dov3s_info_page/).
+Suddenly, I had no desire to sleep anymore, but the pills were already doing their job. I wanted to stay alert in case whoever was outside my door returned, but fighting against the drowsiness was like trying to outrun a monster in a nightmare. The last thing I imagined before I slipped into unconsciousness was my own face smiling jubilantly as a hammer smashed my hand into a bloody pulp.
 
   
-[Update #1](https://www.reddit.com/r/nosleep/comments/1kas1kq/i_found_my_doppelganger_in_a_dark_web_film_now/)
+
+
+[Update #1](https://www.reddit.com/user/11velociraptors/comments/1kb1bji/i_found_my_doppelganger_on_the_dark_web_now_her/)

@@ -4,11 +4,11 @@ Darius leaned over the shoulder of the driver’s seat and placed cold, circular
 
 Shock left me momentarily stunned, which gave him enough time to make an exit. Darius clicked the safety belt, threw his backpack over his shoulders, opened the rear door, and tumbled out of my sedan.
 
-I watched the man cascade over the asphalt through the rearview mirror, hopelessly mesmerized. The stunt looked orderly and painless, bordering on elegant. Within seconds, he was on his feet and brushing himself off. Before long, Darius vanished from view, swallowed by the thick blackness of midnight Appalachia.
+I watched the man cascade over the asphalt through the rearview mirror, hopelessly mesmerized. The stunt looked orderly and painless, bordering on elegant. He was on his feet and brushing himself off within the span of a few seconds. Before long, Darius vanished from view, swallowed by the thick blackness of midnight Appalachia.
 
 I crashed back to reality. He vanished because my car was, of course, still barreling down the road at about twenty-five miles an hour.
 
-I swung my head forward. My eyes widened. Fear exploded in my throat. I slammed my foot on the brake and braced for impact.
+My head swung forward and my eyes widened. Fear exploded in my throat. I slammed my foot on the brake and braced for impact.
 
 Headlights illuminated a rapidly approaching blockade. A veritable junkyard of cars, thirty or forty different vehicles, haphazardly arranged in front of a steep cliff face. The FireFly app had concealed the wall. Instead, the map showed a road that stretched on for miles, with my ex-passenger’s *“destination”* listed as said cliff face.
 
@@ -32,7 +32,7 @@ I wearily lifted my head from the steering wheel and spun around, woozy, searchi
 
 Like the source of the light was stuck to the back of my neck.
 
-I raised a trembling, bloody hand to the rearview mirror, and twisted it. Right where the passenger had injected me with something, exactly where I had experienced that initial, exquisite pain, my skin had ballooned and bubbled, forming a hollow dome about the size of a baseball.
+I raised a trembling, bloody hand to the rearview mirror and twisted it. Right where the passenger had injected me with something, exactly where I had experienced that initial, exquisite pain, my skin had ballooned and bubbled, forming a hollow dome about the size of a baseball.
 
 And there was something drifting around inside. A handful of little blue-green sprites. A group of incandescent beetles giving off light unlike anything I’d ever seen before, caged within the fleshy confines of my new cyst.
 
@@ -204,7 +204,7 @@ He jumped from the chair, arms wide, grinning like an idiot.
 
 *“My God! Maisie! Unbelievable! Against forty to one odds, here you are! With, like, ten minutes to spare, I think. You’re about to make one Swedish pharmaceutical CFO who really knows how to pick an underdog very, very happy…”*
 
-He chuckled, which was interrupted by gasp.
+He chuckled warmly. The levity was quickly interrupted by a gasp.
 
 *“Oh shoot! Almost forgot. Gotta send the kids to bed.”*
 
@@ -232,7 +232,7 @@ I peered out my bedroom window, cautiously moving the blinds like I was expectin
 
 There was a new car parked in my driveway, twenty times nicer than my old sedan. Otherwise, the street was quiet.
 
-I span around, eyes scanning for my phone. I found it laying on my desk in its usual place, charged to one-hundred percent.
+I spun around, eyes scanning for my phone. I found it laying on my desk in its usual place, charged to one-hundred percent.
 
 There was a notification from the FireFly App.
 
