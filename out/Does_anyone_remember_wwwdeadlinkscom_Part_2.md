@@ -94,4 +94,42 @@ A tattoo. 
 
 Thin, delicate lines forming a pair of butterfly—or maybe moth—wings? Between them was a number—267.
 
+I kept being dragged back to that room with each passing moment a cruel reminder of what was happening to me. Sometimes, I caught more brief, disorienting flashes of the surgical procedures being done to my body. 
+
+The more times they dragged me back, the more “food” they’d leave for me. At first, I couldn’t even bring myself to look at it. I’d sit in the corner, arms wrapped around my knees, trying to hold on to the sharp edge of my hunger. But hunger changes things.
+
+I finally looked. 
+
+It wasn’t like any food I’d ever seen. Just a grey, pulpy mass, like chewed meat spat out and left to fester. Thin, stringy veins crisscrossed the surface, some still pulsing faintly, like whatever it was hadn’t quite given up yet. Bits of cartilage jutted out from the mush, like teeth trapped in gum.
+
+I held out for as long as I could, telling myself I wouldn’t—couldn’t—eat it. But the smell... it worked its way into my head. It didn’t smell rotten, not exactly. It smelled warm. Familiar. 
+
+My stomach ached so bad it felt like something gnawing me from the inside. The moment it touched my tongue, the floodgates opened. My mind screamed at me to stop, but my body didn’t listen. Bite after bite, I devoured it, barely registering the wet snap of cartilage or the sponge-like texture soaking the inside of my mouth. The worst part wasn’t eating it.
+
+The worst part was how good it tasted.
+
+I kept eating the “food” they’d bring me but hunger wasn’t what drove me anymore. It was something else. Something worse. 
+
+I wanted it.
+
+The longer I stayed in this place, the more I could feel pieces of myself slipping away. When did my fingernails grow this long? When did I lose weight? The world outside started to feel like some distant, half-forgotten dream. My name, my voice, the sound of laughter—all of it eroding, like water slowly wearing down stone.
+
+Hope became a foreign concept. I stopped wondering if I’d ever leave.
+
+The only certainty was the cold fluorescent lights, the sting of anesthesia, and the endless cycle of being cut apart and sewn back together. Until one day, as I was being ushered through the long, sterile hallways, I saw something—a face I knew all too well. 
+
+Ryan.
+
+He was being escorted in the same way I was. And he looked rough. His long hair hung in tangled clumps, and his beard was rough, unkempt—at least a couple inches longer than I remembered. For a brief second, his eyes found mine. He shot me a look, it was the kind of look that says everything without speaking a word. "Let’s get the fuck out of here."
+
+My heart started pounding. We were in this together now. It might take time, but I was determined—our next meeting wouldn’t be our last.
+
+It felt like weeks had passed before I saw Ryan again. 
+
+When I finally encountered him again, I noticed the tips of his fingers were scabbed over. He bumped into me—intentional, calculated. He slipped two small, folded pieces of cloth into my hand. One felt soft, almost like worn bedsheets; the other, rough and crusted. "Put the soft piece in the door bolt when you get back," he whispered, his voice barely audible. We were shoved forward by the guards, and I was escorted back to my room. 
+
+One of the figures unlocked the door, and as soon as it creaked open, I slid the soft fabric into the bolt. The door slammed shut behind me, but this time there was no sharp click of the door locking. I quickly pulled the other piece of cloth from my pocket. Two words scrawled in blood sent a cold shiver through me:
+
+“8 Hours.”
+
 **\[END OF PART 2\]**
