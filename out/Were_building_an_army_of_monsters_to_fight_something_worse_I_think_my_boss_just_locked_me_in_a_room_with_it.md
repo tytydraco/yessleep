@@ -586,7 +586,7 @@ They vanished. Slipped back into the walls like bad ideas. Whatever the Jack wa
 
 Eventually, we stopped.
 
-The Jack reached into its tangled armor and retrieved something impossibly mundane: a brass key. 
+The Jack reached into its tangled armor and retrieved something impossibly mundane: a brass key.
 
 He fit it into a door that looked… average.
 
@@ -812,4 +812,6 @@ All this time, I thought I’d been reading a threat report.
 
 But I was wrong.
 
-I’d been reading my [eulogy](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/). 
+I’d been reading my [eulogy](https://www.reddit.com/r/nosleep/comments/1kbty7o/comment/mpxbd7i/?context=3). 
+
+[X](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)

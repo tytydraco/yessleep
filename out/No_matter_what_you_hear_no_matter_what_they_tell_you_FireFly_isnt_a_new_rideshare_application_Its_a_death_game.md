@@ -226,7 +226,7 @@ To his credit, I think he caught me as I started to fall.
 
 \- - - - -
 
-When my eyes fluttered open, I was home, laying in bed, and the room was nearly pitch black. Once the implications of that detail registered, I shot out from under the covers and ran to the bathroom. No boil. Only a reddish circle where the growth *used* to be.
+When my eyes fluttered open, I was home, laying in bed, and the room was nearly pitch black. Once the implications of that detail registered, I shot out from under the covers and ran to the bathroom. I inspected the base of my neck through the mirror. No boil. Only a reddish circle where the growth *used* to be.
 
 I peered out my bedroom window, cautiously moving the blinds like I was expecting those thrumming, humanoid creatures to be there, patiently waiting for me to make myself known.
 
