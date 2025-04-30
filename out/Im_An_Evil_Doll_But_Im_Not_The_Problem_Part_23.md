@@ -430,3 +430,8 @@ Till next time. For all of you that don’t like me.
 I guess I’m finally taking your advice and going to hell. 
 
 Punch.
+
+
+Guest Speaker?
+
+https://www.reddit.com/r/nosleep/s/KDxJq63ECE
