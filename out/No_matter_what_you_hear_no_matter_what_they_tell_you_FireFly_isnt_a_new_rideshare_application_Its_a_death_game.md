@@ -78,7 +78,7 @@ So, I forced my legs to start moving back the way I came. Figured the rest of th
 
 The night was quiet, but not exactly silent.
 
-There was the soft tapping of my sneakers against the road, the on-and-off whispering of the wind, and a third noise I couldn’t quite identify. A distant, almost imperceptibly faint thrumming in the distance. Like the hovering propeller beats of a drone.
+There was the soft tapping of my sneakers against the road, the on-and-off whispering of the wind, and a third noise I couldn’t quite identify. A distant, almost imperceptibly faint thrumming was radiating from somewhere within the forest. A sound like the hovering propeller beats of a traveling drone.
 
 *Whatever it is,* I thought, *I’m getting closer to it, because it’s getting louder.*
 
@@ -94,7 +94,7 @@ It was a *them.*
 
 After thirty minutes of walking, my car and the cliff face were longer visible behind me. I glanced down at my phone. For better or worse, I was proceeding in the direction that was recommended by the FireFly app.
 
-I was certainly ambivalent about obeying *their* directive. So far, though, the app had me following the road back the way I came, and I knew that led to Lewisburg. Seemed like a safe choice no matter what. Also, it didn’t feel smart to dive into the evergreens and the conifers that besieged the asphalt on all sides just to avoid doing what the app told me to.
+I was certainly ambivalent about obeying *their* directive. So far, though, the app had me following the road back the way I came, and I knew that led to the nearest city. Seemed like a safe choice no matter what. Also, it didn’t feel smart to dive into the evergreens and the conifers that besieged the asphalt on all sides just to avoid doing what the app told me to.
 
 Not yet, at least.
 
@@ -122,7 +122,7 @@ This corpse had been my predecessor, and he hadn’t been dead for more than a d
 
 Maybe he was the owner of the SUV.
 
-Nausea stampeded through my abdomen. The dead man’s entire frame buzzed with jerky movement, the fitful dancing of rot flies. The deep blood-reds and the foaming gray-pinks of his decay mixed with the turquoise glow emanating from my neck to create a living hallucination: a stylized portrait depicting the coldest ravines of hell and a tortured soul trapped therein.
+Nausea stampeded through my abdomen. The dead man’s entire frame buzzed with jerky movement - the fitful dance of hungry rot flies. The deep blood-reds and the foaming gray-pinks of his decay mixed with the turquoise glow emanating from my neck to create a living hallucination: a stylized portrait depicting the coldest ravines of hell and a tortured soul trapped therein.
 
 The ominous thrumming broke my trance. It had become deafening.
 
@@ -194,7 +194,7 @@ As dawn started to break, I noticed two things. There were open metal cages in t
 
 Darius.
 
-He was slouched on a cheap, foldable beach chair in the middle of the road, smoking a cigarette, legs strecthed out and resting on top of his backpack.
+He was slouched on a cheap, foldable beach chair in the middle of the road, smoking a cigarette, legs stretched out and resting on top of his backpack.
 
 I crept towards him. He was flipping through his phone with earbuds in. The absolute nonchalance he exuded converted all of my residual terror and exhaustion into white-hot rage.
 

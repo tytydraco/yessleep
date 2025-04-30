@@ -164,7 +164,7 @@ My legs moved on autopilot, inching backward until I hit the wall. My heart kick
 
 The Overseer raised one hand—fingers long and curling. 
 
-Beckoning\*\*.\*\*
+Beckoning.
 
 I gulped. Pointed at myself with a shaking finger. “You… want *me*?”
 
@@ -176,19 +176,13 @@ Cowards in pressed collars, hiding behind masks of bureaucratic obedience.
 
 Fuck. 
 
-*Of all the Overseers… why did it have to be a Clubs?*
-
-They were known for one thing, and one thing only.
+Of all the Overseers… why did it have to be a Clubs? They were known for one thing, and one thing only.
 
 Violence.
 
 “Mr. Edwards,” I stammered, voice breaking. “This isn’t protocol. Tell this thing it can’t *do* this.”
 
-Edwards—gaunt with a mane of silver hair—set his jaw. He took a breath. 
-
-He once joked that stampeding monsters were nothing compared to the MREs he ate in Kabul. I figured he was exaggerating. Now I wasn't so sure.
-
-He squared his shoulders the way I imagine soldiers do when someone yells incoming. “Now listen here. My employee is absolutely right. You have *no authority* to—”
+Edwards—gaunt with a mane of silver hair—set his jaw. He took a breath. Squared his shoulders the way I imagine soldiers do when someone yells incoming. “Now listen here. My employee is absolutely right. You have *no authority* to—”
 
 The Overseer moved, dragging Edwards behind it like lint on a sleeve.
 
@@ -264,11 +258,11 @@ Owens’ voice again. Cold. Final.
 
 The PA crackled as Owens signed off.
 
-Edwards slumped against the wall. His face not registering fear, but resignation.
+Edwards slumped against the wall. His face not registering fear, but petrified resignation.
 
 “Wait!” I shouted, lunging forward. “Please—!”
 
-But I saw it then, just before the elevator doors slid shut. Edwards staring at us. Like he’d seen a ghost. Like his worst nightmare had somehow dreamed itself to life.
+But I saw it then, just before the elevator doors slid shut. Edwards staring at us. Like he’d seen a ghost, like his worst nightmare had somehow dreamed itself to life.
 
 Only he wasn’t looking at the monster. 
 
@@ -278,7 +272,7 @@ He was looking at me.
 
 The elevator hissed shut.
 
-The Overseer clamped a tarantula-sized hand around my neck. It jabbed a finger at the elevator panel, each input stiff and deliberate, like it was forcing the building itself to obey.
+The Overseer clamped a tarantula-sized hand around my neck. It jabbed a finger at the elevator panel, each input stiff and deliberate, like it was bullying the building itself.
 
 The screen above flickered.
 
@@ -290,9 +284,9 @@ Ten digits scrolled across in silence. No labels. No indicators. Just a blinking
 
 “Where’s Chamber 13?” I croaked. 
 
-The Overseer turned those hollow sockets on me. Its voice was dry as rust. “Within the Vaults.”
+The Overseer turned those hollow sockets on me. Its voice was dry as rust. “Within... the Vaults.”
 
-My blood curdled. The Vaults were for Conscripts—monsters. They buried at the bottom of the bunker, the kind of deep that doesn’t show up on maps, only warnings.
+My blood curdled. The Vaults were for Conscripts—monsters. They were buried at the bottom of the bunker, the kind of deep that doesn’t show up on maps, only warnings.
 
 “There’s been a mistake,” I said, pulse pounding. “I’m not cleared for anything below Level Three. Listen, I’m just an Analyst. I punch numbers. I run audits. I don't—”
 
@@ -314,7 +308,7 @@ I tried to scream. What came out was a ragged choke, my cheeks flapping like can
 
 The Overseer didn’t flinch. It shoved me down, flattening me against the floor.
 
-Wind screamed through unseen vents. The walls trembled. My ears rang. My body wasn’t falling—it was *disappearing*.
+Wind screamed through vents. The walls trembled. My ears rang. My body wasn’t falling—it was *disappearing*.
 
 Light shrank to a pinprick. Pressure caved in. My knees buckled. My head swam.
 
@@ -330,7 +324,7 @@ The Ma’am.
 
 It rang all around me. Syrupy. Mocking.
 
-*“Never forget that I’m the one writing your story,”* she hissed. *“And that I can end it whenever I please.”*
+*“Never forget that I’m the one writing your story,”* she hissed from everywhere and nowhere. *“And that I'll end it just as soon as I please.”*
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
@@ -338,7 +332,7 @@ And just like that—I was back there.
 
 Back in the house I tried to forget.
 
-Sunlight filtered through slats in the boarded windows, casting stripes of gold and shadow across the breakfast table. A pale tree had broken through the floorboards and grown tall through the ceiling, its bark smooth and bone-colored, its branches heavy with parchment where there should have been leaves.
+Sunlight filtered through slats in the boarded windows, casting stripes of gold and shadow across the breakfast table. A pale tree had broken through the floorboards and grown tall through the ceiling. Its bark smooth. Bone-colored. Its branches were heavy with parchment where there should have been leaves.
 
 The Ma’am reached up and plucked one.
 
@@ -350,7 +344,7 @@ It wasn’t allowed. 
 
 She said *Ma’am* was a title of respect. Said it would make me a better boy than the others—the ones she sent outside. The ones who never came back from the Thousand-Acre Wood.
 
-“You’re staring,” she said, still marking the page. “You know that isn’t welcome behavior, Boy.”
+“You’re staring,” she noted, still marking the page. “You know that isn’t welcome behavior, Boy.”
 
 I mumbled an apology and lowered my eyes to the plate. My eggs had gone cold.
 
@@ -484,13 +478,13 @@ I twisted in its grip, craning my neck toward the gnarled wicker mask. The Jack 
 
 “Brace yourself,” it growled.
 
-**REEEEEEEEEEEE**
+The shriek that followed could’ve cracked teeth. The brakes had kicked in, but they were losing. The Overseer lifted me off the grated floor, cradling me like a toddler. 
 
-The shriek that followed could’ve cracked teeth. The brakes had kicked in—but they were losing. The Overseer lifted me off the grated floor, cradling me like a toddler. 
+Then—
 
-Then: impact.
+Impact.
 
-The world punched upward. Steel howled. Concrete split. My lungs collapsed inward like paper bags in a vacuum. If the Overseer hadn’t absorbed the brunt, my legs would’ve come out my ears.
+The world punched upward. Steel howled. Concrete split. My lungs collapsed inward like paper bags. If the Overseer hadn’t absorbed the brunt, my legs would’ve come out my ears.
 
 A soft ding broke the silence. A chipper voice chimed through the speaker overhead:
 
@@ -498,7 +492,7 @@ A soft ding broke the silence. A chipper voice chimed through the speaker overhe
 
 The Overseer dropped me, my knees hitting metal with a hollow thud. Then came the retching.
 
-When I could breathe again, I wiped my mouth with a shaking sleeve. “Did I… Did I hear that right?” My voice sounded like it was trying to crawl out of my throat. “We’re on Level 6?”
+When I could breathe again, I wiped my mouth with a shaking sleeve. “Did I… Did I hear that right?” My voice sounded like it was trying to crawl out of my throat. “We’re on Level 6? The Sub-Vaults?”
 
 The Jack of Clubs gave a stiff nod.
 
@@ -580,23 +574,19 @@ A language made of edits.
 
 The Jack glanced down at me. “They believe you are a variant—an undealt card. They wish to dissect you.”
 
-Footsteps clanged behind us. The Spades smashed their spear tips on the stone and hissed a phrase that sounded like mangled poetry.
+An... undealt card?
 
-“They think I’m malfunctioning,” the Jack explained, voice flat. “Protecting you instead of the Deck. They intend to correct the error.”
-
-Its fingers flexed—rebar creaking under strain. “They are welcome to try.”
+Footsteps clanged behind us. The Spades smashed their spear tips on the stone and muttered a phrase that sounded like mangled poetry.
 
 We walked on. The Spades followed for three corridors more, never speaking again. Just watching. Weighing.
 
 And then, with one tilt of the Jack’s head—
 
-They vanished.
-
-Slipped back into the walls like bad ideas. 
+They vanished. Slipped back into the walls like bad ideas. Whatever the Jack was, it carried the sort of authority that made even monsters shrink.
 
 Eventually, we stopped.
 
-The Jack reached into its tangled armor and retrieved something impossibly mundane: a brass key.
+The Jack reached into its tangled armor and retrieved something impossibly mundane: a brass key. 
 
 He fit it into a door that looked… average.
 
@@ -624,23 +614,17 @@ The Jack turned to leave. 
 
 It paused, paid me a long look. “Write.”
 
-“O-okay. Write what? A threat report? A Conscript catalogue? Help me out here.”
+“What? A threat report? A Conscript catalogue? Help me out here.”
 
 The Jack’s voice dropped like a stone into a still lake. “Your ending.”
 
-My heart jackhammered.
+My heart hammered.
 
 Could Overseers tell jokes?
 
-“You have one hour,” the Jack rumbled, deathly serious. “Should you fail to write an ending, one will be provided for you. I'm told it will not be to your… preference.”
-
-“You have one hour,” it said, tone ironclad. “Should you fail to write an ending… one will be provided for you. I’m told it will not be to your… preference.”
-
-And then it left.
+“You have one hour,” it said, tone ironclad. “Should you fail to write an ending, one will be provided for you. I’m told it will not be to your… preference.”
 
 The door slammed shut like a gavel.
-
-Lock engaged. Final. Cold.
 
 And just like that—I was alone.
 
@@ -650,53 +634,57 @@ Panicked.
 
 And *achingly* alone.
 
-I lunged for the handle, twisting, yanking. Nothing.
+I lunged for the handle, twisting, yanking. Nothing. The thing was sealed tighter than Alcatraz.
 
-Shit. 
+One hour.
 
-One hour. One ending.
+One ending.
 
-I’d worked for the Order long enough to translate bureaucratic euphemism: if I didn’t scribble something worthwhile fast, they’d send in a Conscript. Probably one with claws. Or teeth. Or an appetite for Analysts.
+Why?
 
-I sank to the floor.
+It didn't matter.
 
-Back against stone. Hands on my knees like they might keep me from shattering.
+I’d worked for the Order long enough to know grunts like me weren't afforded the privilege of questions. If I didn’t scribble something fast, then they’d probably send in a Conscript. Probably one with claws. And teeth. And an appetite for Analysts.
 
-I’d filed enough post-mortems to know how our monsters killed. Slowly. With deranged satisfaction. Like children tearing apart their favorite toys just to see what the stuffing looked like.
+I sank to the floor, back against stone, hands on my knees like they might keep me from shattering.
 
-Fuck. 
+I’d filed enough T43 reports to know how our monsters killed. Slowly. And with deranged satisfaction. Like children tearing apart their favorite toys just to see what the stuffing looked like.
 
-Maybe I should just end it myself. Save whoever scrapes up the blood a bit of effort.
+I gripped a fistful of my hair, pulse rioting to the beat of panic.
 
-That’s when I saw it.
+Maybe I should just end it myself. Make a noose out of my tie and do one last trust fall with the universe.
 
-The table. It wasn’t empty anymore.
+Yeah.
 
-Something waited beneath the cone of flickering light—something *old*, its shape so familiar it twisted my stomach.
+That could work.
+
+If nothing else, it'd save the janitor the trauma of scraping my insides off the walls. I lifted a hand to my collar, then paused.
+
+The table.
+
+It wasn’t empty anymore.
+
+Something waited atop it, framed beneath the cone of flickering light—something *old*, its shape so familiar it twisted my stomach.
 
 A typewriter.
 
-Not modern. Not sleek. *Rustic.* The kind with keys that bite back, edges like teeth, and ribbons stained the color of clotted memory. It looked… *personal* in an awful sort of way. Like it remembered me somehow. Like it *blamed* me.
+Not modern. Not sleek. *Rustic.* The kind with keys that bit back, edges like teeth, and ribbons stained the color of clotted memory. It looked… *personal* in an awful sort of way. Like it remembered me somehow. Like it *blamed* me.
 
 I stepped forward, breath hitching.
 
-The chair scraped back with a screech like bone on stone.
+Pulled a chair. It scraped back with a screech like bone on stone.
 
-I sat.
+Then I sat.
 
-The bulb above buzzed louder, casting long, twitching shadows across the stone. I stared at the typewriter. It stared back.
+The bulb above buzzed louder, casting long, twitching shadows across me. I stared at the typewriter. It stared back.
 
-I reached out.
+And suddenly I understood. This typewriter was a Conscript—had to be. My job wasn't to write an ending so much as it was to be the Order's guinea pig. There were probably senior Analysts watching the cameras, clipboards at the ready, waiting to determine just what this thing was capable of.
+
+"Right," I breathed. "Happy thoughts, Reyes."
 
 My fingers settled on the keys—cold metal nubs worn smooth with use. They *hummed*, faintly. Not mechanical. Not electrical. Something *older*.
 
 Something *alive*.
-
-“Right,” I said softly, voice shaking. “One ending. Coming right up.”
-
-I pressed the first key.
-
-Nothing happened.
 
 I gave a passing thought to the kind of ending I *wanted*.
 
@@ -704,7 +692,7 @@ Something tasteful. Tragic. Maybe bittersweet, if I was feeling literary.
 
 Instead, I settled on the beach.
 
-Somewhere warm. Somewhere quiet. A cabana on a forgotten island where no one knew what the word "Conscript" meant. Where my pension came with an umbrella drink and I could finally grow out my hair without a supervisor filing a grooming report.
+Somewhere warm. Somewhere quiet. A cabana on a forgotten island where no one knew what the word "Conscript" meant. Where my pension came with an umbrella drink and I could finally grow out my hair without Edwards filing a grooming report.
 
 Yeah. That’d do.
 
@@ -716,41 +704,41 @@ And started to type.
 
 Only—nothing happened.
 
-No words. No sentences. No punctuation. Not even a pity-period.
+No words. No sentences. No punctuation. Not even a pity period.
 
 The page stayed blank.
 
-I mashed the keys harder. Nothing.
+I mashed the keys harder. Still nothing.
 
-I sighed, face-planting onto the desk and cradling my head like it might keep the shame in. “How the hell am I supposed to write my ending with a busted *fucking* typewriter?”
-
-Silence answered.
+I sighed, face-planting onto the desk and cradling my head like it might keep the shame in. How the hell was I supposed to write an ending with a busted typewriter?
 
 Then it clicked. 
 
 Not metaphorically. 
 
-Literally. 
+Literally clicked.
 
-The typewriter *clicked*—low and alive, like it was clearing its throat, and the keys began to move on their own. One by one, deliberate and clean, like fingers guided by something long dead and very patient.
+The typewriter made a sound like it was clearing its throat, and the keys began to move on their own. One by one, deliberate and clean, like fingers guided by something long dead and very patient.
 
 *CLACK. CLACK. CLACK.*
 
-I sat up, watching in numb disbelief as the words etched themselves onto the parchment like stigmata.
-
-My pulse thundered.
+I sat up, watching in numb disbelief as the words etched themselves onto the parchment like stigmata. My pulse thundered. Was it writing my death sentence? Or just spilling all my worst secrets onto the page for whoever found my body?
 
 And then I frowned.
 
-It was… a *work report*?
+It wasn't writing any of that.
+
+The stupid thing was writing a work report.
 
 Boilerplate. Standard. A 431C: Threat Classification Summary.
 
-I’d filed a dozen of them just this week—boring death-sheets for monsters we couldn’t kill and didn’t understand. But this one… this one made my skin crawl.
+No kidding.
 
-Not because of the formatting.
+I’d filed a dozen of them this week alone—boring death-sheets for monsters we couldn’t kill and didn’t understand. But this one…
 
-Because of the subject.
+I leaned forward, the unease creeping back into my bones.
+
+No, this report wasn't boilerplate. It wasn't standard. This report was making my skin crawl with every word punched onto the page.
 
 **ENTITY DESIGNATION:** THE UNWRITTEN ONE
 
@@ -758,11 +746,17 @@ Every major field—*Origin. Abilities. Weaknesses.*—was marked with the same 
 
 I leaned in, stomach twisting.
 
+**Role:** **OVERSEER**
+
+That's when I pulled back, mind reeling. That couldn't be right. Overseers didn't get Threat Classifications. There wasn't any point—the monsters were practically automatons ensalved to the Order, made to do whatever the Inquisition demanded.
+
+And yet the report didn't stop. It kept going.
+
+Kept getting worse.
+
 **Suit: NIL**
 
 **Rank: JOKER**
-
-My breath caught.
 
 The word sat on the page like a stain.
 
@@ -774,11 +768,9 @@ Barstool nonsense. Analyst ghost stories told during overtime shifts—about myt
 
 But the Joker?
 
-That wasn’t a card.
+That wasn’t an Overseer.
 
-That was a *mistake.*
-
-A wild card. A wandering error. A monster so fractured it couldn’t be shuffled back into the Deck.
+That was a *mistake.* A wild card. A wandering error. A monster so fractured it couldn’t be shuffled into the Deck without breaking the whole thing in two.
 
 There weren’t supposed to be any because there *couldn’t be.*
 
@@ -792,7 +784,7 @@ Certain.
 
 **THREAT CLASSIFICATION: 10 — UNFATHOMABLE**
 
-I reeled.
+Goosebumps crawled up my spine.
 
 Ten?
 
@@ -804,11 +796,9 @@ But this… Ten meant unfileable. Unkillable. It meant we didn’t have a word f
 
 My hands were ice.
 
-I stared at the page and something inside me *shrank.* Not from fear. Not from awe.
+I stared at the page and something inside me *shrank.*
 
-From *recognition.*
-
-Is this what the Jack meant when he said I had an hour to write my ending? That if I failed, the Order wouldn’t just kill me—they’d feed me to *this.*
+Is this what the Jack meant? I had an hour to write my ending, and if I failed, the Order wouldn’t just kill me—they’d feed me to *this.*
 
 This *Joker.*
 
@@ -816,10 +806,10 @@ This rogue Overseer.
 
 This impossible, uncontainable, unshuffled thing.
 
-I laughed.
+I laughed. Short. Ragged. Ugly. It was all I could think to do.
 
-Short. Ragged. Ugly.
+All this time, I thought I’d been reading a threat report.
 
-All this time, I thought I’d been reading a threat report, but I was wrong. I’d been reading a eulogy. 
+But I was wrong.
 
-An obituary for yours truly—all that was missing was a condolence [card](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/). 
+I’d been reading my [eulogy](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/). 
