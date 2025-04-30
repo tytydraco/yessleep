@@ -8,8 +8,6 @@ When I was in middle school, kids speculated about what happened if you put your
 
 I don’t remember if anyone actually put their name in. But if they did, I never heard about it. Like many urban legends, the site faded into obscurity, slowly leaving people’s memories. A relic of an older internet—forgotten, lost, left to collect malware.
 
-
-
 *discord ping*
 
 SleepyBoi420 (Derek): Hey, you guys remember that weird website kids would talk about back in middle school?
@@ -30,7 +28,7 @@ SleepyBoi420: I got to the site!
 
 OopsAllParanoia: Ok… and?
 
-SleepyBoi420: This is the url I used, autoinsurancepolicies.com, you guys pull up the site too
+SleepyBoi420: This is the url I used, [autoinsurancepolicies.com](http://autoinsurancepolicies.com), you guys pull up the site too
 
 404HumorNotFound: are you drunk?
 
@@ -382,6 +380,6 @@ Grinning. A too-wide, too-sharp, toothy grin.
 
 And this time, it didn’t disappear.
 
-
-
 **\[END OF PART 1\]**
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1kbm5ls/does_anyone_remember_wwwdeadlinkscom_part_2/)
