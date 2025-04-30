@@ -1,3 +1,5 @@
+Part One
+
 My house was new to me, old by any other aspect. Where we moved to, old equaled cheap, and as a former self-emancipated teen and current broke adult, cheap was almost too much to afford.  
   
 I’m grateful that my friends helped me with the move. When I’d left my parents’ house for the last time, I took nothing but what could fit in a bag, the clothes on my back, and the money I’d earned through back breaking work at the factory my father had worked for over thirty years. The old man would’ve noticed if I’d taken anything more and being discreet was the only reason I got out of there without getting pummeled all over my scrawny body. Or worse. But maybe nothing is worse than the desert town called Halliton.
@@ -146,7 +148,9 @@ He furrowed his brow. “What are you on about? This afternoon?”
 
 “You went upstairs, you started moving things around, dropping things. Woke me up with it and left after grunting at me like some douchebag.”
 
-“Whoa,” Martin spoke up, hand up in a gesture for me to pull back. “Warn, you got it all wrong.” “Really? Seemed pretty clear to me.”
+“Whoa,” Martin spoke up, hand up in a gesture for me to pull back. “Warn, you got it all wrong.”
+
+“Really? Seemed pretty clear to me.”
 
 “Bud,” Raul kept looking at me as if I were a stranger. “I never came back home today.”
 
@@ -192,13 +196,13 @@ Martin put himself between me and Raul with clear intention to diffuse the comin
 
 “If someone did come in, why was the door unlocked?” Rebecca asked from the bottom of the stairs.
 
-“They probably used the key under the mat,” Raul ran his hand over his face. “We’ll need to find a new spot for it, it’s the most obvious place anyone could hide one. I just didn’t think it would be an issue in a town like this. Should we report this?”
+“They probably used the key under the mat,” Raul ran his hand over his face. “We’ll need to find a new spot for it, it’s the most obvious place anyone could hide one. I just didn’t think it would be an issue in a town like this. Should we report it?”
 
-“There wouldn’t be much they can do…” Martin thought a moment as I stuffed things back into the drawers. “I’ll go into town tomorrow and get one of those video doorbells. It doesn’t fix much tonight, but we’ll bring the spare key inside, make sure the doors and windows are locked, and make it work 'til morning.”
+“There wouldn’t be much they can do…” Martin thought a moment as I stuffed things back into the drawers. “I’ll go into town tomorrow and get one of those video doorbells. It doesn’t fix much tonight, but it might make us feel safer. We’ll bring the spare key inside, make sure the doors and windows are locked, and make it work 'til morning.”
 
 “Oh my God,” Rebecca started freaking out downstairs. “I can’t believe this is happening. We *just* moved here.”
 
-“No one took anything,” I answered with finality. “My watches, my silver chain, my gaming stuff. It’s all here. Maybe I was sleepwalking. Or…I dunno. Something happened. Martin’s right. We’ll get a camera. Could’ve been some idiot punk kids. No one comes back to mess with us. I’ll talk to the landlord.”
+“No one took anything,” I answered with finality. “My watches, my silver chain, my gaming stuff. It’s all here. Maybe I was sleepwalking. Or…I dunno. Something happened. Martin’s right. We’ll get a camera. Could’ve been some idiot punk kids. I’ll talk to the landlord.”
 
 “You’ve met him?” Raul asked as Martin went downstairs to comfort his wife.
 
@@ -222,7 +226,7 @@ I was busying myself refilling the Corn Nuts that Cohan had bought out when Barb
 
 “Hey, hey, Warner.” She greeted in that gravelly country accent of hers.
 
-“Evening, Barb. How’s the weather on the roads like?” Being a notch up into the mountains, a winter night here could sometimes drop down to the bitter cold of a Midwest winter day, still bitter and cutting.
+“Evening, Barb. How’s the weather on the roads like?” Being a notch up into the mountains, a winter night here could sometimes drop down to the cold of a Midwest winter day, still bitter and cutting.
 
 “If I had any balls they’d be puckered up and fallen off frozen,” she answered. “Trucks don’t hold no heat, even the newfangled ones. Looked at the forecast and read my cards, clear skies all the way through the weekend. Not like we’ve really had snow around here in years.”
 
