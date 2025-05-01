@@ -98,7 +98,7 @@ Anyway he says they tend to be aggressive like the *roosters*. He never told me 
 
 Well, onto the next one I guess… A more recent development with the *roosters.* The thing with the roosters is that they are not visible. You can’t see them, but they sure as hell can see you. But like any other person or thing that comes to this kiosk, they seem to respect its boundaries, for some reason.
 
- The roosters – as Winston told me, like to rip people apart. But they choose their prey carefully and leave no traces behind. Why do I call them roosters? Well they become more and more active as the night progresses and just before sunrise tend to bang and scrach on the kiosk roof and walls like they are desperately trying to get inside.
+ The roosters – as Winston told me, like to rip people apart. But they choose their prey carefully and leave no traces behind. Why do I call them roosters? Well they become more and more active as the night progresses and just before sunrise tend to bang and scracth on the kiosk roof and walls like they are desperately trying to get inside.
 
 They’d wake up anyone from the deepest of slumbers. Sometimes they do shake up the kiosk a bit to knock some things down, but nothing too much. It ain’t broken bottles but its just fallen candy bars and such.
 
@@ -112,7 +112,7 @@ I mean they had a problem with the engine or something and they just got out and
 
 After that night, the bottles started dropping and I heard all sorts of tapping and whispering among the shelves. The little people came from the dump riding on that truck… I am sure of it. And they were the ones who sabotaged the engine, the sly bastards…
 
-Winston thought I was full of shit at the start but soon enough he told me he saw them himself. And he told me not to follow any of the bastards. I nodded, but honestly even he couldn’t stop me in my righetous crusade to cull those little bastards and shoo them off my – I mean, Winston’s property.
+Winston thought I was full of shit at the start but soon enough he told me he saw them himself. And he told me not to follow any of the bastards. I nodded, but honestly even he couldn’t stop me in my righteous crusade to cull those little bastards and shoo them off my – I mean, Winston’s property.
 
 And exactly two weeks after they first appeared, I managed to get a glimpse of one who got down to the ground. We just got a new shelf for the center of the kiosk itself, which split the kiosk into basically two rooms that went into a circle. Now the little shit rounded the corner and so did I… But I didn’t see my desk and lamp.
 
@@ -134,7 +134,7 @@ The fucking hallway materialized again. I went to the other side again – No ha
 
  I wrote a note as reminder to inform Winston of the, I quote –
 
- *“Transdimensional tear in reality, maybe caused by the vodka stealing-gnomes caused. Possibly safe. Probably not.”*
+ *“Transdimensional tear in reality, maybe caused by the vodka stealing-gnomes Possibly safe. Probably not.”*
 
 Once my colleague arrived to relieve of my shift… His reaction was indifferent. I just told him not to go inside. *I doubt he moves at all during the shift.* He’s a weird dude… Never did talk to him… I don’t even know his name.
 
@@ -166,19 +166,13 @@ I still have stories to tell, but not much time to write. And honestly I don’t
 
 You know, Miss Six did tell me yesterday I looked like I needed a hug…
 
- I might take her up on that offer.
+I might take her up on that offer.
 
  
 
-
-
  
 
-
-
  
-
-
 
  
 
