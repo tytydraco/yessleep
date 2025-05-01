@@ -258,7 +258,7 @@ But as he left, the lie curdled. I pulled out my phone, thumb hovering over Sabl
 
 Outside, the rain began to fall—soft, relentless—and with it, the faintest whisper of jasmine lingered in the air.
 
-I almost heard a whisper from the pattering on the window. “*Hello, Lievard*.” 
+I almost heard a whisper from the pattering on the window. “*Hello, Lieverd*.” 
 
 —
 
@@ -380,7 +380,7 @@ Another unrecognised reply:
 
 **“Thank you,** ***Lieverd***\*\*.”\*\*
 
-The panic that had gripped me moments ago melted away. That name-*Lievard*\-sent a shiver of warmth through me. I couldn’t help but smile, my earlier fears suddenly forgotten.  
+The panic that had gripped me moments ago melted away. That name-*Lieverd*\-sent a shiver of warmth through me. I couldn’t help but smile, my earlier fears suddenly forgotten.  
 
 The car door swung open, jolting me from my thoughts. Will slid into the driver’s seat, tossing a bag of crisps into my lap. “Ready to go, sleepyhead?”  
 

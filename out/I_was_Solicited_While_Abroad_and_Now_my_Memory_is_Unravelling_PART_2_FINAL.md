@@ -44,7 +44,7 @@ Will stands across from me, expectant. His voice is just noise, muffled and dist
 
 A message.
 
-**“*****Lievard*****.”**
+**“*****Lieverd*****.”**
 
 **“Yes.”**
 
@@ -84,7 +84,7 @@ The buzz in my pocket jolts me, a sudden spark to my system. I exhale sharply, p
 
 I pull out my phone.
 
-**“Thinking of me,** ***Lievard***\*\*?”\*\*
+**“Thinking of me,** ***Lieverd***\*\*?”\*\*
 
 My fingers tighten around the device.
 
@@ -140,7 +140,7 @@ My thumb hovers over the screen.
 
 A small, involuntary smile as I read her words.
 
-**“Ready,** ***Lievard***\*\*?”\*\*
+**“Ready,** ***Lieverd***\*\*?”\*\*
 
 **“Always, love.”**
 
@@ -150,7 +150,7 @@ A small, involuntary smile as I read her words.
 
 A pause. The dots bounce.
 
-**“Do it for me,** ***Lievard***\*\*.”\*\*
+**“Do it for me,** ***Lieverd***\*\*.”\*\*
 
 I look to her name in my contacts. 
 
@@ -192,7 +192,7 @@ The sudden sound rips through me like a jolt of electricity. My mind freezes, my
 
 I look at the screen.
 
-**“It’s time,** ***Lievard***\*\*.”\*\*
+**“It’s time,** ***Lieverd***\*\*.”\*\*
 
 I sit on the edge of my bed, phone in hand, the dim light from the screen casting an unnatural glow across my face. Trembling, I wait for a moment for her to continue, but nothing happens. My fingers hover over the keys.
 
@@ -232,7 +232,7 @@ I send a quick reply:
 
 My heart beats faster as I wait, staring at the screen.
 
-**“You know the answer, Lievard.”**
+**“You know the answer, Lieverd.”**
 
 The coldness in her words cuts through the air, sharper than I expected. Yet, with the sense of rising panic, a loving embrace awaited me. I exhaled slowly, the tightness in my chest releasing as I pull up PayPal.
 
