@@ -4,25 +4,15 @@ My watch buzzed.
 
 **\[00:46:13\]**
 
-The countdown began. Forty-six minutes to write a miracle—or get turned into a gorey mural.
+The countdown began. Forty-six minutes to write a miracle, or get turned into a gorey mural.
 
 Talk about a deadline.
 
-I tried to cheat the rules. Scribbled a better ending with my pen—something sweeter, something mine. The ink bled straight through, like the page was rejecting me.
-
-The typewriter sat there, smug and silent. 
-
-Broken, like always. 
-
-Or pretending to be.
+I tried to cheat the rules by scribbling a better ending with my pen, but the ink bled straight through. 
 
 **\[00:30:13\]**
 
-Still nothing. I screamed myself hoarse. Only the echo answered, thin and pitiful, like even it had given up on me.
-
-No Overseers. No Inquisitors. Not even Edwards. The last time we locked eyes, he looked at me like I was the monster.
-
-Maybe I am.
+I screamed myself hoarse. Only the echo answered, thin and pitiful, like even my own voice had given up on me.
 
 The Ma’am always said I’d die alone. 
 
@@ -30,11 +20,11 @@ Looks like she finally got something right.
 
 **\[00:20:13\]**
 
-…
+The typewriter twitched.
 
-The typewriter twitched. Then typed.
+Then typed.
 
-The same sentence. Again and again, like a skipped record:
+Just the same sentence, over and over:
 
 **GOOD BOYS DON’T BLEED SO LOUD**
 
@@ -54,9 +44,9 @@ Not her.
 
 Reality buckled.
 
-The air turned to syrup—sweet with lilac, sharp with bleach. A rocking chair creaked. Slow. Measured. Familiar. Carol’s lullaby threaded through the silence. Half-hummed. Half-forgotten.
+The air turned to syrup. A rocking chair creaked. Slow. Measured. Familiar. Carol’s lullaby threaded through the silence. Half-hummed. Half-forgotten.
 
-My stomach dropped. My mouth tasted of copper.
+My stomach dropped. My mouth tasted of apologies.
 
 I tried to fight it—to claw my way back to Chamber 13 but the light was already bending.
 
@@ -66,15 +56,13 @@ And I slipped.
 
 Not down—but through.
 
-Like a story falling off its rails. Like a page torn from one book and stapled into another. The chamber peeled away. First the walls, then the floor, then suddenly—
+Like a story falling off its rails. The chamber peeled away. First the walls, then the floor, then suddenly—
 
 I was there again.
 
 A living room drowned in shadow. Moonlight slicing through boarded windows. Dust curling through the beams like cremated pages.
 
 And pain.
-
-Thin fingers in my hair. Cold. Calloused. Familiar.
 
 The Ma’am yanked my head back like she was opening a puppet’s mouth.
 
@@ -84,9 +72,9 @@ I choked down a sob. “Good boys don’t bleed so loud.”
 
 “That's right.”
 
-The knife returned. Not quick, not clean—but slow. Deliberate. Like she was signing her name into my spine.
+Her knife returned. Not quick, not clean—but slow and deliberate, like she was signing her name into my spine.
 
-Carol was there, kneeling in front of me. Hands wrapped around mine like they were the only thing left holding me together.
+Carol was there, kneeling in front of me. Frail hands wrapped around mine like they were the only thing left holding me together.
 
 “It’s okay,” she whispered. “It’ll be over soon.”
 
@@ -94,105 +82,101 @@ I knew that. 
 
 I remembered when Gretchen received her Carving. My older sister. It was among my first memories. 
 
-She'd showed it to me afterwards, brushing aside the back of her raven black hair. And there it was—etched into her neck like a brand: an inverted A, its legs long and bent like rabbit ears. Two dots in the center. Eyes. Watching.
+She'd showed it to me afterwards—etched into her neck like a brand: an inverted A, its legs long and bent like rabbit ears. Two dots in the center. Eyes. The Ma'am's signature. Her proof that neither Gretchen or I had never really been born. Just written.
 
-The Ma'am's signature. Her proof that neither Gretchen or I had never really been born. Just written.
+We were characters in her private mythology. Tools with just enough soul to suffer, and just enough love to make it hurt.
 
-We were skin-bound sketches. Characters in her private mythology. Tools with just enough soul to suffer, just enough love to make it hurt.
-
-The knife flared hot as it broke the skin.
+The knife flared hot as it broke the skin. The Ma'am's voice was like arsenic.
 
 “You should be proud, Boy. Most of your siblings never made it this far.”
 
 I winced.
 
-Most—but Gretchin did. 
+True. Most didn't—but Gretchin did. 
 
 I still remember the night she was exiled.
 
 The way she screamed.
 
-Te gouges her nails left on the wall as the Ma’am dragged her from the Crooked House and through the Door with a Dozen Locks.
+The gouges her nails left on the wall as the Ma’am dragged her from the Crooked House and out the Door with a Dozen Locks.
 
-“Let this be a lesson,” the Ma’am had told me when she returned, shaking Gretchen's blood from her boots. “There are no happy endings for disobedient children.”
+*“Let this be a lesson,*” the Ma’am had told me when she returned, shaking Gretchen's blood from her boots. “*There are no happy endings for disobedient brats.*”
 
 Sometimes, at night, I swore I could still hear my sister crying from the Wood. Begging the Hungry Things not to eat her.
 
+I shook the thought from my mind.
+
 “Ma’am?” I whispered. 
 
-“You may speak, Boy.”
+“Speak, Boy.”
 
 “Our story… it’s about saving people, right?”
 
-The Ma’am snarled. “My story. Not yours.”
+The Ma’am twitched. “My story. Not yours.”
 
-She yanked my head back, fingers knotting in my hair like shackles.
+She yanked my head back, fingers knotting in my hair.
 
-“I’m saving this godforsaken world. You’re just the ink I use to write the ending.”
+“This world is mine to save. All you are is another weapon to help it along."
 
-Carol squeezed my hand, trying to defuse the storm. “That’s right. We’re helpers. And the Ma’am’s so close now—so close to saving everyone. Isn’t that lovely?”
+Carol squeezed my hand, seeing my horror. "Not weapons. Helpers, dear. And the Ma’am’s so close now—so close to saving everyone. Isn’t that lovely?”
 
-I forced a smile, nodding. “Then does that mean… we can leave the Crooked House soon?”
+I forced a smile, nodding. “Does that mean we can leave the Crooked House soon?”
 
-The Ma’am's nails pierced my scalp—blood trickled, warm and slick.
+I hated it there.
 
-“That depends. Carol hasn’t been terribly cooperative lately, and it's slowed my progress considerably.”
+“That depends." The Ma’am's nails pierced my scalp—blood trickled, warm and slick. "Carol hasn’t been terribly cooperative lately. It's slowed my progress *considerably*.”
 
 Carol looked down. Shame wrinkled her face. Her hand drifted to her forearm hiding fresh scars, dried blood, like something had fed on her.
 
-“I’ve just… been tired,” she said. “It’s harder to contribute these days.”
+“I’ve just… been tired,” she said quickly. “It’s harder to contribute these days. But I'm trying."
 
-I smiled at her—tried to. “It’s okay. You’re doing your best, Gran.”
+I smiled at her. Or at least, tried to. “It’s okay. You’re doing your best, Gran.”
 
 Everything stopped.
 
-The Ma’am wrenched my head sideways, blade cold against my throat. “Gran?” she hissed. “What did I say about that word, you bloody brat?”
+The Ma’am wrenched my head sideways, blade cold against my throat. “What did I say about that word, you bloody brat?”
 
 “I—I’m sorry. It just slipped out, I swear—”
 
-“Mother. Gran.” She said them like curses. “Those are forbidden in this domicile.”
+“Mother! Gran!” She said them like curses. “Those words are forbidden in this house.”
 
-Her blade shifted—pointed at Carol like a verdict.
+Her blade shifted, pointing at Carol like a judge's verdict. “And this crone? She hasn’t earned the right to hear them.”
 
-“And this crone hasn’t earned the right to hear them.”
+Carol reached out, trying to defuse the escalating situation. “You’re right—of course you are. The Boy’s just… excited about the Carving, I’m sure." She looked at me. "Isn't that right?"
 
-Carol reached out. “You’re right, Ma’am—of course you are. The Boy’s just… excited about the Carving, I’m sure. That’s all it is. It’s jumbled his thoughts.”
+I nodded quickly, heart pounding.
 
-“Then he should unjumble them.”
+"See? That's all it. It's jumbled his head a bit."
 
-The blade kissed tighter. My blood pattered the floor like rain.
+The blade kissed tighter. My blood pattered the floor like rain. *“Then he should unjumble them.”*
 
-“Tell him a story!” Carol shrieked, voice pitched with desperation and appeasement. 
+“Tell him a story!” Carol shrieked, voice pitched with desperation. "The Boy loves your stories!"
 
-The Ma’am paused.
-
-Carol knelt before her like a supplicant at the altar. Put her hands on her knee. “The Boy loves your stories. He says you’re the best writer in the world. Isn’t that right, dear?”
-
-I nodded, terrified. “Y-yes, Ma’am.”
-
-The Ma’am’s scowl cracked—reshaping itself into something worse: a sneer. “Is that so? You should’ve said so earlier, Boy. I’m always happy to share my genius with those who need it.”
+The Ma’am paused. Her scowl cracked—reshaping itself into a sneer. “Is that so? You should’ve said so sooner, Boy. I’m always happy to share my genius with those who need it. What story would you like to hear?"
 
 “Tell him about the Red Queen,” Carol offered. “And how she’s going to save us.”
 
-“Yes,” the Ma’am breathed. “My magnum opus. Once she arrives, the Hungry Things will submit to my narrative completely. We’ll leash them. Weaponize them. And then—then we’ll topple the monster that’s ruining this world.”
+“Yes,” the Ma’am breathed. “My magnum opus."
 
-“The Boogeyman?” I whispered.
+I gulped, shifting uneasily beneath the blade. "What's her story about?"
 
-It was the story Carol told me most nights. Our family legacy. The Boogeyman wasn’t just another monster like the Hungry Things, he was the worst creature to ever exist. The thing that haunted people’s dreams and turned them into shadows. 
+"Revenge," the Ma'am said simply. "Once the Queen arrives, the Hungry Things will submit to my narrative completely. We’ll leash them. Weaponize them. And then—then we’ll topple the monster that took everything from me.”
 
-“That’s right,” Carol whispered, her smile trembling like a candle flame.
+“You mean the Boogeyman?” I whispered.
 
-“It is not right,” the Ma’am snapped.
+It was the story Carol told me most nights. Our family's legacy. The Boogeyman wasn’t just another monster, he was the worst creature to ever exist. The thing that haunted people’s dreams and turned them into shadows. 
+
+“That’s right,” Carol whispered, her smile trembling like a candle flame. "The Boogeyman is—"
+
+“It is not right!” the Ma’am snapped.
 
 Carol recoiled.
 
-“The Boogeyman is a footnote. A distraction. The real enemy is the Disorder.” The Ma’am’s voice grew venomous. “They took everything. My soldiers. My dreams. My legacy. But with the Red Queen leading the charge, I’ll take it all back.”
+“The Boogeyman is a footnote, you daft crone. A distraction. The real enemy is the Disorder.” The Ma’am’s voice grew venomous. “They took everything from me. My soldiers. My dreams. My legacy. But with the Red Queen leading the charge, I’ll take it all back—and write a lullaby with their screams.”
 
-I swallowed. My throat burned. “And then… we’ll stop the Boogeyman?”
+My throat burned, voice trembling. “And... And then we’ll stop the Boogeyman?”
 
-The knife returned. The pain did too.
-
-“Oh yes. We’ll stop the Boogeyman. And anything else that tries to interfere with my narrative. Evil has no place in my story,  Boy. Not while I hold the pen.”
+The knife returned. So did the pain. "Certainly. We'll stop the Boogeyman, along with anything else foolish enough to interfere with my narrative. This is my story, Boy. And evil has no place in it—not while I hold the pen."
 
 She pressed the blade harder. “Now sit still. You’re getting blood all over my hands.”
 
@@ -206,29 +190,33 @@ Shadows peeled backward. Walls liquefied into stone.
 
 The Crooked House was gone.
 
-I was back in Chamber 13, sitting beneath a lonely lightbulb dangling from a cracked ceiling.
+I was back in Chamber 13, sitting beneath a lonely lightbulb dangling from a cracked ceiling. 
 
-Ten minutes had vanished.
+The Boogeyman. The Red Queen. 
 
-The room had changed during my reverie. A new page sat in the typewriter now. Crisp. Waiting. Like it had crawled out of the machine itself. Its words were written in scarlet ink. 
+I groaned, hand running through my hair. 
 
-The page was brittle, blackened at the corners, curling inward like it had clawed its way out of a fire that burned a hundred years too long. It smelled of damp earth. Of rot. Of stories buried too deep to forget.
+I'd done a decade worth of therapy to bury those memories, and now they were resurfacing. Why?
 
-A date in the margin read October 4th, 1857.
+It'd all started the second the elevator had dropped, so was it something about the Sub-Vaults that was digging into my subconscious?
 
-So it was old. Too old to be here. 
+Or was something else trying to get my attention?
 
-It looked like a journal entry, or something wearing the skin of one.
+DING!
+
+The typewriter's carriage slid over. A page sat in the holster. Crisp. Waiting. It was new, fully typed, like it'd crawled out of the machine when I wasn't looking. 
+
+"What the hell...?"
+
+It looked like a journal entry. That, or something wearing the skin of one.
 
 I hesitated.
 
-Didn’t want to read it.
+It didn't feel safe reading it, like the words themselves might be haunted. Or cursed. But I was less than half an hour from having my guts hung like party streamers, and I didn't have the first idea of how to escape. 
 
-Didn’t want to know.
+So I told myself that maybe the typewriter wanted to help. That maybe these words held the secret to my salvation.
 
-But I had ten minutes before my guts were hung like party streamers, and when those are the stakes, ignorance feels more like a noose than a mercy. So I sat. Let the chair embrace me like an open grave.
-
-And I read.
+I couldn't have been more wrong. 
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
@@ -242,15 +230,15 @@ And I read.
 
 *We had so little. With Father’s meager wages and growing bitterness, he sold what remained of value in our home. And when he made to pawn Mother’s old typewriter—the last relic of the woman she once was—I clung to it with a desperation I can scarcely describe. I pleaded. I wept. For it was not merely a machine, but a memory of her better self, the one who once wrote me fables and cast me as their heroine.*
 
-*He relented in the way men do when tired of the noise women make. Gave me six months, he said—six months to prove I could sell a story and earn my keep. After that, he would sell it for bread and forget it had ever belonged to anyone but him.*
+*He relented in the way men do when tired of the noise children make. Gave me six months, he said—six months to prove I could sell a story and earn my keep. After that, he would sell it for bread.*
 
-*But writing is no easy feat, nor is the telling of stories as simple as reading them. I attempted first a tale of a brave knight who slew dragons and rescued maidens, but I found myself unable to finish it. My thoughts recoiled from steel and blood, for such things reminded me too much of home.*
+*I wrote of a gentle creature—a hare, dressed in a buttoned coat, who bore neither sword nor shield, but a soft heart and kind eyes. He was not made for battles, nor for happy endings, but for companionship.* 
 
-*Instead, I wrote of a gentle creature—a hare, dressed in a buttoned coat, who bore neither sword nor shield, but a soft heart and kind eyes. He was not made for battles, nor for happy endings, but for companionship. He, like me, was too sorrowful to believe in conclusions wrapped in ribbon.*
+*He, like me, was too sorrowful to believe in conclusions wrapped in ribbon.*
 
-*When the tale was finished, I ran to show Mother. I remember reading aloud the opening lines, standing beside her while she sat at the kitchen table, dealing cards into neat piles as though playing against time itself. She neither stirred nor spoke, but hummed softly, her attention fixed on ghosts I could not see.*
+*When the tale was finished, I ran to show Mother. She neither stirred nor spoke, but hummed softly, her attention fixed on ghosts I could not see.*
 
-*So I brought the pages to the brook at the edge of our land, and read them aloud to the hush between the trees and the water. It seemed a fitting thing—to give my words to the wind, if not to the woman who’d taught me stories once mattered.*
+*So instead, I brought the pages to the brook at the edge of our land, and read them aloud to the hush between the trees and the water. It seemed a fitting thing—to give my words to the wind, if not to the woman who’d taught me stories once mattered.*
 
 *And it was there, just beyond the edge of sound, that I first glimpsed him.*
 
@@ -262,7 +250,7 @@ And I read.
 
 *And when he asked my name, I told him I was Alice, and that I had written him into being.*
 
-*He reached across the stream and touched the bruise that still ached on my cheek. He asked, gently, why someone who could conjure wonders looked so sorrowful.*
+*He reached across the stream and touched the bruise that still ached on my cheek. He asked, gently, why someone who could conjure such wonders looked so sorrowful.*
 
 *I confessed, in the way children confess—not in words, but in quiet eyes and trembling shoulders—that sadness seemed to find its way into girls like me.* 
 
@@ -276,25 +264,21 @@ And I read.
 
 The last line had barely cooled on the page when I heard it.
 
-A breath. Soft. Measured.
+A breath. 
 
-Behind me.
+Soft. Measured.
 
-I froze.
+Right behind me.
 
-Didn’t look. Didn’t breathe.
+I *knew*—the way animals know lightning is coming—that if I turned around too fast, I might catch something still finishing the act of pretending it wasn’t there. So I turned slowly. 
 
-Because I *knew*—the way animals know lightning is coming—that if I turned around too fast, I might catch something still finishing the act of pretending it wasn’t there.
+And saw nothing.
 
-But nothing moved.
+No lurching shadows. No fanged monsters. Just stillness and the aching silence of the dark. 
 
-No footsteps. No shadows. Just stillness.
+The typewriter clicked.
 
-Just the stone walls of Chamber 13. Empty. Waiting.
-
-I exhaled—and that’s when the typewriter clicked.
-
-A fresh sheet. Same yellowed paper. Same scorched corners. A new date in the corner: **October 7th, 1857.**
+I look back to find a fresh sheet on the same yellowed paper. The corners were scorched, like it'd barely survived a fire. 
 
 My stomach tightened.
 
@@ -310,19 +294,21 @@ And I had a bad feeling it wouldn’t have a happy ending. 
 
 *The Hare led me beneath the veil of trees, and as we walked, the world began to unravel.*
 
-*The forest twisted around us like thread unwinding from a forgotten spool. Trees became ribbons of shade, the sky deepened into a blue too vast for human naming, and mushrooms bloomed with thrones where toadstools had once been. I recall caterpillars reclining upon branches and blowing riddles into the air through pipes of porcelain. Lights shimmered where no lanterns burned, and shadows gathered in shapes I dared not follow.*
+*The forest twisted around us. Trees became ribbons of shade, the sky deepened into a blue too vast for human naming, and mushrooms bloomed with thrones where toadstools had once been. I recall caterpillars reclining upon branches and blowing riddles into the air through pipes of porcelain. Lights shimmered where no lanterns burned, and shadows gathered in shapes I dared not follow.*
 
-*It was Wonderland, or so he said—and I believed him. For in that strange and splendid place, I was no longer small. I was no longer unloved. I was not a child to be struck or shushed. I was something else entirely: a dreamer given dominion.*
+*It was Wonderland, or so he said—and I believed him.* 
 
-*I danced, barefoot and laughing, across petal-strewn paths and told him—perhaps even promised—that I should never wish to leave again. But his smile faltered at that. He plucked at the fur upon his collar and would not meet my eye. When I asked why, he told me the world was broken in ways Wonderland could not repair, and that no one stayed forever. Not really. Not even those who wished to.*
+*I danced, barefoot and laughing, across petal-strewn paths and told him that I should never wish to leave again. But his smile faltered. He plucked at the fur upon his collar and would not meet my eye. When I asked why, he told me the world was broken in ways Wonderland could not repair, and that no one stayed forever. Not really.*
 
-*He spoke then of a terrible thing. A Boogeyman, he called it, though the name felt too childish for what he described—a vast, twisted sleeper beyond the stars, whose breath could extinguish joy and whose dreams could drown whole worlds in silence. He said that when it woke, all wonder would be devoured, and we would be left with nothing but sorrow.*
+*He spoke then of a terrible thing. A Boogeyman, he called it, though the name felt too childish for what he described—a vast, twisted sleeper beyond the stars, whose breath could extinguish joy and whose dreams could drown whole worlds in silence. He said that when it woke, all wonder would be devoured, and we would be left with nothing but grief.*
 
 *I told him—perhaps a little foolishly, as children often do—that I would stop it. That we must stop it. But the Hare only shook his head. He said the Boogeyman was too old, too immense. That to face such a thing, we would need something equally terrible.*
 
 *It brought to mind my mother’s cards—her endless games of solitaire, played long into the night as though she might stack her sorrows into some semblance of peace. There was a strange sort of grace in it, I thought. The quiet rhythm of turning cards, the patient pursuit of order from chaos.*
 
-*And I began to wonder whether I, too, might arrange such order. Not with kings and queens, but with creatures of my own invention—monsters born not of malice, but of meaning. A deck of dread things, each tailored to face the horrors I could not name, shaped with care to balance the scales.*
+*And I began to wonder whether I, too, might arrange such order.* 
+
+*Not with kings and queens, but with creatures of my own invention—monsters born not of malice, but of meaning. A deck of dread things, each tailored to face the horrors I could not name, shaped with care to balance the scales.*
 
 *And at the heart of it—at the center of that imagined deck—there would be a card the Boogeyman itself might fear. Not a knight, nor a queen, nor even a joker. But something wholly my own.*
 
@@ -330,7 +316,7 @@ And I had a bad feeling it wouldn’t have a happy ending. 
 
 *Yet while I dreamed of monsters and meanings, the hours slipped away unnoticed. The moon, peeking through passing clouds, blinked once more—and the weight of the world returned to my shoulders. I said I must go. Father would be waiting.* 
 
-*The Hare seemed sorrowful, but understanding. He asked, in his gentle way, whether I might write him a companion—someone to stay with him while I was gone. Not a girl, like myself, but a rougher sort. A boy with dirt under his nails and a house in the woods. Someone who could build things. Protect things.*
+*The Hare seemed glum, but understanding. He asked, in his gentle way, whether I might write him a companion—someone to stay with him while I was gone. Not a girl, like myself, but a rougher sort. A young man with dirt under his nails who could build things. A house, perhaps. One that we could all live in, far from the dreariness of Father.* 
 
 *I told him I would try.*
 
@@ -338,9 +324,9 @@ And I had a bad feeling it wouldn’t have a happy ending. 
 
 *But promises are frail things, and joy never lingers where men like my father wait.*
 
-*As I stepped from the trees, Father caught me by the hair and dragged me across the yard like a sack of grain. He was shouting—always shouting—and his breath reeked of rot and liquor. He called me a curse, a mouth he could scarcely feed, and I remember thinking how terribly small the world had become again. Wonderland had vanished, and I was a girl once more.*
+*As I stepped from the trees, Father caught me by the hair and dragged me across the yard like a sack of grain. He was shouting—always shouting—and his breath reeked of rot and liquor. He called me a curse, a harlot, and I remember thinking how terribly small the world had become again. Wonderland had vanished, and I was nobody once more.*
 
-*I cried out, not to him, but to the forest behind me. Pleading. Begging. For someone to help. For someone to see.*
+*I cried out, not to Father, but to the forest behind us. Pleading. Begging. For someone to help. For someone to see.*
 
 *And there—just beyond the edge of night—I saw the Hare.*
 
@@ -354,33 +340,43 @@ And I had a bad feeling it wouldn’t have a happy ending. 
 
 The light in Chamber 13 shifted.
 
-Didn't flicker. Didn't make a sound. Just ...grew dimmer. Like a cloud had passed overhead. Except there were no windows. And there certainly weren't any clouds.
+Didn't flicker. Didn't even make a sound. Just ...grew dimmer, like a cloud had passed overhead. Except there were no windows. And there certainly weren't any clouds.
 
 I leaned back in the chair, bones creaking like cold timber. The air felt thicker now, like something had been added to the room while I read.
 
-Something caught my eye.
+That's when something caught my eye.
 
-A smear. There—on the far wall. Red and smudged. 
+There—on the far wall. Red and smudged. 
 
-Fresh.
+A smear of words.
 
-I stood and crossed the room, heart ticking with each step. Whatever this was, it wasn’t ink. It looked more like *blood.* 
-
-It’d been written with a finger. Dragged across the surface in looping cursive:
+I stood and crossed the room, goosebumps tingling my arms. The words. They’d been written with a finger. Dragged across the wall's surface in looping cursive:
 
 *“Do you dream of her too?”*
 
-I swallowed. 
+I frowned.
 
-Behind me, the typewriter *clicked* again. 
+Whatever this was, it wasn’t ink. 
 
-Another page was being fed in. The keys moved of their own accord—soft, deliberate, like a child sounding out a sentence. A new date blinked into existence on the upper margin: **October 13th, 1857.**
+It looked more like... *blood.* 
 
-I looked back at the wall. The writing was gone.
+I shivered. 
 
-Just me again.
+***DING!***
 
-I hope.
+I wheeled about, heart leaping in my chest. 
+
+Chamber 13 remained empty—just endless darkness pouring down those circular walls. It was just me and the typewriter. And the fresh page it'd just fed into itself. 
+
+The keys began moving of their own accord—soft, deliberate, like a child sounding out a sentence. Typing a fresh entry to Alice's journal. 
+
+*Do you dream of her too?*
+
+Those words. They must have been talking about Alice. 
+
+I looked back at the writing on the wall, but it was gone. Vanished.
+
+... Had it ever been there at all?
 
 **\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
 
