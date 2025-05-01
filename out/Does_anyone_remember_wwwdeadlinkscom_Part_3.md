@@ -104,7 +104,7 @@ Something in his tone sent a chill through me. “…Yeah?” He hesitated befor
 
 Derek paused, his grip on the paper tightening. He looked up at me, his expression hollow, as if the weight of the words had drained the life from him. His mouth opened, but for a moment, no sound came. Then, finally, in a voice barely above a whisper—empty, resigned—he said:
 
-\*\*“\*\*S̷u̷b͟j̸e͞c̢t įs p̸r̶o̢g͏r͡e͝s̡s̷i͠n̢g a̸t a ͟s̷l͠o͡w̷e̡r̸ r̶a͡t̛e t͢h͝a̡n o̴t̸h̨e͠r ̕t̛e͟s̢t s̕u̡b͡j͟e͡c̸t̢s. *T̷e͜r͟m͠i͡n̨a͡t̸i̸o͢n i͢n̢e̢v̶i͢t̶ąb̶l͟e*.”
+S̷u̷b͟j̸e͞c̢t įs p̸r̶o̢g͏r͡e͝s̡s̷i͠n̢g a̸t a ͟s̷l͠o͡w̷e̡r̸ r̶a͡t̛e t͢h͝a̡n o̴t̸h̨e͠r ̕t̛e͟s̢t s̕u̡b͡j͟e͡c̸t̢s. *T̷e͜r͟m͠i͡n̨a͡t̸i̸o͢n i͢n̢e̢v̶i͢t̶ąb̶l͟e*.”
 
 The room felt colder. Smaller. Like the walls were pressing in. I felt my pulse in my throat, each beat hammering against my chest. I was on the verge of spiraling. What did they do to me? What did it mean by progressing slower? Why would I have to be term—
 
