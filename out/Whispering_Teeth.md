@@ -86,7 +86,7 @@ Jim asked me if I heard any chattering. Thankfully, I did not.
 
 All was quiet for about a month. Then, the stray animals started appearing.
 
-It was just a few at first. A mangy-looking cat here, a devastatingly-emaciated dog there. I’d see them wandering around the graveyard, searching for something that always led them to the foot of Dough’s grave. A weird nuisance, sure, but our city is full of strays, so it didn’t alarm me. Couldn’t say what was so enticing about the area Dough was buried. I rationalized the phenomena as best I could and moved on.
+It was just a few at first. A mangy-looking cat here, a devastatingly-emaciated dog there. I’d see them wandering around the graveyard, searching for something that always led them to the foot of Dough’s grave. A weird nuisance, sure, but our city is full of strays, so it didn’t alarm me. Couldn’t say what was so enticing about the area Dough was buried in. I rationalized the phenomena as best I could and moved on.
 
 Things escalated.
 
