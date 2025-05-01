@@ -80,7 +80,7 @@ My house is a 15-minute drive from work, so it was about 9:45 by the time I got 
 
 After getting settled back in, I popped a frozen pizza into the oven, and we ate that.
 
-By the time we had finished eating, it was 10:17 Time to get started.
+By the time we had finished eating, it was 10:17; time to get started.
 
 We moved the couch to the corner of the living room so there would be an open space for the mannequin. Speaking of which, I brought it down from my room.
 
