@@ -1,3 +1,5 @@
+**Part I** – [Part II](https://www.reddit.com/r/nosleep/comments/1kcchyv/i_just_learnt_that_my_parents_kidnapped_me/)
+
 Before I tell you about the present, I ought to tell you about the past.
 
 You see, this horrible information has lent weight to what was already one of the most terrifying events from my childhood.
@@ -193,3 +195,5 @@ Yesterday, I needed only to escape. Now, I need answers.
 Who am I?
 
 And who are the people watching [me](https://www.reddit.com/r/dominiceagle)?
+
+[UPDATE - Part II](https://www.reddit.com/r/nosleep/comments/1kcchyv/i_just_learnt_that_my_parents_kidnapped_me/)

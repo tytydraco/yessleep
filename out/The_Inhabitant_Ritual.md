@@ -12,7 +12,7 @@ I looked over all of the items we had laid out on the floor.
 
 “Good, now we wait.”
 
-Wade had told me about this ‘ritual’ of sorts a few months back. He, or at least the people on the forum he discovered it from, call it the ‘Inhabitant Ritual.’ 
+Wade had told me about this ‘ritual’ of sorts a few months back. He, or at least the people on the forum he discovered it from, call it the ‘Inhabitant Ritual.’
 
 He wasn’t exactly able to explain it in the best way himself, so he sent me a link to the forum where he read it from. The rules for the ritual are as follows.
 
@@ -124,4 +124,4 @@ The mannequin wasn’t there.
 
 The game had *finally* begun.
 
- 
+[ Part 2 here](https://www.reddit.com/r/nosleep/comments/1kcd4tc/the_inhabitant_ritual_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
