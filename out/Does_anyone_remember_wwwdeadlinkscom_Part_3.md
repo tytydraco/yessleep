@@ -86,7 +86,7 @@ None of us laughed.
 
 With shaky limbs, we pulled ourselves out from under the desk. The room was still dark, still impossibly quiet, but now it felt… wrong. Like something had shifted in the air. The filing cabinets the creature had knocked over had spilled their contents all over the floor. Pages were scattered across the dust-coated tile. Curious, we approached, Ryan and I knelt down to inspect them. Derek went off to check the other cabinets.
 
-I picked up a couple of the empty folders on the floor. They had weird labels that I couldn’t even begin to understand—*Subject: WNDG-00133*, *Subject: JRSYDV-00676*, *Subject: SKNWR-00599*. I hovered over one—\*Subject: MTHM-00266—\*before pulling my hand back. 
+I picked up a couple of the empty folders on the floor. They had weird labels that I couldn’t even begin to understand—*Subject: WNDG-00133*, *Subject: JRSDV-00676*, *Subject: SKNWR-00599*. I hovered over one—\*Subject: MTHM-00266—\*before pulling my hand back. 
 
 I didn’t want to know what was inside.
 
@@ -114,17 +114,13 @@ The room felt colder. Smaller. Like the walls were pressing in. I felt my pulse 
 
 “How do you know that?” Ryan pondered, confused—almost sounding suspicious of me. “Cause I’ve seen that thing get shot with one before.” My voice was low. "What?!" Derek and Ryan exclaimed in unison. 
 
-I told them everything—the way it sat, the way it moved, the way it feasted. Derek’s eyes widened. "I can’t believe it’s taken me this long to connect the dots!" "What? What is it?" I demanded. He hesitated for just a second before finally saying it.
-
-“It's a **\[R̵͘E̴͠D̶͝A̶͘C̴̀T̷͠É̵D̸̕\]**.” 
-
-The word sat heavy in the air. "A what?" I asked. "It’s an old N̶a̸t̴i̸v̸e̵ ̸A̶m̷e̶r̷i̷c̵a̶n̵ ████̷█̴█̴█̶█̵. These days, people just lump them in w-wi̸̪̮̐̓t̶̲͝h̸̗̋ ̴̗̓͘c̶̯̓̄r̷̨̺͘y̸̡͗̎p̶̞̈́̋t̴̢̡̓̍ȉ̷̲́d̸̤̥́̕s̶̟͂," Derek explained. Ryan scoffed. "What? Like Bigfoot?! Cause that thing was no fucking joke!" "But cryptids aren’t real," I argued, though my voice lacked conviction. Derek gave me a look. "Then what the hell did you see, Damon?"
+I told them everything—the way it sat, the way it moved, the way it feasted. Derek’s eyes widened. Ryan's face went pale.
 
 I went silent. 
 
-I didn’t have an answer.
+No one said anything.
 
-Finally, Ryan steeled his gaze. "It doesn’t matter if it’s real or not. It’s here and as long as it still is, we're at a severe disadvantage of getting out of here.” “So what do we do?" Derek asked. Ryan replied with an extremely blunt, “we’ll have to lead it into a trap.” "Yeah… but how?" I whispered. Derek slowed for just a second, eyes dropping to the floor, voice suddenly hollow. “That means one of us will have to be bait…” My chest tightened. The weight of his revelation hit me like a ton of bricks. “Don’t worry, I—”
+“So what do we do?" Derek asked, breaking throught the tension. Ryan replied with an extremely blunt, “we’ll have to lead it into a trap.” "Yeah… but how?" I whispered. Derek slowed for just a second, eyes dropping to the floor, voice suddenly hollow. “That means one of us will have to be bait…” My chest tightened. The weight of his revelation hit me like a ton of bricks. “Don’t worry, I—”
 
 “I’ll do it.” Derek’s voice was firm.
 
