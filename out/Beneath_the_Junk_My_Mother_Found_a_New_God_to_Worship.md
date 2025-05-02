@@ -230,7 +230,7 @@ There was a hum in the air. I noticed for the first time the for sale signs post
 
 The air smelled like gunpowder. I tasted ash, like the cinders of a forest fire. The mist swallowed the world whole.
 
-As I entered the house, a tail of fog curled in behind me. I closed the door against it. I felt like a diver standing on the white sand precipice of a great ocean cliff, watching alien shapes loom in the abyss below.
+As I entered the house, a tail of fog curled in behind me. I felt like a diver standing on the white sand precipice of a great ocean cliff, watching alien shapes loom in the abyss below.
 
 I set up the construction lights in the master bedroom. In the background, the knocking came steady from within the walls. Like dripping water from an old pipe.
 
