@@ -137,3 +137,5 @@ That was it. 
 No backup plan. No time for doubts. 
 
 **\[END OF PART 3\]**
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1kd6wfu/does_anyone_remember_wwwdeadlinkscom_part_4/)
