@@ -216,7 +216,7 @@ Truthfully, it made my skin crawl to even look at. I wondered whether it was saf
 
 It's not like I had another exit strategy.
 
-So I sank into the chair, told myself a pretty lie that the typewriter wanted to help me escape. That these words just might hold the secret to my salvation. 
+So I sank into the chair, told myself a pretty lie that the typewriter wanted to help me escape. That these words just might hold the secret to my salvation.
 
 I couldn't have been more wrong.
 
@@ -284,7 +284,7 @@ The typewriter clicked.
 
 I look back to find a fresh sheet being feed into the machine, corners scorched like it'd survived a fire that should have killed it.
 
-Alice\*—\*could this really be her lost journal? The founder of the Order itself?
+Alice—could this really be her lost journal? The founder of the Order itself?
 
 My stomach tightened.
 
@@ -476,7 +476,7 @@ Mister Neither...
 
 I'd never heard of any Conscript by that title. Given this journal was over a century old, I figured the monsters might be dead by now. Hunted down. Or even just forgotten.
 
-That happened to legends sometimes\*—\*without enough audience buy-in, their presence diminished until they faded away entirely. Becoming less than a memory.
+That happened to legends sometimes—without enough audience buy-in, their presence diminished until they faded away entirely. Becoming less than a memory.
 
 A tap.
 
@@ -493,8 +493,6 @@ I looked back at the typewriter.
 Another page.
 
 No click this time. No whir. It was just… *there.*
-
-A date in the margin: **November 17th, 1857.**
 
 I swallowed, sinking back into my seat. The words weren't written in black ink this time, but scarlet.
 
@@ -620,19 +618,19 @@ He wasn’t just another thing going bump in the night. He was the *origin* of t
 
 The First Draft.
 
-I gnawed at my lip, pieces coming together. Whatever Mister Neither did to Alice—whatever she did to *him*—this is where it all began.
+I gnawed at my lip, pieces coming together. Whatever he did to Alice—whatever she did to *him*—this is where it all began.
 
 The Conscripts.
 
 The Vaults.
 
-The Order of Alice itself.
+The Order itself.
 
 Mister Neither didn’t just start the story. He *was* the story. And right now, I was standing in his footnotes.
 
-The only question now was: where did he go? Alice had banished him from her story. Did it kill him? Unmake him?
+The only question now was: where did he go? 
 
-Or was he still out there? Grieving a girl who left him behind? Or had he—
+Was he still out there? Grieving a girl who left him behind? Or had he—
 
 **Click.**
 
@@ -642,7 +640,7 @@ Burst.
 
 Darkness swallowed the chamber like floodwater.
 
-A high, brittle giggle spilled from the walls. Too bright. Too childlike\*.\*
+A high, brittle giggle spilled from the walls. Too bright. Too childlike.
 
 My chest seized. My wrist beeped.
 
@@ -698,13 +696,13 @@ Just settled me into the chair with strange care, like a child putting down a fa
 
 “I know you,” I said, my voice barely a whisper. “You’re—"
 
-"M-Mister Neither.” It gave a short bow. "P-Pleased to meet you."
+"M-Mister Neither.” It gave a short bow. "Pleased to meet you."
 
-Its voice didn't sound like the snarling beast from the journal. Instead, it was gentle. Stammering. 
+Its voice didn't sound like the snarling beast from the journal. Instead, it was gentle. Stammering.
 
-More Hare. 
+More Hare.
 
-Less Hatter. 
+Less Hatter.
 
 It reached into its coat pocket, arm vanishing deep past the elbow as ancient trinkets tumbled out—buttons, keys, scraps of burned paper. Too many things for any one coat to hold.
 
@@ -716,13 +714,11 @@ With a delighted gasp, it withdrew a cracked piece of china and set it on the ta
 
 “Right…” I said slowly, hating the way my voice shook. “Can I ask what you’re doing here?”
 
-It smiled—thin, off-kilter. “The t-typewriter woke me up of course.”
+It smiled—thin, off-kilter. “The typewriter woke me up.”
 
 My eyes swiveled to the rusted behemoth atop the table. 
 
-I blinked. "It... woke you up?" 
-
-A frantic nod. “Oh yes. It likes you, I think. It hasn’t hummed like that since Ali—” Mister Neither suddenly clamped a hand to his mouth, wincing as if he’d nearly cursed. "Oh no. Oh no, no, no..."
+“It likes you, I think. It hasn’t hummed like that since Ali—” Mister Neither suddenly clamped a hand to his mouth, wincing as if he’d nearly cursed. "Oh no. *Oh no, no, no*..."
 
 Then its expression stuttered—glitched.
 
@@ -784,4 +780,6 @@ It wanted me to drink my own blood—my own tears?
 
 My fingers closed around the chipped porcelain, hands shaking. I brought it to my lips.
 
-What other choice did I [have](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)?
+What other choice did I [have](https://www.reddit.com/r/nosleep/comments/1kcnt6v/were_building_an_army_of_monsters_to_fight/)?
+
+[X](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
