@@ -42,8 +42,8 @@ I was put off for a second. “A weird first date?”
 
 “The beach ball thing?”
 
-“Yeah! It used to be a very convoluted proof. Like twenty five pages. Yet some guy from Estonia has narrowed it down to like three lines.”  
-  
+“Yeah! It used to be a very convoluted proof. Like twenty five pages. Yet some guy from Estonia has narrowed it down to like three lines.”
+
 “That’s… kinda cool.”
 
 “It is! It's actually a pretty big deal in the math world. I know it may sound a little boring, but technically speaking: it’s a *historic* event. No joke. You would have serious cred among mathies if you came.”
@@ -56,10 +56,10 @@ He laughed in a way that made him snort. 
 
 It was definitely weird, but why not have a quirky, memorable first date? 
 
-“Let’s go to Mathstock.”  
-  
-\*\*\*  
-  
+“Let’s go to Mathstock.”
+
+\*\*\*
+
 Because the whole math wing was under renovation, the conference wasn’t happening at our university. So instead, they had rented the event plaza at the City Center Mall.
 
 Oh City Center Mall…
@@ -100,8 +100,8 @@ In a single swift movement, Indrek drew a triangle at the bottom right of the bo
 
 = Δ
 
- “...Delta.”  
-  
+ “...Delta.”
+
 Something stabbed into the top of my head.
 
 It seriously felt as if a knife had sunk down the middle of my skull and shattered into a thousand pieces.
@@ -253,3 +253,7 @@ This is fucking terrible… 
 “I’m so fucking sorry.”
 
 I cried [too.](https://www.reddit.com/r/EclosionK2/comments/1g0837r/welcome/)
+
+\~
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/1kd6ep4/our_first_date_started_in_a_mall_we_still_havent/)
