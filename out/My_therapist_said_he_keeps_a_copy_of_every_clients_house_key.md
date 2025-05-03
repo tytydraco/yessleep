@@ -53,7 +53,7 @@ I stopped showing up. Ignored his calls. Blocked the clinic number. I thought I 
 
 But a week later, he emailed me.
 
->
+**“Noticed you’ve been distant. Just checking that you’re safe at home.”**
 
 There it was again — that phrase. *Safe at home.*
 
@@ -131,4 +131,4 @@ Deliberate.
 Mechanical.  
 A key.
 
-Turning in the deadlock.
+Turning in the deadbolt.
