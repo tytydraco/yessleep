@@ -457,3 +457,5 @@ A six barrel Smith and Wesson. Twenty four bullets left. 
 It would have to do for now, until we find the next hunting store.
 
 None of us considered the **infinite mall** safe and empty [anymore.](https://www.reddit.com/r/EclosionK2/comments/1g0837r/welcome/)
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/1ke1l3i/our_first_date_started_in_a_mall_we_havent_seen/)
