@@ -1,83 +1,151 @@
-I am a scientist, though a human I am not. The humanity that once generously flooded the thousands of capillaries under my warm flesh has left me, abandoned me. I feel lost, a husk of the former man that once graced this world. Though it is not a tale of horror as it is of woe, I shall recount the troubling facts that leave me posting here.
+I am a scientist. Or at least, I used to be. But something changed during the Hyperion test. Something irreversible. And now I don’t even know if I qualify as human.
 
-I awoke, snapped out of a precious dream of better days. The early morning sun met my ungrateful eyes, which squinted to repel the warmth. I dressed myself, adorning my shivering body in the finest labcoat money could buy (although that does not say much). I stumbled my way into the kitchen, body discouraged of any nutrients it held the prior night. One ought to think I made myself a hearty breakfast, yet I continued to starve my body as I prepped the coffee maker.  Today was a big day after all. The test was upon us.
+I know how that sounds. But I’m not here to convince you—I just need to tell someone. Anyone. Before whatever’s inside me finishes what it started.
 
-The rush of the big city was intoxicating. Chicago, populated by only the greatest citizens in the world (my humble, unbiased opinion). I found myself enjoying my stroll through the humming streets, the sunlight piercing its way through the towering buildings to greet the bustling crowds below. As I reached the sterile lab that encompassed my life’s work, I encountered a strange feeling. My gut felt twisted, knotted into a ball that urged me not to enter. Jitters, I thought, the test would begin shortly. A particle accelerator, buried underneath the city, would finally be put to use. The analysis of high energy collisions would finally be within my reach, a dream I had carried since childhood. A passion born from an innate love of science, of understanding. Today that dream would be realized. As I shook off the initial unease that settled in my stomach, I marched to the elevator that sat mere feet beyond the main entrance. I descended into the maw of my own creation, my budding beauty of a machine. I could barely contain my excitement now. I approached the lab itself, which sported a generously placed window to observe. The dimly lit chamber, full of control panels and the brilliant minds that created them, entered my gaze. I smiled, a wide smile that felt almost contagious.
+The day began like most do in Chicago—gray, buzzing, tired. I woke up from a dream I can’t fully remember. Only fragments remain: warm sunlight, laughter, my mother’s voice. It was a cruel contrast to the morning that greeted me. My apartment was cold. My limbs ached. I dressed in silence, shivering as I pulled on my lab coat. A high-end one, supposedly. Though after so many years in the field, even prestige feels like polyester and lint.
 
-“How ya doin, John?” Mitch, a coworker of mine, beamed at me. “Ready to test this bad boy out?”
+I skipped breakfast. Nerves, maybe. Or maybe some part of me knew. I drank stale coffee from a cracked mug and stepped outside.
 
-“Oh, most certainly,” I excitedly exclaimed, “does everything look in order?”
+The city was a living thing. Cabs blared. Crowds swelled. Skyscrapers clawed the sky. Most people rushed around me, blind to the leviathan sleeping beneath their feet. Hyperion. Our magnum opus. A particle accelerator hidden in the guts of Chicago, built to simulate the earliest birth pangs of the universe. Our goal? Recreate a Big Bang—just on a smaller scale.
 
-“Everything seems to be in place,” he replied, brushing through the plethora of papers that lay on his clipboard. “I just sent Shelly down to do a couple last minute checks. Should be back up in a few to give us the final rundown.”
+The test was that morning. Years of work, billions of dollars, and sleepless nights culminating in one moment.
 
-“Excellent.” I said. I could hardly contain myself. Soon, we would charge up a pair of electrons via the electromagnetic field, accelerating them to such a speed that the collision would mimic conditions of the Big Bang. An extraordinary feat, and I had the privilege of a front row seat. I glanced over at the side door. Shelly had just entered, smiling and displaying a big thumbs up. We were good to go. Mitch beckoned everyone to their station, where the collective minds and manpower of this organization now worked to fire up the behemoth that stood before them. I waited as Mitch gave the clear, my eyes fixated on the glass.
+I should’ve been ecstatic. But instead, as I neared the lab’s steel-and-glass entrance, a pressure bloomed in my gut. Like my body was warning me to turn back. I ignored it. Told myself it was excitement.
 
-“Alright, commencing test number one of project Hyperion.” Mitch glanced at me briefly, one last reassuring smile before our triumphant victory. “Please step back from the glass.”
+The lab was alive with anticipation. Halls glowed sterile white, filled with the low thrum of servers and hushed conversation. As I reached the observation level, I spotted Mitch, clipboard in hand, grin plastered across his face.
 
-The intoxicating hum of the machine rushed through my body. It was as if I could feel the energy course through my very veins. “The test will start in five…”
+“Morning, John,” he said. “Ready to make history?”
 
-The countdown had started.
+I smiled, though it felt brittle. “All systems green?”
 
-“…four…”
+“Shelly just finished the final diagnostics downstairs. Should be back any second.”
 
-My hands clenched, digging into the cheap armrests that lay below them.
+The lab beyond the viewing window shimmered with soft blue lights. Rows of control panels flickered. Cables snaked across the floor like veins in a giant, sleeping beast. When Shelly emerged from the side door with a thumbs-up, the room sprang to life.
 
-“…three…”
+“All right,” Mitch said, voice buzzing through the intercom, “commencing test one of Project Hyperion. Please step back from the glass.”
 
-I couldn’t wait much longer.
+The accelerator’s hum crawled through the walls. My fingertips tingled. The air thickened, charged. I could feel the machine waking up.
 
-“…two…”
+“Five…”
 
-Finally.
+My breath caught in my throat.
 
-“…one…”
+“Four…”
 
-BOOM
+My nails dug into the foam of my armrest.
 
-I awoke with a start. Darkness encased my body. I was devoid of any previous senses, unable to feel, speak, see anything in my surroundings. Had the test gone wrong? Was my dream a failure, left to be forever unrealized?
+“Three…”
 
-No. It was not that. Something far worse.
+Sweat pooled at the small of my back.
 
-The darkness that shrouded me started to lift. I was able to see again, though I wish that ability had never returned to me. I floated alone, in an abyss far more dreadful than my words could ever describe. A sea of blood red was visible below, a dark star embraced the hellish sky. Murky maroon clouds fogged the upper portion of whatever I had stumbled upon, distorting the skyline. But this new environment I found myself in was the least of my worries. I glanced down at my own body, suspended in the air by an unknown force. My once human body was now gelatinous, the flesh melted and deformed. My legs were gone, replaced with what I can only describe as a long, rat-like tail. My hands were long, slimy fingers extended with greedy black claws. I felt my own face, now a husk of the entity “John” I once thought I knew. I screamed, though my mouth was gone, replaced only by ample melting flesh. No hair remained on my head, as my ears pointed outward as if I were a goblin of some old fairy tale. What was this? Why has my body changed so? I frantically looked around, trying to find some sort of answer. 
+“Two…”
 
-The eyes stared at me through the mist. Orbs more like it. Black spheres of enormous size, each spanning what seemed to be miles. They locked onto me, stared at me with cold and utter indifference. Was this being responsible for my appearance? The red clouds that cluttered the sky parted as the beast emerged. Red, scaly skin clung to its enormous body, reaching beyond the comprehension of my eyes. Tendrils of black mist seeped from its gaping maw, full of yellow spires that resembled buildings more than they did fangs. Tentacle-like appendages wrapped around its engorged torso. It was a beast, as far from human as one could get. Though it looked primal, ancient, it had a wisdom surrounding it. Was this being a god? The God? Questions swelled in my head as the primordial being neared, its attention fully resting upon me. It’s gaping mouth only opened wider as I was pulled toward it, almost being inhaled. I fought tooth and nail, clawing and swimming through the thick atmosphere that just would not budge. I passed through the teeth, each a skyscraper of their own right as I fell into this black void of a mouth. I travelled deeper, unwillingly sinking further from the hellish environment I had been awoken to. 
+My heart was thunder.
 
-As I continued to travel deeper, small tendril-like appendages surrounded me. They were red, mutated. Not of any earth-like substance, but of something far more sinister. Each barred small, circular mouth, with pointed fangs wrapping along what seemed to be their lips. Hundreds of them made their presence known as they sunk their teeth into my deformed skin. I screamed a muffled scream as they continued to gnaw, to rip at my being. Each bite tore at me as I fell apart. All that crossed my mind during this excruciating pain was my failure. Had I unleashed some sort of ancient, lovecraftian creature upon the world? My thoughts began to crumble as fangs wedged their way into my skull. I accepted my fate, an Icarus who flew too close to the sun. This was the sun, a painful metaphor at that. I closed my eyes, numb, as I fell into what I presumed was my own demise.
+“One.”
 
-To my own joy and dismay, I awoke in the plains. The eastern plains of Colorado, to be exact. Where I had grown up. Where I had learned to play catch, ride a bike. Where I had taken my first differential equations exam, where I had first found love. I recognized the brown wasteland as my home, as the house in the distance covered in chipped white paint lay in contrast with the gray sky. Would she be there?
+BOOM.
 
-I walked, my freshly returned legs trembling as the house drew nearer. As I reached the front porch, sporting the same water damaged wood it always had, I glanced inside. She was there. My mother. Standing over the kitchen counter, preparing what appeared to be chicken pot pie. My favorite. I went to knock, but I hesitated. This could not be real. A dream, a vision, a fleeting memory that my brain had bestowed upon me before my ultimate fate. She had died a few years back. Kidney cancer, the doctors had said. Preventable, but only if caught early. My mother had never liked the hospital, she always said it “felt cold.” I wanted to see her before she passed, one last time. Alas, Hyperion called for long hours, and even when I did manage to book a flight, fate’s ever cruel hand had intervened. A snowstorm, the biggest Chicago had seen in the last decade, had grounded me. And death, ever punctual, had not waited for me to arrive. I reached a hospital bed populated with her corpse, left with guilt of what could have been. What were her final words? Would my presence have eased her passing? I may not need to wonder any longer as she stood before me, a phantom of my own regrets.
+Everything went black.
 
-I knocked on the weathered wooden door, my hand trembling. Could this really be her? The sound faded into silence as she continued to work in the kitchen, either unaware or deliberately ignoring my presence. I attempted to open the door, which swung open gladly at my familiar touch. The hinges creaked as I made my way inside this waking memory.
+But it wasn’t unconsciousness—not truly. It felt more like falling out of reality.
 
-“Mom?” I called out, my voice a whisper. 
+When my senses returned, I was… nowhere. Suspended in a void that pulsed with red and black. The sky was a swirling mess of maroon clouds and a bloated black star that throbbed like a wound. Beneath me, a crimson ocean rolled, thick as blood and just as ominous.
 
-She turned to me, though her movements were guided with an unnatural smoothness. Her face was almost how I remembered it — soft blue eyes, peppered hair, a smile that warmed your day — though her smile offered none of the warmth I recall as a child. It was as if I was staring into an old photograph, warped by years wear. Her eyes were slightly darker, cold and unsettling as she greeted me.
+I tried to move. My limbs didn’t respond.
 
-“John!” She said, her voice carried an unrecognized cadence along with her familiar tone. “Oh, I missed you so. Did your project work? It’s been so long.”
+I looked down—and screamed. My legs were gone, replaced by a tapering, muscular tail that writhed in the air like a severed nerve. My arms ended in elongated claws, glistening black and insectile. My skin sagged and rippled, gelatinous. I reached for my face and felt wet folds, soft and melting. My mouth—my mouth was gone.
 
-She attempted to approach me, hug me, but I backed away. I couldn’t bear to hug this entity that pretended to be her. The gall this being had to mock her. “What’s wrong?” She cooed, “Don’t recognize your own mother?” Her smile was oddly bent, as if it were melting off her very face.
+I floated. A deformed mutation of the man I’d once been.
 
-“What are you?” I asked, frightened. The walls began to pulsate, appearing to almost breathe. The floor became soft and fleshy as it yielded under my weight.
+And then I saw them.
 
-“A whisper of loss,” she said, her body starting to deform, “of regret. Of sadness. Of guilt. A creation, a fabrication of what haunts your mind.” Her hands elongated, forming familiar glistening black claws. Her legs melted together, forming a nightmarish tail-like appendage. The gelatinous being of flesh that stood before me was no longer my mother. It was me. I stared into my own eyes, now full of sorrow. Transformed by the monster that ruled this plane of existence. I watched as the red tendrils that had so painfully consumed me shot out from the walls of this fleshy prison, now gnawing at the flesh of my mirror image. A reflection of my own sins.
+The eyes.
 
-“The project worked right?” He mustered through cries of pain. “We- we succeeded, didn’t we?” He screamed as one of the tendrils sank its fangs deep into his left shoulder, biting off a slimy piece of now melted muscle. The man that anguished before me was not me, no. It couldn’t be. This was a vision, a dream. There has to be some sort of explanation. With a final, aching breath, I observed myself cry out one last question. A few haunting words.
+Enormous, lidless orbs hovered just beyond the clouds. Miles wide. Pitch black. Watching with the kind of indifference that made prayer feel ridiculous. As the clouds parted, the rest of the thing emerged. A body too vast for sanity. Crimson scales that shimmered like burning coals. Limbs—if you could call them that—spiraled with tendrils and teeth. Its mouth opened wide, wider than physics should allow, and the black mist that poured out carried the stench of rot and ozone.
 
-“Was it worth it?”
+I was pulled toward it.
 
-The tendrils then grabbed him, pulling him through the fleshy wall and into the void that lay outside. The living memory of my own home contracted, shrinking around me. I was alone, about to die for a dream that I had let consume my life. Consume those that I love. Was I prepared to die as well? I sat down, embracing the tomb that now constricted around me. Maybe I’ll finally get to see her. How I’d love to run up to her again, crying as I made my way to hug her. God, I wish I could do that.
+I fought. Clawed. Screamed silently. But resistance meant nothing.
 
-I awoke with a start. Cheers echoed around me as I felt Mitch’s hand on my shoulder, shaking me awake. “We did it!” He exclaimed, “the test was successful. You should see the data that’s coming in. Shit, we may be getting a Nobel prize!” I mustered up a grin as I stood up, patting him on the back.
+Its teeth weren’t teeth. They were monoliths—towers of yellowed bone that scraped the heavens. I slipped between them and into the dark.
 
-“We did good, right?” I asked. “What we accomplished here today, you think it was worth it?”
+Inside its mouth, it wasn’t dark at all. It was alive.
 
-“Of course,” Mitch stated, “I’d do it ten times over if this was the result. We’re gonna be famous!” He hugged me, laughing as he did. He was happy, excited at the prospect of scientific discovery I suppose. Though as he grinned I gazed upon the test site, into the accelerator itself. Black, no, dark red mist settled toward the ground. My eyes widened, my nails dug into my hands.
+Tentacles slithered from the walls. Each ended in a sucker-like mouth ringed with glinting, obsidian fangs. They latched onto me, biting, gnawing, burrowing. My flesh—or what used to be my own flesh—peeled away in wet chunks. One sank its fangs into my skull. All I could think of was my own regret. I had failed, my vision, my dream had completely and utterly failed. I did not even question my own situation. I merely accepted.
 
-“Would you excuse me? I need to get some fresh air.”
+Just as the pain became unbearable, I awoke.
 
-“Whatever you say, boss.” He patted me on the back. “Get as much fresh air as you please. You’re gonna need it when all the reporters start tryna suffocate you!” I laughed halfheartedly, though my mind was elsewhere. I walked out behind the lab, promptly sitting on the rough concrete that met the soles of my shoes. I brushed my hands through my hair as I wondered what had happened. Was it a dream? A sort of vision conjured by my own regrets? Or some sort of divine punishment from a being beyond my comprehension? I stared at the cold, grey ground, trying to piece together some sort of explanation. 
+In Colorado.
 
-At the time I’m posting this, my mind also wandered to a more chilling alternative. Simulating the effects of the Big Bang was our intended purpose, but the signals captured don’t match those from subsequently repeated experiments. They don’t even seem to match any frequencies within our known universe. Was my vision a premonition? A quick glance into a plane beyond our reasoning? I don’t know, though I keep asking myself the same question.
+The plains stretched endless and golden. The sky hung gray and low. My legs were back. My skin was whole. Ahead stood my childhood home—paint peeling, porch sagging. And through the window… her.
+
+My mother.
+
+She stood at the stove, humming. The scent of chicken pot pie drifted into the air—my favorite. She had been gone for three years. Kidney cancer. Quick and cruel. I missed her last breath by twelve hours. A snowstorm, the biggest Chicago had seen in the past decade, had delayed my flight. I should’ve flown out sooner. Hyperion was too demanding a project. I was always needed, always pushing the extra mile. I’d always felt a bit of guilt, as if my own ambitions let my mother die alone. Questions always gnawed at me. What were her last words? Would my presence have eased her passing? 
+
+These questions ate at me as I stepped onto the porch. I knocked.
+
+She didn’t respond.
+
+I opened the door. It gave way with a familiar creak.
+
+“Mom?” I called.
+
+She turned. Same soft face. Same gentle smile.
+
+But the warmth wasn’t there. Her eyes were wrong. A shade too dark. Her smile bent just slightly in the middle, as if being held in place by wire.
+
+“John,” she said, voice melodic but hollow. “It’s been so long. Did your project work?”
+
+She came closer. I backed away.
+
+“What’s wrong?” she asked. “Don’t recognize your own mother?”
+
+Her face sagged. Her arms lengthened. Claws split from her fingertips. Her legs fused into a tail. The skin melted, drooped. She became me.
+
+A grotesque mirror of what I’d become.
+
+“The project worked, right?” it—I—whimpered. “We succeeded, didn’t we?”
+
+Then came the tendrils. The gnashing mouths. They tore me apart—my reflection, my guilt, my sin.
+
+“Was it worth it?” it choked before being dragged into the wall.
+
+The house began to collapse. The walls pulsed like a dying heart. I sank to the floor, cold and shaking. Maybe this was my punishment. A tomb shaped like memory.
+
+Then—
+
+I woke up.
+
+Back in the lab. Flat on the floor. Mitch hovered above me, grinning like a lunatic.
+
+“John! Holy hell, you scared us! You passed out. But listen—we did it. The data’s off the charts. This… this is Nobel prize territory!”
+
+He helped me to my feet. My knees wobbled.
+
+“We did good, right?” I asked. “Was it worth it?”
+
+He blinked, confused. “Of course. For a discovery this big? I’d do it ten times over.”
+
+He meant it.
+
+I walked outside. The sun was out now. Life resumed. Nothing had changed.
+
+Except me.
+
+Now, I can’t sleep more than a few hours without seeing it. The thing in the sky. The tendrils. Myself—melting, screaming.
+
+And here’s the part that scares me most: the energy readings we pulled from that first test… They don’t match anything in the known universe. Not even quantum anomalies. Not even chaos theory.
+
+It’s like the machine opened a door to someplace else entirely. A quick glance into another plane of existence.
+
+And I think—whatever it was—looked back. Whatever window we opened, it worked both ways.
+
+So if I seem normal—laughing, working, drinking coffee—know this:
+
+I am not human anymore. I’ve become a husk, an entity assuming an echo of a name.
+
+And every night, just before I close my eyes, I hear the echo of a question I’ll never stop asking.
 
 Was it worth it?
