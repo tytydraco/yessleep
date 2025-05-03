@@ -170,6 +170,8 @@ I might take her up on that offer.
 
  
 
+[Entry No.2](https://www.reddit.com/r/nosleep/comments/1kdfmmb/the_kiosk_entry_no_2/)
+
  
 
  

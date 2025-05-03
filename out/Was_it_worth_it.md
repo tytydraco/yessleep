@@ -72,10 +72,11 @@ I awoke with a start. Cheers echoed around me as I felt Mitch’s hand on my sho
 
 “We did good, right?” I asked. “What we accomplished here today, you think it was worth it?”
 
-“Of course,” Mitch stated, “I’d do it ten times over if this was the result. We’re gonna be famous!” He hugged me, laughing as he did. He was happy, excited at the prospect of scientific discovery I suppose. 
+“Of course,” Mitch stated, “I’d do it ten times over if this was the result. We’re gonna be famous!” He hugged me, laughing as he did. He was happy, excited at the prospect of scientific discovery I suppose. Though as he grinned I gazed upon the test site, into the accelerator itself. Black, no, dark red mist settled toward the ground. My eyes widened, my nails dug into my hands.
+
 “Would you excuse me? I need to get some fresh air.”
 
-“Whatever you say, boss.” He patted me on the back. “Get as much fresh air as you please. You’re gonna need it when all the reporters start tryna suffocate you!” I laughed, though my mind was elsewhere. I walked out behind the lab, promptly sitting on the rough concrete that met the soles of my shoes. I brushed my hands through my hair as I wondered what had happened. Was it a dream? A sort of vision conjured by my own regrets? Or some sort of divine punishment from a being beyond my comprehension? I stared at the cold, grey ground, trying to piece together some sort of explanation. 
+“Whatever you say, boss.” He patted me on the back. “Get as much fresh air as you please. You’re gonna need it when all the reporters start tryna suffocate you!” I laughed halfheartedly, though my mind was elsewhere. I walked out behind the lab, promptly sitting on the rough concrete that met the soles of my shoes. I brushed my hands through my hair as I wondered what had happened. Was it a dream? A sort of vision conjured by my own regrets? Or some sort of divine punishment from a being beyond my comprehension? I stared at the cold, grey ground, trying to piece together some sort of explanation. 
 
 At the time I’m posting this, my mind also wandered to a more chilling alternative. Simulating the effects of the Big Bang was our intended purpose, but the signals captured don’t match those from subsequently repeated experiments. They don’t even seem to match any frequencies within our known universe. Was my vision a premonition? A quick glance into a plane beyond our reasoning? I don’t know, though I keep asking myself the same question.
 
