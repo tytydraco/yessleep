@@ -1,49 +1,91 @@
-“Please open your books to page 317”, the psychology teacher shouted over the chattering class. “Today we will be learning about the different types of mental illnesses and the history of each one”.
+Washington state greeted me with gray skies and a biting chill that crept through my uniform no matter how many layers I wore. My first duty station: a naval base tucked deep into the trees near Puget Sound. It was remote. Quiet. Important.
 
-The talking died down as the teacher rambled on. I looked out the second story window. Most of the trees were bare like dark skeletons, much of their leaves being rounded up by the school maintenance crew. The earlier students were already leaving classes and were starting to assemble outside. The last rays of the sun shined down on them. Moms and dads showed up and the school buses were rolling in. In the distance an odd man in a top hat and a black trench coat pushed through the kids toward the school. I couldn’t see his face. No one seemed to notice him as he patted a few kids on their heads.
+Our job was to guard the submarines. Not just any subs—nuclear ones. The kind that could end the world a few times over if given the chance. That reality weighed on me, but we didn’t talk about it. We just patrolled.
 
-“A strange fellow”, I exclaimed.
+The base was massive, but one place stood out above the rest: the pier.
 
-Unfortunately, I spoke too loudly because Ms. Tagmire shouted, “Theresa! Perhaps you would like to start us off on our first disorder or is my lecture too boring for you that you continue to gaze out that window”. I remained silent, breaking my gaze from the window and avoiding her eyes. “Schizophrenia is our first topic, so pay attention”. She continued, “…psychotic…hallucinations…cognitive impairment…”. I shyly peered back out the window, but the man was gone. The sky had darkened and there was murmuring outside the classroom. There were still 10 minutes left until the end of class. The noise died down outside the classroom and Ms. Tagmire seemed a little less agitated about any additional distractions for her students when a silhouette appeared in the blurry classroom door window. It looked like a bird, but with a beak too large for its head.
+A steel giant that jutted out into the bay, bristling with cranes, lights, and mooring gear. It was a vital artery of the base. But something about it always felt wrong, especially when night fell. Like it was watching us
 
-DRRRRRrrrrrrr!
+At first, the pier seemed like any other part of the base—just more concrete, more noise. During the day, it was chaos. Civilian contractors bustled around in hard hats and reflective vests. Forklifts beeped as they carted supplies. Sparks flew from welders. Boats groaned as they were loaded and unloaded. There was a rhythm to it all, a predictable hum.
 
-That was the classroom bell. The sound to pack up. I gathered my things and made my way out into the hallway. It felt darker than usual. No matter, I made my way down the stairs and into the courtyard where I found it empty.
+But once the sun dipped below the horizon, everything changed.
 
-“Huh!?” I murmured, as I made my way to the gate.
+The workers vanished like they were never there. The machinery fell silent. And the only sound left was the distant lapping of water against the pilings. The lights overhead buzzed faintly, barely strong enough to push back the thick fog that rolled in from the bay.
 
-The street was dark, except for a lamp post at the end of each block. I made my way home down the sidewalk listening to the clickity clack of my hard soled school shoes. I could be a tap dancer I thought as I tapped my shoes faster in a flurry. I continued to walk listening to my shoes when I picked up a thudding sound that matched each step of my feet. I turned around and stopped, peering into the eerie light of the lamp post on the far corner of the street. The thudding also stopped, but just one step later than mine. The houses around me were all dark just like the sky. I could barely make out their silhouettes as they blended into the night. Not a soul in sight, except for the trench coat man… I stared at him, and he stared back. Pitch black was his color beneath the light from the lamp post. He had a dark mask of a bird and a top hat to match. A plague doctor I thought. I stood there for a second too long as he cut the distance between us in half. His stride was wide, and the thudding of his boots no longer matched mine. As I ran and started to lose my breath, I spoke, “Shortcut! You need to take a shortcut”. I cut into an alley two blocks away from my house. It was dark. There were no lights.
+That’s when the pier revealed its true self.
 
-“What the hell?” I exclaimed.
+I hated drawing night duty out there. The silence wasn’t peaceful—it was oppressive. It pressed in on you, made your heart beat louder, your senses sharper. You’d catch yourself turning around suddenly, sure you’d heard footsteps or whispers. But there was never anyone there.
 
-I had been down this alley before. It just didn’t feel the same. Using my hands to feel each trash can and car I encountered, I suddenly smacked my face against a wall. The pain seared through me, and I could taste copper off my lip. I picked myself up off the ground.
 
-“No… no… no…” I whispered.
 
-To think I had gone down the wrong alleyway. The thudding got louder and closer. I hid behind a trash can. I could almost feel the pounding sound of his boots in my skull. My head started to ache with each beat of my heart. A shiver went down my spine, and I felt a pat on my head.
+I’d only been at the base a few weeks when they brought it up. We were sitting in the back of a Humvee, killing time between shifts. The team leader leaned in with a grin.
 
-“NOOO! GET AWAY!” I screamed at the top of my lungs.
+“You heard about the tunnels under the pier?”
 
-“Theresa! Is that you?”.
+I shook my head.
 
-I looked up. It was my neighbor Bill, with his pet Pomeranian. He was dressed in a coat and had rain boots on. With his flashlight in my face, he said, “Look at you. You’re bleeding and all wet. Let us get you home. Thank goodness me and Fido here decided to delay our walk today”. He lifted his jacket over me to keep me out of the rain. I hadn’t even noticed it had started raining. We made our way home. I could see the lights on at my house. Mom was probably making something to eat, since the aroma of cabbage and sausage made its way out the side window that she always opened to air out her cooking. Bill led me to the door and looked back until I shut the door after myself. Mom was in the kitchen and heard me come in.
+He exchanged a look with the other guy—Corporal Reyes. “It’s tradition. Every new guy goes down there and writes his name on the wall. Right of passage.”
 
-“How was your day, honey? You’re a little late today”.
+I didn’t ask questions. You don’t when you’re the new guy. You just nod and play along.
 
-“Sorry, Mom. It was all dark and I must have gotten lost” I exclaimed.
+That night, around 0200, we parked the Humvee near the far edge of the pier—where the concrete cracked and weeds pushed through the seams. The others moved with practiced ease, brushing aside an old tarp covering a rusted manhole cover.
 
-“Yeah, changing back from daylight savings time will do that. It gets darker quicker now. Go freshen up. Dinner is almost ready”.
+Reyes grabbed a crowbar and popped it open with a grunt. Cold air whooshed up from the dark.
 
-I made my way to the bathroom to clean up. I didn’t want to show mom that I had gotten hurt. Closing the door behind me, I turned on the faucet and rinsed my hands. They were so dirty. While reaching for the soap, the light turned off. Annoyed, I felt my way toward the door and opened it.
+“Ready?” he asked, handing me a flashlight and a Sharpie.
 
-“Mom?... Mom?... Why are the lights off?”
+Not really. But I nodded anyway.
 
-No answer. It was quiet outside the bathroom, and it was dark. I closed the door and turned around feeling for the faucet to turn off the water. Steadying my gaze before the sink, the lights abruptly turned on. I looked into the mirror and stared at the trench coat man. His eyes a scarlet red behind the goggles of the mask. His beak glistening under the bathroom light. A red teardrop hanging off its pointed end. He reached out with a black gloved hand as I reached out with my hand. I shouted and pounded the mirror with my palm. First with one, then with both. I hit and hit and hit until I felt a weakness in my arms. I stepped back and slumped down against the wall behind me. Looking up, the mirror was shattered to pieces. The trench coat man was gone and there was silence. The lights flickered and I gazed at the splinters of the mirror embedded in my wrists. Blood was oozing down my fingers and pooling on the tiles where I sat. I pressed my eyes closed and heard thudding coming closer and getting louder from the other side of the bathroom door. The door swung open. I looked up and opened my teary eyes.
+The ladder groaned under our weight as we climbed down, one by one, into the narrow shaft. The air grew colder with every rung. Damp. Heavy. It smelled like rust and rot, oil and old seawater.
 
-“Theresa!” Ms. Tagmire shouted. “What the hell is wrong with you?”
+The tunnel at the bottom was barely tall enough to stand in. Pipes ran along the ceiling, dripping occasionally. Stray wires dangled in places, and a series of yellowed bulbs lined the corridor—most of them dead, a few barely flickering.
 
-“You have been screaming and scratching yourself for the better part of ten minutes. Thank God you finally calmed down” she exclaimed.
+Our footsteps echoed far too loud. Water puddled underfoot. The deeper we went, the less I could hear from above. The surface world seemed to vanish, replaced by this buried underworld of concrete and silence.
 
-I peered around to see myself back in the classroom. Everyone’s gaze fixed upon me. Some faces even had a look of disgust. Embarrassed, I looked down at my scratched wrists laid upon my book. I shifted my arms and saw the image of a plague doctor. On the next page in bold black words,
+Finally, we reached a section where the tunnel opened slightly—a wall ahead covered in layers of names. Dozens of them. Some scratched in with knives, others written with markers, faded by time and water.
 
-“Schizophrenia is a mental illness in which you can’t tell what’s real from what’s imagined.”
+The guys laughed and pointed out old buddies’ names. I crouched near an empty corner of the wall and uncapped my marker.
+
+That’s when I saw him.
+
+
+A figure stood at the far end of the tunnel.
+
+Half in shadow. Still. Watching.
+
+He wore a reflective vest and a hard hat. A civilian worker, it seemed. But something felt off. His clothes looked wrong—too clean. Too still. Like they weren’t affected by the cold draft that was brushing against my own skin.
+
+I stared at him for what felt like a full minute. He didn’t move. Didn’t speak. Just stood there, motionless, like a statue.
+
+“Do you guys see that?” I whispered.
+
+The laughter stopped. I turned and saw that my seniors were still facing the wall, oblivious.
+
+When I looked back, he was gone.
+
+I blinked. Scanned the darkness. Nothing. Just a stretch of tunnel and the flicker of a dying light.
+
+I scribbled my name quickly, heart hammering in my chest, and followed the others back toward the ladder.
+
+
+Back in the vehicle, I couldn’t stop thinking about it.
+
+The silence. The way he just stood there. 
+
+I waited until we were driving off before I asked. “Hey… I thought nobody was allowed in the tunnels?”
+
+Reyes gave me a confused look. “They’re sealed off. Only way in is that manhole.”
+
+I hesitated. “Then… who was the guy watching us?”
+
+He didn’t answer. The team leader turned in his seat slowly. His expression was blank, pale.
+
+“You saw him too?” he asked quietly.
+
+I nodded.
+
+The Humvee was dead silent for the rest of the ride.
+
+Later, I heard rumors. About a civilian who fell during construction. Crushed by a pipe. Another who drowned when the pump system failed. Nothing official. Nothing confirmed. But people talked—quietly, always at night.
+
+I never went near that manhole again.
