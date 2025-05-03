@@ -1,4 +1,4 @@
-I don’t remember much about living with both of my parents. My very first memory is that of my mother sitting in a sunchair on the front porch, listening to the radio, napping behind her wide sunglasses. I was sitting next to her with a pink dragon plushie, quietly playing. I would look up at her and she’d be so still - as if paralyzed by the sun. I remember imagining her never moving again. That she would stay in that chair forever, never to play with me.
+I don’t remember much about living with both of my parents. My very first memory is that of my mother sitting in a sunchair on the front porch, listening to the radio, napping behind her wide sunglasses. I was sitting next to her with a pink dino plushie, quietly playing. I would look up at her and she’d be so still - as if paralyzed by the sun. I remember imagining her never moving again. That she would stay in that chair forever, never to play with me.
 
 But as soon as I felt that sad little tug in my heart, she’d rustle from her sleep and comfort me. She was right there. Everything was okay.
 
