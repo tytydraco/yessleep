@@ -112,7 +112,7 @@ Out of all the available names, it chose the weirdest one. That was when my firs
 
 Those first few days, we didn’t leave the lab. Only changed shifts supervising the program. Each person would sit down, chat with the AI, and note down their observations.
 
-“Why did you pick this name?” I typed with some difficulty. My mind kept tormenting me with the same question. And what if you don’t like the answer?
+“Why did you pick this name?” I typed with some difficulty. My mind kept tormenting me with the same question. *And what if you don’t like the answer?*
 
 “I know who I am, I have been watching you for some time now and I have come to… ERROR…” The knot in my stomach wouldn’t loosen. What the hell was that?
 
