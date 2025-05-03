@@ -42,7 +42,7 @@ His heartbeat thumped in synchrony with mine. / His screams drowned out by ringi
 
 I laughed as I felt him limp under me, / His face a simular of storied masks. / Letting go, my mind finally at ease, / Searching for the book became my next task. 
 
-Papers strewn from where my fists had unclenched. / Seams that due to time had come unraveled. / Pages cracked to dust I grabbed for them. / For I knew not where my king had traveled. 
+Papers strewn from where my fists had unclenched. / Seams that due to time had come unraveled. / Pages cracked to dust as I grabbed for them. / For I knew not where my king had traveled. 
 
 Final words I'd read had left me searching. / Looking for his gilded crown and shawl. / My brain rings with the King's shames and cursings, / That I have not fulfilled his final call.
 
