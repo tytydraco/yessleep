@@ -409,7 +409,7 @@ My panic intensified, reaching a fever pitch in tandem with the ravenous flames 
 
 Then, I heard it. At least, I think I heard it. Maybe my mind just clicked into place, and the realization was so profound that it felt like the noise began physically swirling around me.
 
-Yet, I distinctly remember hearing the knocking from within the wall, directly behind my head. 
+Yet, I distinctly remember hearing the knocking from within the wall, directly behind my head.
 
 *Tap, pause.*
 
@@ -461,7 +461,7 @@ Immediately, the down arrow above the elevator lit up bright red, and a chiming 
 
 The doors opened, and I gasped.
 
-There was the headless body of a woman standing motionless inside the elevator, wearing a silver cocktail dress with the edge of a bloody hospital gown peeking out from underneath. She held a balloon in her hand. The side of it read *“Happy Birthday!”* in a rainbow of colors.
+There was the headless body of a woman standing motionless inside the elevator, wearing a silver cocktail dress with the edges of a bloody hospital gown peeking out from underneath. She held a balloon in her hand. The side of it read *“Happy Birthday!”* in a rainbow of colors.
 
 The woman's head and her spine slithered ahead of me. It scaled the decapitated body and inserted its tail into the dry flesh between the body's collar bones until the head was snuggly attached.
 
@@ -477,7 +477,7 @@ A vision of the future. The sight of a colossal, marble coffin towering above th
 
 The woman’s newly fastened head turned to me and whispered,
 
-*“If you wake up before we get there, that’s OK. You’re finally safe. We can try again every night without fear. Eventually, with enough practice, you’ll make it over the apotheotic threshold. We can bring this all to fruition, my love, my one-armed Valkyrie, my deep red moon.*”
+*“If you wake up before we get there, that’s OK. You’re finally safe. We can try again every night without fear. Eventually, with enough practice, you’ll make it over the apotheotic threshold. We can bring this all to fruition, my love, my single-armed Valkyrie, my deep red moon.*”
 
 *“My one and only daughter.”*
 
