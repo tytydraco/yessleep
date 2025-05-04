@@ -463,7 +463,7 @@ Immediately, the down arrow above the elevator lit up bright red, and a chiming 
 
 The doors opened, and I gasped.
 
-There was the headless body of a woman standing motionless inside the elevator, wearing a flowing silver dress. She held a balloon in her hand. The side of it read *“Happy Birthday!”* in a rainbow of colors.
+There was the headless body of a woman standing motionless inside the elevator, wearing a silver cocktail dress with the edge of a bloody hospital gown peeking out from underneath. She held a balloon in her hand. The side of it read *“Happy Birthday!”* in a rainbow of colors.
 
 The woman's head and her spine slithered ahead of me. It scaled the decapitated body and inserted its tail into the dry flesh between the body's collar bones until the head was snuggly attached.
 
