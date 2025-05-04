@@ -56,7 +56,7 @@ As soon as I drew a first breath, my mother’s heart stopped. Spontaneous cardi
 
 But the moment her heart restarted, mine then stopped. Then they’d resuscitate me, only to have my mother die again. So on and so on.
 
-The way my dad used to tell it, the doctors became incrementally more unnerved and bewildered each time we flipped. Life was a zero-sum game in that operating room: it was me or her decreed God, or the reaper, or whatever unknowable divinity would be in charge of such a cosmic oddity. The uncanny tug-of-war would have probably been amusing to witness if the implications weren’t so deeply tragic.
+The way my dad used to tell it, the doctors became incrementally more unnerved and bewildered each time we flipped. Life was a zero-sum game in that operating room: it was me or her. An unshakable declaration from God, or the reaper, or whatever unknowable divinity would be in charge of such a cosmic oddity. The uncanny tug-of-war would have probably been amusing to witness if the implications weren’t so deeply tragic.
 
 Three or four cycles later, my mother’s heart gave out completely. Obstinately refused to beat, no matter what the medical team did. Dad would sometimes theorize that was an active decision made by the doctors that handled her care, even if they didn’t have “the balls” to admit it.
 
@@ -72,7 +72,7 @@ Which brings me to Anthony.
 
 ***My Childhood:***
 
-I experienced a fair amount of bullying as a kid, probably became a target on account of my quiet nature and my social isolation. A lone gazelle straying too far from the safety of the herd. They didn’t much bother me, though. I just couldn’t see them as predators: more like flies buzzing around my head. Noisy and a smidge irritating, but ultimately harmless.
+I experienced a fair amount of bullying as a kid, probably became a target on account of my quiet nature and my social isolation. A lone gazelle straying too far from the safety of the herd. They didn’t bother me much, though. I just couldn’t see them as predators: more like flies buzzing around my head. Noisy and a smidge irritating, but ultimately harmless.
 
 That was the problem - they *wanted* to feel like predators, and I wasn't providing the sensation. Inciting fear and misery made them feel in control. So, when they couldn’t get a rise out of me with their routine arsenal of schoolyard mockery, things escalated.
 
