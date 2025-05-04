@@ -2,7 +2,7 @@ I work a lot of side hustles, as you do to make ends meet in this economy. One o
 
 It was a fairly normal night by all measures. The usual crowd did the usual My Way and Piano Man. I had the club groove to Can’t Get You Out of My Head and mosh to All Signs Point to Lauderdale. It was just past midnight when a man I’ve never seen before walked in, and started writing down his song request on one of the slips we provided.
 
-To give you more info on how karaoke works at our club, we connect YouTube to our TVs and sound systems, so we aren’t limited to the roster of a specific service, and can play anything with a karaoke version on YouTube, including fanmade ones for the more obscure songs and artists. I grabbed the slip once he was done, ready to place it in the pile of requests, noticing that he wrote his name down as “Dis”. “New phone who Dis?” I chuckled at the thought. But seeing the song and artist name puzzled me a lot.
+To give you more info on how karaoke works at our club, we connect YouTube to our TVs and sound systems, so we aren’t limited to the roster of a specific server, and can play anything with a karaoke version on YouTube, including fanmade ones for the more obscure songs and artists. I grabbed the slip once he was done, ready to place it in the pile of requests, noticing that he wrote his name down as “Dis”. “New phone who Dis?” I chuckled at the thought. But seeing the song and artist name puzzled me a lot.
 
 The song name was written down as “Slldfgvbgjh yjbtgwhm” and the artist name was “cbvmntprq jmlygkpzx”.
 
