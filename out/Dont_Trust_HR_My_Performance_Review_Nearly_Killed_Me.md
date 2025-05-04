@@ -12,7 +12,7 @@ Just as the clock ticked past five, he appeared at my cubicle, a wide grin split
 
 "Well, well," he said, clapping me on the shoulder. "Big day tomorrow, huh? Don't let me down." 
 
-I gave him a half-smile, my gaze drawn to his company badge. An imposing black, so different from the sea of blue worn by us junior staff. It was a small detail, yet it amplified my desire to earn one myself.
+I gave him a half-smile, my gaze drawn to his company badge. An imposing black, so different from the sea of blue worn by us junior staff. I just wished I had one like that for myself.
 
 \*\*\*
 
