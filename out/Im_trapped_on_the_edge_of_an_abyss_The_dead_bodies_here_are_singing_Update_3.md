@@ -404,4 +404,6 @@ I guess more accurately, now more than ever, I need advice on what I should do. 
 
 I’ll update you when I have more, but for now, thank you all for following along. It gives me more comfort than you can imagine to know that we're not entirely alone in all this, and that if we die, we aren't going to die unknown.
 
-Be back soon. 
+Be back soon.
+
+[Next update](https://www.reddit.com/r/nosleep/comments/1keu3fh/im_trapped_on_the_edge_of_an_abyss_a_building/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
