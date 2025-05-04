@@ -184,14 +184,4 @@ It’s now 11:15. 45 minutes left. I don’t know if Wade is still alive, but I 
 
 I can’t say for certain what’s going to happen next, but I’ll be sure to update you guys if something does.
 
- 
-
- 
-
- 
-
- 
-
- 
-
- 
+[ Part Three](https://www.reddit.com/r/nosleep/comments/1kem0qw/the_inhabitant_ritual_final/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
