@@ -56,11 +56,9 @@ As soon as I drew a first breath, my mother’s heart stopped. Spontaneous cardi
 
 But the moment her heart restarted, mine then stopped. Then they’d resuscitate me, only to have my mother die again. So on and so on.
 
-The way my dad used to tell it, the doctors became incrementally more unnerved and bewildered each time we flipped. Life was a zero-sum game in that operating room: it was me or her. An unshakable declaration from God, or the reaper, or whatever unknowable divinity would be in charge of such a cosmic oddity. The uncanny tug-of-war would have probably been amusing to witness if the implications weren’t so deeply tragic.
+The way my dad used to tell it, the doctors became incrementally more unnerved and bewildered each time we flipped. Life was a zero-sum game in that operating room. It was either me or her, and there was nothing they could do to change that: an unshakable declaration from God, or the reaper, or whatever unknowable divinity would be in charge of such an edict. The uncanny tug-of-war would have probably been amusing to witness if the implications weren’t so deeply tragic.
 
-Three or four cycles later, my mother’s heart gave out completely. Obstinately refused to beat, no matter what the medical team did. Dad would sometimes theorize that was an active decision made by the doctors that handled her care, even if they didn’t have “the balls” to admit it.
-
-Like once they realized that one of us was dying, they arbitrarily awarded me with life. Started covertly injecting saline into my mother’s veins instead of adrenaline or something.
+Three or four cycles later, my mother’s heart gave out completely. Obstinately refused to beat, no matter what the medical team did. Dad would sometimes theorize that was an active decision made by the doctors that handled her care, even if they didn’t have “the balls” to admit it. Like once they realized that one of us was dying, they arbitrarily awarded me with life. Started covertly injecting saline into my mother’s veins instead of adrenaline or something.
 
 I doubt that last part actually happened. The circumstances were just viciously unfair, and that type of thing is fertile soil for growing conspiracy. Regardless, I felt his pain.
 
@@ -72,7 +70,7 @@ Which brings me to Anthony.
 
 ***My Childhood:***
 
-I experienced a fair amount of bullying as a kid, probably became a target on account of my quiet nature and my social isolation. A lone gazelle straying too far from the safety of the herd. They didn’t bother me much, though. I just couldn’t see them as predators: more like flies buzzing around my head. Noisy and a smidge irritating, but ultimately harmless.
+I experienced a fair amount of bullying as a kid, probably became a target on account of my quiet nature and my social isolation. A lone gazelle straying too far from the safety of the herd. They didn’t scare me much, though. I just couldn’t see them as predators: more like flies buzzing around my head. Noisy and a smidge irritating, but ultimately harmless.
 
 That was the problem - they *wanted* to feel like predators, and I wasn't providing the sensation. Inciting fear and misery made them feel in control. So, when they couldn’t get a rise out of me with their routine arsenal of schoolyard mockery, things escalated.
 
@@ -198,7 +196,7 @@ Once I grasped the bounds of my extrasensory insight, death lost its hold over m
 
 I could feel death’s advance from miles away, therefore, I had nothing to fear. Nothing at all.
 
-At least, that’s what I *used* to believe when I was young and dumb. Unfortunately, there are two major flaws in my supposed invulnerability that I completely swept under the rug. You may shouting them at your computer screen already.
+At least, that’s what I *used* to believe when I was young and dumb. Unfortunately, there are two major flaws in my supposed invulnerability that I completely swept under the rug. You may be shouting them at your computer screen already.
 
 1. Just because I could sense death didn’t mean I was shielded from the tragedies of life.
 2. I didn’t know for certain that I could sense *everyone’s* death. There’s one person in particular who would be unverifiable by definition.
@@ -351,9 +349,9 @@ I reached into my purse for my cellphone.
 
 Then - furious movement down the stairs.
 
-The sound of heavy boots stomping on hardwood filled my ears. Before I could react, he was looming over me. An open hand exploded out from the shadows and hooked onto my blouse collar. With one forceful pull, he yanked me to the ground. The bridge of my nose crashed into the edge of a stair as I fell. Electric pain writhed and crackled over my sinuses. My mouth felt hot and boggy as he lugged back up to the foyer.
+The sound of heavy boots stomping on hardwood filled my ears. Before I could react, he was looming over me. An open hand exploded out from the shadows and hooked onto my blouse collar. With one forceful pull, he yanked me to the ground. The bridge of my nose crashed into the edge of a stair as I fell. Electric pain writhed and crackled over my sinuses. My mouth felt hot and boggy as he lugged me back up to the foyer.
 
-Anthony quickly pinned me to the floor in front of the coffee table. I thrashed and struggled, but it wasn’t much use. He had positioned one muscular knee on each of my elbows. I was trapped.
+Anthony quickly pinned my body to the floor in front of the coffee table. I thrashed and struggled, but it wasn’t much use. He had positioned one muscular knee on each of my elbows. I was trapped.
 
 Without uttering a word, he wrapped his meaty claws around my neck and squeezed.
 
@@ -411,7 +409,7 @@ My panic intensified, reaching a fever pitch in tandem with the ravenous flames 
 
 Then, I heard it. At least, I think I heard it. Maybe my mind just clicked into place, and the realization was so profound that it felt like the noise began physically swirling around me.
 
-Yet, I distinctly remember hearing the knocking from within the wall behind me.
+Yet, I distinctly remember hearing the knocking from within the wall, directly behind my head. 
 
 *Tap, pause.*
 
