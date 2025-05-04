@@ -28,7 +28,7 @@ The knocks were gentle, but the sound carried generously through the cavernous s
 
 And most cryptically, there was the elevator. Directly across from the entrance. No buttons to call the damn thing. The outline of a down arrow above the doors I’d never seen flash. No one ever came out, and I knew no one ever would, either.
 
-The elevator was a one-way trip, constructed for me alone. Wasn’t ever sure how I knew that, but I’d bet my life on its truth twenty times over.
+The elevator was a one-way trip, constructed for me alone. Wasn’t ever sure how I knew that fact, but I’d bet my life on its truthfulness - twenty times over.
 
 So, there I’d be: by myself on the gallery floor, that snake of a woman slithering through its walls, surrounded by an empty, burning city for miles in every direction. It would always start with me approaching the massive steel doors, waves of heat galloping over my back, but when it would end was variable. It could take minutes, it could take hours. On rare occasions, it could take days or weeks.
 

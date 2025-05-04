@@ -136,7 +136,7 @@ I turned to the older man, anger lacing my voice. "Why did you give her the wron
 
 The other managers rose from their comfortable chairs and approached the glass, their anticipation palpable, as if this were the highlight of the event.
 
-My boss typed something into the computer and swiped his badge again. This time, the panel structure lid slid open, revealing an object.
+My boss typed something into the computer and swiped his badge again. This time, the panel structure lid in front of us slid open, revealing an object.
 
 It was a… baseball bat. Its end was studded with spikes and nails. A deadly weapon.
 
