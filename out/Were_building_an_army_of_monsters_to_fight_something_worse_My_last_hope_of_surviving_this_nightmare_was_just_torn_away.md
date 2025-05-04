@@ -6,9 +6,9 @@ The chamber shivered. My skin went cold. Then hot. Then—
 
 **Falling.**
 
-My chair vanished beneath me. The table, the Hatter, the red light—all of it vanished. Swallowed by ink. I plummeted through it like a ragdoll down an endless throat, gravity turning sideways, then inside out.
+My chair vanished beneath me. The table, the Hatter, the red light, all of it vanished. Swallowed by ink. I plummeted through it like a ragdoll down an endless throat, gravity turning sideways, then inside out.
 
-Shapes flickered past me—faces I couldn’t name, voices I thought I’d forgotten. The air buzzed with words I hadn’t spoken since childhood.
+Shapes flickered past me. Faces I couldn’t name, voices I thought I’d forgotten. The air buzzed with words I hadn’t spoken since childhood.
 
 I screamed.
 
@@ -22,7 +22,7 @@ Back in a nightmare.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-I stood on my tippy-toes, snatching a piece of parchment from the Wither Tree. The Ma’am had already used up all the parchment leaves from the lower branches, so I’d had to climb all the way up to the very top of the house—to the shambling tower that swayed with the wind. 
+I stood on my tippy-toes, snatching a piece of parchment from the Wither Tree. The Ma’am had already used up all the parchment leaves from the lower branches, so I’d had to climb all the way up to the very top of the house—to the shambling tower that swayed with the wind.
 
 *“The Red Queen’s story is nearly finished,*” she’d told me through the crack in her study door, voice oddly bright. *“Go and fetch me another handful of pages. Be quick, Boy.”*
 
@@ -48,7 +48,7 @@ My hands clutched the parchment like lifelines.
 
 My feet crept toward the nearest window. The boards were old here, warped with rain. Gaps had opened over time. The Ma’am rarely came this high, so the wood had learned to breathe without her.
 
-Peeking outside wasn’t allowed—it was one of the Ma’am’s Commandments**.** But the Ma’am was far below, whispering to Carol and her bleeding wrists.
+Peeking outside wasn’t allowed—it was one of the Ma’am’s Commandments\*\*.\*\* But the Ma’am was far below, whispering to Carol and her bleeding wrists.
 
 So I looked.
 
@@ -152,7 +152,7 @@ I blinked. “Then why…?”
 
 “He tried to protect me,” she said gently. “Tried to stop the Ma'am from drawing ink. So she wrote him out of our story.”
 
-My throat tightened. 
+My throat tightened.
 
 “He leaves us gifts. Pieces of the monsters he kills. So we can use them in stew. So we can survive on more than the few cans stashed away in the basement.”
 
@@ -316,7 +316,7 @@ The man in the doorway didn’t belong.
 
 But there he was—calm, centered, unmistakably real.
 
-Gone was the hunched shuffle, the oversized suit, the bureaucratic nervous tics. The figure that stood in the frame was something else entirely. Trim. Broad-shouldered. Severe. The suit clung like armor. 
+Gone was the hunched shuffle, the oversized suit, the bureaucratic nervous tics. The figure that stood in the frame was something else entirely. Trim. Broad-shouldered. Severe. The suit clung like armor.
 
 He looked like someone who didn’t just survive monsters—he hunted them.
 
@@ -584,6 +584,6 @@ I stared. Then smiled as I lifted the cup.
 
 I’d let him think he'd won. Let him think he'd broken me.
 
-But as I drank, I thought of every way I would make the Hatter pay.
+But as I drank, I thought of every way I would [make the Hatter pay](https://www.reddit.com/r/nosleep/comments/1ke8tme/were_building_an_army_of_monsters_to_fight/).
 
-[X](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
+[XXX](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
