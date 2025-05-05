@@ -1,0 +1,25 @@
+It was Sunday afternoon, about one o’clock. Mary was sitting on the couch watching the news and drinking coffee in the living room. She heard her phone begin to ring. She walked across the apartment and into the kitchen, where her phone was singing and humming on the counter. She picked up the phone to answer the call but felt a panicky hesitation when she saw the screen display a dreadful combination of nine digits. 
+
+“Fuck you, I’m not answering,” Mary’s brain snapped back, “Or should I answer? What if she needs something? But if she needs something, why should I help her? You know what? Fuck you, I’m not answering. Or should I answer?”
+
+Mary’s eyes stared at the phone. Her chest held a breath. The phone went grey and then black, and then fell back asleep. It was still and silent, becoming one with the counter. Mary’s chest released the breath—an intruder gone. 
+
+A short moment passed by, long and dark. Mary’s eyes stayed glued to the phone. The phone lit up, awakened by a nightmare. It shrieked.
+
+“Piiing.”
+
+ It established its own identity from the counter. Mary’s body twitched and tensed; her chest became still—an intruder returned. 
+
+Mary’s eyes, the only moving part of her body, peered at the notification that infected the phone. A white rectangular box with black text sat across the screen. It read “voicemail.” Mary picked up the phone delicately as if the infected voicemail was contagious. She walked across the apartment and sat on the couch, where she had previously been watching the news and drinking the coffee. She placed the phone on the coffee table, a safer distance than in her hand, and played the voicemail on speaker. 
+
+“Mary… this… this is your mother,” the birth vessel slowly slurred. “You need to call me back and make… an appointment with me to pick up the things that… that… that I have for you. Your Christmas gift… and your birthday gift. It’s April. It’s not… it’s not that far of a drive. It’s not like… you live in Timbuktu. Ha ha ha. And you’re ignoring me. Call back. I’m gonna… I’m gonna.. I’m… It’s Sunday. I’m not working anymore. So… uh… I’ll be here. Come get your…stuff that I have for you. It’s your Christmas gift and… and your birthday gift. Alright? Love you, honey.” 
+
+Silence stood in the living room once the release of the diseased voicemail was complete. The living room furniture also stood silently. The furniture’s molecules were strongly and tightly latticed together to repel against the use of its users. A concept that Mary’s molecular makeup attempted to inherit over the course of its lifetime. Mary’s senses detected a shift in the silent and still living room, a battle between the low entropy of Mary’s body versus the high entropy from the virus unleashed through the phone. Virotic molecules floated freely toward Mary’s body, burrowing and gnawing at the protective lattice. They chewed open voided wounds from the past, empty wounds from the torture of longing for that unfamiliar, sacred feeling. 
+
+“It could be good to see her,” Mary’s brain thought. 
+
+Her brain thought and thought. Her brain thought about crying to her mother, hoping for comfort or warmth. Her brain thought about misbehaving at her mother, hoping for discipline or punishment. Her brain thought about throwing another can of paint or another fist at her mother, hoping, this time, it would hurt her. The last time, her mother was too drunk, too limp, too much of a fermented vegetable to notice, to care, to feel, the wet paint dripping down her arms and legs, the sting of the punch across her face, and the tears from Mary’s eyes falling, landing, and seeping into her red flaky skin. Mary remembered those desperate tears. They came from screaming and begging her unresponsive, questionably dead mother to stop and knowing it would never stop. Was that unfamiliar feeling of a mother the real feeling or the fake feeling? Was the feeling of the birth vessel the fake feeling or the real feeling? Mary’s mind was sickened, contaminated, and hazed by what came through the phone. The protective lattice was supposed to repel, but the repellent ran its course. The infection won. 
+
+Mary’s legs lifted her off the living room couch, and they walked her over to her car keys. Mary stared at the keys, and then her hands picked them up. 
+
+The drive felt long, but it wasn’t long enough. It wasn’t long enough to where Mary wouldn’t make it, or it became too late in the day. It wasn’t long enough for the fluid to slow the birth vessel or her mother down to make her unresponsive enough to not answer the door upon Mary’s arrival. Mary hoped it may, but she knew it wouldn’t be until next week or next month. Next week or next month, Mary could relax and have hope again. Hope that the birth vessel or her mother won’t survive another infection to infect herself again. Hope that when the cycle repeats, it will overcome, destroy, deflate, and halt every organ in that body. That is the freedom, the repellent, the medication required to heal Mary, the birth vessel, the mother. 
