@@ -431,3 +431,8 @@ Till next time.
 Don’t do anything I wouldn’t do. 
 
 Mike. 
+
+
+The fucked up things
+
+https://www.reddit.com/r/nosleep/s/YRGfPwZJSJ
