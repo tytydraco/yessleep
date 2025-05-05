@@ -168,7 +168,7 @@ Frantically, I searched my room for my phone. I found it on the nightstand and s
 
 **> INITIATING TERMINATION PROTOCOL . . .**  
 
-**> target: /stor███/sess█\_001\_damon.l██**  
+**> target: /stor███/sess█\_267_damon.l██**  
 
 **> SYSTEM CONTROL: termination\_complete\_█████**  
 

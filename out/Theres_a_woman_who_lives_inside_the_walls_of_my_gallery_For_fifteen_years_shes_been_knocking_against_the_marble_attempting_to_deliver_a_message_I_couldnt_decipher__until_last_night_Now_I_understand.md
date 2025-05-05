@@ -168,7 +168,7 @@ I was damn proud of my little parlor trick. Later that night, though, I’d ruin
 
 He wore me down.
 
-So, I told him that didn’t experience any synesthesia. That meant we were safe. No one in that convenience store was going to die. My performance was just a logical extrapolation of that arcane knowledge.
+So, I told him that I didn’t experience any synesthesia. That meant we were safe. No one in that convenience store was going to die. My performance was just a logical extrapolation of that arcane knowledge.
 
 No one was going to die relatively soon, anyway.
 
