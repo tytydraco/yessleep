@@ -114,7 +114,7 @@ We unfortunately got jumpscared by some obscure forums, and were beginning to lo
 
 We began reading through his logs.
 
-*For privacy reasons call me Keith. Yeah, I mean the most batshit insane rituals I've seen, and believe me, I've seen a LOT:)))) are tied to the Moewe Otherhood. That's their english name, but I think their traditional name is Ma'hajrka Reha, or worshippers of the dead mother. They originated from some very avid idolizers of Virgin Mary and developed the ideology that the Antichrist or whatever was gonna be born after the death of the mother. He had to be born in death. From death. It's like, a whole process, spanning over years.*
+*For privacy reasons call me Keith. Yeah, I mean the most batshit insane rituals I've seen, and believe me, I've seen a LOT:)))) are tied to Ma'hajrka Reha, or worshippers of the dead mother. They originated from some very avid idolizers of Virgin Mary and developed the ideology that the Antichrist or whatever was gonna be born after the death of the mother. He had to be born in death. From death. It's like, a whole process, spanning over years.*
 
 Some other user had asked ***so, like, every woman part of the cult wants to birth the antichrist???***
 
@@ -152,4 +152,4 @@ If she'd been so disturbing, I sure as hell did not want to meet her baby.
 
 On another forum, we'd found ways to cleanse the influence of cults over your life. We drenched everything in holy water, put on Gregorian chants and went to various churches in the span of three days. Now, things seemed to go back to normal. At least, in my case.
 
-Tom, on the other hand, texted me last night to tell me that he keeps hearing a baby cry [outside. ](https://www.reddit.com/user/EmmaWatsonButDumber/submitted/?sort=hot)
+Tom, on the other hand remained curious. He texted me one night to tell me that he keeps hearing a baby cry outside, and I haven't heard from him since.

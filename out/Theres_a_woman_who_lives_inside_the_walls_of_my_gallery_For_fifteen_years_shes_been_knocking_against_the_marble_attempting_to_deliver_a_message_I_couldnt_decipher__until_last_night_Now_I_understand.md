@@ -76,7 +76,7 @@ That was the problem - they *wanted* to feel like predators, and I wasn't prov
 
 And every time a new prank was enacted - a carton of milk spilled over my head, a few spiders dumped into my backpack, etc. - I would notice Anthony watching from the sidelines, livid on my behalf. Tall for his age, frizzy black hair, blue eyes boiling over with anger behind a pair of thick square glasses.
 
-One afternoon, Austin, a dumber and more violent breed of bully, became fed up with my relative disinterest. Decided to take the torment up a notch. He snuck up behind me while I was eating lunch, stuck a meaty fist into my bun, and yanked a thick chunk of hair from my scalp.
+One afternoon, Austin, a dumber and more violent breed of bully, became fed up with my relative disinterest. Decided to take the torment up a notch. He snuck up behind me while I was eating lunch, stuck a meaty claw into my bun, and yanked a thick chunk of hair from my scalp.
 
 That was certainly my line in the sand. It was Anthony’s too, apparently.
 
