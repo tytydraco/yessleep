@@ -547,3 +547,5 @@ I magined us going for a small hike, walking through forest behind our universit
 There we would sit, looking at the gorgeous, wide open sky, soaking in the morning sun. 
 
 It would be [beautiful.](https://www.reddit.com/r/EclosionK2/comments/1g0837r/welcome/)
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/1kf1pw5/our_first_date_started_in_a_mall_we_havent_seen/)
