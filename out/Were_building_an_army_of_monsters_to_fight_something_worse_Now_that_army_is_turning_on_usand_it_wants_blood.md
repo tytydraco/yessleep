@@ -540,6 +540,6 @@ Because of me, the Hearts succeeded in collapsing the Deck. I knew that meant Ov
 
 And all I could think was that Owens had been right. She'd told Edwards over the PA that either the Order ended tonight, or I did.
 
-Unfortunately, I survived.
+Unfortunately for her, [I survived](https://www.reddit.com/r/nosleep/comments/1kfo5b6/were_building_an_army_of_monsters_to_fight/).
 
 [XXX](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
