@@ -46,4 +46,4 @@ In the corner of the drawing was a sentence, written in shaky, childish letters:
 
 I’m not sure if I’m more afraid that Ivy drew it.
 
-Or that she [didn’t](http://www.youtube.com/@HauntHorizonHub).
+Or that she didn't.
