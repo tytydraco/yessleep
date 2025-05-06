@@ -408,7 +408,7 @@ Tears were already falling before I tapped play.
 
 There was a long pause filled by the crackle of the phone's mic, my dad’s breathing and the silence between them.
 
-“Trent, um, told me, Henny. About the diagnosis. P-Please don’t be mad at him; he was just worried about you since you’ve… well, you’ve been gone.”
+“Trevor, um, told me, Henny. About the diagnosis. P-Please don’t be mad at him; he was just worried about you since you’ve… well, you’ve been gone.”
 
 I could hear his smile give way to tears, his voice a hoarse crackle.
 
