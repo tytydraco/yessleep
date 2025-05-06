@@ -1,93 +1,55 @@
-I never thought I'd be the kind of person to fall for something like this. But there I was, alone, confused, and staring down a reality I never thought possible.
+In the days following marriage, there was a weird sort of hold that tradition had on us. Custom dominated sense, and culture preceded reason. One of those traditions was that the bride had to be fetched to the groom's village at midnight—always midnight. Folks said it was to guard her modesty, to make sure no stranger saw her face before she moved into her new home. But I always figured it was a matter of fear—superstition masquerading as ritual. No one challenged it. No one dared.
 
-It started on a cold autumn evening, colourful leaves falling down on the pavement. I was walking home from the coffee shop, headphones in, listening to my favourite artists, as usual. I didn’t expect anything out of the ordinary that could occur. But that night, the usual sounds of the neighbourhood seemed muffled, almost as if something was pressing down on the air, suffocating the usual bustle of life. It was like all the life had been sucked out of the air by some unthinkable force,
+That night, as with so many nights before me, I was one of the men who were called to escort the bride. I was not her brother, but I was a cousin—close enough by blood to accept the honor and heavy enough with obligation to not refuse. Two of us walked behind the bullock cart, sticks in hand, keeping watch under the moon. The cart creaked like an old bone with every turn of the wheel. The bride was concealed inside, wrapped in silence, shrouded behind folds of cloth and tradition.
 
-My phone buzzed in my pocket, pulling me out of my trance. It was an unknown number.
+The village was hours away from here, and the road twisted through empty fields and dense, whispering forests. The air was chill but had a stillness that made even the insects reluctant. All that could be heard was the gentle crunch of our footsteps on the ground, the oxen's sigh, and occasionally the ghostly hoot of an owl in the distance.
 
-“Hey, I saw you at the coffee shop today. I’m right around the corner. I think we’d have a lot to talk about.”
+As we strolled past a small pond—a dark sheet of still water under the stars—I saw something scurrying around its rim. I looked into the blackness. It had looked like a fox, a thin and small one, its nose twitching as it dug in the rubbish left by travelers. Maybe it was its wild movements that caught my eye. Maybe it was the way it stared at me when it saw me looking.
 
-At first, I thought it was surely a stupid prank. Maybe some weird friend of mine was messing around. But the number felt… unfamiliar. I paused, my thumb hovering over the screen, unsure. Should I respond? Why was this person watching me? What did they want?
+Half-jestingly, I said, "Why look there when you can ride with us? We have plenty to fill you up for days in our village." I laughed softly to myself. My partner shot me a sidelong look but remained silent. At the time, I felt strangely proud of my joke, as though I had uttered something witty into the darkness.
 
-Before I could make a decision, another text came in: “I know this seems strange, but I’m just looking for some company. You can see me from where you are right now.”
+We proceeded further.
 
-I froze. My eyes darted to the street ahead of me, but I couldn’t see anyone. The hair on the back of my neck prickled, and I quickly typed back a short, sharp response: “Who is this?”
+But the night wasn't forgetful.
 
-The reply was almost immediate: “You’ll see soon enough. I’m waiting for you.”
+Ten minutes or so after that, I heard the faintest noise behind us—a shuffle or a dragging foot. I turned, and there it was. The fox. Only. it wasn't quite the same. It was bigger now, its fur wet or perhaps gone in patches. It trailed behind at a distance, keeping just far enough back to be just on the edge of sight in the dark.
 
-I tried to shrug off the feeling creeping up my spine. Maybe it was just some lonely person looking for attention. Maybe it was one of those weird dating scams that pop up every now and then. But I couldn’t shake the sensation that I was being watched.
+I laughed nervously and thumped my stick on the ground. "Shoo! Go eat somewhere else," I said, trying to be bolder than I felt. The creature hesitated, tilted its head—but didn't flee.
 
-Then I saw him.
+My cousin turned around and saw it too. "Foxes don't follow people like that," he complained.
 
-A figure standing under the flickering streetlight. Tall, with dark hair falling in soft waves around his face. His eyes… I couldn’t make them out at first, just two deep, black pools staring at me. And his smile—so perfect, so mesmerizing.
+Maybe it's sick," I replied, "I don't believe it.".
 
-I stopped dead in my tracks, my heart thumping loudly in my chest. Something about him felt wrong, yet… I couldn’t look away.
+I kept looking over my shoulder more than I looked where I was going. The beast trailed behind, steady and slow, as if it were somehow held to us. Each time I glanced back at it, it looked less fox. Its gait was unnatural—too smooth, too silent. Its eyes had lost that animal glint and now simply reflected nothing. No fear. No curiosity. Nothing.
 
-He took a step closer, his movements graceful, almost ethereal. My mouth went dry.
+Then came the moment that changed everything.
 
-“You must be Jessica,” he said, his voice deep and smooth, like velvet.
+I turned once again, and what I saw rooted me to the ground.
 
-I didn’t know what to say. It was impossible—this was all impossible.
+It was not a fox. It was not even a beast. It was on four legs, but its body was naked—smooth and long. Holes pockmarked its skin, as if decay had taken hold years ago, but it still had a purposeful movement. It was the length of a calf, contorted and curved in shape, but appallingly alive. It looked at me as if it had heard the joke I had told and had accepted the invitation.
 
-“Who are you?” I managed to whisper.
+I remained there. My heart was beating so fast that I was afraid to wake the bride. My cousin bent forward and whispered, "What… what is that?" but I couldn't answer.
 
-He smiled wider. “I’m someone who has been looking for you for a long time.”
+I knew—in my very bones—that we could not bring it into the village.
 
-I backed away instinctively, my feet moving before my mind had time to process. But he was quicker, almost impossibly so. He was in front of me, blocking my way, before I could take two steps.
+So I did the best I could think to do. I approached it slowly on foot, shaking with every step. I placed my stick in front of me as a sign of surrender, then went down on my knees.
 
-“You don’t need to be afraid,” he murmured, his lips just inches from my ear. “I won’t hurt you… not yet.”
+"Please," I whispered. "I've done something wrong. There is nothing there for you where we're going. I've made a false statement. Don't follow us, please."
 
-My pulse skyrocketed. Every cell in my body screamed at me to run, but my feet were frozen to the ground, my limbs stiff with fear.
+The creature didn't move. It stared at me, empty eyes unblinking. For a moment, I was convinced it was about to pounce. But then, with a slight shift of its odd head—or perhaps a readjustment of its odd body—it wheeled westward and left. No noise. No sign. Silent and away.
 
-“I didn’t mean to frighten you,” he continued, his breath cool against my skin, his touch impossibly icy and rock-hard. “But you’ve been so… interesting to watch.”
+It disappeared into the darkness, consumed by the night.
 
-His hand grazed my cheek, and I flinched back. He chuckled softly, eyes never leaving mine.
+I just stood there for what seemed like forever before I could walk again. My cousin and I never said a word to one another as we walked. We did not even glance to see if the beast would return. We did not care.
 
-“You’re wondering why you feel this way, aren’t you?” he asked, his voice almost a purr. “Why you can’t look away. Why your heart races, and you feel like you’re being pulled in.”
+One week later, word came from the west.
 
-I nodded without meaning to.
+Village after village—sick. People dying in scores. Some said it was malaria. Others said it was a curse. I remembered the holes on that creature's skin, the way it walked, the silence it carried with it. I remembered what I had said, what I had invited.
 
-“That’s because I’m not just anyone,” he said, his smile turning from charming to predatory. “I’m something more. And you… you are going to be mine.”
+"Was it me?" I kept asking myself, over and over. "Did I unleash something?"
 
-He stepped back, and for a moment, I thought I could escape, but then he spoke again.
+The shame clung to me like dust, heavy and smothering. I starved for days. I could not sleep without seeing its face—or what amounted to one. Each evening, I caught myself gazing out to the west, half-hoping to see its shape materialize on the horizon, coming back to claim the rest of what I had vowed.
 
-“You don’t need to run. You can’t escape what you already are.”
+Years went by, but the sensation never faded. The bride and groom went on with their lives, and other people quickly forgot that evening. But I did not. I could not. Certain errors diminish with the passing of time, but some cast a shadow. I had laughed in the darkness, and something had listened. Something that did not laugh.
 
-I tried to shake my head, but his words seemed to cling to my thoughts, making them heavier, darker.
-
-“Just let me in,” he whispered. “Invite me in. I won’t force you… but if you do, I promise it’ll be worth it.”
-
-His voice was honey-sweet, and before I knew what I was doing, I said the words I never thought I’d say: “Come in.”
-
-His eyes gleamed with victory as he stepped across the threshold, into my personal space. He wasn’t a stranger anymore—he was too familiar, too close. He didn’t even need to touch me to make my skin crawl with electricity.
-
-The moment he crossed that line, something shifted. He was suddenly right next to me again, his lips brushing my ear as he murmured, “You’ve made a terrible mistake, my dear.”
-
-I felt my heart slow, my vision blur, and something within me twisted with a hunger I couldn't place. His smile widened, revealing sharp, gleaming fangs.
-
-But instead of immediately attacking me, he toyed with me. He circled me, his presence overwhelming, filling the room with an intoxicating scent I couldn’t identify. He spoke in soft, coaxing words, keeping me just on the edge of madness. His voice slid into my mind, planting thoughts I didn’t want to have, thoughts of him, of us, together.
-
-I felt myself becoming weaker, more vulnerable with every passing minute, unable to escape the web he was weaving around me.
-
-Eventually, I could no longer tell where he ended and I began. The darkness he offered was becoming my own.
-
-Just when I thought I might pass out, his fangs sank into my neck.
-
-The pain was blinding at first, and then there was nothing. No pain. No fear. Just a cold, consuming stillness.
-
-And then, there was power.
-
-I collapsed into his arms, my body trembling as the transformation took hold. He didn’t need to say anything. The change was already happening, deep inside of me.
-
-"You’re mine now," he said, his voice full of dark triumph.
-
-I could feel it—the thirst. The need. The hunger. Sharp fangs painfully emerged from my jaw, my body adjusting to the changes that this creature had caused.
-
-And now, I understand. You’re probably wondering why you’re reading this, aren’t you? You’re curious, maybe even skeptical. But you know something’s off. And that’s why I’m telling you this now.
-
-The moment you finish reading this, the curse will be on you.
-
-You’ll be stalked by someone just like him—a handsome, dangerous creature, who will lure you in. You’ll be tempted to invite them in, just like I did.
-
-And then, like me, you will belong to them.
-
-Don’t say I didn’t warn you.
+And now, even years later, I find myself wondering. Was that thing the disease carrier? A ghost? A demon? Or was it something created by guilt, born from a coincidence so terrible it could not be overlooked? I don't know. All I know is this: some invitations are not meant to be spoken. And if they've done so, they cannot be taken back anymore.
