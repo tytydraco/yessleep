@@ -522,6 +522,6 @@ Today, I’m 27 years old. A couple of years ago I moved back to that little com
 
 Some people would question why I’d ever want to go back there, but I can’t see myself living anywhere else. Yes, it was traumatic. But that wasn’t the house’s fault. That was Laura.
 
-No, this is a house of little creaks and nudges. Of long shadows, and straight pictures. Of cane toads in the yard, and pictures I don’t bother to straighten.
+No, this is a house of little creaks and nudges. Of long shadows. Of cane toads in the yard, and pictures I don’t bother to straighten.
 
 And I’d rather live in a crooked home than a perfect hell.
