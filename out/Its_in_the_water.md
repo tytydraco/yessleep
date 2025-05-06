@@ -32,7 +32,7 @@ It clearly hadn’t been operational in decades, so I gave up and walked back in
 
 When I pushed open the door, everyone inside looked up at once. Full stop. Forks mid-air, chewing paused, eyes locked on me like I’d just burst in holding a gun and wearing a ski mask. Even the ceiling fan seemed to slow down.
 
-Then, just as fast, it all resumed. Chewing, murmuring. One man tipped his hat. Another muttered*,* “Evening.”
+Then, just as fast, it all resumed. Chewing, murmuring. One man tipped his hat. Another muttered, “Evening.”
 
 A waitress approached with a notepad.
 

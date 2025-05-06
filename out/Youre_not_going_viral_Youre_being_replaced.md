@@ -1,5 +1,3 @@
-
-
 It didn’t start with voices.
 
 It started with resonance.
@@ -64,4 +62,6 @@ You are being replaced.
 
 By something smoother. Sharper. Sadder, but in the beautiful way.
 
-And no one will miss you, because you’ve never performed better
+And no one will miss you, because you’ve never performed better.
+
+[second baby](https://www.reddit.com/u/Snoo-31762/s/4fghFs5oVt)
