@@ -1,4 +1,4 @@
-**Part I** – [Part II](https://www.reddit.com/r/nosleep/comments/1kcchyv/i_just_learnt_that_my_parents_kidnapped_me/)
+**Part I** – [Part II](https://www.reddit.com/r/nosleep/comments/1kcchyv/i_just_learnt_that_my_parents_kidnapped_me/) – [Part III](https://www.reddit.com/r/nosleep/comments/1kg9fwe/i_just_learnt_that_my_parents_kidnapped_me_to/)
 
 Before I tell you about the present, I ought to tell you about the past.
 

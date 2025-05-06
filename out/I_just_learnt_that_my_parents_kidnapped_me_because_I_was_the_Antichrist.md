@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1ka1ig2/i_just_learnt_that_my_parents_kidnapped_me_when_i/) – **Part II**
+[Part I](https://www.reddit.com/r/nosleep/comments/1ka1ig2/i_just_learnt_that_my_parents_kidnapped_me_when_i/) – **Part II** - [Part III](https://www.reddit.com/r/nosleep/comments/1kg9fwe/i_just_learnt_that_my_parents_kidnapped_me_to/)
 
 Perhaps not the exact demonic being from Christian eschatology, given that my story concerns neither Heaven nor Hell—neither God nor the Devil. Still, I don’t know a better word to describe me. Regardless of my cult’s specific religious ideology, the fact of the matter remains that I was born with a godless purpose, much like Lucifer himself.
 
@@ -177,3 +177,5 @@ After all, I put an end to them, but not to myself—not to the thing inside me.
 I was created to end the world.
 
 Will I stop [here](https://www.reddit.com/r/dominiceagle)?
+
+[UPDATE - Part III](https://www.reddit.com/r/nosleep/comments/1kg9fwe/i_just_learnt_that_my_parents_kidnapped_me_to/)
