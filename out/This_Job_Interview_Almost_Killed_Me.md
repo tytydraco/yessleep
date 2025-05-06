@@ -73,7 +73,7 @@ I angrily turned off the water and answered.
 
 “Yes. Who is calling?”
 
-“I’m Brain!” He sounded positive and chirpy. “I’m with New York Bankers. We saw your application on For Hire and we’d love for you to come to the office for an interview. We’re having a interview event today and we can squeeze you in.” Brain said with much enthusiasm.
+“I’m Brian!” He sounded positive and chirpy. “I’m with New York Bankers. We saw your application on For Hire and we’d love for you to come to the office for an interview. We’re having a interview event today and we can squeeze you in.” Brain said with much enthusiasm.
 
 “Today is Sunday. You guys work Sunday?”
 
@@ -111,7 +111,7 @@ Inside there was only one glowing button. Five.
 
 DING! Men and women in suits sat on black cushion seats against a white wall. A male receptionist looked at me. 
 
-“You must be Austina! I’m Brain.” He had the same cheery personality she heard on the phone.
+“You must be Austina! I’m Brian.” He had the same cheery personality she heard on the phone.
 
 “Am I late?”
 
@@ -157,15 +157,15 @@ She chuckles. “I’m the whole package.” 
 
 We waited for fifteen minutes. The office seemed to be in a loop. One conversation begin, another ends, when that one ends, a new one begins. They were lively for a Sunday. 
 
-“Hey Brain?” I walked up to the desk. He looks up from his desktop. “Who are these people? When you said you work Sunday, I wasn’t sure what to expect.”
+“Hey Brian?” I walked up to the desk. He looks up from his desktop. “Who are these people? When you said you work Sunday, I wasn’t sure what to expect.”
 
-He chuckles at the question. “So these guys are our senior staff. They’ve been with us longer and have clients that require special attention.” Brain said. “Think of us as an accounting firm, but you don’t have to worry about working weekends. New hires have regular hours. Today is the only time our hiring manager can conduct interviews.” 
+He chuckles at the question. “So these guys are our senior staff. They’ve been with us longer and have clients that require special attention.” Brian said. “Think of us as an accounting firm, but you don’t have to worry about working weekends. New hires have regular hours. Today is the only time our hiring manager can conduct interviews.” 
 
 “How long have y’all been open?”
 
 “We opened at 2020. We began working remote but are slowly letting senior staff in.”
 
-An older man with a large stomach and a tucked in blue shirt. “Hello Brain. Is this everyone?” 
+An older man with a large stomach and a tucked in blue shirt. “Hello Brian. Is this everyone?” 
 
 “Yes. They are all accounted for.”
 
