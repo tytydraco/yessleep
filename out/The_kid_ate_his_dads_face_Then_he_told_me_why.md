@@ -352,16 +352,18 @@ I reach for my clipboard, slip my pen from my shirt pocket. 
 
 *I have to know why it took my Adelaide from me.*
 
-“You actually think your sister would be okay with this?” Jonah spits. “You sacrificing some innocent kid to satisfy your vendetta?”
+He recoils, disgusted. “You actually think your sister would be okay with this? Sacrificing people to satisfy your little revenge fantasy?”
 
-He's staring daggers at me. A kid like him, he's got dreams. A whole life ahead of him, and not the bad kind either. 
+He's staring daggers at me, the sort I probably deserve. A kid like him, he's got dreams. A whole life ahead of him, and not the bad kind either. 
 
-But Adelaide had a life, too. 
+But so did my sister.
 
-“My sister's dead,” I tell him flatly. “This isn't about what she would want. It's about what I *need*. It's about making Zipperjaw pay for what it took.”
+Adelaide never deserved her nightmare.  
+
+“My sister's dead,” I tell him, pushing the memory from my mind. “This isn't about what she would want. It's about what I *need*. It's about making Zipperjaw pay for what it took from me.”
 
 My pen clicks. Stabs the clipboard like a knife.
 
-"You know as well as I do what happens at midnight, Jonah. So I'd start talking while you've still got a face to talk with.”
+"You know as well as I do what happens at midnight, Jonah. So I'd start talking—or pretty soon you won't have a face to talk with."
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
