@@ -37,3 +37,5 @@ I really don’t know how to explain that.
 Until next time,
 
 Jimmy
+
+Part 3: https://www.reddit.com/r/deepnightsociety/s/vzcKEQ1OPb
