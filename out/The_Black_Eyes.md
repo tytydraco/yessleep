@@ -2,7 +2,7 @@
 
 I had always been a man of routine. Wake at 6:15 AM. Shower. Shave. Dress in one of my five outfits. The predictability grounded me necessary for a job where operations never slept and changes never stopped moving. 
 
-Sarah used to tease me about it. \*\*"\*\*You’re like a Swiss watch except way cuter, and slightly less expensive to maintain."
+Sarah used to tease me about it. “You’re like a Swiss watch except way cuter, and slightly less expensive to maintain."
 
 That was before everything changed. 
 
