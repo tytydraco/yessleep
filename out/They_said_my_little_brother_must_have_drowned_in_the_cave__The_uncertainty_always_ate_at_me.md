@@ -117,3 +117,4 @@ The rescue teams couldn’t find him, and the tunnel is completely impassable to
 I never gave up on him, and I still haven’t.  Right now the plan is to leave as much food as we can, and hope that the rain forecast tomorrow isn’t enough to fill the cave.
 
   
+[…more](https://www.reddit.com/r/patrickmullensauthor/s/qEF252JtVs)
