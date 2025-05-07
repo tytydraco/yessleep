@@ -22,7 +22,7 @@ It just isn’t. 
 
 So I’ve had to make do. 
 
-I’ve spent the last month digging through old case files and buried corpses. I’ve parsed the local folklore and researched the nearby legends. I’ve run a social media scan for sightings of anything supernatural, eerie, or otherwise batshit insane within a thirty mile radius — all to figure out what might be causing these cannibal suicides. 
+I’ve spent the last month digging through old case files and buried corpses. I’ve studied the local folklore and researched nearby legends. I’ve run a social media scan for sightings of anything supernatural, eerie, or otherwise batshit insane within a thirty mile radius — all to figure out what might be causing these cannibal suicides. 
 
 And you know what I managed to find?
 
@@ -36,15 +36,15 @@ Zilch. 
 
 Until tonight. 
 
-See, I’ve had a breakthrough — an answered prayer. And it even has a name: 
+See, I’ve had a breakthrough — and it even has a name: 
 
-Jonah. 
+*Jonah*. 
 
-He’s seventeen years old. Bright. Studious. 
+Seventeen years old. Bright. Studious. 
 
 Captain of the football team. Head of the debate club. Chair of the student council for human rights and class valedictorian. Not just a good kid, but the kind that universities fight over.
 
-And four days ago, Jonah murdered his father.
+Four days ago, he murdered his father.
 
 Tore off the man’s face and chased it down with a glass of ginger ale, then cut his own throat and dropped dead beside him.
 
@@ -78,7 +78,11 @@ But it's hard not to feel this way. Hospitals make me think of my sister, and my
 
 His voice sounds like he spent the evening gargling razor blades. He's lying in the bed like a mummy, bandages strangling his throat. 
 
-He asks the question again. It sounds even more painful the second time around, but I still don’t answer.
+I close the door behind me. Lock it. 
+
+He asks the question again. It sounds even more painful the second time around.
+
+I still don’t answer.
 
 We haven’t reached that stage in our relationship yet. 
 
@@ -86,27 +90,33 @@ Instead, I cross the room, unbutton my jacket, and drape it over the chair by hi
 
 Understandable.
 
-From Jonah's perspective, it's ten in the evening. A stranger just walked into his hospital room wearing a black suit and a scowl, carrying the kind of briefcase that screams bad news. He probably thinks I’m here to audit his health insurance. That, or snatch his kidneys. 
+From Jonah's perspective, it's ten in the evening. A stranger just walked into his hospital room wearing a black suit and a scowl, carrying the kind of briefcase that screams bad news. 
+
+He probably thinks I’m here to audit his health insurance. 
+
+That, or snatch his kidneys. 
 
 But I’ve got worse things on my mind. 
 
-I open my briefcase, shuffle through a handful of documents before finding my clipboard. The form attached is a standard 34-3A. An Interrogation Report. Useful when determining an individual’s involvement in supernatural violence. 
+I open my briefcase, shuffle through a handful of documents before finding my clipboard. The form attached is a standard 34-3A Interrogation Report. Useful when determining an individual’s involvement in supernatural violence. 
 
 My pen clicks. Scribbles Jonah’s name up top. 
 
-He tries to speak again. Only manages to wheeze. 
+He tries to speak again. Only manages to wheeze.
 
-My pen keeps scratching down observations. I note the size of his pupils, his tangled brown hair, the way the corner of his mouth twitches in tune with his mounting dread. Then I fill in a dozen other fields: boiler-plate bullshit that’s too dull to describe. 
+My pen keeps scratching. I note the size of his pupils, his tangled brown hair, the way the corner of his mouth twitches in tune with his mounting dread. Then I fill in a dozen other fields: boiler-plate bullshit that’s too dull to describe.
 
-Age. Location.
+Age. 
 
-“Are you—”  
+Location. 
+
+“Are you with—”  
 
 Jonah winces. It probably feels like throwing up asphalt every time he speaks. 
 
 He pushes through anyway. 
 
-“Are you…with the police?” he finally manages. 
+“Are you…with the police?”
 
 I pause, look up from my report and meet his eyes. Just to let him know I see him. To let him know I hear him. 
 
@@ -114,7 +124,7 @@ Then I go back to the clipboard. 
 
 Here’s the secret nobody tells you about conversations: it’s not about what you say, but what you don’t. The only thing more agonizing than being spoken to is being ignored. 
 
-And right on schedule, silence works its black magic. Jonah starts to break. 
+And right on schedule, Jonah starts to break. 
 
 He lurches up in his bed, stiff and sore. Confused. Hits the call button for his nurse. Once. Twice. Then he starts hammering it; only nobody is coming because I’m good at my job. 
 
@@ -128,23 +138,23 @@ Good for him. 
 
 I scratch out the last of his tombstone data, then clear my throat. 
 
-His gaze swivels to me, unease flooding his eyes. “The nurse—”
+His gaze swivels to me. “The nurse—”
 
-“Isn't coming,” I tell him, clicking my pen and sliding it back into my shirt. “He went home early, so did security. It’s just you and me tonight.”
+“Isn't coming,” I tell him, clicking my pen and sliding it into my shirt. “She went home early, so did security. It’s just you and me tonight.”
 
-Jonah’s lips are glued together, his mind blue-screening as he tries to calculate just who I am and what I’m doing here. “I already told the detectives everything I know," he says. 
+Jonah’s eyes are buzzing, his mind blue-screening as he tries to calculate just who I am and what I’m doing here. “I already told the detectives everything I know," he says.
 
 “I’m aware. I’m here to ask you some questions of my own.”
 
-His eyes narrow with overdue suspicion. “... Who are you exactly?”
+“Why? Who are you exactly?”
 
-I loosen the tie around my collar. “I’m not much for names, personally. Suffice it to say that I work for an organization that’s taken an interest in your... situation. It’s a private enterprise. Off the books. We call ourselves the Order of Alice.”
+I loosen the tie around my collar. “Suffice it to say that I work for an organization that’s taken an interest in your... situation. It’s a private enterprise. Off the books. We call ourselves the Order of Alice.”
 
-His scrunches his eyebrows. "Never heard of it."
+He gives me a blank stare. "I've never heard of it."
 
 "That's the idea."
 
-“So then… you’re *not* a cop?” 
+“So then you’re *not* a cop?” 
 
 The way he says the words is like he wants to believe them but can’t. 
 
@@ -160,27 +170,25 @@ A cough rattles from my throat. Wet. Nasty. The kind that sounds like I'm not ju
 
 I could only be so lucky.
 
-Jonah lifts an eyebrow, craning for a better look as I start fishing in my jacket.
-
-“What are you looking for?” he asks.
+“What are you looking for?” Jonah asks, watching me fish in my jacket. 
 
 I pull out a pack of cigarettes. Slip one between my lips. “Medicine.”
 
-For a second, the kid looks like he might tell me you can't smoke in here, like he might try his hand at a lecture. Then he spots the gun at my hip. Thinks better of it.
+For a second, the kid looks like he might tell me you can't smoke in here, like he might try his hand at a lecture. Then he spots the gun at my hip and thinks better of it.
 
 Like I said, a smart cookie.
 
-“You told the cops that you didn’t murder your father,” I mumble, lighting the cigarette. “You said it was someone else—some*thing* else. That correct?"
+“You told the cops that you didn’t murder your father,” I mumble, lighting the cigarette. “You said it was someone else—some*thing* else. Correct?"
 
 He nods, or as close as he can manage with all the gauze around his neck. “Is that why you’re here… You actually believe me?” 
 
-His voice is two parts hopeful, one part desperate. It probably doesn't feel great to have your whole community think you murdered your father and ate his face.
+His voice is two parts hopeful, one part desperate. It probably doesn't feel great to have your whole community think you murdered your father and ate his face.
 
 “Sure,” I tell him. “I believe you.”
 
-He falls back on his pillows, pimple-face softening with relief. “Thank you. Nobody else does. The way the detectives were talking sounded like they were angling for first-degree murder. Life in prison sorta thing.”
+He falls back on his pillows, relieved. “Thank god. Nobody else does. The way the detectives were talking sounded like they were angling for first-degree murder. Life in prison sorta thing.”
 
-I cough up a stormcloud. “Relax. You’re not going to prison.”
+“Relax. You’re not going to prison.”
 
 “You think they’ll acquit me?”
 
@@ -188,67 +196,75 @@ I laugh. 
 
 Not on purpose—scout’s honor. It’s just that I can’t help myself.
 
-“God no. If this state had the death penalty, you’d skip the line three times over.” 
+“Hell no. If this state had the death penalty, you’d skip the line three times over.” 
 
 Another drag. 
 
 Another stormcloud. 
 
-Jonah finds his voice, or what's left of it. “Then why did you just tell me that—”
+“Then why did you just tell me that—”
 
 “You won’t end up in prison because by the end of tonight, you won't exist.”
 
-The implication hangs in the air like a guillotine. The kid shrinks. His arms wrap around himself, protective, horrified. He thinks I'm talking about the monster coming for reprisals. He's only half right.
+The implication hangs in the air like a guillotine. 
 
-“You're innocent,” I tell him. “I know that much. Same as all the other murder-suicides in this nowhere town. Like you, they were victims: just an audience to their nightmares, no different than my sister.”
+The kid shrinks. His arms wrap around himself, protective, horrified. He probably thinks I'm talking about the monster coming for reprisals. He'd be half right.
 
-He blinks. “Your sister?”
+“You're innocent,” I tell him. “Same as all the other murder-suicides. Like you, they were victims: just an audience to their nightmares, no different than my sister.”
+
+He blinks.
 
 Christ.
 
 There goes my motormouth.
 
-“What happened to your sister?” he presses. 
+“What happened to your sister?” he asks. 
 
 “Same thing that happened to you, only she didn’t botch the suicide.”
 
-I heave a sigh, ashing my cigarette onto the floor. “That’s why I’m so interested in your case, I guess. It's personal. I’d like to know the name of the monster that did this to you—that did this to her.”
+I heave a sigh, ashing my cigarette onto the floor. “That’s why I’m so interested in your case, I guess. I’d like to know the name of the monster that did this to you—that did this to *her*.”
 
-His eyes unfocus with the sort of detached dread that makes the thousand-yard stare look nearsighted. “I'm sorry,” he whispers. “I can’t tell you its name.”
+His eyes unfocus with the sort of detached dread that makes the thousand-yard stare look nearsighted. “I'm sorry,” he whispers. “I can’t… I can't tell you its name.”
 
 “Sure you can.”
 
-“No, you don’t understand. All of this started the second I learned that thing’s name. If I speak it. If you hear it, then—”
+He shakes his head. “No, you don’t understand. All of this started the second I learned that thing’s name. If I speak it. If you hear it, then—”
 
-“It’ll come for me next?”
+“It’ll come for me next.”
 
-I lean forward to look him in the eyes. “Jonah, listen to me. I’ve been doing this job for a long time.  Too long. Hunting monsters. Purging legends. I’ve done my research, so I know that I’m putting my life on the line hearing the name of your boogeyman, and that’s sort of the point.”
+I lean forward to look him in the eyes. 
 
-“You make it sound like you *want* to die.”
+“I'm counting on it.”
 
-"Maybe I do." 
+He recoils, a quiet horror about him. “You make it sound like you *want* to die.”
 
-I crush the smoke on the armrest. Hack another cough. This one's got a bit of blood with the phlegm. 
+"Maybe I do."
+
+I crush the smoke on the armrest. Hack another cough. This one's got a bit of blood with the phlegm.
+
+Lovely.
 
 "Or maybe I don’t get a say in the matter."
 
-His voice is small. "Shit... Cancer?"
+“Is it…?”
 
-"Leukemia. Stage 4. Doc figures I’ve got another year in me, assuming I kick the habit. A few months if I don’t. You can do the math on that yourself.”
+"Leukemia,” I tell him. “Stage 4. Doc figures I’ve got another year in me, assuming I kick the habit. A few months if I don’t. You can do the math on that yourself.”
 
-“God—I'm sorry, man. My mother died of leukemia. It's an awful disease.”
+His gaze turns downward. “My mother died of leukemia. It's an awful disease.”
 
-I glance at the clock: 10:35 PM.
+It is, but when it nets me this kind of emotional buy-in, it's at least useful. 
 
-Time to pick up the pace. 
+I glance at the clock on the wall. It's 10:35 PM.
 
-“Yeah, sure—it's the worst. Listen, I’m not looking for sympathy. I’m trying to tell you I know the stakes, that I’m dead whether I like it or not, so there’s nothing you’re protecting me from.”
+That means it's time to pick up the pace. 
 
-“It's not just about protecting you,” he sputters. “This thing doesn’t just make you kill yourself, it makes you kill—”
+“Listen, I’m not looking for sympathy, kid. I’m telling you I know the stakes. I’m dead whether I like it or not, so there’s nothing you’re protecting me from.”
 
-“I already know all that. What I need from you is its *name*.”
+Jonah shifts in his blankets, like there's something eating him inside. “It's not just about protecting you,” he sputters. “This thing doesn’t just make you kill yourself. It makes you kill—”
 
-He sucks back a breath, grimacing. This is him having a crisis of conscience, battling his morals. He doesn’t think I know what I’m getting into, that he can save me some suffering if only he keeps his big mouth shut. 
+“I already know that. What I need from you is its *name*.”
+
+He sucks back a breath, grimacing. He's having a crisis of conscience, battling his morals. He doesn’t think I know what I’m getting into, that he can save me some suffering if only he keeps his big mouth shut. 
 
 But I don’t have time for heroics. 
 
@@ -258,11 +274,13 @@ And there it is, the final twist of the knife.
 
 Like most young men, Jonah can’t help but want to do good by his father, to chase that validation even while daddy's buried six feet in the dirt.  
 
-His eyes find mine. Haunted. Hollow. "Okay."
+His eyes find mine. Haunted. Hollow. "Okay,” he says. 
 
-Then his lips start to move, and each syllable sounds sweeter than the last. 
+Then his lips start to move, and each syllable sounds sweeter than the last.
 
-He gives me what I’ve been searching for. The monster that destroyed my family, that stole my sister. He gives me the key to unlock the gates of hell, and it’s called:
+He gives me what I’ve been searching for. The monster that destroyed my family, that stole my sister. 
+
+He gives me the key to unlock the gates of hell, and it’s called:
 
 **“Zipperjaw.”**
 
@@ -274,13 +292,13 @@ Can’t help it. 
 
 Thirty years. That’s how long I’ve been searching for my sister’s reaper. It’s what led me to join up with the Order of Alice in the first place, but after so many dead ends, I’d all but given up hope.
 
-But now that I've got one foot in the grave? It's finally shown itself. 
+But now that I've got one foot in the grave, It's finally shown itself. 
 
 Here of all places.
 
-In this backwater, nowhere town, carving off people’s faces, slashing their throats. It’s almost like it lured me, pulled me back for one last dance before I closed my book for good. 
+It’s almost like it lured me, pulled me back for one last dance before I closed my book for good. 
 
-My hand, my whole arm, is shaking. Tremoring. 
+My hand, my whole arm, is shaking. Tremoring.
 
 I’m *afraid.*
 
@@ -290,31 +308,35 @@ How long has it been since the last time I was truly, honestly *afraid*?
 
 I glance up, my smile fracturing. 
 
-"You seem like a good person. I really shouldn't have done that.”
+"You seem like a good person,” he says, his voice breaking. “I really shouldn't have done that.”
 
-The kid’s really gonna turn on the waterworks and ruin the moment.
+The kid’s really gonna turn on the waterworks and ruin the moment here?
 
-“It’s fine,” I tell him curtly. “I already told you, I’m a dead man walking regardless.”
+“It’s fine,” I tell him. “I already told you, I’m a dead man walking regardless.”
 
-But Jonah lowers his hands, takes an ugly breath. Tears stream from his eyes. “You don’t get it,” he tells me weakly. “Once you know its name, Zipperjaw doesn’t just *kill* you. It finds the person you care most about and *forces* you to *slaughter* them. Just like… Just like…”
+But Jonah lowers his hands, takes an ugly breath. “You don’t get it,” he says weakly. “Once you know its name, Zipperjaw doesn’t just *kill* you. It finds the person you care most about and forces you to slaughter them. Just like… Just like…”
 
-“It made you kill your father,” I finish.
+“It made you kill your father.”
 
-The look in his eyes is so honest-to-god guilty. He feels awful. Terrible. 
+He looks up at me. Nods. The look in his eyes is so honest-to-god guilty. 
+
+He feels awful. 
+
+Terrible. 
 
 He’s probably imagining my kids dying, or my parents, or grandparents, or a childhood friend. He’s probably imagining Zipperjaw forcing me to kill some innocent bystander, just like it forced him to kill his old man, and it’s tearing him up inside. 
 
-“I’m a monster,” he whimpers. 
+“I’m a monster,” he whimpers, gripping a fistful of his hair.  
 
-“No, you’re a good kid, Jonah. I’m the monster.”
+“No, you’re a good kid. If there's a monster here, Jonah, it's me.”
 
 He blinks through a sheet of tears. He doesn’t understand. Not yet.
 
 But he will. 
 
-“It's like this,” I tell him. “I'm a pretty bitter guy. Most women are smart enough to avoid me, which means I haven’t got any kids. No spouse. My parents were abusive enough that if my sister hadn’t beaten me to the punch, I’d have probably killed them myself.”
+“I'm… a difficult person,” I tell him. “Anger. Bitter. Most women are smart enough to avoid me, which means I haven’t got any kids. No spouse. My parents were abusive enough that if my sister hadn’t beaten me to the punch, I’d have probably killed them myself.”
 
-Jonah's eyes soften, guilt fading into sympathy. 
+Jonah's eyes soften, guilt fading into sympathy and horror. 
 
 “I know, I know. I’m trauma dumping. I’ve never really figured out the trick to following social norms—to understanding conversational boundaries.” 
 
@@ -324,13 +346,15 @@ I gnaw my lip, fingers dancing on the armrest. 
 
 Jonah’s eyes start to narrow. Piece by piece, the puzzle is forming in his mind.
 
-“The point I’m trying to make is that I don’t have attachments to things. Not in the way you do. The closest I come to feeling a sense of connection is probably through my work.” I chuckle, shaking my head. “You might say I’m married to my job.”
+“The point I’m trying to make is that I don’t have attachments to things. Not in the way you do. The closest I come to feeling a sense of connection is probably through my work.” 
 
-Jonah swallows. 
+I chuckle, shaking my head. “You might say I’m married to my job.”
 
-“Zipperjaw killed my sister,” I tell him, an absent smile carving a path across my face. “The only person I ever truly cared about. There’s nothing I cherish more than the thought of ripping it to pieces. And the only way I get to do that is through you, Jonah.”
+Jonah swallows. “What are you trying to say?"
 
-I plant my hands on my knees, leaning forward, eyes wild. “That means I need your story. It means I need to know what happened the night you ate your father’s face. I need all of it—every last detail.”
+“Zipperjaw killed my sister,” I tell him, an absent smile carving a path across my face. “The only person I ever truly cared about. And now? There’s nothing I cherish more than the thought of ripping it to pieces—and the only way I get to do that is through you, Jonah.”
+
+“That means I need your story. It means I need to know what happened the night you ate your father’s face. I need all of it—every last detail.”
 
 The heart monitor starts to scream. 
 
@@ -340,46 +364,42 @@ Jonah tries to lurch from his bed, but I shoot from my seat. Shove him back down
 
 Like I said, a smart cookie. 
 
-He’s finally piecing it together, recognizing the nightmare unfolding before him. Only I can’t risk any miscommunication here. Not while midnight is just an hour away — and Zipperjaw with it. 
+He’s finally pieced it together, recognizing the nightmare unfolding before him. Only I can’t risk any miscommunication. Not while midnight is just an hour away — and Zipperjaw with it. 
 
 I press my finger against his jugular. Not hard. Just hard enough that he stops fighting and starts cooperating. 
 
-“You get it now, don't you?” 
+“You get it now, don't you?”
 
 He's shaking like cornered livestock. His eyes dart to the clock on the wall: 11:12 PM. 
 
-“It's you,” I say quietly, my face inches from his ear. “Right now, nobody in the entire world is more important to me than you are.”
+“It's you,” I say quietly, inches from his ear. “Right now, nobody in the entire world is more important to me than you are, Jonah.”
 
 He tenses. It’s all crashing down on him now — the horror of what he’s done — of what I’ve done *to* him. 
 
-But it wasn’t personal. 
+It wasn’t personal. 
 
-Honest. 
+It’s just that I need him motivated. Focused. I need a surefire way to push him past his trauma and get to the core of his experience. That means he has to have some skin in the game. 
 
-It’s just that I needed him motivated. Focused. I needed a surefire way to push him past his trauma and get to the core of his experience. That meant he had to have some skin in the game. 
-
-“You asshole,” Jonah snarls, voice dripping with disbelief. “You *used* me.”
-
-“Consider it an occupational hazard.”
+“You asshole,” he spits, voice dripping with betrayal. “You *used* me.”
 
 I reach for my clipboard, slip my pen from my pocket.
 
-“People are dying in this town, Jonah. They're killing their loved ones. Carving off their faces. Just the same way my sister did. And I have to know why. I have to know why Zipperjaw does these awful things.”
+“Didn't have much choice—people are dying in this town. They're killing their loved ones. Carving off faces. Just the same way my sister did. And I have to know why, Jonah. I have to know why Zipperjaw does these awful things.”
 
-He recoils, disgusted. “You actually think your sister would be okay with this? Sacrificing some teenager to satisfy your revenge fantasy?”
+He recoils, disgusted. “You actually think your sister would be okay with this? Sacrificing some traumatized *teenager* just to satisfy your stupid revenge fantasy?” 
 
-He's staring daggers at me, the sort I probably deserve. A kid like him, he's got dreams. A whole life ahead of him, and not the bad kind either. 
+My eye twitches. 
 
-But so did my sister.
+Adelaide.
 
-Adelaide never deserved her nightmare.  
+She wouldn't think this was stupid. She'd be proud of her big brother…
 
-“My sister's dead,” I tell him, pushing her memory from my mind. “This isn't about what she would want. It's about what I *need*. It's about making Zipperjaw pay for what it took from me.”
+*Wouldn't she?*
 
-"You're deranged..."
+I shake my head, forcing her memory back into its grave. “My sister's dead,” I grunt. “This isn't about what she would want. It's about what I *need*. It's about making Zipperjaw pay for what it took.”
 
-My pen clicks. Stabs the clipboard like a knife.
+"You're deranged,” he mutters. “An absolute lunatic.”
 
-"Maybe. But you know as well as I do what happens at midnight. So I'd start talking—or pretty soon you won't have a face to talk with."
+"Maybe. But you know as well as I do what happens at midnight.” My pen clicks. Stabs the clipboard like a knife. “So I'd start talking—or pretty soon you won't have a face to talk with."
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
