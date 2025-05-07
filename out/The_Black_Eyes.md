@@ -1,55 +1,227 @@
-I have had trouble connecting with people for a long time. I was autistic in the early 2000s in Texas. The understanding of autism back then wasn’t as bad as it used to be, but it’s still laughably inept when compared to today. My elementary school principal forced me to be on medication for me to be allowed to attend school. We went through a handful of medications, almost all of which left me in some kind of zombified state. I guess that was a good result for my principal, whose method of dealing with autistic kids was to throw them in a corner and ignore them. However, it didn’t work for my mom, who fought tooth and nail for me to be allowed to go to school unmedicated. I was autistic, but I had it to a minor degree. However, my principal insisted I had to be on some kind of medication, hence why we went through so many. The final medicine I was on was some experimental thing. I don’t remember much about what I was like on that medicine, I just remember it caused me a major seizure that led to a week-long coma. The principal was fired shortly after that.  
+**Journal Entry 1**
 
-Now, before anyone gets the wrong idea: my autism isn’t why I have a hard time connecting with people. Sure, it didn’t help, but I know people who adjust quite well. No, what made it hard for me was that since the seizure, I can no longer see people’s eyes.  
-More accurately, I only see black voids where people’s eyes should be. I don’t even see my own eyes when I look in the mirror. Since I woke up from my coma, people were no longer human. All I saw were demons. I wasn’t great with eye-contact even before the seizure, but after I was actively avoiding it at all costs. My parents sent me to a therapist to try and figure out why I was so jumpy. Being locked in a room for an hour every week with a black-eyed monster staring me down and pretending to care left a mental scar on my emotional development. I never spoke a word during these meetings. I know my parents were just trying to help. This is the first time I’m telling anyone about my condition.  
+I had always been a man of routine. Wake at 6:15 AM. Shower. Shave. Dress in one of my five outfits. The predictability grounded me necessary for a job where operations never slept and changes never stopped moving. 
 
-When I turned 19, I met a woman named Kenzie. For the first time since I was a child, I could see someone’s eyes. Kenzie’s were a beautiful golden hazel color, which accented her beautiful smile. We met at my first job. I was a dishwasher, and she was a waitress. She had a fiery personality and argued with the cooks a lot. However, she was very kind to me. She would thank me every time she would bring me an empty stack of plates. I was smitten with her. Whenever she shot that hypnotic smile my way, I would fall more and more in love.  
+Sarah used to tease me about it. \*\*"\*\*You’re like a Swiss watch except way cuter, and slightly less expensive to maintain."
 
-It took almost six months for me to work up the courage to ask her on a date. To my absolute surprise, she accepted. During the lead up to our date, I had convinced myself that she didn’t think of this as a date, that we were just going out as friends. However, I was quickly proven wrong when I saw how she dressed for our outing. She wore fishnets, a short black dress, and combat books. Her make-up was flawless, her lips were painted a glossy pink, and her gorgeous eyes were surrounded in lavender eye-shadow and glitter. Her black hair, which she normally wore in a ponytail for work, was worn loose and cascaded down her shoulders.  
+That was before everything changed. 
 
-She took my arm, holding me close. She was so warm. I forgot what I had planned for a bit. I remembered I was supposed to take her to see a movie. It was my mom’s suggestion. We went to see Avengers. I remember how much she was squealing during that scene Avengers assembled, and the camera circled around the group while the music swelled dramatically. I wish I could have enjoyed it as much as she did. I tried to match her enthusiasm, but I found it tricky. All the people on camera just looked like monsters to me. The only character I could connect with was Hulk. All the characters looked like monsters given my condition, but Hulk was a monster already so it ironically looked less terrifying from him. I guess that’s why I like the Hellraiser movies so much. The monsters look like monsters, so the eyes look normal for them.  
-After the movie, I took Kenzie home. She gave me my first kiss. I swear, my heart could have burst out of my chest when it happened. I could taste her lipstick for about an hour after the kiss, which turned out to be bubblegum. I found myself staring into her hazel eyes, basking in the intimate aura. This was something I never thought I would feel comfortable doing.  
+The morning it began, I stood in front of the bathroom mirror, razor gliding over stubble. Steam curled from the shower, softening my reflection. The scent of Sarah’s lavender shampoo lingered. She’d showered earlier than usual. 
 
-We dated for a few years before marrying in our mid-twenties. The service was small, with just our immediate family attending. On my side were my parents and my little brother, who was my best man. I honestly half-considered inviting no one. My condition had made my relationship with my family rather strained. On Kenzie’s side was just her older sister, who showed up to the event in ratty, smelly clothes. It looked like she hadn’t bathed in a while. During the afterparty, her sister seemed to spend most of the time at the buffet just scarfing down whatever she could, and pocketing everything else. I don’t remember Kenzie talking to her sister at any point except for shortly before she left.  
+Movement flickered in the fogged glass. Sarah stood behind me. But wrong. 
 
-We went to a small bed and breakfast for our honeymoon. I asked Kenzie about her sister. She explained her sister had some issues with drugs and was living on the streets. Kenzie stayed with my parents until she and I were able to find our own place. It was a rent-to-own house, two stories, with a nice back yard. It seemed way out of budget for the two of us, but Kenzie insisted she had it taken care of. Indeed, we never seemed to be late on our rent, and we never went hungry.  
+Her posture was rigid. Her face slack. And her eyes—her eyes.
 
-Every month, Kenzie would leave to visit her folks. It left me with some time to myself. I did enjoy some alone time, but I missed her dearly whenever she left. I asked how come she didn’t take me with her. To my shock, her lips went thin and her eyes twitched. She seemed positively livid for a split second before returning to her normal self. It was so bizarre. It was like she was an entirely different person. She told me that her parents were old fashioned and would hate my guts. That was enough for me. Besides, they would probably freak me out with their lack of eyes. Still, it was very odd so see Kenzie so angry, even if it was only for a short time. I hate to admit it, but I was rather scared of my wife.  
+Where warm hazel should have been, there were only voids. Not just dark but lightless. Pools of perfect black that swallowed the air around them. 
 
-Over the course of a few years, I noticed something strange. Once in a while I would see Kenzie just sitting on the couch staring at nothing. It would only last for a few moments at a time, but it sent chills down my spine, for when she spaced out like this, her eyes were voids just like everyone else. The most recent time I saw this happen, I tried approaching her. She looked up as I stepped forward. She scampered away like a frightened animal, locking herself in the bedroom. She came out a few moments later apologizing profusely. After this, she would spend an hour at night locked in the bedroom. Sometimes I could hear crying on the other end of the door.  
+The razor slipped. 
 
-For the longest time I thought this was normal. Afterall, given my condition, Kenzie was pretty much the only one who I could talk to. However, I started to feel like something was wrong. I tried doing my own research online about what was going on with Kenzie. I couldn’t find much about what could be the matter with the woman I loved. I wanted to help her, I wanted to make the hurt go away. I got the idea in my head that maybe something going on with her parents was what was wrong with her.  
+"Jesus!" I spun, pulse pounding. 
 
-I know now what I did next was wrong. I’ve talked to people about it since then and they’ve explained what I did was honestly kind of messed up. However, I didn’t see it like that at the time. I hid a burner phone in her car when she went to visit her parents and used the GPS tracker to see where she went. I had an external battery pack on it so it wouldn’t run out of juice. I wanted to see where her parents lived so I could confront them on my own. I recognize now that this was an invasion of privacy. I wasn’t thinking about it like that. I just saw it as the next logical step.  
+Sarah blinked and her eyes were normal again. 
 
-She drove for a while. She was usually gone for a week at a time, and she spent the whole first day driving. They must have lived a long way away. That must have been why they didn’t attend our wedding. While she drove, I tried my best to find her sister online. I thought that maybe she would have some insights about what was happening with Kenzie. I know she was homeless, but I figured she may have used the computers at a library somewhere to maybe use social media, or try and find a job.  
+"Sorry, sweetheart" she muttered, dabbing my cut with a tissue. Her fingers were ice. Far too cold for someone who’d just stepped from a hot shower. "You were so focused, I didn’t want to interrupt." 
 
-I realized I never got her sister’s name. I tried checking anyone who shared Kenzie’s maiden name, but couldn’t find her sister. Then again, the picture on her social media would probably be old and most likely before she became homeless so I wouldn’t recognize her. I checked a few women with the same last name, but none of them listed Kenzie as a sister. I gave up after searching online all day.  
+That night, I dreamt of mirrors. Endless corridors of them, each showing Sarah behind me with those black voids for eyes. Every time I turned, she vanished, only to reappear in the next mirror, always watching. 
 
-That night, I checked the GPS. To my surprise, the car was stopped by some woods. I searched online to see if there was a hotel or a retirement home out there. There was nothing. I watched as for three days the car remained stationary. I wondered if perhaps her parents were like those weird hermits who live off the grid you sometimes hear about. I thought about them living out there in a cabin and living off the land. It sounded a bit cool, but was not something I would want to do. Still, I had a destination.  
+I woke at 3:17 AM to an empty bed. 
 
-Since Kenzie took care of the essentials, I had a fair bit of money saved up, even with my low-paying dishwashing job. I bought a ticket to some horror movie convention out of state. It was something I wanted to go to anyways and it gave me an excuse to leave the house alone when Kenzie came back. It was on the way and I planned on actually going so it wasn’t exactly lying, I was just leaving out the main reason I was heading out. She was a bit upset that I didn’t want to bring her along, but I told her I just wanted some time to myself. I promised her I would bring her along to the next convention. She was happy with that and began planning out what costume she would wear to it.  
+From the bathroom came running water and humming. Sarah’s voice, but…wrong. A lullaby her grandmother used to sing. One she’d sworn she couldn’t remember. 
 
-I packed my stuff and headed out, taking the route Kenzie had taken. I packed some hiking boots, some glow sticks and a flashlight. I didn’t imagine I would be at her parent’s house for very long. I had to figure out what was going on with Kenzie, I just hoped talking to them would help me along with that. I shuddered at the thought of their black eyes staring me down, but I continued regardless.  
+When she slipped back under the covers, her skin was frigid. "Just washing my face," she whispered. 
 
-I reached the woods at about midnight. I had just gotten off the phone with Kenzie. She wanted to check up on me. I noticed a choked note in her voice as if she had just finished crying. I felt a knot in my stomach when I heard it. Part of me wondered if she was crying because of me. I know how much I missed her when she was gone, perhaps she was feeling the same for me. That made me anxious. I squirmed a bit in my seat as we spoke. I promised I would be back soon.  
+I lay awake until dawn, certain I could still hear that off-key humming echoing through the house. 
 
-I stepped out of the car, shining the light around the trees. They looked pretty normal, so I wasn’t worried. They were just trees after all. As I delved further into the woods, I dropped glow sticks so that I could find my way back like Hansel and Gretel. I kept practicing what I would say when I reached my destination. I didn’t know where exactly this house would be. I just hoped the old man wouldn’t try shooting at me, or if he did then he would stop when he heard who I was. I kept an eye out for traps. I heard weird loners would keep traps to alert them of intruders. As expected, I found a trip wire hooked up to a contraption that would make a loud noise if I stepped on it. Maybe it would be a good idea for them to find me rather than the other way around.  
+**Journal Entry 2**
 
-I examined the trap a bit closer, checking to see if there was something that would shoot me if I stepped on it. Nope, it looked totally normal. I kneeled down, and yanked on the cord. The trap made a loud bang that echoed throughout the woods. My ears rang, I had forgotten to cover them in my stupidity. I just stood there and waited. I would call out as soon as I heard movement. I leaned against a tree, shining my flashlight upwards so they would see me easier. My heart raced as I waited, worried about meeting these people.  
+Three days passed. I nearly convinced myself it had been stress. 
 
-Every second felt like an hour. I kept checking the time on my phone. Ten minutes passed. I wondered if that loud noise didn’t wake them. I didn’t know how old they were, or how heavy of sleepers they were. I frankly knew nothing about them. I called out as loud as I could, trying to catch their attention. Still though, I got nothing. I decided to venture further in. I kept calling out as I walked, trying not to set off any other traps. I kept an ear out for any response.  
+Then, at work, I looked up from my desk. Sarah stood at the end of the hallway. 
 
-Eventually, I reached a small hut. It looked rather rickety, and poorly taken care of. It smelled awful. I wondered if the place was partly put together with dung, I know some places used that as a legit building material. I doubted any inspectors would approve of this place. The house was surrounded by a wire fence with wooden posts. The posts were covered in fungus and looked rotten. As I drew closer, I smelled a lot of rust. Surely these people would have woken up by now. I was a flashlight right at their house. They had to have been awake by now. I called out. There was no response.  
+Black-eyed. 
 
-I knocked on the door. I was wondering if the place was abandoned. However, I didn’t know what Kenzie would be doing out here if that was the case. I shone the flashlight into a cracked window of the hut. All I could see was broken furniture and cobwebs. It didn’t look like anyone lived here. However, it did look like someone was here recently. There were clear spots in the dust on the floor and some of the cobwebs were hanging loose as if they had been pulled out of someone’s way. My mind was racing, wondering just what Kenzie did out here. The traps were maintained rather well. If no one lived out here, that meant Kenzie had to have been the one dealing with the traps.  
+Unmoving.
 
-I half considered going inside to explore. However, I didn’t really want Kenzie knowing I was here. A single trap going off could be explained by either mechanical failure or an animal. However, me going in there would definitely leave some signs someone was here. Perhaps she would think her sister was here, she was homeless after all. This would be a convenient place to sleep. I was just about to move to the door to open it when I saw something that made my stomach sink. There was blood on the floor. It looked like a smear mark, like something had been dragged. I followed the smear with my flashlight. The smear ended suddenly at what I assumed was a trap door. I could see a rusted handle.  
+Her head tilted at an unnatural angle. Arms limp. That impossible grin stretching her face. 
 
-I rushed to the car and called the police. I told them what hotel I would be going to and waited for an officer to meet me there. From the hotel I was taken to a police station to answer questions. They didn’t tell me what was going on, but they seemed deadly serious. I told them everything, including the admittedly creepy part where I tracked my wife. I would have made up something to cover up that part but I couldn’t think of a reasonable excuse as to how I knew about the hut.  
+My coffee cup shattered on the floor. 
 
-They left me in the interrogation room for a few hours until one of the officers sat across from me to explain what was going on. There were several corpses under the trap door, all of which had human bite marks. My heart sank into my stomach as the realization that my world was falling apart hit me. The only woman I could truly connect with was a monster. I didn’t want to believe my love was so evil. I felt the color fade from my cheeks and I locked eyes with the officer. This act was instinctive. Even with the officer’s blackened eyes, I could see a softness in his expression. He seemed sympathetic to me.  
+"Whoa, easy!" Mike knelt to help. "You okay? You look like you’ve seen a ghost." 
 
-He asked if I wanted to talk to Kenzie so I could get some closure. I don’t know if something like that was standard procedure but I didn’t think too much about that. I agreed, wanting to hear from her. She was led into the interrogation room, her hands and feet were cuffed. Tears were streaming down her cheeks, and her eyes were pitch black. She was chained to her chair so she couldn’t escape or try to attack me. Kenzie didn’t squirm. She didn’t respond to my questions, she just sat there. After a few minutes, she smiled at me. Her chin was trembling. She seemed almost relieved.  
+"Do you see?" I pointed. 
 
-I began to scream and berate her. I needed to know why she did what she did. I needed to know who she really was. That woman in that room wasn’t the woman who I fell in love with. I didn’t know who she was. I had to be pulled out of the room as I kicked and squirmed. They took me to the waiting area for me to relax for a few minutes. One of the female officers asked if I wanted coffee to help me relax. She squeezed my shoulder gently, trying to make me feel more comfortable. Police station coffee is notoriously bad, but it was better than nothing. I nodded in agreement, before looking up at her. Her eyes were a golden hazel. She gave me a little smirk and a wink.  
+Mike frowned. "See what?" 
+
+She was gone. Her vanilla perfume hung thick in the air. The expensive kind I’d bought her. Far stronger than it should’ve been. 
+
+My phone buzzed: 
+
+Sarah: “Thinking of you. Come home soon. 
+
+I called her immediately. 
+
+"Where are you?" My voice cracked. 
+
+"At home, silly." The air conditioner groaned in the background. Then static hissed, and beneath it, breathing. Slow. Hungry. 
+
+I hung up. 
+
+For the rest of the day, I saw her in every reflection. The break room window. My darkened monitor. Watching.
+
+When I left, I found a single black hair on my passenger seat. 
+
+Sarah was a blonde. 
+
+**Journal Entry 3** 
+
+3:17 AM. The clock’s red glow painted our bedroom like blood. 
+
+Sarah’s breathing wasn’t sleep-soft. It was measured. 
+
+In. Hold. Out.
+
+Like counting. Like waiting. 
+
+I turned my head. 
+
+She was already staring at me. Black eyes gleaming. Smile too wide.
+
+"You’re always watching me" she whispered. My own words from last week, thrown back at me in my exact inflection. 
+
+The next morning, every mirror in the house was covered with towels. "I thought you’d appreciate it" Sarah said, scrambling eggs. Humming that lullaby. "Since they seem to bother you lately." 
+
+I hadn’t told her about the mirrors. 
+
+That night, I went to write in my hidden journal. Only to find every page sliced out. In their place, one sentence in my handwriting: "I must be imagining things."
+
+**Journal Entry 4**
+
+"You’re not sleeping" Sarah said, pressing a cold hand to my forehead. "It’s affecting your mind." 
+
+The doctor agreed. "Stress-induced hallucinations," he said, scribbling a prescription. 
+
+Sarah squeezed my hand. "I’ve been so worried." 
+
+At home, she poured the pills into my palm. "These will help" she said softly.
+
+They tasted like metal. My thoughts blurred at the edges. 
+
+That night, I flushed them down the toilet. The water swirled black before clearing. 
+
+Sarah stood in the doorway. "Wasteful" she shouted. "But I do love watching you try."
+
+The next morning, the pills were back in the bottle. All of them. Even the ones I’d swallowed. 
+
+**Journal Entry 5**
+
+The grocery store lights buzzed like wasps. 
+
+I turned, Sarah stood at the end of the aisle. 
+
+Black eyed. Grinning.
+
+A child ran through her. No one reacted. 
+
+My phone buzzed: 
+
+Sarah: “Need anything from the store?”
+
+The reflection leaned in, breath like frost: "She doesn’t love you like I do."
+
+I ran to the parking lot, every reflective surface showed her behind me. 
+
+That night, I dreamt of mirrors again. This time, my reflection had black eyes. 
+
+I woke screaming to Sarah straddling me, her hands pinning my shoulders. 
+
+"Shhh" she whispered, breath cold. "It’s almost time."
+
+**Journal Entry 6** 
+
+The bathroom light flickered as I splashed water on my face. I barely recognized the man in the mirror—shallow, hollow-eyed. 
+
+Then he blinked. Black.
+
+I stumbled back into Sarah’s grip. In the mirror, her reflection grinned, mouth splitting wide with needle teeth glistening.
+
+"Almost time" she whispered. 
+
+I pushed free but the bathroom was empty. The mirror was fogged with breath that wasn’t mine. Written in the condensation: "SOON."
+
+**Journal Entry 7**
+
+I spit the last pill into my palm. Sarah watched from the doorway, head cocked. "You’re not taking them."
+
+The light flickered. Her face stretched, elongating, before snapping back. 
+
+"I don’t need them" I lied. 
+
+"Liar" she firmly stated.
+
+A sheet slipped off the mirror. I didn’t want to look. I had to.
+
+Her reflection stood behind me, fingers digging into my shoulders but the real Sarah was still in the doorway. "You’re mine" the reflection mouthed. 
+
+I yanked the sheet back. Sarah sighed. "You’re being paranoid again." But then her nail lengthened against my lip, just for a second, before retracting. 
+
+I grabbed my phone, flipped to the front camera and my reflection winked. I threw the phone. It shattered. 
+
+From the bedroom, Sarah called: "Everything okay?"
+
+No. 
+
+The thing in the mirror wasn’t just watching anymore. 
+
+It was learning.
+
+ **Journal Entry  8**
+
+The doctor’s office reeked of antiseptic. Sarah clutched my hand. "He thinks I’m not me." Dr. Langford nodded. "The mind under stress plays terrible tricks." 
+
+In the car, I checked the rearview mirror. Black eyes. Grinning.
+
+The real Sarah hummed along to the radio. Two of them now and I couldn’t tell which was which. 
+
+**Journal Entry 9**
+
+The house was too quiet. 
+
+Sarah showered. I searched her nightstand—a locket.
+
+Inside: a single black hair. 
+
+The shower stopped. Sarah appeared, dripping wet. 
+
+"You found it" she whispered. 
+
+Her eyes were black. 
+
+But this time…so were mine.
+
+**Journal Entry 10**
+
+The pills were never for me. 
+
+They were for her. 
+
+To keep her human. 
+
+To keep her from seeing what I’ve become. 
+
+Now, when I look in the mirror, the man who stares back is a stranger. 
+
+Sarah kisses me goodnight, her lips warm. 
+
+Mine are not.
+
+I don’t sleep anymore. 
+
+But she does. 
+
+And when she wakes. I’ll be waiting. 
+
+Black eyed.
+
+Hungry. 
+
+Ready.
