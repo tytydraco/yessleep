@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1k1ixan/im_a_receptionist_at_a_plastic_surgeons_my_boss/) [Part 3](https://www.reddit.com/r/nosleep/comments/1kcdvr4/im_a_receptionist_at_a_plastic_surgeons_my_boss/) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/1k1ixan/im_a_receptionist_at_a_plastic_surgeons_my_boss/) [Part 3](https://www.reddit.com/r/nosleep/comments/1kcdvr4/im_a_receptionist_at_a_plastic_surgeons_my_boss/) [Part 4](https://www.reddit.com/r/nosleep/comments/1khyez3/im_a_receptionist_at_a_plastic_surgeons_my_boss/)
 
 Coming to work after the attack on Rachel was difficult. The entire atmosphere of the clinic had changed. Wilson felt horrible about being unable to protect Rachel from the crazed patient, Rachel was inconsolable after the attack on her and took to wearing a face mask to cover most of it. And Dr. Harrison wasn’t much better after I had walked in on him muttering to himself and murdering the patient who had attacked Rachel. What was strange in all of this was that Dr. Harrison continued to act as if I hadn’t seen him doing it. 
 
