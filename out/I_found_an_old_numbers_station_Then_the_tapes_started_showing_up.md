@@ -86,3 +86,36 @@ Since then, I've been tuning into 14225 online and as I said above, I'm scared a
 Why? 
 
 Last night  I tuned into 14225 and now I know I don’t have much time. Listening to yourself tell you: "Zero. Zero. One. You are next” psychologically destroys you. Please. If anyone has any helpful information,  or have heard of anything else like this, you know what to do.
+
+
+UPDATE: I think I’m going to try to find Mitch.
+
+So first off, thanks to everyone who's dm'd and commented and shared! Some of you have reached out (again, thank you), and I’ve been going through them all. 
+
+One stood out though. 
+
+Mitch.
+
+Where he is now, if I’ve spoken to him recently. Well the truth is, I haven’t.
+
+He stopped showing up a few weeks before WQRC went dark in 2021. No warning, no goodbye. Management said he "moved to Ohio." I tried emailing him last night as soon as I saw the comment but it bounced back. Also, I called the number I had saved but it no longer worked.
+
+But something has been eating at me:
+
+Mitch said, “I used to hear that broadcast as a kid," “Not on a radio though. Through my bedroom wall.”
+
+That never made sense to me. Until now.
+
+I pulled some of our old transmitter logs and FCC filings and I found an address for a decommissioned relay site WQRC used before moving its STL path to the current tower. It’s in the woods outside a town about two hours from me thats been buried in a floodplain that’s been off the grid since 2009.
+
+That reminded me, Mitch used to call it "the dead feed." He joked that the place still hummed, even with the breakers off.
+
+I’m heading there tomorrow night.
+
+If I find anything—if I find Mitch—I’ll update you all. If I don’t... well, the signal probably will.
+
+And if any of you are tuning into 14225 kHz at 2:37 a.m., please let me know what you hear.
+
+Especially if it’s me.
+
+Wish me luck. Hopefully I can update soon. Again, thank you to everyone involved!
