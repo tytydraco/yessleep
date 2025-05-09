@@ -314,7 +314,7 @@ Good night.
 
  
 
- 
+[ Entry No.3](https://www.reddit.com/r/nosleep/comments/1ki5hn7/the_kiosk_entry_no3/)
 
  
 
