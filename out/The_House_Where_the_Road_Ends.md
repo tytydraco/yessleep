@@ -42,7 +42,7 @@ He invited me inside with that same soft, measured smile.
 
 The first thing that hit me wasn’t the silence—it was the smell.
 
-It didn’t stink like rot or mildew. No, it was worse than that. It smelled humid, fleshy—like sweat pressed into fabric, like skin that had been too warm for too long**.** There was an artificial sweetness layered over it, something chemical and perfumed, like off-brand baby powder mixed with Febreze. A failed attempt to mask something organic. 
+It didn’t stink like rot or mildew. No, it was worse than that. It smelled humid, fleshy—like sweat pressed into fabric, like skin that had been too warm for too long. There was an artificial sweetness layered over it, something chemical and perfumed, like off-brand baby powder mixed with Febreze. A failed attempt to mask something organic. 
 
 Despite the smell, the house was spotless. Sterile. Everything arranged just so, like a showroom no one had ever touched. The living room looked like it had been staged from an old catalog—clean lines, soft whites, not a speck of dust. It felt less like a home and more like someone’s idea of what a home should look like.
 
