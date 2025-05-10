@@ -4,7 +4,7 @@ The front door wasn’t locked.
 
 I heard them before I saw them.
 
-The bed creaked. Low voices. Whispered laughter.
+The bed creaking like old floorboards at the Bates Motel. Low voices. Whispered laughter.
 
 Then her voice.
 
@@ -17,6 +17,8 @@ They saw me.
 The world split open.
 
 I never went back.
+
+...
 
 The studio was shitty.
 
@@ -42,35 +44,27 @@ First at night. Then at work.
 
 Then all the time.
 
-I kept bottles of Rolaids in my desk, my pockets, my car. Popped them like candy.
+I kept bottles of Rolaids and Tums in my desk, my pockets, my car. Popped them like candy.
 
-Didn’t help.
+*Didn’t help.*
 
-My daughter stayed with her.
+My daughter stayed with my ex.
 
-She needed her insurance. My insurance. Private, expensive, the kind I could only keep if I kept my job.
+She needed insurance. My insurance. Private, expensive, the kind I could only keep if I kept my job.
 
-I had to keep my job.
+*I had to keep my job.*
 
 But the industry was dying.
 
-No one wanted consultants anymore.
-
-No one was hiring at all.
-
-Layoffs hit every month.
+No one wanted IT consultants anymore. No one was hiring anymore. Layoffs hit every month like a Mike Tyson punch.
 
 HR kept posting bullshit openings they never meant to fill—“future opportunities,” they called them. Future lies.
 
 I was drowning.
 
-Miguel made sure of that.
+Miguel made sure my life preserver was made out of lead and spite. Miguel didn’t just burn employees he tortured them first like a cat with a mouse. He tortured candidates too.
 
-Miguel didn’t just burn employees.
-
-He tortured candidates.
-
-Every consultant interview was a grueling autopsy, stretched over weeks, layered with impossible questions that had nothing to do with the job.
+Every consultant interview was a grueling autopsy, stretched over weeks, layered with impossible questions that had zilch to do with the job.
 
 "What’s the time complexity of sorting infinite data?"
 
@@ -84,165 +78,161 @@ And then—
 
 The guy hesitated. Shifted in his chair.
 
-"Uh… B?"
+"Uh… B?" he intuited.
 
-Miguel grinned. Smacked the table.
+Miguel flashed his patent-pending smirk at full voltage. Smacked the table with his greasy little hands.
 
-"Check out the big brain on Brad!"
+***"Check out the big brain on Brad!"***
 
 The guy forced a smile.
 
 Miguel leaned in. "And what does that help you do?"
 
-Silence.
+*Silence.*
 
 Miguel sneered, sat back, scribbled something onto his notepad.
 
-He never hired him.
+He never hired Brad. Hell, he never hired anyone. Just made them dance, made them sweat, made them question everything—then let their rejection email arrive months later, boilerplate and cold.
 
-He never hired anyone.
+He would tell Marcellus, "Can't hire them if they can't do the job!"
 
-Just made them dance, made them sweat, made them question everything—then let their rejection email arrive months later, boilerplate and cold.
-
-I was one of the unlucky few to get past the gate.
-
-Miguel liked watching people suffer.
+I was one of the unlucky few to get past the gate. I had that kind of face that bullies loved to hate. Miguel liked watching people suffer.
 
 Short. Pockmarked. Always sweating.
 
 Three breakfasts deep by 9 a.m., slurping coffee between mouthfuls of something fried.
 
-He typed with two fingers, stabbing the keyboard like he wanted to break it, muttering under his breath, shaking his head.
+He typed with two fingers, stabbing the keyboard like he wanted to break it, muttering under his breath, shaking his head. Muttering out loud, *"What the fuck did this guy do?!!?!?!?! He can't code! He can't do the job!"*
 
-Every failure—someone else’s fault.
+Every failure—someone else’s fault. Every problem—someone else’s burden. He never stopped banging on those keys like a red-headed step-child except to get up to pee every fifteen minutes; fifteen shots of espresso rattling through his bloodstream, keeping him mean, keeping him loud, keeping him in control.
 
-Every problem—someone else’s burden.
+Once Tim, our DBA asked him if all that coffee didn't make him jittery.
 
-He peed every fifteen minutes—fifteen shots of espresso rattling through his bloodstream, keeping him mean, keeping him loud, keeping him in control.
+*"Doesn't affect me at all! I been drinking it since I am 5 years old. It's a thing."*
 
-And his hair—so stiff with spray you could play quarters on it.
+Tim nodded as if to say, *"Fuhhhhhkke."*
 
-A frozen shield, untouched by sweat or time, like it had been built for war.
+And Miguel's hair—so stiff with spray you could play a game of quarters on it. A frozen shield, untouched by sweat or time, like it had been built for war. Head down steamrolling over every poor soul he crossed paths with who couldn't do something for him.
 
-Miguel saw me for what I was—a consultant hanging by a thread, clawing to stay employed.
+He was the quintessence of kiss up; punch down. And I was down. Way down like the job market.
 
-And he used it.
+Miguel saw me for what I was—a lifelong consultant hanging by a thread, clawing to stay employed and keep my daughter's kidneys from failing.
 
-Every joke at my expense.
-
-Every public teardown.
+And Miguel used my plight for profit and sport. Every joke at my expense. Every public teardown.
 
 ***Trouble in Paradise***
 
-Then the system crashed.
+Then one day the system crashed hard. Right after an update Miguel was responsible for. A total failure. 500 errors flashing on every screen of every user.
 
-Hard.
+Clients screaming. Money bleeding. Marcellus called it a catastrophe and told me to work on isolating the issue.
 
-A total failure.
+I suggested a rollback. Miguel shot me down and said my latest module introduced a memory leak. I knew it was bullshit but held my tongue. No time to gamble with my daughter's well-being.
 
-500 errors flashing on every screen.
-
-Clients screaming. Money bleeding.
+***Triage Time***
 
 Miguel barked orders, snapping at engineers, slamming his fist against desks, refusing to admit the crisis was his fault.
 
-I stayed all night.
+I stayed in the office all night along with Miguel. Everyone else had gone home to get some sleep after midnight.
 
-Getting blamed. Getting abused. Popping Rolaids and ignoring my ex-wife’s texts demanding more money for our daughter’s treatments.
+I was getting blamed. Getting framed.
 
-Miguel paced behind my chair, sucking down another espresso, jittering, muttering—then stopped.
+I felt abused and hopeless. Popping Rolaids and ignoring my ex-wife’s texts demanding more money for our daughter’s treatments as I guzzled coffee risking my own kidneys.
 
-Leaned in.
+Miguel paced behind my chair, sucking down another espresso, jittering, muttering—then stopped. I hated people looking over my shoulder.
 
-Lowered his voice.
+Miguel leaned in. I could smell the sour coffee and cheeseburgers on his breath.
 
-"You know, man," he sighed, shaking his head, "times like these… job security isn’t guaranteed."
+Lowering his voice he said, "You know, man...," then he let out a dramatic sigh and slowly shook his head, "times like these… job security isn’t guaranteed, and I don't think Marcellus wants to renew your contract."
 
 I felt the burn of acid climb my throat.
 
-His voice was calm, casual.
+Miguel, voice calm and casual like he was discussing a weekend outing to the zoo continued.
 
-"We need people who can handle pressure," he continued, watching me sweat, "people who don’t choke when it really matters."
+"We need people who can handle pressure, people who don’t choke when it really matters."
 
-I swallowed hard.
+I swallowed hard and felt the sweat form on my upper lip. I resisted the urge to wipe it away.
 
-Miguel smiled.
+Miguel smiled like a viper. Clapped a hand on my shoulder.
 
-Clapped a hand on my shoulder.
-
-"Hope you’re one of them."
-
-Then he walked away.
+"Hope you’re one of them." Then the rooster walked away.
 
 ***Morning.***
 
-The system was fixed.
+I had caught myself nodding. I wiped some drool off my face and woke my screen up.
 
-CIO Marcellus came in smiling, dragging half the executive team behind him, clapping hands, talking big.
+Don't ask me how but....
 
-"Let’s go get Miguel," he grinned, leading them toward his office.
+**The system was fixed. Up. Running. As if nothing had ever happened.**
 
-"Miguel! Big save, buddy, come on, let’s celebrate!"
+CIO Marcellus came in smiling, dragging half the executive team behind him, glad-handing anyone in arm's length; talking big as his doofy bouffant.
+
+"Let’s go get Miguel! I knew he'd fix it!" he grinned, leading his cohort of enablers toward Miguel's office. I followed sucking on a tums and dreaming of dreaming.
+
+***"Miguel! Big save, buddy, come on, let’s celebrate!"***
 
 Miguel ignored him.
 
-Sat stiffly at his desk, hands flat, head still, as if the lights were on but nothing was home.
+He sat stiffly at his desk, hands flat, head still as the night, as if the lights were on but nothing and no one was home.
 
-Marcellus chuckled, stepped forward, gave him a pat on the back—
+Marcellus chuckled, stepped forward, gave him a congratulatory pat on the back—
 
-Miguel’s head dislodged.
+**Miguel’s head dislodged. It bounced off his keyboard, landed on Marcellus' left wingtip then rolled toward Angela. She screamed!**
 
-The flood poured out.
+Then some screamed, "Good Lord!"
 
-Roaches swarmed Marcellus, crawling into his shellacked hair, twisting through the strands, climbing up his arms, his chest—
+Then the flood. It poured out of Miguel's still rolling neck, mouth, eyes and ears. Roaches, maggots, ants, worms, and even a praying mantis.
 
-He screamed.
+Thousands of bugs swarmed Marcellus, running up his hand and arm where he had just slapped Miguel on the back. Then crawling into his shellacked hair, twisting through the strands, climbing back down his arms, across his tie, his chest—
 
-His heart exploded in his ribs.
+Marcellus screamed. Loud. He tried to get the bugs off him. He swatted at the ones on his chest. Everyone ran for cover. I stood frozen unable to move from just outside Miguel's office door.
 
-And he dropped dead.
+Then Marcellus grimaced. His hand clutching his chest. He looked around and our eyes met. I saw a look that screamed, "This can't be happening. I am the goddamned CIO!"
 
-Police got involved.
+Then his tongue protruded and without further fanfare he dropped dead. He fell prostrate and Miguel's head rolled next to his stopping at an odd angle.
 
-They reviewed the security footage.
+***The Aftermath***
 
-Doug had been in Miguel’s office.
+The police were, of course, involved.
 
-And the server room.
+Security footage was reviewed.
 
-Right at the moment everything had been fixed.
+Doug had been in Miguel’s office. And the server room. Right at the moment everything had been fixed.
 
-They started digging.
+The police detectives started digging.
 
 Two days later, an officer pulled a director aside, face pale.
 
-"Doug’s been dead for over a year."
+"Doug’s been dead a couple of years. Lost his job a Twitter and jumped off his roof."
+
+***Reorg***
 
 I was the only one left who knew how the system worked.
 
 They made me CIO.
 
-Days later, I was at my desk, cleaning it out.
+A couple of days later, I was at my desk in my old cubicle, cleaning it out and preparing to move into Marcellus’ old office once the painters were done.
 
-Moving to Marcellus’ office.
+I found an envelope with my name on it next to a 12 pack of Tums.
 
-I found an envelope.
-
-Opened it.
+I didn't recognize the writing. I tore it open curious as hell.
 
 Inside was a note.
 
 It read:
 
-Sorry about your daughter.
+*Hey Joe,*
 
-I died from kidney failure two years ago and couldn’t leave you hanging.
+*Sorry about your daughter & all the rest.*
 
-You don’t remember, but in college the frat on your hall was hazing me drunk, forcing me to eat a cracker rubbed on a urinal. You saved me. Called them all dicks. Busted the frat boy bully in the nose.
+*I died from kidney failure two years ago and couldn’t leave you hanging.*
 
-You were a senior and I was a freshman, but you were the only guy who ever stood up for me.
+*You don’t remember, but in college the frat on your hall was hazing me drunk, forcing me to eat a cracker rubbed on a urinal. You saved me. Called them all dicks. Busted the frat boy bully in the nose.*
 
-Sincerely, Buggy Dougie.
+*You were a senior and I was a freshman, but you were the only guy who ever stood up for me.*
+
+*Sincerely,*
+
+*Buggy Dougie.*
 
 And just like that, the burning stopped.
 
