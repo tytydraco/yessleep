@@ -143,3 +143,5 @@ What could they be? Ghosts, souls trapped in this tunnel, waiting for it to capt
 Anyways, thanks for being here. Even if you can’t offer me any guidance, just interacting with me is helping me feel more sane. 
 
 Hopefully you hear from me again. 
+
+[Part 3](https://www.reddit.com/r/nosleep/s/UOHc4uZqsr)
