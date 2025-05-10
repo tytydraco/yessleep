@@ -233,5 +233,5 @@ Worst of all, I don't even know why.
 ---
 
 
-[Part 2](https://www.reddit.com/r/nosleep/s/s1snUstXsm)
+[Part 2](https://www.reddit.com/u/Cybercrustacean0/s/VzBgskonn2)
  
