@@ -148,9 +148,9 @@ She watched in horror as her husband *also* fell.  He rolled in the aisle, frot
 
 My uncle stood above him, laughing. “Flopping like fish!”
 
-I tugged with inhuman strength, that’s how my mother always described it, *inhumane strength.* I pulled us both down between the pews, and out the back of the church.
+I tugged with inhuman strength, that’s how my mother always described it, *inhuman strength.* I pulled us both down between the pews, and out the back of the church.
 
-After dragging my mom into the parking lot, I screamed repeatedly to *“Open the car and drive! Drive! Drive! Drive!*
+After dragging my mom into the parking lot, I screamed repeatedly to *“Open the car and drive! Drive! Drive! Drive!"*
 
 My heart was in pure panic.
 
