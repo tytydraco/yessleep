@@ -6,7 +6,7 @@ I stand and wait, peoplewatching to kill time since I forgot to charge my headph
 
 The scheduled arrival time comes and goes. Google Maps says the bus departed. I say it's full of shit.
 
-I wait twenty minutes, then thirty, then forty. I usually would have gone to another stop by this point, or seen if I have any friends going on my work direction I can carpool with, but something keeps me glued to the spot. 
+I wait twenty minutes, then thirty, then forty. I usually would have gone to another stop by this point, or seen if I have any friends going in my work direction I can carpool with, but something keeps me glued to the spot. 
 
 Maybe I'm afraid I'll walk away just as it arrives. Maybe I know deep down that no one I know works in the same neighborhood as me, and wouldn't be able to drive me. Maybe part of me hopes for an excuse to miss work. Either way, I don't budge. My eyes start getting heavy; I slept like crap last night.
 
