@@ -1,4 +1,6 @@
-I came home early.
+***The Beginning***
+
+I came home early to surprise Sheila, roses in hand.
 
 The front door wasn’t locked.
 
@@ -19,6 +21,8 @@ The world split open.
 I never went back.
 
 ...
+
+***Exodus***
 
 The studio was shitty.
 
@@ -50,17 +54,19 @@ I kept bottles of Rolaids and Tums in my desk, my pockets, my car. Popped them l
 
 My daughter stayed with my ex.
 
-She needed insurance. My insurance. Private, expensive, the kind I could only keep if I kept my job.
+She needed insurance. Dialysis wasn't cheap. She needed my insurance. Private, expensive, the kind I could only keep if I kept my shitty job.
 
 *I had to keep my job.*
 
 But the industry was dying.
 
+***The Keeper of the Gate***
+
 No one wanted IT consultants anymore. No one was hiring anymore. Layoffs hit every month like a Mike Tyson punch.
 
 HR kept posting bullshit openings they never meant to fill—“future opportunities,” they called them. Future lies.
 
-I was drowning.
+*I was drowning.*
 
 Miguel made sure my life preserver was made out of lead and spite. Miguel didn’t just burn employees he tortured them first like a cat with a mouse. He tortured candidates too.
 
@@ -98,11 +104,45 @@ He would tell Marcellus, "Can't hire them if they can't do the job!"
 
 I was one of the unlucky few to get past the gate. I had that kind of face that bullies loved to hate. Miguel liked watching people suffer.
 
-Short. Pockmarked. Always sweating.
+***Enter Doug***
 
-Three breakfasts deep by 9 a.m., slurping coffee between mouthfuls of something fried.
+*Doug was one of the only hires who made it onto the team since the market went tits up*
 
-He typed with two fingers, stabbing the keyboard like he wanted to break it, muttering under his breath, shaking his head. Muttering out loud, *"What the fuck did this guy do?!!?!?!?! He can't code! He can't do the job!"*
+No one really understood how he slipped through.
+
+Where others cracked under Miguel’s inquisition, Doug answered cleanly, quickly, precisely.
+
+He barely moved during his interview. No shifting in his chair, no hesitation, no unnecessary gestures. His fingers hovered over the keyboard, still and ready, like they were waiting for some unseen signal before springing into motion.
+
+He was given seven brutal coding challenges he completed fast as if he were writing his sweetie a love letter.
+
+His scores were perfect. Marcellus told Miguel, "Hire him."
+
+Miguel *hated* him. But Doug never blinked.
+
+"Jesus, Doug, you ever *not* stare like that?" he’d snap during meetings.
+
+Doug wouldn’t answer.
+
+Miguel pushed harder.
+
+"Swear to God, you look like you don’t sleep. You're bugging me out, dude!"
+
+Doug tilted his head just slightly, like he was examining a new alien life-form.
+
+Miguel sneered.
+
+"Bet you don’t. Bet you just sit there all night. Watching."
+
+Doug remained still as the night.
+
+Miguel thrived on tormenting him. Yet Doug never fought back, never spoke much. Just worked. Worked and watched.
+
+And Miguel. He just pretended to work and fumed. All five feet four inches of him. Short. Pockmarked. Always sweating.
+
+Three breakfasts deep by 9 a.m., Miguel was chronically slurping coffee between mouthfuls of something fried.
+
+He typed with two fingers, his lips moving, stabbing the keyboard like he wanted to break it, muttering under his breath, shaking his head. Muttering out loud, *"What the fuck did this guy do?!!?!?!?! He can't code! He can't do the job!"*
 
 Every failure—someone else’s fault. Every problem—someone else’s burden. He never stopped banging on those keys like a red-headed step-child except to get up to pee every fifteen minutes; fifteen shots of espresso rattling through his bloodstream, keeping him mean, keeping him loud, keeping him in control.
 
@@ -110,11 +150,11 @@ Once Tim, our DBA asked him if all that coffee didn't make him jittery.
 
 *"Doesn't affect me at all! I been drinking it since I am 5 years old. It's a thing."*
 
-Tim nodded as if to say, *"Fuhhhhhkke."*
+Tim nodded as if to say, *"FuhhhhhhK!"*
 
 And Miguel's hair—so stiff with spray you could play a game of quarters on it. A frozen shield, untouched by sweat or time, like it had been built for war. Head down steamrolling over every poor soul he crossed paths with who couldn't do something for him.
 
-He was the quintessence of kiss up; punch down. And I was down. Way down like the job market.
+He was the quintessence of kiss up, punch down. And I was down. Way down like the job market.
 
 Miguel saw me for what I was—a lifelong consultant hanging by a thread, clawing to stay employed and keep my daughter's kidneys from failing.
 
@@ -122,21 +162,29 @@ And Miguel used my plight for profit and sport. Every joke at my expense. Every 
 
 ***Trouble in Paradise***
 
-Then one day the system crashed hard. Right after an update Miguel was responsible for. A total failure. 500 errors flashing on every screen of every user.
+Then one day the system crashed hard. Right after an update Miguel was responsible for. A total failure.
 
-Clients screaming. Money bleeding. Marcellus called it a catastrophe and told me to work on isolating the issue.
+*The dreaded:*
+
+**500 Internal Server Error** 
+
+*... flashing on every screen of every user.*
+
+Clients screaming. Money bleeding. Roosters pecking. Marcellus called it a catastrophe and told me to work with Miguel on isolating the issue.
 
 I suggested a rollback. Miguel shot me down and said my latest module introduced a memory leak. I knew it was bullshit but held my tongue. No time to gamble with my daughter's well-being.
 
-***Triage Time***
+***Triage Time aka The All Nighter***
 
 Miguel barked orders, snapping at engineers, slamming his fist against desks, refusing to admit the crisis was his fault.
 
 I stayed in the office all night along with Miguel. Everyone else had gone home to get some sleep after midnight.
 
-I was getting blamed. Getting framed.
+*I was getting blamed. Getting framed.*
 
-I felt abused and hopeless. Popping Rolaids and ignoring my ex-wife’s texts demanding more money for our daughter’s treatments as I guzzled coffee risking my own kidneys.
+I felt abused and hopeless and exhausted from no sleep.
+
+Popping Rolaids and ignoring my ex-wife’s texts demanding more money for our daughter’s treatments as I guzzled coffee risking my own kidneys.
 
 Miguel paced behind my chair, sucking down another espresso, jittering, muttering—then stopped. I hated people looking over my shoulder.
 
@@ -154,11 +202,11 @@ I swallowed hard and felt the sweat form on my upper lip. I resisted the urge to
 
 Miguel smiled like a viper. Clapped a hand on my shoulder.
 
-"Hope you’re one of them." Then the rooster walked away.
+"Hope you’re one of them. Especially for your daughter's sake." Then the rooster waddled away for his fourth lunch or dinner or whatever kept his lard-ass neck and neck with his ego.
 
-***Morning.***
+***Dread Dawn.***
 
-I had caught myself nodding. I wiped some drool off my face and woke my screen up.
+I had caught myself nodding off. I wiped some drool off my face and woke my screen up.
 
 Don't ask me how but....
 
@@ -166,7 +214,7 @@ Don't ask me how but....
 
 CIO Marcellus came in smiling, dragging half the executive team behind him, glad-handing anyone in arm's length; talking big as his doofy bouffant.
 
-"Let’s go get Miguel! I knew he'd fix it!" he grinned, leading his cohort of enablers toward Miguel's office. I followed sucking on a tums and dreaming of dreaming.
+"Let’s go get Miguel! I knew he'd fix it!" he grinned, leading his cohort of enablers toward Miguel's office. I followed sucking on a *Tums* and dreaming of dreaming.
 
 ***"Miguel! Big save, buddy, come on, let’s celebrate!"***
 
@@ -202,7 +250,9 @@ The police detectives started digging.
 
 Two days later, an officer pulled a director aside, face pale.
 
-"Doug’s been dead a couple of years. Lost his job a Twitter and jumped off his roof."
+"Doug’s been dead a couple of years. Lost his job at Twitter and jumped off his roof. We got a warrant and exhumed the body, and well that was Doug in that coffin; DNA confirmed it."
+
+Nobody ever mentioned Doug again after that.
 
 ***Reorg***
 
@@ -212,28 +262,44 @@ They made me CIO.
 
 A couple of days later, I was at my desk in my old cubicle, cleaning it out and preparing to move into Marcellus’ old office once the painters were done.
 
-I found an envelope with my name on it next to a 12 pack of Tums.
+Inside the top drawer of my desk I spied an unfamiliar envelope with my name handwritten on it under a 12 pack of Tums.
 
-I didn't recognize the writing. I tore it open curious as hell.
+I didn't recognize the handwriting. I tore the envelope open curious as George.
 
-Inside was a note.
+Inside was a handwritten note that read:
 
-It read:
+...
 
 *Hey Joe,*
 
 *Sorry about your daughter & all the rest.*
 
-*I died from kidney failure two years ago and couldn’t leave you hanging.*
+*I died from kidney failure just about two years ago and when I saw what was going on, well, well I just couldn’t leave you hanging.*
 
-*You don’t remember, but in college the frat on your hall was hazing me drunk, forcing me to eat a cracker rubbed on a urinal. You saved me. Called them all dicks. Busted the frat boy bully in the nose.*
+*I know you don’t remember me, but back in college the frat on your hall was hazing me drunk as a skunk. I'll never forget them trying to get me to eat that Ritz cracker rubbed on a urinal.*
 
-*You were a senior and I was a freshman, but you were the only guy who ever stood up for me.*
+*That's when you came in to take a piss and saw the whole scene.  I remember you telling me, "they ain't your friends."*
+
+*I remember you calling them all douch*e *bags. Then I remember one of them Grand Poobahs got in your face posturing for all his brothers.*
+
+*That was Halloween 1989.*
+
+*You were dressed like Humphrey Bogart in a trench coat and fedora.*
+
+*You headbutted the biggest guy, you remember Alex don't you. What a bully. Then you started slapping him across his face with the front and back of your hand and said, and I'll never forget, "When you're slapped; you'll take it and like it."*
+
+*You were a senior and I was just a freshman, but you were the only guy who ever stood up for me like that in my life.*
+
+*After that night I forgot all about Greek life but I never forgot that night and you being a stand-up guy.*
+
+*Anyway, I just wanted to say thanks in my own way.*
 
 *Sincerely,*
 
 *Buggy Dougie.*
 
-And just like that, the burning stopped.
+*...*
+
+And just like that, the burning in my throat stopped.
 
 Or maybe—I just couldn’t feel it anymore.
