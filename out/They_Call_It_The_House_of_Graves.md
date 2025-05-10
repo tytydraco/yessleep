@@ -1,7 +1,7 @@
 Part One
 
-My house was new to me, old by any other aspect. Where we moved to, old equaled cheap, and as a former self-emancipated teen and current broke adult, cheap was almost too much to afford.  
-  
+My house was new to me, old by any other aspect. Where we moved to, old equaled cheap, and as a former self-emancipated teen and current broke adult, cheap was almost too much to afford.
+
 I’m grateful that my friends helped me with the move. When I’d left my parents’ house for the last time, I took nothing but what could fit in a bag, the clothes on my back, and the money I’d earned through back breaking work at the factory my father had worked for over thirty years. The old man would’ve noticed if I’d taken anything more and being discreet was the only reason I got out of there without getting pummeled all over my scrawny body. Or worse. But maybe nothing is worse than the desert town called Halliton.
 
 Far away from any family, far away from most things, was Halliton. It was a Southward drive shy of an hour down into Santa Fe, where my new community college classes were, but far enough to feel alone in the world. The place, despite being so rural, felt like a literal oasis at the end of those absurdly long stretches of roads we took there in our cars, loaded up with stuff. I didn’t have much, never had. My friends – Rebecca, Martin, and Raul – agreed to help me take my stuff from my shitty old apartment and into Raul’s truck.
@@ -96,8 +96,8 @@ He laughed as though it were obvious, but as Raul was the one who found the plac
 
 “Good, know you guys like beer. A six pack and pizza always hits the spot.”
 
-I furrowed my brow a little at that, amused how accurate he was about move-in night. Were twenty-somethings easy to clock as still having their college tastes?  
-  
+I furrowed my brow a little at that, amused how accurate he was about move-in night. Were twenty-somethings easy to clock as still having their college tastes?
+
 "Well, be seeing ya."
 
 He nodded and left, pulling the collar of his vest up to his ears as the winds blew sharper with the coming night.
@@ -110,8 +110,8 @@ Have you ever had the feeling of knowing someone is home, even if you’re on yo
 
 The only car parked around the house was my own. Unlikely anyone but me was home. I tried to shake it, but I ended up sleeping on the sofa. New place jitters. I hadn’t lived in a house in about five years, and assumed it was the size, the emptiness, that got to me.
 
-I dicked around on my phone for a few before putting on some podcast to fall asleep to. I’m the kind of person that can’t sleep without noise. As I was falling asleep, I heard someone loudly moving overhead, but was too close to dreaming to wake up.  
-  
+I dicked around on my phone for a few before putting on some podcast to fall asleep to. I’m the kind of person that can’t sleep without noise. As I was falling asleep, I heard someone loudly moving overhead, but was too close to dreaming to wake up.
+
 Then someone *was* home, but how? Did one of the three walk home? Did Martin drop off Rebecca, or the reverse? Whoever it was went down the stairs, then back up, then down again, then back up. They were clearly searching through everything, there was so much thumping that I was sure they’d retrieved something huge from their room. Outrageously loud. I sat up and was rightfully annoyed.
 
 “Who the fuck is up there?” I called loud enough to reach upstairs.
@@ -216,8 +216,6 @@ Martin put himself between me and Raul with clear intention to diffuse the comin
 
 …
 
-
-
 That night, the gas station shift was going by like normal. I actually liked the overnight shift. It paid hella well for what it was, and I was sort of enjoying the zen of stocking shelves with nothing but the sound of humming refrigerators and the occasional trucker making a snack or piss run before heading out on the road. I’d probably like being a truck driver, if it weren’t for the fact I was determined to get that degree.
 
 Cohan, a regular who showed up around two AM most nights in his eighteen wheeler, and always bought out the Corn Nuts from their peg. I hated those things, but he said they went well with his smokes, of which he bought two packs of as well. Who was I to hate on someone’s road snacks? He was a big guy, the quiet type. He was the kind of guy who concealed carried but in a comforting way, the sort to put you behind him before he pulled the trigger.
@@ -266,7 +264,7 @@ I shook my head. “Not to my knowledge.”
 
 “You keep them on you all the time?” I arched a brow as she pulled them from her purse.
 
-“They work good when they soak up my vibrations.” 
+“They work good when they soak up my vibrations.”
 
 Okay. Made total sense. I think.
 
@@ -327,3 +325,5 @@ Through the veil of sleep, either the sleep of that afternoon, or the one that o
 It *was* Raul.
 
 But he didn't have a face.
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1kjc818/the_house_of_graves_part_two/)
