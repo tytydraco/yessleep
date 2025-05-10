@@ -16,8 +16,6 @@ They saw me.
 
 The world split open.
 
-
-
 I never went back.
 
 The studio was shitty.
@@ -48,8 +46,6 @@ I kept bottles of Rolaids in my desk, my pockets, my car. Popped them like candy
 
 Didn’t help.
 
-
-
 My daughter stayed with her.
 
 She needed her insurance. My insurance. Private, expensive, the kind I could only keep if I kept my job.
@@ -69,8 +65,6 @@ HR kept posting bullshit openings they never meant to fill—“future opportuni
 I was drowning.
 
 Miguel made sure of that.
-
-
 
 Miguel didn’t just burn employees.
 
@@ -112,8 +106,6 @@ Just made them dance, made them sweat, made them question everything—then let 
 
 I was one of the unlucky few to get past the gate.
 
-
-
 Miguel liked watching people suffer.
 
 Short. Pockmarked. Always sweating.
@@ -140,51 +132,15 @@ Every joke at my expense.
 
 Every public teardown.
 
-But the worst was when he compared me to Rick.
+***Trouble in Paradise***
 
-Rick was a senior dev. Stable, permanent, valuable. Not like me.
+Then the system crashed.
 
-"You know, Rick would’ve had this fixed hours ago," Miguel muttered, shaking his head, sighing dramatically. "Guess not everyone’s cut out for high-pressure work."
-
-I kept my face blank. Didn’t react. Didn’t let myself look at Rick.
-
-Miguel leaned in. "You just have to keep your head, huh?"
-
-Laughter.
-
-The others didn’t look at me.
-
-Miguel smiled, satisfied.
-
-
-
-Then Doug arrived.
-
-Doug was quiet. Unshaken.
-
-We noticed little things.
-
-Never blinked enough.
-
-Sat too still.
-
-Cracked his neck just a little too far.
-
-Hands always twitching, fingers curling absentmindedly, like they weren’t used to resting.
-
-Sometimes he’d rub his arms—like something was crawling under his skin.
-
-Sometimes his jaw would tighten—like he was suppressing something.
-
-Miguel hated him immediately.
-
-Doug fixed things Miguel had claimed were unfixable, made accreditation possible, made Miguel furious.
-
-Then the software running the entire company collapsed.
+Hard.
 
 A total failure.
 
-Everything down.
+500 errors flashing on every screen.
 
 Clients screaming. Money bleeding.
 
@@ -193,8 +149,6 @@ Miguel barked orders, snapping at engineers, slamming his fist against desks, re
 I stayed all night.
 
 Getting blamed. Getting abused. Popping Rolaids and ignoring my ex-wife’s texts demanding more money for our daughter’s treatments.
-
-Doug was nowhere to be found.
 
 Miguel paced behind my chair, sucking down another espresso, jittering, muttering—then stopped.
 
@@ -220,15 +174,13 @@ Clapped a hand on my shoulder.
 
 Then he walked away.
 
-
-
-Morning.
+***Morning.***
 
 The system was fixed.
 
 CIO Marcellus came in smiling, dragging half the executive team behind him, clapping hands, talking big.
 
-"Let’s go get Miguel," he grinned, leading them toward his office, still giddy off the win.
+"Let’s go get Miguel," he grinned, leading them toward his office.
 
 "Miguel! Big save, buddy, come on, let’s celebrate!"
 
@@ -240,23 +192,37 @@ Marcellus chuckled, stepped forward, gave him a pat on the back—
 
 Miguel’s head dislodged.
 
-It slid off his shoulders, wet and sickening, as if it had only been loosely attached all along.
+The flood poured out.
 
-Then his throat convulsed.
+Roaches swarmed Marcellus, crawling into his shellacked hair, twisting through the strands, climbing up his arms, his chest—
 
-A shudder. A slow, wet tremor—
+He screamed.
 
-And the bugs erupted.
+His heart exploded in his ribs.
 
-The burning in my throat reached its peak.
+And he dropped dead.
 
-I almost choked.
+Police got involved.
 
+They reviewed the security footage.
 
+Doug had been in Miguel’s office.
+
+And the server room.
+
+Right at the moment everything had been fixed.
+
+They started digging.
+
+Two days later, an officer pulled a director aside, face pale.
+
+"Doug’s been dead for over a year."
+
+I was the only one left who knew how the system worked.
+
+They made me CIO.
 
 Days later, I was at my desk, cleaning it out.
-
-Promoted to CIO.
 
 Moving to Marcellus’ office.
 
@@ -277,8 +243,6 @@ You don’t remember, but in college the frat on your hall was hazing me drunk, 
 You were a senior and I was a freshman, but you were the only guy who ever stood up for me.
 
 Sincerely, Buggy Dougie.
-
-
 
 And just like that, the burning stopped.
 
