@@ -119,3 +119,5 @@ And if any of you are tuning into 14225 kHz at 2:37 a.m., please let me know wha
 Especially if it’s me.
 
 Wish me luck. Hopefully I can update soon. Again, thank you to everyone involved!
+
+See next entry [here](https://www.reddit.com/r/nosleep/s/p8E5iChgdE)

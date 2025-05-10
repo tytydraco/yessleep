@@ -67,3 +67,5 @@ I’m in the dark just as much as you are.
 If anyone is still listening at 2:37 a.m.—and if you hear anything—please tell me what you hear.
 
 Or anything at all. Any advice would be greatly appreciated.
+
+See previous entry [here](https://www.reddit.com/r/nosleep/s/1HcqhJVzko)
