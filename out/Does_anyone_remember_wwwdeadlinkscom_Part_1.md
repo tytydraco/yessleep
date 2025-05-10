@@ -380,6 +380,4 @@ Grinning. A too-wide, too-sharp, toothy grin.
 
 And this time, it didn’t disappear.
 
-**\[END OF PART 1\]**
-
 [Part 2](https://www.reddit.com/r/nosleep/comments/1kbm5ls/does_anyone_remember_wwwdeadlinkscom_part_2/)
