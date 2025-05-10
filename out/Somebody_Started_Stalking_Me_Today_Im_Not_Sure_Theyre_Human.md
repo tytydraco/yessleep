@@ -1,4 +1,4 @@
-Trips to the supermarket are usually safe. My Saturday outing to mine began a year long ordeal that I’m still putting the pieces together for.
+Trips to the supermarket are usually safe. A simple Saturday outing to mine began a long ordeal that I’m still dealing with.
 
 Peanut butter, bread, and deli meat. Those were the last few items on my shopping list.
 
