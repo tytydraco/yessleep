@@ -16,9 +16,11 @@ I stepped into the doorway.
 
 They saw me.
 
-The world split open.
+My wife and my best friend, Jack.
 
-I never went back.
+That's when the world I knew caught hellfire and I became its first ember.
+
+I turned my back on my home for the last time.
 
 ...
 
@@ -184,19 +186,23 @@ I stayed in the office all night along with Miguel. Everyone else had gone home 
 
 I felt abused and hopeless and exhausted from no sleep.
 
-Popping Rolaids and ignoring my ex-wife’s texts demanding more money for our daughter’s treatments as I guzzled coffee risking my own kidneys.
+Popping Rolaids and ignoring my ex-wife’s slew of texts demanding more money. Money to take our daughter to more specialists not covered by my shitty but expensive as fuck insurance. I guzzled more shitty office coffee, risking my own kidneys in some twisted form of solidarity, I supposed.
 
-Miguel paced behind my chair, sucking down another espresso, jittering, muttering—then stopped. I hated people looking over my shoulder.
+Miguel waddled in circles behind my chair, wearing out the shitty gray office carpet.
 
-Miguel leaned in. I could smell the sour coffee and cheeseburgers on his breath.
+He was sucking down yet another espresso, jittery as fuck, muttering to himself incessantly—then he suddenly stopped behind my chair.
 
-Lowering his voice he said, "You know, man...," then he let out a dramatic sigh and slowly shook his head, "times like these… job security isn’t guaranteed, and I don't think Marcellus wants to renew your contract."
+*I hated people looking over my shoulder.*
 
-I felt the burn of acid climb my throat.
+Miguel leaned in close until I could smell the sour coffee and cheeseburgers on his breath.
+
+Lowering his voice he said, "You know, man...," before letting out a dramatic sigh and slowly shaking his head to and fro, "times like these… job security isn’t guaranteed. I don't think Marcellus wants to renew your contract. You can lose your job."
+
+I felt the burn of acid climb my throat like an adamant gorilla.
 
 Miguel, voice calm and casual like he was discussing a weekend outing to the zoo continued.
 
-"We need people who can handle pressure, people who don’t choke when it really matters."
+"We need people who can handle *pressure*, people who don’t choke when it really matters."
 
 I swallowed hard and felt the sweat form on my upper lip. I resisted the urge to wipe it away.
 
@@ -230,13 +236,15 @@ Then some screamed, "Good Lord!"
 
 Then the flood. It poured out of Miguel's still rolling neck, mouth, eyes and ears. Roaches, maggots, ants, worms, and even a praying mantis.
 
-Thousands of bugs swarmed Marcellus, running up his hand and arm where he had just slapped Miguel on the back. Then crawling into his shellacked hair, twisting through the strands, climbing back down his arms, across his tie, his chest—
+Thousands of bugs swarmed Marcellus, running up his hand and arm where he had just slapped Miguel on the back. Then crawling into his shellacked hair from every conceivable direction, twisting through the strands, climbing back down his arms, across his tie, his chest, all over that fucking suit he must have had seven identical copies of.
 
-Marcellus screamed. Loud. He tried to get the bugs off him. He swatted at the ones on his chest. Everyone ran for cover. I stood frozen unable to move from just outside Miguel's office door.
+Marcellus screamed. Loud.
 
-Then Marcellus grimaced. His hand clutching his chest. He looked around and our eyes met. I saw a look that screamed, "This can't be happening. I am the goddamned CIO!"
+He frantically tried to get the bugs off him. He swatted at the ones on his chest. Everyone in the room ran for cover. I stood frozen unable to move from just outside Miguel's office door. Within seconds Marcellus was covered in a bug suit.
 
-Then his tongue protruded and without further fanfare he dropped dead. He fell prostrate and Miguel's head rolled next to his stopping at an odd angle.
+Then Marcellus' bug covered face grimaced. His hand clutching his chest. He looked around and our eyes met. I saw a look that screamed, "This can't be happening. I am the goddamned CIO!"
+
+Then his eyes rolled back in his bug covered head and his tongue protruded. And, without further fanfare Marcellus dropped dead. He fell to the shitty gray office carpet next to Miguel's head which rolled next to his own, coming to rest at an odd angle.
 
 ***The Aftermath***
 
@@ -274,29 +282,37 @@ Inside was a handwritten note that read:
 
 *Sorry about your daughter & all the rest.*
 
-*I died from kidney failure just about two years ago and when I saw what was going on, well, well I just couldn’t leave you hanging.*
+*I died from kidney failure just about two years ago and when I saw what you were going through, well, well I just couldn’t leave you hanging.*
 
-*I know you don’t remember me, but back in college the frat on your hall was hazing me drunk as a skunk. I'll never forget them trying to get me to eat that Ritz cracker rubbed on a urinal.*
+*I know you don’t remember me, but back in college the frat guys on your hall were hazing drunk-as-a-skunk me.*
+
+*I'll never forget them trying to get me to eat that Ritz cracker rubbed on a urinal and worse.*
 
 *That's when you came in to take a piss and saw the whole scene.  I remember you telling me, "they ain't your friends."*
 
-*I remember you calling them all douch*e *bags. Then I remember one of them Grand Poobahs got in your face posturing for all his brothers.*
+*I remember you calling them all douch*e *bags. Then I remember one of them Grand Poobahs got in your face, posturing for all his brothers.*
 
-*That was Halloween 1989.*
+*That was Halloween 1988.*
 
 *You were dressed like Humphrey Bogart in a trench coat and fedora.*
 
-*You headbutted the biggest guy, you remember Alex don't you. What a bully. Then you started slapping him across his face with the front and back of your hand and said, and I'll never forget, "When you're slapped; you'll take it and like it."*
+*You headbutted the biggest guy, you remember Alex, don't you? What a bully! Then you grabbed him by his frat hoodie with one hand and started slapping him across his face with the front and back of your other hand.*
+
+*I'll never forget what you said while you slapped him, "When you're slapped; you'll take it and like it."*
 
 *You were a senior and I was just a freshman, but you were the only guy who ever stood up for me like that in my life.*
 
-*After that night I forgot all about Greek life but I never forgot that night and you being a stand-up guy.*
+*After that night I forgot all about Greek life, but I never forgot that night and I never forgot you being a stand-up guy.*
 
-*Anyway, I just wanted to say thanks in my own way.*
+*So, I just wanted to say a belated thanks in my own way.*
 
 *Sincerely,*
 
-*Buggy Dougie.*
+*"Buggy" Dougie.*
+
+*PS*
+
+*Don't let the bed bugs bite ;D*
 
 *...*
 
