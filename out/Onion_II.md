@@ -1,7 +1,6 @@
 COPE II: THE SILENT SOWING
 
-“It is not the root that invades the earth. 
-It is the earth that, in its weakness, invites it.”
+“It is not the root that invades the earth. It is the earth that, in its weakness, invites it.”
 
 Three weeks have passed since Mateo escaped from the depths.
 
@@ -26,16 +25,16 @@ Days later, the young doctor disappeared. The hospital said he left without leav
 "The portals no longer open. Now they germinate."
 
 Since then, strange news begins to appear on the radio and television:
-- A school in Bolivia sank underground without a trace.
-- Entire fields of corn in Kansas bloomed in the dead of night, covered in “eye-like flowers.”
-- In Japan, a mountain tunnel collapsed and what they found underneath was not rock... it was plant meat.
+
+•	⁠A school in Bolivia sank underground without a trace.
+•	⁠Entire fields of corn in Kansas bloomed in the dead of night, covered in “eye-like flowers.”
+•	⁠In Japan, a mountain tunnel collapsed and what they found underneath was not rock... it was plant meat.
 
 Humanity does not know it yet, but the invasion will not be by assault. It will be by substitution. Silent. Natural.
 
 Cépula does not attack. Cellula blooms.
 
 And Mateo is the first harvest of the surface.
-
 
 CHAPTER 2: TRANSFORMATION
 
@@ -49,7 +48,7 @@ One day, his reflection was no longer the same. His left eye had an elongated pu
 
 The news continued. Governments denying outbreaks, reports of "mass hallucinations" in rural areas, disappearances of entire towns in Siberia and Africa. Crops rotted, but at the same time new species began to grow. More resistant. More aggressive.
 
-Mateo decided to get out of his isolation. He had to understand what was happening to him. He searched forums, networks, books. This is how he found a journalist: **Anika Rössler**, German, specialized in paranormal phenomena. She had seen it too. He had records of an identical case in 1871, where an entire village in Alsace was swallowed by the earth. They called it “the Green March.”
+Mateo decided to get out of his isolation. He had to understand what was happening to him. He searched forums, networks, books. This is how he found a journalist: Anika Rössler, German, specialized in paranormal phenomena. She had seen it too. He had records of an identical case in 1871, where an entire village in Alsace was swallowed by the earth. They called it “the Green March.”
 
 They quote. Anika travels. Upon arrival, Mateo can barely hide his transformation. But she doesn't run away. Record it. He studies it. Believe it.
 
@@ -57,9 +56,9 @@ And the worst: he admires him.
 
 "Maybe you're not a victim, Mateo," she tells him as she caresses one of the roots that protrudes from his shoulder. Maybe you are the first step of a new humanity.
 
-In the following weeks, more visitors arrive at the farm. Not out of curiosity, but out of faith. They are **The Cult of the Bulb**. They dress in tunics made of sacks and dried skin. Pieces of meat are torn off as an offering to the earth. They sing in the early mornings and drink a thick liquid that they extract from a black onion buried under the house.
+In the following weeks, more visitors arrive at the farm. Not out of curiosity, but out of faith. They are The Cult of the Bulb. They dress in tunics made of sacks and dried skin. Pieces of meat are torn off as an offering to the earth. They sing in the early mornings and drink a thick liquid that they extract from a black onion buried under the house.
 
-One of them calls himself **El Arraigado**. He claims to be the first to hear Cépula's voice from the Andes, decades ago. Now his legs are fused with roots that he himself planted in his body. He doesn't walk anymore. They drag him like a prophet.
+One of them calls himself El Arraigado. He claims to be the first to hear Cépula's voice from the Andes, decades ago. Now his legs are fused with roots that he himself planted in his body. He doesn't walk anymore. They drag him like a prophet.
 
 Mateo begins to lose his will. His thoughts are getting greener. Literally. When you close your eyes, you see infinite fields. When he sleeps, his fingers sink into the ground.
 
