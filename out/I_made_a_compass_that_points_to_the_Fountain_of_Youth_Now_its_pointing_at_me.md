@@ -95,6 +95,8 @@ It feels like forgetting.
 I don’t think I found the Fountain.
 I think I passed it.
 And I think something followed me back.
+
+
 The compass isn’t drifting anymore.
 I am.
 And I don’t know how far I’m going.
