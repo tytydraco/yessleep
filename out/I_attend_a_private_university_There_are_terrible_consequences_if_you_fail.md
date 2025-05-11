@@ -14,7 +14,7 @@ I unwrapped a fresh pack and smacked one end against my hand. As I brought the l
 
 I looped an arm under his shoulder and pulled him up. “Kidding. You alright?”
 
-His legs were shaking so I set him against the wall and lit another dart while he caught his breath. Once the head rush set in, I offered it to him.
+His legs were shaking so I set him against the wall and lit another dart while he caught his breath. Once the head rush set in I offered it to him.
 
 He shook his head. “I don’t smoke.”
 
@@ -50,7 +50,7 @@ We finished the nicotine in silence. Before we headed back in, Max and I exchang
 
  
 
-The morning of the exam I found myself in the small bathroom of my dorm, painting the porcelain with last night’s half-digested dinner. Sleep had progressively deteriorated throughout the week.
+The morning of the exam I found myself in the small bathroom of my dorm painting the porcelain with last night’s half-digested dinner. Sleep had progressively deteriorated throughout the week.
 
 Not just me though. The last few nights I’d stumble over the bodies of snoozing students. Couldn't make it home from the library, so they curled up right there on the corner of the street. I’d never seen that before.
 
@@ -58,7 +58,7 @@ The air around campus was soaked with dread. Max had texted me the night before 
 
 He moaned about how if he’d known the reality of this place he’d never have gone here. I nodded, but I wanted to say, ‘no shit.’
 
-His parents had told him with his test scores, he could get into the most prestigious university in the world. So elite that its existence was unknown to the 99.9% of the population destined for mediocrity. Visions of a world class life broke the camel’s back and now he was here.
+His parents had told him with his test scores he could get into the most prestigious university in the world. So elite that its existence was unknown to the 99.9% of the population destined for mediocrity. Visions of a world class life broke the camel’s back and now he was here.
 
 Can't judge.
 
@@ -98,9 +98,9 @@ Scattered pockets of buzzing voices sprouted around the room. Typically, it had 
 
 The Educator on stage was almost giddy, shifting his weight from foot to foot. An unseen weight was beginning to fill the room. Max kept looking over, hoping his gaze would elicit some form of offered comfort from me. I had none to give.
 
-“We’ll begin our exam now. There is no need for pens or pencils. You may stand, walk around, and as always, you may not leave the room. But first, please check beneath your seat for your test materials.”
+“We’ll begin our exam now. There is no need for pens or pencils. You may stand, walk around, and as always you may not leave the room. But first, please check beneath your seat for your test materials.”
 
-Confused looks and the soft rumble of movement began to crescendo. Max shrugged after he had gone down and come up, empty handed. I leaned forward and reached beneath my seat. I flailed my arm around until it brushed over something, chilly and dense. I tightened my grip and with a nauseating certainty pulled the object into view.
+Confused looks and the soft rumble of movement began to crescendo. Max shrugged after he had gone down and come up empty handed. I leaned forward and reached beneath my seat. I flailed my arm around until it brushed over something, chilly and dense. I tightened my grip and with a nauseating certainty pulled the object into view.
 
 A black 9 mm napped in my hand. It was a gun I was familiar with from previous curriculum.
 
@@ -158,9 +158,9 @@ The 9 mm lay only a few feet from the scuffle and Max fumbled for it with his fr
 
 The gun clicked when he pulled the trigger. Jacob flexed his fingers. Nothing. He brought the pistol to his face and hurried to fix the jam. By then I was able to deliver my own punch.
 
-My form was flimsy, and I felt my wrist pop when my arm followed through. I must’ve hit a sweet spot because he stiffened up and fell back on his ass. He looked at me confused, like he was hoping I could explain something to him before Max jumped with an arm raised overhead.
+My form was flimsy and I felt my wrist pop when my arm followed through. I must’ve hit a sweet spot because he stiffened up and fell back on his ass. He looked at me confused, like he was hoping I could explain something to him before Max jumped with an arm raised overhead.
 
-When he landed on Jacob, he brought the butt of the gun down in a devastating blow that split his forehead into a wicked crimson smile. The confused look turned into a blank one. Another wet crunch and his arms jerked into the fencing response. An artistic splatter of blood painted Max’s face as he raised his arm over and over and over again until Jacob’s head was an uneven mountain range of peaks and valleys.
+When he landed on Jacob he brought the butt of the gun down in a devastating blow that split his forehead into a wicked crimson smile. The confused look turned into a blank one. Another wet crunch and his arms jerked into the fencing response. An artistic splatter of blood painted Max’s face as he raised his arm over and over and over again until Jacob’s head was an uneven mountain range of peaks and valleys.
 
 My pulse in my ears had subsided allowing me to hear again. The groups nearest us had paused their deliberations to watch in horror.
 
@@ -176,6 +176,6 @@ Dinner that night was delicious. Max hadn’t lied. He finished three entrees be
 
 “It’s on him,” Max said when the waiter asked if the check needed splitting. I smiled and nodded.
 
-We walked home that night, bellies full and minds empty. In front of Max’s dorm, we shook hands, hugged, and promised to keep in touch. I wished him the best and good luck. A bus was meeting the graduates tomorrow to take us to an airport, and then home.
+We walked home that night, bellies full and minds empty. In front of Max’s dorm we shook hands, hugged, and promised to keep in touch. I wished him the best and good luck. A bus was meeting the graduates tomorrow to take us to an airport, and then home.
 
 And after that, I don’t know. I’m sure my post-academia bliss will not last long. The future waiting for me is impatient. Eventually someone or something will call upon me and my ‘talents’. The Educators said our careers are already written for us. So, all that’s left to do is wait.
