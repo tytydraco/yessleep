@@ -466,6 +466,4 @@ This is probably going to be my last update before we go into Zane’s. If I don
 
 And besides, at least I’ll be going down with a friend. That’s more than others who died here can say.
 
- 
-
- 
+ [Next Update](https://www.reddit.com/r/nosleep/comments/1kk9z1v/im_trapped_on_the_edge_of_an_abyss_the_buildings/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
