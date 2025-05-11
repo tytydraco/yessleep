@@ -22,7 +22,7 @@ Every night at one I would leave my room and walk around the house with nothing 
 
 And yet, there was nothing.  
 
-I knew it hadn’t completely disappeared because that familiar feeling still stuck to my skin. I knew it hadn't complete disappeared because that familiar feeling still stuck to my skin like honey. The feeling that I was being watched. It was still there, still standing, still watching. But not advancing. It was merely… waiting. But for what?  
+I knew it hadn't complete disappeared because that familiar feeling still stuck to my skin like honey. The feeling that I was being watched. It was still there, still standing, still watching. But not advancing. It was merely… waiting. But for what?  
 
 It was 1:30 and like the past few days, I was standing in the middle of the dark kitchen. My phone was pointing to the left, illuminating Hades' water bowl as he drank from it. I attempted to lower the device but as soon as the darkness began to touch the tips of his ears I was met with quite the ferocious glare.  
 

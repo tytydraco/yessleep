@@ -88,7 +88,4 @@ I needed sleep, but knew it would be nearly impossible, and so I popped a few sl
 
 Suddenly, I had no desire to sleep anymore, but the pills were already doing their job. I wanted to stay alert in case whoever was outside my door returned, but fighting against the drowsiness was like trying to outrun a monster in a nightmare. The last thing I imagined before I slipped into unconsciousness was my own face smiling jubilantly as a hammer smashed my hand into a bloody pulp.
 
-  
-
-
-[Update #1](https://www.reddit.com/user/11velociraptors/comments/1kb1bji/i_found_my_doppelganger_on_the_dark_web_now_her/)
+[Link to Next Part](https://www.reddit.com/user/11velociraptors/comments/1kb1bji/i_found_my_doppelganger_on_the_dark_web_now_her/)
