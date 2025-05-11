@@ -4,7 +4,7 @@ It was just me and two other friends from our dorm days, but they’d been flood
 
 >kat: can you believe this?! aaron died this monday.
 
-It caught me off guard. Aaron had been my boyfriend back in college—we were together for two years.
+It caught me off guard. Aaron was my boyfriend back in college—we were together for two years.
 
 >me: Oh my God!! How did it happen?
 
@@ -193,4 +193,4 @@ An engagement ring. Gold but simple, with a small embedded diamond.
 
 The kind of ring someone on a tight budget would buy—a guy who probably emptied his savings from a dead-end job just to afford it.
 
-And I knew that because it was the exact ring Tim had given me. The one I gave back when I ended it all.
+And I knew that because it was the exact ring Tim had given me. The one I gave back when I ended it [all.](https://www.reddit.com/user/Accomplished_Low7889/)
