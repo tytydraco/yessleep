@@ -22,6 +22,4 @@ The photo developed slowly. When it cleared, I saw myself, asleep in bed. But I 
 
 I haven’t taken another photo since. But the blank one — the very first, undeveloped photo I found in the box — it’s not blank anymore.
 
-It shows me, standing in the woods, holding the camera. And something is behind me. 
-
-The last photo changed again this morning. Same woods, same camera in my hands — but this time, I’m looking over my shoulder. And whatever’s behind me is closer.
+It shows me, standing in the woods, holding the camera. And something is behind me.
