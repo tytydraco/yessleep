@@ -198,7 +198,7 @@ Zero. Zilch. Goose Egg.
 
 All of them vanished without a trace.
 
-I could understand *one or two* of them becoming lost the wilderness. Killed by a rattlesnake. Or by dehydration. Or heat stroke. The desert isn’t exactly the most hospitable piece of Mother Gaia.
+I could understand *one or two* of them becoming lost to the wilderness. Killed by a rattlesnake. Or by dehydration. Or heat stroke. The desert isn’t exactly the most hospitable piece of Mother Gaia.
 
 But *all* of them? What are the odds?
 
