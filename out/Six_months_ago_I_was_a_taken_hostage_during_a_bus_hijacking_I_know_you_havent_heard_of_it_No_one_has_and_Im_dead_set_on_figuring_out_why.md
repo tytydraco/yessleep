@@ -130,7 +130,7 @@ The driver, an elderly man in a reflective vest and button-up shirt, did not hea
 
 “**STOP THE BUS,**” Apollo roared.
 
-Tires screeched. I hadn’t braced for impact, so the side of neck collided awkwardly with the seat in front of me. A toddler a few rows back began sobbing uncontrollably. He had been exceptionally stoic until that point, but the sudden demolished the floodgates, and once the tears started following they didn’t show signs of drying up any time soon.
+Tires screeched. I hadn’t braced for impact, so the side of neck collided awkwardly with the seat in front of me. A toddler a few rows back began sobbing uncontrollably. He had been exceptionally stoic until that point, but the sudden stop had demolished the floodgates, and once the tears started following they didn’t show signs of drying up any time soon.
 
 The hijacker’s eyes scanned the captives in front of him. Eventually, they landed on a lean man in his mid-forties with salt-and-pepper hair.
 
@@ -234,7 +234,7 @@ What was that device, and why was it ticking?
 
 *“****SHOW YOURSELF****”* Apollo screamed.
 
-The green box was ticking faster than it ever had before, like a snare drum beating at four hundred beats per minute.
+The green box was ticking faster than it ever had before, like a snare drum tapping at four hundred beats per minute.
 
 He waved the gun around wildly at the frightened passengers.
 
@@ -246,7 +246,9 @@ Eventually, his eyes landed on a young mother sitting aside her son and daughter
 
 Apollo charged at her with an imperceptible speed, dropping the ticking box from his left hand so he could pull her from the seat. It swung a few inches above the aisle like a clock pendulum as he put the pistol to her head.
 
-*“Why are you doing this? Haven’t I done* ***enough****? Haven't I proven myself* ***worthy****?"*
+*“Why are you doing this? Haven’t I done* ***enough***?”*
+
+*”Haven't I proven myself ***worthy***”?*
 
 His interrogation yielded no answers. It only served to rattle the poor woman to the point of absolute malfunction.
 
@@ -266,7 +268,7 @@ Now, though, it was fully open.
 
 And when I saw her, or I guess *it*, it saw me back.
 
-The child was crawling up the side of the bus like a tarantula. It skittered across the roof until it was directly above Apollo. All the while, it wasn’t watching where it was going.
+The fake child was crawling up the side of the bus like a tarantula. It skittered across the roof until it was directly above Apollo. All the while, it wasn’t watching where it was going.
 
 Its pure white eyes were fixed squarely on my own.
 
@@ -334,8 +336,8 @@ If I don’t make it back, please disseminate this story, and the following word
 
 *The Audience to his Red Nativity.*
 
-Those words represent something horrific looming on the horizon.
+There’s something horrific looming on the horizon.
 
-I don’t know if I’m the right person to bring this all to light.
+I don’t know if I’m the right person to bring it all to light.
 
 But, hell, I’m going [to try](https://www.reddit.com/r/unalloyedsainttrina/s/2Z6XgouP8j).
