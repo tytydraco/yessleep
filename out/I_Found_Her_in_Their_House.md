@@ -66,7 +66,7 @@ I thought that was strange—maybe she was worried about me snooping.
 *Okay, wait in the living room.*
 
 
-Suddenly, a slow, wet thud thumped above me again—something heavy—like bowling balls rolling off a shelf. Her dad shouldn't have been home, he worked night shifts, but something about it drew me to investigate.
+Suddenly, a slow, wet thud thumped above me—something heavy—like bowling balls rolling off a shelf. Her dad shouldn't have been home, he worked night shifts, but something about it drew me to investigate.
 
 
 I climbed the stairs. “Hello?”
@@ -165,7 +165,7 @@ He patted my shoulder. “Would you mind showing me the text messages? It can wa
 “No,” I said. “Let’s get it done now.”
 
 
-I removed my phone from my pocket, and that’s when I noticed a new message from Jasmin.
+I removed my phone from my pocket, and that’s when I noticed a new message from 'Jasmin.'
 
 
 *Don’t wait up. I’ll find you.*
