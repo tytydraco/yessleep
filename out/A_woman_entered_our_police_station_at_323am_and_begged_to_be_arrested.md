@@ -38,7 +38,7 @@ I was chilled by the woman’s breath, or the words carried on it.
 
 “I don’t need to protect myself,” she interjected with a hiss, wild eyes locking onto mine. “*I need to protect all of you.*”
 
-“What’s happening out here, Thatcher?” Officer Mandy Bowen asked as she emerged from the office behind me.
+“What’s happening out here, Thatcher?” Officer Bowen asked as she emerged from the office behind me.
 
 I tried my damnedest not to gulp, but the unnerving woman was making it difficult for me. “This lady is asking to be arrested, but she says she hasn’t committed a crime.”
 
@@ -84,7 +84,7 @@ With the phone in my far-from-rigid hand, I rushed back out into the darkened ar
 
 “Hello?” yelled a voice from down the corridor as fear started to grip me more tightly.
 
-A torch light bounced down a distant corridor, beyond the counter, painting the walls in light—offering only a slight reprieve from the suffocating darkness. Then came Officer Patrick Harling into the entryway.
+A torch light bounced down a distant corridor, beyond the counter, painting the walls in light—offering only a slight reprieve from the suffocating darkness. Then came Officer Harling into the entryway.
 
 “Oh, Thatcher, thank God someone’s here…” he sighed, shining the torch beam onto me. “Looks like we’ve had a power cut.”
 
@@ -104,7 +104,7 @@ He was interrupted by screaming—the voices of a man and a woman—from deeper 
 
 I ran out from behind the counter and joined Officer Harling as we ran down a hallway that led into the heart of the station, desperate to locate the cries of our two fellow officers on the late night shift with us.
 
-“This is Officer Patrick Harling,” he panted as we ran down the corridor. “Requesting backup. Power cut at the station, and potential disturbance.”
+“This is Officer Harling,” he panted as we ran down the corridor. “Requesting backup. Power cut at the station, and potential disturbance.”
 
 “*Roger*,” came a garbled voice from the other end of his radio.
 
@@ -158,7 +158,7 @@ Time feels a little hazy between that moment, which I expected to be my last, an
 
 They said they’d arrived in twenty minutes, but it may as well have been hours—or perhaps only seconds. But she was gone when they got there and returned power to the building.
 
-I was interrogated about the demise of my fellow officers, including the disappearance of Officer Patrick Harling, who is a suspect in the case—along with Tamsin, the mystery woman visible on CCTV footage before the blackout.
+I was interrogated about the demise of my fellow officers, including the disappearance of Officer Harling, who is a suspect in the case—along with Tamsin, the mystery woman visible on CCTV footage before the blackout.
 
 “The discrepancy between your story and the truth is curious,” said one interviewer.
 
