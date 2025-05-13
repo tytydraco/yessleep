@@ -106,9 +106,9 @@ He tries to speak again. Only manages to wheeze.
 
 My pen keeps scratching. I note the size of his pupils, his tangled brown hair, the way the corner of his mouth twitches in tune with his mounting dread. Then I fill in a dozen other fields: boiler-plate bullshit that’s too dull to describe.
 
-Age. 
+Age.
 
-Location. 
+Location.
 
 “Are you with—”  
 
@@ -400,6 +400,6 @@ I shake my head, forcing her memory back into its grave. “My sister's dead,”
 
 "You're deranged,” he mutters. “An absolute lunatic.”
 
-"Maybe. But you know as well as I do what happens at midnight.” My pen clicks. Stabs the clipboard like a knife. “So I'd start talking—or pretty soon you won't have a face to talk with."
+"Maybe. But you know as well as I do what happens at midnight.” My pen clicks. Stabs the clipboard like a knife. “So I'd start talking—or pretty soon you won't have a face to [talk with](https://www.reddit.com/r/nosleep/comments/1kl8r1y/the_kid_ate_his_dads_face_now_i_have_to_eat_his/)."
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
