@@ -24,35 +24,23 @@ He sat at the table while I made him food, just pushing it around with his fork.
 
 “It was a nice camping trip,” he said. Or, “You wouldn’t understand.”
 
-I wanted to ask more. Press him. But I couldn’t. Because if I’m being totally honest… I was scared. Terrified. Something about him felt off. And I don’t just mean emotionally shut down or traumatized.
-
-I mean wrong.
+I wanted to ask more. Press him. But I couldn’t. Because if I’m being totally honest… I was scared. Terrified. Something about him felt off. And I don’t just mean emotionally shut down or traumatized. I mean wrong.
 
 I called Pamela over. She was overjoyed. Hugged him and cried and refused to acknowledge that anything was strange. When I pulled her aside, told her to really look at him, she snapped at me. Said I was being insensitive. That Michael had clearly gone through something traumatic and this was his way of coping. That it wasn’t up to us to decide how he heals.
 
-Maybe she was right. Maybe I was selfish. So that night, when he asked to sleep in the guest room, I didn’t argue. I gave him space.
-
-But that’s when shit got really weird.
+Maybe she was right. Maybe I was selfish. So that night, when he asked to sleep in the guest room, I didn’t argue. I gave him space. But that’s when shit got really weird.
 
 Around 3 AM, I heard noises coming from the guest room. Not footsteps or murmuring. No. It sounded… wet. Like someone squishing raw hamburger meat through their fingers. Thick, sloshing, messy sounds. Then ripping. Tearing.
 
-And then… a voice.
+And then… a voice. It wasn’t Michael’s. It was deep. Guttural. Inhuman.
 
-It wasn’t Michael’s. It was deep. Guttural. Inhuman.
+I ran. I bolted down the hall so fast I nearly faceplanted. Slammed the bedroom door, jumped into bed, and yanked the covers over my head like a terrified kid. I stayed like that until daylight. Too scared to sleep. Too scared to even blink.
 
-I ran.
-
-I bolted down the hall so fast I nearly faceplanted. Slammed the bedroom door, jumped into bed, and yanked the covers over my head like a terrified kid. I stayed like that until daylight. Too scared to sleep. Too scared to even blink.
-
-The next morning, he looked different. The smile had shifted—it drooped a little. There were dark bags under his eyes. I asked if he was hungry. He just stared into the distance and said no. Still smiling.
-
-I slowly backed out of the room and barricaded myself in mine.
+The next morning, he looked different. The smile had shifted—it drooped a little. There were dark bags under his eyes. I asked if he was hungry. He just stared into the distance and said no. Still smiling. I slowly backed out of the room and barricaded myself in mine.
 
 This morning, while he was eating breakfast, I snuck a camera into the guest room.
 
-It’s 12:30 PM now. Which means I’ve got about nine hours until bedtime.
-
-Nine hours until I find out—once and for all—what’s really sleeping in my guest room.
+It’s 12:30 PM now. Which means I’ve got about nine hours until bedtime. Nine hours until I find out—once and for all—what’s really sleeping in my guest room.
 
 Because I don’t care what Pamela says… I know, without a doubt, that thing isn’t my husband.
 
