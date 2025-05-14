@@ -142,4 +142,4 @@ I watched the sunrise from 40 thousand feet in the air, and the sight soothed me
 
 *I'm gonna find out what happened to you*, I thought, not a wish, but a promise.
 
-[Link to Next Part](https://www.reddit.com/r/nosleep/comments/1kjoegw/i_found_a_deepfake_of_myself_on_the_dark_web_i/)
+[Link to Final Part](https://www.reddit.com/u/11velociraptors/s/p9jYtynaNt)
