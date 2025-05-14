@@ -1,4 +1,4 @@
-\[Part 1\]  (https://reddit.com/r/nosleep/comments/1k67cab/i\_visited\_an\_antique\_store\_a\_few\_days\_ago\_do\_not/)
+[Part 1](https://reddit.com/r/nosleep/s/DvgYR8o907)
 
 My life seems to have turned into a horror novel. I’m currently writing this from a hotel because we had to leave our house. We have been… tormented. That’s the only word to describe it. Ever since the day we visited that antique store.
 

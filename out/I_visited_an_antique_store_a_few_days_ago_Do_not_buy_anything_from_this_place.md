@@ -144,6 +144,6 @@ Do you think it would seem unhinged to bring the items back? I don’t even know
 
 Maybe I can just leave them inside the door. As soon as I feel better…
 
- 
+ [Update](https://www.reddit.com/r/nosleep/s/0iACSNyIqd)
 
  
