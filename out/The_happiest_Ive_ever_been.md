@@ -190,7 +190,10 @@ I remember feeling relieved—so relieved—that the pain and noise was finally 
 
 But I couldn’t see.
 
-Not that I was blind, or unable to use my eyes. It’s just... what I saw felt like colors no one had ever experienced before.
+Not that I was blind, or unable to use my eyes. It’s just… what I saw, my mind couldn’t comprehend.
+What I was perceiving felt like colors no one had ever experienced before. Everything, and everyone—was warped, grotesquely disfigured.
+
+Like reflections on broken glass.
 
 My body was electrified—charged with radiant, undefinable energy. It was bliss.
 
