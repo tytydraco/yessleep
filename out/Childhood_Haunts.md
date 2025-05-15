@@ -1,0 +1,18 @@
+I stand in the driveway, staring at the house I grew up in. It’s up for sale again, and I can’t shake the pull to come back. The open house is tonight, and here I am, 28 years old, parked in front of the place that haunted my childhood. The house looks worse than I remember—peeling paint, sagging gutters, the deck half-rotted. The kitchen windows glare down like eyes, the French door on the deck sits like a crooked nose, and the basement door at the base of the house gapes like a hungry mouth. My stomach twists, the same dread I felt as a kid washing over me. I shake it off. I’m not that scared little boy anymore.
+
+No cars are in the driveway. No signs, no realtor. Is this even an open house? The front door’s unlocked, though, so I step inside. The air hits me—heavy, thick, like it’s been trapped in here for years. Dust floats in the dim light filtering through the curtains. The kitchen smells of mildew, and the living room’s carpet is stained and worn. I move down the hallway, my footsteps echoing. The floor furnace is gone, thank God. I used to lie awake at night, terrified something from the basement would reach through those grates and grab me. To the right, where the furnace once was, is the basement door. That damn door. Old, warped wood, splintered at the edges, with a rusty knob. I freeze. A chill crawls up my spine, and I feel it—something dark, seeping through the cracks, pressing against me.
+
+I’m an adult now. This is ridiculous. I shouldn’t be scared of a basement. But my hand shakes as I reach for the knob. I yank the door open, and darkness spills out, thick and endless. The stairs creak faintly, though nothing moves. My heart pounds. I can’t stop myself. The words bubble up, the same ones I used to shout as a kid, standing at the top of these stairs. “I’m not afraid of you anymore,” I say, my voice trembling. “Come face me.”
+
+The air shifts. A cold wave rushes over me, prickling my skin. I slam the door shut, cheeks burning. God, I’m an idiot. Yelling at a basement like I’m still eight. I turn to leave, ready to get the hell out of this house. I don’t want it. Not anymore.
+
+Then I hear it.
+
+Footsteps. Heavy, deliberate, thudding up the wooden stairs. My breath catches. They’re getting faster, louder, shaking the floor. The door explodes open, splinters flying. It’s him—the man my mother and I saw outside our windows all those years ago. His face is twisted, angry, his eyes pure black, like holes that swallow light. He’s in old, tattered clothes, reeking of earth and something sour. He storms toward me, arm outstretched, fingers clawing the air. I stumble back, but he’s too fast. His hand clamps around my neck, cold and impossibly strong. He lifts me off the ground, my feet dangling, his grip crushing my throat. I can’t breathe. Those black eyes bore into me, and I feel it—a hatred so deep it’s like he’s been waiting for me all these years. My vision blurs, darkness creeping in.
+
+I wake up gasping, drenched in sweat, tangled in my sheets. My bedroom. My apartment. My hand flies to my neck, half-expecting bruises, but there’s nothing. Just a dream. It was just a dream.
+
+But it felt so real. The house, the basement, him. My phone sits on the nightstand, the real estate listing still open from last night. The open house is today. I could still go. I should go. It’s just a house, right? A rundown old place with bad memories. I’m not a kid anymore. I can face it.
+
+But as I stare at the photo of the house on my screen—those windows like eyes, that basement door like a mouth—I can’t shake the feeling that it’s waiting for me. That it’s always been waiting.
+
