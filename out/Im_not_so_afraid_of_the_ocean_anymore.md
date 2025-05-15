@@ -48,7 +48,7 @@ I heard footsteps down the hallway. I went outside, and ran away from the footst
 
 Obviously, Janet and I went to the police. It turned out the man who had taken me to my 'cabin' was not part of the crew at all. The crew told me there was no "Cabin 113" and that all their cabins were on a deck much higher up than where I had been.
 
-The police told me they think it was just some weird guy pranking me, but one of the women officers confided in me that the city has had a bunch of disappearances of women who took the ferry. I'm worried the ferry company and the city are covering this up - without saying where this is, let's just say it is a very heavily trafficked ferry that tourists use.
+The police told me they think it was just some weird guy pranking me, but one of the women officers confided in me that the city has had a bunch of disappearances of people who took the ferry. I'm worried the ferry company and the city are covering this up - without saying where this is, let's just say it is a very heavily trafficked ferry that tourists use.
 
 Janet and I have decided to cut our trip short - in addition to all of this, I'm also just feeling sick the last few days. She keeps telling me that I was very lucky - that they were likely trying to kidnap me - but given that they called me "Subject" I wonder if it wasn't something even worse waiting for me at the end of the voyage.
 

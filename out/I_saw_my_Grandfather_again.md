@@ -6,7 +6,7 @@ I remember the last time he talked to me on that log. Telling me some story abou
 
 He left me inheritance. It was a pen, a small pen that was painted gold with his initials on the end. I remember he'd write his diary with it. He told me about how his friend got it for him. It was after being fired. It was to remind him better things were ahead. Every day I'd write a small note for him. Just about how my day went. The good, the bad, the scary, the serene. Anything that happened. Then I'd lock the note and pen in a small box until I wrote the next. I locked it. That's the important part.
 
-Last night, I went to write a note and the pen was missing. It was locked, obviously, so it couldn't role away or anything. However it was nowhere in the box. Right at that moment I looked outside and a tiny fox runs through my garden. I saw it, something reflective in its mouth. It could only be the pen.
+Last night, I went to write a note and the pen was missing. It was locked, obviously, so it couldn't roll away or anything. However it was nowhere in the box. Right at that moment I looked outside and a tiny fox runs through my garden. I saw it, something reflective in its mouth. It could only be the pen.
 
 That was him, right? As a spirit animal or something. I mean, a fox coming to save me, like his story. 3 years after he died, the same age I was when my father passed. How else could it get the pen? The pen I would only ever use to write to him.
 
