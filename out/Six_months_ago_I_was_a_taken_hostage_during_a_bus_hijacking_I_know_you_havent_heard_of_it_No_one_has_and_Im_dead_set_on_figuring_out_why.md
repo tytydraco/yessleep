@@ -30,7 +30,7 @@ I understand *why* he believed he could overwhelm the hijacker. Visually, it sor
 
 The hijacker, in comparison, looked to be on death’s door.
 
-He had a pair of dull blue eyes sunken deep in their sockets. Brittle patches of brown hair asymmetrically planted across his scalp, with islands of wilted skin peeking through where the flesh was most barren. The man was downright cadaverous; inhumanly emaciated. Couldn’t have been over ninety pounds soaking wet, and that’s including the weight of his oversized denim jacket and dark black chinos. He was like a stick figure that had been granted life through a child’s dying wish, jumping off the page into a world too harsh for his pencil-drawn proportions, composed of nothing more a torso with sewing needle arms held up by a pair of toothpick legs and a shriveled head dangling on top of it all.
+He had a pair of dull blue eyes sunken deep in their sockets. Brittle patches of brown hair asymmetrically planted across his scalp, with islands of wilted skin peeking through where the flesh was most barren. The man was downright cadaverous; inhumanly emaciated. Couldn’t have been over ninety pounds soaking wet, and that’s including the weight of his oversized denim jacket and dark black chinos. He was like a stick figure that had been granted life through a child’s dying wish, jumping off the page into a world too harsh for his pencil-drawn proportions, composed of nothing more than a torso with sewing needle arms held up by a pair of toothpick legs and a shriveled head dangling on top of it all.
 
 The only advantage the hijacker had was the gun. Even so, it appeared like he was struggling to hold the pistol upright. His hand barely had the strength.
 
