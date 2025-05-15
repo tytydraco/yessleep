@@ -239,7 +239,9 @@ I'm writing this from my room at Prairie Horizons Recovery Center.
 
 I'm 38 years old now, and I've tried every single drug there is on God's ugly earth.
 
-and nothing
+After that night, I started chasing it. Anything to feel even a sliver of that again.
+
+But nothing.
 
 Nothing will ever come close to the happiest I've ever been.
 
