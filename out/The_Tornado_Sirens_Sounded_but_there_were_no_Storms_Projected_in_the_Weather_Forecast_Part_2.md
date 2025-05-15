@@ -85,3 +85,5 @@ I kept my pace steady, ears sharp for any sound that didn’t belong. My M4 stay
 “ OME N”
 
 Not Home & Garden anymore. Just Omen. And maybe, that wasn’t an accident.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1knl1be/the_tornado_sirens_sounded_but_there_were_no/)
