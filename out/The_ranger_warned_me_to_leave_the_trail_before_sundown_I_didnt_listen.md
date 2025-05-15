@@ -188,4 +188,4 @@ But now, there’s one.
 
 Just one.
 
-And it’s [humming](https://youtu.be/iPgchyg_RP4).
+And it’s humming.
