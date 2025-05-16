@@ -275,3 +275,5 @@ We met at the oak tree just as the morning fog was lifting. The dew still clung 
 Melancholy's Peak. That's what the sign said, or what was left of it anyway. The wood was rotting, letters barely hanging on, as if the place itself was trying to fade away from existence. It sat there at the top of the hill like some forgotten castle, all brick and iron windows, watching over the town below. They'd built it up here on purpose, I figured - out of sight, out of mind.
 
 We propped our bikes against the rusted fence. Missy's hands were shaking as she tried to smooth down her borrowed dress. She looked nothing like herself - more like someone playing dress-up, trying too hard to look proper. I'd never seen her so nervous.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/CUVCjmB0eV)
