@@ -1,14 +1,14 @@
 The yellow light of dim, far-spaced-out streetlights glinted off the glossy black hood of my Durango as I turned onto Churchill Road. I glanced down at the GPS one more time to make sure I had the right address, and crept slowly down the lane, shining my spotlight along the row of tightly packed, single-story mobile homes. It honestly baffled me that a security contractor providing alarm responses could even get work in a shithole town like this, as if there was anything here worth stealing. But parking outside of empty houses, most likely disturbed by the incessant desert wind, still paid the bills.
 
-I parked and hopped out, fingers looped through my duty belt, glancing around in confusion as I once again checked the map application on my phone. Before me stood 144 Churchill Road, a few hundred square feet of empty, undeveloped hardtack. A few lonely sage bushes and a sole Juniper tree were the only signs of life. I sighed and decided to take a short walk, and checked the house numbers of the trailers adjacent to this plot. The presence of 143 and 145 confirmed that I was in the right spot, but unsurprisingly, none of the nearby homes had the “Protected by Safeguard Solutions” yard sign that is bundled with every “Peace of Mind” package.
+I parked and hopped out, fingers looped through my duty belt, glancing around in confusion as I once again checked the map application on my phone. Before me stood ### Churchill Road, a few hundred square feet of empty, undeveloped hardtack. A few lonely sage bushes and a sole Juniper tree were the only signs of life. I sighed and decided to take a short walk, and checked the house numbers of the trailers adjacent to this plot. The presence of ### and ### confirmed that I was in the right spot, but unsurprisingly, none of the nearby homes had the “Protected by Safeguard Solutions” yard sign that is bundled with every “Peace of Mind” package.
 
-Reluctantly, I pulled my handheld radio off my belt. There are few people whom I reserve as much spite for as our “dispatcher” Ann Monson. A failed public safety call taker turned micro manager of the two or three rent-a-cops in the booming metropolis of Broken Hills, Nevada. I grimaced as I keyed up the mic.
+Reluctantly, I pulled my handheld radio off my belt. There are few people whom I reserve as much spite for as our “dispatcher” Ann. A failed public safety call taker turned micro manager of the two or three rent-a-cops in the booming metropolis of Broken Hills. I grimaced as I keyed up the mic.
 
 “Dispatch, November 56,” I hailed, a piece of me died every time I had to send my raspy voice out into the void with my company-issued, pseudo-military call sign.
 
 “Go ahead,” The reply came back as terse as expected.
 
-“Confirming the location as 144 Churchill?”
+“Confirming the location as ### Churchill?”
 
 “Copy that, that is the address entered by the customer,” Ann responded, after an irritated sigh.
 
@@ -30,7 +30,7 @@ The lack of light pollution means our night skies are clear and pure, stars shon
 
 In a few seconds, the light stopped flickering and held steady, bright and piercing. It wasn’t moving anymore either, just held petrified in the center of the night sky, just below the Big Dipper. Suddenly, the firmament was lit with a sudden burst of lavender light. I jumped out of my skin with fear, feeling the still-burning cigarette rolling out of my grip. My vision went blurry, and I felt myself falling backwards in slow motion.
 
-I came to with a start, banging my head against the headrest of my driver’s seat. The sun was peaking slowly over the Quartz Mountain, stinging my bloodshot eyes. Blinking out of my stupor, I found with bewilderment and unease that I was sitting back inside my own vehicle, parked in front of the small office suite Safeguard Solutions called HQ. In a well-practiced maneuver, I engaged the parking brake and took the keys to turn back into Miss Monson before she could chirp at me over the radio again. I drifted in and out, thoughts still consumed with doubt as to how I even got here. The taste of tobacco in my mouth told me I had definitely had my nightly break, but what about the blinding light in the sky? As disturbed as I was, the mental fog of the sleep aides and a crisp beer put me to sleep like a baby, ready for 4 more days of the same old grind.
+I came to with a start, banging my head against the headrest of my driver’s seat. The sun was peaking slowly over the Quartz Mountain, stinging my bloodshot eyes. Blinking out of my stupor, I found with bewilderment and unease that I was sitting back inside my own vehicle, parked in front of the small office suite Safeguard Solutions called HQ. In a well-practiced maneuver, I engaged the parking brake and took the keys to turn back into Miss Ann before she could chirp at me over the radio again. I drifted in and out, thoughts still consumed with doubt as to how I even got here. The taste of tobacco in my mouth told me I had definitely had my nightly break, but what about the blinding light in the sky? As disturbed as I was, the mental fog of the sleep aides and a crisp beer put me to sleep like a baby, ready for 4 more days of the same old grind.
 
 My dreams were uneasy, vague impressions of shadows, the cold desert and a flash of purple swirled through my delirium. When I woke, the sun was still a few minutes from setting, so I grabbed an energy drink, a granola bar, and took my time getting to work. By the time I walked up to the front desk, the night was black as tar, and 2 minutes until my shift began. Ann sat, stiffly upright, lips smacking on her chewing gum, eyeing me with slight disapproval. Her short bob of blonde hair under the office lights shone like a dirty golden halo.
 
@@ -40,13 +40,13 @@ My dreams were uneasy, vague impressions of shadows, the cold desert and a flash
 
 I didn’t reply, just stared at her in expectant silence. Taking the cue, she continued.
 
-“Another glass break alarm at 144 Churchill, second night in a row,” she said, a slight accusatory tone creeping in, “I wonder if a more thorough check might be needed.”
+“Another glass break alarm at Churchill, second night in a row,” she said, a slight accusatory tone creeping in, “I wonder if a more thorough check might be needed.”
 
 I thought about telling her how nonsensical it was that a sandbox of empty desert could even have a glass break alarm, and how I didn’t appreciate her insinuating I couldn’t do an entry-level security job. But instead, reason and my own desire to avoid unnecessary conflict won out.
 
 “Huh, weird,” I muttered, coughing on the last syllable, “I’ll check it out first thing.”
 
-Spinning my keys, I strolled out of the building without another word. The creeping dread I had felt last night was returning in full force. I drove through town, at a slightly unreasonable 45 miles per hour, knowing damn well policy stated I follow all posted speed limits. But rolling past where Deputy Harvard sat transfixed on his phone at the intersection of 2nd and Rowland, I knew we had a mutual understanding as the sole travelers at this time of night. I once again took the turn onto Churchill, pulling up to 144 like I had rehearsed it a million times. To my shock, gone was the barren, dusty ground, or rather, where the juniper tree had stood was now occupied by a dingy, beaten old aluminum trailer home.
+Spinning my keys, I strolled out of the building without another word. The creeping dread I had felt last night was returning in full force. I drove through town, at a slightly unreasonable 45 miles per hour, knowing damn well policy stated I follow all posted speed limits. But rolling past where Deputy Harvard sat transfixed on his phone at the intersection of 2nd and Rowland, I knew we had a mutual understanding as the sole travelers at this time of night. I once again took the turn onto Churchill, pulling up to the driveway like I had rehearsed it a million times. To my shock, gone was the barren, dusty ground, or rather, where the juniper tree had stood was now occupied by a dingy, beaten old aluminum trailer home.
 
 Unlike the previous night, I sat motionless, gazing at the dark frame of the dwelling. I started to tremble inexplicably, knuckles white as I gripped the steering wheel. Barely 24 hours ago, I had walked directly through the empty space that was now plainly occupied. And worse still, I could see through my blinking amber lights that all the windows I could see were shattered across the dust, the shards glistening like dewdrops.
 
@@ -62,9 +62,9 @@ Nonchalantly, he approached, service weapon drawn, and pushed open the ajar door
 
 The house itself was unremarkable, with a few framed photos of an average family of 3, a dog bowl by the entrance, and small decorative rugs covering every surface. But the whole place was devoid of life and sound, aside from our boots slipping over the floor slowly.
 
-“Must’ve been spooked off,” Johnny Harvard concluded, holstering his gun with a snap, “All them valuables are here, hell even the safe looks alright to me.”
+“Must’ve been spooked off,” Deputy Harvard concluded, holstering his gun with a snap, “All them valuables are here, hell even the safe looks alright to me.”
 
-He said this, gesturing vaguely at the small TV set and the car keys strewn on the small kitchen counter. I thumbed through a stack of mail sitting on top of the toaster oven, all addressed to either a Sean or Mary Parsons, who were assumed to be the balding man and dour woman pictured in the framed photographs.
+He said this, gesturing vaguely at the small TV set and the car keys strewn on the small kitchen counter. I thumbed through a stack of mail sitting on top of the toaster oven, all addressed to either of the Parsons, who were assumed to be the balding man and dour woman pictured in the framed photographs.
 
 “Will the Sheriff’s department contact them?” I asked the uninterested public servant, who was already halfway out the door.
 
