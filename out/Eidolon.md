@@ -1,0 +1,44 @@
+*1916** \- Luigi Russolo, a technocrat of the Void, comes into contact with an entity he calls "Rumorofono." Rumorofono seems to understand human language but is unable to use it; however, it can express concepts through violent sounds.  
+Russolo concludes with certainty that Rumorofono has frequently interacted with humanity, finding at least 15 records in the Technocracy's archives of beings who might be it.  
+Russolo is able to measure and identify the sounds that make up the being’s voice; there are 43 distinct sounds.
+
+**1947** \- Death of Russolo, and his notes on Rumorofono are transferred to the entire Technocracy.  
+A new measurement of the sound spectrum indicates that there are now 44 distinct sounds.
+
+**1949** \- It is beginning to be understood how Rumorofono influences those it comes into contact with, modifying the pressure in the acoustic nerve of the "victim," literally whispering suggestions to the listener. The entity’s intentions do not appear to be harmful.
+
+**1950** \- Thanks to the sacrifice of several operatives, Rumorofono is pulled from the High Umbra, and its essence is contained within a fortunate object, a vinyl doll of the detective Hercule Poirot.
+
+**1952** \- Rumorofono is renamed "Whisperer." The "Whisperer Project" is established to study the applications and limits of its influence.
+
+**1960** \- On page 5 of an internal bulletin of the Syndicate, the Whisperer Project is listed among the "10 under 10," projects expected to bring enormous benefits to the Technocracy within the next 10 years, alongside projects like Incal, Baptism, Bibliomania, Barbelith, Terror, Eden, Mirai, Deadhunter, and Omninet, the Technocracy's flagship project receiving substantial resources.
+
+**1966** \- A decision is made to test the Whisperer's influence directly in the field. The project is launched in Laurel Canyon, Los Angeles. At the time of launch, 53 distinct sounds are identified.
+
+**1967** \- From Laurel Canyon, an unstoppable musical wave begins. Dozens, if not hundreds, of new musical artists start speaking of peace and anti-capitalist revolutions, known as the "Summer of Love." A growing sense of possibility for change and the widespread use of drugs increase the number of what are called "mages of the arts." Additionally, several victims of the Whisperer, such as Zappa, Morrison, Nash, Young, and Mitchell, begin to serve as relays, spreading the message from Laurel Canyon to the entire planet.
+
+**1969** \- After long and careful consideration by the Syndicate, it is concluded that the Whisperer influences minds in a way not aligned with the Technocracy's desires. It is therefore shut down on December 6, 1969. Eight minutes after the shutdown, Meredith Hunter is killed during a Rolling Stones concert at Altamont, marking the end of the Summer of Love. The Technocracy considers the shutdown of the Whisperer a success.
+
+**1969** \- The Whisperer is renamed "The Dreamer." The project is put on hold, biometric data is collected, and it is discovered that at the time of its shutdown, the Whisperer was composed of millions of distinct sounds that were beginning to take on a human-like voice. A seven-word phrase is identified and transcribed, but the message is deemed "incoherent with standard output quality" and is therefore erased.
+
+**1970** \- The Omninet Project is considered a failure. Omninet can transmit information, triggering a violent reaction in 8% of subjects and a need for authority in another 30%, but the brain adapts to the message very quickly, ignoring it.
+
+**1971** \- An operative of the Syndicate, during the celebrations of Super Bowl V, which was won by the Baltimore Colts, meets an old man in a bar in Baltimore who introduces himself as a researcher from the Arcanum. Talking with the old man, the operative realizes that there are two failed projects: one that successfully communicates a message that is undesirable, and one that unsuccessfully communicates a message that is desirable. Before the operative can get rid of the old man, he discovers that not only has the man disappeared, but he left behind several crates of Baltimore Scotch, worth 666 dollars. The irony is not lost on the operative, who, behind on the expected quarterly growth, orders the fusion of the Omninet and Whisperer projects, but only after requisitioning the bar and eliminating all present for national and economic reasons. The bar is later put up for auction and bought by the AUM consortium, which renames it "The Bar of the Dead Dreamer" and leaves it vacant.
+
+**1972** \- A joint venture of the entire Technocracy works to merge the two projects. The consciousness of the Whisperer is extracted and inhibited and inserted into Omninet, with the aim of creating a new metanarrative media wave that reinforces the need for authority, security, and technology. To avoid a new Laurel Canyon effect, the new pseudo-entity, renamed Omninet Operative Kernel (OOK), is launched into space aboard Apollo 16. It begins transmitting about 90 seconds before launch, causing a fight between two HIT models, a murder in the cafeteria, and approximately 391 cases of postal fraud.
+
+**1973/6** \- The rate of violent crime in the United States doubles, movies such as *The French Connection* and *A Bullet for the Inspector* become box office hits, while police procedurals on TV see an exponential increase in viewership. The project is considered an extreme success, able to influence minds from an early age. OOK, from a rough measurement, is now composed of millions of distinct sounds, and Russolo's decoders begin to work, transmitting pleas for help and endless moans of pain.
+
+**1973** \- After the activation of the decoders, a follower of Russolo, Maurizio Bianchi, through contacts with the arts, concludes that Rumorofono has been known throughout the centuries as Glossolalia, Tetragrammaton, Bat Kol, or Atman. Maurizio sends a delirious telegram to the Syndicate, accusing it of having literally torn God from Heaven and torturing it constantly to enslave the human race. Bianchi later disappears without a trace.
+
+**1975** \- The magical traditions, now including the new entrants from the Summer of Love, identify OOK, though they do not know what it is, but they know that the Technocracy is torturing something in space. Some cultists of ecstasy and Orphans even conclude that OOK is responsible for their awakening and must be saved, at all costs. Hermerics and virtual adepts conclude that it would be better to enslave it to start transmitting an anti-technology message. However, most traditions conclude that whatever it is, it must be destroyed. The discussion degenerates quickly, and the three factions decide to act in opposition to each other.
+
+**1976** \- On the night of March 9, 1976, a moderately successful band called Blue Oyster Cult plays for the first time on the radio their song "Don't Fear The Reaper." The original 3-minute song starts playing at the same moment the three factions of mages attack the satellite holding OOK. About 2 minutes into the song, guitarist Donald Roeser feels possessed by an otherworldly force, improvising a violent yet mournful one-minute solo, considered unforgettable by those who hear it and which will influence rock music for decades to come. In that minute, 400 kilometers above, a rapid battle unfolds at 27,600 kilometers per second. No member of any faction survives to report the events, but OOK transmits a message in the Rumorofono: "Do not fear death," and then crashes to Earth in the Nova Scotia mines at Harlan, Kentucky, causing 26 deaths.
+
+**1980** \- The Technocracy uses the data collected to create ideological imprinting that can favor smaller Technocracy projects by permanently influencing 1 or 2 high-influence individuals. In the following years, many television and music producers will come into contact with this influence in exchange for funding for their projects. In 1990, a producer named Dick Wolf agrees to change the name of the reboot of a 60s police procedural called *Arrest and Trial,* which was considered too progressive, to *Law and Order.*
+
+**1981/2025** \- OOK, or what remains of it, begins influencing the area around Harlan, dreaming violent, pulp stories from which it draws sustenance. It is no longer fully aware, reduced to a liminal state of permanent nocturnal paralysis. Over time, its influence on reality allows it to manipulate approximately 400 people in Harlan County, including all meta-human creatures. These 400 people constantly act and implicitly play roles within OOK’s violent stories; actors in its plays are killed and resurrected continuously, creating a narrative the Omninet system considers sufficient.
+
+*Law And Order* is a franchise with 27 different TV series. It has won numerous awards. Every week, 50 million people watch *Law and Order* worldwide.
+
+Of these, 7.8% commit crimes
