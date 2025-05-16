@@ -1,75 +1,27 @@
-My name Is Kaveriah, For the sake of this story, I will refer to myself as Xav.
+I was curled up in my apartment, binge-watching a cheesy rom-com to unwind after a long shift at the diner, when my phone pinged. It was a text from my best friend, Mia, who lived across town, a solid 30-minute drive away. Her message sent a jolt through me: “Lila, why are you standing in my driveway staring at my window? It’s 2 a.m., this is creepy as hell.”
 
-Ive learned the English dialect about 5 minutes ago. Me and a team of space marshal Forge and attendees have traversed galaxies.
-Our job is to protect planets from mortal danger. We have arrived on a planet we call Terrox. The previous inhabitants called it something different-iThere are lifeforms here. They seem to be primitive. Using technology in selfish and self worshipping ways. Learning recycled information.
-I am going to be reciting this journal written by one of the lifeforms here. I will give my all-around assessment when lam
-Finished and presented it to fellow crewmates.
+I frowned, typing back fast. “What? I’m at home, Mia. On my couch, nowhere near your place.” My apartment was quiet, just the hum of the TV and the faint drip of my leaky kitchen faucet.
 
-—-Xav 2096/Terrox
+Another ping. “Don’t mess with me. I’m looking at you right now.” Then a photo loaded, and my breath caught. It was blurry, snapped through her bedroom window, but there I was—or something like me—standing in her driveway. Same curly black hair pulled into a messy bun, same denim jacket I wore everywhere, same lanky frame. But the face… it was mine, yet not. The eyes were too big, too dark, like ink spilled across a page, and the mouth curved into a smile that was all wrong, too sharp at the edges.
 
-“My name is Jennifer, in going to recount the events that have happened in this journal. This started a year ago, I had breakfast at around 7 am then went for my morning run. On my run were the first signs. I run for 3 and a half blocks usually..”
+My fingers shook as I typed, “Mia, that’s NOT me. I’m in my apartment. Lock your doors and call the cops.” I hit send, my heart pounding like it was trying to escape my chest.
 
-As much as Ive read this person does not sound like Mike the lifeforms currently inhabiting this planet. I am intrigued with curosityafs tie been reading this Someone has been staring outside of Our translucent light ship. Almost like he can see through it. I will not deceive myself, I am with worry. 
-—-Xav 2096
+She replied, “You’re freaking me out. It’s you, Lila. I see you.” Another photo. The thing was closer now, standing on her lawn, head tilted up at her window. That smile stretched wider, unnatural, like it was carved into its face. My denim jacket looked tattered in the porch light, frayed in ways mine wasn’t.
 
-“ ...at around the 2nd block, I saw something, I saw... well, me. A woman who looked just like me. It was uncanny, as I ran past she just stared. Almost like she was studying me. Then something worse happened, she started running too The same pace, the same gate, She remained eve contact, She even had the same 'in-step' as me. Then abruptly She stopped, I picked up my pace and carried on home. As I carried on throughout My day, I ran errands, went to the bank, and even brought extra butter to my neighbor”
+I called her, my voice trembling. “Mia, listen to me. That’s not me. Get somewhere safe, call 911, now!” She laughed, nervous, like she thought I was pulling a prank, but I could hear the panic creeping in. “I’m not joking,” I said. “That thing—it’s not me!”
 
-It is astounding how mundane task, and meaningless monotony, was the way of life for these people. Maybe this is why they're so primitive because they spoil themselves with boring tasks, Ive looked out my ship once again. My ship once again. She’s still staring at me, my anxiety is increasing. She won't go away. It's almost like she can see me. This lifeform is observant. I’ve also realized shes mimicking my behavior. Of all the galaxies My team has traversed, this by far, is the most intriguing.
-The inhabitants before called it the "Milky Way” Odd name to say the least and so, despite the uneasy feeling I get from this life-ferm side of my ship, there are indeed safeguards. I shall Keep reading. 
+She went quiet, then whispered, “It’s… moving. It’s waving at me, Lila.” I heard her blinds clatter as she peeked out. Then a choked gasp. “It’s gone. It was right there, and now it’s just… gone.” Her voice was shaking. “What is this?”
 
-—-XAV 2096
+“Stay on the phone,” I told her, grabbing my keys. I was halfway to the door when she screamed—a piercing, guttural sound that cut off into dead silence. The call dropped. I tried calling back, but it went to voicemail. My hands were ice as I dialed 911, stammering about Mia, the photos, the thing wearing my face. They told me to stay put, that a unit was on the way to her house.
 
-"After getting home I heard a Knock on my door it was my neighbor, Craig. Craig has always been an awkward guy, but this time he was different When I answered the door he just smiled Then it happened. "H-..
-"Paused. I said " Hello? Craig?"'
-"''Pello Jennifer" Was all he said then left" Ever
-Since it has gotten worse Ive been staying inside now. Every time I go out I see my double, mimicking my moves and my activities.
-I hate to sound like in wearing a tin foil hat, but I believe aliens are taking over.
-I don't go to work anymore, I showed up the other day and they didn't even know who I was. I stay home now, the other ME, took MY job!”
+I couldn’t wait. I sped to Mia’s, my old hatchback rattling as I pushed it past its limits. When I got there, her street was flashing with police lights. Cops, paramedics, neighbors gawking from their lawns. I ran toward her house, but an officer stopped me, demanding ID. When I showed it, his eyes narrowed, like I was a suspect. “You’re the one from the footage,” he said, his hand hovering near his holster.
 
-I must say I'm getting an idea of what's happened here on planet Terrox. Although I'm not sure Where these false lifeforms have come from.
-Update on the current situation of the girl, er... Dog now? Confusion is baffling me, did I not take more heed to the lifeform staring at my ship? I think im coming to a conclusion. I must Study this. 
-"Shapeshifters? Clones? do they
-Change based on Physical examination? I must read on!
-—-XAV 2096
+“Footage?” I asked, my stomach twisting.
 
-"'No one I Know recognizes me, Im cowering in My apartment now, they act like everyone else. I called my mom, Only ..ugh Fuck! It wasn't My Mom. She said "Hi Jennifer " she's called me "'Jen" for Years! they can mimic behavior mamerisms, FACES! but not sentimentality They know in not one of them, They’ve taken everyone. No one is real. Where are the people I called my Family, My friends, my colleagues?
-Hold on, someone knocking on my door,"
+They showed me later, at the station. Mia’s doorbell cam caught it: the thing with my face, standing in her driveway, staring up. It moved wrong—too stiff, like its joints didn’t bend right. At one point, it turned to the camera, flashed that jagged smile, and whispered something. They played it back, amplified. It was my voice, warped and hollow, like it came from a throat full of gravel: “Open the door, Mia. It’s Lila.”
 
+Mia was okay, barely. She’d locked herself in her closet after hearing it inside her house—footsteps, uneven and heavy, and my voice calling her name, soft and wrong. “Lila, come on, let me in,” it had said, scratching at the closet door. It stopped right before the cops arrived. They found my denim jacket on her doorstep, stained with something dark that smelled like damp earth and rot.
 
-After reading this my conclusion is mimic
-Parasitix. The Alien breed of mimicking
-Parasitic lifeForms. The dog... I mean... me, is Still there. There are more. This lifeform was Male when I first saw it. I must warn the Others. 
-—-XAV/OUT 2096
+I haven’t seen Mia since. She won’t answer my texts—says looking at me makes her sick, reminds her of that thing. Last night, I found marks on my apartment door—long, jagged scratches, like something tried to claw its way in. At 3 a.m., my phone buzzed. A text from an unknown number. Just a photo: me, standing in my own parking lot, staring up at my window with that same too-wide smile. But I was inside, alone, curled up in bed.
 
-"The mailman was at the door, I Killed him. He spits a viscous purple liquid on my skin as I stab him. it's been a week since. My body is changing. Ive shifted many times.
-I recently saw an aircraft land about 1 mile from here, Maybe They can help, are we rescued??
-I'm making a journey to it. God help us!”
-
-My crewmates finished the 
-journal I showed them. 
-
-We all looked in Awe 
-as we stared out the aircraft once more. 
-We opened the hatch, it, or, she. 
-Walked in, "Who are you," we asked talking over each other.
-It will, She, stared and said “Jen, are you here to
-She was cut Short. 
-She was changing again, Into a grey, one-eyed figure, with a head just like mine, limbs grew, and to all of our surprise, She Split into 4 beings, mirror images of me and my crewmates.
-
-"Who are you" the beings said in unison. Before any of us could speak they said
-"We are one
-"We are many". 
-“We are hive”
-I snapped out of my paralyzed State and sprinted for the last resort. As I was using the hover hallway within the ship I looked back. They absorbed my crewmates.
-"We Are One We are Many We are You".
-They chanted as the sickening slurp and pop rang in the air from my crew mate's disappearance. 
-I stopped looking back and finally reached the machine, the very last resort, I arrived at the machine and hit the button for the year 2023. 
-————————————————————————
-
-“Where’d he come from? Brief me” a tall gentleman, with a gun on his waist, demanded.
-Another man in a suit replied, "Sir, he arrived in a capsule with nothing but a Journal with him". 
-
-"Hmm,” the suit said.
-"um, sir there's something else you should Know". 
-"Well? " the suit said Condescending
-"he says he's a time traveler... from 2096, he said he has a warning for Terrox.. his name for the earth.”
+I burned the jacket today. The stench was unbearable, like mold and something metallic. As it burned, I heard it—a low, scraping laugh, coming from the shadows of my yard. I locked every door, every window, but I still feel it watching. Whatever it is, it’s not done. It’s still out there, wearing my skin, and I’m terrified it’s coming for me next.
