@@ -241,7 +241,7 @@ The newspaper office was my next stop. Most of what I found was useless, but the
 
 The same cabin Jeremy wanted us to find. My heart was pounding as I realized the connection. I thought about texting Missy and John, they deserved to know, but this felt personal. The first time I saw my mother's sanctuary, it had to be alone.
 
-I waited until nightfall, lying fully dressed on my bed, listening to the house settle. When Dad's door finally clicked shut, I crept downstairs, each step a potential betrayal. Outside, the night air was thick with humidity. My phone buzzed, a text from Missy: "Haven't heard from you all day, let us know you're okay." Guilt gnawed at me, but I pushed it down. Better they stay safe. Someone had to be left to tell the story in case something were to happen to me
+I waited until nightfall, lying fully dressed on my bed, listening to the house settle. When Dad's door finally clicked shut, I crept downstairs, each step a potential betrayal. Outside, the night air was thick with humidity.
 
 The White Woods were different at night. My phone's flashlight carved weak paths through the darkness, but the shadows seemed to move on their own. I passed the well, its mouth a black circle against the ground, calling to me. Larry was down there, somewhere, but rushing in blind would only get me killed.
 
