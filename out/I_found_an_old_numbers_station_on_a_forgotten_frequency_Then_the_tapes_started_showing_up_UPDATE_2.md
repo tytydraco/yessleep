@@ -69,3 +69,5 @@ If anyone is still listening at 2:37 a.m.—and if you hear anything—please te
 Or anything at all. Any advice would be greatly appreciated.
 
 See previous entry [here](https://www.reddit.com/r/nosleep/s/1HcqhJVzko)
+
+See next entry [here](https://www.reddit.com/r/nosleep/s/ph4J7rdsEl)
