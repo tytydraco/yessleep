@@ -1,0 +1,35 @@
+I’m a retired psychiatrist who during the 80s and 90s worked at a mental hospital, before it closed during the psychiatry reform in the mid-90s. I [shared a story](https://www.reddit.com/r/nosleep/comments/1kkcbm7/i_worked_at_a_haunted_mental_hospital/) a few days ago (on the advice of my grand daughter) and here’s another one from my time there. As far as the history of the place, I believe it used to be some type of wellness place, then became a mental hospital and went through a few incarnations as laws and the understanding of psychiatry changed, and when I worked there we had inpatient care for adults, children and adolescents, as well as criminal offenders though I had very little to do with the last category.
+
+The first time I heard anything about the pair Beata and Beatris was when a young woman who due to trauma—I’m keeping it vague due to professional confidentiality—refused to speak. It was the third or fourth session we had, and when she came in she was clutching this vintage porcelain doll in a fancy dress. It was a bit dirty and didn’t seem new at all, but while I found it odd, I didn’t have a problem with it being there.
+
+I turned on the tape recorder and started the session. At first she would just nod, shake her head, or just not answer—which is what she’d done prior sessions—and I would state that for the record. Then I decided to ask about the doll. Where had she gotten it? My patient leaned in to, seemingly, whisper something to the doll, far too soft for me to be able to hear, and then the doll answered:
+
+“We thought she needed help.” The voice was childlike, with a strange intonation. I stared at the two, before I reasoned that it was ventriloquism, and that this was progress. The doll’s mouth didn’t move, obviously, even as it continued. “She is in pain and doesn’t know how to deal with it. You will help her, won’t you?”
+
+“I … of course, I will help her.” I nodded firmly as I glanced between the doll and my patient, and as the session continued I finally got some answers that I had been needing.
+
+It wasn’t until two months later, when she was being discharged that I started listening to the tapes to get the full transcripts for her record. I didn’t need it when I was working with her full time—I always kept notes for that—but having a transcript was important for the future.
+
+The doll’s voice didn’t show up. I could hear my questions, but whenever she answered … nothing but static. At first I thought it was something wrong with that tape, but every single tape that was supposed to have the doll’s voice only had static.
+
+As I was trying to make sense of it, I noticed movement in the reflection of my monitor. I glanced back, and on the top shelf of the bookcase in the corner, I saw the doll. She was sitting there, watching me. I looked back down at my notes, and when I looked back? She was gone.
+
+Now thoroughly rattled I sought out my patient to ask her about the doll. Where had she found it? She had mentioned a woman in one of the sessions—was this a patient, someone on the staff? My patient seemed unsure on how to answer it, so I sat down with her and promised that this was still covered by the confidentiality I was bound by through my profession.
+
+“It was a dream.” Her voice halting and unsure. “I was in my room, and the door was open, and then I saw her. I don’t know how old she was, but older than me and probably younger than you. She was dressed in a long, flowing dress and held the doll clutched in her arms. She didn’t speak, but had this … sweet but mournful look to her. I could tell her life had been hard. And that she felt sorry for me. She held out the doll to me, and I accepted it in the dream.” She looked down at her hands before up at me again. “She was sitting on the desk when I woke up.”
+
+I wanted to ask about how the doll “spoke”. But I didn’t, because I wasn’t sure I wanted the answer, so I just let it go, and in our records marked that the tapes were corrupted (it happened, just … not generally that selectively).
+
+Through the next months, I did see the doll from time to time. Never doing anything in particular, apart from watching and sometimes—I believe—playing small pranks like hiding things (“where did my pen go?” and then a few minutes later it’s exactly where you’d put it, that sort of thing).
+
+The first time I saw both of them was during the worst time in my life. To start with, my late husband was not a good man. When I got pregnant it got worse, and I started looking for a way out, all masked as needing to work late in preparation for maternity leave.
+
+I remember being at the end of my tether, so I locked the door to my office and just sat down to sob, allowing all my emotions to release. Through my tears I realised I wasn’t alone. No one should’ve been able to get into my office, but I tried to school my expression as I looked up to ask what they needed. The words stuck in my throat as I met Beatris'—or maybe Beata's—eyes. There was something very unnerving in her calm expression, and not just because I could tell I was looking at a ghost. But more than that eerie look, she looked forlorn and strangely sympathetic. She gave me a sorrowful smile, and then she was right in front of me. She touched my cheek gently, and I can’t explain the sensation. It wasn’t painful, but I also felt like all my nerve endings were on fire (which yes, I know is a contradiction). My tears started falling again as I sobbed, because while I don’t know exactly what had happened to her, I knew that she had known the pain I do. She didn’t haunt me to scare. She haunted me to comfort me.
+
+Once it was over and I could think again, I realised what had disturbed me with her calm expression. It wasn’t calm. It was void of emotion. I’ve seen that expression in a lot of my patients, when they speak of what was done to them that broke them. And it wasn’t just trauma I could read. She’d been lobotomised.
+
+The last part I got confirmed when I talked to older staff. One nurse, near retirement, told me that she’d actually met Beatris when she was alive. She’d worked at the hospital while in training, after the lobotomy so she never knew her before she had regressed to childlike behaviour, clinging to her doll, called Beata. Beatris had died in that large fire too (though that was after my nurse friend had left, and she didn’t return until after Dr. C left his post).
+
+Because I felt a kinship with Beatris, I decided to leave flowers on her grave. She—like most who had died while at the hospital—was buried on the mainland, in a corner of a large cemetery. The plots dedicated to the victims of the fire were well kept, and a few even had flowers on them. I  passed Erik’s grave, which had fresh flowers, but after several rounds I still hadn’t found Beatris’ grave.
+
+Because she was buried under the name Beata.
