@@ -250,5 +250,4 @@ For a second I lamented taking the shady road after everything that had happened
 
 After I managed to yank it out I tried to access maps and quickly realized I had no service of any kind. I asked Andy and Dario to check their phones and they also had no service. My anxiety only grew as I unfolded the paper map and we continued onwards.
 
-
-
+[Part 2](https://www.reddit.com/r/nosleep/comments/1koj1qt/the_missing_parking_lot_part_2/)
