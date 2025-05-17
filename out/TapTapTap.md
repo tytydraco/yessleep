@@ -1,67 +1,69 @@
-You think you're so safe...
+There are some things from childhood that stick with you, not because they were particularly traumatic in the grand scheme of things, but because they were just… odd.
 
-*tap-tap-tap*
+ Unsettling in a way you couldn’t quite articulate back then. For me, it was the tapping.
 
-You think because you're behind a screen, sitting on the john or scrolling in bed, I can't find you...
+I grew up in a fairly ordinary two-story house in a quiet suburban neighborhood. My room was on the second floor, right at the end of the hallway. It was my sanctuary, filled with posters of bands and shelves overflowing with books. But starting when I was around ten, maybe eleven, I’d occasionally hear it: a faint, rhythmic tapping. It wasn’t the house settling, or pipes groaning. This was distinct. Tap. Tap-tap. Pause. Tap.
 
-*tap-tap-tap*
+It always seemed to come from the same spot – the far corner of my room, near the window, right where the wall met the floor. The weirdest part? It often sounded like it was coming from inside the wall, or maybe just beneath the floorboards. I’d tell my parents, of course. My dad, ever the pragmatist, would check for loose siding outside, inspect the baseboards, even tap on the walls himself, trying to replicate it. He never could. “Probably just the wind, kiddo,” he’d say, or, “Maybe a squirrel in the attic.” But it didn’t sound like a squirrel. It was too methodical.
 
-You read these stories and tales from other users, always from the point of view of the victim or the tragic fate of some college student driving home through the woods.
+After a while, I learned to ignore it, or at least push it to the back of my mind. It wasn’t constant, maybe happening once or twice a month, always late at night when the house was still and silent. It never felt overtly threatening back then, just… there. An unexplained footnote to my childhood.
 
-*tap-tap-tap*
+Years passed. I went off to college, moved into my own apartments, and the memory of the tapping faded into the background noise of life. I barely even thought about it.
 
-My latest mark got away for now, but as I sit here in the attic waiting for my moment, I'm writing to explain just how close I am to each of you.
+Then, about two years ago, my father passed away. My mom, finding the old house too large and too full of memories, decided to sell it. I was tasked with clearing out my old room, packing away years of accumulated belongings. It was a strange, nostalgic experience, unearthing old toys, forgotten notes, and dusty yearbooks.
 
-I read thier story just moments ago.  Always brings wide, toothy grin to my face when I see these.
+I spent a few nights there, sleeping in my childhood bed for the first time in over a decade. The first night was uneventful, aside from the bittersweet ache of nostalgia. The second night, however, was different.
 
-[https://www.reddit.com/r/nosleep/comments/y8illf/people\_keep\_flashing\_their\_high\_beams\_at\_me/](https://www.reddit.com/r/nosleep/comments/y8illf/people_keep_flashing_their_high_beams_at_me/)
+I woke up suddenly around 3:00 AM. The room was pitch black, the kind of oppressive darkness you only get in a house far from city lights. For a moment, I just lay there, disoriented, trying to figure out what had woken me. Then I heard it.
 
-*tap-tap-tap*
+Tap. Tap-tap. Pause. Tap.
 
-\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*
+A cold dread, sharp and immediate, washed over me. It was exactly as I remembered, but somehow more… present. Louder. It was still coming from that same corner. My heart began to pound against my ribs, a frantic drumbeat in the otherwise silent room. I strained my ears, every nerve ending alight.
 
-Wilhelmina Drive. Please. You simply noticed the events of the evening starting there.
+This time, it didn’t stop after a few repetitions. It continued, a soft, persistent rhythm that seemed to drill directly into my sanity. Tap. Tap-tap. Pause. Tap.
 
-My silence and stealth went on for 20 miles prior to that. Holding to the roof of your lame blue sedan, I waited.
+I couldn’t move. It was like my limbs were filled with concrete. I told myself it was just the old house, stress, grief playing tricks on my mind. But the sound was too real, too distinct. It was the sound from my childhood, a ghost I thought I’d left behind.
 
-Long, jet-black talons silently grouping the roof of this dumpy car. I could have struck at any moment.
+After what felt like an eternity, but was probably only a few minutes, I fumbled for my phone on the nightstand, my hand shaking so badly I almost dropped it. The sudden glare of the screen made me wince, but I quickly turned on the flashlight, aiming its beam towards the corner.
 
-You humans piss me off to no end. The comraderie among you. The thought to protect each other and warn of beasts and monsters nearby. It's annoying beyond belief. If those other dumb drivers hadn't flashed high beams your way, you never would have made it past mile-marker 12 and I'd be inside the car taking whats mine.
+Nothing. Just the bare wall, the old wooden floorboards, a dusty skirting board. The tapping stopped the instant the light hit the area.
 
-First flash. Fucking bright. I pull myself lower to the roof and freeze. You pace slows a bit, watching the corners for *something* out of the ordinary.
+My breath hitched. I scanned the entire room with the light, my heart still racing. The closet door was closed. The window was locked. There was no rational explanation.
 
-Finding nothing you resume your journey.
+I barely slept for the rest of that night, leaving the flashlight on my phone aimed at the corner until the battery died. The silence that followed was almost worse than the tapping, heavy and expectant.
 
-I'd waited long enough. Gripping tightly to the vehicle with my left, I raise my right..... arm? Appendage? Whatever you would call it. The cold, 40ish degree wind biting at my darkend flesh as I anticipate the warm, thick red liquid which will soon quench my thirst. Dreaming of it dribbling down my talon. I've been here before, I've felt this rush.
+The next day, I told myself I’d imagined it, or that it was some animal. I even went outside and checked the exterior wall, looking for any holes or loose panels. Nothing. I checked the attic. Just dust and old insulation.
 
-Second Flash. FUUUUUCK! That is so fucking bright! I sneer at the driver and contemplate jumping to thier vehicle. Again you slow. I can hear your movements inside. You've read the stoies and seen the shows. You look at your phone. You check the back seat. Filthy human. Just look up through the moon roof.
+That night, I resolved to be ready. I left a glass of water on my nightstand and my phone, fully charged. I tried to stay awake, reading, but exhaustion eventually claimed me.
 
-Look up and cast off the element of suprise so I may attack without consequence!
+It was the sound that woke me again, but this time it was different. Closer.
 
-I'm getting bored. It's time. Again I clutch to the vehicle and raise my right.... arm? Appendage? Whatever the fuck you want to call it. I'm ready to strike. I feel the explosive muscles tightening as I prepare to rip the roof from the car and devour you. The frantic state is the sweetest thing in the world. Fear truly does garnish the lifeblood of you meatbags.
+Tap. Tap-tap.
 
-Third Flash. MOTHER FUCKER! I'm over it. I'm not dealing with this shit anymore. I need you to look up so I can strike. Until seen I can not attack. I can't become whole and in control until the chase is on. LOOK UP YOU TINY MAGGOT!
+It wasn’t coming from the corner anymore. It was coming from the foot of my bed.
 
-Fuck this. I'll start it.
+I froze, my eyes snapping open in the darkness. My blood ran cold. I could feel the vibrations, ever so slightly, through the mattress. It was soft, delicate, like someone lightly drumming their fingernails on the wooden footboard.
 
-*tap-tap-tap*
+Tap-tap. Pause. Tap.
 
-I gently bounce a talon off the moonroof window.
+I didn’t dare breathe. The darkness in the room felt absolute, pressing in on me. Who was doing this? Or… what? The sheer proximity of it, the deliberate, patient rhythm, was utterly terrifying. It felt like whatever was making the sound knew I was awake. It knew I was listening.
 
-The fucker hits the gas. Not a huge deal as I'm able to hold on with relative ease, but where will they go? Somewhere crowded and I'll have to abandon the chase? Maybe we'll go to a police station and I'll have to run from the fireams they carry. Who knows, but we'll see.
+I couldn’t bring myself to reach for my phone. The thought of shedding light on whatever was at the foot of my bed, of seeing it, was more than I could bear. I lay there, rigid with terror, for what felt like hours. The tapping was intermittent now. A few taps, then silence, then a few more. It was as if it was playing with me, testing my resolve.
 
-*tap-tap-tap*
+At some point, just as the first hint of grey dawn began to seep through the curtains, the tapping stopped. It didn’t fade away; it just ceased, abruptly.
 
-What's this? THEY'VE TAKEN ME HOME! If I weren't so worried about the neighbors I'd laugh histerically at this move. This will be so much more satisfying!
+I didn’t move until the sun was fully up, painting stripes of light across the room. When I finally found the courage to sit up and look, there was nothing there. Just the old wooden footboard, the worn carpet. No sign of anything.
 
-As they scurry inside, I see the hot air vent toward the roof and slink my way into the attic without making a sound.
+I didn’t spend another night in that house. I packed up the rest of my things in a blur of adrenaline and fear, my ears constantly straining for that sound. I practically threw the boxes into my car. As I locked the front door for the last time, I couldn’t shake the feeling that I was being watched from one of the upstairs windows.
 
-I can hear them preparing for sleep, thinking they are away. Thinking they are safe and I've gone. As I'm typing this I remind them I'm here...
+The house sold a few months later. I never told my mom about what I’d heard. What was the point? She had enough to deal with, and she’d probably just say it was my imagination, grief making me see and hear things.
 
-*tap-tap-tap*
+But I know what I heard.
 
-It's finally time. MY time. I'll come back and let you know just how delicoius this evening turned out to be once I'm done and cleaned up.
+It’s been two years since that last night in my childhood home. I live in a new apartment now, a modern building in a busy part of the city. Most nights are fine. But sometimes, when the apartment is quiet, when I’m on the edge of sleep, I hear it.
 
-See you **SOON**....
+Tap. Tap-tap.
 
-*tap-tap-tap*
+It’s fainter now, almost imperceptible. Sometimes I wonder if it’s just the memory of the sound, burned into my subconscious. But other times… other times it feels real. Like something followed me. Or, perhaps, like the sound itself isn’t tied to a place, but to me.
+
+I don’t know what made that tapping sound, and I don’t think I ever want to. All I know is that a part of me is always listening, waiting for it. And the silence, these days, is the most terrifying sound of all. Because you never know when it’s going to be broken.
