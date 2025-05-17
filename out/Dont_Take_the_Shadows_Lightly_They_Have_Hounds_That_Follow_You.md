@@ -32,18 +32,16 @@ I was the one that found his body while camping in the area. Since then I KNEW t
 
 The Hound
 
-Two years later, Junior year of high school I was at a friend's house. We were playing PC games in the basement for several hours. Nothing important. Maybe some STALKER and Morrowind. Lighthearted stuff, in hour eyes, you know?
+Two years later, Junior year of high school I was at a friend's house. We were playing PC games in the basement for several hours. Nothing important. Maybe some STALKER and Morrowind. Lighthearted stuff, in our eyes, you know?
 
 As we were leaving, I heard a low growl. They only had an elderly cat that stayed upstairs and hissed at me every time I tried to pet him. I love animals, I thought I got along with them. He didn't like me though.
 
 When I heard the growl I turned my head and saw something that didn't belong. In a small crawlspace used for storage was a dog. Easily 5 feet long and jet black with bloody gouges in its hairless skin. I tried to run, I almost made it to the top of the steps, but I felt a tug and some kind of pain that wasn't superficial.
 
-I believe I've been marked. I've moved from state to state since then ever since I graduated. I'm running from the Shadow and its Hound. I don't know how much longer I have... But I can feel those eyes seeking me from the darkness. 
+I believe I've been marked. I've moved from state to state since then ever since I graduated. I'm running from the Shadow and its Hound. I don't know how much longer I have... But I can feel those eyes seeking me from the darkness.
 
 I've only survived this long because I think I found a deterrent!
 
 1. Keep your room cold, they are prone to mid to high temperatures
-
 2. Get a cat. They are averse to cats as I think they can see them and ward against them
-
 3. For some reason, and I don't know why, they hate incense. You'd think something that looks like it's from hell is okay with smoke and doesn't care about it... They just keep their distance and watch me now as long as I have incense or a cigarette going
