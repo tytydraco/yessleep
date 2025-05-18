@@ -4,15 +4,15 @@ For two hours, the only sound was the relentless ticking of the big clock on the
 
 They’d trapped me again. Honestly, it almost felt like my own fault.
 
-Same trick as always — wait until I went to the bathroom, toss my stuff into an empty classroom after last period, and lock the door as soon as I stepped in to grab it.
+Same trick as always — wait until I went to the bathroom, toss my stuff into an empty classroom after our last period, and lock the door as soon as I stepped in to grab it.
 
 It was the perfect way to farm laughs, and Seth and his friends were good at it. The whole class walked by laughing as loud as they could.
 
 Usually a teacher would notice pretty fast and come let me out, giving the kids a mild scolding. 
 
-This time, no one came. So I waited, sitting there, trying not to cry. I didn’t want to give them that satisfaction.
+This time, no one came. So I waited, tried shouting for someone, gave up and sat there, trying not to cry. I didn’t want to give them that satisfaction.
 
-Crouched in the corner, worn out from calling for help that never came, I kept wondering when the night janitor would finally spot me.
+Crouched in the corner, I kept wondering when the night janitor would finally spot me.
 
 That’s when I saw it—a shape moving in the dark, low to the ground, beneath the chairs. At first it was just a blur. Then it grew clearer.
 
@@ -28,7 +28,7 @@ He crouched beside me, watching me the same way he did when I was eight and scra
 
 Back then, Mom called him my imaginary friend. “He’s just in your head,” she’d say, smiling like it was sweet. But she never looked too closely at the drawings I made of him. He wasn’t really a friend.
 
-And to me, though, he always felt real. He even cast a shadow..
+And to me, though, he always felt real. He even cast a shadow.
 
 Terry leaned in, his mouth just inches from my ear.
 
@@ -88,13 +88,13 @@ Not long after, I heard Terry’s voice coming out of the branches above me.
 
 I looked up—and there he was. Arms looped over like a monkey, his long blue fingers gripping the wood.
 
-He was laughing. Loud, erratic. Then the whisper came back, but now it was louder. Over and over.
+He was laughing. Loud, erratic. Then the whisper came back, now sharper. Over and over.
 
 “*Let me kill them. Let me kill them. Let me kill them.*”
 
 It crawled under my skin, made my hands shake. I couldn’t take it, so I got up and left. 
 
-As I walked off, I heard him shout behind me—his voice sharp, almost desperate:
+As I walked off, I heard him shout behind me—his voice almost desperate:
 
 “*You have to let me kill them*”
 
@@ -108,7 +108,7 @@ I asked to go to the bathroom. She nodded, barely looking up from the book she w
 
 The class was still going. She was reading aloud, but there were muffled laughs across the room. Smiles being bitten down and heads turning slightly toward me, then away.
 
-I froze near the door for a second before walking quietly back to my seat.
+I stopped near the door for a second before walking quietly back to my seat.
 
 Something felt wrong. So I checked my desk, then my backpack.
 
@@ -132,15 +132,15 @@ Seth.
 
 He was sitting there like a king, holding my notebook, now half-empty, like it was a trophy. Looking right at me with that smug, dead-eyed smile.
 
-Something broke in me at that moment. I stood up so fast I knocked my chair over.
+Something broke in me at that moment, and I stood up so fast I knocked my chair over.
 
 Ms. Mayworth paused her reading.
 
-I didn’t even hear what I shouted, because my vision blurred red. My throat was raw. It felt like something else had taken control of my mouth—something deeper than rage.
+I didn’t even hear what I shouted, because my vision blurred red. My throat was raw. It felt like something else had taken control of my mouth, something deeper than rage.
 
 The class burst into more laughter. Not at the poems anymore. At me.
 
-Seth leaned back in his chair, relaxed. Smiling harder at my tears.
+Seth leaned back in his chair, relaxed. Enjoying the sight of my tears.
 
 Ms. Mayworth quickly walked over, placing a hand on my shoulder. “Outside,” she said, gently but firmly. “Let’s go.”
 
@@ -148,7 +148,7 @@ And I followed, eyes down, face burning.
 
 She closed the door behind us.
 
-We stood in the hallway. I kept staring at the floor, ashamed.
+We stood in the hallway as I kept staring at the floor, ashamed.
 
 “Are you okay?” she asked.
 
@@ -190,6 +190,6 @@ Then screams. Desks scraping. Chaos.
 
 A splash of red painted the tiny window in the door.
 
-The crying was so loud I can still hear it now. 
+The crying was so loud I can still hear it now. Almost as loud as Terry's laugh.
 
-But I didn’t move. I just stood there, [numb.](https://www.reddit.com/user/Accomplished_Low7889/)
+And I didn’t move an inch. I just stood there, [numb.](https://www.reddit.com/user/Accomplished_Low7889/)
