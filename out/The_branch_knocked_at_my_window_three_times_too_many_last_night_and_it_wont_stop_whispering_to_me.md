@@ -1,6 +1,4 @@
-2009, after a night spent wandering campus, chasing lights and watching the walls breathe. The crack of dawn drew my doughy, bloodshot eyes to a massive, ancient Methuselah pine growing in the middle of the street - in which, as far as I knew, it wasn't there yesterday, the day before, and the days since.
-
-Fifteen years ago, when my sobering sunrise stroll led me to the gates of Hell. Not to be burned by hellfire, crushed by brimstone, poked with pitchforks or pulled by medieval racks, but to have an audience with the devil's pine and together, watch the world end.
+2009, fifteen years ago, after a night spent wandering campus, chasing lights, and watching the walls breathe. The crack of dawn drew my doughy, bloodshot eyes to a massive, ancient Methuselah pine growing in the middle of the street - in which, as far as I knew, it wasn't there yesterday, the day before, and the days since.
 
 It towered over the lavish dorms. Hung high over the campus flags, enshrouding the block in fleets of spiny shadows. Its bristled arms outstretched, twisted over themselves like the ropes wrapped around the wrists of a crucified beggar. The street it grew from glistening with thousands of watery mirrors, running and gathering to its pothole.
 
@@ -34,7 +32,19 @@ Mournful warbles call out from downy patches of the pine's shiny foliage.
 
 "Well, it should've! I'm sure you're fine! Now get up before a car comes by and turns you into another puddle."
 
-I'm then hit with the cloying stench of rot, perfumed in the sweet but metallic taste of soured blood: the unmistakable odor of rotten remains.
+"Are you not seeing this?!"
+
+J's whips around, scanning the streets, only to shrug.
+
+"Seeing what? All I see is you."
+
+"This fuckin' thing!" I roar, hitting the bark with clenched fists; its jagged shards scratching into me. "This big fuckin' thing! You can't see it?!"
+
+"Look, man, I gave not even ten seeds. You shouldn't be seeing anything! If you're messin', it ain't funny."
+
+"I'm not! Look! Look- " 
+
+Another hit unleashes the cloying stench of rot, perfumed in the sweet but metallic taste of soured blood: the unmistakable odor of rotten remains.
 
 Memories flood back, once forgotten, made vivid and haunting. Film reels stashed in the deepest, darkest depths of my mind. The reels, memories: burnt at the edges, as if I held a lighter to them but never finished the job. Enough left behind, but warped beyond recognition.
 
@@ -522,6 +532,6 @@ Last of them, the Bone-Breed: a collection of bleached bones held together with 
 
 "**For I bear fruit once more!**"
 
-It howls, a thunderous roar shaking the ground; the first trumpet of the apocalypse singing, ushering the end of man - a plan fifteen years in the making. And the seventh just sang yesterday. 
+It howls, a thunderous roar shaking the ground; the first trumpet of the apocalypse singing, ushering the end of man - a plan fifteen years in the making. And the seventh  went off yesterday. 
 
 (TO BE CONTINUED.)
