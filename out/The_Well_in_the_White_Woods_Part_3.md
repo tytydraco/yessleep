@@ -1,4 +1,4 @@
-If you haven’t read [Part 1](https://www.reddit.com/r/nosleep/s/bhFfkFdcsn), or [Part 2](https://www.reddit.com/r/nosleep/s/RK10nVyNYq), please go read those. I’m sorry for pause in between entries, it’s been a difficult task to dredge all of this up. This is the note I found in my mother’s cabin, if any of you have any thoughts or ideas on what any of this could mean so far, please let me know. 
+If you haven’t read [Part 1](https://www.reddit.com/r/nosleep/s/bhFfkFdcsn), or [Part 2](https://www.reddit.com/r/nosleep/s/RK10nVyNYq), please go read those. I’m sorry for the pause in between entries, it’s been a difficult task to dredge all of this up. This is the note I found in my mother’s cabin, if any of you have any thoughts or ideas on what any of this could mean so far, please let me know. 
 
 “To whoever has found this—
 

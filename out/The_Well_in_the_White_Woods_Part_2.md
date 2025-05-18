@@ -252,3 +252,5 @@ I sifted through the papers, trying to piece together Mom's investigation. She'd
 Just as despair started to set in, I noticed something off about one of the desk drawers. A false bottom, cleverly hidden. Inside was a single piece of paper, my mother's signature at the bottom.
 
 The note made my blood freeze:
+
+[Part 3](https://www.reddit.com/r/nosleep/s/9F7kSpYcQ1)
