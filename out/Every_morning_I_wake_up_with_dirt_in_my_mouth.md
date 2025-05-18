@@ -66,7 +66,7 @@ Quiet fell upon us. I wanted them to stop talking. I wanted to forget everything
 
 We walked another twenty minutes and with every step we took, the birdsong we could hear so clearly before faded more and more. Two and Three stopped by a tree, covered by a particularly interesting pattern of fungus, to grab some samples. Again, I thought about turning back, but deep down I knew that there was only one way forward. I gestured towards Four and on we went. 
 
-I found myself obsessing over the red circle on the map. It was child-like in its shaky shape, but drawn with intent I had never seen before. Thinking back, Mr. David had closed his full fist around the crayon he used and struggled mightily to finish the directions. In hindsight it almost felt like a sacrifice of some sort. I continued mulling over this as we journeyed deeper into the forest. The shrubbery became thicker, the trees grew closer and the little light from the afternoon sun barely pierced the canopy anymore. 
+I found myself obsessing over the red circle on the map. It was child-like in its shaky shape, but drawn with intent I had never seen before. Thinking back, Mr. David had closed his full fist around the crayon he used--or was it a pencil?--and struggled mightily to finish the directions. In hindsight it almost felt like a sacrifice of some sort. I continued mulling over this as we journeyed deeper into the forest. The shrubbery became thicker, the trees grew closer and the little light from the afternoon sun barely pierced the canopy anymore. 
 
 “Here we are,” Four said.
 
