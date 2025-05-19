@@ -89,8 +89,6 @@ The officer leaned back slightly eyeing me suspiciously, “Well, Sarah’s pret
 "Look," I said desperately, "My brother... he passed away. After that, Sarah and I stayed friends. There's nothing weird or bad here, I swear, this was a lifetime ago."
 The officer, whose name tag read "Ola," scribbled a few more notes before looking up at me. 
 
-The officer leaned back slightly eyeing me suspiciously, “Well, Sarah’s pretty forgetful, right? She probably had to rush off for an emergency or something. I’m sure she’ll come back for her phone later.”  
-
 I laughed and shook my head, this is futile. Small town cops, what can I expect right? If anything did happen to her from his point of view I would be to blame. 
 
 “Well, I get why you’d be worried. It’s better to be safe than sorry, right? 
@@ -108,7 +106,7 @@ Surrounding it was a black, goopy, sponge-like mess, tendrils extending out at u
 
 The mass was unsettling—big enough that a baby could crawl through it—and i couldn’t shake the feeling that it had something to do with the creatures. A portal, maybe.  
 
-Whatever it was, I couldn’t just leave it there. I grabbed a socket wrench and carefully used it to pry the tooth from the mass. As it came loose, the tendrils recoiled, retreating into the tooth itself as though alive. I barely breathed as he carried the tooth to the bathroom sink, careful not to let the foul-smelling goo touch me. Once there, I rinsed it off, scrubbing it clean under the water. When the putrid smell finally faded, I held it up to the light, and for the first time in years, I touched it with my bare hand. 
+Whatever it was, I couldn’t just leave it there. I grabbed a socket wrench and carefully used it to pry the tooth from the mass. As it came loose, the tendrils recoiled, retreating into the tooth itself as though alive. I barely breathed as I carried the tooth to the bathroom sink, careful not to let the foul-smelling goo touch me. Once there, I rinsed it off, scrubbing it clean under the water. When the putrid smell finally faded, I held it up to the light, and for the first time in years, I touched it with my bare hand. 
 
 Meanwhile, I could hear Officer Ola’s footsteps crunching in the backyard, oblivious to what I was doing. Thankful for the officer's distraction.
 
@@ -120,7 +118,7 @@ They were grateful for “The meat,” and with a mounting sense of horror, I re
 
 So they needed more resources—and they had decided I would be the one to help.    They reminded me that this connection between them wasn’t accidental. My mind watching, yanked to the day I’d found the tooth in the butcher shop, how I’d kept in my pocket, and how I’d unknowingly slept with it in my pocket at night, you see, I was out drinking with Sarah after work and passed out in bed immediately upon entering my room. 
 
-So that night, while I’d been unconscious, the tendrils of the tooth had crept out, sinking into me and injecting their interdimensional energy into his very being. From that moment onward, I’ve been tied to them, a telepathic link I had never understood until this point.    
+So that night, while I’d been unconscious, the tendrils of the tooth had crept out, sinking into me and injecting their interdimensional energy into my very being. From that moment onward, I’ve been tied to them, a telepathic link I had never understood until this point.    
 
 My chest tightened as I processed their demands and the realization that Sarah was alive—but only as long as I cooperated. If I refused, they wouldn’t waste time on me. They’d simply find someone else to fulfill their needs, which meant well... 
 
