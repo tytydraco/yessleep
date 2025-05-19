@@ -359,3 +359,5 @@ I’m happy to be alive, but we didn’t really get to learn much in that rig, a
 Well… if she wakes up, I suppose…
 
 I’ll talk to you all soon.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1kq1y1f/im_trapped_on_the_edge_of_an_abyss_something_big/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
