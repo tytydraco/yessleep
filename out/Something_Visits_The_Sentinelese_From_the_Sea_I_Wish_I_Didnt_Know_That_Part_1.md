@@ -38,7 +38,7 @@ He had definitely cheated on her, but I wasn’t about to rat him out. Sadly, I 
 
 
 
-During the time they allowed contact in 1991 with the members of the tribal welfare from India, their language was completely incomprehensible even by the indigenous neighboring tribes of the Andaman, and this left everyone puzzled. But there are rumors that recordings from that time were analyzed years later, and experts behind closed doors found the language and dialect to have been inspired by those found in the Dominican Republic, Papua New Guinea, and some areas of Indonesia. All these unanswered questions were buzzing in my mind like a beehive. It was as though the island was the queen bee, and all these questions were just looking to nest in my brain until they turned the rest into nothing but oozing red honey. 
+During the time they allowed contact in 1991 with the members of the tribal welfare from India, their language was completely incomprehensible even by the indigenous neighboring tribes of the Andaman, and this left everyone puzzled. But there are rumors and recordings from that time that were analyzed years later, and experts behind closed doors found the language and dialect to have been inspired by those found in the Dominican Republic, Papua New Guinea, and some areas of Indonesia. All these unanswered questions were buzzing in my mind like a beehive. It was as though the island was the queen bee, and all these questions were just looking to nest in my brain until they turned the rest into nothing but oozing red honey. 
 
 
 
@@ -58,7 +58,7 @@ I told him I needed a place to stay and that I would need to employ his services
 
 
 
-Bala’s said that his family home was in a nearby village, and if I was serious about this, we could both go there and experience all I needed for my “spiritual” journey. At that moment, I knew we would get along just fine; he was like me and liked turning work into vacations, and I couldn’t say no. So two days later, and after much travelling, I ended up in the village of Vedal. Now, to keep it brief, I will skip the part about my stay in the town, but I thought I took the village life pretty well. I had a decent routine of waking up, exercising, visiting the temple and then spending the day locked up in my room, trying to contact anyone who could get me more information about the island. My first and biggest hurdle was keeping my conscience clean. 
+Bala said that his family home was in a nearby village, and if I was serious about this, we could both go there and experience all I needed for my “spiritual” journey. At that moment, I knew we would get along just fine; he was like me and liked turning work into vacations, and I couldn’t say no. So two days later, and after much travelling, I ended up in the village of Vedal. Now, to keep it brief, I will skip the part about my stay in the town, but I thought I took the village life pretty well. I had a decent routine of waking up, exercising, visiting the temple and then spending the day locked up in my room, trying to contact anyone who could get me more information about the island. My first and biggest hurdle was keeping my conscience clean. 
 
 
 
@@ -66,7 +66,7 @@ The Sentinelese have been isolated for hundreds of years, and the biggest risk w
 
 
 
-The next part was contacting people who would help me in this illegal act. Visiting the island is prohibited, and the coast guard keeps a vigilant eye on it, so I decided to hit the dark parts of the internet in India, but quickly realized that the gangsters online were either teenagers looking for some clout or people that wanted at least $5000 upfront even before discussing the plan. I quickly realized that this was dangerous and I could end up getting myself doxxed or worse, so I decided to try a local approach. There was a rather shady man in the village who seemed like the perfect candidate for my requirements. 
+The next part was contacting people who would help me in this illegal act. Visiting the island is prohibited, and the coast guard keeps a vigilant eye on it, so I decided to hit the dark parts of the internet in India, but quickly realized that the gangsters online were either teenagers looking for some clout or people that wanted at least $5000 upfront even before discussing the plan. It dawned on me that this was dangerous and I could end up getting myself doxxed or worse, so I decided to try a local approach. There was a rather shady man in the village who seemed like the perfect candidate for my requirements. 
 
 
 
