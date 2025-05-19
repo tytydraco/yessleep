@@ -20,7 +20,7 @@ While he choked on spit, sunglasses tipping, my fingers traced the pines's bark:
 
 "Nawww, Lady Momoy must be too busy seducing the unworthy. Man, what I'd give for a single night with her... Anyway, you should be fine."
 
-"Are you still tripping?"
+"Still tripping?"
 
 "When I am not is the better question."
 
