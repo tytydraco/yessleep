@@ -1,0 +1,17 @@
+It's about the air. The air is all fucked nowadays, not just in the city. I start choking out of nowhere just carrying groceries around. The vertigo gets honestly unbearable. Feels like next step I take, there I go, spiralling away from the ground. It gets better after it rains, and walking out into the hills lets me calm down a little, so my guess is pollution. Some modern day chemical I'm weirdly sensitive to, messing with my brain. I have a few other allergies. My brother, who's been fighting doctors about his tinnitus for a couple years, thinks it might be a neurological thing; told me something like
+
+"good fucking luck,"
+
+and to learn to live with it. I wake up breathless every morning and I feel like my feet are barely managing to stick to the floor. Before I can really wake up and the real anxiety kicks in I walk out to the hills and dig my fingers into the earth; that usually grounds me (ha, ha). If I've been having nightmares or it's a hot day I have to dig my arms down to the shoulder to get my heart under control. Otherwise the vertigo hits me even harder than usual and I can't do a thing all day.
+
+"It gets you thinking,"
+
+I told my brother last night. "We all go in the ground at the end. Why? Why would we put our dogs and our mothers and our siblings inside the earth? We dress them up and arrange them and then we bury them. Like acorns, for later. For when? What do you bet it all began as a way to hide the meat from predators? Or for later. It's obscene. A corpse is the opposite of a seed."
+
+"Where should we put them, then, genius?" he said. Fair enough. But he felt sorry for me. "Some graveyards are towers where birds pick at the bones. The sky instead of the earth."
+
+Just imagining made me nauseous. I looked it up and got a headache. It was like three in the morning and I had to drive far out into the hills until my phone was useless and then dug a grave for myself to lie in. It's hard to describe how realigning it was. The stars were far away with me out of their reach and the earth was warm. The air down there was light and it smelled more real, more how it's supposed to be. I could breathe so much better I finally realized how badly I had been choking above the surface. I hadn't slept well for years, but in a couple minutes I was sleeping like the dead and only woke up at midday when I was getting dehydrated. I got sunburnt pretty badly. It occured to me that you can't just toss a seed in the sunlight, it needs darkness first.
+
+Are we doing things right by living on the surface? When the time is right, sure, but you're supposed to get nine months in the oven before you're born into the sunlight. I was a couple weeks early. Some seeds need to freeze over the winter and then defrost. Maybe I missed some necessary step of development. I insist, it has to be chemical. I had never felt as able to breathe as last night.
+
+In any case, I need to dig a grave where I can lie down for a couple weeks without any air from the surface and no direct sunlight. There are no caves around here, but I would like driving somewhere that gets pretty deep and just seeing how far I go.  There are a bunch of dry wells around the area, for farming, and they're left completely unsupervised, so I think I might try climbing down one first. They can get pretty deep. The only caveat is that I have no experience climbing. How risky is this? I just want a proper mouthful of air.

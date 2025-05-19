@@ -542,3 +542,6 @@ Mike
  
 
 
+I gave him his phone back
+
+https://www.reddit.com/r/nosleep/s/gfNq6xF1SP
