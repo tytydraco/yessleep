@@ -1,4 +1,4 @@
-2009, fifteen years ago, after a night spent wandering campus, chasing lights, and watching the walls breathe. The crack of dawn drew my doughy, bloodshot eyes to a massive, ancient Methuselah pine growing in the middle of the street - in which, as far as I knew, it wasn't there yesterday, the day before, and the days since.
+2009, fifteen years ago: after a night spent wandering campus, chasing lights, and watching the walls breathe. The crack of dawn drew my doughy, bloodshot eyes to a massive, ancient Methuselah pine growing in the middle of the street - in which, as far as I knew, it wasn't there yesterday, the day before, and the days since.
 
 It towered over the lavish dorms. Hung high over the campus flags, enshrouding the block in fleets of spiny shadows. Its bristled arms outstretched, twisted over themselves like the ropes wrapped around the wrists of a crucified beggar. The street it grew from glistening with thousands of watery mirrors, running and gathering to its pothole.
 
@@ -24,7 +24,7 @@ While he choked on spit, sunglasses tipping, my fingers traced the pines's bark:
 
 "When I am not is the better question."
 
-The ground trembles under my feet, a quiet bellow pushing toward me. Roots of all sizes, arms interlocked by the elbows, squirm. My laces tangle on themselves, kicking up rocks and sending me splashing in a puddle. J laughs again, pointing at my brand new jeans now slathered in gunk; clutching his beanie and kangaroo pouch in sheer ecstasy.
+The ground trembles under my feet, a quiet bellow pushing toward me. Roots of all sizes squirm. My laces tangle on themselves, kicking up rocks and sending me splashing in a puddle. J laughs again, pointing at my brand new jeans now slathered in gunk; clutching his beanie and kangaroo pouch in sheer ecstasy.
 
 "Yeah, yeah, hope you choke on 'em! I thought you said this shit would pass by the morning!"
 
@@ -40,7 +40,7 @@ J's whips around, scanning the streets, only to shrug.
 
 "This fuckin' thing!" I roar, hitting the bark with clenched fists; its jagged shards scratching into me. "This big fuckin' thing! You can't see it?!"
 
-"Look, man, I gave not even ten seeds. You shouldn't be seeing anything! If you're messin', it ain't funny."
+"Look, man, I gave you not even ten seeds. You shouldn't be seeing anything! If you're messin', it ain't funny."
 
 "I'm not! Look! Look- " 
 
