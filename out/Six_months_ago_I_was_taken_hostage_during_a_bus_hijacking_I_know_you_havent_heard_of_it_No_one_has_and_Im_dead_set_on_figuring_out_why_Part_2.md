@@ -157,7 +157,7 @@ To my astonishment, the man looked older. *Decades* older. Dry, wrinkled skin 
 
 I shook his cold, withered hand and followed him out of the office.
 
-It was fortunate that I had a full carton of cigarettes nestled in my pants pocket, because when we returned to the lobby, my belongings were gone. Despite Monsignor’s reassurances, I’d never see any of them again. Clothes, toiletries, car keys, my taser, extra cigarettes - all vanished. Never see my sedan again, either.
+It was fortunate that I had a full carton of cigarettes nestled in my pants pocket, because when we returned to the lobby, my belongings were gone. Despite Monsignor’s reassurances, I’d never see any of them again. Clothes, toiletries, car keys, my taser, extra cigarettes - all vanished. Never saw my sedan again, either.
 
 After a few steps, he paused.
 
@@ -248,3 +248,5 @@ I experienced an uncontrollable rage, withdrawn from the pressure and the divini
 Before I could even understand what was happening, I attacked the person who had just saved my life.
 
 A favor that I’d end up repaying before I left [the mountain.](https://www.reddit.com/r/unalloyedsainttrina/)
+
+-Elena
