@@ -156,7 +156,7 @@ The 9 mm lay only a few feet from the scuffle and Max fumbled for it with his fr
 
 "Oh ho. Look at this," chuckled the Educator on stage. "So much for all that studying."
 
-The gun clicked when he pulled the trigger. Jacob flexed his fingers. Nothing. He brought the pistol to his face and hurried to fix the jam. By then I was able to deliver my own punch.
+The gun clicked when he pulled the trigger. Jacob flexed his fingers. Nothing. He brought the pistol to his face and hurried to fix the jam.
 
 My form was flimsy and I felt my wrist pop when my arm followed through. I must’ve hit a sweet spot because he stiffened up and fell back on his ass. He looked at me confused, like he was hoping I could explain something to him before Max jumped with an arm raised overhead.
 
