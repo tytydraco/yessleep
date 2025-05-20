@@ -129,3 +129,5 @@ Her voice on the phone was older, rougher around the edges, but still unmistakab
 Now I'm on a plane, watching familiar countryside scroll past below, each mile bringing me closer to the place I swore I'd never return to. My hands haven't stopped shaking since I got her call. There's a weight in my chest, a mixture of dread and... something else. Responsibility? Duty? Whatever it is, it pulls at me like a hook behind my ribs. Because deep down, in that dark place where we keep the truths we can't face in daylight, I've always known this wasn't over. That thing in the well - that presence that spoke without words - it's been patient. It's been waiting. And somehow, I've always known I'd be back.
 
 Maybe I'm the only one who can end this. Or maybe I'm just the next chapter in its story. Either way, I'm going back to the well. Back to where it all began. Back to whatever's been waiting all these years for our return. My plane just landed, I’ll update you whenever I can.
+
+[Final Part](https://www.reddit.com/r/nosleep/s/UkzYZsjAWx)
