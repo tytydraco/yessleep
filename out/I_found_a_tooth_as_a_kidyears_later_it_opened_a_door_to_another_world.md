@@ -131,3 +131,12 @@ Let me see it—to learn how it works.”
 The creatures paused, then agreed, explaining that I was too large to pass through the portal as it currently existed. Instead, they planted instructions directly into my mind, vivid and searing. I felt the intricate details—an elaborate setup involving cameras, lasers, and bizarre configurations—burn into my memory. The complexity of it all was overwhelming, yet impossible to forget, as though it had been etched into the fabric of my thought.
 
 I don’t even know how to describe how my head feels right now. Not only after what they planted in there but also—It’s like my once dull, predictable life has twisted into something surreal. Part of me feels a strange thrill I can’t ignore, but that’s buried under something heavier—fear. Fear for Sarah. I have to find her before it’s too late. I’ll keep you updated, feel free to doubt me. To think I’m crazy. But until I find her, none of that matters.  What would you guys do? 
+
+
+ **
+
+
+
+[Part 2](https://www.reddit.com/r/nosleep/s/0JGp1gJ2Ag)
+
+Hey everyone, I know this hasn’t reached a lot of you yet, and i’m not sure if it will, but l’m here and I need to see this through. If anything this is for Sarah and in case I don’t come out of this the same. Feel free to give me your thoughts if you have any. 
