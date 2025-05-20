@@ -1,12 +1,14 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1kjsrlb/i_made_a_deal_with_the_vampires_that_live_near_my/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-Lauren here. Some people call me a bully. I prefer extra-cocky.
+Lauren here. 
+
+Some people call me a bully. I prefer extra-cocky.
 
 It’s not that I’m cruel. I just don’t like people who are weaker than me.
 
 I see my role as someone who helps others prepare for the harshness of life. Sure…I can be mean. But I won’t apologize for it.
 
-I’m just gonna tell you what happened...because it changed my life. It has everything to do with Violet, the weirdest girl at our school.
+I’m just gonna tell you what happened...cause it changed my life. And it has everything to do with Violet, the weirdest girl at our school.
 
 It happened one month ago.
 
@@ -16,23 +18,23 @@ She had a black hoodie on, a mask over her face, and sunglasses. You couldn’t 
 
 She reminded me of one of those Ebola doctors, who covered themselves in plastic bags when supplies ran tight.
 
-Obviously…everyone was freaking out. Mrs. Kinsley asked Violet what she was doing. When she didn’t respond, Kinsley sent her to the principal’s office.
-
 We were all so confused, wondering: What the hell?
+
+Mrs. Kinsley asked Violet what she was doing. When she didn’t respond, Kinsley sent her to the principal’s office.
 
 I knew Violet was strange. But dressing up in black garbage bags? That was new.
 
-I decided to check it out. So a few minutes after Violet left, I raised my hand. Asked to use the restroom.
+I decided to check it out. So a few minutes after Violet left, I asked to use the restroom.
 
-I made it halfway through the hall when I heard a door slam. Then, the sound of plastic rubbing together. I turned the corner to see the bathroom door open, then close.
+I made it halfway through the hall when I heard the sound of someone running. I turned the corner to see the bathroom door open, then close.
 
 Gut-wrenching sobs exploded from inside. I figured Violet was in there.
 
-The crying grew more intense as I crept in. The sobs turned into lung-emptying wails. I started to feel sorry for her.  
+The crying grew more intense as I crept in. I started to feel sorry for her.  
 
 “Violet? Is that you?”
 
-The sobbing stopped. My shoes clacked against the floor as I passed each stall, heading for the last one.
+The sobbing stopped. My shoes clacked against the floor as I passed each stall.
 
 “What are you doing in here, Violet?”
 
@@ -40,11 +42,9 @@ The sobbing stopped. My shoes clacked against the floor as I passed each stall, 
 
 I yanked out my phone. Ready to make a video for my socials. I wasn’t going to pass this opportunity up.
 
+“Come on out, Violet.”
+
 “Please… leave me alone.”
-
-“I’m not leaving.”
-
-“Go away!”
 
 Her voice sounded harsh…yet beautiful. I’d always thought she came off whiny and pathetic. But this time, her voice seemed musical and…intriguing.
 
@@ -58,9 +58,7 @@ Her voice sounded harsh…yet beautiful. I’d always thought she came off whiny
 
 “I’m not going until you come out!”
 
-I reached the final stall.
-
-I heard the sound of plastic rubbing together. Then the CLINK of her door opening.
+I heard the sound of plastic rubbing together. Then the CLINK of the last stall opening.
 
 Violet stepped out.
 
@@ -78,17 +76,19 @@ I had an idea…
 
 ***
 
-You see, in our town there’s this legend. Supposedly, something lives at the old bridge past the dairy farm. Our parents used to tell us that if we stayed up late or did drugs, whatever lived out there would come get us.
+You see, in our town there’s this legend. Supposedly, something lives at the old bridge past the dairy farm. 
+
+Our parents used to tell us that if we stayed up late or did drugs, whatever lived out there would come get us.
 
 I didn’t believe any of it. Until now.
 
-Why? Because according to reports…the thing that lived out there had rose-colored eyes…and if it ever bit you, you’d turn into something just like it.
+Why? Because according to reports…the ‘creature’ had rose-colored eyes…and if it ever bit you, you’d turn into something just like it.
 
 Well, I couldn’t have Violet hogging all the glory. So I went out there with David one day after gym class.
 
 By the time we reached the bridge, the sun had settled behind the mountains.
 
-David glanced around as I parked.
+David glanced around as we parked.
 
 “This is where you wanted to go?”
 
