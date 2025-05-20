@@ -1,11 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1kjsrlb/i_made_a_deal_with_the_vampires_that_live_near_my/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-If you want to hear Violet’s side of the story, read the post linked above.
-
-If you want to hear mine, keep going…
-
-***
-
 Lauren here. Some people call me a bully. I prefer extra-cocky.
 
 It’s not that I’m cruel. I just don’t like people who are weaker than me.
