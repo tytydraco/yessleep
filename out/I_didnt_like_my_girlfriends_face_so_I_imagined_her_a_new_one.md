@@ -159,7 +159,7 @@ But I just couldn’t. I didn’t want to try to peel back the visage like I had
 
 So on I strolled, Ava’s spirit loyally possessing a phantom of my selfish desire. She never needed to know.
 
-One day, though, the flame of my imagination had burnt out. I could not conjure those beautiful blue eyes anymore. Perhaps it was the mental exhaustion, or maybe my shame had compiled and retaliated against my fear. I did my best not to react when I saw Ava standing at the foot of my bed, looking even more mutilated than she had before. She looked as though someone had split her head down the middle with an axe, then pulled the frontmost section of her skull away and left the back of her head intact. I don’t know how I heard her speak, but I managed. Her voice was like a memory eching in my mind, though it took a back seat to my focus on how the exposed muscles of her neck flexed and twitched with each word. Her jaw clicked dully as it swung, her bloodied teeth grinding together. 
+One day, though, the flame of my imagination had burnt out. I could not conjure those beautiful blue eyes anymore. Perhaps it was the mental exhaustion, or maybe my shame had compiled and retaliated against my fear. I did my best not to react when I saw Ava standing at the foot of my bed, looking even more mutilated than she had before. She looked as though someone had split her head down the middle with an axe, then pulled the frontmost section of her skull away and left the back of her head intact. I don’t know how I heard her speak, but I managed. Her voice was like a memory echoing in my mind, though it took a back seat to my focus on how the exposed muscles of her neck flexed and twitched with each word. Her jaw clicked dully as it swung, her bloodied teeth grinding together. 
 
 “What’s wrong?”
 
@@ -179,7 +179,7 @@ I don’t know when or if she told me she was pregnant. I just saw her midsectio
 
 On a cool November night, unsure if she was sleeping or awake, I rolled over and kissed her on the stomach. I held her for hours until tears gave way to a dreamless sleep.
 
-When I awoke, she was nowhere to be found. No blood, no trace of stray hair or the smell of her perfume. The bed was clean and white, as if no one besides me had touched it. Any signs of life that had littered the sheets were gone as I wrapped myself in them and wept. The space she left beside me was cold. 
+When I awoke, she was nowhere to be found. No blood, no trace of stray hair or the smell of her perfume. The bed was clean and white, as if no one besides me had touched it. Any signs of life that had littered the sheets were gone as I wrapped myself in them and wept. The space she left was cold. 
 
 I don’t know if she had enough of my behavior and finally left, or if I had erased her. Maybe she never bothered with me in the first place. 
 
