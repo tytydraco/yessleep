@@ -6,11 +6,9 @@ Some people call me a bully. I prefer extra-cocky.
 
 It’s not that I’m cruel. I just don’t like people who are weaker than me.
 
-I see my role as someone who helps others prepare for the harshness of life. Sure…I can be mean. But I won’t apologize for it.
+Anyway, I’m just gonna tell you what happened...cause it changed my life. And it has everything to do with Violet, the weirdest girl at our school.
 
-I’m just gonna tell you what happened...cause it changed my life. And it has everything to do with Violet, the weirdest girl at our school.
-
-It happened one month ago.
+It occurred one month ago.
 
 Violet showed up to class wearing black garbage bags all over her body. Like, big ones that covered every inch of her skin.
 
