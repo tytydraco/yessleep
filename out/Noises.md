@@ -1,0 +1,29 @@
+I’ve been waiting in A&E for hours now just to see a specialist about sleep inducing medication. They said they would only be a few more minutes but I’m already loosing it.
+
+I came here because I’ve been fighting sleep for days. I’ve been having the worst nightmares, waking dreams and sleep paralysis. I’ve suffered with these things all my life but not like this, never to the point where I’m actively fighting against sleep. I came here as a last resort hoping that they could give me something that would inevitably take me, I can’t do it by myself.
+
+The worst part is, somehow, this slowly bled into my waking life. I don’t want to be alone tonight.
+
+The triage nurse had given me something to calm down but it has just made everything so much worse. Instead of having my fight or flight reaction I’d usually have, all of my muscles are relaxed. I feel dizzy and unable to move. I can see everyone In the hall staring. Nurses, patients, ambulance workers, security. I don’t know what there are looking at. I don’t have anything around or on me that would draw such attention.
+
+All I could hear for a solid two hours was the buzzing of the lights, the beeping of the machines and the whispers of the night staff as they tapped on their loud plastic keyboards.
+
+Just when I thought I could handle the staring and the noises I felt something brush past me. I looked up but all the other beds and the nurse station were a good distance away from me, and nobody was walking down the hall. I sat up and pulled the blanket over my knees, trying to keep away from the bed rail. I was getting sleepy from the medicine but I still kept fighting. That’s when I began hearing voices. There was only one at first, it was telling me to leave. It whispered horrible things to me for what felt like an eternity, until I got word that they were moving me into a room. They hooked me up to a vitals machine and charted my progress and then wheeled me upstairs.
+
+Once we arrived in my room for the night a few nurses came by to take my blood and my height/weight before deciding what sedative would be appropriate for my condition. I told them about my nightmares and my waking dreams and they agreed to send a psychiatrist around tomorrow afternoon before  discharge then they left the room, abandoning me with the whispers.
+
+I quickly grabbed the remote that is attached to my bed and hit the on button, but it wouldn’t come on. I kept clicking and clicking but upon scanning the tv I saw that it had been unplugged by the wall. I hit the nurse call button and waited. 45 minutes passed and no nurse. It was dead silent other than the voice, still telling me things i couldn’t bear to hear, like what was going to happen to me if I didn’t leave, that people were going harm me, that it was a supernatural affair.
+
+I looked up at the tv in despair, but then my eyes caught something moving in the reflection. There, in the corner next to my bed I stood. I looked dead into the reflection of the bed itself. An old woman was lying in my place, hooked up to a life support system.
+
+I moved my head, she moved hers the opposite way. I twitched my right hand, she her left. I began tearing up, but then she began to laugh. I closed my eyes quickly, and then reopened them. I looked back into the reflection, and this time she was wearing a skin toned mask. I moved, she didn’t. I had also vanished from the reflection.
+
+I tried closing my eyes and reopening again to see if I could see anything different. I sure did. It was me in the bed this time, but I was covered in patches of blood, strapped down and unable to move. I tried moving around to see if my reflection would struggle, but my actual body was stuck. The anti anxiety medication combined with the lack of sleep had made it extremely difficult to move. I panicked and tried to lift my leg but it would barely move. I began to cry and kept trying to thrash and kick around for a few minutes but I exhausted myself. I eventually gave up. After another 30 minutes passed I began to stare out the window. at first I began to relax, watching cars come and go from the parking lot, but then I heard footsteps behind me. I turned my in the direction of the footsteps but saw nothing, so I decided to look back up to the tv. There, standing in the corner next to my bloodied and restrained double was the old woman. In this reflection, I was the one on life support. I was the one in the mask.
+
+Suddenly, a group of doctors and nurses walked through the door talking amongst themselves. I was so tired and upset I could barely hear or feel what they were doing. I couldn’t even perk up to tell them about the tv. I felt a sharp pain pierce every organ in my body and they were gone.
+
+I looked at the clock in the center of the wall across from me. It was 3:30am, I had been in the hospital for a total of 9 and a half hours. I flung my head back towards the tv screen. At this point it was only out of morbid curiosity. There we were again, me and the old lady, who stood clutching my life support cord. She gave me a brief smile and looked down at the floor, before yanking the cord right out of the socket.
+
+I eventually woke up to nurses propping me up with pillows and bringing me scrubs to sleep in. I didn’t have any nightmares, I didn’t have a waking dream. I didn’t even know I had passed out. Before I let the nurses leave me to rest I asked them to plug in the tv, and told them all about the reflections, half expecting them to tell me that I would be able to the the psychiatrist later. They didn’t. They informed me that one of the hospital staff was saying goodbye to her mother in this room earlier in the day, and the must have forgotten to plug the tv back in.
+
+I laughed loudly in disbelief, and then I turned on the tv, allowing my eyes to close. This is the last time I will be visiting this particular hospital.

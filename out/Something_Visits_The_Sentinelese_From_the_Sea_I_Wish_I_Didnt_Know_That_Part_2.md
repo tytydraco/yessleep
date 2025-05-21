@@ -6,7 +6,7 @@ It’s as if some part of you is now dedicated to keeping an eye out, as if you 
 
 
 
-Two days after the call, we left for Munnur. It wasn’t a long trip, only 3 to 4 hours if the roads were great, but that is when this cold, slimy tendril of dread wrapped around my heart, and squeezed it with each passing second had crept over me. What was I doing? I had never been the kind to lie to people on a whim, yet here I was concocting stories and weaving a web of deceit thick enough to suffocate the truth… 
+Two days after the call, we left for Munnur. It wasn’t a long trip, only 3 to 4 hours if the roads were great, but that is when this cold, slimy tendril of dread wrapped around my heart, and squeezed it with each passing second. What was I doing? I had never been the kind to lie to people on a whim, yet here I was concocting stories and weaving a web of deceit thick enough to suffocate the truth… 
 
 
 
@@ -192,7 +192,7 @@ Those yeahs were laced with reluctance….I knew it, and so I decided to let Set
 
 
 
-When I tried to crane my neck by back stiffened, muscles locked up and I screamed loudly. I couldn’t see it, but I could feel it, the huge wound on my back that made it difficult to twist or bend. I soon realized that my left arm was locked around a piece of wood as though my body was involuntarily forcing me. It was as if, even though my mind didn’t want to survive, my body did. It took an excruciating amount of effort to loosen my grip, I had to will each finger on my left hand to slowly ease up and by that time I had realized that this piece of wood was my best hope for survival. I held on to it with my right arm as I slowly relaxed my left. 
+When I tried to crane my neck my back stiffened, muscles locked up and I screamed loudly. I couldn’t see it, but I could feel it, the huge wound on my back that made it difficult to twist or bend. I soon realized that my left arm was locked around a piece of wood as though my body was involuntarily forcing me. It was as if, even though my mind didn’t want to survive, my body did. It took an excruciating amount of effort to loosen my grip, I had to will each finger on my left hand to slowly ease up and by that time I had realized that this piece of wood was my best hope for survival. I held on to it with my right arm as I slowly relaxed my left. 
 
 
 
