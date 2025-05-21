@@ -78,7 +78,7 @@ Recollection demands context.
 
 *I looked back at the hole and the hand, and I tapped it with the tip of my shovel. It creaked opened, strange and delicate, like a Venus flytrap.*
 
-*There was a black, glassy shell about the size of a baseball in its palm, covered in spirals and other markings I didn’t recognize. I picked it up and brought it close to my face. It smelled like metallic, but also like sea-salt* **(5)***. I put the mouth of the shell up to my ear to see if I could hear the ocean, but I couldn’t.*
+*There was a black, glassy shell about the size of a baseball in its palm, covered in spirals and other markings I didn’t recognize. I picked it up and brought it close to my face. It smelled metallic, but also like sea-salt* **(5)***. I put the mouth of the shell up to my ear to see if I could hear the ocean, but I couldn’t.*
 
 *Instead, I could hear someone whispering. I couldn’t understand what they were saying, but that didn’t seem to matter. I loved listening anyway.*
 
@@ -98,7 +98,7 @@ Recollection demands context.
 
 **(4):** There shouldn’t have been *anyone* in the ocean that day - the water was closed because of a strong riptide.
 
-**(5):** That's what Nico’s room smelled like the morning I found him missing. Brine and steel.
+**(5):** That's what Nico’s room smelled like this morning. Brine and steel.
 
 **(6):** When I got back to Nico, there wasn’t a hole, or a hand, or even a sandcastle. He didn’t ask me anything, either. My son was catatonic - staring into the ocean, making this low-pitched *whooshing* sound but otherwise unresponsive. He came to when we reached the ER.
 
@@ -124,7 +124,7 @@ Recollection demands context.
 
 **(8):** Nico had been acting strange since that day at the beach. His pediatrician was concerned that he may have been experiencing “subclinical seizures” and recommended keeping him home from school while we sorted things out.
 
-**(9):** Ms. Winchester has been our neighbor for over a decade. During that time, Nico has become a surrogate child to the elderly widow. When Sofia would covertly discontinue her meds, prompting an episode that would see her disappear for days at a time, Ms. Winchester would take care of Nico while I searched for my wife around the city. Sofia was never a huge fan of the woman, a fact I never completely understood. If Ms. Winchester ever critiqued my wife, it was only in an attempt to make her more motherly. She's been such a huge help these last few years.
+**(9):** Ms. Winchester has been our neighbor for over a decade. During that time, Nico has become a surrogate child to the elderly widow. When Sofia would covertly discontinue her meds, prompting an episode that would see her disappear for days at a time, Ms. Winchester would take care of Nico while I searched for my wife. Sofia was never a huge fan of the woman, a fact I never completely understood. If Ms. Winchester ever critiqued my wife, it was only in an attempt to make her more motherly. She's been such a huge help these last few years.
 
 **(10):** My son adored Ms. Winchester, and I’ve never heard him use the word “arthritic” before in my life.
 
@@ -196,7 +196,7 @@ When I woke up, he was gone, and his room smelled like brine and steel.
 
 \- - - - -
 
-**May 10th, 2025 - A Message for you, Marcus**
+**May 21st, 2025 - A Message for you, Marcus**
 
 *By the time you’re reading this, we’ll be gone.*
 
@@ -266,4 +266,4 @@ When I woke up, he was gone, and his room smelled like brine and steel.
 
 *- - - - -*
 
-[I'm sorry.](https://www.reddit.com/r/unalloyedsainttrina/comments/1ks9vyf/my_son_was_kidnapped_this_morning_i_know_exactly/)
+[I'm sorry.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
