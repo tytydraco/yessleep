@@ -330,13 +330,13 @@ This may sound terrible, but I was past the point of caring what happened to the
 
 And look at what happened to Reyna and me. I doubt we’re the only ones Gwythyr had lured into his home and introduced to his ‘Sentinels,’ as Iolo referred to them. We’re just the ones that got out.
 
-On that note, I forgot to mention that Victor checked up on the Department of Wildlife a few days before this meeting. The officers that had played a role in the warbler case have been getting antagonized as well. They’ve reported being followed with one officer actually having someone break into his house while his daughter was home alone. Luckily, she’d been able to hide in the attic before the intruder could locate her. When law enforcement investigated, they found that nothing was taken. This information was shared in our talks with the Wild Hunt. 
+On that note, I forgot to mention that Victor checked up on the Department of Wildlife a few days before this meeting. The officers that had played a role in the warbler case have been getting antagonized as well. They’ve reported being followed with one of their personnel actually having someone break into his house while his daughter was home alone. Luckily, she’d been able to hide in the attic before the intruder could locate her. When law enforcement investigated, they found that nothing was taken. This information was shared in our talks with the Wild Hunt. 
 
 I’d known that things with this development company were going to get ugly. I just never anticipated that it would be like this.
 
 “What do you need from us?” Victor asked.
 
-The mechanic told him, “As of right now, nothin’. But on that day, you and your buddies at the Department of WIldlife are gonna wanna watch your backs. That’s what the spear’s for. We ain’t gonna be able to do much for ya, so y’all are just gonna have to survive the night on your own.”
+The mechanic told him, “As of right now, nothin’. But on that day, you and your buddies at the Department of Wildlife are gonna wanna watch your backs. That’s what the spear’s for. We ain’t gonna be able to do much for ya, so y’all are just gonna have to survive the night on your own.”
 
 He inclined his head at the spear, sitting with its tip submerged into a bucket of water. Had it always been there? Just chilling? Of course, you’d have to have a death wish in order to steal from a Hunter. 
 
