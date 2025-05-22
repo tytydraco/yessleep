@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1kat35c/does_anyone_remember_wwwdeadlinkscom_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 2](https://www.reddit.com/r/nosleep/comments/1kbm5ls/does_anyone_remember_wwwdeadlinkscom_part_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/1kcega7/does_anyone_remember_wwwdeadlinkscom_part_3/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1kat35c/does_anyone_remember_wwwdeadlinkscom_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 2](https://www.reddit.com/r/nosleep/comments/1kbm5ls/does_anyone_remember_wwwdeadlinkscom_part_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/1kcega7/does_anyone_remember_wwwdeadlinkscom_part_3/)
 
 We broke. 
 
@@ -129,7 +129,5 @@ His eyes cleared. The white faded back into a warm, familiar brown. He blinked a
 His voice came out broken, barely above a whisper. "What have I done?" Over and over again. I knelt beside him, hesitating before placing a hand on his shoulder. He flinched at my touch, his whole body recoiling like he didn’t deserve to be comforted. But I didn’t pull away. I helped him up to his feet. 
 
 “Ryan, we gotta get out of here before the tranquilizer wears off.” 
-
-**\[END OF PART 4\]**
 
 [Part 5](https://www.reddit.com/r/nosleep/s/N9Eohq6IEs)

@@ -100,7 +100,8 @@ Recollection demands context.
 
 **(5):** That's what Nico’s room smelled like this morning. Brine and steel.
 
-**(6):** When I got back to Nico, there wasn’t a hole, or a hand, or even a sandcastle. He didn’t ask me anything, either. My son was catatonic - staring into the ocean, making this low-pitched *whooshing* sound but otherwise unresponsive. He came to when we reached the ER.
+**(6):** When I got back to Nico, there wasn’t a hole, or a hand, or even a sandcastle. He didn’t ask me anything, either. My son was catatonic - staring into the ocean, making this low- 
+pitched *whooshing* sound but otherwise unresponsive. He came to when we reached the ER.
 
 **(7):** He did bring home the shell; it wasn’t a hallucination like the person in the ocean or the hand. That said, it wasn’t in his pockets when he was examined in the ER. I helped him switch into a hospital gown. There wasn’t a damn thing in his swim trunks other than sand.
 
