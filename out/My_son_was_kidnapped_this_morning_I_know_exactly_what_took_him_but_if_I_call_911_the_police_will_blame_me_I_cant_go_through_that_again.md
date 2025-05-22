@@ -210,7 +210,7 @@ When I woke up, he was gone, and his room smelled like brine and steel.
 
 *Hey, don’t fret too much. Chin up, sport.*
 
-*Worse comes to worse, there’s a foolproof way to deal with all those nagging questions without answering them, thereby circumventing their pain and their fallout. You’re familiar with the tactic, aren’t you? Sure you are! You’re the expert, the maestro, the godforsaken alpha and omega when it comes to this type of thing.*
+*Worse comes to worse, there’s a foolproof way to deal with all those nagging questions without answering them, thereby circumventing their pain and their fallout. You’re familiar with the tactic, aren’t you? Sure you are! You’re the expert, the maestro, the godforsaken alpha and omega when it comes to that type of thing.*
 
 *Bury them.*
 
