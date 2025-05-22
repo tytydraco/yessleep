@@ -162,7 +162,7 @@ I froze, to it, I stood still and stared back, but internally, I was assessing t
 
 'Ma'am, I need a brand name, please, there's no need to get aggressive.'
 
-It shook, then, to my silent and unflinching horror, mashed it's face into the counter. I heard something crack, then something rip, but not in the way you'd expect meat to, but like how you'd expect rubber to.
+It shook, then, to my silent and unflinching horror, mashed it's face into the counter. I heard something crack, then something rip, but not in the way you'd expect meat to, but instead how rubber would.
 
 'I... I just want some Earls Blues, darling.'
 

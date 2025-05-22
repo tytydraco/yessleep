@@ -1,5 +1,7 @@
 [\[Part 36\]](https://www.reddit.com/user/RandomAppalachian468/comments/1k1400r/the_call_of_the_breach_part_36/)
 
+[\[Part 38\]](https://www.reddit.com/user/RandomAppalachian468/comments/1ksjynf/the_call_of_the_breach_part_38/)
+
 “Over here, I found her!”
 
 Cold air nipped at my nose, and I coughed, shivering in the snow as someone crouched over me. My body hurt, though as I flexed each limb, I didn’t think anything was broken. The wet clothes I wore didn’t care for the frigid conditions, and my teeth began to chatter as a light snowfall tumbled around my face. It was still dark, but the sky overhead was a mass of puffy white, snow-laden clouds that rolled by on their endless march through the atmosphere. Some of the wind had died down, but instead of a surrounding canopy of towering pines or swamp grass, I found myself stretched out in a rolling field pockmarked by scrub brush, bedded down with the winter’s snow. All in all, I would have some nasty bruises and could feel the places where I had cuts of lacerations, but still, I was alive.
