@@ -1,4 +1,4 @@
-I’ve been waiting in A&E for hours now just to see a specialist about sleep inducing medication. They said they would only be a few more minutes but I’m already loosing it.
+I’ve been waiting in A&E for hours now just to see a specialist about sleep inducing medication. They said they would only be a few more minutes but I’m already losing it.
 
 I came here because I’ve been fighting sleep for days. I’ve been having the worst nightmares, waking dreams and sleep paralysis. I’ve suffered with these things all my life but not like this, never to the point where I’m actively fighting against sleep. I came here as a last resort hoping that they could give me something that would inevitably take me, I can’t do it by myself.
 

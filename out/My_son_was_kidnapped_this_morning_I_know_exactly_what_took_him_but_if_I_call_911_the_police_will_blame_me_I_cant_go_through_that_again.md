@@ -204,6 +204,8 @@ When I woke up, he was gone, and his room smelled like brine and steel.
 
 *When you first found it, though, did you wonder how long Nico had been journaling for? Did you ever search through your memories, trying to recall a time when he expressed interest in the hobby? I mean, if it was a hobby of his, why did he never talk about it? Or, God forbid, maybe your son had been talking about it, plenty and often, but you couldn't remember those instances because you weren't actually listening to the words coming out of his mouth?*
 
+*Or maybe he’s never written in a journal before, not once in his whole miserable life.*
+
 *So hard to say for certain, isn’t it? The ambiguity must really sting. Or burn. Or feel a bit suffocating, almost like you're drowning.*
 
 *Hey, don’t fret too much. Chin up, sport.*
