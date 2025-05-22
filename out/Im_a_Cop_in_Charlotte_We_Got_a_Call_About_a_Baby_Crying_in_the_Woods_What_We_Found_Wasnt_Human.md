@@ -1,100 +1,186 @@
-This happened a couple nights ago and I gotta write it down. Thinking it and saying it sound too crazy. 
+If you don’t know what’s going on [this](https://www.reddit.com/r/nosleep/s/aneYuFxG1y) will explain what’s happened. 
 
-I’ve been a cop long enough to know the worst calls always start the same way.
+I don’t usually post. I read. Quietly. Mostly on night shift, when nothing’s moving and my thoughts get too loud. 
 
-“Can you check out a noise complaint? Sounds like a baby crying.”
+After the calls of wellness checks when the little old lady on the corner croaks and you walk in to her dog eating her face because the poor thing hasn’t eaten since she last fed it. 
 
-That came over dispatch just after 2:00 AM. I’m a dad so of course I’m gonna go make sure everything’s okay. 
-Area was west [redacted], just past 
-[redacted]—old woods near a defunct substation Duke Energy fenced off years ago. I knew the area. Dense, overgrown, not the kind of place you walk a stroller. It IS where a lot of people camp if they don’t have homes so my brain made the call that some poor mama was out there with her baby. 
+Of domestic abuse where the piece of shit husband has bashed his wife’s nose into her skull for over cooking his steak. 
 
-I was wrong. 
+Drive by shootings off [redacted] road when a single mother reading her babies a book takes a stray round through the skull.  
 
-Caller didn’t leave a name. Just said the sound came from “deep in the trees.” some drunk guy on his boat probably out trying to catch some blue cats heard spooky sounds in the woods (been there, done that, got the tshirt) 
+On nights where a drunk driver hits a kid, a little girl the same age as yours, and you try all you can to resuscitate them just to lose them in your arms and all you can do is cry. 
 
-I went alone. Protocol said I should wait for backup, but I didn’t think much of it. Probably a fox. They make noises that’ll raise the hairs on your neck. That or someone dumped a cat in the brush. Or at WORST it’s a damn bobcat. Reason I know this is I’ve had my run in’s with them in the lake [redacted] side of [redacted] quite a few times. 
+Or when one of the people sworn to protect your community kill someone  just for trying to get the insurance papers out of their glove box, 
 
-They are mean as hell but trick you by sounding like a baby. 
+or when some deranged piece of shit kills four of your colleagues over a warrant, 
 
-I parked on the shoulder and walked about fifteen minutes into the woods. No trails. Just soft earth and low branches clawing at my vest. The deeper I went, the colder it got. The kind of cold that doesn’t belong in [redacted] in April, but it’s there anyway because the weather can’t make up its damn mind. 
+Or it’s just when I pull someone over for driving like a dumbass after one of the calls mentioned above and they ask for your name and badge number and tell you how you’re just a public servant. 
+It’s hard and I never wanted to be the guy unloading personal nightmares onto strangers on the internet. I like to read to keep the monsters quiet. 
 
-Then I heard it.
+But I can’t sleep. 
 
-Waaah.
-Soft. Weak. Definitely a baby. A new born? That’s what I thought. It sounded like my baby girl. Like the day she came home from the hospital. 
+It’s been a couple days since that fuck shit with the deer in my yard. What am I saying? It COULDN’T have been a deer. 
+It was in my yard cursing…
+with MY voice—and I can’t keep this inside anymore. I haven’t slept. I’ve torn my house apart looking for that damn tooth. I know I brought it back. I remember holding it. But it’s just… gone. And I’m still wondering why the fuck I’m missing a tooth now. OR what I did in that hour I fell unconscious. 
 
-I froze.
+I’m not saying I believe in curses. But I believe in patterns. I believe when too many people tell the same story, it stops being a coincidence.
 
-It was coming from ahead—somewhere beyond the next ridge. But it wasn’t right. The cry looped. Same pitch. Same rhythm. Almost mechanical. Like it had been recorded.
+And guys I’m not the only one.
 
-I unholstered my flashlight and moved slow.
+After I posted that story—about the white deer things and the crying and hearing my own goddamn voice —my inbox lit up. Ten different messages from ten different accounts, all describing the same thing. Different places. Different years. Same white deer. Same baby cries. Same kind of tooth. Same weird loss of time. 
 
-That’s when I saw the eyes.
+And always the same ending: something terrible happens.
 
-Dozens of them. Reflecting back in the dark.
+One guy flipped his car. Broke his spine. Was out on a hike. Saw white deer. Lost an hour. Lost a tooth. Found a baby tooth.
+Another guy’s wife disappeared without a trace. She went walking in the woods, said she saw a (you guessed it) White deer. He had seen them too lost an hour, lost a tooth, and found a baby tooth. 
+Some lady lost EVERYTHING because she swore while she was out taking soil samples for a homeowner she saw a white deer mimicking voices. Lost an hour, lost a tooth. And she ALSO found a baby tooth. 
+One said his son vanished from a locked bed room. No signs of a break-in. Just short rough white hair on the pillow, bedsheets, and drapes. He went hunting that morning. Guess what he fucking saw, found and lost????
 
-They stepped out together—silent, coordinated. A herd of white deer. Albino. Every single one, bright as bone, antlers like coral. Eyes red. There had to be twenty of them, just standing in the trees.
+Every one of them said the same thing:
 
-Blocking my path.
+“I wish I never found that tooth.”
 
-They didn’t run. Didn’t twitch. Just stared.
+So I was spiraling. I ripped up every junk drawer. Tore through my gear, my closets, even the drain traps. Nothing.
 
-Their bodies looked… off. Like they were stitched together wrong. Too tall. Joints too low. One of them had legs that bent the wrong way entirely.
+I went out to BOTH cars, my daily and my cruiser. It was dark as shit outside and I did the whole “shit where is it” search you do in your car when you drop something, I popped open my glove boxes, fucking sunglasses holder and center armrest compartment in the cruiser. I moved the seats forward and backward, I searched the trunk of my Impala, just golf and gym bags, I searched the cracks of the seats. 
 
-And in the center of them stood one without antlers—smaller. Female, maybe.
+Nothing. 
 
-She opened her mouth in a way I had never seen a deer open its mouth. 
+I don’t know what made me say it, maybe frustration or habit, but when I gave up looking, I muttered:
+“Goddammit, where the fuck are you?”
 
-And from her mouth came the baby’s cry.
+And from out in the distance— in the woods that surround my home, clear as day—I heard my voice answer.
 
-Waaah.
-Waaah.
+Only it wasn’t me. Not really.
 
-I know I couldn’t see my reaction, but I know that all color from my body left me at once. I felt hot. 
+Same words. Same tone. Just… wrong. Off. Like something was mimicking me but didn’t understand how.
 
-I should’ve run. I didn’t. 
+I grabbed my gun from my waist band (I’m not going anywhere without one ever again)  and ran to the porch. 
 
-What came next was odd to say the least. I lost about an hour of consciousness. 
+And it was standing at the fucking tree line.
 
-When I came to I was still standing among the deer in the trees. The crying had never stopped, I had a sharp pain in my jaw and I could taste warm thick blood running down the back of my throat. But there was also a smell. I started shaking and gagging, and I swear it looked as if a few of them were….smiling? 
+An albino deer..
 
-I raised my light. And they turned—all of them—at once.
+On its hind legs, tall as a man, antlers like pale driftwood. Its mouth hung open,cocked off to the side, its eyes glassed over, its tongue draped off its teeth like a creature from a Lovecraft novel,  but it didn’t speak. Just waited. Watching.
 
-Walked back into the woods in perfect silence, vanishing between the trees.
+“What the fuck…” I whispered.
 
-And the crying stopped.
+It said it back. Without moving its mouth. Just gargling like a person who had a stroke choking on words. 
 
-Just like that.
+Twisted. Crooked. Like a recording run through broken tape:
+WhhAAhHt Thhuhh Fuhhhkkk…
 
-I stayed there another thirty seconds before my legs started working again. I also might have pissed myself. I checked my watch 3:30 AM. About an hour after I parked and radioed in dispatch. I had no recollection of the last hour. And the oddest thing? I was missing a molar. 
+I backed inside. Locked the door. Ran to the bathroom and locked that too. I sat in the tub with the lights off. I cried. I’d never cried that hard. After about an hour I didn’t hear anything, and thought the coast was clear and I wish I would’ve just stayed where I was but something told me to look out the window above my shower. 
 
-Back at the cruiser, I tried to call it in. Static. My radio didn’t work until I was five miles down the road. And brother that was a long walk. 
+I did. 
+I wish I didn’t. 
+Once again, I saw a group of albino deer things in my yard, this time it was more obvious they weren’t  deer. They didn’t have to hide it. Their mouths agape, and my voice was coming out of all of them. And  just like that I had lost another hour, and when I came to I was missing ANOTHER FUCKING TOOTH. I was also trying to climb out the window and crawl out to the deer. But I became aware before they realized. I started shaking from fear and  I pushed myself back into my bathroom slammed the window shut LOCKED IT and I ran to the light switch in my bathroom and flipped it on, went back to the window and the deer were gone. 
+I had pissed myself again. And I was bleeding profusely from my mouth. But I wasn’t going to budge. I sat in the tub, lights on, until sunrise.  
+All night, I heard them outside the house.
 
-Next morning, I came back with Animal Control. They found nothing—no prints, no fur, no signs of anything except a tooth in the brush. 
+I heard my own voice, over and over. Echoing around the property.
+I spoke again like an idiot. I said “I’m going crazy.” 
 
-It was a human milk tooth. A baby tooth. 
+They answered. Croaking at first. Like a toddler learning its words. 
 
-Animal control guy said that’s probably where the sound came from, a baby in the woods with a homeless mom. He shrugged his shoulders and chucked it in the woods. 
+“Eim gAon CracHie” 
 
-I don’t know why but I went and retrieved it afterward and took it home. 
+“I’m gAon Cratzchy” 
 
-Call me crazy! Whole department does now. They drug tested me after I gave my report. 
+“I’m going CrAAAzchy” 
 
-But here’s the thing. 
+“I’m going crazy…”
 
-Since I’ve brought that tooth home. I’ve caught glimpses of white deer in my yard at night. When I’m driving out on patrol they run out in front of me. 
-I’ve heard babies crying from the woods behind my house. 
-I hear babies crying when I’m hiking in the mountains about 200 miles away from home. 
-I hear them before I go to bed. 
-My daughter is 14. I don’t have a baby. She doesn’t even live with me I’m divorced. 
+“…going crazy…”
 
-And the worst thing is, I don’t know where that baby tooth is now. And the reason I’m writing this is because as I sit here in my home I’m watching my security cameras. 
+“…crAAaazy…”
 
-There’s a white deer in my yard. 
+Then the fucking baby started crying again. 
 
-And now it’s screaming and yelling and cursing. 
+Like a chorus. Not loud. Just… there. 
 
-But it’s not a baby’s voice anymore. 
+I sat there in the tub until the voices became the ambient sounds of my home, replacing the hum of my fridge or the ice maker that’s always frightened me at night. Never again. 
 
-It’s mine. 
+I took leave from work yesterday. Couldn’t think straight. Spent most of the day on my couch, Glock on my lap, TV on but muted. Just waiting. 
+
+Then, last night, I got another message. No name. Just a throwaway account. All it said was:
+
+“Do you have a fireplace?”
+
+I wrote back: “Yeah. Why?”
+
+They responded: 
+“Do you have a gun”
+
+I wrote back: 
+“No I’m a gun less cop in a major city, they only let me play with a fucking vacuum cleaner and my names Doofy.” 
+
+They wrote back:
+ “Do. You. Have. A. Gun.” 
+
+I wrote back: 
+“YES OF COURSE I HAVE A GUN” 
+
+They responded: 
+“You need to roll your bullets in FINE, GROUND, white ash. Only thing that slows them down. You need to do it right now, and I need your address.” 
+
+I didn’t question it. 
+
+I just did it. I sent my address too. Why I sent a stranger my address I don’t know. But help is help is help. 
+
+I emptied the fireplace, ground the ash fine, mortar and pestle, and rolled every round in it like flour. Then I loaded up my Glock, lit a cigarette, last one. Crumpled the pack, threw it on the coffee table and I decided I’d drive back to the woods—back where I first heard the baby crying. 
+
+The trees were quiet this time. No sound. No animals. Not even fucking bugs. There was a smell. Like a rotting animal. 
+
+Then I found it. 
+
+I found the spot no sleep..
+
+But I can’t tell you how I wish I didn’t. 
+
+A circle of flattened grass like something had been lying there. It stunk. In the center were seven items, all laid out in a perfect circle :
+The baby tooth.
+
+My teeth. Silver Fillings and all. 
+
+My mother’s diamond ring. 
+The one my wife left behind when she walked out. 
+
+A family photo, my baby girl my ex-wife and myself at [redacted]. I swore was still in a box in the attic. Along with all the other shit she abandoned. 
+
+
+An empty pack of Marlboros…
+My empty pack of Marlboros…
+The pack of Marlboros I JUST FUCKING LEFT ON MY COFFEE TABLE…
+
+
+And my daughter’s old music box. 
+
+I was shaking and sweating again just like the night I ran into the deer. 
+
+None of this made sense. The fucking teeth, I hadn’t seen that ring in years. The photo was private. The music box? My ex said she lost it in the move. 
+I stared at all of it for a long time. Then I made the worst mistake I’ve made yet.
+
+I took everything. Even the baby tooth. 
+I don’t know what came over me—some primal urge to protect it, or maybe to understand. I shoved it all in my pack and drove home. Heart racing. Felt like something was watching me the whole way.
+
+Now I’m here.
+
+I’ve locked every door. Every window. I’ve unplugged my TV. I’ve Covered my mirrors cause nope. It doesn’t matter. The cameras still work. Every light in my house is on. 
+
+I was writing this just now—typing it out, thinking maybe someone would tell me what to do—when I saw the motion alert on my phone.
+Backyard camera. 12:44 AM.
+I opened the app and dropped my phone.
+There’s something standing in my yard again. 
+
+Two figures.
+One of them IS my daughter.
+The other one is me.
+But I haven’t moved from this chair.
+And she’s supposed to be at her mom’s. 
+She’s obviously very tired and she’s looking at me in a very odd way. 
+Well the thing that’s supposed to be me. 
+But then I realized. 
+
+It’s my weekend. 
 
