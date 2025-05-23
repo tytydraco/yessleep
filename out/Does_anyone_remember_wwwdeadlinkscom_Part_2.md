@@ -132,5 +132,5 @@ One of the figures unlocked the door, and as soon as it creaked open, I slid the
 
 “8 Hours.”
 
-[Part 3](https://www.reddit.com/user/UnlikeBlood/comments/1ksu1wn/does_anyone_remember_wwwdeadlinkscom_part_3/)
+[Part 3](https://www.reddit.com/r/nosleep/comments/1ktp47f/does_anyone_remember_wwwdeadlinkscom_part_3/)
 

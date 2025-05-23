@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1kat35c/does_anyone_remember_wwwdeadlinkscom_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 2](https://www.reddit.com/r/nosleep/comments/1kbm5ls/does_anyone_remember_wwwdeadlinkscom_part_2/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1kat35c/does_anyone_remember_wwwdeadlinkscom_part_1/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 2](https://www.reddit.com/r/nosleep/comments/1kbm5ls/does_anyone_remember_wwwdeadlinkscom_part_2/)
 
 Eight hours? What the hell does that mean? What does Ryan have planned? Whatever it meant, I knew that I should have faith in Ryan.
 
@@ -134,4 +134,4 @@ That was it. 
 
 No backup plan. No time for doubts. 
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/1kd6wfu/does_anyone_remember_wwwdeadlinkscom_part_4/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/1ksse8e/does_anyone_remember_wwwdeadlinkscom_part_4/?sort=hot)
