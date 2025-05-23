@@ -1,3 +1,6 @@
+I posted about this yesterday, if you need some context here it is. https://www.reddit.com/r/nosleep/s/ZHIdg2Y2Lu
+
+
 Alright, I just got back from Winewater Springs. I’ve got a couple shots of bad vodka in me, and I think my nerves are steady enough to write this. But I know less about what is going on than I did before. 
 
 
