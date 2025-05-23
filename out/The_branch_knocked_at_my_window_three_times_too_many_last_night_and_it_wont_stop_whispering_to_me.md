@@ -535,5 +535,3 @@ Last of them, the Bone-Breed: a collection of bleached bones held together with 
 It howls, a thunderous roar shaking the ground; the first trumpet of the apocalypse singing, ushering the end of man - a plan fifteen years in the making. And the seventh  went off yesterday. 
 
 (TO BE CONTINUED.)
-
-(edit, part two is out: https://www.reddit.com/r/nosleep/comments/1kszafw/the_branch_knocked_at_my_window_three_times_too/)
