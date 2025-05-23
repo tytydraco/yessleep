@@ -75,4 +75,6 @@ There’s a lot of creepy stuff on this island, we’re cold, foggy and isolated
 If it’s real, why can’t I (or anyone else it seems) find the turnoff. And if as I suspected this is a prank, what’s the punchline? Does anyone have any idea what I’m dealing with? It’s starting to drive me crazy and I know, this being the internet people will mock me. Good, if there is a simple logical explanation for this that will make me feel stupid with how plain it was I’ll be happy. That’s what I want, a nice-little-tied-up-with-a-bow-answer that makes me feel like an absolute idiot. 
 
 
-UPDATE: I found the turnoff…
+UPDATE: I found the turnoff https://www.reddit.com/r/nosleep/s/rPElQhLrp4 and here’s what I found. 
+
+
