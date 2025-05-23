@@ -44,7 +44,7 @@ Another night, I was drifting off to sleep when I heard a loud *pop* and smelled
 
 I leapt out of bed and saw the box fan we kept in the corner had sparked—plug partially melted into the outlet.
 
-As I yanked it out, the melting plastic seared my nuckle leaving a scar that remains today. I took the whole fan outside, and left it near the garbage. My wife was working third shift at the time, so she wasn’t home. I figured I’d deal with the outlet in the morning.
+As I yanked it out, the melting plastic seared my knuckle leaving a scar that remains today. I took the whole fan outside, and left it near the garbage. My wife was working third shift at the time, so she wasn’t home. I figured I’d deal with the outlet in the morning.
 
 But when I came home from work the next day, the fan was back in our room.
 
