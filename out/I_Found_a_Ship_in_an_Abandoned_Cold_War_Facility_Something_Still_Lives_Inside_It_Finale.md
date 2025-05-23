@@ -1,4 +1,4 @@
-[Part 1 ](https://www.reddit.com/r/nosleep/comments/1km8rzo/i_found_a_ship_in_an_abandoned_cold_war_facility/)and [part 2](https://www.reddit.com/r/nosleep/comments/1kp322v/i_found_a_ship_in_an_abandoned_cold_war_facility/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1km8rzo/i_found_a_ship_in_an_abandoned_cold_war_facility/) and [part 2](https://www.reddit.com/r/nosleep/comments/1kp322v/i_found_a_ship_in_an_abandoned_cold_war_facility/)
 
 I made it out. I’m saying that up front because you need to know I’m not writing this as a goodbye letter from the depths of the facility. I got out. I’m… fine, I guess you could say.
 
@@ -64,7 +64,7 @@ My phone was dead. My limbs were weak. My rations were running out and whatever 
 
 One line, buried in a relocation memo:
 
->“*Remaining subjects: SIREN-NET, RED-ALGAE, and COSMIC-LEECH – transferred to Facility-ESC-01 prior to evacuation*."
+>“*Remaining subjects: SIREN-NET, RED-ALGAE, and COSMIC-LEECH – transferred to Facility-ESC-01 prior to evacuation*.”
 
 I read it three times.
 
@@ -218,4 +218,4 @@ I stood. The cliffside stretched above me. Behind, the water was calm.
 
 The hatch door shifted slightly in the wind. Then it stilled.
 
-And I walked away. Not fast. Not far. Just enough to forget the sound of it [breathing](https://www.reddit.com/r/ThalassianOrder/).
+And I walked away. Not fast. Not far. Just enough to forget the sound of it [breathing.](https://www.reddit.com/r/ThalassianOrder/)
