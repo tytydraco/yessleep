@@ -24,11 +24,15 @@ Of course, that isn’t how it started, but you know how these things go. I’ll
 
 “Ack, dammit. It’s definitely going to rain.” I grumbled to myself as I looked overhead at the quickly forming storm clouds.
 
-Fallscean isn’t known for a whole lot of mundane stuff, but it rains here in April more often than it doesn’t. By the time I arrived at work, I was a good bit heavier than when I got out of school. Thank you, rain.
+While Fallscean isn’t known for a whole lot, there is one thing; it rains here in April more often than it doesn’t. 
+
+By the time I arrived at work, I was a good bit heavier than when I got out of school. Thank you, rain.
 
 The clock read 3 PM and I already dreaded the rest of my shift. 
 
-Rainy days are bad for business because our customers don’t like being attacked by the dumpster fish. Really kills the “I want to go shopping without a fish slapping me” vibe.
+Rainy days are bad for business because our customers don’t like being attacked by the dumpster fish. 
+
+It really kills the “I want to go shopping without a sea creature slapping me” vibe.
 
 “Yo.” The word broke my dread-induced trance, and I looked to the right where I heard it from.
 
