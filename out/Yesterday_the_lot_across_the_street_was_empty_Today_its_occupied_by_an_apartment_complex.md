@@ -1,0 +1,31 @@
+**9:12, June 28th, 2025**
+
+Yesterday, the lot across the street was empty. Today, it's occupied by an apartment complex.
+
+I almost didn’t register it. I could blame this on the stress, running late, or the hangover, but the fact is that yesterday the lot was vacant. No ‘coming soon’ sign, no signs of heavy machinery, no materials left by careless construction workers. Regardless of the fact that I was running late, I sat in my idling car, locked in a staring contest with the seemingly immaculate building. Largely euclidean, it was the epitome of what one would describe as ‘modern’ architecture. Much of the building was glass, reflecting what little light the dismal gray sky let through. This reflection meshed with the colors chosen for the smooth paneling of the complex, with the sterile tones limited exclusively to gray, white, and brown. On portions of the lot not now occupied by the complex, there was a lush and deep green lawn, heavily manicured and likely partially synthetic. It was hard to grasp how this town would support the apartment complex, its four stories monolithic in comparison to reserved and sparse commercial buildings and neighborhoods. In an almost comical fashion, I closed my burning eyes and held them shut for a few seconds, half expecting the complex to be gone upon reopening them. It, of course, remained. As the first fat raindrops of the impending storm hit my windshield, I gathered my things, shut off the engine, and headed into work.
+
+By the time I burst through the office door, the scattered raindrops had crescendoed into a torrential downpour, which I tried in a vain attempt to avoid by holding my leather briefcase above my head. The office was a shared commercial space, with most of the building occupied by my employer, save for a new age smoothie shop called Miska’s Tonics that I heavily suspect is a money laundering operation. I swept my thinning hair out of my face as I hurried past the reception desk, avoiding eye contact with Joy, the receptionist, whose name betrayed her demeanor. 
+
+“You’re late,” she croaked, spewing raspberry jelly and sprinkles from her morning donut onto today's unfortunate choice of a white blouse.
+
+I paid her the complimentary nod and feeble smile, and hurriedly arrived at my cubicle. Booting up my computer, I noted the time–8:17. Regarding my recent arrivals, this was good timing. A flash of light in the corner of my eye and the subsequent crack of rolling thunder directed my attention towards the window. The sky had become significantly darker, and the power line cables swayed tumultuously in the growing gales. Across the cracked and deserted road populated exclusively by scattered and steadily growing puddles, the apartment complex stood in almost taunting contrast to its desolate surroundings. I absently noted it had no doors on the side of the building facing the road.
+
+“S’posed to be a biggun.” 
+
+The thick Minnesotan accent was a dead giveaway. I smoothed down my wrinkled shirt and adjusted my tie as I spun around in my office chair, and was greeted by the hooked nose, jet black hair, and bright green eyes of my employer peering over the edge of my cubicle. 
+
+“Looks like it already is,” I responded, my voice hoarse from lack of use.
+
+Robbie likes to attribute the employees' resentment towards him to the hierarchy and resulting natural order that office spaces often hold. I, however, could give you at least ten other sources of this resentment. At some point during my three years of employment at Humboldt & Sherman, Robbie had gotten the impression that we have a sort of office friendship. Though I am still not sure what the catalyst for this was, I am sure that it likely had something to do with my reserved nature. I minded my own business, and was not, to the best of my knowledge, disliked by my co-workers. Though, to someone as socially inept as Robbie, this ambivalence that the office held for me could easily be misinterpreted as animosity. If, for any reason I was disliked by them, it was almost certainly due to the one way friendship that me and Robbie held. 
+
+My heart sank as I watched the top of his head hurriedly bob around the walls of my cubicle to the opening, and dropped a stuffed manilla envelope on my desk.
+
+“Notes on the Anders case. I want you to look through them and let me know what you think.” As he marched away, I caught a whiff of his notorious coffee breath.
+
+After Sherman’s death, Robbie became Humboldt’s right-hand man—thanks to his uncanny knack for spotting phony insurance claims. This brutal and unforgiving quirk had earned him the less than affectionate nickname ‘Honey badger.’ Though Humboldt’s only son, Blake, inherited the company upon his passing, he promptly and happily handed office leadership over to Robbie and fucked off to Florida. Since then, Robbie has been parading around the corpse of the homegrown family business while Blake does god knows what in the land of gators, tourism, and conservatives. Unfortunately, Robbie’s near-savant talent to sniff out bullshit claims didn’t translate well to picking up on social cues, another potential source of the disdain that the office held towards him.
+
+“Wait,” blurted my mouth as he hastily walked away. I watched the top of his head spin around and start its jounce back to my cubicle. Flustered, and not quite sure why I called him back, I asked him about the sudden new housing across the road. He raised his eyebrows and gave me a queer look.
+
+“Aboot time they’re done with it. The sound of that darn machinery was drivin’ me bonkers.” He resumed his hotfoot, leaving me in my cubicle, confounded.
+
+In conjunction with my therapy and new medication, Diazaxeprenol (‘Be you, today’), this journaling is supposed to help me work through things. So far, it's only served as a convenient distraction, my typing acting as a guise of productivity. I know what’s in that manilla envelope, and I'll take any potential distraction. I’ve overheard the office gossip surrounding the case. The reason Robbie left it on my desk is beyond me; if he thought it important enough to leave on my desk, he’s already made up his mind about it.
