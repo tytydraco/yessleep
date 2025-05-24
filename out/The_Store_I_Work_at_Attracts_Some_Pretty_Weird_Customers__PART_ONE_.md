@@ -253,6 +253,7 @@ Looking down at my phone, I saw the words translate roughly to “good lord, whe
 I looked up at him. We didn’t sell those at the store, so I told him as much.
 
 “Scilicet, simiae omnes idem es. Nihili.”  
+
 That translated to “of course, you monkeys are all the same. Worthless.”
 
 At this point, the man looked at me and pulled out what looked like a stick with a piece of quartz on it. I now know it was a catalyst.
