@@ -1,6 +1,12 @@
-Grocery shopping is supposed to be a safe, relatively non-difficult task. Where I work though? Not quite. I wouldn’t say that my job is exactly dangerous, only that it has dangerous aspects to it. 
+Grocery shopping is supposed to be a safe, relatively non-difficult task. 
 
-Are you looking for groceries for the week, some simple ingredients for dinner? Or would you like to shop with a monster capable of ending the world?
+Where I work though? Not quite the case. 
+
+Now, I wouldn’t say that my job is exactly dangerous, only that it has dangerous aspects to it. 
+
+Are you looking for groceries for the week, some simple ingredients for dinner? 
+
+Actually, scratch that. How would you like to shop with a monster capable of ending the world?
 
 Those were two of the questions I was asked during my initial interview for this job. I laughed it off and said yes to both. 
 
