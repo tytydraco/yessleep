@@ -246,9 +246,9 @@ Eventually, his eyes landed on a young mother sitting aside her son and daughter
 
 Apollo charged at her with an imperceptible speed, dropping the ticking box from his left hand so he could pull her from the seat. It swung a few inches above the aisle like a clock pendulum as he put the pistol to her head.
 
-*“Why are you doing this? Haven’t I done* ***enough***?”*
+*“Why are you doing this? Haven’t I done* ***enough***?”\*
 
-*”Haven't I proven myself ***worthy***”?*
+*”Haven't I proven myself* ***worthy****”?*
 
 His interrogation yielded no answers. It only served to rattle the poor woman to the point of absolute malfunction.
 
@@ -341,3 +341,5 @@ There’s something horrific looming on the horizon.
 I don’t know if I’m the right person to bring it all to light.
 
 But, hell, I’m going [to try](https://www.reddit.com/r/unalloyedsainttrina/s/2Z6XgouP8j).
+
+[\->Part 2](https://www.reddit.com/r/nosleep/comments/1kpxor1/six_months_ago_i_was_taken_hostage_during_a_bus/)
