@@ -29,7 +29,7 @@ However i, as a fairly learned individual as far as the outdoors were concerned 
 
 I vowed to myself, to one day make the trip to the great Smokey mountains to find closure, which after eighteen long years, had still eluded me.
 
-I had been warned of the legends and stories of that mountain being a place that gods light did reach, that strange and unexplainable events occur in this still largely unexplored land.
+I had been warned of the legends and stories of that mountain being a place that gods light did not reach, that strange and unexplainable events occur in this still largely unexplored land.
 
 
 Many of the more superstitious folk of the region place the blame for  such events on the local tribes, seeing their practices as ungodly spirit whispering, however having grown up with a young Kaw boy the same age as myself, who’s home was in close proximity to my homestead, had no misconception of local traditions, and ignored these tales as outright nonsense, needing hard evidence to sway my mind.
