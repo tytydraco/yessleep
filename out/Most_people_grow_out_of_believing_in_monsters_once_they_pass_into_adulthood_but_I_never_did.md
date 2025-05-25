@@ -66,7 +66,7 @@ We sat and just stared at each other for a long minute. The look on his face was
 
 “Yes, afraid of yourself. Here, let me show you.”
 
-I shudder to think of what came next, and would rather abandon this manuscript entirely than record it, but I will force myself to go on. My nightmares came true before my waking eyes. Dr. Ward reached his hands to his face, tore off the flesh as if it was a mask, and revealed what I had seen so many times before in horrors at night: that terrible blue face, yellow eyes, and sharpened teeth. The creature that I had believed to be Dr. Ward grinned at me with unfathomable menace, and I felt myself began to faint at the sight of it.
+I shudder to think of what came next, and would rather abandon this post entirely than record it, but I will force myself to go on. My nightmares came true before my waking eyes. Dr. Ward reached his hands to his face, tore off the flesh as if it was a mask, and revealed what I had seen so many times before in horrors at night: that terrible blue face, yellow eyes, and sharpened teeth. The creature that I had believed to be Dr. Ward grinned at me with unfathomable menace, and I felt myself began to faint at the sight of it.
 
 “No! Look! Look, you fool!” the monster screamed at me, snapping me back into the waking world and depriving me of the oblivion of unconsciousness.
 
