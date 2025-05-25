@@ -71,7 +71,7 @@ Maybe Alma was right.
 
 Maybe I had been protected in some way.
 
-But that would imply I had an inherent connection to the mountain, *The Audience to his Red Nativity,*and Jeremiah.
+But that would imply I had an inherent connection to the mountain, *The Audience to his Red Nativity,* and Jeremiah.
 
 And that thought terrified me.
 
