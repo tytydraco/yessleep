@@ -1,3 +1,4 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/GWFMpuxqZX)
 
 Alright, listen. I’m running on fumes here—no sleep, no clarity, just fragments of whatever this world has left me with. I could’ve given you more, sure. More details, more answers, more *certainty.* But that’s not the story I have for you right now. This is what happened so far. It's messy, it’s raw, and maybe it doesn’t all make sense yet. But I’ll keep writing. I’ll figure it out. And when I do, you’ll know. Stay tuned.
 
@@ -48,3 +49,5 @@ But I still had it. The tooth. My hand went straight to my pocket, and there it 
 That place... it doesn’t make sense. It doesn’t translate. My brain can barely hold onto pieces of it, fragments that don’t fit together. The streets, the people—or what I thought were people—it all felt like some terrible dream. And the pyramids rising from the water, the bodies pulled toward them... I still can’t shake the image. They told me—the creatures, the ones I saw there—that humans don’t last long in their world. Our bodies weren’t built for it. We’re batteries, they said, and batteries only hold so much charge. Ten minutes, maybe less. I was there longer, but only because the machine and the tooth pushed the limit. I don’t even know how long I had—an hour, maybe? Two? Long enough to feel like I was coming apart. But I understand now. 
 
 That place... it isn’t random. It isn’t chaos. There’s a system, rules I haven’t pieced together yet, but I will. And when I go back—and I will go back—I won’t walk into it blindly. Not this time. First, I need rest. A day or two to pull myself together, recharge. Then I’ll start looking for answers. The creatures—they’re the key. I need to know what they want, what they offer, and what they’re hiding. No deals, but a way to find Sarah. This isn’t over. Not by a long shot.  
+
+[Part 3](https://www.reddit.com/r/nosleep/s/wIOAbGl3Mn)
