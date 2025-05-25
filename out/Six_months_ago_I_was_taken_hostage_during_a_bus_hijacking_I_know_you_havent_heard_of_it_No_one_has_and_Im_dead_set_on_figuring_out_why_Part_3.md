@@ -59,7 +59,7 @@ She continued rubbing my shoulder while reaching out her other hand to help me u
 
 *“Do not feel shame, Meghan. I’ve never seen the chimeras venture so close to this sanctuary, and you are not responsible for your actions under their influence. By Jeremiah’s will, I arrived in time sever their communion.”*
 
-I got to my feet, and she released my hand. The woman took off her broken glasses and carefully slipped one arm under her dress collar so they hung across her chest. I could sense she was looking at me, but I still couldn’t look at her. A paralyzing embarrassment washed over me as I pictured myself mindlessly attacking whatever was in front of me until I ended up thrashing on the floor.
+I got to my feet, and she released my hand. The woman took off her broken glasses and carefully slipped one arm under her dress collar so they hung across her chest. I could sense she was looking at me, but I still couldn’t look at her. A paralyzing embarrassment washed over me as I pictured myself mindlessly attacking whatever was in front of me until I ended up thrashing on the floor, slamming my fists into the ground while hallucinating that I was beating a phantom Jeremiah to a pulp.
 
 Alma placed two fingers under my chin to move my head, forcing me to meet her gaze. Her eyes had a beautiful hazel-green tint, but the look behind them was suffused with a profound melancholy.
 
