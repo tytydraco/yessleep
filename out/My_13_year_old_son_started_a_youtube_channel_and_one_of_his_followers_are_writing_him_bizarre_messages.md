@@ -2,6 +2,8 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/1ksr96b/my_13_year_old_son_started_a_youtube_channel_and/)
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/1kuqaxa/my_13_year_old_son_started_a_youtube_channel_and/)
+
 It all started a couple of months ago when my son Jason turned 13 and begged my permission to start a YouTube channel. I know what you’re thinking. What harm could it do? Lots of other kids are doing it. Well, maybe I’m just old-fashioned and full of nostalgia for a time when kids didn’t spend obscene amounts of time nurturing their online presence to an audience of god knows who. If I had just followed my instinct, maybe none of this would have happened.
 
 ‘’Dad, you said I would be old enough to be on social media when I turned 13!’’
