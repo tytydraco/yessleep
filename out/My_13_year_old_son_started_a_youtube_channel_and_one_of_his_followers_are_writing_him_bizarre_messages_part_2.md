@@ -1,115 +1,119 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1kp9fot/my_13_year_old_son_started_a_youtube_channel_and/)
 
-The house was unnervingly silent—an unnatural kind of silence, like the air itself was holding its breath. Even the old radiator, normally hissing and knocking like an arthritic ghost, had fallen still. I could feel the quiet pressing against my skin, dense and watchful, as if the house knew something I didn’t.
+The house had gone quiet again. Not peaceful—dead quiet. The kind of silence that rings in your ears. The kind of quiet that tells you something’s hiding just beneath it, breathing softly, waiting to be noticed. I felt powerless to protect my son
 
-I sat alone at the desk in the basement, the laptop open in front of me, the cursor blinking atop a paused frame of Bonnie’s broken face. It stared back, slack and half-melted, lips torn, jaw twisted—but something about the eyes…
+Jason barely left his room now. He stopped responding to texts. He’d deleted every app on his phone except the camera. Sometimes I’d see the screen flash from under his door—quick blinks, like he was filming… or someone was filming him.
 
-They *moved.*
+I knocked once.
 
-I scrubbed back through the footage, breath shallow, eyes wide. The scene played again: the dark road, the jerking camera, the hideous reveal. But this time I noticed something new.
+Silence.
 
-In the far corner of the frame—behind her, nestled in the shadows of the roadside trees—there was a flicker. Something *tall.* Something *thin.* Angular and sharp, like a marionette made from fractured bones and glass.
+Again.
 
-Not human. Not even close.
+“Jase? You okay in there?”
 
-The video ended in static, and I sat frozen, the afterimage burned behind my eyelids. I blinked the dryness from my eyes and clicked open the drive’s file directory.
+I heard a faint whimper—maybe a laugh. Something not quite human.
 
-One visible file. Just the video.
+When I opened the door, he was sitting in the middle of his room, the walls plastered with printed comments, screenshots, and what looked like… poetry? All from **Bonnies\_revenge**.
 
-But I knew Bonnie. She was methodical, paranoid about digital footprints. I ran a scan for hidden files.
+In the middle, a phrase repeated over and over in Jason’s handwriting:
 
-One more appeared. A text document. Simple title: **“FOR JASON – DON’T LET HIM OPEN IT.”**
+“She never left the crash site.”  
+“She never left the crash site.”  
+“She never left—”
 
-My gut told me to close the folder. I didn’t listen.
+“Jason—what is this?”
 
-The file opened in a cascade of strange poetry, coded messages, and eerie instructions.
+He didn’t look up. He was staring into the camera lens of his phone like it was a mirror he couldn’t escape.
 
->
+“Dad, you don’t get it. She’s in there. In the wires. She’s *stuck.* And I think she’s trying to get *me* to come back.”
 
->
+“Come back where?”
 
->
+His voice cracked. “To the moment. The crash. I keep dreaming about it. Only... I'm there now.”
 
->
+I felt something fracture in my chest.
 
-Every line deeper, darker—each word a hook digging into something primal inside me.
+“I should’ve seen this,” I muttered. “I should’ve stopped this before—”
 
-Then the last entry:
+He finally looked at me. “But you didn’t. You didn’t want to talk about her. You wanted to bury her. And me.”
 
->
+Those words hurt more than anything the anonymous internet had ever said. Because they were true. And they didn’t come from a stranger. I had thought the best way to shield him from pain was to forget and move on. We just had to put it past us… Or maybe… That’s what I wanted. I never asked Jase how he felt.
 
-I slammed the laptop shut. The basement lights flickered, a single bulb above me groaning under some invisible pressure.
+That night, I stayed awake in the living room. The TV flicked through static channels by itself. My phone rang twice—no number. When I answered, all I heard was gravel crunching, sounds of collisions and finally... Just a low monotone humming, like an old router.
 
-*Had I opened something?*
+I don’t sleep much anymore. Not because I don’t want to—but because the house changes at night.
 
-Was this drive not a warning—but a doorway?
+The walls creak in ways they didn’t before, as if the very wood is remembering things better left forgotten. The air thickens, soured with the scent of scorched plastic and something older—like mildew clinging to bones left in the dark too long.
 
-Upstairs, the house groaned—wood popping like knuckles cracking beneath tension—and then I heard it:
+Jason mutters in his sleep. Not words, not really. Fragments. Phrases. Tongues I don’t recognize, strung together in patterns that set my teeth on edge. Things no thirteen-year-old should know. His voice hitches like static through a broken speaker—crackling, glitching, distorting. It’s like he’s become a radio tuned into a signal from somewhere beneath the fabric of reality. Somewhere wrong. A place my wife might have come across, a long, long time ago.
 
-A child’s *giggle*. Gurgling. Wet.
+And when he wakes, he looks at me with hollow eyes, like glass marbles staring out from a mask. He says he doesn’t remember. Maybe he truly doesn’t. Or maybe he does, and the silence is his only shield against whatever it is.
 
-It wasn’t Jason’s laugh.
+Silence has become his native tongue. A language made of grief and digital ash.
 
-I sprinted upstairs, heart pounding like a war drum.
+One night, alone in the amber hush of the kitchen, I found myself holding Bonnie’s old laptop again. I don’t even remember walking over to it. I just… found myself sitting there, hands hovering above the dusty keyboard, as if guided by something beneath my skin. Guilt, maybe. Hope. Or something darker. Something hungry.
 
-His door was open. Light from his screen spilled across the hall in a cold, blue wash. The room was dim except for the glow of static on the monitor.
+The laptop groaned awake like a corpse stirred by thunder. Its screen flickered, faint and weak, like an eyelid fluttering against death. The desktop was cluttered with fragments of a life cut short—photos, recipes, letters she never sent. But the folder titled ‘Web 1.0 research’’ pulsed. I swear it pulsed like a wound. I opened it once again, this time carefully looking through all the files in there. I found a folder within simply titled:
 
-Jason sat perfectly still. Too still. Like a statue carved from shadow. His mouth moved, whispering something I couldn’t hear.
+\#\_ve1l\_of\_flesh\_and\_pain
 
-“Jason?”
+The name didn’t even register as real. Just static. A shriek translated into text. I clicked it.
 
-He turned slowly, as if his joints didn’t quite remember how to work. His eyes shimmered in the glow—not with light, but with absence. Hollow, void-like.
+Inside was a single link. No description. Just a URL that didn’t belong to any known structure. More like an incantation disguised as code.
 
-“I talked to Mommy,” he said, his voice flat. “She’s in the screen. She’s cold.”
+I should’ve stopped there.
 
-I stepped toward him, dread a physical force pressing against my chest. “Buddy… that’s not her.”
+But I didn’t. I had to know more.
 
-“She smells like her,” he murmured. “Like dust and shampoo and the box in the basement.”
+The browser didn’t open it. It yielded to it. The screen bled black, as if ink had poured from within the circuits. Then it formed: a spiral, coiled like a snail shell but made from yellowed teeth and tendons. Each rotation felt like a countdown or a ritual. I stared. It stared back.
 
-Something in the laptop screen rippled. The static stretched like a wound opening. Shapes moved just beneath its surface—shapes not meant for sight.
+I felt watched by something unseen, hidden in the digital realm.
 
-I reached past him and slammed it shut.
+No, I felt more than watched…
 
-Jason screamed. Not in fear, but *rage*. He clawed at me, fists pounding my chest.
+It felt like something had reached through the screen and *pierced* me—its gaze slithering into the deepest, dust-choked corners of my mind. It didn’t just *see* my thoughts; it *fed* on them. Every buried resentment, every unspoken regret, every splintered memory I’d tried to forget—it dragged them into the light, one by one, like worms writhing from rotting earth. And then it *nourished* itself on them. I could feel it—this thing—fanning the coals of every hateful, bitter emotion I had ever swallowed. Guilt. Rage. Self-loathing. It didn’t just know my pain. It *amplified* it. Stoked it. Made me *feel* it again. *Worse.* Until I couldn’t tell where I ended, and where the hurt it wanted had begun.
 
-“You trapped her! She was trying to come back!”
+This wasn’t a website. This was a shrine. An altar built from lost memories and the agony of forgotten users. Trapped souls. Trophies?
 
-“I’m sorry,” I whispered, holding him, holding on even as he kicked and thrashed. “I’m so sorry, Jason.”
+Text began to pulse:
 
-Eventually, he broke down in sobs, collapsing against me.
+“This is the house of pain made by flesh and wires... But also hope. Offer despair. Drink demise. Come home. Offer your flesh and your being to the wires. Only then can you know peace from this dreaded existence.”
 
-“I miss her, Dad,” he whispered. “I miss her so much.”
+I tried to close the window. The mouse wouldn’t move. My fingers trembled, stuck in place. The speakers hissed. Quiet at first. Like breath exhaled through metal lungs. Then louder—an avalanche of voices, screaming in binary, in panic, in worship.
 
-“I know,” I said, my voice cracking. “I miss her too. Every day.”
+A chorus of agony.
 
-We sat like that in the darkness, tangled in grief, two broken people trying to hold each other together.
+The monitor pulsed—like a heartbeat. Faint, then stronger. Faces flickered on the screen, each more grotesque than the last. A man with no mouth and too many teeth. Children whose eyes had been replaced with red LED bulbs, bleeding at the edges. Lips peeled back, eyes sewn shut with wire. Still alive. Still moving.
 
-Later that night, I went back down to the basement. To the box. To the drive. To whatever I had opened.
+Then—I saw her.
 
-Bonnie had always written things down—journals, notebooks, scraps of thoughts. I found them beneath old picture frames, wrapped in a faded scarf that still smelled faintly like her. Her scent was dusty now, faded by time, but still hers.
+Bonnie.
 
-One journal stood out. Bound in cracked leather. Pages stuffed with chaotic handwriting.
+Or something wearing her like a mask.
 
-**July 13th, 2020**
+Her skin was torn and re-stitched in jagged lines. Gauze soaked red wrapped around her head like a bridal veil dipped in meat. Her sewn lips twitched, as if trying to mouth my name.
 
-“He came to me in a dream. Not a man, but something wearing a man's grief like a coat. He said Jason would suffer if I didn't listen. I laughed at first. Then he showed me what he meant.”
+Begging.
 
-**July 21st 2020**
+I screamed and yanked the power cord.
 
-“There are rules. Blood is memory. Screens are doors. I thought it was just madness. But I saw him in the corner of the baby monitor. He watches through reflections. Through pain.”
+The screen stayed on.
 
-**August 3rd 2020**
+The spiral spun faster. Her face rippled. A laugh—or something like laughter—poured from the speakers. Then a low, rattling chant in a tongue I couldn’t understand.
 
-“I made a deal. I didn’t mean to. I just wanted Jason to forget the crash. I just wanted him not to hurt. But now… it hurts worse. I see it in him. Something has followed.”
+But maybe I could… Because words began to form in my mind out of that impossible tongue. Words cutting through all the pain and despair like a lifeline, a promise.
 
-She had tried to protect him. She had opened the door first.
+‘’She’s in pain here, without you, only unification can ease your pain.’’
 
-And in my grief, I had thrown it wide open again.
+I grabbed a wrench.
 
-I stared down at her words, trembling. Tears splashed onto the page, warping the ink.
+Smashed the screen.
 
-I never helped Jason *carry* the pain. I buried it. Covered it. Masked it with distractions. With screens.
+Only then, in a flash of sparks and glass, did the monitor finally die.
 
-But hurt doesn’t die. It waits.
+I fell to my knees. I felt violated… Manipulated… Confused and in agony. All I longed for was to see her face as it used to be. Not broken. Not mangled through blood, flesh, and bones. I had felt the pull towards the screen; how strong it felt. That final promise… Of relief from all the horrors. Of unification. Of the convergence of all things into one. Terrible and beautiful, happiness and torment, all bleeding into one single entity. A place beyond… Hidden in lines of code.
 
-And sometimes, it finds a face.
+Something had pulled me back. Memories… Of an analogue time. Memories of nature, of roasting marshmallows while fireflies glittered in the dark, playing rough and dirty in the street, scraped knees, strawberry jam on toast in the my grandmothers garden.
+
+And then a terrible realization hit me… Had Jason seen these things? Had he experienced what I just experienced? My mind could barely perceive it, barely withstand it… But a child? How would something like this affect him?

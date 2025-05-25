@@ -2,77 +2,9 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/1kq6lpg/my_13_year_old_son_started_a_youtube_channel_and/)
 
-I don’t sleep much anymore. Not because I don’t want to—but because the house changes at night.
+Jason screamed at night like he was being torn open from the inside. I ran to him. His body writhed on the bed, his limbs contorted in unnatural angles. His mouth moved like a puppet’s—lifeless, yet somehow still speaking:
 
-The walls creak in ways they didn’t before, as if the very wood is remembering things better left forgotten. The air thickens, soured with the scent of scorched plastic and something older—like mildew clinging to bones left in the dark too long.
-
-Jason mutters in his sleep. Not words, not really. Fragments. Phrases. Tongues I don’t recognize, strung together in patterns that set my teeth on edge. Things no thirteen-year-old should know. His voice hitches like static through a broken speaker—crackling, glitching, distorting. It’s like he’s become a radio tuned into a signal from somewhere beneath the fabric of reality. Somewhere wrong.
-
-And when he wakes, he looks at me with hollow eyes, like glass marbles staring out from a mask. He says he doesn’t remember. Maybe he truly doesn’t. Or maybe he does, and the silence is his only shield against whatever it is.
-
-Silence has become his native tongue. A language made of grief and digital ash.
-
-It started with the flash drive. But the infection runs deeper than any file. It was never just a piece of corrupted data. It was a doorway. A calling card. And we answered it.
-
-One night, alone in the amber hush of the kitchen, I found myself holding Bonnie’s old laptop. I don’t even remember walking over to it. I just… found myself sitting there, hands hovering above the dusty keyboard, as if guided by something beneath my skin. Guilt, maybe. Hope. Or something darker. Something hungry.
-
-The laptop groaned awake like a corpse stirred by thunder. Its screen flickered, faint and weak, like an eyelid fluttering against death. The desktop was cluttered with fragments of a life cut short—photos, recipes, letters she never sent. But one folder pulsed. I swear it pulsed like a wound.
-
-\#\_ve1l\_of\_flesh\_and\_pain
-
-The name didn’t even register as real. Just static. A shriek translated into text. I clicked it.
-
-Inside was a single link. No description. Just a URL that didn’t belong to any known structure. More like an incantation disguised as code.
-
-I should’ve stopped there.
-
-But I didn’t.
-
-The browser didn’t open it. It yielded to it. The screen bled black, as if ink had poured from within the circuits. Then it formed: a spiral, coiled like a snail shell but made from yellowed teeth and tendons. Each rotation felt like a countdown, or a ritual. I stared. It stared back.
-
-I felt watched.
-
-Not in the way you feel watched by a camera.
-
-Watched in the way prey knows it’s being hunted from inside its own skin.
-
-This wasn’t a website. This was a shrine. An altar built from lost memories and the agony of forgotten users.
-
-Text began to pulse:
-
-“This is the house of pain made flesh. Offer despair. Drink ruin. Come home.”
-
-I tried to close the window. The mouse wouldn’t move. My fingers trembled, stuck in place. The speakers hissed. Quiet at first. Like breath exhaled through metal lungs. Then louder—an avalanche of voices, screaming in binary, in panic, in worship.
-
-A chorus of agony.
-
-The monitor pulsed—like a heartbeat. Faint, then stronger. Faces flickered on the screen, each more grotesque than the last. A man with no mouth and too many teeth. Children whose eyes had been replaced with red LED bulbs. Lips peeled back, eyes sewn shut with wire. Still alive. Still moving.
-
-Then—I saw her.
-
-Bonnie.
-
-Or something wearing her like a mask.
-
-Her skin torn and re-stitched in jagged lines. Gauze soaked red wrapped around her head like a bridal veil dipped in meat. Her sewn lips twitched, as if trying to mouth my name.
-
-Begging.
-
-I screamed and yanked the power cord.
-
-The screen stayed on.
-
-The spiral spun faster. Her face rippled. A laugh—or something like laughter—poured from the speakers. Then a low, rattling chant in a tongue I couldn’t understand.
-
-I grabbed a wrench.
-
-Smashed the screen.
-
-Only then, in a flash of sparks and glass, did the monitor finally die.
-
-That night, Jason screamed like he was being torn open from the inside. I ran to him. His body writhed on the bed, his limbs contorted in unnatural angles. His mouth moved like a puppet’s—lifeless, yet somehow still speaking:
-
-“The veil is skin… the skin is time… she’s waiting where the wires end…”
+“The veil is skin… the skin is time… she’s waiting where the wires end… She hums like static, like eternal servers lined in rows of millions.”
 
 Then his eyes opened.
 
@@ -80,35 +12,37 @@ They were not his.
 
 They glowed faintly. Something stared out from behind them. Something old. And cruel. And smiling.
 
-I left the next morning.
+I called my sister over and told her Jason was sick. I didn’t explain to her the details; I was afraid, too. I simply told her he was sick and feverish and that I needed to go out of town for work.
 
-Six hours in the car. Every mile felt heavier than the last, as if the road itself wanted to drag me back. My thoughts tangled like charging cables in a junk drawer. I went to see Evelyn—Bonnie’s sister. The last person Bonnie trusted. The one person I’d avoided all these years because of how she made me feel.
+Six hours in the car. Every mile felt heavier than the last, as if the road itself wanted to drag me back. My thoughts tangled like charging cables in a junk drawer. I went to see Evelyn—Bonnie’s sister. They had always had a strong and close relationship, at least until a couple of years before the car crash. After that, Evelyn had secluded herself in the woods, living surrounded by wind-blasted trees and the kind of silence, free of static and noise, that allowed for clarity and memories. I never wondered too much about her choice, she had always seemed most comfortable surrounded by nature and simplicity.
 
-Like I’d failed Bonnie before she died.
+From what I knew from the times I’ve met her, and Bonnie’s stories, she had always been slightly strange. Touched by something the rest of us couldn’t see.
 
-Evelyn had always been strange. Touched by something the rest of us couldn’t see. She lived in a cabin surrounded by wind-blasted trees and the kind of silence that carried memory. She didn’t ask why I was there. She just looked at me, eyes haunted, and said:
+I knocked on her door, and heard some rummaging and commotion before it opened.
+
+She looked at me, stunned, silent for a couple of seconds too long. As if she had seen something in my eyes that terrified her.
 
 “I hoped this day would never come.”
 
-She brewed tea that tasted like rust and rosemary and sat me down at a table scratched with old carvings. Spirals. Runes. Bones etched into wood.
+She invited me in and brewed tea that tasted like rust and rosemary, she sat me down at a table scratched with old carvings. Spirals. Runes. Bones etched into wood.
 
 I told her everything.
 
-Jason. The dreams. The voice behind the veil. The website. The spiral of teeth.
+Jason. The dreams. The voice behind the veil. The website. The place of wires, screaming flesh, spirals of teeth, and humming, stale, and lifeless electronic devices.
 
-When I said those words, she turned pale.
+She turned pale.
 
-“I’ve seen it,” she whispered. “Before Bonnie ever met you. Before she left home. She found something out there, in the old corners of the internet. Something that shouldn’t have been remembered. She didn’t know it then, but she opened a door. A door that bleeds.”
+“I’ve seen it,” she whispered. “Before Bonnie ever met you. Before she left home. She found something out there, in the old corners of the internet. Something that shouldn’t have been remembered. She didn’t know it then, but she opened a door. A door that bleeds and pulses. A static, withering inferno of withering wire-snakes, pale screaming flesh, and unnatural unions of digital and analog. A dream of unification. Something lurks there… Something that wants to harm us.”
 
 I swallowed hard, my hands shaking.
 
 “How did she find it?”
 
-“She was always curious. Too curious. She used to dive into places no one else dared—abandoned servers, forgotten forums, digital graveyards from the early days of the web. Some of those places… weren’t empty. She found something. And for a while, it found her.”
+“She was always curious. Too curious. She used to dive into places no one else dared—abandoned servers, forgotten forums, digital graveyards from the early days of the web. Some of those places… weren’t empty. She found something. But now I wonder… Maybe it found her.’’
 
 “A demon?” I asked.
 
-“No. Worse. A presence. A predator made from thought and pain. Something born when the web was young and hungry. It existed in forgotten nodes, between connections. It was ignored for years. Then someone stumbled on it again. Bonnie. And now, Jason.”
+“No. Worse. A presence. A predator made from thought and pain. Something born when the web was young and hungry. It existed in forgotten nodes, between connections. It was ignored for years. Then someone stumbled on it again. Bonnie. And now, it seems… Jason too.”
 
 I felt bile rise.
 
@@ -116,15 +50,15 @@ I felt bile rise.
 
 She looked away, her silence heavy.
 
-“I think it marked her. Followed her. I think it waited for pain to bloom—and when it did, it latched itself onto Jason.’’
+“I think it marked her. Followed her. I think it waited for pain to bloom—and when it did, when the crash happened… When Jason started his youtube channel… It latched itself onto him.’’
 
 I shook my head, I felt the weight of the entire world on my shoulders. Why my little boy? Why didn’t it just choose me instead?
 
 I asked her, the answer, cruel, relentless.
 
-‘’Children are more fragile, more susceptible, their feelings are more raw. It… Prefers this. It prefers this.’’
+‘’Children are more fragile, more susceptible, their feelings are more raw. It… Prefers this. And it still isn’t analog; it has to reach you through the digital realm. The deeper it can draw you into the online world, hypnotize you, the better it can possess you.’’
 
-I sighed. At my ropes and completely desperate I asked her: ’Is there nothing I can do?’
+I sighed. At my ropes and completely desperate, I asked her: ’Is there nothing I can do?’
 
 She signaled for me to follow her.
 
@@ -172,7 +106,7 @@ Each page bore the same phrase, scrawled in jagged lines that looked carved more
 
 **“She’s almost here.”**
 
-I tried to speak to him. To reach him. But Jason only stared through me, his pupils like pinholes into something vast and ancient and screaming.
+I tried to speak to him. To reach him. But Jason only stared through me, his pupils like pinholes into something vast, ancient, and screaming.
 
 Some nights, when the house settles into that coffin-quiet lull, when Jason finally sleeps—though not peacefully, never peacefully—I sit beside his bed and try to stall whatever *this* is with the only weapon I have left: love.
 
@@ -180,7 +114,9 @@ I brush his damp hair from his forehead. Hold his hand, even when it twitches wi
 
 “I’m here, Jase,” I say. “I’m not going anywhere.”
 
-But even as I say it, I feel the lie coil around my tongue. Because *something* is already taking him. Pulling him deeper, inch by inch, into a place where I can’t follow. Trying to drag his consciousness into the screen where I can’t follow. To world I could not possibly understand… A world I didn’t want to understand. I’m losing him… Hours… Minutes… Seconds… I felt the desperate tick of the clock closing in on me.
+But even as I say it, I feel the lie coil around my tongue. Because *something* is already taking him. Pulling him deeper, inch by inch, into a place where I can’t follow. Trying to drag his consciousness into that world behind the screen, where I can’t follow. To a world I could not possibly understand… A world I didn’t want to understand.
+
+I’m losing him… Hours… Minutes… Seconds… I felt the desperate tick of the clock closing in on me.
 
 And the harder I try to love him back to the surface, the more I feel my own grief—my own guilt—crack the foundations beneath us. I mourn Bonnie. But I also mourn the version of myself that might’ve saved her. The version of me that didn’t let the grief poison everything that came after. I neglected my son, I didn’t pay enough attention to his grief… I realize that now. And in my absence, I allowed this thing from the early, promising beginnings of cyberspace to creep in like a curse.
 
@@ -198,6 +134,6 @@ Sobbing.
 
 Not from a place I can reach. Not even from behind the walls.
 
-She cries from somewhere deeper. From *beneath* the internet. From inside the wires. From the place that’s been watching Jason. And me. And waiting.
+She cries from somewhere deeper. From *beneath* the internet. From inside the wires. From the place that’s been watching Jason. And me. It’s waiting.
 
 Waiting for us to break.
