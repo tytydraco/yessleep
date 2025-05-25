@@ -376,4 +376,4 @@ However, Iolo shrugged one shoulder. “Really ain’t much more to discuss. Jus
 
 So that's our great plan: don't die. Excellent. We'll see how that goes for [us.](https://www.reddit.com/r/atypicalpests/s/SO6b77lmMD) 
  
-
+Update: [I think I'm fucked. ](https://www.reddit.com/r/nosleep/s/mScBlXvY4M)
