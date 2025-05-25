@@ -1,5 +1,7 @@
 **Journal of Ethan Marks**
+
 **Age: 16**
+
 **Found in his room, under a loose floorboard.**
 
 ---
@@ -48,7 +50,7 @@ The screen flashed an image for a split second. I barely caught it. A face. Pale
 
 ---
 
-**Entry 4 – September 6th**
+**Entry 4 – September 8th**
 
 Things are getting bad.
 
@@ -60,7 +62,7 @@ I left it outside in the trash. Came back from school, it was on my desk. Runnin
 
 ---
 
-**Entry 5 – September 8th**
+**Entry 5 – September 9th**
 
 No sleep. Can’t eat. The whispering from the game is in my dreams. My ears won’t stop ringing. I asked my mom if she’s hearing things at night. She said I must be stressed.
 
@@ -76,7 +78,7 @@ I think it smiled.
 
 ---
 
-**Final Entry – September 9th**
+**Final Entry – September 10th**
 
 I think I know what “feed him” means.
 
