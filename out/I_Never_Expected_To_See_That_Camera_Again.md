@@ -110,7 +110,7 @@ We both start laughing—that giddy, relieved kind of laughter that comes after 
 
 “Language.” Me and my younger self replied in unison sarcastically. It would have almost been cute if it wasn’t for what I saw next. Seventeen years later, I saw something both of us had missed completely. Through the window, just above the cat, were two piercing blue eyes staring at us, unblinking.
 
-The cat arches its back and hisses at the figure behind it before being snatched violently into the darkness. The eyes remains motionless for another few seconds before slowly disappearing back into the shadows of the room.
+The cat arches its back and hisses at the figure behind it before being snatched violently into the darkness. The eyes remain motionless for another few seconds before slowly disappearing back into the shadows of the room.
 
 Neither Sarah nor I noticed any of this at the time. We were too busy laughing at ourselves for being so scared. We had no idea of what we should have truly been afraid of.
 

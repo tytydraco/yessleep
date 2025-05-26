@@ -501,3 +501,5 @@ Bending over, I picked up the small piece of plastic with a lanyard attached. It
 “Well, maybe we got a little luck on our side,” I said aloud, holding it up for the girls to see, “And maybe getting that woman out wasn’t a total loss,” I addressed to Hope.
 
 In my hand, I held a Kingfisher access keycard.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1kvg4c0/im_trapped_on_the_edge_of_an_abyss_my_old_house/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
