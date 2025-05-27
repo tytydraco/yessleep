@@ -8,7 +8,7 @@ I stop mid-step, but Marie continues down the stairs—unflinching.
 
 “What was that?” I ask, the sound still reverberating through me. She stops partway down and turns to me with a puzzled look.
 
-“What noise?” she asks in response, an eyebrow raised, climbing back up the stairs to me.
+“What are you talking about?” she asks in response, an eyebrow raised, climbing back up the stairs to me.
 
 “That—that scream. That yell, what was it?” I ask again, backing away from her. She looks me up and down, and a look of realization dawns on her face.
 
@@ -64,7 +64,7 @@ I would never have gone too far from them. They can catch me up to speed. I need
 
 I look down at her hand, then back up to her eyes. Soft eyes, blue eyes, beautiful eyes. I take her hand, and we sit together.
 
-I dig into my food alongside Marie, and it’s delicious. Eggs and bacon, greasy, salty, delicious. The perfect comfort food to turn this nightmare of a morning around. I reach for the drink she set out, and stop. 
+I dig into my food alongside Marie, and it’s amazing. Eggs and bacon, greasy, salty, delicious. The perfect comfort food to turn this nightmare of a morning around. I reach for the drink she set out, and stop. 
 
 It looks like milk, but it’s in a small vial, barely more than a shot. Marie puts a hand on my outstretched one.
 
@@ -72,7 +72,7 @@ It looks like milk, but it’s in a small vial, barely more than a shot. Marie p
 
 “What is it?” I ask, growing unnerved again.
 
-“It’s our medicine, honey. It’s actually your greatest creation, and the subject of your work,” she explained, squeezing my hand tight. “It’s what keeps the two of us healthy, you see? We met when you were working on it actually, since we were both afflicted by the same ailment. As was your family, but…”
+“It’s our medicine, honey. It’s actually your greatest creation, and the subject of your work,” she explains, squeezing my hand tight. “It’s what keeps the two of us healthy, you see? We met when you were working on it actually, since we were both afflicted by the same ailment. As was your family, but…”
 
 “But?” I insisted, hoping she wasn’t implying what she undoubtedly was.
 
@@ -86,7 +86,7 @@ It looks like milk, but it’s in a small vial, barely more than a shot. Marie p
 
 “Wait, honey, you need to take your medicine! It’s important you take it after you eat—every morning!” She insists.
 
-“Medicine?” I echo, picking up the vial.
+“Every morning?” I echo, picking up the vial.
 
 I stare at the liquid inside. It’s a viscous and chalky white substance, that leaves a film on the glass as I turn it in my hand.
 
