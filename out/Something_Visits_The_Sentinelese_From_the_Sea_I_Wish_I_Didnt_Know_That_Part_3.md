@@ -14,7 +14,7 @@
 
 
 
-Setu looked at me with a certain suspicion, and I already knew how he was feeling. We were driving back from the pond, and he had been awfully quiet. And I knew why he didn’t believe me…it was because I hadn’t considered this. The documentary was a huge lie for me, a ruse to get him and his parents to tell the story I was grievously itching to know, but now that he had brought up this point and now that I knew I had to send this footage to Carl, I had to come up with something. 
+Setu looked at me with a certain suspicion, and I already knew how he was feeling. We were driving back from the pond, and he had been awfully quiet. And I knew why he didn’t believe me…it was because I hadn’t considered this. The documentary was a huge lie for me, a ruse to get him and his parents to tell the story I was grievously itching to know, but now that he had brought up this point and now that I knew I had to send this footage to Carl, I had to come up with something. 
 
 
 
@@ -26,7 +26,7 @@ Setu smiled, so did Bala and for a moment, I felt I wasn’t betraying them. Goi
 
 
 
- After having spent the entire evening on the hot and humid coast of the local pond, I was itching to drown myself in liquor in my hotel room, but they just wouldn’t let me go, and I had to unfortunately spend the night at the mercy of a ceiling fan. Dinner wasn’t bad, though, especially after Setu had told his parents how I planned to keep their identity hidden. That night, though, I decided to call Carl, and I swear the Earth slightly trembled beneath my feet when I heard his voice. I chalked it up to me being tired back then, but now I know better.
+ After having spent the entire evening on the hot and humid coast of the local pond, I was itching to drown myself in liquor in my hotel room, but they just wouldn’t let me go, and I had to unfortunately spend the night at the mercy of a ceiling fan. Dinner wasn’t bad, though, especially after Setu had told his parents how I planned to keep their identity hidden. That night, though, I decided to call Carl, and I swear the Earth slightly trembled beneath my feet when I heard his voice. I chalked it up to me being tired back then, but now I know better.
 
 
 
@@ -54,11 +54,11 @@ Setu smiled, so did Bala and for a moment, I felt I wasn’t betraying them. Goi
 
 
 
-And then it happened. It was like the floodgates to my mind’s reservoir opened, and I spilled everything out. I told Carl everything, how I had been researching the island, how I had studied its history, how we could get exclusive footage, photos and early recordings by paying someone in the government and how if, Setu’s origin as I suspect turned out to be true, we’d have a gold standard documentary on our hands. 
+And then it happened. It was like the floodgates to my mind’s reservoir opened, and I spilled everything out. I told Carl everything, how I had been researching the island, how I had studied its history, how we could get exclusive footage, photos and early recordings by paying someone in the government and how if, Setu’s origin as I suspect turned out to be true, we’d have a gold standard documentary on our hands. 
 
 
 
-But I don’t remember the words I said, it was as though I was a kid telling my dad about the new Batman action figure I wanted for Christmas after having eyed it in the local store window for the past few months. My mind was completely blank once I was done spilling out my secrets. 
+But I don’t remember the words I said, it was as though I was a kid telling my dad about the new Batman action figure I wanted for Christmas after having eyed it in the local store window for the past few months. My mind was completely blank once I was done spilling out my secrets. 
 
 
 
@@ -74,10 +74,8 @@ But I don’t remember the words I said, it was as though I was a kid telling my
 
 
 
-“No you weren't…were you?”
-
-
-
+“No you weren't…were you?”  
+  
 
 
 “Yes dude! We left early because I had forgotten my sunscreen, the local mosquito population had practically feasted on me and I had to take a shit on the beach because of the food that day. Don’t you remember they forced me to carry my shit back to the main island so I could properly dispose of it?”
@@ -94,13 +92,11 @@ I didn’t…
 
 “Anyways it won’t take much to convince the others if you can make this happen. I’ll figure out how to publish this. I might just form a sister company in some country where India can’t prosecute us to keep our hands clean but that’s if we get approved. I wish dad didn’t have oversight on our projects. Hey by the way, this guy Setu…you’re 100% sure he’s the real deal?”
 
+  
+  
 
 
-
-
-
-
-Damn it, the water from my reservoir had swept away Setu’s name….and so I was forced to tell Carl about how concerned the family was for their privacy and that we will need to blur their faces and their voices in the entire thing. 
+Damn it, the water from my reservoir had swept away Setu’s name….and so I was forced to tell Carl about how concerned the family was for their privacy and that we will need to blur their faces and their voices in the entire thing. 
 
 “Won’t work…”
 
@@ -114,7 +110,7 @@ Damn it, the water from my reservoir had swept away Setu’s name….and so I wa
 
 
 
-I couldn’t speak for what seemed like a lifetime to me. Another hurdle, how was I going to do this if people didn’t work with me? Carl was supposed to be my friend for god’s sake. 
+I couldn’t speak for what seemed like a lifetime to me. Another hurdle, how was I going to do this if people didn’t work with me? Carl was supposed to be my friend for god’s sake. 
 
 
 
@@ -170,16 +166,12 @@ The next day was uneventful, we left Setu’s house while he was still sleeping.
 
 
 
-“Whatever has gotten you acting like this?”
+“Whatever has gotten you acting like this?”  
+  
 
 
-
-
-
-“So you do think there’s a reason for me to be this quiet? Well Mr. Big Documentary maker from the US of A why don’t you figure it out?”
-
-
-
+“So you do think there’s a reason for me to be this quiet? Well Mr. Big Documentary maker from the US of A why don’t you figure it out?”  
+  
 
 
 “So that’s it, you don’t approve?”
@@ -190,7 +182,7 @@ The next day was uneventful, we left Setu’s house while he was still sleeping.
 
 
 
-I removed my shades and slammed the dashboard like a child, and Bala finally stopped the car and looked me in the eye. 
+I removed my shades and slammed the dashboard like a child, and Bala finally stopped the car and looked me in the eye. 
 
 
 
@@ -202,7 +194,7 @@ I removed my shades and slammed the dashboard like a child, and Bala finally sto
 
 
 
-He kept staring into my eyes as though trying to judge my soul after that response. He didn’t let up, and neither did I…I liked Bala, but not enough to reveal my final plan to him. I hadn’t even told Carl why I wanted to truly go to the island, and I wasn’t about to tell him either. After a long minute or two, he finally sighed…
+He kept staring into my eyes as though trying to judge my soul after that response. He didn’t let up, and neither did I…I liked Bala, but not enough to reveal my final plan to him. I hadn’t even told Carl why I wanted to go to the island, truly, and I wasn’t about to say to him either. After a long minute or two, he finally sighed…
 
 
 
@@ -210,11 +202,11 @@ He kept staring into my eyes as though trying to judge my soul after that respon
 
 
 
-I nodded, and then silence took over once again. This conversation had cost us the sunrise, but I didn’t care, I just needed a good nap, and I buried my face in pillows as soon as we reached our hotel. I never bothered to check up on Bala. 
+I nodded, and then silence took over once again. This conversation had cost us the sunrise, but I didn’t care, I just needed a good nap, and I buried my face in pillows as soon as we reached our hotel. I never bothered to check up on Bala. 
 
 
 
-When I woke up, it was already noon, we were late for the interview, and I had around 10 missed calls from Bala. I quickly called him and, realizing that he was already waiting in the car for me, I rushed out with my gear without bathing or brushing my teeth.When I reached the car, I realized that  loyalties had shifted. Bala couldn’t have cared less that I was late, but he called me multiple times because he had been contacted by Mr. Sastry, who seemed furious over the phone. 
+When I woke up, it was already noon, we were late for the interview, and I had around 10 missed calls from Bala. I quickly called him and, realizing that he was already waiting in the car for me, I rushed out with my gear without bathing or brushing my teeth.When I reached the car, I realized that his loyalties had shifted. Bala couldn’t have cared less that I was late, but he called me multiple times because he had been contacted by Mr. Sastry, who seemed furious over the phone. 
 
 
 
@@ -230,17 +222,15 @@ When we reached Setu’s home, he demanded that I talk with him in private outsi
 
 
 
-“Give me some time to think about it.”
+“Give me some time to think about it.”  
+  
+
+
+Mr. Sastry walked back into the house without another word, and I began calculating things. I won’t bore you with the numbers, but Mr. Sastry had demanded 80,00,000 rupees, which is roughly $100,000. This was a huge number. I had only $40,000 in my bank account, but I always knew I’d have to pay up if I wanted this, and I wanted this so bad. So I decided that this was an amount I could pay once Carl had convinced the team. 
 
 
 
-
-
-Mr. Sastry walked back into the house without another word, and I began calculating things. I won’t bore you with the numbers, but Mr. Sastry had demanded 80,00,000 rupees, which is roughly $100,000. This was a huge number. I had only $40,000 in my bank account, but I always knew I’d have to pay up if I wanted this, and I wanted this so bad. So I decided that this was an amount I could pay once Carl had convinced the team. 
-
-
-
-We’d have the money if that happened, and moreover, the idea of holding sway over Setu and his family once I handed over the money enticed me. It would make convincing them to let me take him to the island easier. Mr. Sastry came out after a good 30 minutes, and by then I had made my decision. I was simply waiting to finish my cigarette, and when he came out, I offered him one as well. 
+We’d have the money if that happened, and moreover, the idea of holding sway over Setu and his family once I handed over the money enticed me. It would make convincing them to let me take him to the island easier. Mr. Sastry came out after a good 30 minutes, and by then I had made my decision. I was simply waiting to finish my cigarette, and when he came out, I offered him one as well. 
 
 
 
@@ -256,7 +246,7 @@ He gave me a cold stare and didn’t say a word, and I knew that was my turn to 
 
 
 
-He didn’t say a word after that, handed the unlit cigarette back to me, and went back inside. At that moment, my heart skipped a beat. Had I been too brash with my offer? Had I revealed my hand? I contemplated every possibility as I finished smoking and headed back inside. 
+He didn’t say a word after that, handed the unlit cigarette back to me, and went back inside. At that moment, my heart skipped a beat. Had I been too brash with my offer? Had I revealed my hand? I contemplated every possibility as I finished smoking and headed back inside. 
 
 
 
@@ -280,15 +270,15 @@ I chuckled, “Sure…but even if you aren’t, trust me, I have a bonus planned
 
 
 
-After what seemed like hours but had already been minutes, Mr. Sastry walked out and nodded, and I knew we were back in business. I set up the cameras next and filmed their interviews. Naturally, both parents were quite reserved with what they divulged about Setu’s rescue and recovery, and so I won’t include the entire transcript, only the points relevant to our story. 
+After what seemed like hours but had already been minutes, Mr. Sastry walked out and nodded, and I knew we were back in business. I set up the cameras next and filmed their interviews. Naturally, both parents were quite reserved with what they divulged about Setu’s rescue and recovery, and so I won’t include the entire transcript, only the points relevant to our story. 
 
 
 
-After the rescue, Setu wasn’t treated at a hospital but by someone Mr. Sastry knew closely to prevent the authorities from knowing about him, because just like me, he too suspected that Setu was from the North Sentinel Island. They used to live in the district of Muttukadu back then. It was a relatively remote area, so keeping him away from prying eyes and authorities was relatively easy, but this made Setu’s recovery extremely hard. 
+After the rescue, Setu wasn’t treated at a hospital but by someone Mr. Sastry knew closely to prevent the authorities from learning about him, because just like me, he too suspected that Setu was from the North Sentinel Island. They used to live in the Muttukadu district back then. It was a relatively remote area, so keeping him away from prying eyes and authorities was relatively easy, but this made Setu’s recovery extremely hard. 
 
 
 
-Medicines were difficult to come by, and complicated medical procedures were kind of impossible in the confines of the home. Long story short, it took 30 days for Setu to show some signs of recovery, and during those 30 days, a huge chunk of flesh was taken out of the wound on his back to prevent the infection from spreading further. 
+Medicines were difficult to come by, and complicated medical procedures were kind of impossible in the confines of the home. Long story short, it took 30 days for Setu to show some signs of recovery, and during those 30 days, a huge chunk of flesh was taken out of the wound on his back to prevent the infection from spreading further. 
 
 
 
@@ -300,11 +290,11 @@ This is why, maybe when Mr. Sastry had taken a tea break, Mrs. Sastry had told m
 
 
 
-“He wasn’t a bad kid but he had his problems. Learning Tamil was difficult for him even though he was young and he hated having to learn English. If what he (points to her husband) suspected was true, then we both understood that he was likely learning a second and third language. Then there was his fear of the sea which we thought was natural after what had happened to him but later after a year we learned that he only feared storms on the sea. And after some time, he and I figured out that Setu feared only a particular kind of storm.
+“He wasn’t a bad kid but he had his problems. Learning Tamil was difficult for him even though he was young and he hated having to learn English. If what he (points to her husband) suspected was true, then we both understood that he was likely learning a second and third language. Then there was his fear of the sea which we thought was natural after what had happened to him but later after a year we learned that he only feared storms on the ocean. And after some time, he and I figured out that Setu feared only a particular kind of storm.
 
 
 
-These were storms that would never reach the shore but always caused the government to issue warnings about a potential hurricane during high tides, usually at nights. He had a sixth sense for storms like this because he would intuitively know that there was a storm on the horizon before it happened. He was known to skip school or even run out of it just to hide in his room until the storm passed. That was a difficult time.”
+These were storms that would never reach the shore but always caused the government to issue warnings about a potential hurricane during high tides, usually at night. He had a sixth sense for storms like this because he would intuitively know that there was a storm on the horizon before it happened. He was known to skip school or even run out of it just to hide in his room until the storm passed. That was a difficult time.”
 
 
 
@@ -324,7 +314,7 @@ She hesitated and then said, “At first we thought they were random. When it ha
 
 
 
-He walked past me like a ghost, never even acknowledged me or any of the people that had gathered in the house. He had to grab and shake Setu and that is when he woke up, began screaming and passed out. We took him to the doctor instantly and that is when he told us that this was sleepwalking and waking Setu up was a very bad idea. We expected this to happen the next day because the doctor had suggested so. But it didn’t and so we alternatively slept next to Setu with a cloth string tied to his and our wrists to ensure that we woke up the next time he sleepwalked. 
+He walked past me like a ghost, never even acknowledging me or any of the people who had gathered in the house. He had to grab and shake Setu and that is when he woke up, began screaming and passed out. We took him to the doctor instantly and that is when he told us that this was sleepwalking and waking Setu up was a very bad idea. We expected this to happen the next day because the doctor had suggested so. But it didn’t and so we alternatively slept next to Setu with a cloth string tied to his and our wrists to ensure that we woke up the next time he sleepwalked. 
 
 
 
@@ -336,7 +326,7 @@ This is when Mr. Sastry interrupted her and took over. I suspect he didn’t wan
 
 
 
-“I decided I would follow him, see where he leads me and so I walked by his side with the string still attached…it was no safety net but it eased my heart nonetheless. I walked with him out of the village, saw him navigate routes that I knew my 10 year old son didn’t know about until we finally arrived at the beach. He then simply stared out at the sea and so did I. We were there for five to 10 minutes and I tried to walk him back to the house after that but he wouldn’t budge. 
+“I decided I would follow him, see where he leads me and so I walked by his side with the string still attached…it was no safety net but it eased my heart nonetheless. I walked with him out of the village, saw him navigate routes that I knew my 10 year old son didn’t know about until we finally arrived at the beach. He then simply stared out at the sea and so did I. We were there for five to 10 minutes and I tried to walk him back to the house after that but he wouldn’t budge. 
 
 
 
@@ -348,10 +338,8 @@ I knew there was more to this, I knew Mr. Sastry was hiding something, but it se
 
 
 
-“So…how long did the sleepwalking last?”
-
-
-
+“So…how long did the sleepwalking last?”  
+  
 
 
 “Until he was 13…”
@@ -378,11 +366,11 @@ I honestly don’t know where this genuine cry for help came from within me, but
 
 
 
-He nodded and said, “She knows about the lightning strikes?” 
+He nodded and said, “She knows about the lightning strikes?” 
 
 
 
-“What about them?” 
+“What about them?” 
 
 
 
@@ -418,7 +406,7 @@ Wait, was he telling me that the smell in his cabin was related to Setu’s woun
 
 
 
-“I quickly learned that the smell would creep up on me each time before a lightning strike every time during the sleepwalking episodes. My wife never mentioned any smell and  so I never told her about it but I always knew…”
+“I quickly learned that the smell would creep up on me each time before a lightning strike every time during the sleepwalking episodes. My wife never mentioned any smell and  so I never told her about it but I always knew…”
 
 
 
@@ -446,7 +434,7 @@ Mr. Sastry did not respond. I knew if I pushed him more about it, he would walk 
 
 
 
-I could hear the blood rushing through my ears as the conversation came to an end. This was too much. Was there something more to Setu that meets the eye? Either way, the treasure I had been hunting for was now within my grasp, and something inside me, something in my gut, told me I was right. I got my journal and began scribbling like a madman until I was sure I had written down every part of the conversation I had just had. And then? I began reading it over and over again.
+I could hear the blood rushing through my ears as the conversation came to an end. This was too much. Was there something more to Setu that meets the eye? Either way, the treasure I had been hunting for was now within my grasp, and something inside me, something in my gut, told me I was right. I got my journal and began scribbling like a madman until I was sure I had written down every part of the conversation I had just had. And then? I started reading it over and over again.
 
 
 
@@ -514,7 +502,7 @@ This was heavy stuff and the conversation had taken an unexpected turn. I wanted
 
 
 
-“Wait, Really? Can I see it?” 
+“Wait, Really? Can I see it?” 
 
 
 
@@ -526,7 +514,7 @@ I shook my head with an apologetic look. Setu placed his hand on my shoulder as 
 
 
 
-It could also be interpreted as a hat with a turkey head sprouting out of it. The body was quite stout, like a 5-year-old’s interpretation of a hill on the horizon, the neck was half of an S with claws at the end of it instead of a head. The tail, or what you would call a tail, was a triangle, and it had been split into 12 pieces, three triangles at the top and the others subsequently quadrilaterals. 
+It could also be interpreted as a hat with a turkey head sprouting out of it. The body was quite stout, like a 5-year-old’s interpretation of a hill on the horizon, the neck was half of an S with claws at the end of it instead of a head. The tail, or what you would call a tail, was a triangle, and it had been split into 12 pieces, three triangles at the top and the others subsequently quadrilaterals. 
 
 
 
@@ -534,7 +522,7 @@ It had two legs, one of which was shorter than the other, and the big one could 
 
 
 
-Setu then headed to catch up with a couple of his friends on another table and this is when Bala leaned in and whispered…
+Setu then headed to catch up with a couple of his friends on the other table and this is when Bala leaned in and whispered…
 
 
 
@@ -563,4 +551,3 @@ This stopped him from pestering me and I quickly pulled out my phone and began s
 
 
 I’ll end this part here, sorry about the delay. My recovery is forcing me to take a step back from typing each night. I’ll also include the pic of Setu’s rendition of the symbol in the next part. It’s on my phone’s backup somewhere, I promise I’ll find it soon. And I know you’ll judge me harshly for my actions and know that I don’t mind that… I do that too.
-
