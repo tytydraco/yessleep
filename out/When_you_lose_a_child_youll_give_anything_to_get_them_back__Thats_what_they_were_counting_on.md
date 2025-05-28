@@ -270,6 +270,6 @@ The gunshot flashed, a yellow light contrasting the moon.  Jeff crumpled limply
 
 In the center of the salt circle standing over Jeff stood a diminutive figure, in a dress, with curly hair.  Her nose was Claire’s little nose.  Her lips were the small pouty lips of my daughter, which used to kiss me on the cheeks.  At her sides hung the tiny soft hands I remembered so well, with their little nails.
 
-Her eyes looked at me, unfamiliar, with a white luminescence.
+Her eyes looked at me, unfamiliar, with a white luminescence. [… More](https://www.reddit.com/r/patrickmullensauthor/s/ULUvm2hMjt)
 
   
