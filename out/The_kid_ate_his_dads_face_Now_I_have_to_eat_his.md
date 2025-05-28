@@ -1,222 +1,246 @@
 [PART 1](https://www.reddit.com/r/nosleep/comments/1kglhdg/the_kid_ate_his_dads_face_then_he_told_me_why/)
 
-Jonah glares at me like he wants to strangle me.
+The clock reads 11:13 PM.
 
-My pen taps against the clipboard. Impatient. Firm. “Talk, kid.”
+My pen taps against the clipboard, impatient. Meanwhile, Jonah looks like he wants to strangle me.
 
-“Why should I?” 
+"Talk," I tell him.
 
-“Because if you don’t tell me what you know about Zipperjaw, we’re both dead.”
+“Why should I?” he spits.
 
-He folds his arms. Keeps glaring. “Whose fault is that? You manipulated me. Maybe this is your karma, prick.”
+“Because if you don’t, we’re both dead.”
+
+He folds his arms. Keeps glaring. “Maybe this is your karma, prick.”
 
 I nearly laugh. If karma exists, it’s not letting me off this easy.  
 
-“You’re upset. I get it. I’d be pissed too. Maybe pissed enough to let a monster kill me just to get even with the prick that used me. So I’m not going to blame you if you don’t talk. But I also know you and I are different in important ways.”
+“Look, kid. I get it. You’re upset that I used you.  I’d be pissed too, maybe pissed enough to let that monster kill me, so I’m not going to blame you if you don’t talk. But you and I aren't the same.”
 
-“Yeah,” he spits. “I’ve actually got a heart.”
+“Yeah,” he says. “I’ve actually got a heart.”
 
-“You sure do. And I wonder how that heart will feel knowing you didn’t just succeed in killing me, but all the people Zipperjaw kills after us, too.” 
+“You sure do. And I wonder how that heart will feel knowing you didn’t just succeed in killing me, but all the people Zipperjaw kills after me, too.” 
 
-His expression fractures, the anger crumbling to horror. “You... You can’t put their deaths on me. That's not fair.”
+His expression fractures, the anger crumbling to horror. It's the sweetest thing I've seen all night.
 
-A smirk finds my lips. “Why not? I’m the only shot this town has at stopping this monster, so you can sit tight, keep quiet if you want. I’m a dead man regardless. But all the blood Zipperjaw spills next will be on your hands.”
+“You... You can’t put their deaths on me. That's not *fair*.”
 
-His lips start to move, searching for some argument to defend himself, to justify why killing me is worth it, but then his shoulders slump. He heaves a sigh.
+A smirk finds my lips. “Sure it is. I’m the only shot this town has at stopping Zipperjaw. Take me outta the equation, and that thing's free to carve a bloody path through everyone you know. "
 
-The beautiful thing about people like Jonah is that they're so predictable—tug on their heartstrings, play with their shame. It hardly takes anything at all to make them dance like puppets on strings. 
+His lips start to move, searching for some argument to defend himself, to justify why killing me is worth it, but then his shoulders slump in defeat. He heaves a sigh.
 
-"Fine," he grumbles, avoiding my eyes. "What do you need to know?”
+That's the beautiful thing about people like Jonah—they're so predictable. Tug on their heartstrings. Play with their shame. It hardly takes anything at all to make them dance like puppets on strings. 
 
-My pen clicks. “Let’s start with the name. Who handed you that curse?"
+He grumbles something I don't catch. Folds his arms like the picture of teenage disdain. "Fine," he grunts, avoiding my eyes. "Tell me what you want to know."
 
-“This kid at school, Vishal. His cousins died in one of the cannibal-suicides, and the day after he went on livestream.”
+Beautiful.
 
-My jaw tenses. Livestream?
+“Let’s start with the name. Who handed you that curse?"
+
+“This kid at school."
+
+"That's not a name."
+
+His jaw clenches, and the next words are hissed through his teeth. "... Vishal."
+
+"Better." I scribble it down. "What was the context? How'd it happen?"
+
+"It was a livestream."
+
+My heart pounds.
 
 If this kid sang Zipperjaw’s name all over the internet, then—
 
-“Don’t worry,” Jonah says, recognizing my building panic. “No one watched the stream. It was just 12 hours of Vishal walking in circles, crying silently in his grandmother’s living room. I only dropped in to share my condolences, but then he started mumbling something I couldn't make out."
+Jonah waves a hand, recognizing the panic in my features. "Relax. The stream was a ghost town. Nobody else was watching. It was just 12 hours of Vishal walking in circles, crying silently in his grandmother’s living room."
 
-Jonah reaches for his glass of water by his bed. Sucks it through a straw. 
+"Why was he crying?"
 
-“He was speaking too fast. Too quiet. It sounded like he’d lost his mind, but something told me to record the clip. I don't know. Call it morbid curiosity. The day after, Vishal didn't turn up at school. It didn't take long before the whole town knew why: he'd been found dead with his grandmother's face in his teeth."
+"Why do you think?" Jonah asks. "His mom and dad were part of the string of cannibal suicides. He found his mother just before she bled out. I... I had dropped in to share my condolences, maybe tell him he could talk to me if he needed to...but then he started mumbling something I couldn't make out."
 
-A shiver runs through him.
+I frown.
 
-"That's when my morbid curiosity hit a fever pitch. I ran Vishal's mumbling through editing software. Slowed it down. Boosted the audio. I'd hoped to find some clue about the cannibal suicides, but what I found was..."
+“He was speaking too fast," Jonah explains, reaching for his glass of water. "Too quiet. It sounded like he’d lost his mind. The day after, Vishal didn't turn up at school. It didn't take long before the whole town knew why."
 
-"...*Zipperjaw*," I whisper.
+His body quakes enough to hit the Richter Scale. That means one thing. "Let me guess," I say. "Vishal killed Granny Dearest?"
 
-He nods. "A few hours later, I heard a knock on my front door."
+The kid gives a slow nod.
 
-"A few hours, meaning midnight?"
+"That's when my morbid curiosity hit a fever pitch," he says. "I ran Vishal's mumbling through some editing software. Slowed it down. Boosted the audio. I'd hoped to find some clue about the cannibal suicides, but instead I found..."
 
-Another nod.
+His eyes screw shut, voice puttering out into a stammering nothing. It's the sort of reaction that makes it easy to fill in the blanks.
 
-I check a handful of boxes on my clipboard. A manic smirk tugs at the edge of my lips. “The knock—describe it.”
+Zipperjaw.
 
-Jonah hammers his fist against his bedside table. 
+I check a handful of boxes on my clipboard, a manic smirk tugging at the edge of my lips. It's not that I find trauma amusing. Quite the opposite. But I do think there's a dark beauty when that same trauma can be leveraged for the greater good.
+
+He swallows hard, knuckles cracking at his sides. Finds his voice again. "A few hours later, about midnight, I heard a knock on my front door."
+
+“The knock," I say, not looking up from the report, "describe it.”
 
 **BANGBANGBANG**
 
-“It sounded like that, loud as hell. Woke up my dad. He shouted at me from his bedroom, said if that was Ryan being a jackass again, then he’d call the cops and treat the kid to a night in jail. I told him I’d answer it, tell my buddy to beat it if he was out there. Meanwhile, the knocking got more frantic. Shook the entire house.”
+My heart jumps as Jonah hammers his fist against his bedside table. 
 
-**BANGBANGBANG**
+“It sounded like that," he says, staring at me. "Louder than all Hell. My dad told me to answer it, probably figured it was one of my buddies being a jackass. I practically ran down the stairs thinking I'd need to do damage control, and every second the knocking kept up. Got louder. More violent."
 
-“I booked it downstairs before my dad could make good on his promise, and that’s when I saw the silhouette through the fogged glass. It was standing on the doorstep with its back to me. I knew right away that wasn’t Ryan--and that something was *seriously* wrong.”
+"How violent?" I ask.
 
-I keep writing, not looking up from the clipboard. "Why?"
+Jonah holds my gaze. "It shook the whole house. Both floors. The windows were rattling like they might shatter in their frames, man."
 
-“For starters, the silhouette was tall. Way too tall.”
+A low whistle escapes my lips.
 
-“Ballpark it.”
+"I booked it downstairs, heard my dad fighting to get his pants on in his bedroom, cursing up a storm. That's when I saw it. Through the fogged glass of the front door. A silhouette."
 
-His face screws up in thought. “Seven feet, maybe. Could’ve been taller.” 
+Jonah pauses. Gnaws his lips. Eyes narrowing like he's trying to dissect a memory he'd rather bury. "It was standing on the doorstep," he says. "It had its back to me, and it was tall. Like, *way* too tall."
 
-My stomach twists. I feel what might be goosebumps running down my arms, and I wonder how long it’s been since the last time I felt this kind of dread. “Did you call for your father?”
+“Ballpark it for me.”
 
-He shakes his head. “No, I was too shellshocked I think. That and…” He hesitates, shrinking into his bed. “There was a voice out there. A little girl’s. She said she was hurt and afraid, and that she needed help because a man was hurting her.”
+"Seven feet," he says, "or close to it."
 
-I lower my pen slowly, meeting his eyes. “Tell me you didn’t open the door.”
+Goosebumps run down my arms. It's beginning to occur to me just how little I know about this monster, and how little time I have before it comes knocking on our door.
 
-“Of course I didn’t!” His expression falls. “Or at least, I didn’t at first…”
+“There was someone else out there, too," he says. "A little girl. Or at least I thought there was."
 
-You’ve gotta be kidding me.  
+Now it's my turn to squirm. There's nothing in Zipperjaw's legend about a little girl, at least not as far as I've been able to put together.
 
-“I’d only meant to check on the little girl,” he says defensively. “To be honest, I didn’t even think the silhouette was a person—I mean, who in this town is over seven feet tall? Nobody. I thought maybe it was just a trick of the light or…”
+"A little girl," I mutter, leaning forward. "Did you see her?"
 
-He trails off, unable to buy his excuses, but the truth is, I can’t blame the kid. Society is conditioned to believe there’s no such thing as monsters. If a giant shadow shows up on your doorstep in the dead of night, your first thought isn’t to grab the holy water; it’s to double-check if you took your meds.
+He hesitates. Shakes his head. "No. But I heard her. She sounded hurt, man. Afraid. Kept saying her father was hurting her, begged me to open the door."
 
-Add a crying child into the mix, and you’re liable to start behaving erratically.
+Christ. You don't need to be a detective to guess what the kid did next.
 
-Impulsively. 
+"So you opened the door, I'm guessing. Invited Zipperjaw inside?"
+
+He shrinks in his bedsheets, shame written across his face.He grips his hair, tugs at it like he's trying to punish himself for his sins. "I thought I was helping a hurt kid. If I'd known what was waiting out there... what it would do to me and my father..."
+
+He trails off, swiping a tear from his eye.
+
+As much as I want to scold the kid, it's tough to blame him. Society doesn't exactly condition us for close encounters with bloodthirsty myths. If a giant shadow shows up on your doorstep in the dead of night, your first thought isn’t to grab the holy water; it’s to double-check if you took your meds. Add a crying child into the mix, and you’re liable to start behaving erratically. Impulsively. 
+
+My mind wanders.
 
 *Is that how Zipperjaw tricked you, Adelaide?*
 
-*Did you think you were saving a frightened child, only to come face to face with a living nightmare?*
+*Did you think you were saving a frightened child, only to come face to face with a living nightmare? Did you suffer the same that*—
 
-My pen snaps in my grip, ink exploding across the page like a bad Rorschach. 
+Ink explodes across the page like a bad Rorschach. I blink. It takes me a second to realize I snapped my pen, that I'm shaking with rage.
 
-Jonah gulps. “You... all good, man?”
+Jonah gulps. Looks at me like I might bite. “You good, man?”
 
-“You ever feel your purpose crawling back into your veins?” I ask him quietly, grabbing a fresh pen and page from the briefcase. “I feel better than I've felt in years—but let's refocus. You opened the door. What did you see?"
+My whole body is boiling, my veins flooded with the kind of red-hot purpose I haven't felt in decades. Grinning, I snatch a fresh pen from the briefcase. Crumple the ruined report in my fist. "Refocus. You opened the door. I'm guessing you saw Zipperjaw?"
 
 Jonah's heart monitor begins to pick up the pace.
 
-His mouth hangs open, the words struggling to form on his lips. He looks haunted. Vacant. He looks like a boy remembering the worst night of his life. 
+He nods.
 
-“Jonah,” I press. “We don’t have time for this. What. Did. You. See?”
+“Describe it," I say quickly. "Did any features stand out?"
 
-His eyes scrunch shut. His body quakes with the sort of fear that carves itself into your bones. 
+An entity's clothing can predict its psychology, while its anatomy can suggest weaknesses.
 
-“I saw…”
+“It wore a dress,” he chokes out.
 
-The heart monitor starts to scream.
+"A dress?"
 
-“I saw... Zipperjaw.”
+"Yeah. Patchwork. Just scraps of clothing stitched together. Denim. Plaid. There was a piece of a wedding veil in there.  And…” His voice breaks, hand shooting to his mouth. “And pajamas. The sort that only a kid would wear.”
 
-Now we’re getting somewhere.
+I grind my jaw. All this time, I thought Zipperjaw took lives, but it appears my boogeyman's ritual went deeper. The monster took mementos, too. Souvenirs.
 
-My new pen touches my fresh report, and I start to write like my life depends on it—like both of our lives depend on it. “What did it look like? Clothing. Anatomy. Give me everything you got.”
+Son of a bitch.
 
-“It wore a dress,” he chokes out. “Just scraps of clothing patched together, like it’d cut pieces from all its victims' clothes and then sewn them back together. Denim. Plaid. There was a piece of a wedding veil. A rainbow scarf. And…” His voice breaks, hand shooting to his mouth to catch a sob. “And pajamas. The sort that only a kid would wear.”
+What else have I missed?
 
-My hand balls into a fist.
-
-I’d been under the impression that Zipperjaw merely took lives, but it seems its ritual went deeper. The monster took mementos, too. Souvenirs.
-
-A cold sweat lines my brow.
-
-What else have I missed, I wonder?
-
-Jonah keeps talking, hands fretting on his lap. “I remember it had this jungle of hair that fell to its waist. Red. Dark. Not sure if that was cause it was stained with blood or…” His face pales.  “And... And its proportions were all fucked up too. Remember when I said it was tall?”
+Jonah keeps talking. “It had this jungle of hair that fell to its waist. Wet and matted, almost like it was stained with blood.” His face turns a nauseous shade of green.  “And... And its proportions were all wrong. Remember when I said it was tall?”
 
 “Sure.”
 
 “Well, it was—only parts of it weren’t.”
 
-I frown.
+I frown. "Explain."
 
-“Its torso was long,” Jonah spreads his arms outward for effect. “Like maybe six feet *long*. But its limbs were too short. Its arms and legs didn’t look like they belonged to it. They were too small. Too… young. It looked like they'd be torn off children and stapled onto that monster.”
+"I mean its torso was long." Jonah spreads his arms outward for effect. “Like maybe six feet *long*. But its limbs? They were too short, man. Its arms and legs didn’t look like they even belonged to it. They looked like they'd be torn off children and stapled onto that... *thing*.”
 
-There it is again, that anger boiling in my gut. My grip tightens around my pen all over again. It takes everything I have not to snap this one in half, too. 
+There it is again, that anger boiling in my gut. My grip tightens around my pen. It takes everything I have not to snap this one, too. 
 
-*Adelaide.*
+*Is that thing wearing my sister's limbs?*
 
-*Was that thing wearing your limbs? Did it have your arms? Your legs?* 
+*Did it have Adelaide's arms? Her legs?*
 
-*Was it—*
+*Did it—*
 
 The lights flicker. 
 
 Die. 
 
-Darkness fills the room like floodwater.
+Darkness fills the room like floodwater. Jonah shoots up in his bed. 
 
-Jonah shoots up in his bed, breath coming a mile a minute. “Was that you?” he gasps.
+“Was that you?” he gasps.
 
-I rise from my seat. Shake my head.
+I rise from my seat slowly. Shake my head. My ears strain against the empty silence. There should be ventilation here. The beep of Jonah’s heart monitor. There should be that sickening ambience only a broken healthcare system can produce—but all there is is nothing. 
 
-My ears strain against the empty silence. There should be ventilation. The beep of Jonah’s heart monitor. There should be that sickening ambience only a broken healthcare system can produce—but there’s nothing. 
+“It’s here, isn’t it?” Jonah whimpers, eyes darting.
 
-“It’s here, isn’t it?” Jonah whimpers, looking around frantically.
+No, I think. Can't be. According to my watch, it’s 11:31 PM and Zipperjaw’s legend is clear: the monster arrives at midnight. Always. 
 
-No. It can't be.
+So why do I hear movement outside?
 
-According to my pocket watch, it’s just 11:31 PM. Zipperjaw’s legend is clear: the monster always arrives at midnight. 
+Footsteps. Bare feet slapping against linoleum. 
 
-Yet there's something in the outside corridor. Footsteps. Bare feet slapping against linoleum. 
+*Thump. Thump.* 
 
-And what sounds like... a whimpering girl.
+Jonah reaches out, grips my shoulder. “That's it. That's what I heard. Do you hear her?"
 
-Jonah reaches out, grabs my shoulder. “That's it. That's what I heard. Did you figure it out yet—how to kill it? Tell me you know how to kill it, man.”
+My throat tightens. The girl. It's faint, a whimpering so soft it might as well be a memory, but it's there. She's begging for our help, crying about her father. 
 
-I tense, slipping away from him. “Haven't got a clue. Sorry.”
+"Did you figure it out yet?" Jonah hisses. "Tell me you know how to kill it, man!"
 
-Jonah stares after me, slack-jawed as I drift toward the door, unholstering my Desert Eagle and bringing it up on aim.
+I tense, slipping away from him. Jonah stares after me, slack-jawed as I drift toward the door, unholstering my Desert Eagle and bringing it up on aim.
 
-The footsteps are getting closer.
+The footsteps, they're getting closer.
 
 Heavier. 
 
-**ZIP IT!**
+*Thump. Thump.*
 
-The voice is titanic, deafening. It stops me cold in my tracks. Gone is the whimpering girl. This is the voice of a man, scolding and guttural and dripping with violence. 
+A shadow appears beneath the door, soaked in moonlight. There's what sounds like a mechanical growl. A zipper coming unfastened. Then*—*
+
+**A roar.** 
+
+It stops me in my tracks. It's titanic. Deafening. Gone is the whimpering girl. This is the voice of a beast, scolding and guttural. 
 
 ***IF I’VE TOLD YOU ONCE I’VE TOLD YOU A THOUSAND TIMES—ZIP IT YOU FUCKING BRAT!***
 
-My chest tightens. The man. He almost sounds like—
+My eyes widen. The man. He almost sounds like...
 
-The door shudders. Jonah yelps.
+The door shudders.  Something's pounding on it from the other side. 
 
 **OPEN UP OR YOU’LL BE SORRY!**
 
-I stagger back, heart ricocheting off my ribs.
+Jonah yelps.
 
-*KNOCK.KNOCK.KNOCK.*
+I stagger back, heart ricocheting off my ribcage.
 
-The whole hospital shakes.
+***KNOCK.KNOCK.KNOCK.***
 
-My thumb pulls back on the safety. Finger on the trigger. This shouldn’t be happening. We had more time—we *needed* more time. 
+The whole hospital shakes. The whole world. This shouldn’t be happening. We had more time—we *needed* more time. 
 
 “Just shoot it!” Jonah pleads. “Now! Before it comes in!”
 
-I grit my teeth. 
+No. 
 
-Unfortunately, it doesn’t work like that.
+It doesn’t work like that. 
 
-I’ve hunted enough boogeymen to know that bullets might slow them down, but to kill them, you have to beat them at their own game. Use their rules against them. 
+I've hunted enough boogeymen to know how they work. Bullets might slow them down, but to kill them, you have to beat them at their own game. Use their rules against them. Turn their own twisted logic into a weapon. 
 
-The gun was never meant for Zipperjaw. 
+Unfortunately, I don't know enough about Zipperjaw to do that. 
+
+My thumb pulls back on the safety. Finger on the trigger. A thread of regret plays inside of me. The truth is, this gun was never meant for Zipperjaw. 
 
 It was meant for *us*. 
 
 **BANG!**
 
-The door splinters, a fist bursting through, followed by an arm. It’s decaying. Mottled. The hand starts feeling around, trying to find the door handle, trying to let itself in, but the arm isn’t long enough to reach. 
+The door splinters, a fist bursting through. It’s decaying. Mottled. The hand starts feeling around, trying to find the door handle, trying to let itself in, but the arm isn’t long enough to reach. 
 
-Jonah was right. This thing… It’s wearing the limbs of a child.
+Jonah was right. This thing… It’s wearing the limbs of a *child*.
 
 The monster wrenches its arm back through the hole. There’s a shift of shadow. A shuffle of fabric and then a creak like old bones bending down. It’s hard to see much with the lights dead—it’s just the faint shafts of moonlight I’m working with, but what appears next chills my blood.
 
