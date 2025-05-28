@@ -5,25 +5,22 @@ Or maybe it was just because I wasn’t used to it yet. I just moved in, after a
 I had made a garbage run earlier in the day, dragging a large contractor bag filled with bubble wrap and crushed newspaper balls out of my apartment and into the elevator. I hit the button that sent me to the furthest depths of the building’s property, feeling my stomach lift as the elevator’s numbers ticked down.
 When I reached the basement that time, there was noise, people, and energy. The garage felt alive and friendly, the lights bright, and the walk to the garbage room was short and direct. It was in the corner, far away from any entrance I could make out, and the only reason I could tell it was the garbage room was a little laminated sign that said “Residents’ Garbage Only.”
 
-That, and the soft waft of garbage escaping the sides of the large metal door that you lifted up overhead.
+That, and the sour sweet smell of garbage escaping the sides of the large metal door that you lifted up overhead.
 
-I leaned down and took hold of a rope, pulling, but my first yank did nothing but rattle the door. After the echo in the garage faded away, I realized there was a latch on the side, so I slid it open. The next yank had the door smoothly rolling up above me, opening to the garbage room beyond.
+I leaned down and took ahold of the rope connected to the door and pulled up, but my first yank did nothing but rattle the door. After the echo in the garage faded away, I realized there was a latch to lock the door from the side, so I slid it open. The next yank had the door smoothly rolling up above me, opening to the garbage room beyond.
 
-The smell rolled out almost wetly, like a rogue wave taking you by surprise at the beach. It was dark—extremely dark. I took a step into the room and looked at the walls for a switch. I didn’t see any, and I didn’t want to put my hand on the garbage room wall to feel for a switch. If the wall looked anything like how it smelled, then I didn’t want to touch a thing.
+The smell rolled out almost wetly, like a rogue wave taking you by surprise at the beach. It was dark—extremely dark. I took a step into the room and looked at the walls for a switch. I didn’t see any, and I didn’t want to put my hand on the garbage room wall to feel for a switch. If the wall looked anything like how it smelled, then I didn’t want to end up touching grime and slime.
 
-A sound of rats or something shuffling in the darkness, softly—like fingers trailing over the side of a metal garbage bin—convinced me to step back out of the room and into the garage. I was no seasoned city girl yet, immune to the idea of rats always lurking in the shadows.
+The sound of rats or something shuffling in the darkness, softly—like fingers trailing over the side of a metal garbage bin—convinced me to step back out of the room and into the garage. I was no seasoned city girl yet, immune to the idea of rats always lurking in the shadows.
 As luck would have it, the light switch was on the outside of the room, and stepping back out caused me to notice it. Relieved, I flicked it on, and a relatively clean garbage room lit up in front of me. No strange puddles of liquid, no mysterious goo on the walls—just a cement room with two recycling bins and a garbage bin tucked off to the side.
-
 Plus a door near the back of the room. One that looked like it hadn’t been opened in ten years or more. Crud and grime caked the crevices of the doorway and around the handle. On the door itself, written with faded Sharpie, was “Do Not Enter — PIT.”
 
 Which wasn’t ominous at all.
 
 The smell still lingered, though, so there must have been a pool of something foul at the bottom of the garbage bin.
-
-I tossed the bag in, closed the door, and latched it before turning the light off. I didn’t want the rats getting brave before a wall came down between them and me.
+I tossed the bag in, closed the door, and latched it all before turning the light off. I didn’t want the rats in the shadows getting brave before a wall came down between them and me.
 
 I spent the rest of the day unpacking more and more, and the hour got later and later. I was on a roll, determined to unpack the majority before I turned in for the night.
-
 It was close to 2 a.m., and I had one last kitchen box I wanted to tackle. I was careless when I put the box on my counter; it tipped and smoothly dropped to the kitchen floor. I heard the telltale crack of something not surviving the impact.
 
 It was a bottle of fish sauce. I could tell even before I cut open the box, because the smell was pungent, filling up my kitchen.
@@ -31,7 +28,7 @@ There was no way I was going to leave the broken bottle to stink up my apartment
 It was late, but the garage was secure. It would be fine to do a late-night garbage run.
 
 This is when I notice how dark the garage is.
-The heavy shadows, the silence, and the garbage room off in the distance seem much more tucked away than they do at noon.
+The heavy shadows, the silence, and the garbage room off in the distance seemingly much more tucked away than they do at noon.
 
 With the bag of leaking fish sauce in hand, I walk quietly to the metal door. I can hear shuffling behind the door, the sounds of rats out during the hours that belong to them.
 I turn the light switch on first, hoping to scare them into hiding while I deposit my garbage.
@@ -59,21 +56,23 @@ I scan the deserted parking garage. My internal alarm bells ring loudly. I do no
 
 “Can you open the latch and let me out?” the voice asks again.
 
-“Yes, but…” I hesitate. “It’s just that I don’t know you, and it’s 2 a.m. I could open the latch if you promise not to leave right away and let me get back to my apartment.”
+“Yes, but…” I hesitate. “It’s just that I don’t know you, and it’s 2 a.m. I could open the latch if you promise not to leave right away and let me get back to my apartment?”
 The voice falls quiet for a moment, as if considering my offer. I try to sell this idea a bit more.
 “It would only be a few minutes’ wait, just until I can get back into the elevator and up to my apartment.”
 
 “I don’t know. I’ve been waiting for hours,” the voice replies, frustration creeping in.
 
-I think about how, if I were stuck in that garbage-filled room in the dark for hours, waiting a few more minutes might feel unbearable. I could leave. I could drop the bag of fish sauce by the door and retreat to my apartment. The man doesn’t know who I am, and he’ll be fine until morning or until someone else comes by.
+I think about how, if I were stuck in that garbage-filled room, in the dark and for hours, waiting a few more minutes might feel unbearable. I could leave. I could drop the bag of fish sauce by the door and retreat to my apartment. The man doesn’t know who I am, and he’ll be fine until morning or until someone else comes by.
 
 But I can’t shake the thought: what if it were me? I would want someone to rescue me, and I would hope they’d open the latch for me.
 Against my better judgment, I slide open the latch. It drags, metal against metal, loud and painful in the echoes of the garage.
 
-No one opens the door, and no voice speaks up now that it’s unlocked.
+No one opens the door, and no voice speaks up now that it’s unlocked. 
+
+I stand in front of the door, waiting for…something. Movement, maybe, or some reassurance that I’m not about to be mugged. But the silence continues. Maybe he’s in distress? 
 
 With trepidation, I finish the motion and gently tug up the roller door. It lifts easily, like it has been recently oiled, and the dark gaping hole of the garbage room peers back at me.
-But it’s wrong, because I’ve already turned on the light switche. I reach again for the switch and flick it on and off.
+But it’s wrong, because I’ve already turned on the light switch. I reach again for the switch and flick it on and off. Nothing. Again in a faster more panicky movement, on and off. 
 The room stays black, so thick with shadows I can’t even see the door to the pit.
 
 “Hello?” I call out. Where is the man?

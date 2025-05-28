@@ -260,7 +260,7 @@ The three of us left the front counter and joined Tony. He was holding a bunch o
 
 "No, check this out!" Tony insisted, looking seriously freaked out.  He held out the candy bars for our inspection.
 
-It took me a second to see what was wrong. The candy bars were a Mounds, Three Musketeers, Milky Way, Twix and Kit Kat. I recognized their distinctive wrappers. But the words on them were total gibberish. Kuziblaud, Kefkomushbah, Flegnoripley, Hedipluzikax., Mouhkebleyf. 
+It took me a second to see what was wrong. The candy bars were a Mounds, Three Musketeers, Milky Way, Twix and Kit Kat. I recognized their distinctive wrappers. But the words on them were total gibberish. Kuziblaud, Kefkomushbah, Flegnoripley, Hedipluzikax., Mouhkebleyf.
 
 I picked up a Baby Ruth and examined the packaging closely. It wasn't just the name that was wrong; every bit of printed text was the same garbled, seemingly random string of letters.
 
@@ -270,17 +270,16 @@ Brian went to the snack aisle and scanned the potato chips. "It's not just the c
 
 "I don't know," I said, feeling my sense of unease increase. "Doesn't look like any language I ever heard of."
 
-"Oh shit!" Brian said suddenly, and the panic in his voice cause the three of us to snap our heads in his direction. He was facing the windows at the front of the store, looking out into the parking lot with horror. 
+"Oh shit!" Brian said suddenly, and the panic in his voice cause the three of us to snap our heads in his direction. He was facing the windows at the front of the store, looking out into the parking lot with horror.
 
 "What?" Liam demanded.
 
-"We got company," Brian said in a low, toneless voice. 
+"We got company," Brian said in a low, toneless voice.
 
 We joined him in looking out the windows. I felt my blood run cold.
 
-A line of about thirty people, men and women, were slowly crossing the parking lot in the direction of the gas station. 
+A line of about thirty people, men and women, were slowly crossing the parking lot in the direction of the gas station.
 
 None of them had faces.
 
-
-
+[https://www.reddit.com/r/nosleep/comments/1kx5tup/me\_and\_my\_friends\_took\_the\_road\_less\_traveledand/](https://www.reddit.com/r/nosleep/comments/1kx5tup/me_and_my_friends_took_the_road_less_traveledand/)
