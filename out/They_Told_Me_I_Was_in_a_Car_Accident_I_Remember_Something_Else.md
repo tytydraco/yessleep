@@ -44,7 +44,7 @@ It began to feast.
 
 On the limbs and flesh before it, and on the kneeling children, stabbing and cracking with its beak, pulling them apart—***eating them alive…***
 
-When it had finished, and the altar was clean save for the stains of blood, the creature stood, and bellowed, and from its bowels were heard the subterranean screams of its victims. Then it gagged and slumped forward, and unto the altar regurgitated a single mass of blackness, bones and hair.
+When it had finished, and the altar was clean save for the stains of blood, the creature stood, and bellowed, and from its bowels were heard the subterranean screams of its victims. Then it gagged and slumped forward, and onto the altar regurgitated a single mass of blackness, bones and hair.
 
 This, three masked men took.
 
