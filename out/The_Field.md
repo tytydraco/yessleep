@@ -18,7 +18,7 @@ With each pump, the vines wrapped tighter. Take my heart. Take my life. Take my-
 
 With a sharp breath, I woke up in a hospital. A man in a white coat was explaining something to a group of interns. What was I doing here? Where were the stars? Where was He? The voices stopped for a moment to observe my wired body. I froze to avoid detection. 
 
-Silence rolled over the room as it cleared out. This was my moment. I ripped the tube out of my throat. Needles attached to infusion pumps squirted liquid wildly once removed frome my veins. Machines screamed as I took patches of hair out with the ECG wires attached to my skin. As soon as I was freed, several people swarmed the room to see what was happening. 
+Silence rolled over the room as it cleared out. This was my moment. I ripped the tube out of my throat. Needles attached to infusion pumps squirted liquid wildly once removed from my veins. Machines screamed as I took patches of hair out with the ECG wires attached to my skin. As soon as I was freed, several people swarmed the room to see what was happening. 
 
 Glass shattered and rained onto the green grass as I struck the ground outside the hospital. Screaming doctors and nurses served as a good soundtrack to my escape. On my feet, I ran as fast as I could into the nearby woods. No one followed, yet I sprinted until I was back to the field beneath the stars.
 
