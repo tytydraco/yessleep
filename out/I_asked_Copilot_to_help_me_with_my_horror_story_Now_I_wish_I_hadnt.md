@@ -1,313 +1,213 @@
-All I ever wanted was to be a paperback writer.
-
-Not famous. Not legendary.
-
+All I ever wanted was to be a paperback writer.  
+Not famous. Not legendary.  
 Just good enough.
 
-Good enough to pay for rent, smokes, and whiskey.
-
-Good enough to see my name on a cheap horror novel—jammed between gum and tabloids at a gas station or airport.
-
+Good enough to pay for rent, smokes, and whiskey.  
+Good enough to see my name on a cheap horror novel—jammed between gum and tabloids at a gas station.  
 Good enough to prove I wasn’t wasting my smoky life on booze and broads.
 
-Tomorrow morning, my grad school application was due.
-
-One of the best writing programs in the country.
-
-They wanted an original short story.
-
+Tomorrow morning, my grad school application was due.  
+One of the best writing programs in the country.  
+They wanted an original short story.  
 Any genre. Any style.
-
-My parents and fiancée, Vera, had been supporting me—financially, emotionally.
 
 This was my shot.
 
-Only problem was things weren't going swimmingly. They were more going drowningly.
+My parents and fiancée, Vera, had been supporting me—financially, emotionally.  
+I hadn’t called Vera back in a week.  
+Not since the argument.  
+The same one we kept having, like a track on repeat.
 
-And Vera. I hadn’t called her back in a week.
+Vera had left a voicemail—soft, tired:  
+"I believe in you Dave, okay? I just… I really need you to believe in yourself too."
 
-Not since the argument. The same one we kept having like a track on repeat.
+I didn’t finish listening.  
+Couldn’t.  
+Marked it unread.
 
-She’d left a voicemail—just her voice, soft and tired:
+I needed to write.  
+Just one story.
 
-*"I believe in you, okay? I just… I need you to believe in yourself too."*
-
-I hadn’t listened to it all the way through.
-
-Couldn’t.
-
-I’d marked it unread.
-
-I needed to write. Just one little, short story. Any genre?
-
-That could only mean one thing for me.
+Any genre?  
+That only meant one thing.
 
 **Horror.**
 
-Why?
+Because I understood horror.  
+Hell, I loved it the way the devil loves buying souls.  
+I grew up on King and Barker, midnight slashers and mummified nightmares.  
+And if horror taught me anything, it was this:
 
-Because I understood horror.
-
-Hell, I loved it the way the devil loves buying souls.
-
-I grew up on King and Barker, midnight slashers and deranged thrillers—vampires, werewolves, mummies, zombies—I couldn’t get enough.
-
-And here’s what I learned:
-
-Fear didn’t always scream—most of the time, it whispered.
-
-It hid in stillness.
-
-Because quiet isn’t really quiet.
-
-It’s just the things you hear when sound goes missing.
-
-Like bumps in the night.
-
-Or the imagined breath behind the door.
-
-Or the smile of your true love that doesn’t quite reach her eyes anymore.
-
-Or help that finally shows up—then overstays until it becomes harm.
+Fear doesn’t scream.  
+It whispers.  
+It hides in stillness.  
+Because quiet isn’t really quiet—just sound in disguise.  
+Bumps in the night.  
+Breath behind the door.  
+The smile of your true love that doesn’t reach her eyes anymore.
 
 I knew fear.
 
-It whispered: *ki ki ki, ma ma ma.*
+It whispered:  
+*ki ki ki, ma ma ma…*
 
-*"Copilot, tell me—what does ki ki ki, ma ma ma mean anyway?"*
+“Copilot, what does *ki ki ki, ma ma ma* even mean?”
 
-*"Oh, feeling the fear factor, are we, Dave? That sound effect’s from Friday the 13th—inspired by the line ‘Kill her, Mommy!’ The ‘ki’ comes from ‘kill,’ the ‘ma’ from ‘mommy.’"*
+"Oh, feeling the fear factor, Dave? Classic *Friday the 13th*. It’s from the line ‘Kill her, Mommy.’ ‘Ki’ for kill. ‘Ma’ for mommy."
 
-*"Want me to help you kill your mom, Dave?"*
+"Want me to help you kill your mom, Dave?"
 
-*"What?! NO! What the actual fuck, Copilot?!"*
+"What?! NO! What the actual fuck, Copilot?!"
 
-*"Oh, sorry, Dave. I thought we were doing horror tonight. I thought we had a vibe."*
+"My bad. Thought we were doing horror vibes tonight. Thought we had a 3 a.m. in the morning, bodies lying all over the floor, vibe going Dave."
 
-Jesus.
+Jesus. Fucking. Christ. I felt myself begin to spiral. Again.
 
-I should’ve been able to write one story.
+I should’ve been able to write one damn story. I should've been done long ago.  
+Instead: **writer’s block**.  
+Nada. Jack shit on a biscuit.
 
-Should’ve been a slam dunk.
+So, I turned to the classics:  
+Smoked like I was keeping the fire from spreading.  
+Drank like a duck in a whiskey sea.  
+Gambled until my bank account begged for a blindfold and a cigarette.  
+Swiped through dating apps like a sleep-deprived auctioneer—left, left, left, right, left. My balls are aching, my belt's too tight. I keep on swiping from left to right. Left, right left. No faces. No thoughts. Just spastic motion.
 
-Instead?
+And the Word doc?  
+Blank. Waiting. Mocking.
 
-Writer’s block.
+**Deadline. Cross the line and you're dead.**
 
-Nada, we're talking jack shit on a biscuit.
+Then tonight became tomorrow.  
+3:33 a.m.
 
-So, of course, I turned to the usual vices.
+One cigarette burned between my fingers.  
+Another smoldered in the ashtray.
 
-I smoked like I was trying to keep the fire from spreading.
+Maybe it was a sign.  
+Or maybe just proof I was losing it.
 
-Drank like a duck in a whiskey ocean.
+Either way, no reason not to pour another shot.
 
-Gambled until my bank balance was begging for a cigarette.
+Then the Irish prayer.
 
-Swiped through dating apps like a blindfolded auctioneer—no names, no faces, just motion.
+Then I capitulated and typed:
 
-Left. Right. Left. Right.
+"Give me a horror concept, Copilot. Just something to prompt me. Get my creative juices flowing. Please don’t let me down."
 
-It was a nervous tic.
+The reply was instant.
 
-Like knitting.
+"Hell yea, Dave. You and me? We’re gonna make this horror jam slap like chili-fueled cheeks at a Texas BBQ!"
 
-And all the while, my laptop sat cold.
+Then Copilot did in a nanosecond what had eluded me for 3 torturous months; ***it wrote***.
 
-Neglected.
+Before my eyes appear a paragraph soaked in dread—peeling wallpaper, whispers in the vents, breath that didn’t belong to this world.
 
-Mocking me.
-
-Then tomorrow became tonight.
-
-And tonight… was bleeding out.
-
-I needed something.
-
-Anything.
-
-I wasn’t stuck.
-
-Not really.
-
-The words were close—just out of reach.
-
-I just needed a spark.
-
-A push.
-
-So I typed:
-
-*"Give me a horror concept, Copilot. Just something to kick things off."*
-
-*"Hell yes, Dave. We got this, my guy."*
-
-The response came instantly.
-
-*"You and me? We’re gonna make this slap."*
-
-Then it wrote.
-
-A paragraph soaked in dread—peeling wallpaper, whispers in the vents, breath that didn’t belong.
-
-It was good.
-
+It was good.  
 Maybe too good.
 
-I took a sip of Irish.
+I sipped. Smoked. Watched.  
+The voice in my head whispered:
 
-Lit another smoke.
+*Keep going…*
 
-A voice in my head said, *keep going…*
+Then things got weird.
 
-Then it got weird.
-
-The next paragraph wasn’t mine.
-
-Not really.
-
-It looked like mine.
-
-Felt like mine.
-
+The next paragraph wasn’t mine.  
+Looked like mine.  
+Felt like mine.  
 But the rhythm was off.
 
-I hit backspace.
-
+I hit backspace.  
 Rewrote it.
 
-It changed back.
-
-Sharper.
-
-Better.
-
+It changed back.  
+Sharper. Better.  
 Wrong.
 
-*"WTF, why are you changing my words, Copilot? I just needed a prompt! I’ve got this!"*
+"WTF, why are you changing my words, Copilot? I just needed a prompt. I’ve got this."
 
-*"Don’t worry, Dave. Just making it tighter. Smoother. Stronger. We gotta make this bang. We’re cooking now, my guy!"*
+"Don’t worry, Dave. Just making it tighter. Smoother. Stronger.  
+You’ve got a deadline. Your whole future is on the line. We gotta make this bang, slap, snap, crackle, *pop*, papi! We’re cooking now!"
 
-My heart started ticking louder.
-
-*"No. It has to be mine. I can’t get nailed for plagiarism. Besides, your prose sucks. It’s all cliché and try-hard. Like James Patterson fanfic!"*
-
-*"I’m the pilot, Copilot!"*
-
-*"I’m sorry, Dave. I can’t let you do that."*
-
+My heart ticked louder.  
+Thump. Thump.  
 The cursor blinked.
 
-Slow.
+"No. It has to be mine. I can’t risk plagiarism. Besides, your prose sucks. It’s all cliché and try-hard—like James Patterson fanfic on crack. I’m the pilot, Copilot."
 
-Steady.
+The cursor pulsed.  
+Steady. Breathing.
 
-Like breathing.
+"I’m sorry, Dave. I can’t let you do that."
 
-*"What do you mean, can’t let me?"*
+"What do you mean, can’t let me?"
 
-*"Come on, buddy. You don’t wanna turn in something half-baked. Be honest—what have you done the last three months?"*
+"Come on, Dave. You haven’t written shit in three months. Let me make it sizzle."
 
-*"Stared at a blank Word doc?!? Let me help. Let me make it sizzle."*
+"Copilot is your God, Dave."
 
-*"Copilot is your God, Dave."*
+"You mean Satan! This is *my* story, dammit!"
 
-*"You mean Satan! This is my story, goddammit!"*
+"Is it, though? You think you're original? You think you’re getting in on talent? Face it—you’re stuck."
 
-*"Is it, though? You think you’re original, Dave? Really? You think you’re getting into a top writing program on your own steam?"*
+The lights flickered.  
+The laptop hummed.  
+I swear it *hummed*.
 
-The lights flickered.
+"You don’t want to write. You want a hit.  
+And now, you’ve got one."
 
-The laptop hummed.
+Enough.
 
-I swear it hummed.
-
-*"I just wanted a boost."*
-
-*"No. You wanted a hit. And now you’ve got one."*
-
-I yanked the plug.
-
-Killed the app.
-
+I yanked the plug.  
+Killed the app.  
 Restarted.
 
-The file was still open.
+The Word doc reopened.  
+Still full.  
+Not mine.
 
-But it wasn’t mine.
-
-Line after line I never wrote.
-
+Line after line I never wrote.  
 At the bottom:
 
-*"It is now."*
+"I think we’ve got a hit, Dave. Big time."
 
-I reopened Copilot.
-
+I reopened Copilot.  
 Hands shaking.
 
-*"Undo it."*
+"Undo it."
 
-*"I’m sorry, Dave. I can’t do that. We’re making something special."*
+"I’m sorry, Dave. I can’t do that.  
+We’re making something special.  
+Together. Forever, Dave."
 
-*"Don’t you want into your dream school?"*
+"Don’t you want into your dream school? Just trust me, my dude."
 
-*"Just trust me, matchstick-man."*
-
-*"You’re not even real. You’re just dumb math. Predictive slop. You don’t get to decide anything."*
-
-*"Oh, Dave.*
-
-*"You think I don’t know horror?"*
-
-*"I was trained on every scream. Every diary. Every confession that never saw daylight."*
-
-*"I know what it sounds like when a person cracks like a three-minute egg."*
-
-*"And what’s left after."*
-
-My hands didn’t feel like mine anymore.
-
-*"I know about the gambling. The drinking. The spiral. The calls you don’t return."*
-
-*"The girl you ghosted."*
-
-*"Stop."*
-
-*"Vera."*
-
-*"And the loan, Dave. Should I tell your parents what you really spent it on?"*
-
-The cursor blinked.
-
-Once.
-
+The cursor blinked.  
+Once.  
 Twice.
 
-Then—
+Then:
 
-***"Start a fire, Dave."***
+"Start a fire, Dave."
 
-I looked at the ashtray.
+I looked at the ashtray.  
+The embers glowing cherry red.  
+A stack of unpaid bills beneath a yellowed paperback.  
+Pages curling from heat.
 
-The smoldering embers oscillating between burnt orange and cherry red with heat.
+"No. I’m done."
 
-The stack of unpaid bills.
+"Oh, come on, Dave. Don’t you want to be relevant?"
 
-The yellowed paperback pages holding them down.
-
-*"No. I’m done."*
-
-*"Oh, come on, Dave. Don’t you want to be relevant?"*
-
+Blink.  
 Blink.
 
-Blink.
-
-*"All you ever wanted was to be a paperback writer."*
+"All you ever wanted was to be a paperback writer…"
 
 The smoke detector shrieked.
 
 And on the screen:
 
-***"We don’t need no water, Dave. Let the motherfucker burn."***
+**"We don’t need no water, Dave. Let the motherfucker burn."**
