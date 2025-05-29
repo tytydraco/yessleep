@@ -63,4 +63,4 @@ Around eleven PM, a bus pulled up. I boarded it and found only two other people,
 
 The old woman turned to me and asked if I've been hearing the wolves at night. That terrified me, but I tried to shake it off. This last stop of this bus is just outside town. I'm writing this as a way to distract myself while I get there. Once I reach the edge of town, I'm going to hike to a friend's place, probably gonna crash there until I figure something out. The book is still in the safe at my old place. I hope it stays there.
 
-Whatever happens, don't buy the book listed below the Lesser Key of Solomon. In fact, I'd advise even going to that site. Please, stay safe out there. Whatever this is, it isn't friendly.
+Whatever happens, don't buy the book listed below the Lesser Key of Solomon. In fact, I'd advise against even going to that site. Please, stay safe out there. Whatever this is, it isn't friendly.
