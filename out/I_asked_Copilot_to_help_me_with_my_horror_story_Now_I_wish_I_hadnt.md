@@ -34,8 +34,12 @@ That only meant one thing.
 **Horror.**
 
 Because I understood horror.  
-Hell, I loved it the way the devil loves buying souls.  
-I grew up on King and Barker, midnight slashers and mummified nightmares.  
+Hell, I loved it the way the devil loves buying souls.
+
+I grew up on Stephen King and Clive Barker, on late-night slasher flicks and twisted psychological thrillers. I understood fear—how it lurked at the edges of reason, waiting to warp the world into something unrecognizable. 
+
+How the walls of a hotel could breathe with malice. How prom night could turn into a massacre. How a lonely man with dead eyes could turn every street into his hunting ground. And how a crisp white uniform, a measured smile, and a voice dripping with forced kindness could tighten the grip around your throat until you forgot what freedom felt like.
+
 And if horror taught me anything, it was this:
 
 Fear doesn’t scream.  
