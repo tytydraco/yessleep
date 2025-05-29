@@ -26,7 +26,7 @@ Landry stood upright. His expression relaxed, from an active snarl to his more b
 
 I breathed a sigh of relief and turned my attention to the computer, shaking the mouse to wake the monitor. I was about to click the audio file, but I became distracted by the flickering movement of wings from outside a window Landry had previously been blocking.
 
-Judging by the gray-white markings, it looked to be a mockingbird. There was something desperately wrong with the creature, though. First off, it hadn’t just flown by the window in passing; it was hovering with beak pressed into the glass, an abnormally inert behavior for its species. Not only that, but it appeared to be observing Landry closely as he crossed the room and sat down. Slowly, the animal twisted its head to follow the Sergent, and that’s when I better appreciated the thing jutting out of its right eye.
+Judging by the gray-white markings, it looked to be a mockingbird. There was something desperately wrong with the creature, though. First off, it hadn’t just flown by the window in passing; it was hovering with its beak pressed into the glass, an abnormally inert behavior for its species. Not only that, but it appeared to be observing Landry closely as he crossed the room and sat down. Slowly, the animal twisted its head to follow the Sergent, and that’s when I better appreciated the thing jutting out of its right eye.
 
 A single light pink flower, with a round of petals about the size of a bottle cap and an inch of thin green stalk separating the bloom from where it had erupted out of the soft meat of the bird’s eye.
 
@@ -256,9 +256,9 @@ A tall, muscular man entered the frame, walking through the crowd without urgenc
 
 Landry.
 
-Five slack nooses were slung over our town’s large rectangular sign. Four of them already had people in them. The rightmost person was Noah.
+Five slack nooses were draped over our town’s large rectangular sign. Four of them already had people in them. The rightmost person was Noah.
 
-The muscular man slid Landry into the last empty noose like a key into a lock. He backpedaled from the makeshift gallows to appreciate his work. After staring at it for a few minutes, he turned and beckoned to the rambunctious child and three others I couldn’t initially see on the screen: a pair of older twins and a mother figure walking into frame from the same direction the man had arrived.
+The muscular man slid Landry into the last empty noose like a key into a lock. He backpedaled from the makeshift gallows to appreciate his work. After staring at it for a few minutes, he turned and beckoned to the rambunctious child and three others I couldn’t initially see on the screen: a pair of older twins and a mother figure walking into frame from the same direction the man had arrived, all with their own cancerous flowers and bone masks. 
 
 They gathered together in front of the soon-to-be hanged. The man wrapped two long arms around his family, the twins on one side, the mother and the small child on the other. They marveled at their revenge with reverence, drinking in the spectacle like it was a beautiful sunset or fireworks on New Year's Eve.
 
