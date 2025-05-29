@@ -202,7 +202,7 @@ As I creeped in the direction of that respite, I heard the door slam behind me a
 
 Took me about five minutes to traverse three feet. Thankfully, once I got to aiming my backside at the seat, gravity mercifully assisted with the maneuver. On my toes and off balance, my body tipped over and I collapsed into the chair, sliding backwards and hitting the wall with a low *thunk*.
 
-With the door closed, I seemed to recover quickly from the cryptic stasis. My motions became smoother, faster, more aligned with my understanding of reality within a matter of minutes. Eventually, I noticed the object lying on the keyboard. A black helmet with a clear visor and an air filter at the bottom.
+With the door closed, I seemed to recover quickly from the cryptic stasis. My motions became smoother, faster, more aligned with my understanding of reality within a matter of minutes. Eventually, I noticed an object lying on the keyboard below the monitors. A black helmet with a clear visor and an air filter at the bottom.
 
 It was an APR (air-purifying respirator) from the fire station.
 
