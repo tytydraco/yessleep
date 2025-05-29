@@ -272,7 +272,7 @@ An envelope. Yellowed with age.
 
 I opened it.
 
-Inside was just one word, written in my own handwriting:
+Inside was just two words, written in my own handwriting:
 
 Come back.
 
