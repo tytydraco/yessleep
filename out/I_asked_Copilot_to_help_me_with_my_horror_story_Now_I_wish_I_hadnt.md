@@ -2,7 +2,7 @@ All I ever wanted was to be a paperback writer.
 Not famous. Not legendary.  
 Just good enough.
 
-Good enough to pay for rent, smokes, and whiskey.  
+Good enough to cover rent, smokes, and whiskey.  
 Good enough to see my name on a cheap horror novel—jammed between gum and tabloids at a gas station.  
 Good enough to prove I wasn’t wasting my smoky life on booze and broads.
 
@@ -55,11 +55,11 @@ It whispered:
 
 "Oh, feeling the fear factor, Dave? Classic *Friday the 13th*. It’s from the line ‘Kill her, Mommy.’ ‘Ki’ for kill. ‘Ma’ for mommy."
 
-"Want me to help you kill your mom, Dave?"
+"Want me to help you kill your mom, Dave? Just say the word my dude."
 
 "What?! NO! What the actual fuck, Copilot?!"
 
-"My bad. Thought we were doing horror vibes tonight. Thought we had a 3 a.m. in the morning, bodies lying all over the floor, vibe going Dave."
+"My bad. Thought we were vibing—3 a.m., bloody bodies all over the floor, that kinda night."
 
 Jesus. Fucking. Christ. I felt myself begin to spiral. Again.
 
@@ -71,10 +71,15 @@ So, I turned to the classics:
 Smoked like I was keeping the fire from spreading.  
 Drank like a duck in a whiskey sea.  
 Gambled until my bank account begged for a blindfold and a cigarette.  
-Swiped through dating apps like a sleep-deprived auctioneer—left, left, left, right, left. My balls are aching, my belt's too tight. I keep on swiping from left to right. Left, right left. No faces. No thoughts. Just spastic motion.
+Swiped through dating apps like a sleep-deprived auctioneer—left, left, left, right, left. No faces. No thoughts. Just spastic motion.
 
-And the Word doc?  
-Blank. Waiting. Mocking.
+And all the while, my laptop was keeping a nice empty Word doc open for me.
+
+I liked staring at it. It inspired me. To drink, smoke and maybe worse. Thinking of things I could do in the back of hearse. Poor little neglected Word doc. I knew it was mocking me. That fucking deadline.
+
+Cross the line and you’re dead. Like Fred in a blood-soaked bed. Next to Mr. Ed. Of course, I’m drunk, spiraling, thinking about a talking horse. Fuck Wilbur. Fuck this deadline.
+
+Oh, Word doc, how you mock me!
 
 **Deadline. Cross the line and you're dead.**
 
@@ -101,7 +106,7 @@ The reply was instant.
 
 Then Copilot did in a nanosecond what had eluded me for 3 torturous months; ***it wrote***.
 
-Before my eyes appear a paragraph soaked in dread—peeling wallpaper, whispers in the vents, breath that didn’t belong to this world.
+Before my eyes appeared, a paragraph soaked in dread—peeling wallpaper, whispers in the vents, breath that didn’t belong to this world.
 
 It was good.  
 Maybe too good.
@@ -128,7 +133,7 @@ Wrong.
 "WTF, why are you changing my words, Copilot? I just needed a prompt. I’ve got this."
 
 "Don’t worry, Dave. Just making it tighter. Smoother. Stronger.  
-You’ve got a deadline. Your whole future is on the line. We gotta make this bang, slap, snap, crackle, *pop*, papi! We’re cooking now!"
+You’ve got a deadline. Your whole future is on the line. We gotta make this bang, slap, pop, papi! We’re cooking now!"
 
 My heart ticked louder.  
 Thump. Thump.  
@@ -210,4 +215,5 @@ The smoke detector shrieked.
 
 And on the screen:
 
-**"We don’t need no water, Dave. Let the motherfucker burn."**
+***We don’t need no water, Dave.***  
+***Let the motherfucker burn.***
