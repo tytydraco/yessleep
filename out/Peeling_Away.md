@@ -48,4 +48,4 @@ Standing on the opposite side of my mirror was now a creature. Eyes, bloodshot f
 
 Picking up the knife I originally used, I jammed it into my real nose, vowing to make a new one and truly have the perfect nose. Agonizing, tearful, but determined, I sawed through my nose. 
 
-Now, I have a fresh canvas. I don’t know who I am without my nose, but it’s nothing, a bit of sculpting, and new flesh, can’t fix.
+Now, I have a fresh canvas. I don’t know who I am without my nose, but it’s nothing a bit of sculpting, and new flesh, can’t fix.
