@@ -198,4 +198,4 @@ He stopped answering after that. 
 
 I never saw Collin again after the night he played the Funeral Game. He dropped out of school, wouldn’t answer the phone, and would hardly leave his house. It’s weird losing someone while they’re still alive. They’re still out there, but now all you’ve got are the memories, and you don’t get to make new ones. The things you once loved in common are just painful reminders that you’re out wandering beyond a dead end, and you can’t go back.
 
-Letting go of Collin was hard. It was terrifying to realize we still had so much more to lose.
+Letting go of Collin was hard. It was terrifying to realize we still had [so much more to lose](https://www.reddit.com/r/nosleep/comments/1kz5wb0/the_funeral_game_part_2/).
