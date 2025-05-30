@@ -25,67 +25,43 @@ When the results came back, I knew they were bad. The doctor, while trying to ke
 
 “Good afternoon, Marcus, how are you feeling today?”
 
- 
-
 “I just want to know about the results, I can’t wait any longer”
-
- 
 
 “I’ve reviewed your MRI results with our radiology team and the findings were a bit…. unusual.”
 
- 
-
 “What does that mean?”
 
- 
 
 She swallowed dryly
 
- 
 
 “Marcus, we were wrong about the initial assumption about your brain swelling. It’s not. It’s growing.”
 
- 
-
 “Growing? What do you mean growing?”
-
- 
 
 “I mean that the overall volume of your brain has slowly but measurably been expanding. Specifically in the frontal and parietal lobes. There’s no fluid build-up, no tumour, no signs of infection of any kind…. The tissue itself seems healthy. It’s just growing”
 
- 
-
 “How is that even possible?”
 
- 
-
-“We don’t know. The human brain doesn’t grow in adulthood, certainly not like this. Neurons don’t regenerate that way. We’ve checked the images and even re-scanned to rule out errors. But it’s definitely grown, just a few millimetres.”
-
- 
+“We don’t know. The human brain doesn’t grow in adulthood, certainly not like this. Neurons don’t regenerate that way. We’ve checked the images and even re-scanned to rule out errors. But it’s definitely grown by just a few millimetres.”
 
 “What does this mean? Is it going to stop?”
 
- 
 
 I can tell she’s choosing her words carefully.
 
-“We don’t know. This isn’t a known condition. Right now, we’re focusing on managing the pressure in your skull and tracking the growth rate. If it continues... we may need to surgically relieve the pressure to prevent damage.”
 
- 
+“We don’t know. This isn’t a known condition. Right now, we’re focusing on managing the pressure in your skull and tracking the growth rate. If it continues... we may need to surgically relieve the pressure to prevent damage.”
 
 “You’re talking about cutting into my skull.”
 
 “Only if it becomes critical. For now, we’re monitoring closely, giving you medication to reduce intracranial pressure. But I want to be honest — this isn’t something we’ve seen before. It’s not textbook.  We’ve had to consult with other neurologists and research hospitals. No one's seen anything like this. Some suggested rapid-onset gliosis, but your markers don’t match. One of them floated a prion-like process, but... that doesn’t explain the organisation. Or the *activity*.
 
- 
-
 “What is that supposed to mean?”
 
- 
 
 She gives me a hesitant look before divulging further
 
- 
 
 “There are coordinated signals. Patterns we don’t typically see in those parts of the brain. Or in tissue that has recently formed.”
 

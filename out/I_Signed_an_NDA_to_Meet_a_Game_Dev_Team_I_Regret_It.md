@@ -1,4 +1,4 @@
-I have to be incredibly careful with what I say here. Not just because of the NDA I signed with one of the biggest names in gaming, but because what I'm about to share is one of the darkest secrets a billion-dollar company could possibly bury. And I fear the consequences might be worse than a pack of hungry lawyers clawing down my door.
+I have to be incredibly careful with what I say here. Not only because of the NDA I signed with one of the biggest names in gaming, but because what I'm about to share is one of the darkest secrets a billion-dollar company could possibly bury. And I fear the consequences might be worse than a pack of hungry lawyers clawing down my door.
 
 Honestly, I never planned to speak on any of this. In my mind, it was always meant to stay buried. One of the skeletons we take to the grave, you know? *Maybe* it'd come out to a longtime partner or some random at a bar. But for the most part? I fully expected to keep all of this to myself.
 
