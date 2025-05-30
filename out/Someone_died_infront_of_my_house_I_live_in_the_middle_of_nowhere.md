@@ -81,9 +81,3 @@ The only thing I can imagine is that his pilgrimage wasn’t finished—and if s
 But why did his journey end at the door of my house?
 
 What does this land—what do I—have to do with God?
-
--authors note, i first wrote it in spanish and then translated it to english by chatgpt, so sorry for translation errors. I just was lazy to re write everything in english. 
-
-(If you want the spanish original version dm me)
-
-Oh and also its my first nosleep post so any tips on writing are very appreciated.
