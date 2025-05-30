@@ -2,7 +2,6 @@ Hey, I’m not familiar with this subreddit but I know it’s vaguely about gett
 
 A little background: I’m 23, pretty healthy, and I don’t usually get headaches or migraines. The only medication I take is 20mg escitalopram for mild depression, and I’ve been on it for two years with zero side effects
 
- 
 
 It started a few weeks ago. At first, it was nothing bad, just a dull ache. I thought I was dehydrated, so I drank some water and took ibuprofen. It went away, so I forgot about it. But later that night, while eating dinner, the headache came back, this time a bit worse. Once again, I took an ibuprofen and continued with eating and the rest of my nightly routine. Then, at about 2 or 3 am, I was suddenly awoken by a throbbing pain in my skull. It was of an intensity I have never had before in my life. It was like someone was constantly squeezing and pushing into my brain while it was inside my head. Stupidly, I took some stronger painkillers to see if that would do anything, but the pain didn’t go away. It only got worse. I could feel my brain pulsating as it reeked with this hot, searing pain. I ended up throwing up due to the severity of the pain.
 
