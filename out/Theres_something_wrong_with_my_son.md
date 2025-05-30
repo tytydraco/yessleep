@@ -152,4 +152,4 @@ What else can I do?
 
 Please... just... anything.
 
-Or we might all be dead soon.
+Or we might all be dead [soon.](https://www.reddit.com/r/audiodrama/comments/10hqkpe/haunted_tales_a_horror_anthology_podcast/)
