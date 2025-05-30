@@ -1,55 +1,78 @@
-No one really remembered why The Bridge had been built, or by whom. There were no raging torrents below it, no pit-of-the-stomach depths to plunge into. Instead, The Bridge (a quarter of a mile of sleek white stone) arced gently across a shallow, smooth-banked valley whose floor was lined not with jagged rocks, but with pleasant grassland freckled with wild flowers. The banks of the valley could be climbed, even strolled, with ease -  although no one ever did. The valley never flooded (rain was infrequent in these parts) and there were no great rivers or waterways within miles of the bridge. The valley itself stretched for three miles either side of The Bridge, before tapering off gently into yet more grassland. Roads wound - wide - around either side of this slender groove in the land, but no roads connected to The Bridge.
+*This is what I say to them.*
 
-No one knew why The Bridge had been built, or by whom. And no one ever cared to ask - The Bridge simply was.
 
-On August 10th, 2007, I opened the door of the small cabin at the Western side of The Bridge, my ATV parked in the knee-high grass just outside. Unlike the cool stone of the main structure, the cabin was a more prosaic wood and corrugated iron affair. The interior smelled of warm plastic, with an afterglow of the deodorant spray used by Chris - my colleague who worked the night shift. Taking a seat on the worn swivel chair inside the cabin, and placing my lunch box inside the small (but extremely noisy) refrigerator under the desk, I flipped through the log book. Chris’s notes inside were neat, as usual, and concise. ‘All clear’. ‘All well’.
 
-I remember pouring myself a cup of coffee from the flask I was always brought with me. A gift from Kate, battered now after 10 years. I carried on with the daily ritual: a tentative sip of hot coffee, and the first stare through the pair of binoculars I had been allocated. I looked out through the window of the cabin, across The Bridge.
+Wait. Just think for a moment.
 
-I could make out the cabin at the edge of the Eastern side - almost identical to my own, but I couldn’t (could never, in fact) make out the occupant. I had never asked who sat on the Eastern side, or why. My contract stipulated that I was not to cross the bridge, and not to attempt contact with the Eastern side - even though the occupant must surely be a fellow employee. After all, The Bridge sat within the same state; it crossed no borders. But I wasn’t inclined to enquire. My role was simple, and the pay was adequate. No need to rock the boat. I was simply to watch, and to take notes - however uneventful the day was. And the days were always uneventful. They had been ever since I took this job, eleven years ago.
 
-I recall, just after midday, feeling a bead of sweat roll down the back of my neck. The sun was really beating down on the flat iron roof of the cabin now. That sticks in my memory. I flipped the switch on the small desk fan mounted over my right shoulder, and wrinkled my nose as the blades whipped up a plume of dust that tickled my nostrils. That always happened, every time.
 
-I looked up absent-mindedly and noticed a figure stumbling along the bridge, before returning to the sports magazine I had open on the desk in front of me. I remember I reached under the desk and pulled my lunchbox out of the refrigerator - relishing the waft of cool air against my legs as he did so.
+I know someone who went through with this. Maybe twenty yards from the spot where you’re standing right now. He thought it was what he wanted, too. That it was what everyone around him wanted. In fact, he was convinced this was the only option left to him.
 
-And then I stopped, lunchbox still in my hand, refrigerator door still open. Someone was on the bridge.
 
-My heart began to race, and I raised my binoculars again. There - halfway across the bridge - was a figure. They were moving slowly; it looked like they were exhausted, or hurt. I felt sick. There was no radio in the simple, bare cabin - no one to call for help. There had never been any need - nor any possibility that there would ever be a need. There was simply the log book filled with page after page of  ‘All clear’ and ‘All well’. I had received no instructions on what to do in a case like this; I was simply to observe - to watch, take notes, and hand over to Chris at 8pm.
 
-I stood, unsteadily. I felt dizzy and my legs were numb, like they’d fallen asleep. I opened the door of the cabin, hardly noticing the sun beating down on me or the flies attracted to the sweat on my brow. I brought the binoculars with me, and walked to the Western entrance of the bridge, placing myself centrally so that I could look across the long span of white stone. I was careful to stay a foot or two off the stone, however. Although my contract simply told me not to cross The Bridge, I had always instinctively felt that it was better not to set foot on it at all.
+Right up until he jumped, he was certain. He felt relieved, even. Happier than he had been in months. But the moment his feet left solid ground, the panic — the terror — was immediate. He realised that all of his problems — problems that seemed insurmountable — were solvable. With the exception of one: that he was plummeting towards the bay at a hundred miles per hour.
 
-The figure kept coming. They were walking along the left-hand side from my perspective, and through the binoculars I could see that they had one hand leaning against the waist-high wall that ran along either side of The Bridge as they went, with their left foot dragging behind them. Then, they stumbled and fell. And were still.
 
-I remember I gasped out loud and, involuntarily, took a step forward - the binoculars falling from my hand, landing with a crack. I looked down and realised I was now on The Bridge. I felt my stomach lurch, as though I were standing on the edge of a great precipice. But no, the stone was firm under foot. There was no pain, no disorientation, no electric jolt through my body. No suddenly-materialising manager admonishing me for my transgression. Just smooth, polished white stone underfoot. It was just a bridge.
 
-I walked forward slowly; gingerly - as if trying to maintain balance on a narrow beam across a river. I kept my eyes fixed ahead - the figure was just visible, still unmoving.
+He hit the water. It knocked the air out of him. He felt his body contort unnaturally. But he was alive. The adrenaline blinded him to the pain but he could tell his body felt all wrong. He swam with everything he had but his legs dragged behind him, lifeless. When he made it to the bank — finally — the pain and the exhaustion hit and he passed out.
 
-My pace quickened, and before long I was at the figure’s side. They lay on their stomach, one arm outstretched in front of them, the other tucked underneath their body. Slowly, I reached out to turn them over. It was a woman - perhaps in her fifties, her hair grey and cropped short. She wore a grey jumpsuit - the sort of thing a mechanic might wear - immaculate, save for a small blood-reddened hole in her chest. Her eyes were closed, and she didn’t appear to be breathing. I bent my ear to her mouth and nose. Nothing. Fingers trembling, I took her pulse. Nothing.
 
-I sat back quickly. I felt tears sting my eyes without really understanding why, and wiped them with my forearm - succeeding only in smearing them with sweat. I sat for a while, simply looking at her. What should I do next? I was having trouble focussing - thoughts swirled in my head, and each time a plan of action began to coalesce, it was swept away on a short, sharp, wave of renewed panic and anxiety.
 
-I calmed my breathing, and closed my eyes - screwing them shut, hard, until lights appeared behind my eyelids. Then I opened them again, and looked at her afresh. I now, truly, registered the wound in her chest. I was no expert, but it looked like a gunshot wound: small, precise, even neat. I had heard no shot though - and sound carried out here on this empty plain, where the nearest roads were at least three miles away.
+He woke in a hospital. He was lucky, the doctors said — his crushed body was found maybe ten minutes after impact. But he wasn’t lucky. There was the pain — a pain that would always be there, now, every moment, debilitating, intolerable. And there were the years of physiotherapy out ahead of him — a brutal necessity if he ever wanted to walk again — that elevated that pain to the excruciating.
 
-A strange sense of calm began to take over. The panic was subsiding now (although I was damned if I knew why) and was replaced instead with a powerful sense of curiosity - a need to find out what had happened to the woman sprawled in front of me, and where she had come from. Standing up again, I began to walk slowly towards the Eastern side of the bridge. As I approached the half-way point (there was no marker, I simply knew - eleven years of watching this bridge meant that I knew every inch of its surface), the sense of nervousness began to return. I couldn’t see anyone on the other side - no gunman, no one at the Eastern cabin at all.
 
-I was conscious that crossing this invisible line would represent a point of no return. One of the only stipulations in my contract was that I must not cross The Bridge. But I was emboldened now - or rather - driven. Nothing like this had happened to me before.
 
-I made the final few steps forward. One, two, three - four. The white stone bridge was gone, and so was the grassy plain beyond it.
+The physical stuff was hard, of course. But maybe he could’ve tolerated it. Maybe he could’ve led a normal life. Constrained by the limitations of his damaged body, yes, but normal enough. The problem, though, wasn’t just the pain — it was the fact that he had done this to himself. He relived that night on the bridge every waking hour. And soon he found himself returning to that spot. Waiting, watching.
 
-And then, suddenly, in front of me stretched a brutish, iron gantry. It stretched out an eighth of a mile in front of me, its exit (or entrance) blocked by curls of barbed wire. The Eastern corrugated iron cabin was gone - in its place was a squat concrete bunker, its roof adorned with what must have been communications masts, and floodlights. There were more figures standing outside the bunker, two - no - three, people huddled together, gesticulating around themselves and occasionally pointing out across The Bridge, looking in my direction.
 
-I simply stood. My thoughts had turned to tar, and my ears rang as though someone had rung a great bell next to my head. It was odd - the last time I had felt like this was when I heard that my father had died quite suddenly, thirteen years ago. I was simply numb, bereft.
 
-I looked down at my feet, and the sense of numbness vanished. I realised that the ‘ground’ beneath my feet was actually a heavy iron mesh - evidently strong, but quite transparent. There was no grass beneath my feet now, no wild flowers. Instead, below me lay a void - the bottom of which was imperceptible as far as I could see. I was standing above… nothing.
+He didn’t know what he was looking for. But he was drawn back and, night after night, he walked the length of the bridge, back and forth, until he saw daylight. He moved slowly. Each step jolted pain through his heel up the length of his spine. Over and over, he retraced his steps up to the edge and looked down at that spot in the bay. He could stand here for hours, willing the wind to force him forward and finish what he had started. He couldn’t bring himself to jump, though. Not again. Not while there was a chance, any chance, of consciousness at the other end. Each morning he came home bitter, unsatisfied, his legs throbbing. Yet each night, he couldn’t help but return. And two weeks into this burgeoning obsession, he was rewarded.
 
-I remember I yelled out (like an idiot - but I was in shock!) and stumbled backwards several paces, falling flat on my behind. Beneath my hands I once again felt cool, smooth stone - and in front of me stretched The Bridge as I had known it, smooth and white, leading out to a grassy plain and a featureless horizon.
 
-I began to breathe rapidly; panic - real panic - threatening to set in. I looked over my shoulder and saw the figure of the woman lying where she had fallen. She was real. This… was real. My gaze shifted away from the woman, towards my vehicle. I was filled with a powerful urge to run, to drive away. To go back to my apartment, and to contact my employer to request instructions. And to pour myself a very large, very strong, drink.
 
-But I didn’t. I stayed rooted to the spot. Because there was another, stronger, urge telling me to cross that halfway-point again. The woman was real, to be sure, but had I really seen what I thought I had across that invisible line? I shifted myself carefully so that I was on my hands and knees - not trusting my trembling legs to carry me. Slowly, deliberately, I began to crawl forward again. A pace before the halfway point I reached out with my right hand, fully expecting it to disappear as it crossed some invisible threshold. But it didn’t. I reached inside my pocket and fished out some coins, then tossed them out onto The Bridge in front of me. They landed a few yards away - still visible - on the white stone in front of me. Doubt started to creep in - was I going insane?
+While pacing the bridge — maybe an hour before daybreak — he saw a man up on the railing, steeling himself for the jump. And his first thought was to stop him — truly — to try to reason with him — but before he got the chance, the man leapt. Immediately, then, something shifted in him. There was a shock. A hormonal spike. But underlying the immediate and the physical there was something more. 
 
-I crawled forward another pace and then, without fanfare - without a woosh, or an artful ripple in the air around me - I found himself back on the iron gantry. I immediately regretted being on my hands and knees: instead of resting on top of smooth stone, my fingers were curled around the iron mesh beneath me, and my eyes were fixed inexorably on the void below.
 
-Slowly, I raised my head. I found myself staring at a pair of heavy, rubber boots. Numbly, my gaze traveled up, taking in the yellow plastic of a hazmat suit (or something like it) and, finally, a clear plastic mask - behind which I saw eyes that were deeply lined, and sunken. Eyes full of fear.
 
-‘How?’ breathed the man in the hazmat suit, as he stared down at me.
+This is what he came to understand: There’s a kind of string connecting every person to every other and through that string flows a substance — a kind of weight. In an interaction — any interaction — a conversation, say — weight flows along the string from one person to the other. You’ve felt it, this weight. Maybe you haven’t been able to fully articulate it — or even grasp it on a conscious level — but you’ve felt it. Over the course of an interaction, the flow might shift direction but at the end, when all is said and done, a transfer has occurred.
+
+
+
+It’s not a surface-level emotional thing — it’s not a depressive thing, it’s not an alteration in mood — it’s the next layer down. You can have a conversation with someone and both of you might come away happy, both of you might come away upset. There’s no physical constraint on an emotional shift. But here there is a definite conservation and the string acts only to relocate weight from one person to the other. The emotions on the surface are fleeting, transitory. They’re chemical releases in the brain. This weight — this is the constant. This is the thing that transcends the synaptic into what some might call the soul. It’s an amplifier. It intensifies everything. It transforms an exchange of words into the profound. Into the devastating. For a certain kind of person — the kind more inclined to attract mass than repel it — it accrues to an unbearable level. It accrues to a level at which the person is encumbered beyond the limit of their soul. Where every new interaction, however slight, begins to impose a new, crushing burden.
+
+
+
+This is all something he had sensed on a base level, just as you have sensed it. But when he saw another jumper — this is when it forced its way, immediately, to the forefront of his conscious mind. He recognised the strings, now, not as a metaphor but as a latent physical reality, clearly, strongly, tilted from him toward to the jumper and, throughout the descent, the deluge of mass away from him. He could feel that weight ripped through the string out into the night — into the falling body. The jump should’ve only taken seconds. But the string — or, rather, the flow through it — dilated time. It shifted not only his perception of reality but reality itself. The fall took minutes. And through those minutes, he became lighter.
+
+
+
+It was some time before he could bring himself to move from this spot — the spot from which he watched the jump — and look over the edge. He wanted to thank the jumper for this gift. But more than that, he wanted — he needed — more. He returned home. His legs — and his body — they ached more than ever. But with that there was a powerful relief. A sense of openness, of possibility. He slept dreamlessly. 
+
+
+
+When he woke he recognised a purpose in himself — a will — that had been absent for years. That day he began to rebuild the elements of his life. He began to rebuild relationships; he took steps to rebuild his career. He began to see for himself, again, a reason. But, even as these efforts began to bear fruit — over weeks, months of dedication to improvement — he could sense that this new state was precarious. He could sense that he needed to sure himself up, to release further weight to counteract that accrued from these efforts to enrich his life. He began to follow a pattern, then: In the day, he took on weight, he developed himself, he devoted himself to those around him. At night, he took the steps required to shed this weight. Each night, he trawled the bridge, and, each night, he searched for jumpers.
+
+
+
+This persisted for two years. Past that first time, he didn’t try to talk to them. He didn’t try to stop them. At first this brought him shame. But he came to realise, over time, that there was no shame in acting on one’s need to survive. He had no obligation to these people. He had no duty of care. Jumpers made this sacrifice willingly, just as he once had. He just allowed them, from afar, to relieve his burden. And, so relieved, he was able to support a life for himself and those around him. He was able to develop meaning.
+
+
+
+As with any high, though — from the purely chemical to the more fundamental — a tolerance began to build. He continued to trawl the bridge every night. He got what he needed — at least for a time. But the effect began to diminish. He could feel the steady, creeping accumulation of weight once again. The transference to jumpers, in each case, became less substantial, and the weight he took on throughout each day began to outstrip it. The jumpers weren’t frequent enough; each act of jumping wasn’t potent enough; the balance tipped and he felt, returning home from the bridge early each morning, the compounding burden on his soul.
+
+
+
+His life, now, so painstakingly reconstructed, began to degrade. He couldn’t continue with his work. He couldn’t maintain his relationships. How could he, given the cost? Given the amplification of the pain it caused him? He saw, now, the inevitable — the slide back to his previous state, overburdened by new weight, overwhelmed by each and every interaction, once more drawn to oblivion, drawn to face the abyss. 
+
+
+
+So he made a choice.
+
+
+
+Watching a person jump — it couldn’t sustain him any longer. It couldn’t provide the degree of relief he needed. But through the understanding he had developed of the strings and flow of weight, he knew there remained an option open to him. Because it was so clear to him now that to feel that first transcendent flow again, he couldn’t just watch.
+
+
+
+He had to be the one to deliver the push. 
+

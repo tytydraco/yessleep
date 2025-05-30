@@ -50,7 +50,7 @@ I mean that literally.
 We found his yearbooks. Pulled school records. Not a single person by those names ever attended. And no one from his graduating class remembered him ever socializing. Even his teachers described him as “quiet,” “obsessive,” “a little detached.” A science nerd. No real friends.
 It felt like Dad invented a whole history just to justify going to New York.
 
-I’ve spent the last two years holding onto the idea that maybe he just walked away. Started over. But that theory doesn't explain what I found last weekend. It doesn’t explain my brother. 
+I’ve spent the last almost two years holding onto the idea that maybe he just walked away. Started over. But that theory doesn't explain what I found last weekend. It doesn’t explain my brother. 
 
 It doesn’t explain a postcard I received today from Michigan. The postcard is in her handwriting. The same loopy curves. The same smiley face and heart at the end. It says she and Dad are having fun dune buggying. My mom has been dead for twenty years. 
 
