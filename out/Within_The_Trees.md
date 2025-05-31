@@ -205,3 +205,5 @@ When Monday came around, most of them didn’t believe us of course. We were too
 Things went on as normal after that. I was still reading horror stories and still obsessed with proving them to be real. I wrote off the Gnawbone as a confirmed case and moved on to others, though I never got anywhere as close to any of them. As we got older, Roger and his family moved away. We tried to stay in touch but you know how it goes when you’re little. He was a three-hour car ride away and to us he might as well have been on the moon. Jack and I never saw him again after we turned twelve.
 
 Eventually, I left school, got a job and moved out of town. I still kept in touch with Jack but I got busy and didn’t see him as often as I wanted too. Until one day, at the ripe old age of twenty-four, I got a call from him.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1kzu3rs/within_the_trees_part_2/)
