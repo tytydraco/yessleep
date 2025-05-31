@@ -229,7 +229,7 @@ Julia is there already, holding her hands over a steady blaze. “Morning, sunsh
 
 “They pinpointed our location. They’ve dispatched people to get us who should arrive in six hours or so.”
 
-“Ugh, finally! I’m so friggin’ bored I wanna puke!” Julia threw her hands in the air. 
+“Ugh, finally! I’m so friggin’ bored I wanna puke!” Julia throws her hands in the air. 
 
 “Haha. Well, how do you wanna kill time?”
 
