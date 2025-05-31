@@ -4,7 +4,7 @@ I cheat a lot. I wouldn't go so far as to say *compulsive*, but it's not far off
 
 Games, in truth, are the worst victim of my cheating. It's been this way as long as I can remember; I was the kid who insisted on being the bank teller in Monopoly, who glanced over at my opponent's cards during Uno or Go Fish, etcetera etcetera.
 
-Point is, I'm a big fat cheat. Always have been. Or at least, I used to be. My years of cheating are behind me, and I can now say without a shadow of a doubt: I will *never* cheat again.
+Point is, I'm a big fat cheater. Always have been. Or at least, I used to be. My years of cheating are behind me, and I can now say without a shadow of a doubt: I will *never* cheat again.
 
 You're probably wondering why I'm admitting to all this, and in order to explain that, I need to start at the beginning. The beginning which, ironically, was at the end of a pretty great night.
 
@@ -146,4 +146,4 @@ I was staring dazedly at the pattern of blood spatter adorning the table when I 
 
 "What?"
 
-"Landon..." Carmen said, extending a hand with two once-white red dice towards me, "It's your turn."
+"Landon..." Carmen said, extending a hand with two once-white red dice towards me, ["It's your turn."](https://www.reddit.com/r/nosleep/comments/1kzrfft/gamesmanship_pt_2/)
