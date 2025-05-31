@@ -1,3 +1,4 @@
+
 The guy behind me is so fucking annoying. 
 
 “It’s our duty you know. Our duty as American men. We need to spread our seed. We need to fill the streets with high value citizens with good morals.”
@@ -30,7 +31,7 @@ I hear the muffled sound of a seatbelt click.
 
 “I’m so sorry sir, it’s against guidelines-“
 
-There’s an initial sound of glass cracking, then a roar of wind accompanied by a rush of cold air.  There’s beeping and people start screaming. The plane begins to violently shake.
+There’s an initial sound of glass cracking, then a roar of wind accompanied by a rush of cold air. There’s beeping and people start screaming. The plane begins to violently shake.
 
 “Oh my god! She’s dead!”
 
@@ -98,7 +99,7 @@ Everyone tuned in to the conversation looks toward the hole. It’s the size of 
 
 The doctor shrugs. “It can happen. I’m not a neurologist, so I can’t go into detail. The important thing is that we move her as little as possible until aid arrives.”
 
-**Ladies and gentlemen, although we have successfully landed the plane, we are not yet prepared to disembark. Unfortunately due to the emergency situation we had to land somewhere . . . off the charts. Please stand by and food and beverages will be provided.**
+“**Ladies and gentlemen, although we have successfully landed the plane, we are not yet prepared to disembark. Unfortunately due to the emergency situation we had to land somewhere . . . off the charts. Please stand by and food and beverages will be provided.**”
 
 I spend the next hour milling around the cabin and peering out windows. 
 
@@ -561,13 +562,13 @@ I look at the source of the voice. It’s Luke. He beckons me to come to the coc
 
 I stumble to him in a daze. Upon reaching the cockpit I see the captain and the co pilot are there already.
 
-“Listen, Chloe. Something’s going on here. We three have been up all night speaking with contacts at the radio tower.” Luke is speaking erratically, maybe due to shock. “Since the sixties, planes have been going missing in this area. In 1992, there was a message broadcast on a short wave frequency. It was caught by a freighter hauling cargo, not 10 miles from here. The message was repeating one thing, over and over.”
+“Listen, Chloe. Something’s going on here. We three have been up all night speaking with contacts at the radio tower.” Luke is speaking erratically, maybe due to shock. “Since the seventies, planes have been going missing in this area. In 1992, there was a message broadcast on a short wave frequency. It was caught by a freighter hauling cargo, not 10 miles from here. The message was repeating one thing, over and over.”
 
 The knot in my stomach solidifies. I know what he’s about to say before he says it. 
 
 “Don’t open the door.”
 
-I start crying. I can’t help it. Dr Martin’s  mutilated face keeps appearing in my mind. 
+I start crying. I can’t help it. Dr Martin’s mutilated face keeps appearing in my mind. 
 
 “She doesn’t want to hear it right now, Luke.” The co pilot glances at the door, obviously shaken. 
 
