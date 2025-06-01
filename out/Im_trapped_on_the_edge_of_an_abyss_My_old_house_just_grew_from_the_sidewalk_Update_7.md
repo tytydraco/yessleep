@@ -487,3 +487,5 @@ She may already drive me crazy, and we may not get along very well, but maybe de
 That said, I *really* hope this new Hensley isn’t half as irritating as her, and if I survive the house, I guess you’ll hear all about her soon.
 
 Wish me luck.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1l12igr/im_trapped_on_the_edge_of_an_abyss_theres_an/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
