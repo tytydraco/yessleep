@@ -1,3 +1,4 @@
+Part 1 | [Part 2](https://www.reddit.com/r/nosleep/comments/1l0qhnt/my_father_disappeared_update/)
 
 He was visiting New York for vacation. I was the last person he ever talked to. He called me that afternoon to say he was grabbing dinner and walking around Central Park to clear his head. He never made it back to his hotel. Security footage shows him leaving around 6:12 PM. After that, nothing. No phone records. No credit card activity. No body.
 
@@ -5,29 +6,19 @@ The police did what they could. It’s New York. People vanish. Sometimes intent
 
 We never really touched Dad’s house aside from the initial rush for clues, forwarding mail, and cleaning out perishable stuff like food. My brother refuses to even consider selling it, but I can’t let it sit forever. It’s honestly a miracle it’s been empty for so long without any break-ins or vandalisms.
 
-Last week I went back to start clearing it out, I at least wanted to finally divide personal stuff between my brother and other close family.
-I found a locked filing cabinet in the basement that didn’t match anything else in the house. Industrial, heavy, scorched on one side like it had been through a fire. That piece of shit took me hours to get open.
+Last week I went back to start clearing it out, I at least wanted to finally divide personal stuff between my brother and other close family. I found a locked filing cabinet in the basement that didn’t match anything else in the house. Industrial, heavy, scorched on one side like it had been through a fire. That piece of shit took me hours to get open.
 
 Inside were notebooks. Diagrams. Pages and files of writing in symbols I’ve never seen before. They’re almost like musical notation mixed with math. But there were some notes in English, and they chilled me more than anything in my life.
 
 "DO NOT STABILIZE THE SHARD IF IT RECURS AGAIN." "Recursive collapse is inevitable after excessive forking." "Deja vu = bleed." "The Manhattan instance was never viable."
 
-One page just said:
-“Ignorance is bliss. Curiosity is contagion.”
+One page just said: “Ignorance is bliss. Curiosity is contagion.”
 
-There were maps of familiar cities drawn in impossible layouts. Places I know, twisted slightly wrong. A subway station that doesn’t exist. Street names I don’t recognize in neighborhoods I’ve lived in. 
+There were maps of familiar cities drawn in impossible layouts. Places I know, twisted slightly wrong. A subway station that doesn’t exist. Street names I don’t recognize in neighborhoods I’ve lived in.
 
-One map had a jagged tear through it with pseudo code scribbled on it in sharpie: 
+One map had a jagged tear through it with pseudo code scribbled on it in sharpie:
 
-SHARD SPLIT // 08.04.23 // PRIMARY FORK
-(DO NOT ENGAGE: Recursive Eden)
-(They loop the instance. They scrub the thread.)
-(Bleed is the only exit.)
-// COYOTE.PROTOCOL //
-// SHEPHERD TRACE: CORRUPTED //
-// ENTROPIC SIGNAL CONFIRMED //
-// Awaiting critical recursion failure //
-April 4th, 2023. That’s the day he disappeared.
+SHARD SPLIT // 08.04.23 // PRIMARY FORK (DO NOT ENGAGE: Recursive Eden) (They loop the instance. They scrub the thread.) (Bleed is the only exit.) // COYOTE.PROTOCOL // // SHEPHERD TRACE: CORRUPTED // // ENTROPIC SIGNAL CONFIRMED // // Awaiting critical recursion failure // April 4th, 2023. That’s the day he disappeared.
 
 I don’t know what any of it means, but I haven’t been able to stop thinking about it since I found it.
 
@@ -47,16 +38,13 @@ After the disappearance, I tried contacting those friends. None of them existed.
 
 I mean that literally.
 
-We found his yearbooks. Pulled school records. Not a single person by those names ever attended. And no one from his graduating class remembered him ever socializing. Even his teachers described him as “quiet,” “obsessive,” “a little detached.” A science nerd. No real friends.
-It felt like Dad invented a whole history just to justify going to New York.
+We found his yearbooks. Pulled school records. Not a single person by those names ever attended. And no one from his graduating class remembered him ever socializing. Even his teachers described him as “quiet,” “obsessive,” “a little detached.” A science nerd. No real friends. It felt like Dad invented a whole history just to justify going to New York.
 
-I’ve spent the last almost two years holding onto the idea that maybe he just walked away. Started over. But that theory doesn't explain what I found last weekend. It doesn’t explain my brother. 
+I’ve spent the last almost two years holding onto the idea that maybe he just walked away. Started over. But that theory doesn't explain what I found last weekend. It doesn’t explain my brother.
 
-It doesn’t explain a postcard I received today from Michigan. The postcard is in her handwriting. The same loopy curves. The same smiley face and heart at the end. It says she and Dad are having fun dune buggying. My mom has been dead for twenty years. 
+It doesn’t explain a postcard I received today from Michigan. The postcard is in her handwriting. The same loopy curves. The same smiley face and heart at the end. It says she and Dad are having fun dune buggying. My mom has been dead for twenty years.
 
-And I swear I got a voicemail an hour ago from my father’s number.
-It was just static. And underneath, a voice I almost recognized, whispering:
-"You're not supposed to remember this version."
+And I swear I got a voicemail an hour ago from my father’s number. It was just static. And underneath, a voice I almost recognized, whispering: "You're not supposed to remember this version."
 
 I’m writing this in case something happens to me. In case anyone knows what this "shard," this simulation is? Please tell me what I’m supposed to do.
 

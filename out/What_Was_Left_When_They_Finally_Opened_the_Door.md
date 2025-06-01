@@ -1,5 +1,3 @@
-Before you read this story i want to let you know that this isnt fictional. it actually happened. im not pretending to be in character. this is a real story.  
-  
 When I was a kid, my family friend, someone like an elder sister to me, told me a story. A story so dark, so unsettling, it haunted me for years. She said it happened in Baroda, India, at a medical college right next to her architecture college. It’s one of those stories you don’t forget, the kind that lodges itself deep in your mind and won’t let go.
 
 this was back in the early 2000's. Back then, ragging was a brutal, merciless tradition. The seniors didn’t just haze the newcomers; they crushed them. But this time, they went beyond any cruelty I could have imagined.
