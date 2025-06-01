@@ -104,11 +104,11 @@ What I was feeling was visceral. I got a hot flash in my head, it felt like a ra
 
 I thought it was all only in my memories, in my delusions, but suddenly it's here, so very real, searing into my brain.
 
-The pine tree standing proud with the call sign WBRM-CA. It seems to be a recording from an old Channel 72 broadcast, but it's been tampered with, warped, overrecorded. The ominously called youtube channel, there is no home, appeared out of nowhere.
+The pine tree standing proud with the call sign WBRM-CA. It seems to be a recording from an old Channel 72 broadcast, but it's been tampered with, warped, overrecorded. The ominously called youtube channel, ***there is no home***, appeared out of nowhere.
 
 I felt a sense of vindication.
 
-It seems someone has somehow found some evidence of the town's existence. Seems like it goes beyond what I remember, but I remember the names of the people from the list in what is called *tape2.forecast*
+It seems someone has somehow found some evidence of the town's existence. Seems like it goes beyond what I remember, but I remember the names of the people from the list in what is called ***tape2.forecast***
 
 My neighbours, townsfolk, friends...
 
