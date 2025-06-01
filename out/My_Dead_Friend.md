@@ -30,7 +30,7 @@ I went downstairs and I saw Dick standing there next to the fireplace. The fire 
 
 Fuck.
 
-He whipped me and whipped me and then he started fucking me, and he recorded everything. I was crying and I felt so ashamed. I hated his son Rick. I would always hate him. I even said a prayer that Rick could see what his father was doing to me and when I said that I felt a wave of piece come over me. My prayer would be answered I knew it.
+He whipped me and whipped me and then he started fucking me, and he recorded everything. I was crying and I felt so ashamed. I hated his son Rick. I would always hate him. I even said a prayer that Rick could see what his father was doing to me and when I said that I felt a wave of peace come over me. My prayer would be answered I knew it.
 
 “You know the dead can see everything. He can see what you’re doing right now, “ I said. I said it because I wanted him to stop, but he wasn’t done.
 
@@ -48,9 +48,9 @@ He put it around my neck and then he said again, “You should feel it. How it f
 
 “Dick can we turn on the air; it’s really hot in here,” I asked. What he said next horrified and terrified me at the same time.
 
-“Kathy do you realize the situation you have put me in? My son can’t die today. I’ll lose custody of our daughter. My ex-wife told me to check on him all day and I trusted you to do that. My son has to die tomorrow. In order for that to happen, time of death can’t be determined. In order for time of death not to be determined, temperature has to be hot to speed up rigor mortis so it might smell like trash. And if you can’t leave, unless you can figure out how to get those handcuffs off. Do you think it’s normal to light fires in August Kathy? God you are so dumb. It’s a good thing you look good. If you don’t want to go to jail, deal with it you cunt.”
+“Kathy do you realize the situation you have put me in? My son can’t die today. I’ll lose custody of our daughter. My ex-wife told me to check on him all day and I trusted you to do that. My son has to die tomorrow. In order for that to happen, time of death can’t be determined. In order for time of death not to be determined, temperature has to be hot to speed up rigor mortis so it might smell like trash. And you can’t leave, unless you can figure out how to get those handcuffs off. Do you think it’s normal to light fires in August Kathy? God you are so dumb. It’s a good thing you look good. If you don’t want to go to jail, deal with it you cunt.”
 
-“Oh and Kathy? He said. Oh God what does he want now, I thought? “You better hope the dead can’t see like you said, because we’re both in a lot of trouble if that’s true.” He said and when he said it the hairs stood up on the back of my neck.
+“Oh and Kathy? He said. Oh God what does he want now, I thought? “You better hope the dead can’t see like you said, because we’re both in a lot of trouble if that’s true.” He said it and when he did the hairs stood up on the back of my neck.
 
 But the dead can see. I know that because I’m not the woman in the story. I’m just the messenger for Rick who wants the date on his grave changed from August 13 to August 12.
 
