@@ -62,7 +62,7 @@ It didn’t have anything to do with our mystery on the surface, but it was the 
 
 ***Railway carriages disappear.***
 
-*On the morning of the 21**^(st)**, one eagle eyed dog-walker was out by the river past Landing Lane when he noticed the disappearance of the railway carriages. Originally built in the 1910s, these cars have sat undisturbed on the disused railway track for around the last twenty years, a common sight for those walking the path by the river. “I find the whole thing thoroughly strange,” Said the man to our reporter, “There were here when I walked past the other day and now, they’re gone without a trace!”*
+*On the morning of the 21****^(st)****, one eagle eyed dog-walker was out by the river past Landing Lane when he noticed the disappearance of the railway carriages. Originally built in the 1910s, these cars have sat undisturbed on the disused railway track for around the last twenty years, a common sight for those walking the path by the river. “I find the whole thing thoroughly strange,” Said the man to our reporter, “There were here when I walked past the other day and now, they’re gone without a trace!”*
 
 When I was around five or six years old, my father took me for a walk down Landing Lane. He was an amateur photographer in his free time and he brought me along to take pictures of those old train cars, sat abandoned and reclaimed by nature. Reading this article brought back the memory, and I could see them in my mind clear as day. I was never down there enough to notice that they’d vanished.
 
@@ -183,4 +183,4 @@ We walked back along the tracks, listening for anyone who might come up behind u
 
 We were driving past the old park when we heard something through the window that sent a chill up my spine. A few kids were out late, one of which was chasing the others around the playground. He was yelling: “The Gnawbone’s gonna get ya! The Gnawbone’s gonna get ya!”
 
- 
+ [Part 3](https://www.reddit.com/r/nosleep/comments/1l0m1ov/within_the_trees_part_3/)
