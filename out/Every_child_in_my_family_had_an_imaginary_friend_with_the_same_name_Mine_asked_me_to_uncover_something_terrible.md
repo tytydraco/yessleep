@@ -78,7 +78,13 @@ Years later, I've come to learn through absent-minded conversations my oldest br
 
 
 
-Anyway, Thomas stuck with me throughout my pre-teen and early teen years even when I - influenced by the rigid maturity expectations thrust onto growing boys and girls - showed contempt at his persistent presence. I didn't \*want\* an imaginary friend anymore, \*I was too old for that\*, and yet he remained in his ever-whimsical state. At this point, he wasn't really something my mind conjured up in the flesh, but he lived within my mind. I only regret convincing myself he wasn't there, because for the years I ignored his existence, he never spoke to me. It was as if something had forbade him from doing so, yet kept him lingering in the back of my mind anyway. But as I grew into my later teens and longed for the simplicity of my earlier youth and all its lack of responsibility, I lay on the wide ledge outside my bedroom window on a clear night and began to think of Thomas again. And as if he had never left, he stood before me once again. I was old enough at 17 to know that this was no imaginary friend, but suddenly noticed something that had passed me by at first through childish ignorance and later simple disdain. There was a desperate sort of sadness lingering deep within the boy's eyes. It was like a filter had been lifted and I could at last glimpse beyond the joyous façade and stare into what had been in front of me for a great deal of my childhood.
+Anyway, Thomas stuck with me throughout my pre-teen and early teen years even when I - influenced by the rigid maturity expectations thrust onto growing boys and girls - showed contempt at his persistent presence. I didn't \*want\* an imaginary friend anymore, \*I was too old for that\*, and yet he remained in his ever-whimsical state. At this point, he wasn't really something my mind conjured up in the flesh, but he lived within my mind. I only regret convincing myself he wasn't there, because for the years I ignored his existence, he never spoke to me. It was as if something had forbade him from doing so, yet kept him lingering in the back of my mind anyway. 
+
+
+
+
+
+But as I grew into my later teens and longed for the simplicity of my earlier youth and all its lack of responsibility, I lay on the wide ledge outside my bedroom window on a clear night and began to think of Thomas again. And as if he had never left, he stood before me once again. I was old enough at 17 to know that this was no imaginary friend, but suddenly noticed something that had passed me by at first through childish ignorance and later simple disdain. There was a desperate sort of sadness lingering deep within the boy's eyes. It was like a filter had been lifted and I could at last glimpse beyond the joyous façade and stare into what had been in front of me for a great deal of my childhood.
 
 
 

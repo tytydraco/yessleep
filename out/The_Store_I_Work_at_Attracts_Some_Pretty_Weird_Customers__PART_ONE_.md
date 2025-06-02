@@ -26,7 +26,7 @@ Of course, that isn’t how it started, but you know how these things go. I’ll
 
  
 
-**April 2023**
+**May 2025**
 
 “Ack, dammit. It’s definitely going to rain.” I grumbled to myself as I looked overhead at the quickly forming storm clouds.
 
@@ -277,5 +277,9 @@ Anyways, one of the most major events to occur at the store was that of the cat 
  
 
 My shift is about to start, and God knows what’ll come through those automated corporate doors.
+
+-EDIT-
+
+Changed some dates. Years and months tend to get mixed up when you work a job like mine.
 
  
