@@ -1,7 +1,5 @@
 **\[=----Prologue----=\]**
 
-  
-  
 Rodney P. Lomax was a murderer. Everyone knew it. He killed fellow Confederate officer Matthew Voit in his sleep on May 5th, 1864. A point-blank shot, straight into the forehead. Lomax, of course, denied this. He claimed that Voit was a coward, and, rather than face battle in the upcoming days, chose to take his own life. The revolver that fired the fatal shot was Voit’s own, a .36-caliber Colt Navy, found clutched in the dead man’s hand. But everyone knew.
 
 Rumors spread like wildfire among the troops of the 12th Virginia Infantry, encamped near Spotsylvania Courthouse. In the days before the shooting, hushed whispers carried tales of Voit having seduced Lomax’s fiancée, Eliza Harper, the night before their wedding in the summer of 1860. The scandal had been buried when the war broke out, but wounds like that don't just go away. They fester beneath the surface, waiting to boil over.
@@ -26,12 +24,8 @@ The men of the 12th Virginia spoke softly but often of Rodney P. Lomax in the fo
 
 Voit's body was eventually exhumed and reburied in what would become a historic Confederate cemetery within walking distance of the courthouse. And it was there, at the site of his grave, in the spring of 2018, that my life was set down a path that would lead to horrors I could not have ever even dreamt of imagining. The saying goes that dead men tell no tales... but as I would soon discover, Rodney P. Lomax was no dead man.
 
-
-
 **\[=----Part 1----=\]**
 
-  
-  
 In March of 2018, I found myself standing at the edge of a Confederate cemetery near Spotsylvania Courthouse, my dirty Timberland boots sinking slightly into the damp Virginia soil. The ground was just beginning to birth some of the yellow springtime flowers I could never seem to identify, and the air carried the faint sweetness of blooming dogwoods.
 
 I was 20, a lanky, awkward Catholic kid who’d been homeschooled his whole life, raised on books and faith in a family that had uprooted from Texas to Virginia a decade earlier. I’d visited the graveyard on a whim, tagging along with my parish’s young adult group after John-Paul Kingston, the first real friend I had made after joining the group, suggested a “history hike” to explore local Civil War sites. The cemetery was to be our final stop. The others that were present—Karen Archer, Grace Voit, Dave O’Donnell, Robby Solomon and Kathryn White—were scattered nearby, their voices a low hum as they read inscriptions or snapped photos. But my eyes were fixed on one weathered marker:
@@ -50,8 +44,8 @@ I stayed kneeling at the grave longer than any normal human being would have. Ka
 
 "You're acting like you're waiting for the guy to sit up and shake your hand," she muttered, pulling her hoodie tighter around her, the frayed black sleeves bunching at her wrists as she hunched slightly against the breeze.
 
-Karen's red-dyed hair, vibrant like coals beneath ash, fluttered across her pale cheeks in the wind, half-obscuring the kohl-lined eyes that always seemed to carry too much emotion for someone trying so hard to act indifferent. She wore a faded band tee under the hoodie—some obscure post-punk group I couldn’t name—and her jeans were torn at one knee, not from fashion but from wear. There was something unapologetically real about her, the kind of rawness I didn’t know how to understand or appreciate then. Her sarcasm was a shield, I think, and her loud laugh a cover for some deeper silence she didn’t want to hear. She always seemed to approach me to talk, and while I enjoyed her company, I honestly just didn’t see her as a woman then—not really. To me, she was just Karen. A friend. The one who always showed up, even when no one asked her to.  
-  
+Karen's red-dyed hair, vibrant like coals beneath ash, fluttered across her pale cheeks in the wind, half-obscuring the kohl-lined eyes that always seemed to carry too much emotion for someone trying so hard to act indifferent. She wore a faded band tee under the hoodie—some obscure post-punk group I couldn’t name—and her jeans were torn at one knee, not from fashion but from wear. There was something unapologetically real about her, the kind of rawness I didn’t know how to understand or appreciate then. Her sarcasm was a shield, I think, and her loud laugh a cover for some deeper silence she didn’t want to hear. She always seemed to approach me to talk, and while I enjoyed her company, I honestly just didn’t see her as a woman then—not really. To me, she was just Karen. A friend. The one who always showed up, even when no one asked her to.
+
 She pushed her pink-gold rimmed glasses up her nose a bit further as I pondered a response.
 
 "Seriously, though… you okay?" She asked.
@@ -94,7 +88,9 @@ I looked up then, finally meeting her eyes. “What?”
 
 Karen furrowed her eyebrows. “That’s not true.”
 
-I didn’t catch her meaning then. Or maybe I just didn’t want to. I had eyes only for Grace."Look, a Nest Ball." Karen said suddenly, with a childish grin, displaying the now balled up twig she had been clutching.
+I didn’t catch her meaning then. Or maybe I just didn’t want to. I had eyes only for Grace.
+
+"Look, a Nest Ball." Karen said suddenly, with a childish grin, displaying the now balled up twig she had been clutching.
 
 "Huh?" I replied, staring blankly for a moment, failing to catch the reference to Pokémon, one of our common interests.
 
@@ -184,7 +180,7 @@ I sighed and ran a hand through my dirty-brown hair as I considered the contents
 
 Then it hit me. Of course! The letter contained no mention of Lomax’s desertion that had taken place the day before. I double-checked the date on the Historical Society document, and sure enough, it confirmed that Lomax had deserted on May 15th. Why would Colonel Tate neglect to mention this in a letter he wrote a day later, and instead seemingly defend Lomax’s integrity? Maybe I was overthinking it, but regardless, it gave me reason to continue grasping onto the murderer angle. If Tate had covered-up Lomax’s desertion, why couldn't he have also covered up a murder?
 
-I turned up little else with searches related to Voit. My mom was kind enough to bring me my dinner upstairs, since she was under the impression that I was worn out. I was grateful, but barely touched my food as I was too caught in my own web of investigation. Eventually, I figured that I had exhausted most further keywords to search without anything worthwhile having popped up, until I realized that I could search the Courthouse cemetery itself. I typed "Spotsylvania Courthouse Cemetery" and hit enter. I discovered immediately that it was going to be way too difficult to filter through every single result for that, so I narrowed it down to "Spotsylvania Courthouse Cemetery Voit." There were no results for that prompt, so instead I tried the same, but with Lomax’s name instead. Still nothing. I sighed, and in desperation typed "Spotsylvania Courthouse Cemetery Ghost" and again hit the enter key. I was completely flabbergasted when a single, solitary reddit post appeared from user user Groundhoggit2 on June 8th, 2011, titled: 
+I turned up little else with searches related to Voit. My mom was kind enough to bring me my dinner upstairs, since she was under the impression that I was worn out. I was grateful, but barely touched my food as I was too caught in my own web of investigation. Eventually, I figured that I had exhausted most further keywords to search without anything worthwhile having popped up, until I realized that I could search the Courthouse cemetery itself. I typed "Spotsylvania Courthouse Cemetery" and hit enter. I discovered immediately that it was going to be way too difficult to filter through every single result for that, so I narrowed it down to "Spotsylvania Courthouse Cemetery Voit." There were no results for that prompt, so figured I'd try the same, but with Lomax’s name instead. Still nothing. I sighed, and in desperation typed "Spotsylvania Courthouse Cemetery Ghost" and again hit the enter key. I was completely flabbergasted when a single, solitary reddit post appeared from user user Groundhoggit2 on June 8th, 2011, titled: 
 
 *Has anyone else seen the chained man?*
 

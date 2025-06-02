@@ -4,7 +4,7 @@ Three years later, we got married. The following spring, we had our son, Nichola
 
 Again, I'd like to emphasize that we've lived what I’d call a pretty normal life. We’ve had our ups and downs, but have never experienced anything quite like what I’m about to share.
 
-Three weeks ago, Nicholas pulled it this little gizmo out of his backpack. At first glance, it reminded me of a Tamagotchi. A little piece of plastic that easily could fit in your pocket. Three or four little buttons on the bottom and a cheap display up top. However, the design wasn't colorful like I remember Tamagotchi's being. It was black and grey; from a distance you could easily mistake it for some kind of medical device. And even stranger, I never could actually see any 'pet' on the display. Either way, Nori and I hadn't any clue where he got it from, we presume a friend at school must've gifted it to him. He called it his "Tether Pet" and was nothing short of *obsessed* with it. 
+Three weeks ago, Nicholas pulled this little gizmo out of his backpack. At first glance, it reminded me of a Tamagotchi. A little piece of plastic that easily could fit in your pocket. Three or four little buttons on the bottom and a cheap display up top. However, the design wasn't colorful like I remember Tamagotchi's being. It was obsidian black; from a distance you could easily mistake it for some kind of medical device. And even stranger, I never could actually see any 'pet' on the display. Either way, Nori and I hadn't any clue where he got it from, we presume a friend at school must've gifted it to him. He called it his "Tether Pet" and was nothing short of *obsessed* with it.
 
 I mean, I could understand. I remember getting a Tamagotchi for Christmas when I was his age. It felt like you were responsible for some other life-form. Your relationship with the toy often felt like a life or death situation. Nicky was certainly under a similar spell.
 
@@ -42,7 +42,7 @@ I let out a laugh.
 
 Nori and I laughed. *Oh, the simple joys of parenthood.*
 
-We arrived at Aki's room only to be held back by a couple of nurses. They asked us to wait while  Grandma's bedpan was changed. It saddened me to think about how Aki had wilted over the past year. It didn't seem long ago she was in our living room bouncing Nicky on her knee, singing that silly old horse racing anthem. 
+We arrived at Aki's room only to be held back by a couple of nurses. They asked us to wait while  Grandma's bedpan was changed. It saddened me to think about how Aki had wilted over the past year. It didn't seem long ago she was in our living room bouncing Nicky on her knee, singing that silly old horse racing anthem.
 
 "Bum da da bum da da bum bum bum, bum da da bum da da bum bum bum..."
 
@@ -58,11 +58,11 @@ Nicky seemed to snap out of his fog with her in sight, running to her bedside.
 
 "Grandma!"
 
-Aki tried to roll over and muster a hug for his reception, but it was clearly too much for her. 
+Aki tried to roll over and muster a hug for his reception, but it was clearly too much for her.
 
 Nori and I followed close behind. This had become a very difficult ritual for Nori to get used to.
 
-Aki told us about how her treatment had been going. How she was always in pain, but that there was a still a chance she could get through it. I don't know why but I never had any real faith that she would. I guess I've just seen this scenario play out one too many times. In my experience, at least, it never ended how we all prayed each night that it would. 
+Aki told us about how her treatment had been going. How she was always in pain, but that there was a still a chance she could get through it. I don't know why but I never had any real faith that she would. I guess I've just seen this scenario play out one too many times. In my experience, at least, it never ended how we all prayed each night that it would.
 
 After some more light conversation and updates on work, school, etc. Nicky pulled out his 'Tether Pet'.
 
@@ -96,7 +96,7 @@ At this point, I decided it was time to do some father-ing. I took a knee.
 
 "Listen Nicholas. I understand your toy is important to you, but its just that right...? A toy. So let's sit down and eat the dinner Mama made us and we can take a look after. Ok?"
 
-I gave him that stern-but-tender look a father gives to ensure his way. Nicky nodded solemnly; I gave him a hug and a rub on the back. 
+I gave him that stern-but-tender look a father gives to ensure his way. Nicky nodded solemnly; I gave him a hug and a rub on the back.
 
 All throughout dinner Nicky avoided our usual conversation starters. How was school? How was soccer practice? What do you want to do this weekend... etc. It was clear his mind was racing. It really rubbed me the wrong way. I don't remember ever being *this* stressed about my Tamagotchi. Just then, Nori's phone rang. She moved to the edge of kitchen to take the call. I watched as her face slowly settled into a more serious expression as she listened to the other end. She responded with simple short acknowledgements of what she was hearing as she walked over to the living room.  She hung up and began to put on her coat.
 
@@ -116,9 +116,9 @@ I looked to Nicky and provided a distraction.
 
 Nicky nodded his head frantically, clearly unwilling to wait a even second longer.
 
-We looked around the house for quite some time. He was certain he had come home with it, so I was pretty determined to help him find it. It really felt like looking for a needle in a haystack, though. It wasn't until we were just about to give up that we found it, fallen beneath the shoe rack near his backpack. 
+We looked around the house for quite some time. He was certain he had come home with it, so I was pretty determined to help him find it. It really felt like looking for a needle in a haystack, though. It wasn't until we were just about to give up that we found it, fallen beneath the shoe rack near his backpack.
 
-I thought for sure we'd have some small celebration of our efforts, but Nicky didn't even smile. He just picked it up and began to shake his head. 
+I thought for sure we'd have some small celebration of our efforts, but Nicky didn't even smile. He just picked it up and began to shake his head.
 
 "Ah man..."
 
@@ -222,7 +222,7 @@ I pulled him in for a hug.
 
 "Death is what makes life special. Its what makes each moment count. It's a good thing."
 
-Snot was running down Nicky's nose onto my shoulder. 
+Snot was running down Nicky's nose onto my shoulder.
 
 "But I don't want Baba to die..."
 
@@ -254,13 +254,13 @@ Nori seemed frustrated that I had ignored her question.
 
 "Uh... Gaba? or *Baba*... I think? Babe, you and Nicky need to meet me at Mount Sinai."
 
-A jolt of fear struck down my spine. All of a sudden my mind felt like it was racing ahead of me. 
+A jolt of fear struck down my spine. All of a sudden my mind felt like it was racing ahead of me.
 
 My mother in-law's mortality being connected to a toy was quite the leap, I know... but in that moment, it truly felt crystal clear. How could this happen? It felt like the most basic rules of reality were simply torn out from under me. I had to move; fast.
 
 "We're on our way."
 
-A wall of obsidian grey clouds lay heavy above our neighborhood. Nicky and I piled into the car. 
+A wall of obsidian clouds lay heavy above our neighborhood. Nicky and I piled into the car.
 
 "Daddy... where are we going?"
 
@@ -288,7 +288,7 @@ Nothing. I ran around the building towards the gymnasium. Locked. I was really s
 
 It occurred to me that this really could just be a crazy coincidence. That my mother in-law was dying right now and I was here in the rain trying to break into an elementary school.
 
-But then I noticed a tether ball stand. Held down by a weighted tire. 
+But then I noticed a tether ball stand. Held down by a weighted tire.
 
 I ran over to it, flipped it on its side, and with all my might pushed it towards the base of where the window was. I got a good grip on it, and started to climb. If I could balance on the top, I should just be able to reach the windowsill. The rain made my hands slippery, but I just focused on Aki; on 'Baba'.  I felt a bellow of thunder rumble through the sky and knew my time was running out.
 
@@ -298,16 +298,13 @@ Just as I reached the top, I heard:
 
 Nicky was standing at the base of the tetherball pole. Clearly scared, drenched in the rain. I called out to him.
 
-*"Wait right there! I'll be ba-"*  
+*"Wait right there! I'll be ba-"*
 
+***BAM!*** ***A crack of blinding white light...*** and then total black.
 
-***BAM!*** ***A crack of blinding white light...*** and then total black.  
+I don't remember anything after that. Just some vague limbo of nothing.
 
-
-I don't remember anything after that. Just some vague limbo of nothing.  
-
-
-I woke up laid up in a hospital bed. My body was aching all over. Craning my neck around I pieced together that I was in Mount Sinai Hospital in Queens. I had no idea how much time had passed. Nori and Nicky entered the room shortly after. My mind began to fill up with questions, but I was too weak to get them out. I just laid there in a daze. Nori started crying. Nicky stood like a statue, just staring at the floor. I felt like Lazarus, back from the dead. 
+I woke up laid up in a hospital bed. My body was aching all over. Craning my neck around I pieced together that I was in Mount Sinai Hospital in Queens. I had no idea how much time had passed. Nori and Nicky entered the room shortly after. My mind began to fill up with questions, but I was too weak to get them out. I just laid there in a daze. Nori started crying. Nicky stood like a statue, just staring at the floor. I felt like Lazarus, back from the dead.
 
 The first question I managed to ask was if Aki was still with us.
 
@@ -322,7 +319,7 @@ but I'm still here... I have no idea when I'll get out-
 
 But this isn't the reason I'm sharing any of this is now. It's because of what just happened to me, only a couple hours ago now.
 
-A man came into my room while I was sleeping, unannounced. 
+A man came into my room while I was sleeping, unannounced.
 
 He looked like a Doctor, but didn't state himself as one.
 
@@ -330,7 +327,7 @@ Simply, he placed his hand over mine.
 
 "Give it to someone you trust."
 
-Then he left. I could feel a soft plastic object left behind in my palm, but it was too dark to see... when suddenly a little display lit up. 
+Then he left. I could feel a soft plastic object left behind in my palm, but it was too dark to see... when suddenly a little display lit up.
 
 8-bit text floated across the bright screen:
 
@@ -338,7 +335,7 @@ Then he left. I could feel a soft plastic object left behind in my palm, but it 
 
 The text faded, leaving only my own bloodshot eyes gazing back at myself. Nicholas used to call me that.
 
-I feel so lost right now. I feel so hopeless. I don't know what any of this means, or what I am supposed to do. If anyone has gone through something like this, or know someone who has, please tell me. 
+I feel so lost right now. I feel so hopeless. I don't know what any of this means, or what I am supposed to do. If anyone has gone through something like this, or know someone who has, please tell me.
 
 I feel so alone.
 
