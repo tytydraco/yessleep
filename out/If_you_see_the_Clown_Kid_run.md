@@ -28,7 +28,9 @@ It was the Clown Kid. He stared at me with deep, pleading eyes.
 
 “Um…”
 
-I craned my gaze for his parents. But no adults were paying attention to him. Everyone was busy watching their own children.    “Sorry. I’m busy.”
+I craned my gaze for his parents. But no adults were paying attention to him. Everyone was busy watching their own children.    
+
+“Sorry. I’m busy.”
 
 “Pleeeeeeease.”
 
