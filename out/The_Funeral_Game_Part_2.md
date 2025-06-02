@@ -104,7 +104,7 @@ Joel and I shared a worried glance before lifting up the lid. It was much harder
 
 “Are you sure you want to do this, Abby?” I couldn’t hide the unease in my voice.
 
-She cinched her lips tight and nodded. Then, we slid the lid over her. 
+She cinched her lips tight and nodded. Then, we slid the lid over her.
 
 Outside, the breeze picked up, tugging at our clothes and whipping our hair as we made our laps around the mausoleum.
 
@@ -252,4 +252,4 @@ I opened the letter as soon as I got home:
 
 “I know where Abby went. If you’re reading this, then I’ve gone there, too. There’s a place between the coffin and the grave. I feel like part of me is still down there and something else came back in my place. I see it in the mirror, and I can feel it taking over. My body doesn’t want whatever this thing is. Every day I’m closer to death. I find bugs in my clothes and my bed sheets. I can barely sleep. When I close my eyes, noises like horns explode in my head. I murmur to myself but I don’t know what I’m saying. I smell death everywhere. There’s no coming back for me, but you know the rules. As long as your candle stays lit, there’s hope for you. You can find her again. All you need is in the box.”
 
-I folded the letter and unlatched the cigar box. Inside was the rusty iron key.
+I folded the letter and unlatched the cigar box. Inside was the [rusty iron key](https://www.reddit.com/r/nosleep/comments/1l1mhwx/the_funeral_game_final/).
