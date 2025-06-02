@@ -7,7 +7,7 @@ Alma held the door open and extended an arm into the darkness.
 
 Fear swelled in my gut. I sifted through my memories and once again pulled Nia’s reassuring voice to the forefront.
 
-Focus and breathe.
+*"Focus and breathe."*
 
 My eyes widened. I took a sharp inhale. My heart slammed into my rib cage.
 
@@ -21,7 +21,7 @@ She spoke again.
 
 Without my permission, I heard her again.
 
-One foot in front of the other, Elena.
+*"One foot in front of the other, Elena."*
 
 Without a shred of hesitation, I stepped over the threshold.
 
@@ -119,11 +119,11 @@ Boundless fear re-energized my futile marathon.
 
 Not sure how long I ran for. Could have been months, could have been minutes. Time was a pliable metric in the black catacombs: it was a recommendation, not a requirement.
 
-Eventually, a hand laid itself on my shoulder. The touch felt gentle. Delicate. Part of me hoped that tenderness was a ploy. Something to lull me into a false sense of security while it creeped along my collarbone, looking to wrap itself around my neck and squeeze the life out of me. A mercy killing. There didn’t seem to be a physical way out of the darkness, so death appeared to be the only true exit.
+Eventually, I stopped moving, and a hand laid itself on my shoulder. The touch felt gentle. Delicate. Part of me hoped that tenderness was a ploy. Something to lull me into a false sense of security while it creeped along my collarbone, looking to wrap itself around my neck and squeeze the life out of me. A mercy killing. There didn’t seem to be a physical way out of the darkness, so death appeared to be the only true exit.
 
 Unfortunately, that was not the hand’s intent. It spun my body around, and then the mouth that was attached to it spoke.
 
-*“You must be tired now, yes? Are you ready to sleep? You’ll need your energy for tomorrow’s sessions.”* Alma cooed, like a mother to child whose temper tantrum was finally abating.
+*“You must be tired now, yes? Are you ready to sleep? You’ll need your energy for tomorrow’s sessions.”* Alma cooed, like a mother to a child whose temper tantrum was finally abating.
 
 Not thinking, I didn’t say anything. Instead, I silently nodded.
 
