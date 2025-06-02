@@ -78,7 +78,7 @@ So that's what we did, that same day we reported my phone missing and that we ha
 
 The following day, another text went through. This time it was my dad who received it.
 
-"uj NSjo" What did these mean? I was beginning to think my phone was being haunted by a CAPTCHA generator. None of this made any sense. I stared and stared at the strange message, contemplating its meaning, when something hit me. The strange correlation I had made in my head with the CAPTCHAs gave me a revelation. CAPTCHAs are randomly generated. This led me to the idea of anagrams. I’d been obsessed with anagrams and codes as a kid, so I decided to put these to the test, dreading what I may find.
+"uj NSoi" What did these mean? I was beginning to think my phone was being haunted by a CAPTCHA generator. None of this made any sense. I stared and stared at the strange message, contemplating its meaning, when something hit me. The strange correlation I had made in my head with the CAPTCHAs gave me a revelation. CAPTCHAs are randomly generated. This led me to the idea of anagrams. I’d been obsessed with anagrams and codes as a kid, so I decided to put these to the test, dreading what I may find.
 
 I found a website that solved anagrams but none of the words stuck out to me, so I opted for one that solved for multiple words. I hit enter. I scanned the screen through multiple nonsensical pairs of made-up words when I saw one that stood out like a sore thumb.
 
