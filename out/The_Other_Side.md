@@ -1,0 +1,19 @@
+I Wesley Fletcher shot myself three days ago and now I’m here. I know vague but it’ll make some sense. I woke up on the ground three days prior to writing this after shooting myself. The last thing I remember is committing to squeezing the trigger, then darkness no flash, no bang, and most unfortunate for me no light to follow, at least not the light I expected.
+
+It took longer than I expected, it was a hellishly dark wait. Eventually I felt heat, I could see a glow, and over time I began to feel the fact that my eyelids had been clasped alarmingly hard. Opening my eyes here made me feel like a newborn, the sun in my eyes synonymous with the sterile lights in a hospital too strong for my adolescent eyes. Much like an infant I too cried. 
+
+I don’t know how long I sat there lamenting but eventually I got up. Unsure of where I could be I started walking and didn’t stop until I got into a town. Turns out I woke up somewhere outside of the small town in West Virginia I was currently in. You guys still use money so I did what people used to do where I come from, I stood with a cup and a sign asking for money.
+
+ Luckily I was only there for a day before a truck pulled up beside me. “You alright friend?” the guy driving asked “yeah I’m alright… I just need money if you have some.” “Do you have somewhere I could take you, someone who cares about you?” “nope.” “Alright come on, get in you can stay with me for a few nights i’ll get you back on your feet but after that your on your own, deal?” “Yeah of course!” I responded almost crying again but not out of sadness.
+
+When we got to his house he made me some food. Over dinner he asked me a multitude of questions, the biggest one that stood out to me was “Why did you trust me, not that you shouldn’t have that could just get you hurt, you know that right?” I in fact did not, that being said I didn’t want to seem stupid so I responded with “It just seemed worth the risk.” “It’s a shame folks have to think that way.” 
+
+After dinner he showed me to a spare room something that stood out that night was the fact that you guys lock almost every surface of your houses, I didn’t ask why animals would try to get in “maybe that’s common here.” I told myself. That night I slept the best I had in years. 
+
+ The morning was similarly calm, until I left my room. Bobby was up Watching the news. I was expecting the weather and maybe politics, but what realized is that this place way less like my home than I thought. Wars caused for no reason, streets full of the impoverished, and worst of all people are killing each other over made up reasons like “gang territory” and “racial differences”.
+
+Even then I still find myself smiling more often here. It doesn’t make sense I should be less happy, this earth has more violence and over all people are less happy but I find myself truly blissful. Bobby gave me an old phone and we went to different websites to file job applications, He also got me some clothes. 
+
+This morning I used my phone to do two things. The first was I confirmed my theory, I don’t know how but I’m almost certain I’m in a parallel universe. Then after some research I found this place. It seems like I’m the only person who’s experienced this but you guys read about some crazy stuff here, maybe someone who reads this will believe it. Even if not I’m just glad I found somewhere to say my story without sounding insane. 
+
+With that said, I have questions that I think will never get answers and I’d like to share them. The first is, does this happen to everyone when they die. The second is, if it doesn’t happen to everyone then why me. And the third is, am I dead and is this just “the other side“.
