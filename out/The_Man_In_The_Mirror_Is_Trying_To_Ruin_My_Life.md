@@ -60,7 +60,7 @@ His silent face leered at me, disappearing behind the darkness, blotting out my 
 
 Then he loosened his grip, his smile growing even wider, splitting his lips. His hand was cold on my hot cheeks, pinching them between his thumb and fingers. A low mutter followed, and I think he said:
 
-‘I am as much you as you are me, I suggest you stay in this hovel, or go throw yourself before some bus or from some derelict triple-story building. Whatever it is you intend to do with the rest of your miserable life, stay out of my way. I have been afforded a life you wasted – *I* will not waste it.’
+“I am you, you are me, you are I and I am we, we are one split in two, to kill me you’ve got to kill you. I suggest you stay in this hovel, or go throw yourself before some bus or from some derelict triple-story building. Whatever it is you intend to do with the rest of your miserable life, stay out of my way. I have been afforded a life you wasted – *I* will not waste it.”
 
 With that, he left, slamming the door on his way out.
 
