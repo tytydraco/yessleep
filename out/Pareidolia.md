@@ -1,5 +1,551 @@
-Ok, you are going to think I am crazy, but I need to get this off my chest, and I can't risk getting committed, again. So, I am going to do this anonymously. Seems safer. See, thing is I see faces. Everywhere. In the trees, the clouds, the rocks, even my morning coffee and the grills of the cars on my commute. Eyes, mouths and noses can appear from even the most mundane objects, fading into reality from anywhere, at any time. Sometimes they are large, sometimes small, but they are everywhere I look. Now, I know what you are going to say, I have heard it a thousand times before. Everyone sees them. It's called pareidolia. It is just an illusion. Our minds are programmed to see faces, even if they aren't really there. Trust me, I know that, probably better than anyone. I've heard it from every doctor, therapist and friend I've ever told about this. Thing is, as far as I can tell, when other people see those faces, the eyes don't follow them across the room, or wink when they see you watching, and the mouths don’t whisper silent secrets to you. Or maybe they do, and everyone just refuses to talk about it. I don't know. I don't really ask people about it anymore. Not since my last stay in an institution, anyway. But I am going to assume that isn't the case, because I doubt that everyone I have ever met is that good of an actor.   
-Regardless, when I was a teenager, I actually thought it was kind of cool. If no one could see them, then that made it my own little secret, you know? At one point, I even learned to read lips, so I could try and figure out what they were saying. Got pretty good at it, but still couldn't decipher anything, in the end. As far as I can tell, they don't speak any language I have ever heard or seen before. And they don't seem to like when I watch them too closely, either. I can't explain exactly how I know that, but the dread that creeps up my spine when they turn their eyes to me is always clear enough. Since no one seemed to want me noticing them, human or otherwise, I learned to ignore them, over time. As I got older, I pretended that the twitches and smiles and blinks were just tricks of the light, or my own, flawed vision. I pretended that it was all just the result of my mind’s propensity to see faces in meaningless patterns, like everyone says. And, for a while, that worked. Things were normal, enough. But lately... lately it's been getting worse.   
-I don’t really know when it started, it was such a gradual thing. But eventually, I realized that the faces have been getting... clearer, harder to overlook. Now, sometimes, I can see the features so clearly, not just the faint outline of a pair of eyes, or a mouth, but everything. Hair, lips, skin, even eye color. Often only for an instant, only out of the corner of my eye. I’ll catch glimpses of eyes that are red, or amber, surrounded by sclera dark as the night sky, or lips paler than the skin, but just as grey. But it's the teeth that scare me. Dozens, maybe hundreds of teeth, I can't be sure. But I am sure that each ends in a point as sharp as a needle. They haunt my dreams and waking moments in equal measure. And they are getting closer. Like peering through a fogged window, objects get sharper as you get nearer to the glass. Still, clear as they were, they were still just images. I tried to push them out of my mind. Then, Thursday night happened.   
-I was just watching TV, trying to distract myself. I'd spent the day taping over my electrical outlets, and I needed to relax a bit. The evening news showed three skiers trapped up in the mountains, and they had a helicopter in the air covering the rescue. As I watched the footage, the blanket of snow, rocks & trees spread out across the screen and tiny people in bright orange moved across the surface. It took a moment, but suddenly I saw the eyes in the rocks, and the nose in the trees, and the cavernous mouth carved out of a glacial crevasse. The eyes flicked up, following the chopper above, and pebbles skittered down the hill as they moved. The rescue team was skiing along the crevasse, nearing the trapped party, when I saw the mouth open, stretching into a broad, wicked smile. The ice shuddered and shifted, then a ledge of snow broke loose and began hurtling down the hill, a massive tongue of ice and powder. I imagine there were screams as the little orange specs were swept-into the gaping maw, like pieces of cheddar popcorn, but none of that was audible on the live feed. What was visible was the blood on the points of those needle-sharp teeth, before they closed tight in a satisfied smirk. The feed cut.   
-I think that they are close to touching this plane now, and I don't know what that means for those of us who are already here, or if there is anything we can do about it. But keep your eyes peeled. You are programmed to see their faces for a reason, even if only the outlines, shapes formed from otherwise prosaic objects. Don’t listen to what others might tell you. They aren't an illusion, or a trick of the mind. They are real. And they are nearly here.   
+# Pareidolia. noun    :
+
+Pareidolia is the tendency for perception to impose a meaningful interpretation; the  instinct to seek familiar forms in random or amorphous data, or nebulous stimulus, usually visual, so that one detects an object, pattern, or meaning where there is none.
+
+  
+  
+  
+  
+
+
+“Slow down! Calm yourself and tell me *exactly* what happened.” The officer said.
+
+
+
+“Okay… Okay…” I took a deep breath…
+
+
+
+“So basically…
+
+  
+  
+
+
+We’d been in the car for hours now, the sun already setting behind the rocky mountains, we were all barely keeping awake, except for Leo, since he was the one driving. 
+
+
+
+We didn’t have a lot of time left all together, so we decided to all go on a camping trip together since Kaycee was going to move abroad to study at some fancy university and Jayce was going to LA. 
+
+
+
+Leo, Jayce, Kaycee, Liza, and I have always been friends, you’d always catch the 5 of us hanging out together. 
+
+
+
+Jayce and Kaycee were twins, I’ve known them since kindergarten, our parents were good friends. 
+
+
+
+I wasn’t as close to Liza as the rest of the group, we didn’t really hang out just the 2 of us, mostly with the group, but she was still a good friend of mine. 
+
+
+
+And there was also Leo. I’ve known him forever, he’s my best friend.
+
+
+
+The place was in the mountains, great view up there, beautiful place. It’s almost dark when we get there, so we hurry to move our things into the tents and organize the place. We set up stools around the fire pit where we were going to roast marshmallows and sausages, while Leo went out to collect firewood. 
+
+
+
+We laid out chairs, drinks, and food while we waited for him to come back. We had brought marshmallows, sausages, and a 6-pack of soda. 
+
+
+
+Thunder struck. 
+
+
+
+“Uh-oh. It’s raining… Good thing the area around the pit is covered.”
+
+
+
+Leo soon came back with the wood for the fire and placed it in the fire pit. We were all ready to prepare our sausages in the fire with our skewers.
+
+
+
+“Hey, you guys didn’t even bother to set a chair for me?” Leo intervened.
+
+
+
+“No, we--  We did, we set up every chair!” I look at Kaycee, knowing we set up all of our chairs. 
+
+
+
+All the chairs were filled, despite Leo being standing.
+
+
+
+“Well, clearly not… Anyways, I’ll go set my tent…” Leo set off to the car to grab his tent and set it up.
+
+
+
+Kaycee, Jayce, Liza, and I started on getting dinner ready: we decided to grill the sausages on the skillet instead of using the skewers, we also opened up our sodas.
+
+
+
+“I’m bored, let’s play something, I brought cards.” Jayce spoke up, pulling a golden standard 52-card deck from his pocket.
+
+
+
+“Okay, we can play--  Hey! Is that my deck?? Just because we’re twins doesn’t mean you can take my stuff!”  
+
+
+
+“Oh, relax Kaycee, they’re just cards! Anyways, yeah, I’m down to play something while we wait.”  I set down my drink after speaking.
+
+
+
+“Yeah, me too.”
+
+
+
+“I agree, but what would we play?” 
+
+
+
+“What about Go Fish?” Jayce looked at us, waiting for approval.
+
+
+
+“Go Fish?? I mean… Sure, why not? 10 cards each?”
+
+
+
+Jayce started dealing the cards to each player.
+
+
+
+“Huh…  That’s strange… There’s no cards left besides the jokers…” Jayce looked around.
+
+
+
+“You did something wrong, man.” Liza looked at him confused.
+
+
+
+“Wait… Let me redo.” Jayce recollected all the cards and dealt them again. 
+
+
+
+“Okay, what’s going on?” Jayce had no leftover cards again.
+
+
+
+“You’ve never been good at math, huh Jayce?” Kaycee was mocking her twin as usual.
+
+
+
+“How many hands are you dealing? Leo isn’t back yet…” I took another sip of my soda and set the now empty can next to the empty 6-pack.
+
+
+
+“Why are there five hands of cards dealt?”
+
+
+
+“Because we’re in five.”
+
+
+
+“But Leo isn’t here…”
+
+
+
+We all looked at eachother.
+
+
+
+I stood up.
+
+
+
+“Everyone stand up and hold hands.”
+
+
+
+They all stood up from their chairs and held hands.
+
+
+
+“Now, say the name of whoever is to your right.”
+
+
+
+“Alex.”
+
+
+
+“Jayce.”
+
+
+
+“Kaycee.”
+
+
+
+“Liza.”
+
+
+
+“Alex.”
+
+
+
+I looked at Liza.
+
+
+
+“No, someone already said my name…”
+
+
+
+Liza looked at me and we both looked at our hands.
+
+
+
+“We’re definitely holding hands… What’s going on…? Let’s try again, but to the left now… I’ll go first. Liza.”
+
+
+
+“Kaycee.”
+
+
+
+“Jayce.”
+
+
+
+“Alex.”
+
+
+
+“Liza.”
+
+
+
+A chill ran down my spine. Liza looked around and spoke up.
+
+
+
+“Okay… Someone said my name twice… Who was the last to speak?”
+
+
+
+“Jayce.” I looked at him.
+
+“Alex.” Jayce spoke up at the same time.
+
+
+
+“No, it was you, I was the first to say a name.” I rebutted.
+
+
+
+Liza pulled her phone out and placed it next to the firepit.
+
+
+
+“Let’s take a picture, that way we can see everyone.”
+
+
+
+We all stood back. The camera snapped. Liza looked at the picture, showing it to us.
+
+
+
+“There’s me, Kaycee, Jayce, and Alex. That's everyone.”
+
+
+
+“It’s not a selfie. Who took the photo?” Jayce spoke out, shaking his head.
+
+
+
+“Leo.”
+
+
+
+“But Leo isn’t here.” I pointed out.
+
+
+
+Kaycee pointed at the fire.
+
+
+
+“The sausages are ready. We must be hungry, that’s why we’re confused…”
+
+
+
+Kaycee’s attempt to comfort us wasn’t working. Something was wrong.
+
+
+
+“It stopped raining, I’ll go get Leo…” I walked away from the fire, heading towards the tents.
+
+
+
+“Leeeeo…. Where are you??”
+
+
+
+“Over here!” He was crouching down next to his tent.
+
+
+
+“What’s taking you so long?” 
+
+
+
+“Look.” He pointed at the ground.
+
+
+
+“What? Footprints?”
+
+
+
+“Count them. How many are there?”
+
+
+
+“Five pairs. What’s wrong?”
+
+
+
+Leo looked around.
+
+
+
+“Five pairs coming from the car. You guys went to the car to get the skillet, right?”
+
+
+
+“Right. And?”
+
+
+
+“I haven’t been to the firepit again since I left. There should be 5 pairs coming, 5 going to the fire, then it rained and erased the prints. Then 5 more coming since I came to the tents, and only 4 going back to the fire. But there’s 5 going to the fire.”
+
+
+
+I scratched my head. Math wasn’t my strong suit.
+
+
+
+“Erm… If you say so… Anyways… Dinner’s ready, come eat!” I took his hand and led him back to the firepit.
+
+
+
+When we got there, we all sat down around the fire and ate dinner while playing cards. Once we all finished, we were all pretty tired.
+
+
+
+“We should go to sleep now so that we can wake up early tomorrow.” I said, as I threw my paper plate in the fire.
+
+
+
+“You’re right, me and Jayce wanted to go fishing tomorrow in the lake nearby.” Leo said, doing the same with his plate. Everyone followed suit too.
+
+
+
+“I’ll be right back, I gotta go to the bathroom.” Liza said, standing up and walking away towards some trees.
+
+
+
+“Weird stuff has been happening, we should sleep in pairs, that way no one has to sleep alone.” Jayce spoke up.
+
+
+
+“Good idea.”
+
+
+
+We headed to the tents. 
+
+
+
+“Me and Jayce can sleep together since we’re getting up early tomorrow to fish.” Leo said, while looking at the rods.
+
+
+
+“Wait-!” I blurted out.
+
+
+
+Everyone looked at me. I blushed a bit, embarrassed. 
+
+
+
+“I was thinking maybe… We… Could partner up, Leo?” 
+
+
+
+They all exchanged smug looks. 
+
+
+
+Jayce pushed Leo my way.
+
+
+
+We all got into our tents, Kaycee and Jayce in one, Leo and I in the other.
+
+
+
+“Hey ah…Leo?”
+
+
+
+“Hm?”
+
+
+
+“You know how we’ve been friends for a while…?” I was sweating bullets.
+
+
+
+“Mhm.”
+
+
+
+“Well ah…” 
+
+
+
+“Alex. I like you.”
+
+
+
+That was unexpected.
+
+
+
+People being people, things happen. Usually until late at night, and after things are done happening they usually go to sleep until the next morning…
+
+  
+
+
+When I woke up, Leo wasn’t there anymore, he was probably out fishing with Jayce. When I left my tent, Kaycee was already outside.
+
+
+
+“Morning, sleeping beauty!”
+
+
+
+“Hey Kaycee. What time is it?” 
+
+
+
+“10:30-ish.”
+
+
+
+“Jayce and Leo out fishing?”
+
+
+
+“Yep. Hey, there’s eggs for breakfast at the firepit for you by the way. They might be a bit cold by now though…” 
+
+
+
+“Oh, thanks.” I said, moving towards the firepit to eat my eggs.
+
+
+
+I was eating my eggs, thinking about how lucky I was. My best friend actually likes me back. And I actually got to spend the night with him…! Sleeping in the same tent… All our friends united here before they have to leave… Move far away…
+
+
+
+Kaycee joined me at the firepit.
+
+
+
+“So, how did you guys sleep?”
+
+
+
+“Ah, you know… In pairs… Like everyone else… Ahah.” I laughed awkwardly, she definitely knew what happened.
+
+
+
+“In pairs…”
+
+
+
+We looked at eachother.
+
+
+
+“Pairs…?”
+
+“Pairs??”
+
+
+
+I quickly stood up.
+
+
+
+“Okay, what is going on?! Why do we keep counting six of us here?!”
+
+
+
+“Wait-- Where’s Liza? Who did she sleep with?”
+
+
+
+ “She slept with… With… Agh.. I can’t remember…”
+
+
+
+“We left her alone Kaycee!!”
+
+
+
+We ran back to the tents, blood rushing through our bodies. We opened Liza’s tent and Kaycee immediately wretched and spilled the contents of her stomach all over the ground. The smell of vomit mixed with the smell of iron in the air. What we saw in that tent… Was absolutely inhumane. Liza’s mutilated corpse crammed in her own suitcase, her limbs bent and folded in on themselves in order to make them fit inside, her eyes bulging from her face, staring in a horrified expression, how much she must’ve suffered in her final moments… We’re horrible friends… 
+
+We let her sleep without a pair… But not alone. The person in Leo’s chair, the extra hand in Go Fish, the fifth pair of footsteps… Liza’s pair. 
+
+
+
+“O-Oh… Oh god… Call the police!! We have to LEAVE. NOW!”
+
+
+
+We ran towards the lake where the boys were fishing. We were too late. Kaycee stumbled on her own twin brother’s corpse, twisted into the bait cooler. Leo… My best friend… Missing his eyes, his nose, his ears… His scalp hanging from the fishing rod… We burst into tears.
+
+
+
+“RUN TO THE CAR!”
+
+
+
+We ran. We ran until we couldn’t. And even then we kept running. A wet crunching noise behind us, a twisted kind of origami, Kaycee’s screams echoed throughout the woods.
+
+
+
+“A-- ALEX--! HELP M-- AAAHH!! HEL-- HELP!”
+
+  
+  
+  
+  
+
+
+There was nothing I could do. Kaycee was gone. All my friends are dead. I kept running. All the way to Leo’s car, where I drove out of the woods. And now I’m here, in a police station in the middle of god knows where, telling this story to a police officer who probably won’t even believe me.” 
+
+
+
+“Riiiiight… If you would please point us to where the camp grounds are, we will send a team to investigate.” The officer paused to take a sip from his coffee mug then continued, looking at me, sitting across from his desk:
+
+  
+
+
+*“And only you two made it out?”*
+
+  
