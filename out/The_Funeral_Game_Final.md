@@ -1,4 +1,6 @@
-I brought [the box](https://www.reddit.com/r/nosleep/comments/1kz5wb0/the_funeral_game_part_2/) down to Joel’s basement. He flinched when he saw the key. “I can’t do this again,” he said.
+I brought [the box](https://www.reddit.com/r/nosleep/comments/1kz5wb0/the_funeral_game_part_2/) down to Joel’s basement. He flinched when he saw the key. 
+
+“I can’t do this again,” he said.
 
 I knew convincing him to play the Funeral Game would be harder than last time, but I had to try. “I need someone to walk the circles and dig up the grave,” I said. “I’m not asking you to go in the coffin.”
 
