@@ -1,0 +1,133 @@
+The constant hum of my laptop was the soundtrack of my life. At thirty-one, my apartment, here, at the edge of the city, was less a home and more an annex to my university office. The digital clock struck 4:11 a.m. when my eyes snapped open, no alarm needed. The mental to-do list was already operational: grading forty-seven Advanced Calculus exams, preparing the elliptical curves presentation for grad school, and advancing my research grant application. I knew the faculty considered me "ambitious" for a woman my age, and that pressure, that desire to prove them wrong, kept me going.
+
+I got up, my body protesting the few hours of sleep. The fridge, as usual, was practically empty. A carton of sour milk and an apple about to give up. I made myself a strong coffee, my first shot of the day, while my mind was already racing. I'm Samanta Ríos, Dr. Samanta Ríos, a full professor of cryptography at one of the most prestigious universities in the country. My world is numbers, unbreakable logic, mathematical certainty.
+
+By four-forty, I was already in front of the screen, the external darkness broken only by the bluish glow of the monitor. My fingers flew across the keyboard, unraveling codes, writing equations. I had a class at seven, then three back-to-back meetings, a quick lunch, if any, with a colleague, and more classes in the afternoon. At night, it was thesis reviews and, if I had any energy left, a couple more hours of research for my own publication. David, my partner of five years, had messaged me last night: "We should see each other. I miss you." I read it, of course. But the reply got lost in a whirlwind of algorithms and deadlines.
+
+I felt a slight throb in my right temple, a barely perceptible echo of exhaustion. I ignored it. Nothing new. It was just another sign that my body, unlike my mind, occasionally asked for a truce. But there was no possible truce. Not yet.
+
+The week blurred into an endless series of deadlines and caffeine bursts. Monday dawned with the weight of the 47 Advanced Calculus exams, as I said before. Tuesday was tutoring day. From eight in the morning until one in the afternoon, my office was a procession of students with anxious eyes and doubts. One by one, I unraveled their mental knots, solving equations as if they were the simplest code, while my own energy drained away. Afterward, two undergraduate classes back-to-back, where fatigue forced me to lean more on the projector than on chalk. That night, David called me. "Sam, are you still alive? I was wondering if today..." "Sorry, David, I'm buried. Tomorrow, maybe?" The frustration in his voice was like a small scratch. I hung up with a promise to myself to call him the next day, a promise I knew I'd break. The throb in my right temple now came with a tension in my jaw.
+
+Wednesday brought the presentation of my grant proposal for new research. I entered the room with that mix of adrenaline and exhaustion, knowing that every word, every slide, was a personal exam. The faculty's "experts," mostly old men with decades of experience, looked at me. I lectured with impeccable precision, answering questions with crushing speed and logic, I knew it. The pressure to prove myself, to be the exception to the rule of men in numbers, only men... it was a knot in my stomach. I left the meeting with a bittersweet victory and a feeling that my head, somehow, was compressed from the inside. The throb in my temple had intensified, now a prick that made me squint. I had to force concentration in my next class.
+
+Thursday was a whirlwind of emails. Hundreds. Replies to students, coordination with other departments, deadline reminders. I ate a dry sandwich in front of the screen. That afternoon, during a curriculum planning meeting, I felt a constant pressure behind my eyes. My colleagues' voices seemed distant, as if they were speaking underwater. I tried to take notes, but the words in my notebook blurred at times. The throb was no longer a throb; it was a dull, sharp explosion every few minutes, as if someone were driving an icy awl directly into my bone. I thought about taking a pill, but I'd already forgotten where I'd left the package.
+
+Friday morning arrived with an unbearable pressure in my skull. I woke up with the throb in my temple, but now it was constant, a knife slowly turning in my head. I tried to get up, but a sudden dizziness made me fall back onto the bed. The light filtering through the curtains was a physical pain that tore at my eyes. The numbers that were once my refuge now buzzed in my head, a meaningless cacophony. I knew I had to teach my morning class, but the mere thought of moving, of facing the light, of processing information, produced unbearable pain. My body, finally, had rebelled. The pain became so intense that nausea overwhelmed me. This wasn't just any migraine; I felt too sick, as if I were being tortured. It was a constant throb of pain, I felt like my skull was being stabbed with a sharp, red-hot knife, again and again.
+
+The phone vibrated incessantly. Messages from the university, maybe David too. But the sound, each vibration, was another blow to my head. With what little strength I had left, I dragged myself to the kitchen. I needed something, anything. The floor seemed to move beneath my feet. The last thing I remember is the cold of the tiles and a darkness that didn't come from sleep, but from a pain that was completely devouring me.
+
+The darkness didn't last. Not the kind of darkness of deep sleep, but a dense, heavy void that dissolved with the distant sound of a voice. It was David. My eyes opened with superhuman effort. The ceiling was white, impersonal, and the constant hum of a machine beside me was a perpetual intrusion. The smell of disinfectant irritated my nose, a chemical puff that made me nauseous. I was on a gurney, my arms bare and cold, and an IV line protruded from my left hand like a strange extension.
+
+"Samanta, can you hear me?" David's voice was filled with concern, the same concern I'd tried to ignore in his messages the past few days. His face, framed by dark, somewhat disheveled hair, looked blurry at first, then clear. He was pale, and his eyes, always so expressive, shone with an anxiety that broke my heart. He was there.
+
+"What... what happened?" My voice came out as a raspy whisper. My mouth tasted like metal.
+
+"You scared me to death, Sam. You weren't answering your phone, you wouldn't open the door. I had to force the lock. I found you on the kitchen floor. You were unconscious for a while. I came straight here." He squeezed my hand, a gesture that felt strangely distant.
+
+A dull pain still lingered in my head, a burning ember that had calmed, but not extinguished. A woman dressed in white, a nurse, approached with a kind smile, though her eyes reflected the tired efficiency of someone who had seen too much. She checked the IV and took my pulse.
+
+"Mrs. Ríos, welcome back," she said in a professional voice. "You've had a severe migraine episode, combined with dehydration and extreme exhaustion. The doctor will be here in a moment."
+
+David looked at me, his relief almost palpable. "I told you, Sam. You need to stop. You've been working too much."
+
+His words, at any other time, would have echoed my own excuses. But now, as I tried to process the information, my mind's logic felt strangely slippery. "Chronic stress," I repeated in my head.
+
+The doctor arrived, a young man with thin glasses and a serious demeanor. He asked questions about my migraine history, my lifestyle, my diet, my sleep hours. I answered with the raw truth: too little of this, too much of that. He made some movements with a flashlight in front of my eyes, checked my reflexes. It was the first time in a long time that I felt someone, other than myself, scrutinized the functioning of my own system with such attention.
+
+"Mrs. Ríos, after the basic tests and what David tells us... and what you yourself describe... we're dealing with a clear case of chronic stress. Your body has reached its limit. Migraines are a severe warning symptom," he explained in a grave but understanding tone. "You need absolute rest. We're going to give you a few days off work. No university, no work. Zero. Let your mind completely disconnect. You need leisure, rest... otherwise, this could have more serious long-term consequences."
+
+He handed me a prescription for something stronger for the migraines and a recommendation for a stress management therapist. David nodded, his face softening slightly with hope. "I'll take you home. I'm going to take care of you," he said, his voice comforting.
+
+As he helped me up, the gurney creaking under my weight, my head felt light, my body as if it didn't quite belong to me. "Chronic stress," echoed in my ears. But what if it was more than that? The exit from the hospital was a blur. The city air, noisy and polluted, seemed denser, almost unbreathable. David guided me, his hand on my back, but it wasn't the same touch as always. It was a shadow, an imitation. An absurd idea, a spark in my exhausted mind. It was just stress, right?
+
+The trip back to my apartment was a blur, a tunnel of blurry lights and the constant ringing in my ears. David was talking, his voice trying to be comforting, but every word sounded a little more distant. When we entered the building, the familiarity of the hallways felt strange. It was my building, of course, but the colors were duller, the shadows denser. A sense of unreality, I thought, a product of the painkillers and exhaustion.
+
+David helped me sit on the sofa. My body was a heavy mass. He went to the kitchen, looking for water, something light to eat. I watched him move, a familiar silhouette, but something... something didn't fit. His gestures were the same as always, but the way he moved, the way his hair fell over his forehead when he bent down, wasn't *him*. It was David, of course it was. We'd been together for five years. I knew every mole on his skin, every inflection of his voice. It was absurd. A hallucination from fatigue, a distortion. I closed my eyes, trying to clear my mind. I'm a mathematician. A cryptographer. My brain is designed for order, for finding patterns, for deciphering the truth hidden in chaos. This was chaos, but it had no logic. It wasn't a code I could break.
+
+When David returned with a glass of water and a cookie, his smile felt rehearsed. He handed it to me. Our fingers brushed, and a shiver ran through me. His skin... it was David, yes, but the texture, the temperature... it wasn't what I remembered. I forced myself to drink the water, feeling it slide down my throat as if it were a strange liquid.
+
+"You need to rest, Sam. I'm going to stay here for a while. Do you need anything else?" he asked, his voice sounding through a veil.
+
+I looked at him again. His eyes. They were David's, the hazel color, the shape... but there was a coldness, an emptiness I didn't recognize. A subtly different glint that chilled my skin and twisted my gut. It was like seeing a perfect copy, a three-dimensional hologram that perfectly replicated every detail, but lacked the *soul* of the original.
+
+"I'm fine," I managed to stammer, my voice barely a whisper. My head ached, yes, but it wasn't the migraine. It was this thought, this nauseating idea trying to break through into my mind: *That's not David*. My brain fought against the idea... it's the stress, the medication, the lack of sleep... my own mind, betraying me. It must be that. It couldn't be that the man I had loved for five years, with whom I had shared my life, my dreams, my secret codes, wasn't... him.
+
+I tried to reason. How could it not be him? It's impossible. He found me, brought me here, he's taking care of me. Everything's normal, right? But the doubt, a small but insistent off-key note in the symphony of my logic, began to resonate. I looked at David, who was now talking on the phone, probably with my mother. His profile was identical. His voice, the tones, the pauses... identical. But it wasn't him. The conviction didn't come as an explosive revelation, but as a slow, chilling seep, a constant leak in the structure of my reality. My David, the real one, wasn't there. And the man now moving through my living room, looking at me with eyes that resembled his, was... an impostor.
+
+David took me to bed. My head still ached, but it was a dull, resonant pain, the kind that, though surreptitiously, remains present... a pain that doesn't prevent you from going on with life, but also doesn't let you forget it's there. David brought me one of his old shirts to sleep in, soft and with his familiar scent. He tucked me in, his hands gentle.
+
+"Rest, Sam. I'm staying. Your mother was very worried. I told her I'd take care of you."
+
+I looked at him. His hazel eyes returned my gaze, but something in them was still... alien: A copy. My mind screamed "impossible," but the feeling, that icy certainty, had lodged itself deep in my brain. I closed my eyes. Maybe it was fatigue. Yes, it must be extreme fatigue. Rest was the key. I would rest, disconnect, and my logic would return to its place. The impostor would vanish with the exhaustion.
+
+The following days were a purgatory... I was in one of Dante's circles of hell. David moved around my apartment, preparing light meals, making sure I took my medication, forcing me to watch movies and not touch a single math book. Every interaction was a test. He spoke of our shared memories, of inside jokes, of future plans. He behaved exactly like David. But... his laugh sounded a bit hollow, his hugs, a bit stiff, the way his fingers gripped the coffee cup wasn't David's, my David's. It was a minuscule, ridiculous detail, but my brain registered it as a flaw in the pattern.
+
+I tried to ignore it. I forced myself to smile, to nod, to interact. I searched for the real David in his gestures, in his words, in the sparkle in his eyes, desperate to erase that strange feeling of unease. But the image of the impostor solidified a little more each time I looked at him. I felt trapped in a code I couldn't decipher, an absurd equation that told me two plus two wasn't four. The hours dragged on. Television bored me, my favorite crime novels, the ones I missed due to my responsibilities and frantic life... now seemed insignificant. Rest, far from clearing my mind, left me alone with that obsession. I needed a distraction, something to anchor me to reality, something my mind could solve. Numbers. Students. My work. That was real.
+
+Halfway through my leave, I made a decision. "David," I said one morning, my voice firmer than I felt. "I can't take this anymore. I need to go back to the university. I need my routine, my work."
+
+He frowned. "Samanta, the doctor said..."
+
+"The doctor said stress. And this," I pointed to my head, "this is stress from doing nothing. I need my brain occupied. Numbers are my therapy."
+
+David, worried but yielding to my insistence, took me back to campus the next day. The familiar smell of old paper and coffee from the faculty enveloped me. It was a balm. Here, among my equations and my students, everything would return to normal. Mathematical certainty would erase the illusions.
+
+My first scheduled meeting was with Daniel. Daniel, my star student. I'd been with him since he started undergrad, a brilliant young man, a prodigy with numbers, who was now working on his postgraduate thesis under my supervision: a fascinating project on new cryptographic algorithms. He was my protégé, my project, my academic pride. He had always been an anchor of sanity in my chaotic life. I entered my office. Daniel was sitting in the visitor's chair, his backpack at his feet, his curly hair and easy smile as always. "Dr. Ríos, it's good to see you. I hope you're feeling better."
+
+I looked at him. His eyes, once filled with an unmistakable spark of intellect and curiosity, now seemed... flat. The way his lips curved into a smile was exact to Daniel's, but there was a rigidity in it, a lack of the spontaneity that always characterized him. The same sensation. The same cold pang. The same silent horror I had felt with David. My mind, which had previously tried to fight the idea with David, now felt more vulnerable, more exposed. It was impossible. Daniel. I knew every nuance of his thinking, every mistake he made at the beginning of a proof, every moment of epiphany. I had invested years in him. He was my student. My protégé.
+
+"Daniel, you... how are you?" My voice sounded sharper than I intended.
+
+He tilted his head, his usual gesture. "Fine, Dr. Ríos. I made good progress on chapter two of the thesis, actually. Are you ready to review it?"
+
+His voice. His tone. His intonation. Everything was identical. It was Daniel. But it wasn't Daniel. Terror seized me with a force I hadn't felt before. If David was an impostor, if Daniel was too... what did that mean? How was it possible? How could two people, whom I knew so intimately, be replaced by copies so perfect, yet so empty? And why was I, the only one, realizing it?
+
+My brain, the logical machine that had been my strength, now told me that reality was a failed simulation. The hell I had believed to be outside of me began to manifest in my own head. It was the face of my dear student, but the stranger's gaze was so incomprehensible, so... unknown. The revelation about Daniel was a much more brutal blow. David, I could still rationalize as extreme exhaustion, medication, being trapped in an apartment for too long. But Daniel... Daniel was my anchor in pure logic. If he was also an impostor, then the crack in my reality wasn't a temporary flaw; it was an ever-widening gap.
+
+Sitting across from that double of Daniel, my brain went into crisis mode. It was as if an encryption algorithm had catastrophically failed, not just in a message, but in the very infrastructure of the system. How was it possible? In what way? I watched his hands, his gestures as he explained the progress of his thesis. They were perfect. The way he typed on his laptop to show me a code was the same. Every physical detail, every habit. But the energy, the *him* I knew... had disappeared.
+
+My first reaction was that of a cryptographer: to look for the error. Where was the flaw in the matrix? Was there any inconsistency in his words, a lapse, a detail the "original" wouldn't have let slip? I questioned him about specific aspects of the project, trick questions about small details or anecdotes from our tutoring sessions. Daniel responded without hesitation, with the same precision and memory as always. There was no error in the code. The code was perfect. *But I knew it wasn't Daniel!*
+
+The paradox drilled into me. How could something be identical yet completely different? My mind screamed for a rational explanation. A replacement? A kidnapping? But how? And why? And why did no one else notice? No one else had seen it, no one else felt it. I was alone in this. The truth, cold as an iceberg, forced itself upon me: I couldn't tell anyone. Not David, not my colleagues, not my mother. They would think I was crazy. Dr. Samanta Ríos, the young cryptography prodigy, admitted to a psychiatric facility. The thought made my stomach churn. No, no way. I could handle this. I could solve it. My mind, my logic, had gotten me out of countless problems. This was just the most complex puzzle I had ever faced.
+
+The paranoia, which before was an occasional pang with David, now expanded, covering my entire field of vision. Every familiar face I saw in the university hallways, every colleague who greeted me, was a potential threat. Were they too? How many "impostors" walked among us? Was this a supernatural torment manifesting through the people closest to me? Or, the most terrifying idea, was it hell in my own head?
+
+I focused on Daniel. He was my new target. I needed to find the proof, the minuscule flaw, the digital fingerprint that would betray him. If I found the error in his code, maybe... just maybe, I could apply that logic to David, to the entire situation. I forced myself to maintain composure, nodding at his explanations about the thesis, my mind devising plans on how to get a sample of his handwriting, how to record his voice, how... I didn't know exactly what I was looking for, but I was looking for *something*. Something my logic could decipher, something that would prove I wasn't losing my mind, but that the world around me had become a failed simulation.
+
+The week passed under the veil of my "recovery" and "normality." On the outside, I was the same Samanta, the professor who had returned to campus early, eager for work. Inside, I was an obsessive investigator, every interaction a data point... that was for the world. With David, well, I don't know when we had "decided" that he would move into my apartment to take care of me. Although, having all his things and him himself helped me gather evidence. I decided to do it subtly, surreptitiously. I would leave his coffee cup in a different place than usual, hoping his hand, by instinct, would go to the "correct" place... He didn't. A couple of times, I mentioned anecdotes from our relationship with small altered details, observing his reaction.
+
+"Remember that time at the Italian restaurant, when the bottle of wine fell and the waitress was wearing a green dress?" I asked him one Tuesday night, while 'David' was preparing dinner. The dress had been blue. He just laughed, "Yeah, right, a disaster." Not a hint of doubt.
+
+The authenticity of his response chilled me to the bone. It was as if the impostor had access to all of David's memories, but lacked the *feeling* associated with them. *Maybe he had access to my thoughts?*... if so, proving my hypothesis would be much more complicated.
+
+With Daniel, the dynamic was different. He was my student, my protégé. Our thesis sessions became my personal laboratory. I asked him questions on tangential topics to his research, looking for a fissure in his brilliance.
+
+"Daniel, do you remember that Turing article you read in your first semester, the one that made you decide on cryptography? What particular phrase struck you?" I asked him during a tutoring session, my eyes fixed on his. The Daniel I knew would have reflected, perhaps even smiled nostalgically. This Daniel recited a relevant quote, yes, but he did so with an almost robotic precision, without emotion, as if he were accessing a database and reading something he had found. I realized that his usual enthusiasm for the subject, his spark, had disappeared. This was definitely not my student... it was just a very finely crafted version, but to an experienced eye keen on detail, like mine, it was clear from our first interaction. What had they done to Daniel? How could I get him back? Did his family already know?
+
+Sitting in my office, reality raced through my head... Damn it! They weren't just impostors; they were impostors who knew every detail of David's and Daniel's lives, capable of perfectly replicating every memory, every habit... How? Why? My loved ones had been replaced. I... I had to do something, I had to get them back, but how? A sharp, cutting pain returned to my head, hitting my right temple like a dart at full speed... the internal pressure was unbearable. I couldn't speak, I couldn't seek help. They would commit me, drug me, tell me my mind was betraying me... but I was the only one who could see the truth. I was the only one who could get them back.
+
+Subtlety was no longer enough. I needed a reaction that would break the perfect facade those two... had created. With David, the opportunity came one Saturday afternoon. We were watching a movie, a romantic comedy he adored. David, the real one, always cried at the same scene. I approached him at that precise moment.
+
+"David," I said, my voice barely a whisper, "do you remember our first date was at that restaurant, right? The one with the tiny tear-shaped lights... What was the name of the street it was on?" I had deliberately lied. Our first date had been at a noisy café, and there were no tear-shaped lights.
+
+The impostor tensed imperceptibly. His smile faded.
+
+"Sam, what are you saying? Our first date was at the café downtown. You know that."
+
+His tone was calm, but there was something... something new in his gaze. A cold glint. His eyes, those hazel eyes I knew, looked at me with an intensity that wasn't love, nor concern, but something akin to resentment, to calculation. The hand holding mine tightened, not with affection, but with a controlled, almost threatening force. He let go of me. His face, immaculate, turned towards the TV screen. But I felt his coldness, and I realized: I couldn't break his facade, but I could irritate him. And in his irritation, an essence that wasn't my David was revealed.
+
+The situation with Daniel escalated a few days later. We were in my office, reviewing the last chapter of his thesis. He was explaining an algorithm, and I interrupted him.
+
+"Daniel, there's something I don't understand," I said, my voice tinged with frustration, not about the algorithm, but about the farce. "Your enthusiasm. Your spark. It's not here. What happened to you? Where's the Daniel who was passionate about this?"
+
+Daniel's face remained impassive. The polite smile stayed, but his eyes narrowed almost imperceptibly.
+
+"Dr. Ríos, I don't understand. I'm as dedicated as ever. My results prove it." His tone was flat, without the defensive nuance or genuine curiosity the original Daniel would have shown.
+
+I leaned towards him, my voice dropping to a whisper full of rage and desperation. "You're not him, are you? Who are you? What did you do to Daniel?"
+
+For an instant, just an instant, the mask on his face cracked. His eyes, previously glassy, lit up with a glacial, primal rage. The smile morphed into something that wasn't a smile, but a disturbing, almost bestial contraction. His hand, which was on the keyboard, tightened, and for a moment I saw his veins bulge. It was the same Daniel, yes, but the energy emanating from him at that moment was not human. It was pure malevolence. I had discovered him, and he knew it.
+
+He immediately composed himself. "Dr. Ríos, I think you need more rest. Perhaps the effects of stress haven't worn off yet."
+
+I pulled away sharply from him. The air in the office had become dense. My heart pounded. They were no longer just doubles; they were dangerous doubles. Capable of rage, of violence... because I had seen the fissure in their disguise. And they knew that I knew...
