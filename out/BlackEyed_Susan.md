@@ -108,7 +108,7 @@ I tried to regain my footing, but there was nothing to hold on to. Just these pr
 
  
 
-Something came out of the dark. Eyes so dark that their head look hollow against the night. A vaguely human skull connected to an infinite mass; like a broken flower growing out of cracked concrete. Muscle and vein contracting and compounding at every angle; ripples of flesh with every offset heartbeat.
+Something came out of the dark. Eyes so black that their head look hollow against the night. A vaguely human skull connected to an infinite mass; like a broken flower growing out of cracked concrete. Muscle and vein contracting and compounding at every angle; ripples of flesh with every offset heartbeat.
 
 “…it’s been so *long*.”
 
@@ -200,11 +200,11 @@ I didn’t turn my head to look. I trusted her. So I closed my eyes, let my brea
 
  
 
-It was like waking up again. A mild tingle covering my body, like being draped in spider webs. I blinked and blinked, but it was still dark. A long, drawn-out breath echoed like a field of sighing flowers.
+It was like waking up again. A mild tingle covering my body, like being draped in spider webs. I blinked and blinked, but it was all black. A long, drawn-out breath echoed like a field of sighing flowers.
 
 “…*beautiful*.”
 
-A growth coming out of the dark; translucent, like living glass hardening into soft marble. A woman, dragging her legs through the darkness like she was trudging through a swamp. She grabbed me by the hand, pulling me along. It felt like I was carried through a current.
+A growth coming out of the dark; translucent, like living glass hardening into soft marble. A woman, dragging her legs through the night like she was trudging through a swamp. She grabbed me by the hand, pulling me along. It felt like I was carried through a current.
 
 I could see the bedroom from above. I lay there, and Lilia was sitting next to me. I can’t really explain what it felt like. Sort of like watching your reflection blink. I could see her struggling to stay awake, nodding on and off. She was trying so hard.
 
@@ -416,7 +416,7 @@ Right there, behind a rusted-out old barrel, was a Black-Eyed Susan. The same ye
 
 “I wonder what it does,” she said. “You think it means-“
 
-Her voice cut out. The light warped in front of me, blurring like I was watching through a thin layer of rushing. I could feel a tingle in my eyes. Lilia looked different. Further away.
+Her voice cut out. The light warped in front of me, blurring like I was watching through a thin layer of rushing water. I could feel a tingle in my eyes. Lilia looked different. Further away.
 
 “…don’t go!” she called out. “What are you doing?”
 
