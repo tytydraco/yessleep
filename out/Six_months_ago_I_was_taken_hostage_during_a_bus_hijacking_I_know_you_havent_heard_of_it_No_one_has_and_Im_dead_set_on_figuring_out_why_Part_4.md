@@ -39,7 +39,7 @@ So, what’s the difference? What distinguishes humanity, transcended or not, fr
 
 Creation: A God has the capacity to make something out of nothing, with a tiny asterisk. I’ll get back to that asterisk soon.
 
-Apollo could manipulate reality, yes, but he couldn’t create anything from scratch. In retrospect, it makes all the sense in the world. Every aspect of the cult points to creation being the key. It’s named *The Audience to his Red* ***Nativity,*** where the definition of *nativity* is “the occasion of someone’s birth”\*\*\*.\*\*\*Then there’s Jeremiah, with his placental mouth and his thousand children bursting from his chest in droves, according to the image in the stained glass. I mean, the cult’s recruiting grounds was an online infertility support group, for Christ’s sake.
+Apollo could manipulate reality, yes, but he couldn’t create anything from scratch. In retrospect, it makes all the sense in the world. Every aspect of the cult points to creation being the key. It’s named *The Audience to his Red* ***Nativity,*** where the definition of *nativity* is “the occasion of someone’s birth”. Then there’s Jeremiah, with his placental mouth and his thousand children bursting from his chest in droves, according to the image in the stained glass. I mean, the cult’s recruiting grounds was an online infertility support group, for Christ’s sake.
 
 Speaking of Christ, you want to know the most famous example of the point I’m trying to illustrate? The difference between mortality, transcending mortality, and ascension to Godhood?
 
@@ -63,7 +63,7 @@ What did Christ need to make that final leap? Again, the answer is simpler than 
 
 To ascend, one needs to be more God than they are human. Once those scales are tipped, ascension is inevitable.
 
-After Christ was killed, he was entombed under a church built on the side of a hill outside Jerusalem. Something within that tomb catalyzed his ascension, and it’s the same thing that Apollo was to so desperate to find. Something hidden under the chapel constructed on that Arizona mountaintop.
+After Christ was killed, he was entombed under a church built on the side of a hill outside Jerusalem. Something within that tomb catalyzed his ascension, and it’s the same thing that Apollo was so desperate to find. Something hidden under the chapel constructed on that Arizona mountaintop.
 
 The piece of a dead God, just waiting to be cannibalized by the right individual.
 
@@ -117,9 +117,9 @@ The floor felt moist and ridged and alive.
 
 Boundless fear re-energized my futile marathon.
 
-Not sure how long I ran for. Could have been months, could have been minutes. Time was a pliable metric in the black catacombs: it was a recommendation, not a requirement.
+Not sure how long I ran for after that. Could have been months, could have been minutes. Time was a pliable metric in the black catacombs: it was a recommendation, not a requirement.
 
-Eventually, I stopped moving, and a hand laid itself on my shoulder. The touch felt gentle. Delicate. Part of me hoped that tenderness was a ploy. Something to lull me into a false sense of security while it creeped along my collarbone, looking to wrap itself around my neck and squeeze the life out of me. A mercy killing. There didn’t seem to be a physical way out of the darkness, so death appeared to be the only true exit.
+Eventually, I stopped. Moments later, a hand laid itself on my shoulder. The touch felt gentle. Delicate. Part of me hoped that tenderness was a ploy. Something to lull me into a false sense of security while it creeped along my collarbone, looking to wrap itself around my neck and squeeze the life out of me. A mercy killing. There didn’t seem to be a physical way out of the darkness, so death appeared to be the only true exit.
 
 Unfortunately, that was not the hand’s intent. It spun my body around, and then the mouth that was attached to it spoke.
 
