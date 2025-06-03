@@ -133,3 +133,5 @@ The three of us left could only grumble in agreement. Scar and Simmons looked pi
 “Fine. Let’s keep moving.” Scar mumbled.
 
 We kept going, moving as quickly as possible through the alley and onto the street now, traversing the last few blocks toward the building that was our target. With any luck, we could get in and get out. Luck wasn’t going to be on our side [though](https://www.reddit.com/u/googlyeyes93/s/gPxFuXq60s). 
+
+[Next](https://www.reddit.com/r/nosleep/s/D62JCGvY72) 
