@@ -1,4 +1,4 @@
-*“So, Levi, let me get this straight - Noah just so happened to be recording a voice memo* ***exactly*** *when the home invasion started? That’s one hell of coincidence, given that my brother barely used his cellphone to text, let alone record himself.”* Sergent Landry barked from my office doorway, face flushed bright red.
+*“So, Levi, let me get this straight - Noah just so happened to be recording a voice memo* ***exactly*** *when the home invasion started? That’s one hell of coincidence, given that my brother barely used his cellphone to text, let alone record himself.”* Sergeant Landry barked from my office doorway, face flushed bright red.
 
 To be clear, that wasn’t *at all* what I was trying to say, but the maniac had interrupted me before I got to the punchline.
 
@@ -8,7 +8,7 @@ I leaned back in my chair in an effort to create some distance. Then, I froze. S
 
 As much as I hated the man, as much as I wanted to meet his gaze with courage, I couldn’t do it. Pains me to admit it, but I didn’t have the bravery. Not at first. Instead, my eyes settled lower, and I watched his thick, white jowls vibrate in the wake of his impromptu tantrum as I stammered out a response.
 
-*“Like I said, Sergent, we found the Sheriff’s phone in the mail today, hand delivered in a soggy cardboard box with no return address. Message scribbled on the inside of the box read “voice memo”, and nothing else. So, believe me when I say that I’m just telling you what I know. Not claimin’ to understand why, nor am I sayin’ the Sheriff’s disappearance and the recording are an unrelated coincidence. It’s only been ten or so hours. Everything’s a touch preliminary, and I’m starting to think the recording will speak for itself better than I can explain it.”* I mumbled.
+*“Like I said, Sergeant, we found the Sheriff’s phone in the mail today, hand delivered in a soggy cardboard box with no return address. Message scribbled on the inside of the box read “voice memo”, and nothing else. So, believe me when I say that I’m just telling you what I know. Not claimin’ to understand why, nor am I sayin’ the Sheriff’s disappearance and the recording are an unrelated coincidence. It’s only been ten or so hours. Everything’s a touch preliminary, and I’m starting to think the recording will speak for itself better than I can explain it.”* I mumbled.
 
 I waited for a response. Without my feeble attempt at confidence filling the space, an uneasy quiet settled over the room. The silence was heavy like smoke, felt liable to choke on it.
 
@@ -20,13 +20,13 @@ Despite his glowering, I kept my cool. Gestured towards my computer monitor with
 
 *“I get it. Ya’ came home, all the way from New Orleans, because Noah’s your brother, even if you two never quite got along. Believe it or not, I want to find him too. So, you can either continue to jump down my throat about every little thing, or I can show ya’ what we have in terms of evidence.”*
 
-Landry stood upright. His expression relaxed, from an active snarl to his more baseline smoldering indignation. He pulled a weathered handkerchief from his breast pocket, which may have been the same white as his button-down at some point, but had since turned a sickly, jaundiced yellow after years of wear and tear. The Sergent dabbed the poor scrap of cloth against his forehead a few times, as if *that* was going to do fuck-all to remedy the fact that the man was practically melting in front of me.
+Landry stood upright. His expression relaxed, from an active snarl to his more baseline smoldering indignation. He pulled a weathered handkerchief from his breast pocket, which may have been the same white as his button-down at some point, but had since turned a sickly, jaundiced yellow after years of wear and tear. The Sergeant dabbed the poor scrap of cloth against his forehead a few times, as if *that* was going to do fuck-all to remedy the fact that the man was practically melting in front of me.
 
 *“Alright, son. Show me,”* he grumbled, trudging over to a chair against the wall opposite my desk.
 
 I breathed a sigh of relief and turned my attention to the computer, shaking the mouse to wake the monitor. I was about to click the audio file, but I became distracted by the flickering movement of wings from outside a window Landry had previously been blocking.
 
-Judging by the gray-white markings, it looked to be a mockingbird. There was something desperately wrong with the creature, though. First off, it hadn’t just flown by the window in passing; it was hovering with its beak pressed into the glass, an abnormally inert behavior for its species. Not only that, but it appeared to be observing Landry closely as he crossed the room and sat down. Slowly, the animal twisted its head to follow the Sergent, and that’s when I better appreciated the thing jutting out of its right eye.
+Judging by the gray-white markings, it looked to be a mockingbird. There was something desperately wrong with the creature, though. First off, it hadn’t just flown by the window in passing; it was hovering with its beak pressed into the glass, an abnormally inert behavior for its species. Not only that, but it appeared to be observing Landry closely as he crossed the room and sat down. Slowly, the animal twisted its head to follow the Sergeant, and that’s when I better appreciated the thing jutting out of its right eye.
 
 A single light pink flower, with a round of petals about the size of a bottle cap and an inch of thin green stalk separating the bloom from where it had erupted out of the soft meat of the bird’s eye.
 
@@ -36,7 +36,7 @@ The sharp click of snapping fingers drew my attention back to Landry.
 
 Like I said - Landry was the same old hate-filled, foul-mouthed waste of skin. The used-to-be barbarian king of our small town, nestled in the heart of the remote southern wetlands, had finally come home. The only difference now was that he had exponentially more power than he did when he was the sheriff here instead of his younger brother.
 
-*Sergent Landry of the New Orleans Police Department* \- what a nauseating thought.
+*Sergeant Landry of the New Orleans Police Department* \- what a nauseating thought.
 
 I swallowed my disgust, nodded, and tapped the play button on the screen. Before the audio officially started, my eyes darted back to the window.
 
@@ -130,7 +130,7 @@ No anger came, though. Landry was reserved. Introspected. He looked away, his ey
 
 I tilted my head, puzzled.
 
-*“Business back in New Orleans, Sergent?”*
+*“Business back in New Orleans, Sergeant?”*
 
 He lumbered over to the door and twisted to the knob.
 
@@ -224,7 +224,7 @@ For reasons I’ll never completely understand, our town feared The Bourdeaux fa
 
 Of course, that was all bullshit. I knew the Bourdeaux family intimately. I was close friends with their kids growing up. They were Catholic, for Christ’s sake. They did it a little differently and sounded a little differently when they worshipped, but they were Christian all the same. But, when push came to shove, the truth of their beliefs was irrelevant.
 
-Because what is a zealot without a heathen? How can you define light without its contrasting dark? There was a role to be filled in a play that’s been going on since the beginning of time, and they became the unlucky volunteers. People like Sergent Landry needed a heathen. He required someone to blame when things went wrong.
+Because what is a zealot without a heathen? How can you define light without its contrasting dark? There was a role to be filled in a play that’s been going on since the beginning of time, and they became the unlucky volunteers. People like Sergeant Landry needed a heathen. He required someone to blame when things went wrong.
 
 Because a God-fearing man should only receive the blessings of this world, and if by some chance they don’t, well, there’s only one feasible explanation: interference by the devil and his disciples.
 
