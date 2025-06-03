@@ -1,4 +1,3 @@
-  
 I sat up in my sleeping bag, my back stiff.  When you’re hungry, truly hungry, you find yourself sleeping a lot.  It’s the most energy efficient way to spend time.  The sun coming in through the window was hitting my face, it’s warmth welcome, but the new day bringing little hope.
 
 I’d been driving up and down the mountain roads, breaking into any houses I could find for food, trying to siphon gas from cars.  If a house had broken down doors or smashed windows, I wouldn’t go in.  It was too risky that one had been there, that it might be sleeping in a dark closet or basement.
@@ -71,4 +70,4 @@ I got out, and began to run.  I can’t say why.  As soon as the door opened, 
 
 I cannot run twenty-five miles per hour, uphill.
 
-  
+[... More](https://www.reddit.com/r/patrickmullensauthor/comments/1kern3o/patrick_mullens_written_work/)
