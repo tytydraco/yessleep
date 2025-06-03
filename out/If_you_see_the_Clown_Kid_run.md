@@ -2,7 +2,7 @@ Okay. I admit it. I was rude. But I was tired. I’d just gotten off work and my
 
 I was exhausted, but I wanted to do my part. Prove that I was a dependable brother.  
 
-My sister had just gone through a painful divorce, and was barely treading water. I figured, why the hell not? I’ll help.
+My sister had just gone through a painful divorce, and was barely treading water. I figured, why the hell not?
 
 So, that afternoon, I went to the park with Venny. Settled on a bench. Watched her play.
 
