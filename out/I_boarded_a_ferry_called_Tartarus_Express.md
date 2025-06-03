@@ -1,4 +1,4 @@
-Hello there I managed to scrounge up a pile of power banks left behind by previous passengers.
+Hello there, I managed to scrounge up a pile of power banks left behind by previous passengers.
 
 In total, these could last me a combined 47 hours worth of laptop battery perhaps more if I used them sparingly.
 
