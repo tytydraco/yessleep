@@ -9,10 +9,14 @@ So, I don't know if that makes me one of the lucky ones, still here while my two
 
 Fuck… Let me start over.
 
-My name is Tommy. I'm sure you're wondering why I'm telling you this, why you should care what some random, sixteen-year-old kid has to say on the internet at 2 AM. You've probably already left, scrolling for something more entertaining. But if you're still here, thank you. And if you dare to hear my story, I only ask that you refer to the link above before you proceed. It will all make so much more sense. I just can't shut my eyes. Every time I do, I see it… That smile. Those dead, fucking eyes.
+My name is Tommy. I'm sure you're wondering why I'm telling you this, why you should care what some random, sixteen-year-old kid has to say on the internet at 2 AM. You've probably already left, scrolling for something more entertaining. But if you're still here, thank you. And if you dare to hear my story, I only ask that you refer to the link above before you proceed. It will all make so much more sense. I just can't shut my eyes. Every time I do, I see it… 
+That smile. Those dead, fucking eyes.
 .
 .
 .
+
+
+
 "You sure this is it, KC?" I whispered, clutching my backpack straps. My eyes darted from the road behind us to the park's remains. Its broken structures looked like the bleached ribs of some ancient, dead monster. I didn't want to do this. My dad would kill me if I got caught trespassing.
 
 KC, though, practically bounced. "Dude, obviously! This is prime urbex. Seriously, Tommy, you're going to back out now? After all that talk about 'adventures'?" He gestured at the slides, their silhouettes jagged against the distant town's dim glow. "Besides, the homeless dude said 'look for the section where the fence is pushed in.' See??" He pointed to a sagging section of chain-link, an obvious entry point, the bent metal glinting ominously in the moonlight. "It's fine, bro. Nobody gives a shit anymore."
