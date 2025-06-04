@@ -1,0 +1,18 @@
+You walk into your large white kitchen. The kitchen has a sterile feel. The cool white titling and brilliantly shining white marble exude an uncomfortable professionalism. The fridge is also white, inside and out, and when you open it, you notice it lacks some key ingredients for your steak, like butter and mashed potatoes.
+
+You grimace. A steak with no butter or potatoes? The disappointing meal would have to do. You have no time to run to the store. You have no time to run anywhere. You grab the white steak and feel its weight in your hands. You grab a white frying pan, the only kind you have, and gently set the steak down and let it sizzle. You start to adjust the temperature of your white stove when you feel eyes on your back.
+
+Notice how fear creeps its way into you. You turn around quickly. Notice how alone you are. You look for any sign of life and find nothing. You notice a nauseating smell, burning meat. You turn back around quickly and see your steak emitting smoke. Lower the heat and take your steak off the frying pan with tongs. Plop the steak down on a white cutting board to cool while you try to figure out why your steak was burning. You look at the stove and nothing appears to be wrong. The steak is even underdone.
+
+Set the steak back down on the frying pan while you watch it like a hawk. You stare endlessly at the steak, and nothing changes. Feel boredom set in your mind like a thick fog. Feel your mind start to wonder. Wonder why everything in your kitchen is white. Wonder where they came from. Wonder why you can’t remember. Wonder why you can't remember anything. Anything. What is a store or marble? Where did the meat come from? Where are you? Who you are, what you are. Search for any 
+memory outside of this kitchen. Find one.
+
+A memory plays in your mind almost like a recording “Don’t turn around”. You immediately turn around. See nothing. Absolutely nothing. Don't notice the large white eyes staring at you. Pretend not to hear the shuffling of feet. Ignore the height of it. You turn around. You saw nothing. Absolutely nothing. You look back at the steak and see it is burning. Grab the steak. Ignore the burning. Place it on the cutting board. Grab a knife. To cut.
+
+Look for a knife. Find none. A fork will have to do. Look for a fork. Find none. A spoon maybe. Look for a spoon. Open everything. The white cupboard. Nothing. The fridge. Nothing. The sink. Nothing. Check everywhere. Nothing. You forgot one place. The steak. Plunge your hand in the steak. Ignore the burns you are getting from the raw steak. You feel something hard in the middle. A spoon. Pull it out.
+
+The spoon is stark white. You start eating your steak. You plunge your spoon down. It can’t pierce the steak. You put the spoon in a white sink. You turn the faucet. A viscous white liquid pours out. The spoon melts loudly with a hiss. It filters down the drain but some of it is still solid. It stops in the middle of the drain. Turn on the garbage disposal. It won't go down. Push it down with your charred hand. Your hand touches the viscous white liquid. Hissing fills the room. Stay quiet or it will hear. You push the leftovers of the spoon down with your melting and charred. Your fingers hit the bottom garbage disposal. Turn on the garbage disposal. Stay quiet or it will hear. You pull your hand out. Charred, melted, and cut to pieces. Notice there's no blood. A white liquid bellows from your hand. It is blood. Scream. Feel eyes on your back.
+
+It heard you. Don’t turn around. The sound of fast steps fills the room. Don’t turn around. You feel a large presence behind you. Don’t turn around. You feel breathing on your neck. You turn around. Two white eyes look at you. They turn red. You scream.
+ 
+ 
