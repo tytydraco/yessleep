@@ -3,7 +3,7 @@ Most of us have seen *Groundhog Day*. Bill Murray gets stuck repeating the same 
 I wish I could remember the first few days. The early decades are just noise, static in the back of my skull. If there was a first day, it’s gone now. But I’ll do my best.
 
 
-I wake up at 7:15 a.m. That was my start time for the next 215 years. I’m supposed to be at a “work” event by 8, about half an hour away, so I’m already rushing. The quickest I’ve ever managed to wake up, get dressed, eat something, and get out the door was 4 minutes and 23 seconds. My drive takes exactly 19 minutes and 50 seconds if I avoid the speeding cameras and cops. On the first day, I wasn’t so quick, took me 15 minutes just to find clean pants. I arrived late, panicked, set up, and started playing.
+I wake up at 7:15 am. That was my start time for the next 215 years. I’m supposed to be at a “work” event by 8, about half an hour away, so I’m already rushing. The quickest I’ve ever managed to wake up, get dressed, eat something, and get out the door was 4 minutes and 23 seconds. My drive takes exactly 19 minutes and 50 seconds if I avoid the speeding cameras and cops. On the first day, I wasn’t so quick, took me 15 minutes just to find clean pants. I arrived late, panicked, set up, and started playing.
 
 By “work event,” I mean I was hired to play music at a local weekend market. My income was a bastard mix of Centrelink, odd jobs, and whatever strangers tossed in my guitar case. It’s not like I was rolling in cash. I played shitty covers for three hours, just loud enough to compete with the blender from the smoothie stall across the path. Then I had lunch and a coffee break. I tried every single food stall in existence during the loops, and the only genuinely decent one was a little Mexican joint in the corner of the field. The coffee onsite was garbage, but I found a good café about a five-minute sprint away. By the hundredth loop or so, I’d mastered the timing—I could grab my lunch and a decent long black and be back before my 15-minute break was over.
 
@@ -61,6 +61,8 @@ Time moved forward.
 
 I don’t know how. It’s not like I did the right things in the right order or became a better person. I didn’t have an epiphany or reach enlightenment. It just... happened.
 
+8:47 am
+
 I stared at those changing numbers on my phone like they were written in ancient script. I hadn’t seen that time in centuries. And it hit me hard. I had no idea who I was anymore. I’d been so many versions of myself, tried on so many personalities, lived so many fragmented lifetimes that I forgot how to be someone. Or at least the person I was before all of this.
 
 I forgot my birthday. I forgot my friends’ names. I had to relearn how to hold a conversation without knowing what the other person would say. How to plan. How to *wait*. How to live when things don’t reset.
@@ -70,8 +72,8 @@ I forgot my birthday. I forgot my friends’ names. I had to relearn how to hold
 The final lesson I was given by the loop:  
 It’s that you don’t need eternity to become someone better.
 
-You just need time that *hurts*.  
-Time that *moves*.
+You just need time that *moves*.  
+Time that *hurts*.
 
 I don’t know who I am anymore. Maybe that’s something I have to find out.
 

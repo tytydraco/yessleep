@@ -48,50 +48,12 @@ My heart was beating out of my chest, its rhythm amplified in my ears as I strug
 
 Then, I passed out. 
 
-While the crew dreamt of riches and women, I spun through endless horrors. In my dreams, the ship did not make it to our destination. 
+While the crew dreamt of riches and women, I spun through the endless horrors. In my dreams, the ship did not make it to our destination. 
 
-A maelstrom of souls, hundreds of not thousands of screaming men, women, and children rose endlessly into the sky like a hurricane, an orange hue illuminated the horizon like hell on Earth, whilst the blackened shadowy storm billowed and crackled with thunder and heavy rain, the screams drowning out the cries of the crew as we desperately tried to batten down the hatches. One by one, the shadowy pursuers began to board the ship, each of them a boney mass of rotting flesh and guts, an unspeakable horror that felt like a grim warning that if we did not change course, our fates would be sealed. As I backed away from creatures, they slowly surrounded me, their boney hands pulling at my arms and legs leaving gashes as their sharpened bones sliced me like a knife. I tried to fight but there were too many, they were dragging me, somewhere, but I had no choices. Even as I fought it became imminent that it was either they dragged me away, or I died to a thousand cuts. 
+A maelstrom of souls, hundreds of not thousands of screaming men, women, and children rose endlessly into the sky like a hurricane, a green hue illuminated the horizon like hell on Earth, whilst the blackened shadowy storm billowed and crackled with thunder and heavy rain, the screams drowning out the cries of the crew as we desperately tried to batten down the hatches. One by one, the shadowy pursuers began to board the ship, each of them a boney mass of rotting flesh and guts, an unspeakable horror that felt like a grim warning that if we did not change course, our fates would be sealed. As I backed away from creatures, they slowly surrounded me, their boney hands pulling at my arms and legs leaving gashes as their sharpened bones sliced me like a knife. I tried to fight but there were too many, they began dragging me, but I had no chance against them. Even as I fought it became imminent that it was either they dragged me away, or I died to a thousand cuts. 
 
-The pain was unbearable, it was a searing pain, like a hot blade slicing through your muscle and flesh before cauterizing itself, just to inflict as much torture and agony before you ultimately perished. 
+The pain was unbearable, it was a searing, visceral pain, their fingers feeling like hot daggers as they dug into my flesh and muscle, gargling and choking on their own decaying bodies as they tried to speak. 
 
-They knelt me before the storm, their fingers dragging through my shaggy, unkempt hair, before grasping hard and snapping my head back to stare into the madness. I felt my soul escaping, being dragged out of my physical half and towards the maelstrom of others. I saw my lifeless body, shadowy essence of myself escaping through my open mouth, assisted by those creatures skeletal hands, until I fell limp.
+They knelt me before the storm, their fingers dragging through my shaggy, unkempt hair, before grasping hard and snapping my head back to stare into the hurricane of souls. I felt the maelstrom’s unfathomable pull, the very essence of my humanity being ripped out of my body through my open mouth. Horrid images flashed through my mind, in what I can only assume to be the horrid fates of the other people inside the colossal monstrosity in front of me. 
 
 Then, as if it had never happened at all, I awoke. 
-
-Looking out the porthole, the sun was just beginning to break the horizon. The glow of the morning sun burned my weary eyes, an after effect of the alcohol and shameful crying I had done the night before when that… thing, imbedded itself into my mind. 
-
-The cold floor against my feet felt, oddly, satisfying today. The hangover hit like a truck, and all I wanted was to lay down on the wooden floorboards. But as I stared, something caught my eye. 
-
-The floor was covered in a light layer of frost, except for the few wet footprints that lead out the door. They were small, most definitely that of a woman, or an adolescent boy. I felt a shiver go down my spine as I remembered the feeling of breath on my neck last night. I muttered to myself, “Who is on the ship with us?”
-
-Once dressed, I stormed directly to the Captain’s quarters. The knock that came out of my desperation was loud enough to wake the entire ship. 
-
-Groggily and angrily, the Captain opened his door, “what in God’s name do you think you’re doing James?” he hissed. 
-
-“Captain, we have to change course. Now.” I steadfastly replied. 
-
-He slammed his fist against the door, an anger broke out of him I hadn’t seen since a Spaniard had killed his brother. “Are you kidding me?” he erupted, “for the first time in your miserable existence you’ll be able to have anything you’ve ever wanted, and you are backing out of this, on me, on us?”
-
-The crew slowly began to creep into the hall, hearing the commotion. Their judgmental eyes glaring me down as if I had just committed a cardinal sin. 
-
-“I am not backing out on you Captain, I just know something’s wrong with this whole expedition. There’s footprints in my quarters. Wet ones. Ones of a woman, or an adolescent boy. Come see for yourself.” I said. 
-
-The eyes of the crew mates looked amongst themselves, then back at me. 
-
-“I don’t care if there’s an alligator in your bed, we are not turning around. And that’s final.” The Captain replied, the rage so clearly boiling over that the veins in his pale forehead were on the cusp of bursting. 
-
-“I refuse to navigate it. We need to stop at the nearest port.” I argued. 
-
-The crew broke out into whispered gasps. Nobody had challenged the Captain’s authority, and the feeling that they’re going to be losing out on riches beyond their imaginations made some speak up. 
-
-“We need you, James. Please.” some pleaded. Others glared at me in disgust. 
-
-“We don’t need him.” The Captain finally spoke up, “throw him in the brig.”
-
-Three of the crew men approached me, I pleaded and begged, telling them this is a mistake, but it was of no use. The idea of riches was too far seeded in their minds to care about safety anymore. Their minds were made. 
-
-I wailed and unleashed a flurry of punches on my captors but it was to no avail, they easily overpowered me, and began to drag me down into the darkness. I continued to plead and fight be nothing worked. My back and head ached as I thrashed about but the only thing on my mind was survival. I kicked one of the mates in the groin, freeing myself temporarily before feeling my ankles being grabbed again. I grabbed ahold of the railing to the stairs, fighting the urge to let go as they pulled on my legs, the muscles in my arms feeling as if they’re tearing apart, the burning in my biceps turned to freezing cold ice and eventually the railing gave way, breaking off from the wall and hitting me square in the chin, knocking me unconscious. 
-
-And that’s where I am now. I woke up an hour ago in the brig. Sailing towards certain death, with no say, and no escape.
-
-If anything changes, I’ll be sure to update you all. 
