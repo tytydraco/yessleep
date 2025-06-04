@@ -68,7 +68,7 @@ In one of them, I was wide-eyed, staring at the camera. I have no memory of that
 
 There was a note tucked under my bed, written in neat block letters:
 
->
+"You should’ve left it alone. I was done. Now I’m not."
 
 The police swept the place again. Nothing. No cameras, no fingerprints, no forced entry. They think it was some sick prank, maybe a copycat. But I know it was him.
 
@@ -82,11 +82,4 @@ And every time, I wonder if he’s still playing.
 
 Maybe next time, he won’t let me wake up.
 
-  
 I don’t know who else he’s watching. I don’t know if I’ll survive next time. But if you hear dragging sounds at night—*don’t open the door.*
-
-  
-
-
-
-
