@@ -62,3 +62,8 @@ A group of parents are desperately pleading for anyone who can give them informa
 They were last seen by a homeless man.... 
 
 ..... hopping the fence of a "local abandoned water park".
+
+
+
+PART 2
+https://www.reddit.com/r/nosleep/s/KddrlEOLoB 

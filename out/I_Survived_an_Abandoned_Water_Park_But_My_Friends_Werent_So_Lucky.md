@@ -146,9 +146,17 @@ KC, still clutching his phone, slowly, reluctantly, dragged his eyes away from t
 
 We shuffled backward, our eyes glued to the Maw, unwilling to turn our backs on it. Every movement felt sluggish, the water clinging to us, resisting our escape. The putrid, rotting meat smell was now thicker than ever, and it tasted metallic on my tongue. My lungs burned with each breath. As we reached the opposite side, hoping for another way out, I slammed my hand against the cold concrete wall. It was just a curved, slick surface, impossible to climb. There was no other ladder, no indentations, nothing to grab onto. We were trapped.
 
+Then, I looked at the dark, oily water at the base of the Maw. Just beneath the surface, where the bottom of its huge stretched jaw met the murky depths, a faint shimmer pulsed. It was subtle, barely there. A heartbeat like rhythm that seem to writhe with an invisible life. It pulsed, slow and deliberate. 
+
+KC, seeing the shimmer too, let out a choked whimper. He stumbled back from the wall, splashing in the grime. "It's... it's doing something.... Oh my God, guys it's fucking breathing..." 
+
+Justin grabbed KC's arm, pulling him. "Move! We'll try the other side of the pool!"
+
 The air grew heavy, pressing down, making it hard to breathe. I swept my flashlight beam frantically around the pool's rim, searching, pleading for an escape, but there was nothing. Just the walls, grime, and the darkness above.
 
-And as my light swept back towards the Maw, I saw it. Just for a second, its eyes narrowed, and the smile grew. It was gone a second moment later, but I know what I saw, and I knew what was happening. The Maw was playing with us now. And it had just closed the last exit.
+And as my light swept back towards the Maw, I saw it. Just for a second, its eyes narrowed, and the smile grew. It was gone a second moment later, but I know what I saw, and I knew what was happening. 
+
+The Maw was playing with us now. And it had just closed the last exit.
 
 Suddenly, the smell exploded. It punched into my nose, my throat, stealing the air. I doubled over, coughing, gagging on the taste. My eyes slammed shut, watering.
 
