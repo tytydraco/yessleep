@@ -183,7 +183,5 @@ They’d either laugh or start writing up a psych eval.
 
 And the worst part is, I don’t even know what I saw. Or heard. I didn’t see anyone. It was just footsteps. Footsteps on a roof that no one can reach. I keep trying to rationalize it. Maybe an animal. Maybe the wind. Maybe the roof is settling.
 
-But then I remember the sound—those calm, steady steps—and my stomach turns.
+But then I remember the sound—those calm, steady steps—and my stomach turns. I don’t know if I can do 9 more days out here alone. I will update in a few days.
 
-**I’m only five days into a two-week post.**
-**Nine more days out here. Alone.**

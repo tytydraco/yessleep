@@ -298,7 +298,7 @@ Call it some instinctual reflex, but I shuffled away from the taffrail. Crawled 
 
 “Don’t even think about running away,” the man growled, turning his back to the ocean and facing me speargun. “When I’m finished with that thing, I’ll—”
 
-A tremendous splash of water was followed by a grey shape that half-blotted out the dazzling sun. Then, with a level of acrobatic accuracy that left me stunned into both awe and fear, the creature snapped its jaws around my stepfather’s midsection.
+A tremendous splash of water was followed by a grey shape that half-blotted out the dazzling sun. Then, with a level of acrobatic accuracy that left me stunned into both awe and fear, the creature snapped its jaws onto the side of my stepfather’s midsection.
 
 Kevin screeched in pain as he was dragged over the back rail and pulled below the depths of the ocean, along with the captain.
 
