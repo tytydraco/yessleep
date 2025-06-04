@@ -207,6 +207,7 @@ I felt like I was being crushed from all sides, unsure of what to do. Then I pul
 I hurried to the bathroom to make my next plan.
 
 “I’m such an idiot,” I spoke quietly to myself out loud, “I didn’t think about any of this assigned seating stuff. I can’t go back. But I can’t leave either. If I leave, then I’m just going to look like a cowardly jackass. But if I go back, they’ll know I lied about having a movie ticket.”
+
 I sat in the stall, mumbling to myself like an insane person about my social idiocy. This felt truly more horrific than any horror movie I was going to see. I prepared to return to the theater. I figured I could manage to find some empty spot, and just lie, saying I picked the wrong seat. I opened the door of the stall, only to see what looked like a staff member cleaning the bathroom mirror. He was making a circular motion on the glass. 
 
 “Be sure to make smart choices,” the worker spoke. 
@@ -232,12 +233,13 @@ Oliver looked down and spotted me, shrugging in annoyance. I waved awkwardly bac
 
 I scanned the darkened room, loud trailers airing behind me, where I noticed a lone empty seat in the far front corner of the theater, right underneath the screen. Sure, I was going to have to crane my head every direction just to make out what was going on in the movie, but at least I can say I saw the movie with my friends… sort of.
 
-I made my way to the front of the theater, trying to avoid any more eye contact with Oliver, Lindy. Or Kate. God, how embarrassing. 
+I made my way to the front of the theater, trying to avoid any more eye contact with Oliver, Lindy... or Kate. God, how embarrassing. 
 I was practically staring at the ceiling here, but at least I found an empty seat. Here’s hoping someone else doesn’t come and tell me I took up their spot, too.
 
 …
 
 The woman next to me was fiddling with something. It was this crunching, splintering noise on the wooden armrest between us that I’ve noticed since the beginning of the movie. I tried to ignore it, but after an hour, it was really getting to me.
+
 I looked over to ask her to be a little quieter. My words didn’t seem to connect, though. I looked over and saw her heaving and gasping, as if she was struggling to breathe. I glanced downwards at her hands and saw she was aggressively fidgeting with the armrest, circling her index finger onto the wood. It wasn’t a slow circling. Her finger was aggressively digging into the wood, splintering and cracking the armrest, sending small wooden bits around. The upper digit of her finger was missing, where a bloody bone took its place, turning into a point from the violent repetitive tracing. 
 
 I shot up from my spot and yelled for someone to call 911. I looked at the woman gasping in her spot. She moved her gaze from the screen and stared right at me, and for what seemed like a moment, her irises appeared to look like empty, golden rings. 
