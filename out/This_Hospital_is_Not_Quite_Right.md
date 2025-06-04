@@ -74,4 +74,4 @@ I found my car in the parking lot and collapsed into the driver's seat. That’s
 
 “What? Oh God, something weird was going on. "Who told you that?" I asked.
 
-“I got a call from the hospital." I stared out of the windshield of my car at in disbelief. Something horrible was going on.
+“I got a call from the hospital." I stared out of the windshield of my car in disbelief. Something horrible was going on.
