@@ -14,7 +14,7 @@ He went up to the bars of the cell and banged his nightstick on the metal, but t
 
 ¨You best keep to yer darn self,¨ he said sternly, ¨I catch you lookin´ again I´m puttin´ you in the hole.¨ The man again said nothing, and he didn't even move. Carl backed up slightly. 
 
-¨Alright, lights out.¨ he said in a quieter tone of voice. The lights went out and the corridor was nearly pitch black. At the end of the call was a room that Me and Carl would spend the night in. There was a television, a microwave, a coffee maker, etcetera. Before I walked in I looked back. The man's eyes looked back at me, glowing red in the light like a cat's eyes, or like in the flash of an old picture from the eighties. His body was hidden in the darkness, and It just creeped me out. Quickly I shut the door and went in.
+¨Alright, lights out.¨ he said in a quieter tone of voice. The lights went out and the corridor was nearly pitch black. At the end of the hall was a room that Me and Carl would spend the night in. There was a television, a microwave, a coffee maker, etcetera. Before I walked in I looked back. The man's eyes looked back at me, glowing red in the light like a cat's eyes, or like in the flash of an old picture from the eighties. His body was hidden in the darkness, and It just creeped me out. Quickly I shut the door and went in.
 
 August 15th rolled around without any other incident, other than the creepy nature of the fella and the constant staring. Eight o'clock sharp tonight. We spent the entire day getting ready, making sure the straps on the lethal injection gurney were good and in place, making sure the cardiogram worked, that the IV tubes were properly hooked up, all that stuff. 
 
