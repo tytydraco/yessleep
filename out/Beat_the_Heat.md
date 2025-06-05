@@ -64,7 +64,7 @@ I walked into the living room, my bag’s contents spilled by the front door and
 
 "Thirteen People Go Missing in [REDACTED], NM Following Earthquake"
 
-That was the final confirmation for me. I shook my head. I was sad for those people, sure, but I was almost ecstatic that it was fourteen. That my name and picture wasn’t on the news channel’s website next to the ones who were eaten.
+That was the final confirmation for me. I shook my head. I was sad for those people, sure, but I was almost ecstatic that it wasn’t fourteen. That my name and picture wasn’t on the news channel’s website next to the ones who were eaten.
 
 I drew a bath for myself, though I had to psych myself up to get in after the previous night. Luckily, there was no giant worm to swallow me whole. I sat in there for a good while and just let myself process it all.
 
