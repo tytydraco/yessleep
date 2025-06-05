@@ -31,7 +31,7 @@ I’ve lived so many lifetimes in the same 24 hours, and the one thing I learned
 
 I tested the boundaries of the loop. I pulled all-nighters to see if staying awake would let the day progress. It didn’t. As soon as 7:15 a.m. hit, I’d blink and wake up in bed. Still, I made the most of it. Sometimes I’d watch the sunrise just for the hell of it.
 
-I played with influence. Tried saying the right combination of things to the right people. I made it as far as a meeting with the Secretary of the Prime Minister and Cabinet. That took—I don’t know—thousands of loops? I delivered rehearsed speeches, memorised policy briefs, and rehearsed my charisma like it was a performance. But it never changed anything. At the end of the day, reset.
+I played with influence. Tried saying the right combination of things to the right people. I made it as far as a meeting with the Secretary of the Prime Minister and Cabinet. That took, I don’t know, thousands of loops? I delivered rehearsed speeches, memorised policy briefs, and rehearsed my charisma like it was a performance. But it never changed anything. At the end of the day, reset.
 
  
 
