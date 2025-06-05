@@ -91,4 +91,4 @@ I pull up next to him and roll down my truck’s window,
 
 I roll up the window and skid out of there. As I pulled out, I could still hear him screaming the same thing over and over. He is standing there, still as a statue and screaming, as I look in the rear view mirror before I hook a right towards Jack’s ranch. Maybe he was having a demented episode? I don’t know, but I didn’t want to stay around to find out. He found his way out there, and I’m sure he’ll find his way back home. He always carries his .45 when he’s out and about in town, and I don’t want to be at the end of that barrel.
 
-As I pull into Jack’s crappy rock ridden dirt driveway, the sun starts to go down over the plains, and that faint rotten egg smell remains, distinguished from the earthy scent of a ranch.
+As I pull into Jack’s crappy rock ridden dirt driveway, the sun starts to go down over the plains, that faint rotten egg smell remains, distinguished from the earthy scent of a ranch.
