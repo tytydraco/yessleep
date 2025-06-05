@@ -68,6 +68,6 @@ The engine stuttered, then died.  I tried to start it, but it only cranked.  T
 
 I got out, and began to run.  I can’t say why.  As soon as the door opened, I heard the howls getting closer.
 
-I cannot run twenty-five miles per hour, uphill.
+I cannot run twenty-five miles per hour, uphill.  [Part 2](https://www.reddit.com/r/nosleep/comments/1l4494e/i_knew_they_might_catch_my_scent_if_i_left_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 [... More](https://www.reddit.com/r/patrickmullensauthor/comments/1kern3o/patrick_mullens_written_work/)

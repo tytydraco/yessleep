@@ -153,3 +153,5 @@ I reached the front steps of the house, birdsong filling my ears and the smell o
 Someone had dug him up.
 
 [Fuck](https://www.reddit.com/r/CursesAndBoons/comments/180iwt6/welcome_to_cursesandboons/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button).
+
+[\[PART 2\]](https://www.reddit.com/r/nosleep/comments/1l3xrt6/my_father_lit_himself_on_fire_in_the_basement_of/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
