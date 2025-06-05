@@ -360,6 +360,4 @@ This turned out to be much later though. Klara’s Garden was abandoned and over
 
 I never found Tom or Felix. Most likely, they had fallen victim to the fungus or some of the beasts escaping into our world through the vessel. But I haven’t given up hope. Perhaps they found their way into another time or world, where they could not just survive but thrive as well. Linnea found an old sailboat. As soon as we left the island, we got lost in another thick fog. We sailed through it for hours, and when we finally came out of it the ice floes were back. My phone received a bunch of messages. Most of them from my worrying mom. I smiled as I read them, knowing I was finally back in 2025 again.
 
-While Linnea started a new life in Stockholm, I’ve spent most of my time looking for the island again. So far, I haven’t been able to find it. I think it’s glitching in and out of our dimension. But one day I’ll find it, rest assured, and when I do, I’m going to blow that strange, interdimensional vessel to kingdom come.
-
-[X](https://www.reddit.com/r/tobiasmalm/comments/1hkqa47/my_published_works/)
+While Linnea started a new life in Stockholm, I’ve spent most of my time looking for the island again. So far, I haven’t been able to find it. I think it’s glitching in and out of our dimension. But one day I’ll find it, rest assured, and when I do, I’m going to blow that strange, interdimensional vessel to kingdom [come](https://www.reddit.com/r/tobiasmalm/comments/1hkqa47/my_published_works/).

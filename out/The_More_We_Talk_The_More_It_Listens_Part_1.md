@@ -1,10 +1,3 @@
-
-The story contained too many characters, so part 2 will be uploaded shortly.
-
-Original Story Written by: Jack Boyd
-
-Chapter 1
-
 It’s strange how the tiniest things can ignite a storm inside a person. Like the radio blaring through heavy traffic, its static crackling in the claustrophobic silence. I won’t have to listen to my dad’s complaints about it anymore. Outside the window, the cars inch forward in a sluggish crawl, the city’s skyline fading behind us. My mom sits beside me, her voice almost a whisper as she hums along, forcing herself to sing—probably to drown out the memories of my dad’s constant silence. Tommy, my little brother, is in the back, fingers flying over the screen playing Roblox, oblivious to the weight of everything. He’s just about to turn nine, still trying to grasp why Mom and Dad aren’t together anymore. I don’t want to spoil his innocence with my own worries. As we edge closer to the outskirts of town, I notice Mom’s nose scrunching and her hands tightening on the wheel, her knuckles white. This move—this new start—it's a hard road for anyone, especially her.
 
 “Where’s your charger?” Tommy asked.
@@ -69,7 +62,7 @@ Suddenly, a faint voice sliced through the silence—distorted, broken, like a r
 
 Nothing was in my room; I was just tired of getting bossed around by an almost nine-year-old.
 
-Chapter 2
+
 
 The first night passed, and now the house had a mix of the old furniture from the previous owner and the items we brought. Mom is very happy that she doesn’t have to buy new couches or lamps, since I know she can’t afford them.  
 
@@ -103,7 +96,7 @@ I hear a burst of laughter, It’s Tommy, pushing open the gate with a grin. I g
 
 “Sure, buddy.” I replied.
 
-Chapter 3
+
 
 The room was cloaked in darkness, the only sound was my steady breathing and the TV commercials. Despite the silence, a strange comfort washed over me—this rare quiet, broken only by distant creaks and the whisper of the wind outside, made me feel like I was finally alone in this haunted place. It's only the second week of being here—in our new house, in our new life. Not surprisingly, baseball is on the TV. It's not even a live game; it's a rerun. Just having the game on in the background reminds Tommy of Dad. Tommy never saw the side of Dad I saw. He only saw the side that took him to games and bought him a hotdog.
 
@@ -123,7 +116,7 @@ She offers a faint, tired smile. “It’s okay, honey. I’ll see you in the mo
 
 I force a faint smile and hurriedly climb the creaky stairs. *Pop-ching! Pop-ching!* Each step sounds like a scream in the silent house. I grit my teeth. “Why do these stupid stairs sing every time I step on them?” I mutter, my voice edged with irritation.  I stumble into my room and collapse onto the bed. The only light filters in through the window—an icy blue glow from the moon. My body aches from exhaustion, but a faint shiver still runs down my spine from that dream—Tommy’s voice echoing strange and distorted. I sit up stiffly, pulling the curtains closed, shutting out the darkness and trying to shake off the unease.
 
-Chapter 4
+
 
 It’s been a month since we moved, and today marks the day Tommy’s been counting down to since we arrived. The day Dad finally takes him to a Cleveland Indians game. From the moment the sun rose, Tommy’s been bursting with energy—wearing his Indians jersey and cap, talking nonstop about the game like it’s the biggest event of his life. Meanwhile, I feel a quiet knot in my stomach—this is the day Mom’s least looked forward to: seeing her ex-husband again.
 
