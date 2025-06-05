@@ -150,6 +150,8 @@ The motion sensor LED was still lit green, a silent witness. Slowly, I approache
 
 It wasn’t exactly a person – more like a smear or distortion, as if the camera tried to focus on a person-shaped mirage. The figure was right behind me, as if poised to reach out. Then the image blurred where presumably my sudden movement jolted the camera.
 
-I stared at that photo until my eyes burned with tears I didn’t realize were forming. A cold dread crept through me, a realization that in my stubborn quest to see it, I had placed myself within arm’s reach of the thing. And it had noticed. 
+I stared at that photo until my eyes burned with tears I didn’t realize were forming. A cold dread crept through me, a realization that in my stubborn quest to see it, I had placed myself within arm’s reach of the thing. And it had noticed.
 
 It had been *so close*...
+
+[part 2](https://www.reddit.com/r/nosleep/comments/1l3n1cu/i_live_alone_but_my_motion_sensor_disagrees_part_2/)
