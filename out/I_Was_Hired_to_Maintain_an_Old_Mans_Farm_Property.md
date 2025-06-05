@@ -25,8 +25,10 @@ I snickered at the thought I’d ever make it that far in life.
 	At this point I was convinced it was God that walked into the shop that morning.
 	For another half hour the two of us discussed what tasks I would be assigned to do around his property. His explanations painted a soothing picture of quaint farm life where my only concerns would be mowing lawns, tilling soil, sweeping floors, etc. I began to think of it as a great pause in my life. For two summer months I would be fed and housed, away from the world, and I would miss nothing. I could catch up in life, get on my feet, and only once I was ready to return would the world keep spinning.
 	As he left, we parted with the agreement to write me a letter with further information within the next few days, and a firm handshake. For the first time in years I was hopeful. I did not hesitate to leave my rat filled moldy apartment and severe absence of human connection when Mr. Albert Seamore’s letter arrived the following week.
-To my dearest future caretaker, Nathan Wesley:
-Hello Mr. Wesley, I pray this letter arrives without delay and finds you well and as eager to start this next chapter as you were the other day. If you still are of course, you’re free to arrive anytime from June 28th to August 1st. You’re all prepared for your living, however I wasn’t certain about some of your preferences so we can settle some things once you arrive. I want you to be as comfortable as possible. Specifically, I did not know if you prefer silk or cotton sheets so I bought both. Do not worry about your first days being hard, I’ll show you around and introduce the basic aspects of your duties, so you can be comfortable. As for directions…
+
+“To my dearest future caretaker, Nathan Wesley:
+Hello Mr. Wesley, I pray this letter arrives without delay and finds you well and as eager to start this next chapter as you were the other day. If you still are of course, you’re free to arrive anytime from June 28th to August 1st. You’re all prepared for your living, however I wasn’t certain about some of your preferences so we can settle some things once you arrive. I want you to be as comfortable as possible. Specifically, I did not know if you prefer silk or cotton sheets so I bought both. Do not worry about your first days being hard, I’ll show you around and introduce the basic aspects of your duties, so you can be comfortable. As for directions…”
+
 	The letter continues on describing a convoluted twisting path through a hundred miles of woods. 
 
 	Without a car, I took a taxi and, to the begrudging driver, I read the disorienting instructions as we went further down our hour-long journey. I’m sure Mr. Seamore would have gladly picked me up and driven back, but I felt guilty at how accommodating he had been already. After several wrong turns and a close call with a deer, a stone and wood house began to peek out from between the trees. The now miserable driver dropped me off to walk the last stretch.
@@ -143,11 +145,15 @@ Hello Mr. Wesley, I pray this letter arrives without delay and finds you well an
 	I sat under that window until dawn arrived.
 
 	In the morning, so exhausted my eyes ached as if melting out the bags beneath them, I slumped downstairs cautiously. A singular piece of paper, ripped from something larger, sat on the countertop. It read:
-I will be leaving for a few days. It will be okay. We will be okay.
+
+“I will be leaving for a few days. It will be okay. We will be okay.”
+
 	He wasn’t lying, his truck was gone, the house was quiet, and I was completely alone. I knew what I had to do.
 	Unworried about monitoring my volume I clattered upstairs to the place in the wall. Prying open the panelling, the trapdoor swung open. Before me was a small room as I had seen before, the area of which could not have been larger than 16 square feet and five feet tall. I imagine one could only sit down in there, on the small area of bare floor in the center. The monster of candles stretching over the room was alight on hundreds of its wicks. Along with the indecipherable scribblings and paintings I had seen before, the center of the opposite wall presented a portrait of something I couldn’t understand. Even through the paint strokes of adaptation, I was beneath its power. I had no idea what was being depicted, but I made out an eye in the chaos. A small dot I could only assume looked down on me. What was I witnessing in this snapshot of artistic expression? What could it possibly be?
 	Below the work, an ancient note read:
-I love you, oh Great One
+
+“I love you, oh Great One“
+
 	Beneath was a small red cloth draped over a small table, on top was something that made me fall back in shock. An offering, I assumed, sat there. A small skull, old and grey, shattered and collapsed at the right temple, a second set of teeth above the first, on both the bottom and top jaws. I slammed the trapdoor shut. Inside I locked every possible point of entrance, even barricading the front and my bedroom doors. Stacked high were the old man’s antique furniture against everything. 
 	I don’t know what I planned to do, perhaps I thought an angel would descend and take me away from Albert Seamore’s hell. I just didn’t want him to come back, I never wanted to see him again. I guess I planned to kill him upon his arrival proceeding his current escapade, so I set up any jangly devices, bells and windchimes, etc, that I could find. Set along each doorway I knew when the old man came along I would be prepared. I went to bed with an axe meant for wood chopping next to me.
 
@@ -157,7 +163,9 @@ I love you, oh Great One
 	“I love you…” 
 	A visceral, primal shock of horror ripped through my nervous system and out of pure reactionary intent, I swung. The axe flew like a hurricane as I whipped my shoulder towards the side of the voice’s origin. A boom echoed out in a split second cacophony of sound as the blade crashed into the wooden frame of my bed, leaving my grip. In the chaos something scittered away, crashing through my bedroom door’s reinforcements. The bells echoed out. The moment was deafening. I saw nothing in the shroud of night, but I heard it all, I heard it leave.
 	I jumped up, adrenaline expelling all exhaustion out of me, and ran downstairs. The front door’s barricade was thrown apart and the door wide open. It was just me now. In the silence I was sure. Though, I had been sure before, and when I ascended those steps and entered my room to retrieve the axe, I noticed the storage space in the wall was slightly ajar. A small note on the floor nearby.
-Bear witness to my love  
+
+“Bear witness to my love”
+
 	Looking inside, I of course saw what I feared. Reeking of piss and shit, the space contained empty cans and a scrunched up blanket.
 	I ran. I ran with everything I had. I began down the road. In delirium I ended up careening through the woods. Tumbling over rock and brush I felt the blood in my head thin. The taste of iron overwhelmed me as I heaved. Where was I running to? Would I ever stop? Or would I just die here instead? After endless woods, it just kept going and going and going. So I collapsed. I spent my last few seconds of consciousness sitting against a mighty tree. Weak and helpless. As my eyes shut, the leaves to my right crunched. A gentle, wet kiss grazed my forehead.
 
