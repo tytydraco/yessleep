@@ -1,0 +1,236 @@
+Has anyone ever heard of the Hall of Mirrors? I know it’s a very specific question, but I need to know because I need you to stop looking for it if you are. Whatever you think you might find there, whatever the night whispers as the clarion call of the mountains echoes within you, simply leave it unanswered. I’ve found many of you on my trails, dotting the woods and wound over rocks in the hollers or mauled by the “wildlife” that are around here. Just quit it, I’ve got it handled. Should the locals not get to you, rest assured that I will and you’ll not make it out of my mountains. To give you all a warning, however, I decided to take this to writing and lay it all out before you so you can understand what’s waiting for you in those trees when you step off the beaten path. My story is just as long and winding as any of the roads out here are, so I'll ask you to bear with me while I go through it all. You have to understand and by the end of it I hope that you will.
+
+
+
+When I was born I was one of the last few to be born at the local hospital that was in my town here in the mountains before they shut down the birthing ward and moved it to the other side of Tuckagee Mountain. The last in a set of three girls and by all accounts what should’ve been a routine pregnancy for a woman who had been through it before. The hospital shutting down wouldn’t have been too much of a problem for my family if it weren’t for the fact that my mother, Doctor Eliza Martins, worked there as an obstetrician. The thought of soon losing her job and the stress that it put on her made carrying me complicated, or at least more complicated than it otherwise would’ve been as I already was a very big girl at the jump. Weighing in at nine pounds, eight ounces it was difficult work for them to ensure that the delivery went smoothly. My mother had nearly bled to death and I was frequently reminded she was never the same after me. I came into the world on June 6th, 1996 and that day was the happiest day of my father’s life. Daddy had lived here his whole life, went to college on the other side of the mountain and was the first to ever get a degree in the family on his side, he loved to remind them about that.
+
+
+
+Daddy, known as William Cunningham to the world or simply Big Bill if you preferred, took a full-ride from a local university and proceeded to double major in Forestry and Wildlife along with Environmental Science. Following this he found employment at the local ranger station here in the Smokies and was able to ‘play around in the woods’, as he put it, right up until my parents had me. Due to the difficulty of the circumstances surrounding my birth my parents both agreed that daddy would be the one to take a step back, bump down to part-time and take over responsibilities for handling the other girls get ready for elementary school or softball, but most importantly to keep as close an eye as possible on me. I suffered breathing problems for the first year or two after I was born, something to do with the way my lungs had formed in the womb and with the structure of my face. My arms weren’t too good either, all twisted up like gnarled branches of an old oak attached to a barrel chest of bumpy ribs, no two of which were quite the same length. Trying to take care of me and all the medical trips piling up along with two daughters that loved to be involved in all sorts of sports teams was something that was hard to stretch on a single parent to handle, but he always found the time. To be honest, I’m not sure how they got through those few years before mother’s practice in town began to run itself and she was able to spend less time there. Martins Family Medical was the talk of the town and very soon would be where I began to spend most of my young life, too. 
+
+
+
+Daddy and Mother had spoken about what to do with me ever since I was born, daddy didn’t seem to think that there was anything wrong with me and that if that was the way that the Lord had given me to them then unless it was absolutely necessary that they shouldn’t change a single thing about me. Mother, however, worried about what sort of life I’d lead as an outcast, as some broken thing born from a woman that all the men in town fawned over with sisters whose beauty easily outstripped the disgusting remnant that was related to such perfection. She thought I’d be a freak, a reject and if he would just give her the go ahead she would be able to fix all what ailed me at the time. She could fix my nose, my arms, she even swore up and down that she could fix my ribs if he would just give her the chance. He said okay.
+
+
+
+I don’t know how, but I swear that I can remember the experience of the whole thing, the cold steel upon my back and the piercing white lights of the operating theater hanging above me. I think I remember seeing my reflection in the metal that glinted above me, a deformed and wailing little thing surrounded by surgical tools that would ensure my perfection. I wish that I could’ve known that little girl and loved her the way she deserved. My recovery lasted a few years, gave me scars that never healed and I know when it’ll rain every single time that this rainforest of mine decides to give us a good drenching. I still had to undergo surgery later on, it happened around middle school, something about my optical bone and risks of me going blind should I not grow right? I can’t remember the justifications now, just what they made me. Otherwise, though, I became a happy, healthy little girl that my daddy could barely keep a handle on when I was running around the house. I started elementary school after I finished my recovery and everything seemed to be fine with me, so in the late summer of 2002 I had my first day there.
+
+
+
+I was dropped off at the front doors, daddy spoke with the school nurse who greeted me with a warm smile that reminded me of my grandmother and she reached down to take my hand into hers.
+
+
+
+“Hey kiddo,” she said with a smile, “my name is Nurse Hayes and I’ll be spending the first couple weeks with you to make sure that you adjust to school life just fine, alright?”
+
+
+
+I vigorously nodded at her, hair flying all about my head as I did so and she stifled a giggle watching the antics of such an excited student. “Very good honeybun, your daddy told me all about everything in regards to your situation, so if you ever think that you’re having trouble breathing, or maybe if your… nose itches! You just let me know right away!” She said, lightly grabbing me by the tip of my nose with her thumb and forefinger.
+
+
+
+Laughter erupted from me as the woman began to play with my stolen nose and before long daddy had taken to ruffling my hair with one of his large, bear paw-like hands. There was a wide grin on his face, but before long he took on a stern look and addressed me with the exaggerated eyebrows that I knew meant he was serious.
+
+
+
+“You treat Nurse Hayes with the utmost respect and you make sure if anything happens you tell her, okay? I love you, stinkums, and I hope you’ll have a good day.” Daddy knelt down before me, giving me a quick once over as he made sure I had everything I needed for school in my bag.
+
+
+
+“I will, I will, I swear! Cross my heart and hope to fry, want to eat until I cry!.” Reciting the secret passcode out in the open to my father was dangerous to my young mind, but I had to make sure that he knew I was serious, too. 
+
+
+
+After my promise, he gave me one more smile and headed towards his truck emblazoned with “**TOWN OF VICKESVILLE**” on the sides. Since I was going to be going to school now he had recently picked back up on working full-time at the station, so they gave him his vehicle back shortly after. With how big the Smokies were they were glad to have the teddy bear of a man back on duty. Guided inside by Nurse Hayes, I saw all of the other kids around me drop to a quiet hush at my approach as they took in all that I was dressed in. My mother had insisted that I wear the same thing that she had worn and that my sisters had worn throughout school, which was the uniform of some private school over in France that her family had attended since before World War 2. It was a frilly affair covered in white lace that ran along the collar, wrists and the rim of the skirt all in a deep green trimmed with gold. The fabric was the sort of stuff that would scratch you raw if you moved too much in it, an outfit that forced rigidity and good posture lest you suffer immense discomfort. I remember that I hated wearing it, but I still went about my first day of school with my head held up high despite the staring and the barely hidden snickers of all the other children that attended. 
+
+
+
+There was one girl that didn’t greet me with a chuckle or a snide remark, her name was Faith and she was the best friend that I could ever ask for. When I’d first sat down after I’d put my things in the assigned cubbyhole, she stuck out her hand towards me and gave me a grin that was missing a tooth centerstage. 
+
+
+
+“My name’s Faith!” She said with a lisp as I took her hand in my own and shook it hard just like my dad had taught me.
+
+
+
+“Mine’s Persephone!” I replied, happy to have someone to talk to and happier still to have it be someone so excited to see me.
+
+
+
+We hit it off like two peas in a pod and before long we spent the entire morning chatting about our families, what our favorite toys were and sharing what our parents had packed for our lunches later in the day. Her favorite thing above all was a figure that her dad had carved her recently of a horse which she took everywhere, proudly presenting it to me with a radiant smile that could melt ice. I showed her my own little trinkets, various pieces of medical equipment that I had to carry in my bag and the instruction cards that read off what to do in case of various accidents. I was an advanced reader, so of course I showed off to her by reading the big words on the cards like “hospital” and “tachycardia” which duly impressed her such that her eyes were wide in disbelief. 
+
+
+
+Before long, the bell rang for our recess and the both of us tore off in search of the outer courtyard that served as the school’s playground where the teachers could watch us from the comfort of covered benches. There was a kickball field and covered sandbox which Faith played in, but I stayed out of it in case I were to get sand upon the very expensive and delicate uniform that my mother had dressed me in. Looking up towards the side of the hill that rolled up into the woods there was a small area, closer to the playground by a small margin compared to the rest of the treeline with a covered area that you couldn’t see in, but many of the big kids walked in and out of. I pointed it out to Faith, tugging at her sleeve from the edge of the sandbox where I stood and together we began to adventure up towards the overhanging trees and the very frontier of the childlike kingdom that Faith and I had only discovered today. As we grew closer the trees began to loom over us and Faith’s pace began to slow, her small strides becoming smaller as trepidation grew in her heart. I went ahead a few steps just before the veil of leaves and limbs which hid what might be hiding before us and she shyly kicked the dirt a few times before looking back at the teachers on the benches below.
+
+
+
+“Persephone, I really don’t think that we’re supposed to be going this far from the teachers. We don’t even know what’s in there.” She said with each pronunciation of various “s” sounds causing a whistle between her teeth which by then I had already become enamored with in just the span of a day.
+
+
+
+“Faith, you don’t have to worry! Daddy says that the woods aren’t nothing compared to what people do to it, so really we should be scared of the teachers and not the trees!” I stated and grabbed her hand in my own to drag her towards the curious spot.
+
+
+
+“What?” She managed to get out before I powered the two of us through the branches and leaves spluttering the whole way while small bugs took flight as I disturbed them.
+
+
+
+Bursting through the trees we came upon the small clearing inside and before we had gotten our bearings a deep, sickly smell began to radiate all around us and we both rankled our noses at it. Faith covered her face in both of her hands in an attempt to stop the smells from getting in, but as my gaze swept through the clearing to find the source of the dreadful odor I spied in the very center a dead raccoon. One which had, in the August heat, been dead near to two, maybe three by the state of it. I couldn’t help but feel wonder at the sight. Within it were the marble, wriggling masses of maggots that pulsed in the beauty of nature’s decay and writhed throughout the ropes of crimson that burst forth from the belly of the animal. I drew close to it, the smell far gone from my mind and sat down on my knees, carefully making sure that my skirt was nowhere near anything that could stain it. Faith watched behind me, her breath hitching in her chest as she got close and watched over my shoulder while my hand slowly descended towards it. I could hear something, not quite the whistling of the wind through the trees or the sound of life in the forest amongst the laughter of children, but a deep rumbling in the back of my mind that begged me to take part in whatever it was that was laid before me. To indulge myself in the crimson and to bathe in the scent of decay, to join the waltz of the maggots.
+
+
+
+A shocked gasp behind both of us shook me from my stupor and standing with her head peaking through the veil of verdant green was Nurse Hayes who at first had only seen Faith and I, but quickly noticed the stench of rot. “Girls, the two of you need to get away from that! As for you, Ms. Persephone, you nearly gave me a heart attack looking all over this playground for your check-up.”
+
+
+
+Together, Faith and I stood and walked away from the dead raccoon, the fascination within me now gone and replaced with only the animal revulsion that all shared upon seeing sloughing flesh in the humid, August weather. When we made it to the foot of the hill, Nurse Hayes had waved over one of the janitorial staff that had been cleaning the windows, a gentle older man by the man of Niles whose onyx skin was slicked with sweat. He greeted the nurse like an old friend and bent down to ask me where the raccoon was, I explained the hidden clear spot in the trees along with the state that the remains were in. The older man grimaced, clearly not excited by the idea, but quickly went inside to fetch a mop bucket to slop the thing into for disposal along with a shovel and a bandanna wrapped tight around his nose which he sprayed with a generous helping of a glass bottle of cologne.
+
+
+
+The rest of the day went by without a hitch and when my mother came by to pick me up, I introduced her to Faith and together the three of us waited for her mother to show, as well. My mother had driven her Escalade to come and pick me up, it was a monolithic black vehicle to my diminutive size at the time and Faith looked at it with wonder asking my mother all sorts of questions about it. Around fifteen minutes after my mother had come to pick me up, Faith's own drove up in a beat-up Accord that looked like it had seen deployment to the recent war in the Middle East. The front bumper was secured with ratchet straps that did little to hide the slight shaking of the frame as it turned and when she braked it let out a squeal that could wake the dead from their graves. A deathly sound ground out from beneath the car as the woman inside struggled to force the car into park and getting out she looked harried beyond belief, but despite the mess of her physical appearance she radiated a maternal love. 
+
+
+
+Faith squealed at the sight of her mother and was quickly swept up into her arms in a spin that caused her little legs to fly parallel to the ground. When they’d stopped, my mother regarded her with the same attitude that one might a servant and looked down her nose at the hand offered in greeting. An imperceptible grimace played at the corner of her lips as she took the woman’s hand in her thumb and forefinger, giving it a single limp-wristed shake before she turned her attention to me. 
+
+
+
+“Our daughters seem to be quite taken with one another, we’ll arrange for a playdate the upcoming weekend and I’ll send William to go and pick your daughter up from school and I’ll take Persephone home from her practice. She’ll stay the weekend with us, be a dear and pack well for her.” Mother said with the haughty air of someone who demanded respect and looked down at her watch to check the time.
+
+
+
+She pursed her lips, clearly we were running late on something and there was nothing my mother hated more than tardiness. “What was your name? I don’t believe I caught it.” She looked the woman in the eyes now, waiting for her response.
+
+
+
+“I didn’t say it and I don’t think that my Faith is going to be going with you acting all…” Faith’s mother was growing angry and I could see that the woman was going to cause a scene like so many others who thought they could take on my mother.
+
+
+
+“Can she please come over, pretty pretty please?” I asked, jumping up and down in a flutter of skirts and embroidered lace. “I promise that we’ll be well behaved, we’re already best friends and if I show her my room we’ll be even bester friends!”
+
+For a moment I caught the white hot flash of anger in the woman’s eyes, but as soon as I’d seen it the look was gone and replaced with the exasperated look of a woman who knew she couldn’t say no. “My name’s Linda, Mrs. Martins and I guess if it’ll make your little one’s day she can stay over, my little Faith’s gotta be home by Sunday night. Is that okay with you?”
+
+
+
+My mother waved a dismissive hand and checked her cellphone for any missed calls as she began to usher me towards the Escalade. “Yes, yes, I’ll have her ready to go whenever you need, just leave a list or something with your child and I’ll have Beatrice or Elizabeth see to it. Come along, Persephone, we’re going to miss family dinner if we keep fraternizing with the locals.”
+
+
+
+I waved goodbye to my new best friend who returned the gesture with equal gusto and soon was packed into the Escalade, ready to head home and see what Estelle had prepared for us tonight. When the doors had shut and I had tightened my seatbelt, my mother adjusted the rearview mirror so that she could lock eyes with me in the backseat. There was a queer look to her that I couldn’t place and she seemed to be searching for something within me as the car turned over and the AC roared to life. For a moment I felt a chill run down my spine and I felt the cold of metal on my back, the itching ache of the scars upon my chest flared in renewed ire for the first time in my life, but certainly wouldn’t be the last. 
+
+
+
+I absentmindedly scratched between the frills of my shirt collar and smiled widely at my mother. “I love you mommy, is everything alright?” I asked.
+
+
+
+“Of course dear,” she said and adjusted the rearview mirror once again, “but you already know by now I’m your mother, not your mommy. Quit that idle fidgeting and fix your shirt, you’re better than that.”
+
+
+
+“I love you.” I said a second time, my little voice much more insistent.
+
+
+
+“Oh, I love you too, dear. Let’s get home.” She sounded just as disinterested as she had talking to Ms. Linda and I let my eyes wander to the school disappearing behind us as we began the twenty minute drive home.
+
+
+
+Deep in the woods, upon the side of a mountain and lined with a large fence that my father had been working on slowly since I had been born was the estate that I called home as a little girl. It had been built by my mother’s family when they had moved here from Europe thirty years before she was born and it spanned five acres of what had been undeveloped land. Great grandfather had been offered a great deal to move and when he accepted the contract he was told that he could live anywhere he wanted in the area, so he bought up some undeveloped land and hired many of the local men in the area who had returned from the war and were eager to make some pocket change to start their own lives. Over the years it has been updated many times, each generation adding a structure to the estate or bringing the home into the modern era with new appliances and furniture to match the changing times. My mother had my father do most of the work on the outside, adding two rows of trees that lined the paved driveway towards the home. Two smaller dirt roads shot off left and right towards the woodline in which a vacant barn and a toolshed full to bursting stood. There was a garage, two stories, in which daddy had stored all of his hunting and work gear on the second floor. 
+
+
+
+The garage door shuddered to life, the whirring of the motor above us barely registering to me as I waited for my mother to let me exit the car. Daddy’s truck wasn’t here, I knew he probably wouldn’t be home at least for a few hours, which left me to my own devices. I wouldn’t have time to pester Beatrice or Elizabeth, one five and the other seven years my senior. I would, however, have the time to grab a snack and go explore in the woods while the two of them helped mother to prepare our dinner. It was some French dish I couldn’t care to even learn the name of; I hated all the frilly dresses and incessantly complex “food” that they had to offer.  I preferred when daddy cooked up some good, filling Southern food with enough fat in it to stop the heart of a horse, but he wasn’t allowed to cook too much as she said I’d blow up like a balloon and roll around the house. Looking at the position of the sun as mother and I exited the garage, it seemed like I at least had an hour or two before it slipped beneath the boughs of the trees if I’d remembered what daddy had taught me right.
+
+
+
+“Mommy, can I go out and play in the woods? Pretty please? I’ll be back quick and I’ll take Charlie! He’ll keep me safe. You don’t want me to help with dinner, you never say to, please, please, please?” I asked and tugged at her skirts as she walked in front of me, poking my head around her side to glance up at her face.
+
+
+
+“Mother.” She replied coolly without looking down. “And yes, you may, just remember that if you’re late again I won’t suffer to see us waiting on your father to fetch you covered in dirt like some beast. Change out of that uniform, as well, it’s worth more than all of your toys.”
+
+
+
+I whooped in childlike excitement, hugging my mother around her legs causing her to nearly trip before sprinting off towards the front of the wraparound porch that ran the length of the home. I dashed upstairs, changed into the denim and little varsity jacket that my daddy had bought for me as Charlie chased after behind me. She was my dog, about three years old at the time and the loveliest pitbull that a girl could ask for. Built like an ox and trained by my grandfather on my daddy’s side to keep a little girl safe with the world changing and the satanists lurking around every bush to his reckoning. Together we began our game of chasing each other back and forth, the distance ever increasing between us and the house fading between the trees and bushes. I knew these woods, I thought I knew them at least, ever since the age of three daddy had taken me out to learn all the highways and byways of the animals to learn to be a proper redneck. I loved it out here, covered in the shade of the trees, adorned with the lashes of trees that weakly whipped at the thick leather of my jacket. Today wasn’t any day, however, I had seen the waltz of the maggots and felt the call of crimson, I didn’t know that I had begun a dance of my own that would last the whole of my life.
+
+
+
+Within the woods I heard the whisper again, I smelt the sickly sweet scent of decay and the mirth of the wondrous woods which had run through every fiber of my being slowly quieted. Charlie ceased her barking, her head tilted quizzically towards me as my run became a trot, my trot a stumbling gait before I finally stopped to lift my head up towards the sky. I took a deep breath, my nostrils flaring as I took in the scent of the loamy underbrush beneath my feet combined with the heady, thick smell of humidity in the air. There was something more to it, the scratching whispers begged me to drink in my surroundings more greedily and to search deeper. There, beneath all the flowery growth of the woods and the simple smells of the outdoors was that pungent odor of death. I could almost taste it in my mouth, I could feel it swimming within my mind and I began to walk towards it with the singular thought of what could be its source in the forefront of my mind. Soundlessly and mouth ajar I wandered through the woods towards the smell that had so taken me. I followed the guidance of nothing as my feet walked on their own. In ten minutes, an hour, maybe even a day as time slipped away from me I came upon a clearing and within the middle of it was a great, clear pool. Its waters remained unmoving and nothing dare grew close to it but for the single, large plant which was right at the water’s edge. At the time I had no idea what it was, but having learned since then I can say that it is called a corpse flower.
+
+
+
+I grew closer and closer towards it, tempted by the scent as I reached out with a small hand to grasp at the plant that stood taller than I did. Without my noticing an arm reached around and grabbed me about the waist, hoisting me up effortlessly to be held on my abductor’s hip. Once again I was torn from the call and I was about to scream before a rough hand closed around my mouth. I looked up, terrified at the unfamiliar face of a woman with several small scars that ran in lines away from her eyes. They were a deep blue, just like daddy’s and something about them brought a sense of calm to my heart. She took her hand away from my mouth, tucking away the loose locks of blonde hair that fell in front of my face.
+
+
+
+“Come on now, you’re not even full grown, but here you are messing around out in the woods all alone. Your daddy’s gonna be furious when we get you home, you know it’s almost eight o’clock, right?” The woman looked down at me in her arm with a look of disappointment that could curdle milk.
+
+
+
+“Little bit, where do you live? You ain’t gotta be all quiet-like, I work in the forestry service, just like your daddy. You're safe with me, don’t worry.” She smiled at me now and waited patiently for me to speak to her.
+
+
+
+I pointed back to what I thought was the direction of home, but as I looked around the clearing I realized that I had no idea where I was. Tears began to form at the edges of my eyes blurring my vision and before I knew it I began bawling into the woman’s shirt. I was lost, hopelessly, utterly lost without any idea where I could be or how to even begin to get back home. The woman hoisted me up into her arms where I could bury my head in her shoulder, she whistled down at the dog who had stayed pacing at the edge of the clearing when she passed and Charlie fell in step behind without a bark of complaint. Once again time seemed to pass in a haze and all I saw was the soaked shoulder of a tan shirt as the mystery woman took me on what I hoped was the way back to the house. Suddenly, she stopped and I felt my feet touch the ground as she lowered me down and knelt before me. Charlie was at my side again now, her tail shifting the leaves beneath her as she wagged it at the sight of the two of us. The woman fished in her front pockets for a second, cursed under her breath as she searched and produced a pair of what looked to be pearls. 
+
+
+
+“Listen carefully to me, okay? I know what you’ve been hearing and do you wanna know a secret?” She asked, leaning in conspiratorially to whisper in my ear. “I know what you’ve been hearing. That little bug in your ears a-buzzing? Well, I’ve got just the thing for him and you won’t get lost in the woods anymore, okay? When you think that you hear it or you think that you smell something stinky, shove 'em right into your ears and they’ll fill up to keep it all out. This is gonna be our secret though, so don’t tell anyone, not even a little bit, little bit.”
+
+
+
+She winked at me and folded the two, spongy pearls into my hand with her own. “I gotta be going now, need to get back to work in these woods, so you stay safe and listen to your parents. No more playing alone in the woods, you hear?”
+
+
+
+I nodded at her, still scared and incapable of speech, but polite enough to answer the woman that had saved me from getting lost. She drew to her full height, gave me a little wave and began to walk back out into the growing dark of the woods in the waning twilight. A crash behind me alerted me to the weary, dirtied up form of daddy as he heaved a sigh of relief at the sight of me. 
+
+
+
+“Oh thank the Lord above, Persephone, you about gave me a goddamn heart attack. You’ve been gone for four hours, hell it’s almost eight o’clock, what’ve you been doing this whole time?” He began to look over me, turning my head this way and that to see if I’d scratched or hit something.
+
+
+
+“Daddy, I’m sorry! There was a lake, a big lake with a big flower and I don’t know how I got there and I got lost and I don’t know what happened and there was a lady and there was Charlie and then she got us back home and then you came!” It was a stream of consciousness blabbering out of my mouth, I could hardly keep the words in as they spilled out of me. “I’m sorry, I’m sorry, I’m sorry.”
+
+
+
+Daddy sighed once more, wrapping me up tight in a bear hug that let me know he wasn’t letting go. “What’s this about a lady, stinkums, what do you mean you got lost?”
+
+
+
+“I smelled something, it smelled really good and then she grabbed me and it didn’t smell good anymore. I-I don’t know. She said she worked like you did.”
+
+
+
+“Worked like I did? Sweetie, we don’t have any women working for us at the service, was she dressed like me, too?” He asked, making sure to look me in the eyes now.
+
+
+
+I nodded my head and tugged his tan shirt with the patch on the arms that denoted he worked for the forestry service. “It was just like this! It’s all the same, I-I don’t know. Can we go home? I wanna go home.” I could feel the tears gathering at the edges of my eyes again.
+
+
+
+“Of course sweetie,” he said, loosening his bear hug as he grabbed my hand, “let’s get on home. Your mother’s gonna kill us.” He chuckled, shaking his head.
+
+
+
+“She’s always gonna kill us.” I said, wiping a large wad of snot with my sleeve that had gathered at the edge of my nose as I cried. 
+
+
+
+“Ain’t that the truth, stinkums.” He agreed with a grin.
+
+
+
+When we finally passed the line of trees back into the clearing behind the house, I could see my mother staring at me from the second floor’s back porch that hung above the patio in the backyard. She regarded me with a look that could only be described as clinical and while she languidly wrote in a leatherbound journal her eyes never once wandered from mine.
+
+
+
+I was grounded from ever going out into the woods again after that and there was no amount of begging and pleading that could persuade daddy otherwise. I was never allowed out alone again after that and I didn’t hear the call again for some time and by then I’d almost forgotten the pearly, fleshy beads that had been given to me. That’s a whole other bit of business though, I’m getting tired and my days off don’t come often enough nowadays. Give me some time, I’ll try to continue this when I’ve got the time again. Stay safe y’all, don’t go wandering. 
+
