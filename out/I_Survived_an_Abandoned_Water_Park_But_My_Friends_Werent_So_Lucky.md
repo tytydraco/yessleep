@@ -10,6 +10,11 @@ So, I don't know if that makes me one of the lucky ones, still here while my two
 Fuck… Let me start over.
 
 My name is Tommy. I'm sure you're wondering why I'm telling you this, why you should care what some random, sixteen-year-old kid has to say on the internet at 2 AM. You've probably already left, scrolling for something more entertaining. But if you're still here, thank you. And if you dare to hear my story, I only ask that you refer to the link above before you proceed. It will all make so much more sense. I just can't shut my eyes. Every time I do, I see it… That smile. Those dead, fucking eyes.
+
+
+
+
+
 .
 .
 .
@@ -144,9 +149,9 @@ We shuffled backward, our eyes glued to the Maw, unwilling to turn our backs on 
 
 Then, I looked at the dark, oily water at the base of the Maw. Just beneath the surface, where the bottom of its huge stretched jaw met the murky depths, a faint shimmer pulsed. It was subtle, barely there. A heartbeat like rhythm that seem to writhe with an invisible life. It pulsed, slow and deliberate. 
 
-Liam, seeing the shimmer too, let out a choked whimper. He stumbled back from the ladder, splashing in the grime. "It's... it's doing something.... Oh my God, guys it's fucking breathing..."
+Justin, seeing the shimmer too, let out a choked whimper. He stumbled back from the ladder, splashing in the grime. "It's... it's doing something.... Oh my God, guys it's fucking breathing..."
 
-Sam grabbed Liam's arm, pulling him. "Move! We'll try the other side of the pool!"
+KC grabbed Justin's arm, pulling him. "Move! We'll try the other side of the pool!"
 
 The air was now pressing us down, making it hard to breathe. I swept my flashlight beam frantically around the pool's rim, searching, pleading for an escape, but there was nothing. Just the walls, grime, and the darkness above.
 

@@ -1,0 +1,20 @@
+I've barely been able to eat normally for years
+
+I'm writing this on the recommendation of my psychologist, even though I'm sure she never believed my stories, I don't judge her, I wouldn't believe it either, I don't know what her intention was really for me to be able to vent in some way or make me understand how crazy this story is and for me to come to my senses, but it happened, I know it happened, because it was because of the trauma I got that day that today I can barely have one more meal a day without vomiting, I shake and I have life crises when the subject is brought up. religious and I remember her whenever I see a redheaded woman.
+ 
+   Anyway, I grew up in a convent, I didn't know my parents, I could barely mention that fact, the younger girls there, who stayed with the children to "train" certainly hated that place and us, as they were forced to either leave and live on the streets as soon as they reached the age of majority, or have a place to sleep, eat and work. Whenever I asked where my parents were, they aggressively grabbed a loaf of bread or the first food in front of them and shoved it in my mouth, almost choking an 8 year old child, I just accepted it and ate it in silence, I barely spoke for the rest of the day, over time I barely questioned it, I punished myself with kilos of processed food as a way of keeping quiet with my questions.
+
+   There was only a single novice who treated me and other "rebellious" children well, the pastor who sometimes came to visit us influenced the discipline of the sinful children, her name was Rosa, I will never forget her, when she hid me and the other children like a girl who lived collecting prices at markets in a small room in the basement and we all stayed there, braiding her long red-orange hair.
+
+   My hell involves her exactly.
+
+   When once again the pastor appeared to check on the children and punish me for the hateful sin of gluttony, I was chubby, I ate more than all the children, yes, it was true, but part of the blame was his, what was the need to punish me by leaving me last at lunches where I only ate the remains that the other children left in the pan, 2 hours after lunch time. Punish me by fasting until the moment I passed out and they had to feed me so no doctor could file a complaint against them, for the love of God.
+
+  On that fateful day he got tired, I knew that the punishment was coming once again, but not like that, not taking me and Rosa to the same basement that was supposed to be secret, not making me sit in front of a table, hold her hair... Rosa's and make her head turn red like her hair, hitting her so hard on the stone table that she opened it, not ignoring the scream of a six year old child in shock and trying to insert the meat, smeared with blood, swearing in Latin for being a pig fat and when he saw it he couldn't open his mouth so much more, that he was no longer human but demonic, I swear it wasn't my head playing pranks on me, he- that was no longer human, his mouth was so wide that it went beyond the limits of his face, I stopped screaming, I as a child looked shocked and vomited, he brought his mouth to it and bit it... HE TOOK A PIECE OUT OF THE ONLY, ONLY PERSON WHO WAS NOT GUILTY OF THIS gluttony for which I was being punished.
+
+I just remember running.
+
+I went out into the street, vomiting, and how would you think a child in tears in that state reporting such a harmful crime, would an 8 year old think something like that? 
+simple, the police went there, they found nothing, the pastor was no longer there
+that little room, it was empty and clean, no table, no blood, no body
+There was no documentation of me in that place, as if I had never experienced that, I was just an unstable child because I was left there when I was still a baby, this case even appeared in the news in my small town, my psychologist must have heard about it, so she doesn't believe me, but I know what I experienced, I know why I became a vegetarian and today I can't eat or sleep.

@@ -1,26 +1,26 @@
-Grocery shopping is supposed to be a safe, relatively non-difficult task. 
+Grocery shopping is supposed to be a safe, relatively non-difficult task.
 
-Where I work though? Not quite the case. 
+Where I work though? Not quite the case.
 
-Now, I wouldn’t say that my job is exactly dangerous, only that it has dangerous aspects to it. 
+Now, I wouldn’t say that my job is exactly dangerous, only that it has dangerous aspects to it.
 
-Are you looking for groceries for the week, some simple ingredients for dinner? 
+Are you looking for groceries for the week, some simple ingredients for dinner?
 
 Actually, scratch that. How would you like to shop with a monster capable of ending the world?
 
-Those were two of the questions I was asked during my initial interview for this job. I laughed it off and said yes to both. 
+Those were two of the questions I was asked during my initial interview for this job. I laughed it off and said yes to both.
 
 At the time, I thought it was a simple light-hearted joke poking fun at how terrible some customers can be. How wrong I was.
 
-Like I said before, the work I do isn’t inherently dangerous. It’s only the customers I encounter that end up being as such. 
+Like I said before, the work I do isn’t inherently dangerous. It’s only the customers I encounter that end up being as such.
 
 I’m not huge on this job, but it has to work considering the fact that there isn’t a whole lot else you can do to make a decent living in this town.
 
-Fallscean Market is a prolific (very loose use of the word) store located in the town of the same name. Imagine Walmart, but on quite a bit of a smaller scale. 
+Fallscean Market is a prolific (very loose use of the word) store located in the town of the same name. Imagine Walmart, but on quite a bit of a smaller scale.
 
 That’s sort of what we’re like. Similar to Walmart, actually, I do believe this store was built on a burial ground or something, because weird shit happens here.
 
-What started as a simple part-time job for money has culminated in a never-ending cycle of near-cataclysmic events. 
+What started as a simple part-time job for money has culminated in a never-ending cycle of near-cataclysmic events.
 
 Of course, that isn’t how it started, but you know how these things go. I’ll say one thing; $15.50/hr is not, has not been, and never will be worth what me and my coworkers went through.
 
@@ -30,13 +30,13 @@ Of course, that isn’t how it started, but you know how these things go. I’ll
 
 “Ack, dammit. It’s definitely going to rain.” I grumbled to myself as I looked overhead at the quickly forming storm clouds.
 
-While Fallscean isn’t known for a whole lot, there is one thing; it rains here in April more often than it doesn’t. 
+While Fallscean isn’t known for a whole lot, there is one thing; it rains here in April more often than it doesn’t.
 
 By the time I arrived at work, I was a good bit heavier than when I got out of school. Thank you, rain.
 
-The clock read 3 PM and I already dreaded the rest of my shift. 
+The clock read 3 PM and I already dreaded the rest of my shift.
 
-Rainy days are bad for business because our customers don’t like being attacked by the dumpster fish. 
+Rainy days are bad for business because our customers don’t like being attacked by the dumpster fish.
 
 It really kills the “I want to go shopping without a sea creature slapping me” vibe.
 
@@ -78,7 +78,7 @@ I stopped dead in my tracks.
 
 “S—Spike, are you seeing this?”
 
-“Yup.”  
+“Yup.”
 
 I haven’t used hallucinogens or any form of psychedelics in my 17 years on this earth, so when I say that this was legit, I mean it.
 
@@ -132,7 +132,7 @@ They settled on cookies.
 
 “Oatmeal.”
 
-“You want to know what oatmeal is?”  
+“You want to know what oatmeal is?”
 
 “Yes.”
 
@@ -212,7 +212,7 @@ It was, what—10 AM? I had just punched in for my weekend shift thinking that a
 
 For the most part, things did go well.
 
-I’d say it was around 1:30 when this really strange dude came into the store. 
+I’d say it was around 1:30 when this really strange dude came into the store.
 
 He was spouting some nonsense in a language I didn’t understand, but that wasn’t even the weirdest part.
 
@@ -252,7 +252,7 @@ Looking down at my phone, I saw the words translate roughly to “good lord, whe
 
 I looked up at him. We didn’t sell those at the store, so I told him as much.
 
-“Scilicet, simiae omnes idem es. Nihili.”  
+“Scilicet, simiae omnes idem es. Nihili.”
 
 That translated to “of course, you monkeys are all the same. Worthless.”
 
@@ -278,8 +278,8 @@ Anyways, one of the most major events to occur at the store was that of the cat 
 
 My shift is about to start, and God knows what’ll come through those automated corporate doors.
 
--EDIT-
+\-EDIT-
 
 Changed some dates. Years and months tend to get mixed up when you work a job like mine.
 
- 
+[ Part Two Here.](https://www.reddit.com/r/nosleep/comments/1l46c9w/the_store_i_work_at_attracts_some_pretty_weird/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
