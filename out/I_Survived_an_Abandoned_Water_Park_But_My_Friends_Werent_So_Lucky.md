@@ -1,5 +1,5 @@
 [PART 1]
-https://www.reddit.com/r/nosleep/s/Wf74Ti61t7
+https://www.reddit.com/r/nosleep/s/uJaWxh2s0Q
 
 
 
@@ -9,14 +9,10 @@ So, I don't know if that makes me one of the lucky ones, still here while my two
 
 Fuck… Let me start over.
 
-My name is Tommy. I'm sure you're wondering why I'm telling you this, why you should care what some random, sixteen-year-old kid has to say on the internet at 2 AM. You've probably already left, scrolling for something more entertaining. But if you're still here, thank you. And if you dare to hear my story, I only ask that you refer to the link above before you proceed. It will all make so much more sense. I just can't shut my eyes. Every time I do, I see it… 
-That smile. Those dead, fucking eyes.
+My name is Tommy. I'm sure you're wondering why I'm telling you this, why you should care what some random, sixteen-year-old kid has to say on the internet at 2 AM. You've probably already left, scrolling for something more entertaining. But if you're still here, thank you. And if you dare to hear my story, I only ask that you refer to the link above before you proceed. It will all make so much more sense. I just can't shut my eyes. Every time I do, I see it… That smile. Those dead, fucking eyes.
 .
 .
 .
-
-
-
 "You sure this is it, KC?" I whispered, clutching my backpack straps. My eyes darted from the road behind us to the park's remains. Its broken structures looked like the bleached ribs of some ancient, dead monster. I didn't want to do this. My dad would kill me if I got caught trespassing.
 
 KC, though, practically bounced. "Dude, obviously! This is prime urbex. Seriously, Tommy, you're going to back out now? After all that talk about 'adventures'?" He gestured at the slides, their silhouettes jagged against the distant town's dim glow. "Besides, the homeless dude said 'look for the section where the fence is pushed in.' See??" He pointed to a sagging section of chain-link, an obvious entry point, the bent metal glinting ominously in the moonlight. "It's fine, bro. Nobody gives a shit anymore."
@@ -122,7 +118,7 @@ There I stood, next to the monster, but the photo had glitched. My face, my enti
 
 .Its skin was now a vibrant and healthy grey, textured and slick reflecting the bottom of the slide above us. It wasn't until I looked at the eyes that I felt the world and my heart stop simultaneously. Its eyes were now bright and alive, slightly squinted into a devilish shape, no longer the lifeless dead pan stare straight ahead. They were now at a downward angle, hyper focused on one thing. 
 
-And I was me. 
+It's eyes were hungrily looking down at me. 
 
 Justin began to laugh. "That's amazing, dude. Bravo!"
 
@@ -148,15 +144,13 @@ We shuffled backward, our eyes glued to the Maw, unwilling to turn our backs on 
 
 Then, I looked at the dark, oily water at the base of the Maw. Just beneath the surface, where the bottom of its huge stretched jaw met the murky depths, a faint shimmer pulsed. It was subtle, barely there. A heartbeat like rhythm that seem to writhe with an invisible life. It pulsed, slow and deliberate. 
 
-KC, seeing the shimmer too, let out a choked whimper. He stumbled back from the wall, splashing in the grime. "It's... it's doing something.... Oh my God, guys it's fucking breathing..." 
+Liam, seeing the shimmer too, let out a choked whimper. He stumbled back from the ladder, splashing in the grime. "It's... it's doing something.... Oh my God, guys it's fucking breathing..."
 
-Justin grabbed KC's arm, pulling him. "Move! We'll try the other side of the pool!"
+Sam grabbed Liam's arm, pulling him. "Move! We'll try the other side of the pool!"
 
-The air grew heavy, pressing down, making it hard to breathe. I swept my flashlight beam frantically around the pool's rim, searching, pleading for an escape, but there was nothing. Just the walls, grime, and the darkness above.
+The air was now pressing us down, making it hard to breathe. I swept my flashlight beam frantically around the pool's rim, searching, pleading for an escape, but there was nothing. Just the walls, grime, and the darkness above.
 
-And as my light swept back towards the Maw, I saw it. Just for a second, its eyes narrowed, and the smile grew. It was gone a second moment later, but I know what I saw, and I knew what was happening. 
-
-The Maw was playing with us now. And it had just closed the last exit.
+And as my light swept back towards the Maw, its eyes narrowed, and the smile stretched. It was gone with a blink of my eye, but I know what I saw, and I knew what was happening. The Maw was playing with us now. And it had just closed the last exit.
 
 Suddenly, the smell exploded. It punched into my nose, my throat, stealing the air. I doubled over, coughing, gagging on the taste. My eyes slammed shut, watering.
 
