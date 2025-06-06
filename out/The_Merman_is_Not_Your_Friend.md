@@ -2,7 +2,7 @@ I should’ve known. If there’s a pretty fish lying helplessly on the shore, d
 
 My fiancé and I found this gorgeous top-floor apartment, with high windows and an ocean view. We were both romantics, and he told me that the sound of the waves helped him sleep. So we pooled our savings and bought it together as a wedding gift to each other. But most nights, while I snuggled against his chest, the water crashed over and over in my ear, keeping me wide awake. It’s hard to complain, though, when the view got hundreds of likes on social media.
 
-I was still groggy when morning came. We clutched our hot paper cups and went out for a walk. Barefoot, just to spend some quality time before lunch. The beach was empty except for one jogger with his dog. He wore a yellow overall; I could’ve mistaken him for a Teletubby, but he’s our neighbor, so we waved back.
+I was still groggy when morning came. We clutched our hot paper cups and went out for a walk, barefoot, just to spend some quality time before lunch. The beach was empty except for one jogger with his dog. He wore a yellow overall; I could’ve mistaken him for a Teletubby, but he’s our neighbor, so we waved back.
 
 Cold briny air tousled our hair, it was a beautiful day except for the clouds. Streaks of gray crossed the sky; wet sands sucked our feet, and that’s when I saw it.
 
@@ -28,7 +28,7 @@ So I moved the jar to the coffee table. Later, I told myself, I’d release it b
 
 But the fish thrashed, slamming against the glass; it fell and shattered. My fiancé hurried to clean up the shards as I scooped the fish; heavy like a grapefruit, as if it had absorbed the water, and I rushed it to the bathroom. 
 
-I let the tap run, and the water rose slowly, submerging its flopping body. I washed my slippery hands of its smell; it swam around the tub, flashing its colors like stained glass.
+I let the tap running, and the water rose slowly, submerging its flopping body. I washed my slippery hands of its smell; it swam around the tub, flashing its colors like stained glass.
 
 “How pretty.” I reached in and caressed it; the fish seemed to enjoy my touch. Ack! It bit me. I yanked my finger; blood welled up to the size of a needle pin, and I instinctively sucked it. The fish grinned at me. It really did! I wasn’t imagining it. Those rows of tiny, sharp teeth made me bolt out in panic.
 
