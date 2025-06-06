@@ -1,6 +1,6 @@
 I should’ve known. If there’s a pretty fish lying helplessly on the shore, do not take it home.
 
-My fiancé and I found this gorgeous top-floor apartment, with high windows and an ocean view. We were both romantics, and he told me that the sound of the waves helped him sleep. So we pooled our savings and bought it together as a wedding gift to each other. But most nights, while I snuggled against his chest, the water crashed over and over in my ear, keeping me wide awake. It’s hard to complain, though, when the view got hundreds of likes on social media.
+My fiancé and I found this gorgeous top-floor apartment, with high windows and an ocean view. We were both romantics, and he told me that the sound of the waves helped him sleep. So we pooled our savings and bought it together as a wedding gift to each other. But most nights, while I snuggled against his chest, the sound of the waves crashed over and over again in my ear, keeping me wide awake. It’s hard to complain, though, when the view got hundreds of likes on social media.
 
 I was still groggy when morning came. We clutched our hot paper cups and went out for a walk; barefoot, just to spend some quality time before lunch. The beach was empty except for one jogger with his dog. He wore a yellow overall, waving at us. I could’ve mistaken him for a Teletubby, but he’s our neighbor, so we waved back.
 
