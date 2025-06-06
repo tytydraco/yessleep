@@ -16,7 +16,7 @@ I sit up fast. The woman’s watching me, rubbing her head.
 
 “Are you alright, honey?” she asks.
 
-“H-honey? I’m your honey?” I say, inching toward the edge of the bed. My foot touched the floor, and I flinch—it’s stone. Cold stone.
+“H-honey? I’m your honey?” I say, inching toward the edge of the bed. My foot touches the floor, and I flinch—it’s stone. Cold stone.
 
 I finally look around. The room has cobblestone walls, floors, and ceiling. Light comes from a tall, barred window. The whole place feels like a castle.
 

@@ -1,12 +1,6 @@
-\[Part One\](https://www.reddit.com/r/nosleep/comments/1l3jbdr/when\_i\_click\_the\_pen\_a\_dead\_body\_appears\_part\_one/)
+[\[Part One\]](https://www.reddit.com/r/nosleep/comments/1l3jbdr/when_i_click_the_pen_a_dead_body_appears_part_one/)
 
 \*\*\*\*
-
-
-
-
-
-
 
 He was right.  It *was* fucking him.  But…I looked from the body in the tub and back to Gil.
 
@@ -300,7 +294,7 @@ Writing across the other me’s chest.  Just one line.
 
  
 
-**I HAVE A PEN \[TOO\](https://www.reddit.com/r/Verastahl/new/?t=all)**
+**I HAVE A PEN** [**TOO**](https://www.reddit.com/r/Verastahl/new/?t=all)
 
  
 

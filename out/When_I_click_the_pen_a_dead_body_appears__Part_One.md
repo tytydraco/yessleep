@@ -1,5 +1,3 @@
-
-
 I used to work with a guy named Gilroy.  At the time he was assistant manager at the same electronics store that I did tech support and customer service, and over the three years  I was there we got to be good friends.  He was a few years older than me, but it didn’t feel that way most of the time.  He had zero ambition, was very laid back, and overall made a job out of doing as little work as possible.
 
 When I graduated college I moved on, but he was still there, and at the time I’d have said he’d work there until he retired or died.   The pay was shit, but it was easy and low-key most of the time, particularly if you knew how to game the system like Gilroy did.  I didn’t really think about him for the next few years, but then I went on a trip with my then girlfriend.
@@ -14,11 +12,9 @@ I jerk upright, letting out a startled yelp as I look at the guy standing next t
 
 “What the fuck…Gilroy?”
 
-**** 
-
 I spent the next few minutes shooting the shit with him—it was the kind of awkward, grasping conversation you have with someone that you are happy to see but don’t really know that well.  We were work friends, after all, and while Gilroy was a good hang during my shift, he wasn’t someone I really knew or understood outside of that setting.
 
-Still, gaps in my Gilroy knowledge aside, seeing him in such an expensive and ritzy locale was kind of like seeing a fish riding by on a bicycle.  I mean I was out of place but…no, I was wrong.  I was out of place, because I was insecure and felt like these people’s money and perceived passive aggressive snobbery made them superior.  
+Still, gaps in my Gilroy knowledge aside, seeing him in such an expensive and ritzy locale was kind of like seeing a fish riding by on a bicycle.  I mean I was out of place but…no, I was wrong.  I was out of place, because I was insecure and felt like these people’s money and perceived passive aggressive snobbery made them superior.
 
 But Gilroy?  He was just as chill as when he was hanging out in the back of the store, eating gas station nachos and telling me about these European horror movies he was pirating.  And no one was looking at him weird, and when attendants came by to ask if we needed anything, it was pretty obvious that they knew him and liked him (or at least his tips) well enough.
 
@@ -50,7 +46,7 @@ Thirty minutes later I was walking into a large suite in the main hotel, and aga
 
 I stared at him.  “Um, dude, like how?  I mean, I get you have a new business and all, but you can afford to vacation like this?”
 
-Gil laughed and waggled his hand.  “I mean it is kind of a vacation, but it’s also my business.”  He reached into his shirt and pulled free a neck chain.  On the end of the chain was a long, narrow box.  It was fairly flat, but why was he wearing it under his shirt?  
+Gil laughed and waggled his hand.  “I mean it is kind of a vacation, but it’s also my business.”  He reached into his shirt and pulled free a neck chain.  On the end of the chain was a long, narrow box.  It was fairly flat, but why was he wearing it under his shirt?
 
 He opened the box and took out a pen.  “So this little guy, well, he’s very special.”  Gil was twirling the pen slightly in the air as he spoke, his theatricality making it seem more like a magic wand than a cheap-looking clickable ink pen.
 
@@ -130,6 +126,4 @@ Gilroy was beaming as he let go and the body slumped back into the ice.  Meanwhi
 
 His grin got wider as he reached forward and grabbed my shoulder, giving it a shake.  “It’s fucking me, dude.  It’s fucking [me](https://www.reddit.com/r/Verastahl/). "
 
-
-
-
+[Part Two](https://www.reddit.com/r/nosleep/comments/1l53fws/when_i_click_the_pen_a_dead_body_appears_part_two/)

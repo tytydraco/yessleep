@@ -32,7 +32,7 @@ In the middle of the hall was a long wooden table. It was small in comparison to
 
 “Um… Bacon and eggs?” I query, taking my seat. 
 
-“Bacon and eggs.” She repeats with a smile, before walking off into some back room, her cerulean gown trailing behind her.
+“Bacon and eggs.” She repeats with a smile, before walking off into some back room, her crimson gown trailing behind her.
 
 As I sit in the bench, taking in the intricate lace of the white tablecloth, I start to try to replay my last memories in my head, but I’m still reeling from the scream.
 
