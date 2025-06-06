@@ -12,7 +12,7 @@ Eventually, everyday at the same time of 2:22 pm, the front door would open and 
 
 A person can only live like this for so long. As if the guilt wasn't enough, he has to constantly remind me of my failure as a big brother, never allowing me to rest. But I deserved it. When he was alive he asked for such a simple thing and I couldn't give it to him. I just kept praying that he would get better, hoping one day I'd walk in and he'd be there running to my open arms. That never happened, and he would remind me every day 
 
-So, as often as I could I'd kneel at his fresh grave and beg for forgiveness. I tell him that he can come home if he wants, tell him he can finally rest but he never answered. I know it's too late, but I needed him to hear me. After one particularly difficult day, I went to his grave and prayed again. A unseemingly special prayer.
+So, as often as I could I'd kneel at his fresh grave and beg for forgiveness. I tell him that he can come home if he wants, tell him he can finally rest but he never answered. I know it's too late, but I needed him to hear me. After one particularly difficult day, I went to his grave and prayed again. An unseemingly special prayer.
 
 That night, the nightmare was different. Just as always I come home to the house empty, and him standing outside the window. He begins to give me that look when I feel my legs working beneath me. I slowly walk up to the front door and open it wide, allowing him to come in. He walks up our stone steps for the last time. At this point in the dream tears are streaming down my face, half blinding me, as I pick him up into an embrace.
 
