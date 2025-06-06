@@ -33,7 +33,7 @@ I’ve been coming here for the last eighteen or so years on the second Monday o
 
 “New care provider? What happened to Dr. Carrey?”
 
-Dr. Carrey was the doctor that I had known for the last fifteen or so years. Despite having little in common with me in hobbies and the like, she was somebody whom I trusted and could rely on to listen to my complaints and gripes. She was patient, caring, and made me feel at ease. She was older than I by about two decades, and she seemed like a second mother to me. She was among the few medical folks that I trusted, and now she was gone. 
+Dr. Carrey was the doctor that I had known for the last fifteen or so years. Despite having little in common with me in hobbies and the like, she was somebody whom I trusted and could rely on to listen to my complaints and gripes. She was patient, caring, and made me feel at ease. She was older than me by about two decades, and she seemed like a second mother to me. She was among the few medical folks that I trusted, and now she was gone. 
 
 “Dr. Carrey was recently transferred to a VA facility in Chicago, but it appears that Dr. Harris is your new provider.”
 

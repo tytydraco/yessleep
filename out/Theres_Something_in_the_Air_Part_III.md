@@ -48,7 +48,7 @@ Big Buford, Jack’s prized hog. He likes to show it around during pig competiti
 
 “Of course,” I respond casually.
 
-“Around midnight, Travis woke me up complaining about an upset stomach. How many Coors did ya’ll have last night?”
+“Around midnight, Jack woke me up complaining about an upset stomach. How many Coors did ya’ll have last night?”
 
 “Not too much to warrant messing up his insides. That man has an iron gut to alcohol.”
 
@@ -78,7 +78,7 @@ Jack and I hop in my truck and hit the road towards the clinic. The sun’s out 
 
 We roll up on the road where I saw Walter standing alone yesterday. It’s empty now, and Walter isn’t in sight. Maybe he went back to his house?
 
-“Man, this pain is no fucking joke” Travis whines.
+“Man, this pain is no fucking joke” Jack whines.
 
 “It’s gonna be okay bud, Dr. Edwards will probably prescribe some laxative”
 
@@ -92,7 +92,7 @@ As I get nearer to the clinic, I notice that the clinic’s parking lot is full.
 
 “What the fuck?” I say quietly.
 
-“Why is it so damn busy? It’s a fucking Tuesday morning!” Travis yells.
+“Why is it so damn busy? It’s a fucking Tuesday morning!” Jack yells.
 
 “I don’t know man, maybe there’s a flu going around? Let’s try to get you inside.”
 
@@ -126,7 +126,7 @@ She looks startled that somebody asked her, and she pauses and says,
 
 “The smell, the nurse knows the fucking smell”
 
-“Man, what the hell are you talking about? I’m over here dying from whatever is screwin' my stomach up and you’re obsessed with this fucking smell?” Travis responds furiously, “I already told you and Debby, I don’t smell shit. Ya’ll must be off your fucking rockers or something.”
+“Man, what the hell are you talking about? I’m over here dying from whatever is screwin' my stomach up and you’re obsessed with this fucking smell?” Jack responds furiously, “I already told you and Debby, I don’t smell shit. Ya’ll must be off your fucking rockers or something.”
 
 Jack, despite his love for saying every insult under the sun when we hang out, is rarely ever pissed like the way he is now. Physically, he isn’t intimidating in the slightest. Sure, he’s taller than me, but he’s also built like a pencil. Despite his outwardly anger, I can see the hurt in his eyes. Rather than continue to provoke him, I need to be a good friend and help a brother out.
 
