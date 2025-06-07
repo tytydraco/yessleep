@@ -2,11 +2,13 @@ When I got back from Iraq, I wasn’t the same.
 
 You hear that a lot, but for me, it wasn’t just the limp or the burns. Yeah... those healed. It was the silence.
 
-After the IED hit our convoy outside Mosul, everything felt muted. I lost two good friends that day. Guys I’d bunked with, laughed with, saved meals for. The only reason I wasn’t in that Humvee was because I’d twisted my knee the night before on a shitty foot patrol.
+After the IED hit our convoy outside Mosul, everything felt muted. I lost two good friends that day. Guys I’d bunked with, laughed with, saved meals for. The only reason I wasn’t inside of that Humvee was because I’d twisted my knee the night before on a shitty foot patrol.
 
 Survivor’s guilt doesn’t scream. It whispers, all night long, and it doesn't let you sleep.
 
 I came home on medical leave and drifted through the days, avoiding everyone. My mom cried every time I entered the room. I stopped entering.
+
+I started wandering.
 
 One weekend, I ended up at a little county hobby fair with my niece. One of those things you do to kill time. That’s where I saw the table of old radios. Big analog rigs. Dials, antennas, wires. A mess of forgotten frequencies.
 
@@ -34,7 +36,7 @@ The weird part? Everything fit. I had a spare power supply from an old battery k
 
 When I flipped the switch, the thing came alive. A dull green glow lit the panel. No noise—just static. A heartbeat in the dark.
 
-A few days later, Kev came by. Retired Army Signal Corps. One of the sharpest comms guys I ever knew.
+A few days later, Kev came by to check up on me, Retired Army Signal Corps. One of the sharpest comms guys I ever knew.
 
 He stared at the unit like it had just spoken his name.
 
@@ -50,7 +52,7 @@ I frowned. “Transmit where?”
 
 Kev looked at me, dead serious. “Anywhere. Longwave. Shortwave. Military. Civilian. You don’t have a license, do you?”
 
-“No. Haven’t even used it. Just listening.”
+“No. Haven’t used it. Yet...”
 
 He nodded, but kept looking at the radio like it might bite.
 
