@@ -60,7 +60,7 @@ He left me with that and didn’t bring it up again.
 
 I didn’t touch it for a week.
 
-Instead, I walked. Just wandered town with my hands in my pockets. Stopped by the Army surplus, the diner where they still called me “Gunny.” Watched kids play in the park. Thought about what Nick and Torres would’ve said if they’d made it home.
+Instead, I walked. Just wandered town with my hands in my pockets. Stopped by the Army surplus, the diner where they still called me “Chief.” Watched kids play in the park. Thought about what Nick and Torres would’ve said if they’d made it home.
 
 My VA counselor, Karen, had been trying to get me to “engage.” Her word. I liked her because she didn’t talk too much. She just asked the right questions and listened. She told me to try doing one thing that felt like me again.
 
