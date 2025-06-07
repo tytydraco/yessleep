@@ -223,4 +223,3 @@ I ran, bursting from the end of the alleyway into the street. It was quiet, much
 I still think back to that day, to Jenny being taken, and that poor waiter. I keep asking myself if there was something I could have done. It keeps me up at night. But that wasn't even the worst of it, oh no. What happened next has been burned into my mind for a long time now.
 
 I’ll post again as soon as I’m able. It's taking a lot out of me, remembering these things, and people are starting to notice.
-
