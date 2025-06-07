@@ -28,7 +28,7 @@ So I moved the jar to the coffee table. Later, I told myself, I’d release it b
 
 But the fish thrashed, slamming against the glass; it fell and shattered. My fiancé hurried to clean up the shards as I scooped the fish; heavy like a grapefruit, as if it had absorbed the water, and I rushed it to the bathroom. 
 
-I let the tap running, and the water rose slowly, submerging its flopping body. I washed my slippery hands of its smell; it swam around the tub, flashing its colors like stained glass.
+I let the tap run, water rose slowly, submerging its flopping body. I washed my slippery hands of its smell; it swam around the tub, flashing its colors like stained glass.
 
 “How pretty.” I reached in and caressed it; the fish seemed to enjoy my touch. Ack! It bit me. I yanked my finger; blood welled up to the size of a needle pin, and I instinctively sucked it. The fish grinned at me. It really did! I wasn’t imagining it. Those rows of tiny, sharp teeth made me bolt out in panic.
 

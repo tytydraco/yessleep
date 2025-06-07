@@ -12,7 +12,7 @@ I bought a house.
 
 The only things I told the nice realtor lady were that I wanted it to be modest and not part of an HOA. I’ve heard too many horror stories about those these past few years...
 
-The location wasn’t too important either, since I don’t have kids and I’m taking a bit of time off from work to finally reorganize my life. I even joked that I didn’t mind living someplace with a dark history, as long as the price of the property reflected that. The realtor didn’t look too happy with that; he just smiled politely and nodded.
+The location wasn’t too important either, since I don’t have kids and I’m taking a bit of time off from work to finally reorganize my life. I even joked that I didn’t mind living someplace with a dark history, as long as the price of the property reflected that. The realtor didn’t look too happy with that; she just smiled politely and nodded.
 
 She showed me a few houses, and the one that stood out to me was a single-family home built in the sixties half an hour away from a small city out west.
 
