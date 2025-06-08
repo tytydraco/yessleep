@@ -1,7 +1,7 @@
 Out in the holler where the kudzu grows and the forest is thick, beyond the bridge that runs over the creek, and a few miles south of the town, there sits a dinner.
 
  
-It’s old as shit and has a small gravel parking lot that the church in the woods likes to use for its bimonthly celebrations, but it’s almost always open. (The only time it’s ever really closed was that one time a tornado came through. And even then, people were still able to get food from the back window.) 
+It’s old as shit and has a small gravel parking lot that the church in the woods likes to use for its bimonthly celebrations, but it’s almost always open. (The only time it’s ever really closed was when a tornado came through. And even then, people were still able to get food from the back window.) 
 
 If you were to stop by and pop in, you’d probably get just about what you’d expect from any old country dinner. It’s about the size of a short, double wide trailer. So, the interior is a bit claustrophobic, but just spacious enough that you won’t feel trapped. It has a unique…smell— like cigarette smoke and floral perfume had some fucked-up love child and decided it needed to die there. Pictures of unidentifiable people eating are randomly taped to the wood-paneled walls (partially for advertising but mostly to cover some holes). A flickering neon “open” sign sits in one of the large windows. They’re framed with old Christmas lights and let in a natural light when the sun’s up, but also allow you get a full view of the road, surrounding woods, or Lucky, the veteran coyote, as you eat.
 
@@ -39,6 +39,6 @@ Ms. Cleo Janice comes in late in the afternoon and orders exactly one egg, a thi
 
 Then there’s Mr. Johnson. He doesn’t really have a usual meal, insisting that we should “surprise” him and give him whatever. However, he always refuses to drink water. He claimed our water had made him unable to eat fish. As every time he saw one, it apparently had his late wife’s face and would “beg him to stop” or “let go” with her voice.
 
-If you have questions, then so do I. But unfortunately for the both of us, they will forever go unanswered. Because Mr. Johnson, the slippery bastard, died. They found him in his kitchen a few months ago, soaking wet. Apparently, he managed to drown while eating tacos.
+If you have questions, then so do I. But unfortunately for the both of us, they will forever go unanswered. Because Mr. Johnson, the slippery bastard, died. They found him in his kitchen a few months ago, soaking wet. Apparently, he managed to drown himself while eating tacos.
 
 So, to sum it all up, the diner is weird as fuck, but it’s become a major part of my life. So, I figured I’d start sharing a few of my experiences with y’all. 
