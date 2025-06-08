@@ -58,7 +58,7 @@ The figure extended its hand toward me.
 
 “*What pact?*” I asked.
 
-“*The pact with me. To give you everything you ever wanted.*”
+“*A pact with me. To give you everything you ever wanted.*”
 
 *“What’s the price?”* I asked, my words trembling.
 
@@ -174,10 +174,10 @@ That’s why I’m writing this. That’s why I need to vent a little about this
 
 If you’re ever offered something like this, never accept it, because once you do, there’s no turning back.
 
-As I write this (slowly, as you can imagine), the box is lying in my basement, and tonight I will light the three candles again.
+As I finish my story (slowly, as you can imagine), the box is lying in my basement, and tonight I will light the three candles again.
 
 I don’t know what it will demand this time. The other hand? A foot? My entire arm?
 
 I’ve found it’s better not to dwell on it, mainly because it doesn’t matter.
 
-I’ll pay it anyway.
+I’ll pay it [anyway.](https://www.reddit.com/u/Accomplished_Low7889)
