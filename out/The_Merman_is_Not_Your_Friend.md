@@ -1,4 +1,4 @@
-I should’ve known. If there’s a pretty fish lying helplessly on the shore, do not take it home.
+I should’ve known: if there’s a pretty fish lying helplessly on the shore, do not take it home.
 
 My fiancé and I found this gorgeous top-floor apartment, with high windows and an ocean view. We were both romantics, and he told me that the sound of the waves helped him sleep. So we pooled our savings and bought it together as a wedding gift to each other. But most nights, while I snuggled against his chest, the sound of the waves crashed over and over again in my ear, keeping me wide awake. It’s hard to complain, though, when the view got hundreds of likes on social media.
 
