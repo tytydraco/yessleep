@@ -58,9 +58,9 @@ But I didn’t know. Not consciously, at least.
 
 I spun around, searching for *some* reminder of my purpose in that claustrophobic office.
 
-The entire space couldn’t have been over eight hundred square feet, and that’s being generous. Oddly, it was built in the shape of an octagon, with a trio of doors at the three o’clock, six o’clock, and nine o’clock positions, and the desk stationed at twelve o’clock. Faint light spilled in from the sides of two small, square windows. Both were hidden behind blinds. Other than that, there were a few nondescript cardboard boxes overflowing with papers aside the desk and the bizarre Persian rug on the floor. None of that helped me determine where the hell I was.
+The entire space couldn’t have been over eight hundred square feet, and that’s being generous. Oddly, it was built in the shape of an octagon, with a trio of doors at the three o’clock, six o’clock, and nine o’clock positions, and the desk stationed at twelve o’clock. Faint light spilled in from the sides of two small, square windows on the wall above the desk. Both were hidden behind blinds. Other than that, there were a few nondescript cardboard boxes overflowing with papers aside the desk and the bizarre Persian rug on the floor. None of that helped me determine where the hell I was.
 
-I started to hyperventilate. Waves of vertigo undulated through my skull.
+I started to hyperventilate. Waves of vertigo undulated through my head.
 
 The gentleman released an explosive sigh. He appeared keenly aware of my growing panic, while also being distinctly irritated by it.
 
@@ -140,7 +140,7 @@ What I discovered in that next room ripped the wind from my lungs.
 
 Another octagonal office space.
 
-Another man behind a desk, dawdling over paperwork with a pair of windows behind him.
+Another man behind a desk, dawdling over paperwork.
 
 Another rug and another two doors: one straight in front of me, and one to my left.
 
@@ -164,7 +164,7 @@ Couldn’t tell you precisely what those changes were. I didn’t stop long enou
 
 Once again, no luck.
 
-I charged through the passage, shoes and socks becoming thick with absorbed moisture, and stormed into the next room. The man behind the desk was wearing a crimson polo and brown khakis. I heard him cheerily whistling The Talking Heads’ *Burning Down The House* as I passed by, once again taking the left door. Then straight in the room that followed. Then straight for a few instances, followed by left for a few instances. After that, I began alternating.
+I charged through the passage, shoes and socks becoming thick with absorbed moisture, and stormed into the next room. The man behind the desk was wearing a crimson polo and brown khakis. I heard him cheerily whistling The Talking Heads’ *Burning Down The House* as I passed by, once again taking the left door. Then straight in the room that followed. Then straight again for a few instances, followed by left for a few instances. After that, I began alternating.
 
 Left.
 
@@ -180,7 +180,7 @@ Passageway
 
 So on and so on.
 
-Objectively, it didn’t seem like I was getting anywhere with arbitrarily selecting which door to go through. You’d think I would have considered slowing down to come up with a better plan. All things considered, a re-evaluation of my approach to the hallucinogenic circumstances would have been wise. However, the horrific, ever-changing abstractions of the original office that I encountered as I progressed deeper into the repetitive labyrinth made it impossible to think clearly. Rising terror exorcised the demon of rationality from my mind.
+Objectively, it didn’t seem like I was getting anywhere with arbitrarily selecting which door to go through. You’d think I would have considered slowing down to come up with a better plan. All things considered, a re-evaluation of my approach to the hallucinogenic circumstances would have been wise. However, the horrific, ever-changing abstractions of the original office that I encountered as I progressed deeper into the repetitive labyrinth made it impossible to think clearly. Uncontrollable terror exorcised the demon of rationality from my mind.
 
 You see, in the first room, everything was relatively normal, with a handful of subtle peculiarities bubbling beneath the facade. Same with the second room. In fact, I’m sure rooms one through ten were all reasonably aligned with reality. That said, they were incrementally transitioning into something far worse.
 
@@ -220,7 +220,7 @@ The tapping stopped. He bent down, and the floorboards whined. Termites sprinkle
 
 I felt his lips touch the tip of my ear as he spoke.
 
-*“Oh, Tim, no, you’re not dead. Think about what you’ve done. Consider the magnitude of your depravity. The profound extent of your sordid nature. Do you really think you’ve earned the luxury of death?*
+*“Oh, Tim, no, you’re not dead. Think about what you’ve done. Consider the magnitude of your depravity. The profound extent of your sordid nature. Do you really think you’ve earned the luxury of death?”*
 
 I didn’t dare look. I stayed still. Played possum. Pretended I was dead. Figured I’d pretend until it finally came true.
 
