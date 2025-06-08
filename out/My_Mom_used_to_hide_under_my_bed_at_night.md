@@ -34,7 +34,7 @@ I never told anyone. How do you explain something like that when you’re a kid?
 
 It wasn’t every night that something scary happened. Some nights she’d just lie there quietly. I’d hear her **whispering** to herself sometimes. Words I couldn’t make out, soft and steady, like she was talking to someone I couldn’t hear.
 
-This went on for years.
+This went on for **years**.
 
 During the day, she was totally normal. Made my lunch, helped with homework, joked with me, hugged me. I remember trying to work up the courage to ask her about it once when I was around ten. I said something dumb, like, “Mom, why do you sleep under my bed?”
 
