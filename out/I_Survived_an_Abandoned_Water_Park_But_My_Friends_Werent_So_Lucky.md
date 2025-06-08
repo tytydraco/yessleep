@@ -211,3 +211,7 @@ Once again, the ground started to softly vibrate, and the same dark coldness fro
 With a warning laced and desperate command, he spoke only one more word before the cold started to consume him.
 
 "Run."
+
+
+[PART 3]
+https://www.reddit.com/r/nosleep/s/aQ1QhIx8jt 

@@ -1,4 +1,4 @@
-It all started with me scrolling the web. I didn’t have a girlfriend or any real friends to be honest, so that’s how I spent most Sundays. Numbly clicking until it got late enough to panic about work.
+It all started with me scrolling the web. I didn’t have a girlfriend or any real friends to be honest, so that’s how I spent most Sundays.
 
 To be specific, it was the so-called “deep web”. Not because I was into anything shady, but because a bunch of YouTube videos had made me curious.
 
@@ -18,7 +18,7 @@ To my surprise, I got a reply fifteen minutes later.
 
 *Send address to receive tools.*
 
-That’s when I started to wonder if it was some sort of scam. Still, curiosity won and I replied with my building address, leaving out the apartment number, and used a fake name.
+I started to wonder if it was some sort of scam. Still, curiosity won and I replied with my building address, leaving out the apartment number, and used a fake name.
 
 Got no response after that. I figured that was the end of it.
 
@@ -32,9 +32,9 @@ On one side was a paragraph written in an unknown language. It used the Roman al
 
 The other side had short instructions, in plain English:
 
-*1 At night, with all lights out, light the candles in a triangle on the floor.*
+*1 At midnight, with all lights out, light the candles in a triangle alignment on the floor.*
 
-*2 Put this piece of paper in the middle and read it out loud.*
+*2 Put this piece of paper in the middle and read the other side out loud.*
 
 *3 Drop a single drop of blood from your finger onto the paper.*
 
@@ -78,15 +78,17 @@ The paper and candles were completely gone from my living room. 
 
 I got ready for work, stunned, and spent the whole commute replaying the night. Wondering if it was all an hallucination or something.
 
-When I arrived at work, I noticed a group of coworkers whispering among themselves. That’s when I found out my boss had died that morning of a sudden heart attack.
+When I arrived at work, I noticed a group of coworkers whispering among themselves. They explained in shock to me my boss had died that morning of a sudden heart attack. 
 
-Back at my cubicle, a deep anxiety grew on me. It just felt too strange that this happened after last night.
+At my cubicle, a deep anxiety grew. It just felt too strange that this happened right after last night.
 
-Just as I was about to head out for lunch, one of the company’s executives called me into his office. I sat there, stunned, as he explained that they needed an immediate replacement for my boss and that I was their first choice. Naturally, it came with a generous raise. I accepted without hesitation.
+And just as I was about to head out for lunch, one of the company’s executives called me into his office. I sat there, stunned, as he explained that they needed an immediate replacement for my boss and that I was their first choice. Naturally, it came with a generous raise. 
+
+I accepted without hesitation.
 
 I walked over to the taco truck where I usually had lunch, feeling a mix of excitement and guilt.
 
-While I was paying, I noticed the cashier, a beautiful brunette who had never noticed me before, suddenly staring at me. As I walked back to the office, she ran up to me, looking nervous, and asked if I wanted her number.
+While I was paying it, I noticed the cashier, a beautiful brunette who had never noticed me before, suddenly staring at me. As I walked back to the office, she ran up to me, looking nervous, and asked if I wanted her number.
 
 My life completely flipped in a single day.
 
@@ -134,7 +136,7 @@ I did well in business and decided to start my own company to make the most of m
 
 I was so caught up in my joy that I completely forgot about the due date.
 
-My clients, home life, and daily routine made me lose track of the exact day the pact was supposed to end. I only realized it had expired when things started to change suddenly.
+My clients, home life, and daily routine made me lose track of the exact day the pact was supposed to end, and I only realized it had expired when things started to change suddenly.
 
 Overnight, my wife stopped looking at me with love and began to look at me with contempt, as if she wondered why she had married me.
 
