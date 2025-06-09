@@ -52,7 +52,7 @@ That man’s real name, which is rarely ever said, was Judah Dismas. Just a mute
 
 But I’m not interested in who he was or what made him that way. To me he was not some boogeyman to psychoanalyze and listen to true crime podcasts about, he was the man who killed my family.
 
-We were his fourth and final victims, sixteen in total. 
+We were his fourth and final victims, sixteen in total.
 
 Morgan Hill, Georgina Hill, Aubrie Hill, Josh Patel, Daisy Patel, Riley Patel, Jamie Patel, Lewis Fisher, Sophia Fisher, Liam Fisher, Elliot Fisher, Haley Fisher  Elle Moss, Cody Moss, Jay Moss, and me, Toby Moss. 
 
@@ -386,7 +386,7 @@ In the split second I opened my eyes I saw one of the whisperers before it dodge
 
 It looked like a scarecrow.
 
-I heard it before I saw it. Something wet squelched in the distance in a pulsating flow. I was nearing its red glow at the end of the trail where nothing except a wall of thorns remained. A fleshy mass of flesh stuck out, the thorns wrapped around it like barbed wire as it throbbed hideously.
+I heard it before I saw it. Something wet squelched in the distance in a pulsating flow. I was nearing its red glow at the end of the trail where nothing except a wall of thorns remained. A decayed mass of flesh stuck out, the thorns wrapped around it like barbed wire as it throbbed hideously.
 
 I lifted up my axe, but before I could bring it down, I froze. I watched as it began to take shape.
 
@@ -486,7 +486,7 @@ I stood for a minute, taking in nature’s beautiful song, and then watched as t
 
 I still hurt. But I am alive. That is all that could possibly matter.
 
-I climbed back into my car, started the engine, and started down the road leading to tomorrow.
+I climbed back into my car, started the engine, and took the road leading to tomorrow.
 
 I laughed between a choked sob.
 
