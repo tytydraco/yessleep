@@ -148,9 +148,9 @@ As I lit the three candles, I brought the sharpest knife I had and a rag to cove
 
 But that goddamn devil had other plans.
 
-“*The price has changed. Now it’s your hand for five years,*” it said with the same blank look as before.
+“*The price changed. Now it's your entire hand for five years,*” it said with the same blank look as before.
 
-“*That’s not fair!*” I angrily shouted. “*You can’t keep raising the price. It’s* m*y life we are dealing with!*”
+“*That’s not fair!*” I angrily reacted. “*You can’t keep raising the price. It’s* m*y life we are dealing with!*”
 
 It didn’t answer or show any pity. “*That is the price,*” it repeated.
 
@@ -176,7 +176,7 @@ That’s why I’m writing this. That’s why I need to vent a little about this
 
 If you’re ever offered something like this, never accept it, because once you do, there’s no turning back.
 
-As I finish my story (slowly, as you can imagine), the box is lying in my basement, and tonight I will light the three candles again.
+As I finish my story, the box is lying in the basement, and tonight I will light the three candles again.
 
 I don’t know what it will demand this time. The other hand? A foot? My entire arm?
 
