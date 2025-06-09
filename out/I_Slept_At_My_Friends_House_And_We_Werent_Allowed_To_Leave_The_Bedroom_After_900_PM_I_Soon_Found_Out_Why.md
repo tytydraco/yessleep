@@ -160,7 +160,7 @@ A shape stirred in the bed. He looked out from the pale fortress of his sheets a
 
 He flinched from the sound of my voice. He sat up in the bed and hugged his knees to his chest and would not look at me. “I don't know what it is,” he mumbled to the door. “We just call it… the Nightman. It's always been here. As long as my family has.”
 
-The story came out of him then, a broken telling in the dark. A great-great-grandfather had built this house upon unhallowed ground. And from the first night there was a wrongness in the wood and in the walls. A bargain had been struck in that time, an unspoken covenant with the darkness. The family would have the house by the light of day. But from nine until the dawn the house was given over to that other.
+The story came out of him then, a broken telling in the dark. His great-great-grandfather had built this house upon unhallowed ground. And from the first night there was a wrongness in the wood and in the walls. A bargain had been struck in that time, an unspoken covenant with the darkness. The family would have the house by the light of day. But from nine until the dawn the house was given over to that other.
 
 “It gets lonely,” Leo whispered. A tear cut a clean path through his face. “It likes to… play. It mimics people. It uses things it finds to try and make a body for itself.”
 

@@ -412,4 +412,6 @@ Hope looked at me for validation, but I kept my eyes glued on Ann. Like it or no
 
 The fact of the matter was, one beast would simply stab my brain in if it caught me, while the other was allegedly a fate worse than hell itself.
 
-Maybe that’s why I found myself taking a step closer to join Ann’s side.  
+Maybe that’s why I found myself taking a step closer to join Ann’s side.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1l6rkw1/im_trapped_on_the_edge_of_an_abyss_my_memories/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
