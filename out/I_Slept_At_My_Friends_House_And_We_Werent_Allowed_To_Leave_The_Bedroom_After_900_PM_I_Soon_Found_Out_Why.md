@@ -8,7 +8,9 @@ The house was not a humble abode. It was a great white clapboard house that stoo
 
 His mother was a woman built of small bones and she carried a frantic smile that did not touch her eyes. She moved about the dim rooms with a nervous energy, asking of drinks and of snacks. His father sat in a leather chair and he did not speak. He was a large man whose eyes were dark and still and they followed us as we passed.
 
-At Seven O Clock they left. I heard his mother's whispered words to Leo, urgent and low, but I could not make them out.
+I heard his mother whisper words to him, urgent and low, but I could not make them out. 
+
+At Seven O Clock his parents left.
 
 “So, what’s the plan?” I asked. I dropped my bag on the floor of his room. The room was a small island of the ordinary in that house, with its posters and its rumpled bed and the console set before the television. It was the only place that did not feel as if it belonged to the dead.
 
