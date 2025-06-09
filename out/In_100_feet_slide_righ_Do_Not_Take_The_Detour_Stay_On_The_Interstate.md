@@ -46,7 +46,7 @@ My phone lit up again.
 
 \[Dad\]: *Yep. Just wrapping up. We’ll catch up.*
 
-The Camry blinked, pulled past us, and disappeared into the dark curve of the road, taking with it the quieting sound of gravel popping. I turn away from the glass and pick up my brother's Nintendo DS. This would probably be the rare 5 minutes I can play on it without him trying to snatch it from my hands. It didn't last long though. Something interrupted us. It sounded like something deep in the forest crashing against the ground. My mom and I snapped to the right where my dad and cousin were outside.
+The Camry blinked, pulled past us, and disappeared into the dark curve of the road, taking with it the quieting sound of gravel popping. I turn away from the glass and pick up my brother's Nintendo Switch. This would probably be the rare 5 minutes I can play on it without him trying to snatch it from my hands. It didn't last long though. Something interrupted us. It sounded like something deep in the forest crashing against the ground. My mom and I snapped to the right where my dad and brother were outside.
 
 Then, a snap of twigs deep in the bellows of the forest. A branch. Dry. Deliberate. No…. It felt too powerful though. My arms were tucked under the blanket in my seat, but the hairs on my arms stood up cold. Not twigs. Trees. Through the still slid-open door of the Honda, I could hear Dad immediately usher Dev back, “Let’s go. Now.”
 
