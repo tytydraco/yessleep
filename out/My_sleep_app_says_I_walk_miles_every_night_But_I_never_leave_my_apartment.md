@@ -83,7 +83,7 @@ That’s when I heard the shower turn off.
 
 I bolted.
 
-I didn’t sleep that night. Didn’t even go home. I sat in a 24/7 diner watching the sky turn gray, confused. Am I going insane? Was this real? Did I imagine it? Is this just all my paranoia?  
+I didn’t sleep this night. Didn’t even go home. I'm sitting in a 24/7 diner watching the sky turn gray, confused. Am I going insane? Was this real? Did I imagine it? Is this just all my paranoia?  
 At 7:03 a.m., I finally got a text from Alina:
 
 “Hey, you okay? Just got up. Everything good?”

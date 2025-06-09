@@ -90,7 +90,7 @@ But curiosity is a sick kind of hunger. And mine had teeth.
 
 I reached for the switch, pressed it down slowly.
 
-“You’re on *Midnight Echo.* You’ve reached Ellis.”
+“You’re on *Midnight Echo.* You’ve reached Ethan.”
 
 Static answered me. But this time, it was heavier more aggressive. Grainy, violent. Crackling like a thunderstorm had been caught in an old cassette tape and was now unraveling through the wires. My headphones hissed with it.
 
