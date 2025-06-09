@@ -57,9 +57,9 @@ She raises her head, ironically like a cat.
 
 Footsteps.
 
-“Audrey…” I struggled with my voice not to be scared.
+“Audrey…” I struggled with my voice to stay in tact.
 
-“What. Is. That.” My voice is cold like popsicles that she used to keep in the freezer. They were colored ice and its grains drain into my mouth.
+“What. Is. That.” My voice is cold like popsicles that she used to keep in the freezer. They were colored ice and its grains drained into my mouth.
 
 “Anastasia… go in my closet… now.”
 
@@ -83,9 +83,9 @@ He closed the door behind him.
 
 “Oh no, you’re not!” She runs at her. Fake, as a taunt.
 
-I jokingly think at that moment that we owe Zade Meadows an apology. When I hear this sound that drains all the funny thoughts from my mind.
+I jokingly think at that moment that we owe Zade Meadows an apology. When I hear this sound, that drains all the funny thoughts from my mind.
 
-A knife. A sharp one, that is. It won’t just pierce through her skin, it will pierce through the air too.
+A knife. A sharp one, that is. It won’t just pierce through her skin. It will pierce through the air too.
 
 A tackle, a frightened yelp comes through the air.
 
@@ -107,7 +107,7 @@ It had not fully impaled only half, but the pain was blinding my eyesight to the
 
 One last dreadful loud scream went up my ears before the room cascaded into black. No, not black, ebony, maybe even darker, like dead ashes.
 
-What felt like an eternity later, a strange unfamiliar white fabric filled my nostrils. I awoke in a hospital bed, lace pressed into my hand.
+What felt like an eternity later, a strange, unfamiliar white fabric filled my nostrils. I awoke in a hospital bed, lace pressed into my hand.
 
 I shot up.
 
@@ -117,7 +117,7 @@ The nurses exchanged looks of cringe, showing their teeth through the white ligh
 
 “They’re not here… they couldn’t make it.”
 
-Despite everything, I cried, as if all the anger and tears had finally let go inside of me. I had spent all my days defending them saying, “Maybe they will change.” But I cried instead and screamed out:
+Despite everything, I cried, as if all the anger and tears had finally let go inside of me. I had spent all my days defending them, saying, “Maybe they will change.” But I cried instead and screamed out:
 
 “Fuck them! They were never there for me.” And I sank my head into the putrid-smelling pillow and the cotton melted my tears into it, lukewarm.
 

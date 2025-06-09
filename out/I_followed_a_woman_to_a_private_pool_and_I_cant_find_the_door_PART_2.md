@@ -10,15 +10,15 @@ Here’s the logical explanation: After I fell in the water, I passed out, some 
 
 
 
-When I woke up, I was laid out on the dirty tile floor of the pool lobby, surrounded by gawkers and paramedics. My target was gone. She was the one that alerted the clerk I had fallen in. I guess she saved my life. I don’t understand why she would do that, but I reckon I’m thankful.
+When I woke up, I was laid out on the dirty tile floor of the pool lobby, surrounded by gawkers and paramedics. My target was gone. She was the one that alerted the clerk I had fallen in. I guess she saved my life. It was an extremely stupid thing to do, but I guess I’m thankful.
 
 
 
-But... that’s not all I remember about that night. In my head, there was a whole lot more to it. There was a… something, in the water. Then a boat. Then an island. I felt like I was in that “room” all night, but the clerk says he pulled me out only a couple minutes after I fell in. It doesn’t make sense.
+The problem is, that’s not all I remember about that night. In my head, there was a whole lot more to it. There was a… something, in the water. Then a boat. Then an island. I felt like I was in that “room” all night, but the clerk says he pulled me out only a couple minutes after I fell in. It doesn’t make any fucking sense.
 
 
 
-When I wrote the first part, I was convinced that I had imagined all of the stuff in between. But over the last few nights, I’ve been dreaming about it constantly. I’m not a creative person, so I find it hard to believe my brain could come up with all of this. And it feels so real to me; I can still remember the sea creatures, and the man on the boat’s smile, and the sand.
+When I wrote the first part, I was convinced that I had imagined all of the stuff in between. But over the last few nights, I’ve been dreaming about it constantly. I’m not a creative person. I don't write, I don't fantasize, I don't read. But I can still remember it all: the sea creatures, and the man on the boat’s smile, and the sand.
 
 
 
@@ -26,7 +26,7 @@ I’ll never understand why people care to read this shit, but… I guess I’ll
 
 
 
-—--------------------------------------------------------------------------------------------------------------------
+—--------------------------
 
 
 
@@ -38,7 +38,7 @@ I splashed my arms against the water, furious.
 
 
 
-How had I fallen in? I saw how far away the door was from the pool before the pool lights went out, and I wasn’t anywhere close. In fact, I was seconds away from grabbing the handle and getting out. But then, all at once, the floor was water. It didn’t make sense. It’s like the pool had reached out and grabbed me.
+How had I fallen in? I saw how far away the door was from the pool before the pool lights went out, and I wasn’t anywhere close. In fact, I was seconds away from grabbing the handle and getting out. But then, all at once, the floor was water. It didn’t figure. It’s like the pool had reached out and grabbed me.
 
 
 
@@ -50,7 +50,7 @@ How had I fallen in? I saw how far away the door was from the pool before the po
 
 
 
-Stupid, random bullshit. What, was she trying to scare me? Act like I was taking her place watching over whatever was in the water? Right. No, the truth was that I had severely misjudged distances, and the size of the pool, and I was just turned around. If I picked a direction and swam, I’d find the edge eventually.
+Bullshit. She was trying to scare me; act like I was trapped in the water with something. Right. No, the truth was that I had severely misjudged distances, and the size of the pool, and I was just turned around. If I picked a direction and swam, I’d find the edge eventually.
 
 
 
@@ -74,11 +74,11 @@ I peeled off my shirt and let it sink silently down to the bottom of the pool. I
 
 
 
-There’s a stretch of the Wharfe River in Yorkshire, England called The Strid. It’s only 6 feet across, and from the outside, it looks like any other quaint English creek. If you made the mistake of taking a swim, however, you’d take one step into the water and quickly realize that the bottom is 700 feet beneath.
+There’s a stretch of the Wharfe River in Yorkshire, England called The Strid. It’s only 6 feet across, and from the outside, it looks like any other quaint English creek. If you make the mistake of taking a swim, however, the first thing you would feel is a sucking current. And as you felt for the bottom, you would realize in horror that it wasn’t there–that it was 700 feet below.
 
 
 
-In my mind, the pool was even deeper. I imagined diving down, feeling for the bottom, swimming past schools of fish, sea turtles, shipwrecks, leviathans with tentacles a mile long…
+In my mind, the pool was even deeper. I imagined being sucked down, whirling helplessly past schools of fish, sea turtles, shipwrecks, leviathans with tentacles a mile long…
 
 
 
@@ -118,7 +118,7 @@ I pointed the gun down into the water in panic and pulled the trigger. I barely 
 
 
 
-I reached down desperately to catch it. I got a finger across the barrel, still hot from the gunshot, but it bounced right off and dropped like a stone down through the dark waters into the deep. Just like that, my gun was gone.
+I reached down desperately into the black water to catch it. I got a finger across the barrel, still hot from the gunshot, but it bounced right off and dropped like a stone down through the dark waters into the deep. Just like that, my gun was gone.
 
 
 
@@ -170,15 +170,15 @@ I began to swim faster. Whatever it was, it was better than darkness. My body wa
 
 
 
-As I approached, I thought about Virgo’s. The idea of a nice hot burnt cup of coffee sounded like a dream. When I got home, I was going to give Mike the biggest hug. (And I did, too. He hated it almost as much as I did)
+As I approached the blue lights, I thought about Virgo’s. The idea of a nice hot burnt cup of coffee sounded like a dream. When I got home, I was going to give Mike the biggest hug. (And I did, too. He hated it almost as much as I did)
 
 
 
-The closer I got to the light, the more vast it seemed. I think it was moving towards me, too, because before I even realized it, the light had begun to envelop me. All around was a sea of little blue points of light, like phosphorescent jellyfish, or algae, or something. It was like swimming in stars. 
+The closer I got to the light, the more vast it seemed. I think it was moving towards me, too, because before I even realized it, the light had begun to envelop me. All around was a sea of little blue points of light, like bioluminescent jellyfish, or algae, or something. It was like swimming in stars. 
 
 
 
-I’m not a whimsical person. But this was… wonderful. For a brief moment, I forgot how tired I was, and the dull ache of my muscles muted to a distant buzz. I scooped out a handful of water. I had one of them in my hand. It was alive, I think, because it drifted from one end of my hand-pool to the other, then back again; not really swimming, but floating with intention. What a cool creature. My curiosity satisfied, I poured it back into the water to be with its friends again.
+I’m not a whimsical person. If someone told me about a “spiritual experience”, I’d laugh in their face. But, I have to admit… this was wonderful. For a brief moment, I forgot how tired I was, and the screaming ache of my muscles quieted. I scooped out a handful of water. I had one of the lights in my hand. It was alive, I think, because it drifted from one end of my hand-pool to the other, then back again; not really swimming, but floating with intention. What a cool creature. My curiosity satisfied, I poured it back into the water to be with its friends again.
 
 
 
@@ -186,11 +186,15 @@ As I did, I saw the outline of my hand against the glowing water. I could *see* 
 
 
 
-I looked down into the water and saw my legs kicking among the blue spots.I saw the pattern on my underwear. I saw the hair on my shirtless chest. After hours of being in complete and total darkness, without even the ability to cross my eyes and see my nose, I could actually see *myself* again. Trumpets sounded. The Heavens rejoiced. I was over the fucking moon.
+I looked down into the water and saw my legs kicking among the blue spots.I saw the pattern on my underwear. I saw the hair on my shirtless chest. After hours of being in complete and total darkness, without even the ability to cross my eyes and see my nose, I could actually see *myself* again. 
 
 
 
-It occurred to me, in my euphoria, that maybe the blue creatures marked the beginning of a different zone of this place. If there was light now, then maybe there would be sound again, too. Dare I dream?
+I smiled.
+
+
+
+It occurred to me in my excitement that maybe the blue creatures marked the beginning of a different zone of this place. If there was light now, then maybe there would be sound again, too. Dare I dream?
 
 
 
@@ -198,7 +202,7 @@ It occurred to me, in my euphoria, that maybe the blue creatures marked the begi
 
 
 
-I realized then that up until that point, I had already mentally forfeited my life to the darkness. Though I kept swimming, hope had quietly packed up and left me. Eventually, the creature below would pull me down to join it, or I would follow my clothes and sink down to the unknown depths of this cursed fucking pool.
+I realized then that up until that point, I had already mentally forfeited to the darkness. Though I kept swimming, hope had quietly packed up and left me. My subconscious was certain that the creature below would pull me down to join it, or I would succumb to exhaustion and follow my clothes to the unknown depths of this cursed fucking pool.
 
 
 
@@ -258,7 +262,7 @@ The hand gave me a thumbs up. *Okay, I won’t*.
 
 
 
-I was still scared to death of the thing. I don’t know if it was a trick of the light or not, but it seemed like it was floating closer and closer to me. I would swim back, subtly, and it would close the gap. It wanted to be near me. Horrifying.
+I was still scared to death of the thing. I don’t know if it was a trick of the light or not, but it seemed like it was floating closer and closer to me. I would swim back, subtly, and it would close the gap. It wanted to be near me.
 
 
 
@@ -282,11 +286,11 @@ Was it referring to when I shot at it earlier?
 
 
 
-“I don’t know what you’re trying to say,” I said, frustrated. “Can… can you understand me?” The idea that it could understand my words made me deeply uncomfortable. It had no ears, and a human wouldn’t be able to hear me underwater. But if it could, then perhaps it could tell me how to get out of this place.
+“I don’t know what you’re trying to say,” I said, frustrated. “Can… can you understand me?” It seemed to acknowledge my request earlier, but the idea that it could understand my words made me deeply uncomfortable. It had no ears, and a human wouldn’t be able to hear me underwater. But if it could, then perhaps it could tell me how to get out of this place.
 
 
 
-The hand gave a thumbs up.
+The hand gave a thumbs up again.
 
 
 
@@ -310,7 +314,7 @@ The hand still didn’t move.
 
 
 
-“Alright, you know what…” I began, but just then, I started to hear a noise.
+“Fucking figures. You know…” I began, but just then, I started to hear a noise.
 
 
 
@@ -358,7 +362,7 @@ No, no. I remembered its little trick underwater with my foot that nearly caused
 
 
 
-“I’m here!” I cried through a mouthful of salt water. The paddling was more than my body could handle. My swimming slowed to a crawl. God, I remember how cold I felt just then, chilled down to the bone. I don’t think I could have lasted another ten minutes in that water.
+“Over here!” I hollered through a mouthful of salt water. The paddling was more than my body could handle. My swimming slowed to a crawl. God, I remember how cold I felt just then, chilled down to the bone. I don’t think I could have lasted another ten minutes in that water.
 
 
 
@@ -414,7 +418,7 @@ When I awoke, I was aboard the boat. I was wearing several layers of clothing no
 
 
 
-“Oh, thank god,” he gasped. “ I thought I did all that mouth-to-mouth for nothing.” Then he laughed, a hearty belly laugh.
+“Oh, thank god,” he said. “ I thought I did all that mouth-to-mouth for nothing.” Then he laughed, a hearty belly laugh.
 
 
 
@@ -422,7 +426,11 @@ I sat up slowly. My head was still pounding, and I was shaking from the cold, bu
 
 
 
-“Thank you,” I managed. I coughed. My throat was sore from the salt water. That was weird to me. Growing up, my mom would make me gargle salt water to *treat* a sore throat. I guess there’s a big difference between gargling and drinking.
+“Thank you,” I managed. I didn’t like needing help. It wasn’t something I was used to.
+
+
+
+I coughed. My throat was sore from the salt water. That was weird to me. Growing up, my mom would make me gargle salt water to *treat* a sore throat. I guess there’s a big difference between gargling and drinking.
 
 
 
@@ -430,15 +438,15 @@ I sat up slowly. My head was still pounding, and I was shaking from the cold, bu
 
 
 
-There was a sizzling sound. Through the lamplight I could see that the captain had a small gas stove set up in the corner, and he was frying something up in a mini cast iron pan.
+There was a sizzling sound. Through the lamplight I could see that the captain had a small gas stove set up in the corner, and he was frying something in a mini cast iron pan.
 
 
 
-“I got some fish in the cooler I’m about to fry up, if you want some,” he offered. “This here is for me though. Appetizer.”
+“I got some fish in the cooler I’m about to fry up, if you want some,” he offered. “ This here is for me though. Appetizer.”
 
 
 
-Whatever it was, it smelled delicious. Eating hadn’t even crossed my mind in the water, but I realized then that I was absolutely starving. It felt like an eternity ago that I had walked down the employee hallway and placed by hand against the mysterious black door.
+Whatever it was, it smelled delicious. Eating hadn’t even crossed my mind in the water, but I realized then that I was absolutely starving. It felt like an eternity ago that I had walked down the employee hallway and opened the mysterious black door.
 
 
 
@@ -450,11 +458,11 @@ The captain poured what looked like a handful’s worth of nuts into a bowl and 
 
 
 
-“I’m glad, t-too,” I stuttered. "I was… al-almost dead.”
+“I woulda f-figured it out,” I stuttered. "But I’m glad you did, too.”
 
 
 
-“I know, man, you were bluer than the algae when I pulled you up,” he laughed. I managed a smile, but I didn’t really want to think about it. I was warm now, at least.
+“You were bluer than the algae when I pulled you up,” he laughed, but I didn’t laugh along; I didn’t really want to think about it. I was warm now, at least.
 
 
 
@@ -466,7 +474,7 @@ The captain poured what looked like a handful’s worth of nuts into a bowl and 
 
 
 
-“We got time,” he said. "It's a good trip."
+“We got time,” he said.
 
 
 
@@ -474,7 +482,7 @@ The captain poured what looked like a handful’s worth of nuts into a bowl and 
 
 
 
-“Welp… that’s up to you, I guess. I was headed north, up to the coast, but I suppose if you wanted me to, I could take you south, back home.” He didn’t sound thrilled about the idea, but I nearly leapt out of my seat. I would’ve, too, if it wasn’t for a throbbing pain in my foot when I put pressure on it.
+“Welp… that’s up to you, I guess. I was headed north, up towards the island, but I suppose if you wanted me to I could take you south back home.” He didn’t sound thrilled about the idea, but I nearly leapt out of my seat. I would’ve, too, if it wasn’t for a throbbing pain in my foot when I put pressure on it.
 
 
 
@@ -522,7 +530,7 @@ I didn’t know he knew her. I figured she was as much of an interloper in this 
 
 
 
-“Yeah. That’s my job where I’m from,” I said, hoping he wouldn’t take it personally.
+“Yeah. Just business. Nothing personal,” I said, hoping she wasn’t his wife or something.
 
 
 
@@ -530,7 +538,7 @@ I didn’t know he knew her. I figured she was as much of an interloper in this 
 
 
 
-That was interesting. Not only did he know her, but he wanted her dead, too.
+Huh. Not only did he know her, but he wanted her dead, too. I was relieved.
 
 
 
@@ -550,7 +558,7 @@ I looked overboard and saw that the algae had dispersed, and the water was once 
 
 
 
-“Oh yeah. I’m out here hunting for her constantly. But that fucking hand… they communicate with each other. It’s like they’re friends or something. Every time I think I found her, she disappears.” He sighed and threw back another nut with a *CRUNCH,* even louder this time.
+“Oh yeah. Every week I’m out here hunting for her. But that fucking hand… they communicate with each other. It’s like they’re friends or something. Every time I think I found her, she disappears.” He sighed and threw back another nut with a *CRUNCH,* even louder this time.
 
 
 
@@ -574,7 +582,7 @@ I looked overboard and saw that the algae had dispersed, and the water was once 
 
 
 
-“Not much more. We’re just about here,” he said. “All you really need to know is that they put me here to protect the island, and she’s a threat. Simple as.”
+“Not much more. We’re just about here,” he said. “All you really need to know is that they put me here to protect the island, and she’s a threat.”
 
 
 
@@ -602,7 +610,7 @@ I looked around at the darkness, hoping to find the light of the doorway somewhe
 
 
 
-I looked at him. He was just sitting there looking back. I took him in for the first time: he had broad shoulders, 5’o’clock shadow, and a dark coat on. His hand was still cupped holding the roasted nuts, and he threw another back. He looked like anyone else back home; like any guy on the street.
+I looked at him. He was just sitting there looking back. I studied him: he had broad shoulders, 5’o’clock shadow, and a dark coat on. His hand was still cupped holding the roasted nuts, and he threw another back. He looked like anyone else back home; like any guy on the street.
 
 
 
@@ -634,7 +642,7 @@ I didn’t move. I focused on keeping my breath even. I just smiled at him polit
 
 
 
-“*Anything*. Don’t you listen?” he said. He was talking just like before, no change in his tone. Just like any guy on the street.
+“Anything I want. Like I said. Don’t you listen?” he said. He was talking just like before, no change in his tone. Just like any guy on the street.
 
 
 
@@ -662,7 +670,7 @@ I reached down cautiously to my left foot and peeled off the sock he had placed 
 
 
 
-Beneath, it was a mess of blood. The clumsy remains of my toes were wrapped in seeping red bandages. As I realized the extent of the injury, the pain came rushing in. My entire leg throbbed.
+Beneath, it was a mess of blood. My toes, or rather, the place they had been, was wrapped in seeping red bandages. As I realized the extent of the injury, the pain came rushing in. My entire leg throbbed.
 
 
 
@@ -710,7 +718,7 @@ I looked out in the distance. At first, I saw nothing. But after a few moments, 
 
 
 
-“That’s the Island. I figured I’d give you just a glimpse. That’s where your blonde friend’s from. She escaped a long time ago. And now, she keeps coming back to help others escape, too.”
+“That’s the Island. I figured I’d give you just a glimpse, since you came so far. That’s where your blonde friend’s from.”
 
 
 
@@ -718,7 +726,7 @@ I looked out in the distance. At first, I saw nothing. But after a few moments, 
 
 
 
-“What, so I can have another blonde bitch clone to give me trouble? Listen, if you’d have killed her, I would’ve let you go to the island toll free–hell, I might’ve even let you leave–but you didn’t,” he said. “ So now, it’s time to tie up loose ends.”
+“What, so I can have another blonde bitch clone to give me trouble? Listen, if you’d have killed her, I would’ve let you go to the island toll free–hell, I might’ve even let you go home–but you didn’t,” he said. “ So now, it’s time to tie up loose ends.”
 
 
 
@@ -746,7 +754,7 @@ It pointed a finger gun at the captain and dropped the hammer. *Bang*. Then it w
 
 
 
-I had the hand’s message all wrong. It was the same message it probably told the blonde woman as she swam away from the island: *If the boat comes: hide, run, and when all else fails… Bang*.
+I had the hand’s message all wrong. It was the same message it probably told the blonde woman as she swam away from the island: *If the* ***boat*** *comes:* ***hide****,* ***run****, and when all else fails…* ***Bang***.
 
 
 
@@ -754,7 +762,7 @@ The captain and I both looked down at the gun again. Then I sprang for it.
 
 
 
-I had it in my hand when I felt a peppering of buckshot in my right shoulder.
+I had the gun in my hand when I felt a peppering of buckshot in my right shoulder.
 
 
 
@@ -778,7 +786,19 @@ Another blind shot.
 
 
 
-I knew he was dead when I heard the splatter of his brain on the hull.
+I knew I hit him when I heard the splatter of his brain on the hull.
+
+
+
+Whether or not the captain was dead.. I couldn’t know.
+
+
+
+*Try not to let it find you*.
+
+
+
+The *it* wasn’t the hand, after all; it was the captain and his hunting boat.
 
 
 
@@ -786,7 +806,7 @@ All was quiet for a long moment. I lowered my pistol to my side, placing it in m
 
 
 
-But then, I heard a horrible wail. It was a long, wretched cry of mourning.
+But then, I heard a horrible wail. It was a long, wretched cry of mourning, neither masculine nor feminine.
 
 
 
@@ -810,12 +830,12 @@ The water folded on top of me with unimaginable force. The small boat didn’t s
 
 
 
-In the tumult, I caught glimpses of the pinpoint of yellow light growing brighter and brighter, until it was like the sun shining down on me.
+In the tumult, I caught glimpses of the pinpoint of yellow light growing brighter and brighter, like sun shining down on me, or perhaps the light at the end of the tunnel.
 
 
 
-I’m certain that at some point I felt a hand tugging on my collar, but at what point, and whose, I couldn’t possibly say.
+I’m certain that I felt a hand tugging at my collar, but at what point, and whose, I couldn’t possibly say.
 
 
 
-When I awoke, I was lying on the sandy shores of the Island.
+When I awoke, I was lying on the shores of the Island.
