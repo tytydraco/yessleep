@@ -1,4 +1,4 @@
-I don’t how much time I have left to type this up before I lose myself for good, but if you are reading this, I probably already have by now.
+I don’t know how much time I have left to type this up before I lose myself for good, but if you are reading this, I probably already have by now.
 
 Listen. If you live in Terre Haute, Indiana, and see a man with a scar around his neck, then **run for your life.** If you see him and are carrying a gun, shoot him in the head repeatedly until you are absolutely, 100% sure he is dead. 
 
