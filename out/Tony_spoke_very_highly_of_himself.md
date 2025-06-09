@@ -58,7 +58,8 @@ Then he started to sing.  His song went on for a long time, and I’ve forgotten
 
 >*So I climbed that tree and I rescued that cat*
 
->*I’m a handsome, humorous man!*
+>*I’m a handsome, humorous man!*  
+*---*
 
 >*The engine on the bus had begun to smoke*
 
@@ -223,4 +224,3 @@ Sometimes when I go into town, I see a sagging yellow shed rotting in a field or
 That’s okay with me.  I have no plans to accept the invitation.  And if I ever worry that there is a price to be paid for what I did, I follow a very simple procedure.
 
 I invite Diffie and Mark over for dinner,  and I look very well upon those three happy,  chubby faces smiling at me from across the table.  And I remember that if there is a price, I am very glad to have paid it.
-

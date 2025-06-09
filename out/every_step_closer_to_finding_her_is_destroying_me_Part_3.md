@@ -15,3 +15,7 @@ I couldn’t breathe. I couldn’t move. All I could do was stand there and list
 He’d been taken. Him and Tim—his best friend, his *everything*—they’d been dragged into something darker than I ever imagined. The flashes the twins showed me weren’t just memories—they were nightmares. I saw Hunter. I saw Tim. And the gym teacher. The way he lured them in. The way he—God, I can’t even say it. And then my dad—my *dad*—finding out, piecing it all together, and snapping. He killed the gym teacher and buried them all in a single grave in the backyard like that would somehow fix it. Like that would bury the horror. But it didn’t. The twins still found them. They found the bones, the essence, the fear, everything. And they used it. They made themselves out of it. Out of Hunter. Out of Tim. Out of something that should’ve been sacred.
 
  I’ll write some more later. I’m really exhausted this time—more than ever before. Whatever this is, it’s taking a toll on me. I’ve got more gray hairs than I’d like to admit, more lines on my face, and it feels like my body is aging faster than it should. Almost like someone’s sucking the soul right out of me with a straw or something. I’ll finish the rest soon, I just... need to catch my breath.
+
+Part 4 is up, labelled wrong as part 3 in the title. New to this Reddit stuff so please forgive me. Also it goes without saying that I’ve been drinking. A lot. 
+
+[part 4](https://www.reddit.com/r/nosleep/s/J8Ik8f9Z20)
