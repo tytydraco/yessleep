@@ -9,9 +9,9 @@ Most people experience it once in their life, but some unlucky fools — like me
 First time it happened to me, I was 17 years-old and I thought someone had broken into my house. I was dead-asleep and suddenly — It feels like someone is pointing a flashlight at me and all I hear is a woman screaming. Clear as day, right in my ear. I jumped up, frozen in place, adrenaline kicking in... But there was nothing. Nobody. Just me and the dark.
 
 After that, I started hearing her every night.  
-I'd wake up to a super bright light burning behind my eyelids and then, her scream. Always the same light. Always the same scream. The scream wasn't angry. It was raw. Painful. Like someone was torturing her. Like she wanted to die but couldn't. 
+I'd wake up to a super bright light burning behind my eyelids and then, her scream. Always the same light. Always the same scream. The scream wasn't angry. It was raw. Painful. Like someone was torturing her. Like she wanted to die but couldn't.
 
-I couldn't take it anymore. I'd wake up every day more tired than the previous one. I decided to visit a doctor. 
+I couldn't take it anymore. I'd wake up every day more tired than the previous one. I decided to visit a doctor.
 
 “No one dies from it,” they told me.  
 Just a misfire in the brain. Harmless.
@@ -23,9 +23,9 @@ This kept happening for over a year. And... I got used to it. As messed up as th
 
 That is... **until last night.**
 
-I'd woken up to the usual — The bright light right behind my eyelids. Except this time... **there was no scream.** The light started acting strange. It was flickering. Slowly. On… off… on… off…. 
+I'd woken up to the usual — The bright light right behind my eyelids. Except this time... **there was no scream.** The light started acting strange. It was flickering. Slowly. On… off… on… off….
 
-I opened my eyes and stared at the ceiling. My stomach dropped. The light was still there! It was in the actual room, not just in my head. I sat up quickly to try and look for the source. As soon as I did it, all I heard was a ***CLICK!*** — the light was gone. 
+I opened my eyes and stared at the ceiling. My stomach dropped. The light was still there! It was in the actual room, not just in my head. I sat up quickly to try and look for the source. As soon as I did it, all I heard was a ***CLICK!*** — the light was gone.
 
 I sat there in the dark, frozen. My eyes were adjusting, trying to catch anything that looked out of place. My heart was pounding, but not the same way it usually does. This time, it wasn’t just confusion — it was pure and raw fear. The light had NEVER stayed after I opened my eyes before. It had NEVER *lingered*.
 
@@ -35,9 +35,9 @@ I wanted to get up, turn on the lamp, but I couldn't move. Something about the w
 
 As I was gathering my courage, I heard it again — ***CLICK!*** — The light was back... And this time, I saw her.
 
-It was a woman. She was standing at the foot of my bed, holding a flashlight under her chin. Pale. Still. Silent... And smiling. She had one of the most disturbing smiles I've ever seen. It didn't feel human. Her lips were stretched into a smile, but not the kind a person makes. It didn’t fit her face. It looked forced, pulled too far at the corners, like someone had tried to mimic it without understanding how one was supposed to look. It was so wide, her cheeks looked torn near the edges. Her teeth were clenched and her eyes were wide. She was staring at me... **Through me.** Everytime she'd turn off the light and turn it back on, I was afraid she'd move. But she just stood there. Smiling at me. 
+It was a woman. She was standing at the foot of my bed, holding a flashlight under her chin. Pale. Still. Silent... And smiling. She had one of the most disturbing smiles I've ever seen. It didn't feel human. Her lips were stretched into a smile, but not the kind a person makes. It didn’t fit her face. It looked forced, pulled too far at the corners, like someone had tried to mimic it without understanding how one was supposed to look. It was so wide, her cheeks looked torn near the edges. Her teeth were clenched and her eyes were wide. She was staring at me... **Through me.** Everytime she'd turn off the light and turn it back on, I was afraid she'd move. But she just stood there. Smiling at me.
 
-I panicked and I threw the blanket at her and tried to reach the lamp. As I turned the lamp on... She was gone. Nowhere to be seen. 
+I panicked — I threw the blanket at her and tried to reach the lamp. As I turned the lamp on... She was gone. Nowhere to be seen.
 
 It’s 11:02PM as I write this.  
 I haven’t slept. I’m scared to.  

@@ -4,6 +4,8 @@ Now, though, I recount that painful moment as the last few seconds of happiness 
 
 Unless it chooses to forgive me.
 
+- - - - -
+
 Three days ago, I was watching my three-year-old son participate in his weekly gymnastics class, bouncing around the mat with the other rambunctious toddlers. Vanna, my ex-wife, was the one who enrolled him in the program, going on and on about the value of strengthening the parent-child bond through movement.
 
 At the time, I thought it was a steaming load of new-age bullshit, and I wasn’t shy about letting her know. A year later, however, I was feeling significantly less sour about the activity. Alex seemed to enjoy blowing off steam with the other kids. More to the point, Vanna and I had long since finalized the divorce. I imagine that had *a lot* to do with my newfound openmindedness. Without that harpy breathing down my neck, I’d found myself in a bit of a dopamine surplus.

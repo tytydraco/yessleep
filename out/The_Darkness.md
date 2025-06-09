@@ -1,45 +1,40 @@
-I can still feel the weight of the book in my hands, the pages bound in human skin, the words on the pages written in blood. I can still hear the chanting of the ritual, the malevolent energy that surrounded us, and the whispers in the darkness that followed. But what haunts me most is the fate of my friends, James and Liam, and the darkness that consumed them.
 
-&#x200B;
 
-After we left the cabin that day, I thought we had dodged a bullet. I was wrong. A few days later, James and Liam started acting strange. They were pale, withdrawn, and didn't want to talk about what had happened in the cabin. I tried to talk to them, to get them to open up, but they wouldn't say a word.
+My eyes refused to close. Fear clawed at my chest like a living thing. Every creak of the house, every whisper of the wind outside, made me jump. A glimpse of pale skin, black hair, and eyes that burned with malevolence. I saw it in my peripheral vision – always just out of sight. My mind screamed warnings: *Don’t look! *
+But I did. Once.
+That night, I woke up screaming, sheets drenched in sweat. The face haunted my dreams ever since.
+Then the fans started making strange noises – low hums that sounded like whispers. My bedroom window fan would slow down, as if listening to me breathe. I’d try to shake awake, thinking it was just a nightmare lingering. But I wasn’t asleep.
+Fear became my constant companion. I’d lie awake, eyes wide, waiting for... something. The face, darkness, some terror that lurked just beyond perception.
+My mind began to unravel. Memories blurred – what was real, what was nightmare? Hallucinations intensified: shadows moved on walls, footsteps creaked down empty hallways.
+One evening, while staring at the clock (3:47 AM – my mind recorded every detail), I realized:
+ *I wasn’t afraid of something coming for me...*
+ *I was afraid of becoming what I fear*
+My reflection stared back – eyes sunken, skin pale. The face I dreaded was... mine.
+In that moment, the fans stopped whispering. Darkness closed in. And I screamed – my voice identical to the whispers that haunted me.
 
-&#x200B;
+My mind splintered like shattered glass. Reality distorted, reflections lied. I barely recognized myself – eyes sunken, skin pale as the face I dreaded. Days blurred together in a haze of fear and paranoia. Constantly arguing with myself over what was real. Every night the fan would whisper my deepest fears, echoing my thoughts perfectly. When I look at myself in the mirror each morning things would change, started simple with shadows around my eyes, it progressed daily. Eyes black as coal one morning, my skin so gray it was almost white. The most recent disturbs me the most: my lips curled into the most sinister smile you can imagine.
+The clocks seemed to spin backwards in these moments, forcing my memories to overlap. I relived conversations with myself that haven’t happened yet? Already happened? What was happening, am I just going insane or is there something else? Trying to worm its way in through my confusion, fear, and what feels like the beginnings of despair. My reflection seemed to leer, as if saying: “Yes, you are.”
 
-Then, they disappeared.
 
-&#x200B;
+My reflection’s sinister grin haunted me. I felt myself slipping – mind fragmenting, identity unraveling. I caught glimpses of... something moving beside me. Always just out of sight. A shadowy arm reaching for the door handle, a dark silhouette mirroring my own movements. The eyes, MY eyes, staring back from behind me. Was this madness manifest or something slowly merging with my soul? I heard my own voice – but not my thoughts – whispering:
+“We’re the same.
+Always were.
+Just taking control now.”
+My heart raced as I realized: I was arguing with myself – but which one is me? Suddenly, I faced my mirror image again. This time it spoke out aloud:
+“I’m the one who’s always been awake while you slept.
+I’m the face you feared.
+I’m home now.”
 
-At first, I thought maybe they had just run away, that they were scared of what we had done in the cabin. But as the days turned into weeks and the weeks turned into months, it became clear that something more sinister was going on.
+My mirror image’s words slammed into me like ice water:
+“I’m home now.”
+It stepped closer, our reflections merging – two faces became one. I felt my mind surrendering, identity dissolving like sand between fingers. The room distorted, colors bleeding into darkness. Fans screamed my name.
+I WAS BEING CONSUMED.
+In this chaotic terror, glimpses of my life flashed before my eyes. I could hear childhood laughter and see some of my loved one’s smiles. Every fearful moment has led to this surrender. My voice – now *OUR* voice – whispered farewell:
+“The fear was me all along.
+I was the darkness waiting.
+And now, I am you.”
+Vision faded to black. When light returned, I stood alone – yet not alone. My eyes, once bright, were now black as coal. My skin, pale as the face I feared.
+I HAD BECOME HORROR.
 
-&#x200B;
-
-I went to the police, but they didn't believe me. They thought that James and Liam had just left town, that they were just rebellious teenagers acting out. But I knew the truth. I knew that the darkness we had unleashed in the cabin had taken them.
-
-&#x200B;
-
-I started to see things, dark shadows in the corners of my vision, whispers in the night. I knew that the darkness was following me, that it was coming for me next. But I couldn't stop. I had to find out what had happened to James and Liam, and what we had done in the cabin.
-
-&#x200B;
-
-So, I went back. I went back to the cabin, to the symbols etched into the walls, to the book of dark spells. And that's when I saw them. James and Liam, their bodies twisted and contorted, their eyes black pits of darkness. They were no longer human, no longer my friends.
-
-&#x200B;
-
-They attacked me, clawing at my flesh, tearing me apart. I fought back, but it was no use. The darkness had consumed them, and now it was consuming me too.
-
-&#x200B;
-
-And that's when I realized the truth. The cabin was not abandoned. It had been used for dark rituals for generations, passed down from one generation to the next. The symbols on the walls were not just random etchings, but a map to a world beyond our own, a world of darkness and despair.
-
-&#x200B;
-
-I was the last one, the last of my friends to fall. And now, I am just a vessel for the darkness, a pawn in its endless game. I wander the woods, seeking out new victims to feed the darkness, to keep it alive.
-
-&#x200B;
-
-And that's why I'm writing this. Not as a warning, not as a plea for help, but as a testament to the power of the darkness. It's out there, waiting for you, lurking in the shadows, waiting for you to make a mistake, to stumble into its grasp.
-
-&#x200B;
-
-So be careful, be wary, and always watch your back. The darkness is coming, and it's hungry.
+Police found my apartment empty – except for a single word scrawled on the mirror:
+“MINE”

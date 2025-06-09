@@ -1,8 +1,4 @@
-Hey, I'm a teen who's new here and has been reading nosleep for the past few days! I thought it to be a fun idea to post on here since I love literature and honestly why not?
-
-Small disclaimer: english is not my first language so please excuse writing and grammar errors, thank you.
-
-Today I'm going to tell you my story, I don't know how and why this happened, but what I know is that I'm probably always staying a teen here on reddit.
+I don't know how and why this happened, but what I know is that I'm probably always staying the same.
 
 It all started with the new home.
 
@@ -63,17 +59,16 @@ We all knew something was wrong and that something had happened, that something 
 
 After a while I realized that Sasha was missing, since when I didn't. I was somehow a little worried, because maybe that meant that Robin and I might be in danger, maybe we would vanish too, not knowing where the other was. But at the same time I was somehow relieved that she had disappeared, now Robin and I where alone.
 
-We kept walking for probably multiple months until we saw a clark (??) watching us 'til finally talking to us and telling us that we are stuck in a time loop, We are stuck in time and won't grow older, no matter how much time has seemingly passed. I wondered if the only way out was how Sasha had gone, maybe she had found the way out?
+We kept walking for probably multiple months until we saw a clark watching us 'til finally talking to us and telling us that we are stuck in a time loop, We are stuck in time and won't grow older, no matter how much time has seemingly passed. I wondered if the only way out was how Sasha had gone, maybe she had found the way out?
 
 _________________________________________
 
 We are still in the loop not knowing when and if we're going to disappear like Sasha did and not knowing where this would lead us.
 
-I now, after all this time, have realized that somehow there needed to be an open crack to the timeline and somehow WE where at the wrong place at the wrong time and got stuck in it.
+I now, after all this time, have realized that somehow there needed to be an open crack to the timeline and somehow we where at the wrong place at the wrong time and got stuck in it.
 
 I remember the last thing the clark had told me: You know the way out.
 
-I don't know what she meant by that, but th
-is place kind of feels like we always belonged here.
+I don't know what she meant by that, but this place kind of feels like we always belonged here.
 
 This is our new home.
