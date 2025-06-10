@@ -498,4 +498,4 @@ I should move, stay somewhere else temporarily, or at least stay awake all night
 
 I’m going to try to sleep at night tonight. I set up a second camera looking down at my bed. 
 
-I'll be back.
+[I'll see you around](https://www.reddit.com/r/nosleep/comments/1l7zyrg/help_whats_eating_me_part_2/).
