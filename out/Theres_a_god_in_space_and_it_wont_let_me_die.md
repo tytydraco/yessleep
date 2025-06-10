@@ -1,6 +1,14 @@
 Trigger warning: Suicide
 
-I doubt these logs will ever be seen by another living being, I don't care. What happened to my crew, what's still happening to me is something that needs to be documented, so here it is. I’ll start back on earth in the year 2096, humanity came out of that recession in the 2030’s basically thriving, we had solved the climate crisis and set up permanently on mars. Jupiter had been visited twice already and now humanity had its eyes on Saturn with the next big Apollo mission: Apollo 31. There were 4 crew members total: Vladamir Nevsky (Russian), Manny West (American), Phoebe Morizzi (Italian) and myself Heather milton (Australian). Us 4 spent months together preparing for this trip, making sure we get along, learning how to most effectively work together, and all that shit that doesn't matter now, just to say: we were excited, the whole of humanity was, the first steps on a new planet. The launch was broadcasted not just on mars (where we took off from) but also back on earth. The ship was supposed to be a “Marvel of engineering”, with enough food, water and fuel to make the trip to Saturn and back 3 times over. We were supposed to go down in the history books, our names to be known for centuries to come… I wish I never got on this piece of shit.
+I doubt these logs will ever be seen by another living being, I don't care. What happened to my crew, what's still happening to me is something that needs to be documented, so here it is.
+
+ I’ll start back on earth in the year 2096, humanity came out of that recession in the 2030’s basically thriving, we had solved the climate crisis and set up permanently on mars. Jupiter had been visited twice already and now humanity had its eyes on Saturn with the next big Apollo mission.
+
+Apollo 31 had 4 crew members total: Vladamir Nevsky (Russian), Manny West (American), Phoebe Morizzi (Italian) and myself Heather milton (Australian).
+
+ Us 4 spent months together preparing for this trip, making sure we get along, learning how to most effectively work together, and all that shit that doesn't matter now, just to say: we were excited, the whole of humanity was, the first steps on a new planet. The launch was broadcasted not just on mars (where we took off from) but also back on earth. The ship was supposed to be a “Marvel of engineering”, with enough food, water and fuel to make the trip to Saturn and back 3 times over.
+
+ We were supposed to go down in the history books, our names to be known for centuries to come… I wish I never got on this piece of shit.
 
 I’ll skip the whole event, we were now stuck in space for the better part of a decade. The trip there was going to take 3 years give or take, so the ship was installed with cryopods. I remember climbing into them at the end of the first week, how excited I was to wake up and be closer to that asteroid belt than any other humans in history. When I did wake up, there were alarms blaring and Manny was standing over me pulling me upright 
 
