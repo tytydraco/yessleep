@@ -132,7 +132,7 @@ I hadn’t really thought about the morality of ejecting our friend into space, 
 
 Phoebe walked up to the glass and pressed her hand against it. she mumbled something that i couldn’t hear then walked up to the button.
 
-We watched as the airlock door closed, the room decompress, then open into the dark abyss of space. We watched on as it swallowed Manny’s body. He was gone now, out of sight, out of mind. 
+We watched as the airlock door sealed, the room decompress, then open into the dark abyss of space. We watched on as it swallowed Manny’s body. He was gone now, out of sight, out of mind. 
 
 The next few days went by, me and phoebe didn't talk much but there was a mutual understanding that we didn’t want to. We stopped sharing meals together and one day I walked past the room with the cryo pods to find lights on. Phoebe was standing there, as I walked in she turned her head towards me.
 
@@ -158,7 +158,7 @@ I could hear her quiet footsteps in the empty halls slowly get louder as she fou
 
 “Or we wouldn’t die, only god knows what happens when you enter one of those things”
 
-“Sure, but we might still do something no humans even done before” 
+“Sure, but we might still do something no humans ever done before” 
 
 It’s funny thinking the most hopeful I'd been in months was at the thought of getting sucked into a black hole. Phoebe didn’t share my sentiment.
 
@@ -190,7 +190,7 @@ I was a bit stuck for words but i did tearily get out one
 
 “Goodbye”
 
-With that, Phoebe stepped into the airlock. She looked back at me, then walked over to the button inside the airlock. She turned to face the other door as she pressed down on the button. I watched as the airlock door closed, the room decompressed, then opened into the dark abyss of space. In those final moments I believe she was at peace with her decision. Phoebe Morizzi was the final crew member to die, the second to kill themself.
+With that, Phoebe stepped into the airlock. She looked back at me, then walked over to the button inside the airlock. She turned to face the other door as she pressed down on the button. I watched as the airlock door sealed, the room decompressed, then opened into the dark abyss of space. In those final moments I believe she was at peace with her decision. Phoebe Morizzi was the final crew member to die, the second to kill themself.
 
 I was then alone, in an empty dark ship, in the middle of space, not a single living being for thousands of kilometers. Or so I thought. The next 2 days were a little scary, sometimes I thought I heard footsteps or the ship would beep and I would have to remind myself that I was alone. I would spend my time in the greenhouse or in the cockpit watching as I drifted closer to the “blackhole”. 
 
@@ -204,7 +204,7 @@ I had to stop writing, this thing drives me mad whenever I'm forced to think abo
 
 Every time I try to sleep I dream of the thing, it drags my mind through the ship and to the cockpit where I stare at the thing. fear fills my body and yet i can’t look away, not until i wake up, always in a cold sweat. I hear it lurking the halls, thousands of heavy wet footsteps always just around the corner. Hands, disfigured, sharp and scaly reaching for my shoulder, **touching** my shoulder, **grabbing** me and **dragging** me into its inky abyss but when I turn around there's nothing. Eyes hundreds of eyes, thousands of eyes, **millions of eyes**. A single eye, of pure light staring into my soul, calling for me.
 
-Yesterday I remembered the gun in the cockpit. I sat in my greenroom, staring at the peace lily I had been growing. I thought about the others, all that time we spent bonding and preparing to go into space. It was all wasted, we barely even talked compared to the amount of time we spent together on this ship. Each day we all got more miserable, incapable of cheering each other up at all. Vlad got it the best i think, didn't have to spend a single day thinking his life was pointless. a single second even, he was killed almost instantly. That poor boy Manny, he had so much potential and joy through his quiet demeanour and I had to watch as it all drained from him till he was left hanging. I wish I got to say goodbye to him. And Phoebe, such a sweet woman, we were actually born in the same hospital, decade apart but… I remember that's how we initially bonded during training, talking about growing up in the same area. I should have joined her.
+Yesterday I remembered the gun in the cockpit. I sat in my greenroom, staring at the peace lily I had been growing. I thought about the others, all that time we spent bonding and preparing to go into space. It was all wasted, we barely even talked compared to the amount of time we spent together on this ship. Each day we all got more miserable, incapable of cheering each other up at all. Vlad got it the best i think, didn't have to spend a single day thinking his life was pointless. a single second even, he was killed almost instantly. That poor boy Manny, he had so much potential and joy through his quiet demeanour and I had to watch as it all drained from him till he was left hanging. I wish I got to say goodbye to him. And Phoebe, such a sweet woman, we were actually born in the same hospital, decade apart and before her parents moved back to Italy but… I remember that's how we initially bonded during training, talking about growing up in the same area. I should have joined her.
 
 I was supposed to be famous, or important or something more than stuck on a ship that didn’t fucking work drifting through space for months. All my fellow crew members are dead, I'm the only one still alive with an eldritch horror outside, and a gun in my hand, about to be dead too. I spent years of my life leading up to the moment I left for Saturn, and in the span of a few minutes that moment was ripped away from me. The realization that all those years were wasted, not just on a failed mission but a mission that sent me drifting in an endless expanse was something I had spent months contemplating.
 

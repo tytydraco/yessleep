@@ -8,14 +8,14 @@ Last time I broke down a few of the places I’d seen. So today I’ve got a few
 One time I was in Europe on a “business trip” and found a bridge in a rural area east of Berlin that only appeared under a full moon. When I found it, it was guarded by soldiers in World War Two era uniforms, but from asking the locals about it I gathered that sometimes they would be dressed as NVA troops or Franco-Prussian war troops or medieval knights. Not sure what variable dictated the time period. The weirdest part was that they didn’t speak German, instead speaking a language I never could identify. 
 
 
-They’ll ask for your papers, but accept anything you show them. They mean you no harm, though what they are really I’m not sure. I can’t explain it but I got a pretty strong feeling they weren’t human. 
+They’ll ask for your papers… at least I think that’s what they want. But  they accept anything you show them. They mean you no harm, though what they are really I’m not sure. I can’t explain it but I got a pretty strong feeling they weren’t human. 
 
 
 
 Another time I was in Florida, and I found a restaurant in the middle of the Everglades. A clean, well kept little cafe. Dead in the middle of a swamp, with no way of accessing it. 
 
 
-Stepping inside I was greeted by a middle aged lady with a funny accent who told me the daily specials in broken English. They were bizarre things, cow eyes fried in butter or teriyaki rats. I posed as a health inspector and shockingly the kitchen was very clean. Still didn’t eat anything though… sup not of the faerie they say. Or maybe I’m just too chicken to try weird swamp teriyaki. 
+Stepping inside I was greeted by a middle aged lady with a funny accent who told me the daily specials in broken English. They were bizarre things, cow eyes fried in butter or teriyaki rats. I posed as a health inspector and shockingly the kitchen was very clean. Still didn’t eat anything though… sup not of the faerie as they say. Or maybe I’m just too chicken to try weird swamp teriyaki. 
 
 
 Now for the last one today, I warn you. This place was awful even by my standards. 
