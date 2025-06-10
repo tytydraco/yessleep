@@ -148,7 +148,7 @@ The next few days went by, me and phoebe didn't talk much but there was a mutual
 
 “You can do it, I personally would like to know when it does”
 
-“I don’t like the idea of hanging, or slitting my wrists. It’s all creates a mess for someone else to find a cleanup”
+“I don’t like the idea of hanging, or slitting my wrists. It all creates a mess for someone else to find and cleanup”
 
 There was a once a point in time where we didn’t want to talk about the option of suicide. Now standing in this room, listening to Phoebe, it almost sounded like an inevitability.
 
