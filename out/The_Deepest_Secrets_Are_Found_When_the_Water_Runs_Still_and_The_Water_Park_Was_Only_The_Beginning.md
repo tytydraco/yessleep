@@ -100,3 +100,4 @@ The homeless man who'd told us about the fence. He stood under a solitary street
 
 
 [PART 4]
+https://www.reddit.com/r/nosleep/s/Wul35wL4tx
