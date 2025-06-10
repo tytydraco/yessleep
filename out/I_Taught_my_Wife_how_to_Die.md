@@ -1,4 +1,4 @@
-By the time I got done writing that night, I was too tired to care that my wife, Symone, wasn’t home. I figured she’d gone for a walk or something. 
+By the time I got done writing that night, I was too tired to care that my wife, Symone, wasn’t home. I figured she’d gone for a walk or something.
 
 When I woke up in the morning and saw that she wasn’t in bed, my first thought was that she’d gotten up before me and went to the store. It wasn’t until the evening that I realized she’d left me a voicemail in the middle of the night.
 
@@ -34,13 +34,13 @@ They were huddled together, but when I looked up they all had their heads turned
 
 Either way, they were on the other side of the tracks. They were the furthest thing from a threat at the time. That’s why I felt fine excusing myself to the bathroom a few minutes later.
 
-As I was washing my hands, I heard a scream and instantly recognized it as Symone’s voice. I sprinted out and found her circled by all three men. The tallest one held Symone in a headlock so tight that he was lifting her off the ground. The other two were looking around for witnesses. 
+As I was washing my hands, I heard a scream and instantly recognized it as Symone’s voice. I sprinted out and found her circled by all three men. The tallest one held Symone in a headlock so tight that he was lifting her off the ground. The other two were looking around for witnesses.
 
 When they saw me they barreled toward me. Symone let out a muffled cry.
 
 For a second time slowed. I remember thinking to myself how incredible of a situation this was. Surely this would all just stop somehow, right? This type of thing didn’t just happen.
 
-But it was happening, and the two men were only a few feet away from me. I had no chance in a fight. Even if it was just one of them, they were nearly twice my size. The one thing that I thought I might have over them, was speed. 
+But it was happening, and the two men were only a few feet away from me. I had no chance in a fight. Even if it was just one of them, they were nearly twice my size. The one thing that I thought I might have over them, was speed.
 
 Like a wide receiver juking a defender, I feigned as if I was going to run away. Instead, I cut back and ran towards the gap between the leftmost man and the tracks, narrowly escaping a five-foot fall to the bottom. He reached for me, but I lowered my shoulder and barreled through his outstretched arm. I cut to the right and slammed into Symone and her assailant at full speed, bringing all three of us crashing to the ground.
 
@@ -52,7 +52,7 @@ I kicked my feet blindly and connected with his stomach. I got free and halfway 
 
 The grip was so tight I was scared my throat was going to collapse. I flailed about and clawed at hands I couldn’t see, but as deep as my nails went, the grip never loosened—until we heard the horn.
 
-The train was coming. 
+The train was coming.
 
 Symone’s on the tracks.
 
@@ -66,7 +66,7 @@ Once we saw the train, there wouldn’t be enough time to react. There wasn’t 
 
 I allowed myself half a second to close my eyes and think and think and think. I pictured the train bursting through the tunnel and Symone screaming my name, standing against the edge of the tracks as it ran into and through her. I thought about the sound of her bones being crushed, about never seeing her again, about spending the rest of my life without her.
 
-I could try again to grab her, but the result would simply be the same: her getting crushed while we held hands. 
+I could try again to grab her, but the result would simply be the same: her getting crushed while we held hands.
 
 There was no getting her up in time. There was only one scenario where I saw her surviving:
 
@@ -82,7 +82,7 @@ She squirmed a half inch to the left just as she disappeared underneath the trai
 
 She screamed so loudly that I could hear her over the rumbling. She screamed and screamed until the train came to a complete stop. For a long second I heard nothing except for the train doors opening and passengers holding their conversations that strung together like a bad choir.
 
-“Symone!” I screamed 
+“Symone!” I screamed
 
 I flagged down the operator, and he kept the train stationary until Symone was able to squeeze out. Together, we lifted her up to safety.
 
@@ -106,13 +106,13 @@ She kissed a tear running down my cheek and hugged me close. “But you knew jus
 
 Years later, we had a beautiful wedding at the very same church Symone was baptized in as a baby. I sobbed as she walked down the aisle; we both sobbed as we said our vows; by the time we kissed, our faces were so wet that they slid against each other like two blubbery fish.
 
-We honeymooned in Greece where we climbed the Acropolis. We held hands as we watched the sunset. I promised  myself that, no matter what, Symone would be the important thing in my life. We were both on the precipice, about to free fall into the things we’d been dreaming about since we were young, and yet, I knew that whether I sold a million books or zero, I was going to love Symone more than anything. She would always be my priority. 
+We honeymooned in Greece where we climbed the Acropolis. We held hands as we watched the sunset. I promised  myself that, no matter what, Symone would be the important thing in my life. We were both on the precipice, about to free fall into the things we’d been dreaming about since we were young, and yet, I knew that whether I sold a million books or zero, I was going to love Symone more than anything. She would always be my priority.
 
 Symone got accepted into one of the top English Literature PhD programs in the country, so we ended up moving to an even bigger city. She focused on her classes and worked as a waitress on the weekends. I found a teaching job at a local high school and spent my evenings working on my novels.
 
 It was about a year into this new life when I began to find success. It started small. A publisher picked up my first book, a horror novel, and we were able to get it published in a short time with minimal edits.
 
-A couple dozen people picked up the book, and I got some solid reviews. Every week a few more sales would roll in, and after some months it looked like I might even break even. Then some girl on TikTok made a video with a title like, “The most disturbing book of 2025.” She gave a quick, spoiler free summary of my book with lots of gasps and comments like “you won’t believe what happens next.” At the end she said that she didn’t sleep with the lights off for a week after finishing the story. 
+A couple dozen people picked up the book, and I got some solid reviews. Every week a few more sales would roll in, and after some months it looked like I might even break even. Then some girl on TikTok made a video with a title like, “The most disturbing book of 2025.” She gave a quick, spoiler free summary of my book with lots of gasps and comments like “you won’t believe what happens next.” At the end she said that she didn’t sleep with the lights off for a week after finishing the story.
 
 The video ended up going viral. Tens of millions of views and over a million likes. Other book content creators started making summaries and reviews, some people even posted live reactions of them reading the ending. People were speculating on whether or not the killer was actually dead. Would there be a sequel?
 
@@ -126,13 +126,13 @@ My school understood when I quit with only a week's notice. This was a once in a
 
 I’d be lying if I said I didn’t notice Symone feeling down around this time. We barely talked anymore, sex was nonexistent. She tried to get me out of my office for a date at least once a week, but I was always just so busy. I kept telling her that as soon as I finished the book I’d spend all the time in the world with her. I remember being so frustrated that she just didn’t get it.
 
-She got even more upset when I started drinking at night. Not a lot, but when you write and think for 12 hours straight every single day, sometimes you just need something to help you relax. I yelled at her more than once during this time. 
+She got even more upset when I started drinking at night. Not a lot, but when you write and think for 12 hours straight every single day, sometimes you just need something to help you relax. I yelled at her more than once during this time.
 
 I kept telling myself that I would start treating her better soon. But then a sequel turned into a threequel, and then I started a new series. There really never was a good chance for a break. I had this momentum you see, and readers are fickle. There was always the chance that as soon as I took a breather they were going to move on to something else.
 
 Symone started struggling to keep up with her coursework, and every time she tried to vent to me about it I told her that if it was too much for her she should just quit.
 
-I’m not quite sure when she did drop out, but it’s safe to say I didn’t notice for a few weeks. She just laid in bed and wouldn’t even try to talk to me anymore. 
+I’m not quite sure when she did drop out, but it’s safe to say I didn’t notice for a few weeks. She just laid in bed and wouldn’t even try to talk to me anymore.
 
 One night I forced myself to stop writing a little early. I really did feel bad for her. I knew I was being neglectful. It just seemed that there was always something more urgent. And I knew she’d always be around once it wrapped up.
 
@@ -154,7 +154,4 @@ The first thing I did when I got off the phone was listen to her voicemail.
 
 All I can think about now is her lying there, confident that I was going to do something to save her. Did she believe that I was going to make it just in time?
 
-Did she die believing, like she did when we were young, that I would never let anything happen to her?
-
-
-
+Did she die believing, like she did when we were young, [that I would never let anything happen to her?](http://connorisaacwriting.com)
