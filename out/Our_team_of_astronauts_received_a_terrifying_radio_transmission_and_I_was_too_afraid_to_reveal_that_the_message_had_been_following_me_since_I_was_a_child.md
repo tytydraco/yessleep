@@ -524,4 +524,4 @@ I fear mankind’s lack of free will. No matter how hard I try, I will experienc
 
 We are, and will always be, fated to fly back to the universe’s centre.
 
-Fated to die in circles, and circles, and circles, and circles.
+Fated to die in circles, and circles, and circles, and [circles](https://www.reddit.com/r/dominiceagle).
