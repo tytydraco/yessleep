@@ -45,7 +45,48 @@ I put my palm up to my eyes, watery black liquid showed visibly on it, leaking t
 
 On the sleepover, it was just like when I was young. We played board games. I didn’t complain when the red pasta sauce blocked my view of which number I was on in Monopoly. I didn’t complain when the television stopped working right throughout the suspense, although I have just realized now I’m being negative.
 
-When I slept, there was a quiet thud on the doorstep.
+Audrey played out several sheets on the rotting floorboards. She didn't have another mattress. Instead, she took sheets from the cupboard and piled them one by one onto the floor.
+
+At 1:am, my eyes opened, I tried desperately to go back to sleep. I remember thinking that I would not go to sleep and that I would just lay like a statue until the sky birthed sky blue. Well, not really sky blue, we have an image in our heads of what Sky Blue looks like. What really is sky blue?
+
+The only light source was a small red square, coming from the microwave, and the small clock that ticks it's life away. You never really notice the clock if you're doing normal things, but when it's pitch black, that's the only sound you can hear.
+
+Tick tick tick tick ti-
+
+"You're still up".
+
+I quickly turn, thanks to survival mechanisms, to see  faintly Audrey's face.
+
+"How did you know?" I ask, a little scared, but knowing she would never hurt me.
+
+She shrugs; "stuff I learned in college".
+
+We sit in silence for a bit.
+
+"Audrey." Gaining up enough courage to muster what I'm about to say next.
+
+"Mmmhmm" she says.
+
+"Why did you leave?" I said, tilting my head sightly. Like a doll.
+
+She turned on the light switch that was glued hastily to the lamp.
+
+"What makes you say that?" She says, looking more serious.
+
+"Well-you just disappeared, like poof!" I do a hand movement that resembles that.
+
+"I was just tired, depressed, suicidal at one point."
+
+I was about to say how sorry I was when-
+
+A movement through the bushes could be heard.
+
+I remember a scene in 1982, Annie, where a man in all black ran through the bushes to bomb the president. I remember being so scared to sleep alone that I shoved towels over the floral print curtains. Crazy how that was allowed in a kids' movie.
+
+I brushed it off as being fireflies.
+
+
+ there was a quiet thud on the doorstep.
 
 “What was that?” I asked with a whimper.
 
