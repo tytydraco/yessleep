@@ -26,9 +26,9 @@ I had already walked about a mile when my phone began ringing again. Even withou
 
 It wasn’t a simple straight shot. At certain intervals I would hear the Voice calling out again, instructing me to go left or right, down paths I had driven past countless times, routes that I could drive in minutes or less, now passing by uncomfortably slowly. 
 
-“Right. Left. Right. Straight.” Before I’d even realized it, an hour had passed, and I was trekking on the side of busy street. Restaurants, stores, and gas stations littered either side of the road, cars whizzed past me as the sidewalk became wider, and I was no longer the only pedestrian walking along it. Some walked dogs, others jogged, and others still casually walked along as they remained glued to their phones. None paid any mind to me. Out of sheer habit, I pulled my own phone out and checked my steps app to see just how far I had gone. According to it, I had travelled only a little more than three miles. 
+“Right. Left. Right. Straight.” Before I’d even realized it, an hour had passed, and I was trekking on the side of a busy street. Restaurants, stores, and gas stations littered either side of the road, cars whizzed past me as the sidewalk became wider, and I was no longer the only pedestrian walking along it. Some walked dogs, others jogged, and others still casually walked along as they remained glued to their phones. None paid any mind to me. Out of sheer habit, I pulled my own phone out and checked my steps app to see just how far I had gone. According to it, I had travelled only a little more than three miles. 
 
-Three miles, a little over an hour of walking.  I wondered just how much much further I had to go. 
+Three miles, a little over an hour of walking.  I wondered just how much further I had to go. 
 
 As it turned out, it wasn’t much farther at all. I had been carefully checking each street sign I passed on my forced pilgrimage, hoping each time that the one I passed would be my ever so sought Lincoln Avenue. Two hours in, I finally found it. Just past an old apartment complex, the small green sign said in partially chopped lettering;
 
