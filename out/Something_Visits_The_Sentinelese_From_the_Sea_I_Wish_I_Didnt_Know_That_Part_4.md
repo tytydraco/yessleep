@@ -282,7 +282,7 @@ By this time his servant had brought him the necessary files and after flipping 
 
 
 
-"Yeah…and these photos were taken 5 days after Setu was recovered. I had him on IV from the first day and even attempted a debridement surgery in the confines of the home. We were able to remove the highly affected tissue but there was no positive response from his body. The wound culture didn’t raise any alarms but this made Setu’s case all the more puzzling from a medical perspective. I was administering every antibiotic ideal for his condition considering his weight and the results of the culture, yet it seemed to have no effect. The fever would suppress with every dose but the would showed no signs of healing. ”
+"Yeah…and these photos were taken 5 days after Setu was recovered. I had him on IV from the first day and even attempted a debridement surgery in the confines of the home. We were able to remove the highly affected tissue but there was no positive response from his body. The wound culture didn’t raise any alarms but this made Setu’s case all the more puzzling from a medical perspective. I was administering every antibiotic ideal for his condition considering his weight and the results of the culture, yet it seemed to have no effect. The fever would suppress with every dose but the wound showed no signs of healing. ”
 
 
 
