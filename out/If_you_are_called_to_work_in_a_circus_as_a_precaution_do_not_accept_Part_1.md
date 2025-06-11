@@ -14,23 +14,30 @@ I went to the kitchen, opened the cupboard doors, nothing, there was nothing the
 
 A woman answered the phone:
 
-- Hi?
+*Hi?*
 
-- Hello, are you interested in changing your life? Finally having freedom-
 
-- Yes, of course, what is a job to do?
+*Hello, are you interested in changing your life? Finally having freedom-*
 
-- Well, we're looking for a handyman, to work at the incredible *address*.
 
-- At the abandoned circus in town?
+*Yes, of course, what is a job to do*
+
+
+*Well, we're looking for a handyman, to work at the incredible *address**
+
+
+*At the abandoned circus in town?*
+
 
 I thought to myself, "What's this? A story about Nospleep?"
 
-- It's not abandoned, sir. Many people go on the rides. We need someone to fix the small problems that may arise on the rides. If there's any problem, you have to go and fix it quickly. Are you interested in filling the position?
 
-- What would the salary be?
+*It's not abandoned, sir. Many people go on the rides. We need someone to fix the small problems that may arise on the rides. If there's any problem, you have to go and fix it quickly. Are you interested in filling the position?*
 
-- Night shift, 9am to 3am, $25 an hour.
+*What would the salary be*
+
+
+*Night shift, 9am to 3am, $25 an hour.*
 
 I accepted the position.
 
@@ -48,17 +55,23 @@ I got a little nervous after thinking that, a strange pamphlet, delivered at a s
 
 I turned to leave, "seriously, an abandoned circus/park, calling for someone who no one would miss if he mysteriously disappeared, no one would press charges, how stupid was I, I'll never fall for that again-"
 
-- Where are you going? a voice behind me said.
+*Where are you going? a voice behind me said*
 
-I got scared and turned around abruptly.
 
-- Hi, I didn't see anyone so I was leaving, I thought I was in the wrong place maybe. I laughed nervously.
+*got scared and turned around abruptly.*
 
-- You're in the right place, you must be the new handyman, right?
 
-- Yes, it's me.
+*Hi, I didn't see anyone so I was leaving, I thought I was in the wrong place maybe. I laughed nervously.*
 
-- Come on, I'll show you around.
+
+*You're in the right place, you must be the new handyman, right?*
+
+
+*Yes, it's me.*
+
+
+*Come on, I'll show you around.*
+
 
 We walked while he explained some things about the park to me, I felt stupid after he explained everything to me, he said that the circus opens in the morning and stays open until 8pm and if there's anything to fix I'll be informed so I can fix it before the next morning, so everything is in order and the circus can operate normally the next morning.
 
@@ -76,10 +89,14 @@ List of rules
 
 1 - Just do YOUR job, if other employees come asking for your help, or offering help, don't help, don't accept, turn around and continue your tasks, don't respond, the more you talk, the more they will insist and maybe convince you.
 
+
 2 - At 5 minutes to 3:00, leave IMMEDIATELY, don't wait until 3:00 to leave the park, it can be dangerous.
+
 
 3 - Under no circumstances go into the circus tent, you may hear the noise of things falling or people talking things that might make you curious, loud laughter, but it's not your problem, don't go in, I repeat, DO NOT GO IN.
 
+
 Good luck.
+
 
 part 2, coming soon. 
