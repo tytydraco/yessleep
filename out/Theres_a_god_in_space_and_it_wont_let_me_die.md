@@ -82,7 +82,7 @@ I walked up to Manny, trying to cure my boredom with some conversation.
 
 “I didn't notice we lost power”
 
-“Well most of the ship running on backups, but the greenhouse is still connected to main” 
+“Well most of the ships running on backups, but the greenhouse is still connected to main” 
 
 To be honest I had completely forgotten about the greenhouse on the ship, I was about to call it quits already but now I had something to fill my time.
 
@@ -140,7 +140,7 @@ I hadn’t really thought about the morality of ejecting our friend into space, 
 
 Phoebe walked up to the glass and pressed her hand against it. she mumbled something that i couldn’t hear then walked up to the button.
 
-We watched as the airlock door sealed, the room decompress, then open into the dark abyss of space. We watched on as it swallowed Manny’s body. He was gone now, out of sight, out of mind. 
+We watched as the airlock door sealed, the room decompressed, then open into the dark abyss of space. We watched on as it swallowed Manny’s body. He was gone now, out of sight, out of mind. 
 
 The next few days went by, me and phoebe didn't talk much but there was a mutual understanding that we didn’t want to. We stopped sharing meals together and one day I walked past the room with the cryo pods to find lights on. Phoebe was standing there, as I walked in she turned her head towards me.
 
