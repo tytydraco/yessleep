@@ -1,6 +1,6 @@
 I want to tell you about what happened with my sister and her boyfriend.  It was a long time ago now, but I still feel like someone ought to know.
 
-My sister’s name is Diffie.  I mean, her real name is Eugenia, but no one calls her that.  You know how it goes.  When this all happened, she working part-time at the Food Ministry downtown and living upstairs in our parents’ big old farmhouse.
+My sister’s name is Diffie.  I mean, her real name is Eugenia, but no one calls her that.  You know how it goes.  When this all happened, she was working part-time at the Food Ministry downtown and living upstairs in our parents’ big old farmhouse.
 
 I was still living there too, for the time being, but I had just graduated from college and I was flying out to a lot of interviews in Chicago and New York and places like that.  Don’t get me wrong, I loved my parents and all, but I couldn’t wait to land a high-powered job in a high-powered city and start my life for real.
 
@@ -28,9 +28,9 @@ I hugged her back.  "I know you’re busy," I said, "but this is bugging me.  Ab
 
 "Oh, is Dad on you about the house trust again?"  She took both my hands.  "Listen, Jack.  You do what’s right for you.  Dad means well, but it’s your call to make.  You know I’ll back you either way."
 
-She let me go and started doing things with her hair.  "I’m so, *so* sorry,  but I’ve got to rush.  I know how Tony gets about his suits, and don’t want to go down there like the honest but frumpy shopgirl he pulled up from the gutter.  We’ll talk soon, okay?"  She kissed my cheek and slammed the door.
+She let me go and started doing things with her hair.  "I’m so, *so* sorry,  but I’ve got to rush.  You know how Tony gets about his suits, and I don’t want to go down there like the honest but frumpy shopgirl he pulled up from the gutter.  We’ll talk soon, okay?"  She kissed my cheek and slammed the door.
 
-I stared at the door for a minute and wondered if I knew how Tony got about his suits.  Eventually I wandered back downstairs.
+I stared at the door for a minute and tried to decide if I knew how Tony got about his suits.  Eventually I wandered back downstairs.
 
 By the time the doorbell rang and my parents went to welcome Tony with cries of gladness, I was pretty sure I was having some sort of episode.  The stress of developing into such a crackerjack businessman, probably.  I shook it off and went in for the handshake.
 
@@ -133,7 +133,7 @@ The house was yellow inside, too.  The hallway went on and on, with rooms on bot
 
 The hallway ended in a large room with no windows.  The top half of the walls were covered in wallpaper that looked like newsprint.  The bottom half were the same shocking red as Tippy’s clothes.  So was the carpet.  It was hard to tell where the carpet ended and the walls began.  Looking at it kind of gave me a headache.
 
-The only furniture was a long table with some origami birds sitting on it.  They looked like they were made out of newsprint, too.
+The only furniture was a long table with some origami birds sitting on it.  They looked like they were made out of newsprint, too.  And they were big, at least a foot across.
 
 "Here we are," Tippy said.
 
@@ -165,7 +165,7 @@ The room was bathed in the red-gold light of sunset.  That didn’t seem right. 
 
 I shoved my hands in my pockets and walked fast toward the Cherokee.  For some reason, I didn’t want anyone to see me running.  Halfway there, an old lady with a walker reached out and grabbed my arm.  "You’ve got to be careful with that house," she said.
 
-I glanced over my shoulder.  I could still see the house.  I didn’ t want to stop here.  "Why is that, ma’am?"  I asked.
+I glanced over my shoulder.  I could still see the house.  I didn’t want to stop here.  "Why is that, ma’am?"  I asked.
 
 "Well, it’s yellow," she said.  "But it’s also green."
 
@@ -189,7 +189,7 @@ The following week, I had a Thursday interview scheduled in Boston.  I cancelled
 
 He furrowed his brows at me.  The grin didn’t change.  "The lovely Eugenia?"
 
-I shrugged.  "In a way.  It’s like this."  I clapped him on the shoulder.  "I’m the trustee of this property now.  And you’re no longer welcome."
+I shrugged.  "In a way.  It’s like this."  I stood up and clapped him on the shoulder.  "I’m the trustee of this property now.  And you’re no longer welcome."
 
 Tony stood and grinned for awhile.  Then he turned on his heel and left without a word.  I went inside and locked the door behind me.
 
