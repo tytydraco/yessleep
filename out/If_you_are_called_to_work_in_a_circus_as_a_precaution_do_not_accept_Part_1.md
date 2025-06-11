@@ -20,7 +20,7 @@ A woman answered the phone:
 *Hello, are you interested in changing your life? Finally having freedom-*
 
 
-*Yes, of course, what is a job to do*
+*Yes, of course, what is a job to do?*
 
 
 *Well, we're looking for a handyman, to work at the incredible *address**
