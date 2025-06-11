@@ -1,4 +1,4 @@
-I never ended up calling Alina.
+I never called Alina. I couldn’t. Not after what the app showed me that morning. I just sat there, in the diner, waiting for the world to make sense again.
 
 I just sat in that diner, wrapped in fluorescent buzz and cheap linoleum, watching my coffee go cold.
 
