@@ -147,7 +147,7 @@ The bed sheet on top of me slid down a little. 
 
 Then a little more. 
 
-Something was tugging it down. I heard a rustling of cloth and then a ***long sucking sound***\*,\* over and over like drinking the bottom of a soda with just ice clattering around. Schllll, schllll, sschluuurp. 
+Something was tugging it down. I heard a rustling of cloth and then a ***long sucking sound***, over and over like drinking the bottom of a soda with just ice clattering around. Schllll, schllll, sschluuurp. 
 
 Then the camera bumped. The grey, sickly-skinny monster was leaning over me, just bent over there on the side of the bed, looking down at my body with pursed lips only a few inches above me. My shirt was pulled up, and it wasn’t until I paused the video that I realized: It was holding something in its hand over top of my stomach.
 
@@ -231,7 +231,7 @@ She said she was leaving, not just the house and not just tonight. She was leavi
 
 We argued. I don’t need to give you the long version. I was mad, aggressive, hopped up on pills and she just wanted to abandon me after everything I did for her. Fuck no. Not like that. 
 
-I wasn’t going to lose my life, my wife, the fucking house and my sanity all at the same time. I was being **hunted by a being that literally only left me alone when someone else died**\*\*\*.\*\*\* And she wanted to leave me for trying to make a better life. 
+I wasn’t going to lose my life, my wife, the fucking house and my sanity all at the same time. I was being **hunted by a being that literally only left me alone when someone else died.** And she wanted to leave me for trying to make a better life. 
 
 I sacrificed everything. I took the risk. I was getting used to my new life, being the same old Nate I’d always been as best as I fucking could after everything. She said I changed. She said I wasn’t the guy she fell in love with. Well guess what? I was better. I was going to have a better life than before, and that included her. Then the argument was over as quick as it started.
 
@@ -255,4 +255,4 @@ I’m moving. I’ll leave the house unsold, leave the state, I don’t care. Ev
 
 Kate has decided not to come with me. She stormed off somewhere after our argument and I haven’t seen or heard from her since. That’s all I know.
 
-I’m sure I’ll see her again soon. 
+I’m sure I'll see her around again soon.

@@ -155,3 +155,5 @@ It took about thirty minutes, but they managed to cover both the door and the fr
 We kept the lights on, none of us daring to turn them out for fear that something would show up in the dark. I tried to read for a while, hoping to take my mind off the nightmare just outside our walls, but my eyes couldn’t focus on any words on the page. Every slight rustle or gust of wind outside made me think this was it, they were going to bust through the barricade and eviscerate us all where we lay. Dad was sitting up in one of the chairs, facing the door with shotgun at the ready, but what was the gun going to do at this point?
 
 At some point, I don’t know when, I fell asleep. Despite the lights being on, I had the lantern right beside me, ready in case of any sudden need to run out into the darkness and away from here. Sleep had other plans though. It came on suddenly, trying to read one moment when my eyelids suddenly began to dip, huge weights pulling them closed even as fear tried to tell me not to let it [happen](https://www.reddit.com/u/googlyeyes93/s/XwNZjX5A7C).
+
+[Next](https://www.reddit.com/r/nosleep/s/9hkeMQXo5M)
