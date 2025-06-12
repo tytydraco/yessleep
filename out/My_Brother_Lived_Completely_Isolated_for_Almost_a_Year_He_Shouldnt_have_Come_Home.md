@@ -46,7 +46,7 @@ The afternoon and evening alone in the car sped by rapidly, my thoughts idling w
 
 I nervously rolled into the lot, the dim beams of my minivan illuminating the decrepit signage outside the homeless shelter. “Haven’s Hope”, it was called.
 
-I reminded myself I wasn’t in familiar territory as I scanned the parking lot. Even the more urban parts of Missouri felt rural compared to back home, and despite the state of the building and the scraggly homeless man resting in his wheelchair at the end of the lot, I felt safe enough to get out of the car and head inside. 
+I reminded myself I wasn’t in familiar territory as I scanned the parking lot. Even the more urban parts of Kentucky felt rural compared to back home, and despite the state of the building and the scraggly homeless man resting in his wheelchair at the end of the lot, I felt safe enough to get out of the car and head inside. 
 
 As I walked towards the front door of the building, I took a deep breath, all preparation for my reunion with Parker going out the window with each step.
 
