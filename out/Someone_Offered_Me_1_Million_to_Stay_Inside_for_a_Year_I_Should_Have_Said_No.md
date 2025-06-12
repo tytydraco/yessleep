@@ -8,7 +8,7 @@ My mom would call every few days, asking when she could come visit or when I was
 
 That's when he showed up.
 
-It was a Tuesday in March, around 2 PM. I remember because I was in the middle of debugging some neural network code when the doorbell rang. I almost didn't answer it – I wasn't expecting any deliveries, and I definitely wasn't in the mood for Jehovah's Witnesses or solar panel salesmen.
+It was a Tuesday in February, around 2 PM. I remember because I was in the middle of debugging some neural network code when the doorbell rang. I almost didn't answer it – I wasn't expecting any deliveries, and I definitely wasn't in the mood for Jehovah's Witnesses or solar panel salesmen.
 
 But something made me get up and look through the peephole.
 
@@ -200,6 +200,6 @@ I went to Murphy's.
 
 Jimmy wasn't there anymore – he'd retired years ago. The new bartender didn't know my order, didn't know to leave me alone. Everything was different.
 
-I'm sitting here with my beer, surrounded by people half my age. Every time I try to join in, the words feel foreign in my mouth. Desperate for any kind of connection, I offered to buy drinks for strangers, thinking maybe my newfound wealth could at least purchase some temporary companionship. But each time I tried to pay for someone else, my card was declined. Within minutes, my phone would buzz with a text from an unknown number:
+I'm sitting here with my beer, surrounded by people half my age. Every time I try to join in, the words feel foreign in my mouth. Desperate for any kind of connection, I offer to buy drinks for strangers, thinking maybe my newfound wealth can at least purchase some temporary companionship. But each time I try to pay for someone else, my card is declined. Within minutes, my phone buzzes with a text from an unknown number:
 
 'That money is for you, Mr. Walker.'

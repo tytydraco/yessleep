@@ -48,7 +48,11 @@ Every single post from the past ten years—they had replied to. Not just posts�
 
 **Good photo,** they said in one.
 
-**Very good photo,** in another one.**What a humorous response to a humorous postPlease, more. Respond more. I must know your thoughts**
+**Very good photo,** in another one.
+
+**What a humorous response to a humorous post**
+
+**Please, more. Respond more. I must know your thoughts**
 
 That wasn’t possible. How could somebody have typed so much in the space of a few minutes? Had they opened tabs for each of the posts, typed them up beforehand, then systematically pressed send? Even then, it would have been hundreds of tabs.
 
@@ -74,7 +78,9 @@ I would go to libraries. I would go to universities. I would create accounts on 
 
 Every single time, they found me.
 
-**I missed youLove the new username. Love, love, LOVE**
+**I missed you.**
+
+**Love the new username. Love, love, LOVE**
 
 It became less of me doomscrolling and more about figuring out what was going on. I became obsessed. I spent my weekends driving from café to café, resetting my computer and trying all over again. I took off work for two days to keep going.
 
@@ -86,15 +92,19 @@ It was like reverse stalking. They knew where I would go and got there before me
 
 I started noticing comments coming in from different usernames: /watchmetoo, /missumark—that would have my name in them too.
 
-**Where did you go, Mark** **Mark, did you upvote this too? I did. You should**
+**Where did you go, Mark** 
+
+**Mark, did you upvote this too? I did. You should**
 
 They grew less and less coherent.
 
-**Mark, MARK. M4rk. M**K!!!\*\* **You. Me. MAARK. Gett1n6 cl0s44r. S00 m0uch cl0s44er**
+**Mark, MARK. M4rk. MK!!!\*\*** 
+
+**You. Me. MAARK. Gett1n6 cl0s44r. S00 m0uch cl0s44er**
 
 Posts started coming from *my* account too. Posts I hadn't ever made myself. Odd pictures in random communities that had nothing to do with anything.
 
-Trees. Odd rocks .Pitch-black photos with no captions.
+Trees. Odd rocks . Pitch-black photos with no captions.
 
 And then more familiar ones.
 
@@ -110,5 +120,4 @@ I don’t know what this thing is, but I know it isn’t right. I don’t think 
 
 There’s a living thing within Reddit. It isn’t one of the faceless, amorphous nobodies that I imagine the rest of you are. It’s not alive the way we are—but it *is* alive. Every once in a while, it comes out, chooses a person, and watches them. If that’s you one day, then leave like I’m doing. Don’t let them do more than comment once or twice.
 
-Leave before it starts doing more [than watch](https://www.reddit.com/user/author-gandola/comments/1l90s94/welcome/).
-
+Leave before it starts doing more [than watch](https://subscribepage.io/authorgandola).
