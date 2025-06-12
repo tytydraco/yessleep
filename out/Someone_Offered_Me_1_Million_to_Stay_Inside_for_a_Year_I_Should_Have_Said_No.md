@@ -184,7 +184,7 @@ When Mr. Blackwood finally returned, he walked through my front door as if he al
 
 I took the check with shaking hands. My fingernails were long and yellow. I probably smelled like death.
 
-"So," I said, my voice hoarse from disuse. "What's next? A billion for twenty years?" There was a tone in my voice that hinted at sarcasm, but part of me truly wanted to an excuse to just lie here for a little bit longer.
+"So," I said, my voice hoarse from disuse. "What's next? A billion for twenty years?" There was a tone in my voice that hinted at sarcasm, but part of me truly wanted an excuse to just lie here for a little bit longer.
 
 Mr. Blackwood laughed, a genuine sound of amusement.
 
