@@ -174,7 +174,7 @@ The doctor took a pair of large scissors and  lazily cut the IVs allowing his bl
 The doctors boots stomped over to me. I looked up into the doctors eyes- his eyes were wild and blood shot with anger...
 
 "Rest in peace surrogate #13."
-I couldn't findnthe strength to beg for my life- all I could so was watch as he lifted those large scissors to my lines.
+I couldn't find the strength to beg for my life- all I could do was watch as he lifted those large scissors to my lines.
 He cut the lines to my IV and as I watched my blood drip the floor I felt my heart failing me until
 
 

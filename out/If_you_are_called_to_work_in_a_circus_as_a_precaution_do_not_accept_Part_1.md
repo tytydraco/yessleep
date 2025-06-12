@@ -1,3 +1,6 @@
+part 2:
+https://www.reddit.com/r/nosleep/s/yfJqTG0Zmn
+
 It was a normal Sunday night and like every Sunday, I was sad. You know when you're reflecting on your current situation, all alone at home? I was doing that. I'm 23 years old, with no family, no friends, no job, no one. I could disappear from the world right now and nothing would change in anyone's life.
 
 I was about to go eat some expired canned food that I would definitely regret eating later when I heard a knock on the door. Just two knocks and nothing else. I was a little scared. I think you would be too if you had no one to visit you and you heard a knock on the door at night. I stood there staring at the door for a few seconds wondering if I should go see who it was. About 3 minutes passed and no one knocked on the door again. But a leaflet appeared under the door. I was scared, but I went over to get it, even though I was afraid of getting close to the door and having it open and the person outside taking me to the world of darkness. Maybe I'm a little scared.
