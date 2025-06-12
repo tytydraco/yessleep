@@ -1,6 +1,6 @@
 [Part 1.](https://www.reddit.com/r/nosleep/comments/1kkelau/six_months_ago_i_was_a_taken_hostage_during_a_bus/) [Part 2. ](https://www.reddit.com/r/nosleep/comments/1kpxor1/six_months_ago_i_was_taken_hostage_during_a_bus/)[Part 3.](https://www.reddit.com/r/nosleep/comments/1kuqbuh/six_months_ago_i_was_taken_hostage_during_a_bus/) [Part 4. ](https://www.reddit.com/r/nosleep/comments/1l1s4jq/six_months_ago_i_was_taken_hostage_during_a_bus/)
 
-\- - - - - 
+\- - - - -
 
 Within the darkness, Alma’s hand cradled the back of my skull and gracefully lowered my head onto a pillow. I was able to do the rest. I brought my legs up, shifted my torso, and laid my aching calves on to what I assumed was a mattress.
 
@@ -40,7 +40,7 @@ My eyes felt exceptionally dry as their lids creaked open. Two wrinkled grapes d
 
 My mind was the last system to reboot. When I came to, I was staring at a ceiling fan attached to a white spackled ceiling, my absent gaze tracking the blades endlessly revolve.
 
-Conscious thought came back in dribs and drabs. Disconnected insights that swam unassumingly through my mind until their gradual accumulation jolted me back to reality.
+Conscious thought came back in dribs and drabs. Disconnected insights swam unassumingly through my mind until their gradual accumulation jolted me back to reality.
 
 *I’m so groggy.*
 
@@ -62,7 +62,7 @@ But, of course, that couldn’t be true.
 
 Six months earlier, my boss had fired me from that long-held position for pushing to get my op-ed on the bus hijacking published. Not only that, but I sure as shit didn’t have some random box spring mattress awkwardly positioned in the middle of my office. My career was all-consuming, yes, but even I drew the line at sleeping over at the tribune.
 
-Upright in the bed, I found myself oriented toward the exterior wall, where a small window offered an elevated view of Philadelphia’s city center, though it didn’t look quite right. It took me a moment to ascertain *exactly* what was amiss, other than the devastatingly obvious, but as my eyes drifted beneath the window, down onto the navy-colored carpet below, the alarming peculiarity became more evident.
+Upright in the bed, I found myself oriented toward the exterior wall, where a small window offered an elevated view of Tucson’s city center, though it didn’t look quite right. It took me a moment to ascertain *exactly* what was amiss, other than the devastatingly obvious, but as my eyes drifted beneath the window, down onto the navy-colored carpet below, the alarming peculiarity became more evident.
 
 The sun was shining high in the sky. I could see it. And yet, there was no shadow on the floor from the vinyl windowpane.
 
