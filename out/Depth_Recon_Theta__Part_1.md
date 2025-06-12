@@ -1,6 +1,6 @@
 *Iraq, Second Tour – Deep in the Hindu Kush, Near the Pakistan Border*
 
-The wind bit sharp through the mountain pass, dry and cold as bone. Dust kicked up in small, nervous flurries around the six of us, knelt in a tight semicircle below a jagged cliff face. The target was a gaping hole in the rock—unnatural, too round, too dark. Supposed to be just another supply tunnel. Another crawlspace for smugglers and Taliban cowards to stash weapons, meds, or bodies.
+The wind bit sharp through the mountain pass, dry and cold as bone. Dust kicked up in small, nervous flurries around the six of us, knelt in a tight semicircle below a jagged cliff face. The target was a gaping hole in the rock—unnatural, too round, too dark. Supposed to be just another supply tunnel. Another crawlspace for smugglers and Taliban fighters to stash weapons, meds, or bodies.
 
 But it didn’t feel right.
 
