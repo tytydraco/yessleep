@@ -1,3 +1,5 @@
+Part One:
+
 There’s a million NDAs I’m breaking right now, but I’ve gotta say my piece. I’ve contemplated whether the risks are worth it by telling this story online, but considering that I’ve not got long to live on this earth anyways, I think that the pros outweigh the consequences. In a way, I guess this is sort of like an autobiography of sorts, I have no family, no one to care for me when I’m gone, I guess I just want to be remembered, by someone, somewhere. I’m not detailing the events that come later in this story to blow the whistle on anything, even if I did, the damned company probably hid its tracks too well, no, this story if you wish to call it that, is a confession from a night watchman.
 
 I never managed to do more than work at a McDonalds growing up through high school, and between that and taking my dad to the VA clinic every week meant that I never had a chance to get any actionable job experience besides flipping burgers.
@@ -110,3 +112,5 @@ I didn’t ask too many questions, the job was too good, we were going to be pai
 And I did, me and David were partnered into a patrol “stick”, learned early on that he was ex-Bundeswehr, from West Germany at the time. Even showed me a picture of his American fiancé Patricia. David König was an average looking man, dark haired, handsome, obviously well built considering that he volunteered to join the Bundeswehr instead of being conscripted in. We got along pretty well, we were typically assigned the morning to evening shift, meaning we’d be able to go and get a drink together at night. Of course the man would always complain about the piss water we were served, but at $1 for a pint, we were quite happy.
 
 My friend would never make it to his own wedding in November.
+
+Honestly they’re probably not even reading this, it’s been so long no one is probably even keeping track anymore, I’ll finish writing the second part tomorrow. My hands are tired, everything feels so hard to do now a days.
