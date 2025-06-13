@@ -1,0 +1,19 @@
+I’ve never told anyone this, not fully. Even now, I’m hesitant, but I can’t keep it inside anymore. What happened to me in 2017 changed how I see the world, and I’m not sure I’ll ever feel safe again. I need to share this, if only to warn you about what might be waiting.
+
+I was 19, working a summer job at a warehouse. It was a hot July day, and I was restocking shelves when I felt a sharp pain in my chest. I thought maybe I’d pulled a muscle lifting boxes, but then my vision blurred, and my legs gave out. I hit the concrete floor, and everything went black. Later, doctors told me my heart stopped for nearly five minutes—an undiagnosed arrhythmia they called it. They shocked me back to life in the ambulance. But those five minutes… they weren’t empty.
+
+It started with light. Warm, all-encompassing, like sinking into a sunlit ocean. I felt weightless, like I was floating upward. There were shapes in the light, vague at first, like shadows behind a curtain. I thought they were people, maybe loved ones waiting for me. I grew up hearing stories of heaven, so I figured this was it. I was wrong.
+
+The light faded, and I found myself in a place that’s hard to describe. It wasn’t a room or a landscape—it was more like a feeling, a space that didn’t follow rules. I wasn’t alone. There were… things around me. Not people, not angels, but presences. They didn’t have faces, but I could feel their attention, heavy and cold, like hands pressing down on my soul.
+
+At first, I was calm, expecting comfort. Instead, I felt trapped. Something held me in place, not with chains but with a force I couldn’t resist. I tried to move, to speak, but it was like shouting into a void. Then came the voices—not sounds, but thoughts forced into my mind. They weren’t kind. They mocked me, digging into my fears, my regrets, every moment I’d ever felt small. It was like they were peeling me apart, layer by layer.
+
+They showed me things, too. Flashes of a world that wasn’t ours. A place where time didn’t flow, where pain wasn’t physical but eternal, a crushing weight on your essence. I saw countless others like me, their souls dim and flickering, tethered to these beings. The presences fed on them, not like vampires but like farmers harvesting crops. That’s when I understood: we’re not special. We’re not chosen. We’re grown, cultivated, for them.
+
+One of them focused on me, its presence sharper than the others. It felt younger, almost playful, but cruel. It toyed with me, twisting my memories into nightmares. I relived my worst moments, but worse—amplified until I was begging for it to stop. It laughed, a soundless ripple that made me feel like nothing. Then it told me something I’ll never forget: “You’re not ripe yet. Go back. But don’t speak of us.”
+
+I woke up in the hospital, gasping, tubes in my arms. The doctors called it a miracle. My family cried, thanking God. I wanted to tell them there was no God in that place, but the words stuck in my throat. Every time I tried to talk about it, I’d choke, like something was watching, waiting for me to break their rule.
+
+For years, I convinced myself it was a hallucination, a brain starved of oxygen playing tricks. Then, last month, I met someone at a support group for cardiac survivors. He was older, quiet, but when he spoke about his own near-death experience, he described a “beautiful light” and “loving beings.” His smile was too perfect, too practiced. I cornered him after, asked if he’d really seen that. His eyes changed—just for a second, a flicker of fear. He knew. He’d been there, too, but he was lying.
+
+Now I can’t sleep. Every night, I feel that weight again, like they’re checking on me, making sure I stay quiet. But I can’t anymore. If this is true, if we’re just… livestock, someone else needs to know. Has anyone else seen this place? Felt those things? Please, tell me I’m not alone.
