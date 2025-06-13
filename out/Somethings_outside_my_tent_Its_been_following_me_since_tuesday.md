@@ -26,7 +26,7 @@ Day three I tried to hike back. The trail was gone. I checked my GPS—full spin
 
 I camped again because I didn’t have a choice. That night, something unzipped my tent.
 
-Not a rip. Not a tear. ***Unzipped***\*\*.\*\*
+Not a rip. Not a tear. ***Unzipped***.
 
 I woke up to the sound—*ziiiip*—and saw the flap slowly pulling open. Just a hand came in. If you can call it that. It had fingers, sure, but they were long and splintered, like someone had carved them out of driftwood and glued knuckles on as an afterthought.
 

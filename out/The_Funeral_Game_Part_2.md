@@ -224,7 +224,7 @@ He knew something terrible had happened before and he dragged us into it anyway.
 
 “I’m sorry,” he said.
 
-I want to scream, to shake him by the collar and tell him to go to hell. I wanted to hurt him. But I swallowed the venom that had pooled in my mouth. I took my time. I held it together.
+I wanted to scream, to shake him by the collar and tell him to go to hell. I wanted to hurt him. But I swallowed the venom that had pooled in my mouth. I took my time. I held it together.
 
 “Alright,” I sighed. “I guess the key is back in the locker now. Nobody else can use it again.”
 
