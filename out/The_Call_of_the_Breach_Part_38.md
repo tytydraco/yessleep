@@ -1,5 +1,7 @@
 [\[Part 37\]](https://www.reddit.com/user/RandomAppalachian468/comments/1k83hj1/the_call_of_the_breach_part_37/)
 
+[\[Part 39\]](https://www.reddit.com/user/RandomAppalachian468/comments/1laa0bb/the_call_of_the_breach_part_39/)
+
 *Creak.*
 
 The brakes on our armored truck squeaked, our column ground to a halt, and the sudden change in momentum shook me from my drowsiness. Everyone else on the twin rows of seats almost fell over as one, and muffled curses filled the stuffy interior.
