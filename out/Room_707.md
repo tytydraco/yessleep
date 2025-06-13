@@ -175,7 +175,7 @@ The doctors boots stomped over to me. I looked up into the doctors eyes- his eye
 
 "Rest in peace surrogate #13."
 I couldn't find the strength to beg for my life- all I could do was watch as he lifted those large scissors to my lines.
-He cut the lines to my IV and as I watched my blood drip the floor I felt my heart failing me until
+He cut the lines to my IV and as I watched my blood drip to the floor I felt my heart failing me until
 
 
 darkness.
