@@ -314,10 +314,18 @@ I inch backward, heart hitting my ribs as a shambling figure ducks through the d
 
 “You…” I sputter.
 
-It turns toward me, burlap face shrouded by shadow, but I can see the glint of a zipper. The plastic sheen of stuck-on, dancing eyes. It tilts its head. Inquisitive. Then there's a crack of bones, and the monster drops onto all fours.
+The monster unfurls its mouth, and inside I see just what Jonah described; the hanging faces carved from previous victims. And they're whispering, saying the most awful things. They're saying that Adelaide wasn't the angel I remember. That she was a monster. 
 
-Snarls.
+That maybe she deserved to die. 
 
-And charges right for me. 
+They’re saying that I should forgive myself. That I didn't have a choice because she made me do it. That I didn’t want to, but my sister forced me to cut her throat open, to bleed her like a pig. 
+
+Tears leak from my eyes. A sob escapes my lips. 
+
+It wasn’t my fault. 
+
+She made me do it. 
+
+Why did she make me do it?
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
