@@ -111,3 +111,5 @@ It wasn’t my imagination. Something dark and ominous was in the room with her 
 [Part 2](https://www.reddit.com/user/TCHILL_OUT/comments/1m0edic/i_thought_my_daughters_imaginary_friends_were/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 [Part 3](https://www.reddit.com/user/TCHILL_OUT/comments/1m13zo7/i_thought_my_daughters_imaginary_friends_were/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 4](https://www.reddit.com/user/TCHILL_OUT/comments/1m3304m/urgent_please_help_i_thought_my_daughters/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
