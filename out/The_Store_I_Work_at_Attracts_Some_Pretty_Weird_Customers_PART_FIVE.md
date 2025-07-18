@@ -299,3 +299,9 @@ I think one of them is sneaking around outside my house right now. I’ll update
 Still around, but I heard the cultist from last night muttering just outside my window. Most of it was unintelligible but I could hear one word consistently.
 
 *Mortis*. Whatever that means. I’ll update you guys again, Spike out.
+
+-EDIT 3-
+
+Part Six is up
+
+https://www.reddit.com/r/nosleep/s/lJP18uIZP7
