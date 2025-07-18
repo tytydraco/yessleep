@@ -1,7 +1,7 @@
-([Part One Here](https://www.reddit.com/r/nosleep/comments/1lhb8d5/the_little_people_are_real_and_they_took_my/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button))
+([Last Post Here](https://www.reddit.com/r/nosleep/comments/1lhb8d5/the_little_people_are_real_and_they_took_my/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button))
 <—————————-
 
-[Part Two: Tradition vs Truth]
+
 
 A lot of nothing happened after S disappeared.
 
@@ -306,6 +306,6 @@ Then: “Y-yeah… Let’s get this over with.”
 And we stepped into the dark.
 
 
-(To Be Continued)
 
-([Part Three Here](https://www.reddit.com/r/nosleep/comments/1liyy45/the_little_people_are_real_and_they_took_my/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button))
+
+([Update Here](https://www.reddit.com/r/nosleep/comments/1liyy45/the_little_people_are_real_and_they_took_my/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button))

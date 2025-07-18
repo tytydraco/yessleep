@@ -2,7 +2,9 @@ At first, I thought she was changing him — or he was changing himself, the way
 
 Joseph still laughs at his own jokes. Wears that wide, guileless smile, reserves a tighter one for polite company. He has a scar on his left cheek from a childhood fight. That was over a girl too. At least, that was our story. He bled more than expected, I cried more than necessary, but it faded into a natural part of his human topography. His own mother wouldn’t be able to tell them apart.
 
-But… he’s different. Irreparably so, but invisibly, like mold nestling into the floorboards of an abandoned home. 
+But… he’s different. Irreparably so, but invisibly, like mold settling into the floorboards of condemned home. 
+
+I’m the only one that knows it.
 
 A place full of strangers, that’s where the notion crept into my mind, fully bloomed. Joseph made me his plus one. It was his girlfriend’s birthday, his first public appearance as her boyfriend. 
 
@@ -12,15 +14,17 @@ Meaning me.
 
 Joseph and I were all the other really had, repeating the same comfortable rituals together for over a decade. Watching the same movies, quoting the same lines. Every hard drive I’ve ever owned had at least two folders worth of games or comics or some other project he’d convince me to start, but never finish. I’d do the art, he’d do dialogue. 
 
-He was always better with people; or at least, seemed to know how they talked. Better does not suggest *good*, but at least few steps above me. We were best friends, and it was us against the world. He brought the snacks, knew which games had local co-op. I was the quiet one, more online than offline. Still am. Leaving my apartment feels like being plucked from a fishbowl.
+He was always better with people; or at least, seemed to know how they talked. Better does not suggest *good*, but at least few steps above me. It didn’t matter. We were best friends, and it was us against the world. He brought the snacks, knew which games had local co-op. I was the quiet one, more online than offline. Still am. Leaving my apartment feels like being plucked from a fishbowl.
 
-That is to say, yes. I’ve been stagnant, and he’s been… changing. I don’t know how to quantify it without sounding bitter. He began dressing with intention, cuffed his pants, buttoned his shirt a couple notches higher. He held eye contact longer. Spoke louder.
+That is to say, yes. I’ve been stagnant, and he’s been… changing. I don’t know how to quantify it without sounding bitter. He began dressing with intention. Cuffed his pants, buttoned his shirt a couple notches higher. He held eye contact longer. Spoke louder.
 
-As for me, just being around people makes my ears burn. The party felt like a test that I was failing, miserably so. Joseph should have been my beacon of safety, just like always; a lighthouse guiding me through an ocean of strangers.
+As for me, just being around people makes my ears burn. The party felt like a test that I was failing, miserably so. Joseph should have been my beacon; a lighthouse guiding me through a sea of strangers, just like always. He should have been safe.
 
 That night, his presence felt more like standing beneath a fluorescent lamp — an uncanny sensation that had been building for a while, but I finally felt *overexposed.* Studied, like the entire room was picking me apart — *especially him.* Though to what end, I couldn’t know.
 
-He’d quote the same lines, then pause - *I’m sure of it* - not for laughter, but to gauge my reaction, checking to see what he got right. His mannerisms were one shade too unfamiliar, like he’d rehearsed them in a mirror. You wouldn’t notice unless you’d seen them a million times, from his passenger seat or his ancient couch, swapping stories at three in the morning.
+He’d quote the same lines, then pause - *I’m sure of it* - not for laughter, but to gauge my reaction, checking to see what he got right. His mannerisms were one shade too unfamiliar, like he’d rehearsed them in a mirror. You wouldn’t notice unless you’d seen them a million times, from his passenger seat or his ancient couch, swapping stories at three in the morning. 
+
+Inside jokes with no cheeky glint of recognition. His eyes were dim.
 
 Joseph dated a couple girls, but none that stuck. Not like this. A girl might make him change his plans, but not the way he looked at me.
 
@@ -30,9 +34,9 @@ That’s when it clicked. He made a joke to kill the silence. The silence endure
 
 As fantastic as that sounds, I couldn’t shake the thought. It was the only thing that made sense — and as good a reason as any to take off early. I waited until he was preoccupied, ‘til I could slip out without being followed. Having lost my ride, I walked all the way home; an hour in the snow. 
 
-Before you ask, I can’t do public transit. For me, taking the metro alone is even harder staying ‘til the end of a party.
+Before you ask, I can’t do public transit. For me, taking the metro alone is even harder than staying ‘til the end of a party. There are too many unknowns.
 
-The next evening is when my excuses began. 
+The next morning, my excuses began. 
 
 *I’m fine. Felt sick.*
 

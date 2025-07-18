@@ -1,7 +1,8 @@
-([Part Two Here](https://www.reddit.com/r/nosleep/comments/1li4nlg/the_little_people_are_real_and_they_took_my/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button))
+([Last Post Here](https://www.reddit.com/r/nosleep/comments/1li4nlg/the_little_people_are_real_and_they_took_my/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button))
 <—————————
 
-[Part Three: The Bond We Share]
+
+
 
 Inside, the cave swallowed sound almost immediately.
 
@@ -483,6 +484,6 @@ But nothing happened.
 Just stone and stillness.
 
 
-(To Be Continued) 
 
-([Part Four Here](https://www.reddit.com/r/nosleep/s/VCofc0bfFT))
+
+([Update Here](https://www.reddit.com/r/nosleep/s/VCofc0bfFT))

@@ -1,6 +1,6 @@
-([Part Three Here](https://www.reddit.com/r/nosleep/s/ntbkM6shFS)) <———————-
+([Last Post Here](https://www.reddit.com/r/nosleep/s/ntbkM6shFS)) <———————-
 
-[Part Four: When Tradition Wins]
+
 
 Time started to unravel after that.
 
@@ -451,6 +451,8 @@ Finally.
 
 I believed.
 
-(To be Continued)
 
-([Part Five Here](https://www.reddit.com/r/nosleep/s/XbzMVLBv0u))
+
+
+
+([Update Here](https://www.reddit.com/r/nosleep/s/XbzMVLBv0u))

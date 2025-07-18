@@ -1,7 +1,5 @@
-([Part Four Here](https://www.reddit.com/r/nosleep/s/ufLPYsN6Dd))
+([Last Post Here](https://www.reddit.com/r/nosleep/s/ufLPYsN6Dd))
 <—————————-
-
-[Part Five: Why The Little People Are Real]
 
 
 They’re real.
