@@ -1,109 +1,47 @@
+I boarded the midnight bus at the deserted terminal, the yellow sign flickering overhead: Route 27 – Crescent Avenue. The driver was an old man with tired eyes and a cracked smile. He nodded once, silently, as I climbed the steps and settled into the last seat. The interior lights hummed, casting a jaundiced glow over empty rows. Outside, the rain hammered the asphalt like a drum.
 
-It was the summer of 1986. Darren and Jason had been driving back from a week-long camping trip in the Appalachian foothills, the kind of place where the air smelled like pine and time moved slower. They were young, sunburned, and tired—just two twenty-somethings in a 1971 Plymouth Hemi Cuda, running low on gas as dusk fell across the Pennsylvania highway.
+I checked my watch: 12:02 AM. The next stop was three miles away, at an abandoned station they’d closed years ago after a fatal accident. I shivered at the memory—five commuters crushed under a runaway freight train. The station still appeared on maps, marked by that ghostly red symbol.
 
-“I think I saw a sign back there,” Jason said, pointing. “Exit in one mile.”
+Rain streaked the windows and distorted the street lamps into smeared orbs of yellow. I pulled my coat tighter, listening to the squeak of tires on wet pavement. No other passengers boarded. No one disembarked. The bus whispered through the night, as if it knew secrets nobody else dared share.
 
-They took it.
+At 12:15 AM, the driver flicked a switch, and the route indicator above the windshield changed: Station 13. The old man glanced at me through the mirror. His eyes held a glint—unease or warning, I couldn’t tell.
 
-The road led them down a narrow lane flanked by towering trees. It was quiet—too quiet. No cars. No lights. Then, up ahead: a small gas station, its sign faded but intact. A diner was attached, humming softly with a flickering neon glow that read: “FOOD & FOUNTAIN.”
+We rolled to a stop. Outside, Crescent Terminal stretched dark and empty. I rose to pay the fare, but the bus fell silent. The driver stared ahead, expression unreadable. I tapped the fare box, and it clinked hollowly. When I turned back, every seat was now occupied.
 
-Darren slowed. “This place looks like something outta your granddad’s war stories.”
+They sat motionless, faces hidden beneath drenched hoods and umbrellas. Their coats were soaked, but their hands rested on their laps, unmoving. I counted six of them. All stared straight ahead; none looked at me.
 
-“I kinda dig it,” Jason said, stepping out.
+I swallowed and asked, “Do we stop at Station 13?”
 
-They noticed it immediately: the atmosphere was off. People inside the diner were dressed like extras from a 1940s film reel—high-waisted skirts, suspenders, wool suits, vintage hats. Everything—from the jukebox to the menu prices—was frozen in the past.
+The driver’s eyes flicked to me. “We do,” he said, voice low. “But only tonight.”
 
-Jason, intrigued, ordered a burger and a shake from a cheerful waitress with Victory Rolls in her hair. Darren, uneasy, excused himself to the bathroom.
+My heart thudded. I’d meant to get off earlier. I peered down the aisle. Each figure was eerily still, as though carved from marble. I remembered the accident: five victims. Yet here were six.
 
-At the urinal, something struck Darren’s shoulder—a square of tile from the ceiling. It shattered on the floor, brittle and yellowed with age.
+“Why six seats?” I whispered, turning back. The driver had already closed his eyes.
 
-He looked up.
+The bus lurched forward. At each intersection, the driver let out a deep sigh, as though burdened with every turned corner. The lights inside dipped with each turn of the wheel, then snapped back on. Rain pelted the windows.
 
-An eye stared back.
+At 12:27 AM, the sign switched to Station 13 – Last Stop. A chime rang. The driver opened his eyes slowly and spoke without looking at me: “This is where they all got off.”
 
-Human. Wet. Watching.
+My skin crawled. I rose again, voice trembling, “I—I need to get off too.”
 
-He bolted. His boots squealed against the linoleum as he ran into the diner, breath catching in his throat.
+He nodded, glancing at the rearview mirror. The figures hadn’t moved. He reached into his breast pocket and pulled out a worn notebook. He flipped it open to a page filled with names and times. One name was missing: mine.
 
-Jason was sitting at a booth, untouched shake in front of him. Around him, every single diner patron had left their seat. They stood motionless in a wide circle, staring at him with eerily calm expressions.
+“You’re late,” he murmured.
 
-“Jason!” Darren shouted, running to him.
+I swallowed hard. The lights dimmed once more, and the rain seemed to hammer harder. The bus slowed to a crawl. Outside, mist clung to the pavement. I peered out the window. Station 13 was a hollow shell of concrete and broken glass, lit by a single flickering streetlamp.
 
-Jason looked up, slowly. “What’s wrong?”
+The door hissed open. I hesitated. The driver stared at me, expressionless. I thought of stepping off, but the rain would wash away my footprints—and perhaps everything else I hoped to leave behind.
 
-“We’re leaving.”
+I slipped out onto the platform. The bus sighed and pulled away, carrying its quiet congregation into the darkness. I stood alone beneath the lamp, water soaking my clothes.
 
-Jason didn’t protest. He stood, seemingly confused, and followed Darren out the door. The customers watched them go but didn’t move.
+Moments later, I saw them: six silhouettes stepping down from the shadows, moving toward me. Their faces remained hidden, but I recognized the way they moved—stiff, hesitant. The station sign flickered once, then went dark.
 
-They jumped into the Cuda and peeled out of the parking lot, engine roaring. The road twisted, the trees swallowed them again, and within minutes, they were back on the highway.
+I took a step back. They stopped. The silver tracks stretched behind us, gleaming in the wet night. One figure raised a hand, beckoning.
 
-Jason was quiet the entire ride.
+I realized then who they were. The old driver’s notebook. The missing name. The empty seat I’d chosen.
 
+I was the seventh.
 
+As the silhouettes closed in, I felt the cold press around me. The rain fell harder, erasing any trace of my footprints. And behind me, the station sign blinked back to life for one final message:
 
-Three days later, Jason seemed… off. His voice was slower. His movements more deliberate. He stared too long at things.
-
-When Darren asked if he was okay, Jason just smiled. “I feel better.”
-
-On the fourth night, Darren had a nightmare. In it, Jason was sitting in the booth again, surrounded by the 1940s crowd, who whispered in unison: “He’s ours now.”
-
-Darren woke in a sweat.
-
-⸻
-
-Unable to shake it, Darren convinced Jason—and both their girlfriends—to return to the exit.
-
-They followed the same path. Took the same turn.
-
-But the gas station was gone.
-
-All that remained was a weed-choked lot. The pumps were rusted and broken. The diner was nowhere to be seen. Just a cracked slab of concrete, overgrown with vines.
-
-Their girlfriends joked it must’ve been torn down—but Darren wasn’t laughing.
-
-Later that night, back at Darren’s apartment, he stepped into the bathroom and froze.
-
-There, sitting on the counter, was a square tile. Yellowed. Brittle. The same kind that had hit him at the gas station. He hadn’t brought it. No one had.
-
-He walked out, pale. Jason was sitting at the kitchen table, flipping through an old newspaper Darren knew he didn’t own.
-
-“Where’d you get that?” Darren asked.
-
-Jason looked up. His eyes were different—too bright. Too wide. He smiled in a way that didn’t belong to him.
-
-“I’ve always had it.”
-
-In the days that followed, things only got stranger.
-
-Jason stopped sleeping.
-
-Darren would get up in the middle of the night and find him sitting on the couch, staring at the blank television screen, grinning faintly. Once, Darren woke to a low hum—an old jazz tune—playing softly from the living room. Jason was whistling along to it, eyes closed, hands folded in his lap like he was sitting in that diner again.
-
-He wore different clothes now—button-ups, tucked-in slacks. Vintage shoes he couldn’t have owned before. Darren asked about it once, and Jason responded flatly: “Just something I found in the closet.” But Darren knew those clothes weren’t there before.
-
-One night, Darren came home to find the entire apartment smelling like coffee and grease. Jason had made a full meal—burgers, fries, even hand-spun milkshakes—laid out on the table like a 1940s dinner special.
-
-“You hate milkshakes,” Darren said.
-
-Jason smiled. “Not anymore.”
-
-The final straw came when Darren found Jason talking to someone in the bathroom. But there was no one else there.
-
-He heard the voice—Jason’s voice—muttering softly behind the door: “…yes, I remember now… I’m still him… he’s just sleeping… it’s fine… no, they don’t suspect… not yet…”
-
-Darren left that night and never went back.
-
-He filed a missing persons report two weeks later.
-
-When police entered the apartment, they found it empty. Dusty. Abandoned. But one officer reported something strange: a boot print, clear in the dust on the bathroom floor—pointing up at the ceiling.
-
-And in the cabinet beneath the sink, tucked behind old towels, was a yellowed newspaper.
-
-The date on it: July 16, 1947.
-
-The headline read: “Young Man Vanishes from Roadside Diner. Family Believes He Was Taken.”
-
-The photo beneath it? A black-and-white shot of a young man with slicked hair and a familiar smile.
-
-The caption read:
-“Jason W. Taylor, Age 22. Missing Since July 12.”
+Welcome to Station 13.

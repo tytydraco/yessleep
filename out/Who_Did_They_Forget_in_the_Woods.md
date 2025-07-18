@@ -1,0 +1,27 @@
+I am on vacation visiting family in Colorado. I previously lived her for four years, but moved to Texas last year. While I lived here, I explored many of the surrounding trails and historical sites. Never have I felt anything like I did on this hike. 
+
+I was looking on AllTrails to find a short hike that I hadn’t been to before when I came across one called Mason Gulch. It was an easy hike, maybe 4 miles total with about 400 feet of elevation change. Perfect for a morning hike before the summer heat made it miserable. 
+
+The road getting there was rough according to multiple people on AllTrails, but it was surprisingly smooth. There wasn’t anyone even out there which was amazing. I prefer to hike where it’s just me and nature. 
+
+ The first 3/4 of the hike wasn’t too bad. The hike followed a small stream through the gulch. There was a good sized burn scar at the trailhead from a fire last year, but there was plenty of shade and flowers maybe a quarter of a mile in. 
+
+I ran into a doe at one point that nearly gave me a heart attack. We both gave a nonverbal hello before she ran uphill into the brush. That’s when things started to feel off, though. Every few minutes I’d hear something moving in the brush. It wasn’t small like a squirrel or a bird. No it made deliberate steps that cracked branches and ruffled the leaves. I kept playing it off as another deer or maybe a rabbit, but my gut told me a different story. 
+
+Once I reached the 3/4 mark, something in my stomach turned. I felt very nauseous suddenly. I’ve never felt like that on a hike before and to feel that sick without feeling anything before was just odd. I tried to keep going until I began dry heaving against a tree. I tried to catch my breath against a tree when I heard it. The faintest sound of whispers. I couldn’t quite make out what they were saying, but there was a woman’s voice who was gentle and a man’s voice that was louder and more harsh. 
+
+I, at first, thought it might be other hikers. I collected myself and started to walk back. Faster than before. The voices would quiet down, then the rustling in the brush would fill the void. I always hike with a pistol as a safety precaution. I pulled it just slightly above resting in the holster and kept my hand ready on the handle. The whispers seemed to come back in response to this. The male voice dominating more this time. I walked faster. 
+
+I peered down at my phone to check how close I was. I knew I had to be almost back. I still had a little over a mile to go. When I looked up, something caught my eye. What looked like an old wall. It was maybe 8 feet by 3 feet and 2 feet tall and made of dry stacked rock. The whispers fell into an eery silence. 
+
+I love exploring old history. I can’t help myself. I ignored my gut and walked toward the wall. It sat at the edge of a meadow. The hill on the far side of it was dotted with small bushes and flowers. It was calm and peaceful there. My stomach even felt better. Odd, I thought to myself. I walked through the meadow to see if I could find anything else. There were some rocks on the far side that seemed out of place and some shards of porcelain and glass laying around them. I took one last look at the wall, why would something like that just be out in the woods with no other signs of civilization?
+
+I knew the answers wouldn’t be found there and I still had to make it out of there. I took a deep breath and returned to the woods. My stomach immediately began to twist again. The whispers quietly trailed behind as if they were beginning to lose interest in the chase. The rustling, though, persisted. 
+
+I was close to the end, a quarter mile left and it was almost all in the open. To my right was the hill with the burn scar, to my left was all scrub brush. I was walking as fast as I could, jumping over fallen trees and swiftly brushing aside branches. Then a sound stopped my in my tracks. Thump. Thump. Thump. I drew my pistol, switched to fire, and aimed at the noise. Silence. I scanned the direction of the fire scar the noise had come from. Could it have been a rock? What would have moved the rock? The ground is so dry, surely I would see dust if it was just a rock that fell? Even the birds fell silent. Something wanted me to know it was there and it was making sure I left. 
+
+I kept my pistol drawn and at the ready, but walked as fast as I could toward my escape. My mind was focused solely on leaving and never coming back. I rounded the corner to the where I had parked and I felt so relieved. For I second the nausea faded in favor of that joyous sight. 
+
+I got in my truck as fast as I could, threw it in reverse, but before I sped off, I took one last look. There were no other cars. No signs at any point that there had been any other living person in that forest with me. Who was whispering? What was following me? Why did that meadow feel so different from the rest? What’s worse is, I can’t explain it, but as I drove away, I swear out of the corner of my eye I saw something almost human like standing at the edge of the forest.
+
+I don’t know what I found. I don’t know why it wanted me gone so badly. All I know is that as soon as I left, I felt miraculously better, and that I will never be back in that stretch of forest ever again. 

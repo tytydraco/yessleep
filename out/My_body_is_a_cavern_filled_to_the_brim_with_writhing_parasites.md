@@ -1,0 +1,81 @@
+One little step. That’s all it took, when I think about it. Despite wearing heavy boots, a sharp pain shot up my leg from the bottom of my foot. It was quick—like getting jabbed by a needle. I winced, looking at where I had stepped along the riverbank with confusion, but there was nothing out of the ordinary. I must have misjudged my next step due to the pain because I ended up on my face less than a second later.
+
+“Miss?” I heard, filled with concern. A few dozen feet in front of me was Marcus, our hiking guide. An older gentleman with silver hair and your typical adventurer’s starter kit: greasy skin, khakis, a safari-style button-up—and an absolutely unbearable ‘can-do’ attitude that was hard to keep up with.
+
+“I’m alright!” I shouted back, but he was already moving through the rest of the group toward me. I managed to get up and take another step, only for a similar pain to shoot back up through my foot.
+
+“Short break! Don’t wander off too far!” he shouted to the rest of the group, which promptly scattered, exploring the surrounding wilderness. The guide approached me and signaled for me to sit down on a nearby rock.
+
+“I’m okay, just lost my balance,” I said as he knelt next to me and took out a small medkit from his hiking bag.
+
+“I believe you, Miss—” he took a second to look at my nametag, which every participant had created before the hike. “Tara. That was still quite a fall! It’s dangerous to continue without treating a wound like that.” He took out a small alcohol wipe from the medkit and motioned for me to show him my arm. A sizable gash greeted the both of us. I hadn’t even noticed.
+
+“Oh… thanks. I guess it was.” I watched as he patted the wound with the alcohol wipe, making sure to sufficiently clean the area of dirt and debris. He must have noticed how tense I was, as a look of concern never left his eyes.
+
+“You know, we get a lot of different types of people out here, who come for a lot of different reasons,” Marcus began to comfortably wrap my arm in gauze. He had clearly done this many times. “Nature enthusiasts, trail buffs, spiritual types—the occasional lost soul looking to ‘find themselves’ and whatnot.” Grabbing a pair of medical scissors from his kit, he carefully cut the excess bandage and tied off a neat knot on my arm. “I don’t know what type you are, Miss, but you look tense. There’s no pressure or commitment. We meet every weekend, and you are always welcome. No need to force yourself.”
+
+I nodded. It was a bit of a relief—knowing that my inevitable absence from this group was an expected outcome. Marcus extended his hand, which I took, getting ready to start moving again.
+
+“Good to go. There’s not much longer, so try and hang in there.” He smiled.
+
+I finished the hike with a slight limp. The pain in my foot wasn’t as intense as it was before, but it still made it a bit difficult to maneuver through the gravel path. I wasn’t really one to do this sort of thing—hiking, that is. I was told a little nature would help with my generally sour disposition. It didn’t. I hated types like our guide. It was difficult for me to navigate that kind of compassionate and outgoing attitude. The whole trip was full of corny jokes and overenthusiastic descriptions of the surrounding terrain. I just could never engage with that kind of energy—and I think he noticed. After our little interaction when I fell, he decided it was probably best to leave me to my own devices. I appreciated it. I think that, as a side effect of being outgoing and energetic, you become a lot more perceptive of those individuals who really want nothing to do with you. If anything, I respect people who have reached that level of awareness. There are lots who haven’t.
+
+I got home absolutely drained of energy. I did what they told me to do, and as I thought, it didn’t help one bit. I limped over to my fridge, where a rudimentary checklist made from a ripped page of a college-ruled notebook was haphazardly attached via magnet. In bold letters was the title: ‘Tara’s Recovery Plan,’ with three checkboxes. Grabbing a nearby pen, I begrudgingly crossed off the item labeled **‘Nature walk,’** and plopped down on the floor. If the universe is kind to me, I won’t ever make it to the end of that list.
+
+I took off my boots, glancing between the wound on my arm and my foot. *Especially if this is the result*, I thought to myself. Slowly, I took my sock off, expecting blood—or at least some kind of small object stuck in the cotton.
+
+I found neither. Instead, a small thread, no thicker than a strand of hair, stuck out of my foot. I stared at it with a furrowed brow. Strange.
+
+Before I could react or reasonably process what I was looking at, it quickly disappeared. A familiar, sharp pain followed, causing me to recoil a bit.
+
+“What.” I muttered, unsure of what else to say.
+
+I rested my bare foot against my knee for inspection. The hole was small, almost imperceptibly so, but no one could mistake the slight writhing just underneath the tiny wound. Had a parasite unknowingly made its way into my boot during the hike? I think such a thought would have understandably caused panic in anyone else, but for some reason, I felt apathetic—no, that wasn’t quite right. Underneath that layer of calm indifference was a slight fascination.
+
+I placed my finger softly—so as not to disturb the creature—on the ball of my foot. It beat and pulsed near imperceptibly against the unexpected pressure, attempting in vain to loosen my skin as it tried to wrest itself free. I watched as it struggled, painfully, to preserve its own life. I took a moment to consider my next action.
+
+I could continue. I could squish the worm, with nowhere else to go, its viscera and remains trapped under my skin, flagged as invasive, foreign, my body attacking and dispelling its waste until nothing was left. Or—maybe—I could preserve it. Let it feast until I was hollowed out; a husk of skin loosely kept together by marrow and sinew. I was curious as to what would happen if I chose the latter. There was something alluring about the tiny creature, vulnerable and weak, finding that I, of all people, was the most appealing choice. It didn’t take long to decide.
+
+I avoided putting pressure on the balls of my feet for the next few weeks. I doubt it was necessary—this amount of care, diligence, and effort. But it was the type of person I was. I wanted to be careful. I had chosen to take care of this little creature, so I would take the utmost caution in everything I did henceforth. That slithering feeling never left me; every passing moment, I could feel its movement within my body. It grew remarkably quickly. At first, it could only navigate within the shallow interior of my skin, but as it grew, it began to burrow deeper and deeper into my flesh. It felt as if it was swimming throughout my internals, an ever-present reminder of the vast expanse of gore that was human anatomy—a sea of meat, constantly nourishing a grateful existence.
+
+It was painful at first, of course. As the worm grew, it began to wreak havoc. Every alarm bell screamed and pleaded for me to take action—to expel the foreign invader. I ignored it. Pain was something I could deal with, given time. Even pain of the unbearable variety.
+
+Perhaps as a result of its growth and expanded navigation throughout my organs and flesh, I began to vomit on an almost daily basis. It was a wet, crimson concoction of blood and other fluids. One night, I could see small segments of the creature—white and resembling that of a maggot—among the debris. Each section was at least a millimeter thick. The little worm had grown quite a bit since it had first invaded my body. Against my better judgment, I poked at one of the bits of worm I had expelled, which surprisingly wiggled and recoiled at the touch. In passing, I had heard of creatures that could reproduce through fragmentation. It works similarly to autotomy in lizards or starfish; except the regenerated segment instead grew into an entirely separate being. I couldn’t help but smile.
+
+With a pasta strainer and a little bit of patience, I managed to recover all of the moving, maggot-sized chunks of the worm and set up a tiny, makeshift terrarium on my nightstand, utilizing a spare chafing dish I had lying around the kitchen. I watched as they struggled to navigate the smooth aluminum. I frowned. *This won’t do*, I thought. I grabbed the dish and exited my apartment, practically running down the stairs to the front of the building, where there lay a small patch of greenery and dirt surrounding a large tree. I knelt down, digging my nails into the soil, and carefully transferring it and bits of shrubbery into the tin—ignoring the confused and judgmental expressions of passersby.
+
+*Chirp*! A nearby sound caught my attention. *Chirp chirp!* I inspected my surroundings. A few feet to my left was a small sparrow, its visage a subtle, soft combination of browns and grays. The way it looked, it must have been a juvenile. I focused my attention upwards, into the branches of a nearby tree. Fallen from a nest, maybe?
+
+*Chirp*! I felt a pang of pity for the creature and crawled over to it, wanting to bring my face close enough to feel the warmth radiating from its pink, featherless skin. No—no. It wasn’t just pity. It was something deeper. Something primal. The instinct to provide. The instinct to feed. I could feel the worm thrashing and flailing within my torso and left arm, beating against my uneaten skin and muscle as if it, too, agreed. Its excitement spurred me to action. I grabbed the fledgling and carefully placed it within the improvised enclosure. Almost immediately, the chunks of worm—as if joined by one single mind—made their way toward the sparrow. Not wanting to make a scene, I quickly covered the tin, grabbed it, and ran toward the safety of my apartment. *Chirp*! *Chi*— The creature’s cries suddenly stopped.
+
+I could feel the weight shifting greatly from side to side as the worm fragments slithered around, away from where I had placed the baby chick. I placed the tray on the kitchen table, hesitantly removing the lid. Only bones were left. The worms were remarkably efficient and clearly engorged. Before me were a couple dozen slightly larger parasites.
+
+“Incredible,” I said out loud. Upon inspecting what was left of the sparrow, I could feel the creature—the main creature—start to flail and slither toward my hands—toward the tin. My skin contorted and bulged in accordance with its movement until it got to my wrists, where it erupted in a bloody display at the base of my palm.
+
+“Ahg!” I shouted in pain as it coiled around my thumb and ring finger with astounding strength, stabilizing itself and reaching toward the bones of the bird. “What, there’s nothing even left!” Of course, it ignored my words. It hovered above the makeshift terrarium, and I watched, horrified, as its mouth expanded to reveal a proboscis with dozens of sharp, jet-black teeth. It shot out with blinding speed, completely engulfing the juvenile sparrow’s remnants and covering them in a sticky, mucus-like substance.
+
+The shock must have worn off at that point, as I instinctively backed off from the display—forgetting that the creature in question was attached to me. I fell backwards, hitting my head hard, and pulling it—and the tin—to the floor. The last thing I remember is those maggot-like fragments crawling toward me as I lost consciousness.
+
+I woke up a day later. My apartment was a mess, but otherwise, I was alright. I felt different somehow, and my head was ringing. I glanced over at ‘Tara’s Recovery Plan,’ which curiously had another list item crossed off. This one, I had not done myself.
+
+**‘Treat yourself to a nice meal.’**
+
+Upon inspection of my body, I noticed I had several new wounds, gouged out arbitrarily and without much of a pattern. The all-too-familiar feeling of slime and intramuscular movement greeted me soon after. Yet instead of being attached to one continuous body, it was localized over several locations. So they had decided to make me their home too.
+
+Within a few months, my palms started to resemble that of a lotus pod. The burrows were a few millimeters in width and connected, such that I could interlace a wire between them if I wished. They were painful. I picked at the wounds frequently. White, cream-colored pus escaped the deep red pits, easily mixing with blood and streaking the substance with a grotesque, pink hue. It was much larger now; its movement throughout my body was visible even through a thin layer of clothing, displacing my skin to a degree I thought impossible without puncturing it. I was so harrowingly aware of its presence and routine—I felt each segment of the being intertwined throughout my figure with overwhelming accuracy: each curve, twitch, and slither as it used me for nutrients. I estimated it was about five meters long, much more than double my height. My appearance was ghastly—body riddled with holes and cracked skin, pale due to dehydration and blood loss. I stopped going out. I ignored calls from family and work. The few times I did have to leave for necessities, I wore heavy clothing and wrapped the larger holes in gauze to keep the bleeding to a manageable level.
+
+Anyone else would have stopped here and gone to the hospital—killed the things, and moved on. Anyone else. But I had already made the decision that I would nurture its existence. I became obsessive. I stopped bathing, in fear that it would endanger and drown the creatures. I gently nudged the parasites when I felt they were close to my feet or behind, so I didn’t accidentally harm them when sitting or standing. As I felt my own body begin to fail and deplete in sustenance, I began to eat raw meat to supplement their diet. On occasion, I would spend time catching the rats that now riddled my filthy apartment. The worms would happily consume them from the inside as I grasped them firmly; exiting the holes in my palm and burrowing inside them with gruesome efficiency. It took less than ten minutes for the creatures to devour the rats, and eventually, the burrows throughout my body became so large that the creature would drag the rats inside me to feed them to their kin.
+
+The creature’s new development came in the form of width as well as length. It bored a hole in my solar plexus so wide and deep that my ribs would easily be visible, had they not been obfuscated by the slithering intestines of the worms that now served as my provisional flesh. In the following days, I was in a near-constant state of internal and external hemorrhaging and excruciating pain—yet I lived, against all logical explanation. I could only guess that the worm was sustaining me somehow. I didn’t know where all the blood was coming from at this point. No matter how much the worm consumed, I still bled. I was far past the point of questioning it—to be honest, I didn’t much care. As long as the worm continued to feast, I was fulfilling my purpose.
+
+The more blood I lost, the more the worm changed. It began to take on the appearance of a bloodworm or a leech. Its teeth were visible, present on each segment of its body, rupturing and tearing me with each movement; and its body became maroon-hued. It was long enough at this point that it had coiled itself around my exterior, interwoven throughout my ribs and makeshift cavities. Where the creature ended and I began started to blur.
+
+My body is a cavern, filled to the brim with writhing parasites.
+
+I thought of my internals, flesh, and organs—how much of it was easily replaced by the worms. Each of my veins, limbs, intestines, and bones: consumed and replaced by the creatures. I thought of my brain. Slimy, wrinkled pink matter. I felt it move and contract in every passing moment. I don’t have much in the way of feelings anymore. There was just this hunger—this devastating, ever-present desire to consume. It whispered into my ears, goading me into action. We were getting so, *so* tired of sustaining ourselves with rats.
+
+I stared at ‘Tara’s Recovery Plan,’ possibly for the last time. One item remained undone.
+
+**‘Get involved with the local community.’**
+
+I think I know a certain group I could start with.

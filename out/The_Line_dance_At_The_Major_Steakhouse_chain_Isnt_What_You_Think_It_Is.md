@@ -1,0 +1,31 @@
+To cut to the chase, family’s in town and they have awful taste. We end up at the steakhouse. The staff escort us to a giant section, we order, my uncle decides to tell the staff it’s my grandpa’s birthday (a total lie.) and they make him sit on a horse toy he barely fits on, my dad gets in trouble with my aunt for blowing a straw wrapper at her eye, yada yada. Everything (except the food) was great, and then that fucking cowbell rang, ending my old world and birthing a new. I never thought something as simple as an obnoxious noise could possibly be so life-changing.
+
+A waitress in a steakhouse-branded cowboy hat (available in the souvenir shop) zoomed by and coaxed me to go up and do the obnoxious line dance bullshit and my family, being incredibly supportive people, began to peer-pressure me. I thought about grandpa sitting on that stupid horse and decided to be as good a sport as he had been. Cautiously, I rose. Step after step, I silently approached hoping to slink unseen by the endless faces. The sadistic whooping and hollering from my bloodline made that impossible. The wicked beast who’d so mercilessly tore my agency from me, like the nearly-faceless mob drooling around us cracked the shells from their crustaceous prey, sneered at me. Mirth in her eyes as I stumbled forward into the blinding lights at the center of the steakhouse.
+
+I had never line-danced before. For the second time that night, my agency had been stripped. My feet began to move against my will, and for what felt like an eternity, I had become a toy to puppeteer to some calf-faced child-god. I awkwardly fumbled back to my seat as the song ended, feeling hazy and used. Though the siren’s call had stopped in my ears, it had not stopped in my head. It had not stopped in my heart. I couldn’t hear my own thoughts, nor could I hear the words spoken by my family. I could only quietly sit and stare at my meal as sweat continuously poured from me. After we had left, the song began to quiet. My thoughts returned and the further from the hell pit I travelled, the more my thoughts drifted back. Most of them were from that damned restaurant. Upon returning home, I found myself restless, unable to sleep. Instead, I began to compulsively scribble out a resume. The next day, despite my fear and apprehension, I walked through those doors yet again to the demonic stench of searing muscle. In my mind, visions of the dead and flames danced as one for all eternity. A man in a hat representing the restaurant looked at me as I held my folder with both hands like a small child waiting my turn in line for a completed test.
+
+“Y-You’re hiring?”
+
+“Uh, yeah, guess so.”
+
+He called over another employee who then escorted me to the door of the manager. The employee knocked and, upon the door opening and the manager inviting us in, introduced us, and then left. The manager, Mr. Freeman, was vampyric in visage. His widow’s peak of black hair sat abnormally symmetrical and straight atop his pale, gaunt head. His purplish thin lips seemed almost as if they were hiding fangs. His business suit added to the darkness of the bags under his eyes.
+
+“So, you want to work at our steakhouse.” He tapped my papers on his tabletop to straighten them.
+
+“Yeah- I mean, Yes sir.”
+
+He nodded. “Speaking clearly and professionally. Manners are quite important in our staff. So few seem to have them these days.”
+
+He hyper-analyzed me for approximately 30 minutes, asking questions about my past, my accolades, my psychology. When he was finally satisfied sucking my brain dry, he simply said he’d call me in a week if I were deemed suitable to either bring food to the screeching and screaming denizens of this place, or to bake in the back room above fire and flesh.
+
+I stepped through the door back into the noisy chaos of the establishment. I was just about to leave when I heard the cowbell. Immediately, I became drawn. The music rose loud, but below it all, I heard something from a door marked “EMPLOYEES ONLY.” A wail of pain. Instinctively, I looked left, then right, and hopped over the counter. Quickly, I entered the door to be greeted by a seemingly endless dark-red-carpeted, dimly-lit staircase. I scrambled down them, unable to hear anything over the clapping of shoes and the heinous shrieking of the “music” above me.
+
+I ran down the stairs so fast I fell down many of them. I was fine with that. I’d have nowhere to hide if someone began to ascend. In what felt like 60 days but was probably only about 60 seconds, I stumbled down to the floor. Carefully, I peered from around the corner of the stairwell. The first thing I saw was that the carpet continued up the walls and even across the ceiling. The second thing I noticed were the bright overhead lights.
+
+Workers busily scittered around like ants, some pushing wheelbarrows of meat, some pouring said meat into a giant metal drum before a large stage where the rest of the workers down here worked. In the center of the stage lay a 20-foot tall bull with one long and one short horn atop his massive head. A massive brand- a symbol I had never seen before- interrupted his golden-blonde fur, which glinted in the light each time it recoiled in pain as the workers sliced strip after strip from him. His flesh immediately regrew, which seemed to hurt him just as much as having it cut out. When the music was over, the workers ceased their mutilation and began packing the meat to be sent up a dumbwaiter to, presumably, the kitchen. I watched in shock and horror as the cow lowered his face into the metal drum and consumed his own flesh. In his eyes, a deep and complex sorrow that I'd never seen on a living creature before and I pray exists nowhere else. Dazed and in a dream-like state, I trudged back up the stairs without incident.
+
+When I had finally arrived at the doors to my freedom, I heard something behind me. The worker who had escorted me to the manager.
+
+“Hope to see you again, cowboy! Maybe we’ll be coworkers next time!”
+
+I turned and stared at him blankly, causing his warm smile to dissolve into the face of confusion, his head still holding the cap all employees were required to wear-  the gold outline of a cow printed directly to every forehead.

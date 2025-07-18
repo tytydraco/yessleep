@@ -1,0 +1,37 @@
+I bought my childhood home after years of waiting for it to come back on the market. I was ecstatic; I spent most of my childhood there and had many fond memories. I was disappointed when my parents put it up for sale after I went off to college, but I figured that if I got a good job and saved up enough money I could buy the house next time it was put up for sale. I bought the house for significantly lower than the original asking price. It seemed like the couple living there was eager to leave, and when the time came to sign everything over they did so with great haste. I thought that was odd, but whatever. I had my childhood home back. I now see why they were so anxious to rid themselves of the property.
+
+
+
+My childhood home (I'll call it the house from here on out) is a beautiful Tudor-style home nestled on a 2-acre plot of forested land. The back of the house is almost all windows, showcasing the deck, screen-in porch, and backyard. Aside from some furniture upgrades, everything looked as it did from my youth. Not everything felt the same. 
+
+
+
+The woods on the property were my playground. My brother and I spent many days riding our bikes and building stick forts. For us, the woods were a place of wonder and fantasy. I didn’t understand at the time why they now felt foreboding and claustrophobic. Maybe nostalgia clouded my memories of the place. Maybe I didn’t understand then what lurked between the trees. My neighbors were also…different. They weren’t hostile to me but they didn’t go out of their way to welcome me either. In fact I rarely, if ever, saw them outside of their houses. Their yards were overgrown and ivy grew unopposed on their homes. I invited my parents and brother over for a welcome party and they also noticed things felt off. 
+
+
+
+About a month after moving in, I was doing some cleaning in the living room and noticed that a car was creeping down my driveway. The driveway bisects the property and is often used by confused drivers to turn around. I thought nothing of it and went on with my day. The next week another car came down the driveway, but this time stopped directly in front of my living room window. I was just about to go outside and ask if they needed help when their car started up and darted away. This happened a few more times over the next 3 weeks. Always the same behavior: slowly creep up to a stop in front of my house, sit idly for a minute, then peel away. What was odd is that it was never the same car. I couldn’t really make out what the car was either, it just looked like a generic sedan. 
+
+
+
+About a month ago things started getting concerning. One Saturday afternoon I happened to look through the front door peephole and noticed someone unfamiliar standing on my front porch. I couldn’t quite make out what this person looked like. Frankly, I don’t even remember what they were wearing. I had been on the first floor all day and hadn’t heard knocking or even a car drive up for that matter. I looked out the peephole for a few more minutes until the person turned around and walked away. They get into a car and peel off to God knows where. At this point I’m getting a bit concerned that someone is casing the property, so I invest in a video doorbell system (think Ring but some cheap knockoff). I thought that would at least give me some peace of mind if something like this happened again. The next week someone else showed up. Same thing, just stood there for a few minutes, then left. The week after that, they tried opening the front door. 
+
+
+
+I was jolted from my nap by the sound of the front door knob jiggling. Scared the shit out of me, I’ll tell you what. I looked on the video doorbell app and sure enough there was some random person vigorously jiggling the front door knob, as if they lived there and were confused that the door was locked. This shitty Ring knockoff didn’t have sound or a way to speak with whoever was out there, so instead I called the police. By the time they arrived the stranger was long gone. I gave the officer an account of what happened and let them see the footage from the camera. He had me send a copy of the recording over to the station so that they could analyze it and figure out the identity of the stranger. They never had any luck. 
+
+
+
+A few weeks pass and life goes back to normal. I continue working on home improvement projects and a ton of yard work. Everything was as it should be, at least until two weeks ago. I had walked out into my garage to grab some gardening tools when I noticed a breeze. The garage had two windows, but in all my time living here I had never seen them opened. If we needed to air out the garage we would just open the garage door. What I saw stopped me in my tracks. The garage window facing the front yard was open, and on the dusty glass was a handprint. Fuck. This. I ran back inside, locking the mudroom/garage door behind me. I called the police and after what felt like hours, an officer arrived. I explained the situation and had the officer comb every inch of the garage to verify there were no unexpected guests. They dusted the window for fingerprints, told me to check my locks, then left. I spent the rest of the afternoon obsessively checking each lock in my house. 
+
+
+
+Last week is when things got fucky. I had gotten pretty anal about checking outside before leaving, so one morning as I was preparing for work I looked out the bedroom window and just about shat myself. Standing in my yard were five people. All of them were staring up at me. I walked over to my nightstand to grab my phone and get pictures, and when I looked out the window again they were all gone. Damn, there goes my proof. I decided to call out sick for the day cause there was no way in hell I was going outside. On Tuesday they tried my front door. All 6 of them jiggled the lock and hammered on the door. I called the police, but they had dispersed by the time they arrived. This happened again Wednesday, Thursday, and Friday. Each day a police call, each day no result. The cops were fed up with my shit and stopped showing up. The dipshits thought I was playing a prank. Saturday, I saw some of the people in my backyard. Sunday, they had gotten closer. Today, they struck.
+
+
+
+I hadn’t slept much in the past couple of days. I was too afraid that they would come bursting in while I slept, so I kept a near constant vigil. I finally crashed this morning. I don’t know when I fell asleep, but it was about 8 AM this morning when I awoke to a cacophony of battered windows and doors. The fuckers finally made their move. One thing that sucks about my house is that the windows facing the backyard are big bay windows. This is great if you like views of the forest, but not so great if you are trying to sneak past would-be intruders. I counted 20 of them now, checking every window and door on the first floor. I don’t know why they didn’t just break the windows to get in, but I wasn’t about to question it. I was confident that every door and window was locked. Part of my daily routine was lock checks in the morning and evening. I was safe inside given they didn’t smash a window or shake a lock loose. I was safe, but stuck. They’ve been at this all day. What can I do? I’m trapped in my dream house and the police won’t come help. I only have a few days of food left in the pantry, not that I like going into the kitchen anyways. There’s always one knocking on the kitchen window.  
+
+
+
+UPDATE: I'm still here. They're still here, and I think one is on the roof
