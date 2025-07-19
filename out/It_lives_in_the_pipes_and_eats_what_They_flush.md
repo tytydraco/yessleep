@@ -77,11 +77,11 @@ The bowl emptied fast.
 I saw it again.
 This time the camera caught it clearly.
 It rose up from the pipes. Tall. Thin. Dripping with white slime. Its body was translucent, almost the texture of jelly, but laced with dark, vein-like tendrils. No eyes. No mouth. Just a pulsing mass of orifices, some opening and closing like gills, the others twitching like they were hungry.
-No eyes, but in my gut I felt like it could see me, even the next day watching the footage, straight through the camera. 
+No eyes, but in my gut I felt like it could see me, even the next day watching the footage, looking straight through the camera. 
 At the center of its chest, something glowed. Faintly. Like a core.
 I paused the footage.
 It wasn’t just glowing. It was moving. Like a heart. And it was full of floating… things.
-Little white dots. Thousands of them.
+Little white dots. Hundreds of thousands of them.
 It dawned on me what they were and my breakfast evacuated itself into the trash.
 
 It wasn’t eating semen.
@@ -106,5 +106,5 @@ A whisper, barely audible over the hum of the fan.
 
 “More…”
 
-I’ve been peeing in bottles and shitting in the alley since that night. 
+I’ve been pissing in bottles and shitting in the alley since that night. 
 How can I ever use a toilet again?
