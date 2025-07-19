@@ -92,3 +92,5 @@ A sense of foreboding filled me and when I looked over at Phil he returned my gl
 We both agreed that we should avoid using our tickets. It might not be worth riding to the end of the line.
 
 We had never heard of anyone who used an Express Ticket and made it back alive.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/UWHcOpgMSF)

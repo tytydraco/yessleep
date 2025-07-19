@@ -65,15 +65,21 @@ Trying to distract myself, I called my girlfriend and we met up at a cafe. Two h
 “Yeah.”  
 She showed me her phone. A wall of unread messages:
 
+“Wish I had legs like everyone else.” “Give me legs.” “Hurts without them. One’s already quiet, but the other still screams.” “So hard without legs. Soon it'll reach the stomach.” “YOU WHORE WHORE WHORE WHORE” “Don't feed them legs.”
+
 Dozens more. Just as messed up.
 
 I went pale. Changed the subject. Next day I managed to recover my email—had a phone number linked. Inbox was spammed with gibberish, unreadable characters. No converter helped. Scrolled through pages of that garbage, then finally saw a normal email.
 
 From a forum admin:
 
+“Your account has been permanently banned for posting content involving extreme violence and gore.”
+
 I emailed them explaining it was a hack, asked for examples of what got posted. No reply.
 
 Made a burner account and asked around. One guy replied:
+
+“Yeah, you dumped some sick shit in the off-topic thread. Looked like a room full of guts and shit, knee-deep. Some sludge thing in the middle with just eyes left. And another pic, like a view of the sky from a grave. You also wrote some rambling stuff. All about... legs?”
 
 That same day my girlfriend was hospitalized.  
 She fell down the stairs.  
