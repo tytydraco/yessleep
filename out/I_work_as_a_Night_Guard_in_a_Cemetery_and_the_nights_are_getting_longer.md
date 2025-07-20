@@ -1,4 +1,4 @@
-This is Part 11 of an ongoing series about my job as a night guard for my local cemetery. If you haven't read the previous postsor would like to refresh your memory you can find them here. [Part 1](https://www.reddit.com/r/nosleep/s/J5rK2rREKO)
+This is Part 11 of a completed series about my job as a night guard for my local cemetery. If you haven't read the previous postsor would like to refresh your memory you can find them here. [Part 1](https://www.reddit.com/r/nosleep/s/J5rK2rREKO)
 [Part 2](https://www.reddit.com/r/nosleep/s/5g82sY6q6C)
 [Part 3](https://www.reddit.com/r/nosleep/s/zxzHyt4voN)
 [Part 4](https://www.reddit.com/r/nosleep/s/7efzluTcEn)

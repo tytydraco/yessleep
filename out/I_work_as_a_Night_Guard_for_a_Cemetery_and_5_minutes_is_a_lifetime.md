@@ -1,4 +1,4 @@
-This is Part 9 in an ongoing series of the events I have experienced working as a Night Guard. If you haven't read or want to do another read-through you can find the previous posts listed here [Part 1](https://www.reddit.com/r/nosleep/s/J5rK2rREKO)
+This is Part 9 in a completed series on the events I have experienced working as a Night Guard. If you haven't read or want to do another read-through you can find the previous posts listed here [Part 1](https://www.reddit.com/r/nosleep/s/J5rK2rREKO)
 [Part 2](https://www.reddit.com/r/nosleep/s/5g82sY6q6C)
 [Part 3](https://www.reddit.com/r/nosleep/s/zxzHyt4voN)
 [Part 4](https://www.reddit.com/r/nosleep/s/7efzluTcEn)

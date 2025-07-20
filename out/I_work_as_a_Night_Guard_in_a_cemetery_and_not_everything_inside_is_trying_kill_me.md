@@ -1,4 +1,4 @@
-This is the 10th entry in an ongoing series about my experiences with the cemetery I work at. If you haven't read the previous posts you can read them at the following links [Part 1](https://www.reddit.com/r/nosleep/s/J5rK2rREKO)
+This is the 10th entry in a completed series about my experiences with the cemetery I work at. If you haven't read the previous posts you can read them at the following links [Part 1](https://www.reddit.com/r/nosleep/s/J5rK2rREKO)
 [Part 2](https://www.reddit.com/r/nosleep/s/5g82sY6q6C)
 [Part 3](https://www.reddit.com/r/nosleep/s/zxzHyt4voN)
 [Part 4](https://www.reddit.com/r/nosleep/s/7efzluTcEn)
