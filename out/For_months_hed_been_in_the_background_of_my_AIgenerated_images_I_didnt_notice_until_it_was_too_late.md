@@ -36,7 +36,7 @@ Business is a violent corruption; it infects even the holiest of pursuits, swims
 
 Anyway, I generated that image, *“Girl.Commission.1224”,* around Christmas. Clemens was present then, and he’s remained present ever since then. In the next project, he was in the same place - deep in the background, a little right of center - but he was *slightly* bigger. Same with the next picture; identical location and a tiny bit larger. A dozen images later, he’d tripled in size. So on, and so on, and so on.
 
-The system didn’t always generate his human form; I think I would’ve noticed *that* quicker. In one photo, his contours were constructed from lines of foam on the ocean. In another, I saw his screaming mouth framed by strings of pasta. No matter the contents of the image, once Clemens appeared, never left.
+The system didn’t always generate his human form; I think I would’ve noticed *that* quicker. In one photo, his contours were constructed from lines of foam on the ocean. In another, I saw his screaming mouth framed by strings of pasta. No matter the contents of the image, once Clemens appeared, he never left.
 
 He doesn’t have the most memorable face - no, his visage is decidedly average: short brown hair with narrow eyes and a hooked nose. The only notable feature was his mouth, perpetually fixed open in the shape of a scream, but, on a cursory inspection, that didn’t even strike me as alarming. I breezed over his wailing expression hundreds of times without noticing. It just didn’t stand out. Initially, my brain didn’t flag the profound distress as abnormal.
 

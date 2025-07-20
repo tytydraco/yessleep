@@ -180,7 +180,7 @@ He continued his recollection of that day where the rookie left off.
 
 Management brought up a skeleton key at their request and let them inside the locked penthouse, which was empty, but there were signs of fairly recent habitation - like a plate of food in the microwave, still warm to the touch. That said, the luxurious, multi-story condo was apparently “*a goddamned icebox”*.
 
-*“Sure, it was the middle of the summer, so it made sense to have the A/C on, but the place was* ***painfully*** *cold. The frigid air bit and clawed at our skin. That said, we checked the air conditioning, and found it to be turned off. So, why then did it feel like we were slogging through some freezing tundra? It was an anomaly,”* he remarked.
+*“Sure, it was the middle of the summer, so it made sense to have the A/C on, but the place was* ***painfully*** *cold. The frigid air bit and clawed at our skin. We checked the air conditioning and, strangely, found it to be turned off. So, why then did it feel like we were slogging through some freezing tundra? It was an anomaly,”* he remarked.
 
 The deeper the officers went, the more anomalies they encountered.
 
