@@ -94,3 +94,5 @@ We both agreed that we should avoid using our tickets. It might not be worth rid
 We had never heard of anyone who used an Express Ticket and made it back alive.
 
 [Part 2](https://www.reddit.com/r/nosleep/s/UWHcOpgMSF)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/06xvy7SGPi)

@@ -62,3 +62,5 @@ So, we ride the Train to Nowhere, a pleasant time for all who are willing to pay
 The greater the secret the further we can go.
 
 I always wonder what secret could be told to reach the end of the line. Would the prize at the end be worth the secret that is needed?
+
+[Part 3](https://www.reddit.com/r/nosleep/s/06xvy7SGPi)
