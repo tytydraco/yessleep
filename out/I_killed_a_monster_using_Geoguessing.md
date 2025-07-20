@@ -130,4 +130,4 @@ I nodded. “Probably. Now help me move this thing out back. Don’t touch its h
 
 We dragged that thing out to my backyard, and buried it in a hole we finished digging a week or so earlier.
 
-I haven’t had a dream since.
+I haven’t had a dream [since.](https://www.reddit.com/user/Lime-Time-Live/)
