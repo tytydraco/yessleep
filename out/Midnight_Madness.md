@@ -798,7 +798,9 @@ They had to take it off its hinges to get to me… and it was only then that I k
 
 
 
-***Addendum by Dr. Lana Bloom****The account goes on for a paragraph or so with some tedious epilogue from poor Abby about how she knows what really happened that night and yadda yadda yadda. It’s really not relevant to my notes so I’ll omit it.* 
+***Addendum by Dr. Lana Bloom***
+
+*The account goes on for a paragraph or so with some tedious epilogue from poor Abby about how she knows what really happened that night and yadda yadda yadda. It’s really not relevant to my notes so I’ll omit it.* 
 
 
 
