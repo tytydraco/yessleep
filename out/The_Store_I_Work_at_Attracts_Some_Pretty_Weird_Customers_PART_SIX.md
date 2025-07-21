@@ -78,8 +78,6 @@ He walked back in with a grimace on his face.
 
 And that was the Fourth. Not really eventful, but no matter how mundane, nothing here is going to be normal.
 
-\--------------------------------------------------------------------------------------------------------------------
-
 Spike here, Halloween was a bit of a wet blanket, so I’m going to tell you about my first Christmas here at the store. Christmas 2024.
 
 This one was a bit strange, but nobody died during it so it’s already better than Halloween. We lose workers just as fast as we get them, so within the month, I had two new people to work with.
@@ -298,8 +296,6 @@ Lastly, even though it’s the middle of July, Merry Christmas, folks.
 
 \-Spike.
 
-\--------------------------------------------------------------------------------------------------------------------
-
 It’s Ollie again.
 
 Let me tell you what happened on July 6^(th), 2025.
@@ -339,8 +335,6 @@ He spent a few minutes looking at it before coming back to me.
 “I was born with it, I think. Just always been able to split myself in two. It came in handy when I wanted to skip school or fulfill some social obligation. Funnily enough, I retain all the memories of a ‘me’ that I make. It isn’t hard, either; kind of like peeing yourself, if you get that.”
 
 Okay, so my boss can clone himself, that’s kind of sick.
-
-\--------------------------------------------------------------------------------------------------------------------
 
 Spike here again.
 

@@ -92,8 +92,6 @@ It would come, and it would speak to me again.
 
 But it *didn’t*. Not for a few months, at least.
 
-\------------------------------------------------------------------------------------------------------------------------------
-
 My birthday was in March, so by the time the next instance of this mysterious voice occurred again, it was mid-June.
 
 If it was hard to sleep just on my own, the summer heat had exacerbated the task even trying to think of getting some shut-eye.
@@ -160,8 +158,6 @@ Surprisingly, through all the thoughts and questions running in my head, I actua
 
 The next occurrence wasn’t until October.
 
-\------------------------------------------------------------------------------------------------------------------------------
-
 It was not Halloween. It was a few days before.
 
 Once again, I found myself struggling to embrace the arms of sleep.
@@ -213,8 +209,6 @@ The sad, raspy voice came once more from under the bed.
 Like the last two times, I went to check and there was nothing.
 
 Something was going to have to change.
-
-\------------------------------------------------------------------------------------------------------------------------------
 
 March. It was my birthday once more. Actually, it was about a week after my birthday.
 
@@ -325,8 +319,6 @@ I wish I had said something else.
 I wish I had told them it wasn’t okay, that I needed help and that something was tormenting me. But I didn’t.
 
 That decision has followed me till this very day. I sleep with the lights on no matter what now.
-
-\------------------------------------------------------------------------------------------------------------------------------
 
 It’s made actually sleeping with other people in the room a bit more difficult, but a simple “I see things in the dark” would suffice for them.
 
