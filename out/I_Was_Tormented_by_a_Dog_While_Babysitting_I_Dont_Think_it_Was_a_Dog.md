@@ -286,7 +286,7 @@ I didn’t know what was going to happen to that family, but I knew one thing.
 
 If they were in that house with whatever was wearing Emily’s skin, they weren’t *safe*.
 
-I was just thinking of how bad it’d be if Lindsey found Emily’s skin in her room when I received one last text from Lindsey.
+I was just thinking of how bad it’d be if Lindsey found Emily’s skin in her room when I received one last text from her.
 
 *L: I think something’s in the closet. I can see streaks of blond hair coming through the slits in the door. I’m going to open it.*
 
