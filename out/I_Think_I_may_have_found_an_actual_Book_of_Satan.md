@@ -9,4 +9,4 @@ I went to the graveyard and found two trees that matched the description but onl
 
 Which is when I saw that the grave’s name was Kaiya Smith, born 1876, died 1912. Which is when the second baby crow fell to its death. 
 
-I brought the box home and I’m freaked out, It’s been a day and I haven’t been able to get the lock off yet. I’m honestly starting to wonder if Kaiya was some sort of demon or ghost or something. All I know is that I’ve been looking for answers or some sign of Kaiya and theirs nothing. I’ll keep updating if I manage to get the lock off.
+I brought the box home and I’m freaked out, It’s been a day and I haven’t been able to get the lock off the notebook. I’m honestly starting to wonder if Kaiya was some sort of demon or ghost or something. All I know is that I’ve been looking for answers or some sign of Kaiya and theirs nothing. I’ll keep updating if I manage to get the lock off.

@@ -34,7 +34,7 @@ Requirements-
 
 Sorry, LASTLY LASTLY, there’s a small rock in the driveway next to the front door. If you shine your light on it, it sparkles; there’s a key to the house in it. That’s how you’ll get in.
 
-Alright, thank you! Emily is a bit strange but she’s a wonderful kid and I’m sure you and her will have a great time!”
+Alright, thank you! Emily is a bit strange but she’s a wonderful kid and I’m sure two will have a great time!”
 
  
 

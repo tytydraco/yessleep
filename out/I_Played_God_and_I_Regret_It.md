@@ -164,7 +164,9 @@ It took a long time, years, years that will stand out to me as some the most imp
 
 And then I met Andrea.
 
-It was at a science convention, funnily enough. Some up and coming brain surgeon was talking my ear off about “neuroscience” this and “brain stem” that. I was about to tell him that I saw a future in his eyes when she ran into me by accident.
+It was at a science convention, funnily enough. Some up and coming brain surgeon was talking my ear off about “neuroscience” this and “brain stem” that. 
+
+I was about to tell him that I saw a future in his eyes when she ran into me by accident.
 
 “Oh, sorry!” She said, turning around to see who she’d just run into.
 
@@ -186,7 +188,7 @@ It was true, she had spilled some sticky beverage and it was quickly making for 
 
 “Nonsense.” She responded. “I’m sure there’s something for drinks here. Let me buy you one!”
 
-Once more, I’ll spare you the details, but we entered that convention separately and walked out together. I don’t believe in love at first sight, but Andrea proved e wrong.
+Once more, I’ll spare you the details, but we entered that convention separately and walked out together. I don’t believe in love at first sight, but Andrea proved me wrong.
 
 Life only proceeded to get better from there on out.
 
