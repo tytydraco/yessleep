@@ -1,4 +1,5 @@
-[1](https://www.reddit.com/r/nosleep/comments/1lud7rc/im_a_police_detective_and_im_dealing_with_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  
+[1](https://www.reddit.com/r/nosleep/comments/1lud7rc/im_a_police_detective_and_im_dealing_with_the/)
+
 Hey, all. Oz is here, I've got an update on this bullshit, and I think you guys will want to hear it.
 
 If you didn't receive the previous one, I'll summarize the case for you.
@@ -37,13 +38,11 @@ It seems they weren't clean with the job, because she awoke later to an empty st
 
 No signs of blood or violence apart from the initial interaction could be found, but I have doubts that the poor kid is going home safe and happy.
 
-
-
 I told the mother that my team and I would do whatever it took to find the monsters responsible for this crime and bring them to justice. However, my professional and gentle words did little to lift her spirits. She walked out of the room almost robotically, as if the pain of losing her baby to a group of freaks was too much for her heart to bear.
 
 There’s no relief in sight for the case or me, with my nights still as broken and restless as ever. To top it off, the chief has given me just two weeks to solve the case, or the investigation is getting shut down for good.
 
-I asked him why, but he replied that it was an order he wasn't allowed to discuss. 
+I asked him why, but he replied that it was an order he wasn't allowed to discuss.
 
 I pleaded with him, expressing my desire to know the reason, but he insisted it was classified and told me to leave his office.
 
@@ -53,11 +52,11 @@ I've spent the past week miserable; I had nothing to pursue.
 
 The woman did allow us to check her, but as usual, those creeps are smart enough to wear gloves, so I've got no information on that front.
 
-I did get something from that case, though, because at some point in their escape, one of them ran through a bush. 
+I did get something from that case, though, because at some point in their escape, one of them ran through a bush.
 
 After all, on it, I found that the clothes they all wear belong to a specific brand.
 
- I contacted their company to ask if they remembered selling to these individuals. They informed me that the clothing they all wore resembled the uniforms of certain churches dyed black. 
+I contacted their company to ask if they remembered selling to these individuals. They informed me that the clothing they all wore resembled the uniforms of certain churches dyed black.
 
 It's information, but it ultimately adds only another sentence to the criminal profile, which makes it less significant.
 
@@ -71,7 +70,7 @@ Knowing that mutt wouldn't shut up on his own, I grumbled and went down the stai
 
 Alice was on the floor, gently petting my dog as she cut open the now-dead canine's stomach, but I wouldn't let her defile my pet, so I rushed forward and wrapped my arm around her neck.
 
-Even though this maniac was smarter and smaller than her chatel, she still put up a fight, thrashing around and even slamming my back against the refrigerator. 
+Even though this maniac was smarter and smaller than her chatel, she still put up a fight, thrashing around and even slamming my back against the refrigerator.
 
 But my grip was iron and I was determined to avenge my furry friend.
 
@@ -91,7 +90,7 @@ Nonetheless, not wanting to do this in the small room I called my dining room, I
 
 The cops would be here in 5 minutes.
 
-Alice whispered something into Oscar's ear and slipped away, retreating to my house and disappearing into the trees. 
+Alice whispered something into Oscar's ear and slipped away, retreating to my house and disappearing into the trees.
 
 Ted attacked me again, now armed with a chef's knife from my kitchen; he was stronger, but I was quicker.
 
@@ -113,9 +112,9 @@ The chair didn't seem to hurt the bulky man that much, but it did force him to s
 
 I locked the bedroom door.
 
-3 minutes 
+3 minutes
 
-The door shattered under the blows of the hulking monster that was forcing it down. 
+The door shattered under the blows of the hulking monster that was forcing it down.
 
 I knew the door was old and wooden, but I didn't expect it to give way so quickly.
 
@@ -143,8 +142,6 @@ I went down the last stairs and waited.
 
 1 minute.
 
-
-
 Ted and Oscar seemed to know this was the last time they had left to get me, so they ran down the stairs like children faced with the prospect of a sugary treat, but what baffled me was hearing them finally speak, albeit in a hoarse and guttural voice.
 
 "You know too much, but you also know so little."
@@ -165,27 +162,21 @@ Mercifully, he was too angry to shank me with a knife; he wanted to make it last
 
 0 minutes.
 
-My world spun and flashed as my head collided with the wall. 
-
-
+My world spun and flashed as my head collided with the wall.
 
 But I lasted long enough, because as soon as Police sirens could be heard, they both took off, entering the only room in the basement I knew had a window, and the police came down here fast, but by the time they did, all that could be seen was Ted's back fading into the trees.
 
 I found my way to my feet and went back to the station to tell them.
 
-We overlooked the recording of Ted's voice and attempted to connect it to any database, but we came up empty. 
+We overlooked the recording of Ted's voice and attempted to connect it to any database, but we came up empty.
 
-Whoever this guy was, he and his fellow criminals were clearly off the grid. 
-
-
+Whoever this guy was, he and his fellow criminals were clearly off the grid.
 
 Whether they were born that way or managed to erase their digital footprints, I can't say for certain.
 
 We did determine a few things: Alice is somewhat older than Ted, and Ted is around his 20s or so.
 
-Once again, this is just a few sentences in the criminal database. 
-
-
+Once again, this is just a few sentences in the criminal database.
 
 I'm not sure what to do, but now that they've become more openly violent, we can persuade the boss to extend the case.
 
