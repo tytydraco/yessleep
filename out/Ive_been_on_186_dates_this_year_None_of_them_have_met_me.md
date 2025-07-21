@@ -1,6 +1,6 @@
 I’ve been on 186 dates in the past year. All with different guys, but none of them have met *me.*
 
-I only go for married guys. It’s easy enough. I just write in my bio “I’m better than your wife” and wait for someone to ask me to prove it.
+I only go for married guys. It’s easy enough. I write in my bio “I’m better than your wife” and wait for someone to ask me to prove it.
 
 There’s something thrilling about matching with an ugly guy, knowing that the girl I’ve chosen to pose as is way out of his league, and then watching as he acts cocky anyway.
 
