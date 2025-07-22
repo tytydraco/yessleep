@@ -24,7 +24,7 @@ Requirements-
 
 5)      Call every 2-3 hours to give any updates or just let our daughter say hi to us.
 
-6)      If you’re babysitting for us, then any of our food is your food too. Oh, in addition to that, feel free to use any or our applications. Once again; if you’re babysitting for us, then what’s ours is yours.
+6)      If you’re babysitting for us, then any of our food is your food too. Oh, in addition to that, feel free to use any or our appliances. Once again; if you’re babysitting for us, then what’s ours is yours.
 
 7)      Sitting sessions will start at 6 PM and end around 5 AM, so about 11 hours.
 

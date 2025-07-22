@@ -12,7 +12,23 @@ It blinked. So did I.
 
 And for a moment, the storm paused, as if the mountain held its breath.
 
+The wind shrieked outside, but inside the world was still — carved wood, firelight, smoke curling toward the rafters. I took the slab of meat from the cold-box, still red, still bleeding a little. Elk, maybe. Caught in one of the snares it led me to. It didn’t fight the trap — just circled from a distance until I arrived, then vanished into the trees.
+
+I carried it to the bench outside.
+
+The bear had climbed the ridge by now, seated heavy and calm beside the pinewood table I’d built last winter. Snow flecked its back like ash. Its eyes followed me without blinking. I placed the bowl down — thick, carved, smoothed from a tree I felled when I first moved here. I slid the raw meat into the bowl. Steam hissed where it touched the cold wood.
+
+The bear bent its head and ate. Not like an animal — not frenzied. More like... reverence.
+
+Inside, I skinned another cut by the fire. My knife was dull. Hands stiff from the cold, fingers not what they used to be. I tied the meat to a split pine spit over the pyre outside the cabin. Let the fat sizzle.
+
+Later, I sat across from it, bowl between us, the silence broken only by the chewing, the fire, and the moan of wind dragging snow across the slope. We didn’t speak, but something older than words passed between us — a trade, a bond, not of domination or fear, but necessity. Mutual survival. A knowing.
+
+It hunted for me. I fed it what it helped me kill. It took what it needed. I took what I could. And in between, we sat — two beasts in the wilderness, warmed by fire, meat, and the understanding that in this place, nothing lived alone.   
+
   
+
+
 It didn't happen in a single night.
 
 First, it lingered longer after feeding. Then it came closer to the threshold — pawing at the step, resting its great head on the boards, as if listening to the heartbeat of the cabin. I left the door unlatched one evening. Just enough. A test, perhaps.
@@ -37,8 +53,10 @@ I didn’t name it. It didn’t need one. Whatever it was — companion, guardia
 
 Company that asked for nothing but trust.
 
+Winter had deepened. The sky was a constant low ceiling of grey, the snow endless, the sun a memory. Nights came early, thick and long. Inside, the fire was steady, casting a gentle glow on fur and flesh alike. The bear snored softly. I had grown used to it — the rise and fall, the warmth it shared like a second fire. We had become wordless kin.   
+
   
-Winter had deepened. The sky was a constant low ceiling of grey, the snow endless, the sun a memory. Nights came early, thick and long. Inside, the fire was steady, casting a gentle glow on fur and flesh alike. The bear snored softly. I had grown used to it — the rise and fall, the warmth it shared like a second fire. We had become wordless kin.
+
 
 Then came the night of the sound.
 
@@ -70,7 +88,6 @@ I found myself whispering without meaning to — words I didn’t understand, in
 
 It was time.
 
-  
 The howls went on for what felt like hours. They rose and fell like waves, not from any single throat but from the very shape of the world. Not wolves — *something older*, something that remembered being a wolf before wolves had names.
 
 They swirled in the dark, in the rafters, in the wind threading through the cracks of the cabin.
@@ -79,7 +96,10 @@ And then, just as suddenly, they stopped.
 
 The fire burned low. The bear lay beside me, eyes open, staring at the door for a long time. Eventually, it curled in again. I rested my head back and slept, not because the fear was gone, but because something deeper — older — had settled in its place.
 
-Resolve.
+Resolve.   
+
+  
+
 
 By morning the light was thin, grey. I stepped outside. The snow had frozen into a crust overnight, crunching under my boots. No tracks. No broken branches. No sign that the night had ever happened.
 
@@ -107,9 +127,11 @@ I looked at it. It looked back.
 
 My voice was low, but firm. Not a threat. A vow.
 
-“Next time,” I said, “we’ll be ready.”
+“Next time,” I said, “we’ll be ready.”   
 
   
+
+
 The stew had simmered through the afternoon — thick with root vegetables, bone marrow, and chunks of elk meat we’d carved from the last hunt. I ate with quiet focus, seated on the bench, rifle resting beside me on the wall. The bear lapped from its bowl across the table, slow and methodical. Outside, the sun had long vanished, leaving only a dull steel-grey behind the trees. The kind of darkness where time forgets to move.
 
 We finished eating. I stirred the fire, adding a few thick logs. Not because of the cold — the cabin was warm — but because something in me wanted the flames tall. Alive.
@@ -158,7 +180,6 @@ Its eyes never left the door.
 
 Nor did mine.
 
-  
 I sat still for a long time, eyes on the door, the rifle across my knees. The bear hadn’t moved from the hearth, but its body was taut — muscles coiled under fur, every breath slow and deliberate.
 
 I didn’t speak aloud. I didn’t need to.
@@ -203,7 +224,6 @@ But to *watch.*
 To *measure.*  
 To *remember.*
 
-  
 We sat like that for what felt like hours.
 
 The glow from the fire flickered, casting slow-moving shadows across the cabin walls. The eyes outside never moved. They were still there — patient, unblinking, eternal.
@@ -255,8 +275,6 @@ Not because we were strong. Not because we were lucky.
 But because we were *quiet.*
 
 And because we *listened.*
-
-
 
 The understanding the bear passed into me lingered like a fever behind my ribs. It wasn’t just knowledge. It *unseated* something in me — a loosening, like the ground beneath memory cracking open.
 
@@ -318,8 +336,6 @@ Only that the face out there, smiling with something older than cruelty, was not
 
 It was here to *witness.*
 
-
-
 The face held a moment longer — grinning with that wrong, stretched smile — then it *unraveled*.
 
 Not vanished. Not withdrawn.
@@ -375,11 +391,11 @@ I stayed awake as the fire burned down to embers. The bear didn't move again.
 
 And somewhere out in the night, beyond the cabin and the trees and the limits of time, *it* waited. Not because it needed to come back.
 
-But because it *could*.
-
-
+But because it *could*.   
 
   
+
+
 Morning came grey and golden, the first light slicing through the trees like truth through fog. For the first time in days, the sky was clear — the storm had passed.
 
 I stepped outside, my breath curling in the cold like smoke from a dying wick. The axe was in my hand, calloused fingers gripping it by instinct more than need. The bear padded beside me, as it always did. The morning ritual — cut wood, pull stumps, gather what the snow had buried.
@@ -436,8 +452,6 @@ And I knew what it meant, though no word was exchanged:
 *This was a door.*  
 *And it was opened for you.*
 
-
-
 I returned to the cabin, quietly, like I might wake something I hadn’t noticed yet. My rifle still rested near the door, and I picked it up without ceremony. It didn’t feel like a weapon now — just something *known*. A relic of control in a world that no longer obeyed the rules I’d grown up with.
 
 Outside, I dragged the wood stool through the snow, its legs scraping grooves behind me. The bear followed, silent and attentive. When we reached the marked tree, it examined the torn bark again — not sniffing, not pawing — just *feeling* it, in its own way. The morning sun etched long shadows over the ground, but the void in the tree cast none.
@@ -492,9 +506,6 @@ Not to me.
 
 *About* me.
 
-
-
-  
 I felt shaken at the center of my being as I stood there, watching — at *nothing,* and yet everything. Balanced atop the bear, the rifle slung like an artifact on my back, I stared into the aperture in the tree. My breath clouded faintly in the cold air, but the space beyond the bark didn’t accept it — as though even vapor had no right to cross that threshold.
 
 The galaxies within it shifted, but not with the urgency of movement. They *drifted*, like memories from a time before mine. And watching them — knowing they were not illusion, not madness, but *real* — I felt something inside me unmoor. A quiet tilting.
@@ -519,9 +530,6 @@ Like a heartbeat.
 
 Or a warning.
 
-
-
-  
 That single speck flared again.
 
 It wasn’t beautiful. It wasn’t majestic. It pulsed like something alive and unwell — red, then white, then nothing. And again. Not inviting… but *calling*. Not gentle… but *insistent*. I felt it in the meat behind my eyes, in my molars, in the base of my spine.
@@ -542,9 +550,6 @@ I blinked. The galaxies inside flickered.
 
 And that speck… blinked back.
 
-
-
-  
 I slumped down and slid off the bear's back, boots thudding softly into the snow-patched ground. My gloved fingers sank into its thick fur — not just for warmth, but for understanding.
 
 I didn’t speak. I didn’t need to.
@@ -567,9 +572,6 @@ It was *waiting*.
 
 And next time, it might not wait.
 
-
-
-  
 I did what any man, dumbed down by the forest and the cold silence it breeds — frozen in a desperation manufactured by nature itself — would do.
 
 I raised the rifle.
@@ -598,10 +600,10 @@ I had knocked.
 
 And it had *heard me*.
 
-
+As my face lay buried in the snow, numbness crawling up my cheeks, the cold became the least of what I felt.   
 
   
-As my face lay buried in the snow, numbness crawling up my cheeks, the cold became the least of what I felt.
+
 
 I remembered that night.
 
@@ -629,11 +631,11 @@ No court. No charges. Just... aftermath.
 
 They called it an accident.
 
-I never did.
-
-
+I never did.   
 
   
+
+
 I stood up again, brushing off the snow. The ache in my knees returned with the blood. I looked at the tree, half-expecting the impossible to still be there — that hole, that wound in the world.
 
 But it was gone.
@@ -656,11 +658,11 @@ Night came early.
 
 And the silence didn’t feel like rest.
 
-It felt like... waiting.
-
-
+It felt like... waiting.   
 
   
+
+
 That night, the howls came again.
 
 But not like before.
@@ -681,9 +683,6 @@ It had already turned to face the door.
 
 Back to the fire, eyes locked on the threshold like it expected something — not something wild, but something… returning.
 
-
-
-  
 I pulled the curtain open.
 
 The glass was fogged — breath or frost, I didn’t know. I wiped it with the back of my hand, the warmth of skin smearing the cold.
@@ -708,9 +707,6 @@ The bear was growling now — low, not the kind that warns. The kind that waits.
 
 And I remembered something I shouldn’t have.
 
-
-
-  
 It was as though he wasn’t standing of his own will.
 
 His limbs hung strangely—slack, yet precise, as if each motion, each tilt of the head or shuffle in the snow, was decided elsewhere. By something behind the veil of the real. Something *stringing him up*, like meat on hooks.
@@ -733,9 +729,6 @@ Because in that moment, I didn’t know who—or *what*—I’d be firing at.
 
 And I wasn’t sure it would care.
 
-
-
-  
 The snow whirled gently between us like dust in an hourglass—each flake a fraction of a second stretched unbearably long. He stood beyond the window, half-formed in the blur of mist and shadow, that wound in his forehead—a black, smoldering mark—still seeping slowly, as though reality itself bled from the opening.
 
 And I *knew*.
@@ -762,29 +755,19 @@ The snow kept falling.
 
 The silence after was *worse*.
 
-
-
-And then it came—the howl—as though something older than time, collective as the stars, bellowed through the void, its voice aimed straight at me. It shook the cabin, the bear, the marrow of my bones.
-
-
+And then it came—the howl—as though something older than time, collective as the stars, bellowed through the void, its voice aimed straight at me. It shook the cabin, the bear, the marrow of my bones.   
 
   
+
+
 The next day, I woke with my eyelids heavy, as though sealed shut by frost. The bear stirred beside me, rising without sound. We stepped out into the pale morning and walked—no destination, only instinct—until we reached a clearing.
 
 The trees were gone. Not cut. Not fallen. Simply... absent. As if they had shifted elsewhere or been removed by some unseen hand.
 
 In their place, etched cleanly into the snow, were markings—familiar, yet sharper this time. A circle, lines intersecting at angles. Not random. They hinted at something. A design. A direction. A path.
 
-Then it struck me. It was a map. A path through the woods. And the clearing—this empty, silent ring—was the origin point. The beginning.     
+Then it struck me. It was a map. A path through the woods. And the clearing—this empty, silent ring—was the origin point. The beginning.
 
-
-
-  
 I looked at the bear. It looked directly back at me—unblinking, steady. And though no words were spoken, I heard it clearly.
 
 It would accompany me. I wasn’t alone.
-
-
-
-
-
