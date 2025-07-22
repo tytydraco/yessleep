@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/s/HzBKmMfYdq)
+
 I work at a hotel at the end of the world.
 
 You probably think I mean I work at a hotel in the middle of nowhere―that would be incorrect. 
