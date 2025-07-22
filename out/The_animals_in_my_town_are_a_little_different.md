@@ -27,3 +27,5 @@ I don't think it's too out of the ordinary, it's just a little different. Like I
 Oh and I think Kenny's been letting the dog into my room at night. That or the dog has figured out how to open and close doors. Last night I awoke to him licking my feet, feeling his teeth nawing on the tips of my toes for the treat that was yellowed toe nails. Maybe I was cruel but I kicked him away and tucked my feet under the blanket before I went back to sleep. Course when I woke up the next morning my door was shut like no one had been there. I'm unsure how to confront Kenny about it though.
 
 Anyway I should probably get back to work, I've been typing this out at a meeting we've been having. If I think of any other stories of note or you all think the animals are as weird as my family seems to maybe I'll post again.
+
+Edit: I think I will continue to log things in this sub. I'm starting to realize I might be in a bit of a pickle in my town. Second part has been posted
