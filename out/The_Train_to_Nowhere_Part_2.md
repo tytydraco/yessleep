@@ -64,3 +64,5 @@ The greater the secret the further we can go.
 I always wonder what secret could be told to reach the end of the line. Would the prize at the end be worth the secret that is needed?
 
 [Part 3](https://www.reddit.com/r/nosleep/s/06xvy7SGPi)
+
+[Part 4](https://www.reddit.com/r/nosleep/s/SusLIPuPX6)

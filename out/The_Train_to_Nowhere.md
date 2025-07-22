@@ -96,3 +96,5 @@ We had never heard of anyone who used an Express Ticket and made it back alive.
 [Part 2](https://www.reddit.com/r/nosleep/s/UWHcOpgMSF)
 
 [Part 3](https://www.reddit.com/r/nosleep/s/06xvy7SGPi)
+
+[Part 4](https://www.reddit.com/r/nosleep/s/SusLIPuPX6)
