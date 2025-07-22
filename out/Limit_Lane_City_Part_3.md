@@ -72,4 +72,4 @@ The first thing I heard as the fences sank back into the ground was Marc's shout
 I couldn't move, couldn't breathe. My eyes were locked onto my arms. They were empty. Marc ran circles around me, shouting for Cora. He grabbed my shoulders and shook me violently out of my paralysis. Our eyes met and we said nothing. We knew she was gone, but we couldn't accept it. Marc's eyes were so empty, something had died within him. He clawed into my shoulders.  
 "I'm going to kill it"
 
-[Part 2](https://www.reddit.com/r/nosleep/s/2OfbJgy7bL)
+[Part 2](https://www.reddit.com/r/nosleep/s/MYHYCtlGey)
