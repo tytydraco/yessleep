@@ -1,4 +1,4 @@
-I don’t know what he is. A presence, maybe. A watcher. I call him Bob.
+I only call him Bob because giving him a name feels safer. But nothing about him is safe. He sees everything. I don’t know what he is. A presence, maybe. A watcher. But he’s real. I’ve seen what happens when he looks at people too long.
 
 It started as a joke. “Bob can see us,” I used to say when someone did something shady. But I wasn’t really joking. Not deep down. Because after a while, I started seeing things - moments that didn’t involve me but felt… shown to me. I don’t know how to explain it. It’s like Bob *wanted* me to know.
 
