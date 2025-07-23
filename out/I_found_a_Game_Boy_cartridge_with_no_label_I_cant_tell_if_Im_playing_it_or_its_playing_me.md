@@ -32,19 +32,19 @@ I was alone in the dark, except, I could just tell... I wasn’t.
 
 I used my hands to guide me out into the hallway. CLICK!
 
-One single bulb, in the distance, turned on. Then off. Then on again. It kept going in a steady rhythm. The first few flashes gave me relief. But the longer I stood there. I knew... somethign was about to appear.
+One single bulb, in the distance, turned on. Then off. Then on again. It kept going in a steady rhythm. The first few flashes gave me relief. But the longer I stood there. I knew... something was about to appear.
 
 And it did.
 
 In the distance.
 
-A figure. Limbs twisting and glitching like bad code. I recognized it immediatley. It was the monster from the game. Its hollow eyes locked onto me.
+A figure. Limbs twisting and glitching like bad code. I recognized it immediately. It was the monster from the game. Its hollow eyes locked onto me.
 
 Then the old lady’s bedroom door slammed open.
 
 She wasn’t asleep anymore.
 
-Her skin was pale, cold, but her eyes burned with a terrible life. A cathéter tube dangled from her wrist like a serpent’s tail. She lunged at me, fingers like claws.
+Her skin was pale, cold, but her eyes burned with a terrible life. A catheter tube dangled from her wrist like a serpent’s tail. She lunged at me, fingers like claws.
 
 Her grip wrapped around my throat — too strong, like iron bands tightening. I gasped, struggled, but she held on, dragging me down.
 
@@ -56,7 +56,7 @@ I struck the old lady hard. She snarled - a terrible, unnatural sound. She smash
 
 I dodged, barely.
 
-I realized then: this wasn’t just the monster. It was controlling her (either that or I'd given her too much Provigil earlier), using her body as a weapon. Her strenght was incredible.
+I realized then: this wasn’t just the monster. It was controlling her (either that or I'd given her too much Provigil earlier), using her body as a weapon. Her strength was incredible.
 
 I turned and faced the flickering shadow.
 
@@ -72,11 +72,11 @@ CLICK! Nothing happened. I tried again and again. Nothing. No light.
 
 The batteries were dead. 
 
-I ran into the butler’s pantry thinking what to do. Then-- thunk... thunk... thunk...
+I ran into the butler’s pantry thinking what to do. Then-- THUNK... THUNK... THUNK...
 
 A monotonous sound broke the silence.
 
-I looked through the slated door. The old lady was slowly making her way towards me. Then… nothing.
+I looked through the slatted door. The old lady was slowly making her way towards me. Then… nothing.
 
 She’d disappeared. 
 
