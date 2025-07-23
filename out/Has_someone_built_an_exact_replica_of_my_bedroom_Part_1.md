@@ -1,3 +1,5 @@
+**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/1m75jju)
+
 I’m not what you'd call a morning person. If my alarm doesn’t pry me out of bed, nothing will. So when I woke up in the pitch dark feeling refreshed and jaunty, I could already tell something was off. I scowled and fumbled around for the bedside lamp until I found the switch.
 
 Grunting like a man twice my age, I sat up and reached for my phone on the nightstand, tapping it awake. 11:47 am. I stared blankly at the screen, then over at the drawn curtains, as if they might offer an explanation.
