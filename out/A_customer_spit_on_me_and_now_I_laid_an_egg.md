@@ -326,3 +326,5 @@ I looked into the drain and saw a bubble rise from the mucus, like something und
 And then it popped.
 
 Fuck this. I'm calling the doctor. 
+
+[part 2](https://www.reddit.com/r/nosleep/s/h5VUDY7uNy)
