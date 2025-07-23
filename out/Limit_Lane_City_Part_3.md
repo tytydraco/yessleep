@@ -73,3 +73,4 @@ I couldn't move, couldn't breathe. My eyes were locked onto my arms. They were e
 "I'm going to kill it"
 
 [Part 2](https://www.reddit.com/r/nosleep/s/MYHYCtlGey)
+[Part 4](https://www.reddit.com/r/nosleep/s/ZqKmxgzXR8)
