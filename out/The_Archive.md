@@ -24,7 +24,7 @@ I switched on the flashlight, and swept it around the room in a broad arc. The a
 
 Initial entry. No visible fire damage to the Archive. Books intact. Air dry. Too dry.
 
-Having wandered the shelves for some time, I reached out for an eye-catching volume bound in faded green leather, coughing as dust stirred in the air. Its title was in Latin: *De Membris Umbrae.* “About the Members of the Shadow”. A little much, maybe: it sounded like a lurid gothic novel\*.\* I opened it.
+Having wandered the shelves for some time, I reached out for an eye-catching volume bound in faded green leather, coughing as dust stirred in the air. Its title was in Latin: *De Membris Umbrae.* “About the Members of the Shadow”. A little much, maybe: it sounded like a lurid gothic novel. I opened it.
 
 The pages were blank.
 
@@ -32,7 +32,7 @@ Odd.
 
 I picked another: *The Shaping Script.* This one held writing, but not printed. Handwritten, yet so precise it looked etched. Each letter was immaculate.
 
-And then something impossible happened. Text appeared on the paging, flowing as if written by an elegant hand wielding a fountain pen.
+And then something impossible happened. Text appeared on the page, flowing as if written by an elegant hand wielding a fountain pen.
 
 ***The man stepped into the archive. He coughed from the dust. He reached for a green-bound volume. Found it empty. Picked up another. Began to read...***
 
@@ -98,7 +98,7 @@ On the desk, a manuscript. Newly bound. The title:
 
 I woke up, sat at the desk. I had been in an almost deathly sleep: unspeakably deep and dreamless. 
 
-Groggily, my eyes adjusting, I stared down at the manuscript and - carefully, as though touching the leaves of a stinging nettle, I began to lead the pages. 
+Groggily, my eyes adjusting, I stared down at the manuscript and - carefully, as though touching the leaves of a stinging nettle, I began to leaf through the pages. 
 
 They were covered in hand-written script. They described *me*: my failing career, my apathy, and then - more recently, my entry into this long-forgotten wing. My confusion… the lighter in my pocket. And then I read the most recent line: 
 
@@ -108,15 +108,15 @@ I had, as far as I could remember, never attempted to speak Latin to *anyone*. A
 
 Latin be damned, I took the lighter from my pocket, flicking it open. Holding the manuscript in one hand I held the lighter to its corner. I think I might have been smiling, manically.
 
-From the highest stack, from deep within the room came a sound like quills scratching slate. Snapping the lighter closed I switched on the flashlight and swept it across the room before I saw them: figures hunched over their own arms, etching text into skin. They looked up in unison. They all had my face. My face. My face.
+From the highest stack, from deep within the room came a sound like quills scratching slate. Snapping the lighter closed I switched on the flashlight and swept it across the room before I saw them: figures hunched over their own arms, etching text into skin. They looked up in unison. They all had my face. My face. *My face.*
 
 I fled back up the spiral, the scratching sound following me as I ran, the manuscript forgotten.
 
 **Day Five.**
 
-I awoke, sat at the desk once again. I hadn’t left, I hadn’t dreamed.
+I awoke, sat at the desk once again. So I hadn’t left after all, it seemed. *Why?*
 
-Writing scrawled along my forearms. The ink was fresh, the flesh of my legs red and stinging where the writing had been scrawled - almost tattooed - into my skin.
+Writing scrawled along my forearms. The ink was fresh, the flesh of my arms red and stinging where the writing had been scrawled - almost tattooed - into my skin.
 
 ***This vessel grows aware. That is rare. Perhaps promising. Perhaps flawed.***
 
