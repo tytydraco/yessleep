@@ -724,3 +724,34 @@ So this time…
 We’re both preparing.
 
 Let’s see who breaks first.
+
+Update – July 23, 2025 | 6:35 PM
+
+I’ve been stocking up on MREs.
+Looking over my transactions lately, I’m starting to feel like one of those Mormon millionaires prepping for the end times.
+The room feels smaller now.
+Floor 4 is shrinking—almost like the walls are closing in, forcing us to keep moving forward.
+
+The deeper I explore, the more time slips.
+Not in hours or days, but in moments.
+It’s like time is accelerating…
+…but motion isn’t keeping up.
+
+I’m sleep-deprived.
+Dragging all these supply buckets up to the highest point I could reach.
+The building feels empty now. Like it’s holding its breath.
+Waiting for a storm.
+
+I just wanted to drop one last entry before the next phase begins.
+
+For now, I’m signing off.
+My ascension starts tonight.
+
+If time continues accelerating the way it has, I won’t be able to write again for a while.
+
+So if you don’t hear from me in two months…
+Expect the worst.
+And if I make it out—
+
+I’ll see you on the other side.
+—Derek
