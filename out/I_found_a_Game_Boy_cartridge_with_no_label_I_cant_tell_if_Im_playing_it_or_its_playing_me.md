@@ -6,7 +6,7 @@ It was a blank Game Boy cartridge. No label. Just plastic with the word “Flick
 
 Curiosity, and a price tag of a dollar fifty, convinced me to take it home.
 
-“Good deal, only 3 bucks. Game’s a classic.” Said the guy at the register. 
+“Good deal. Game’s a classic.” Said the guy at the register. 
 
 I went to my shift. I take care of an elderly woman in a forgotten part of town. Big house. She doesn’t usually even wake. Which leaves me with spare time. A lot of spare time. 
 
