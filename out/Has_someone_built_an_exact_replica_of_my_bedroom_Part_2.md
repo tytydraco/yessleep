@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1m69ubb) | **Part 2**
+[Part 1](https://www.reddit.com/r/nosleep/comments/1m69ubb) | **Part 2** | [Part 3](https://www.reddit.com/r/nosleep/comments/1m80rg4/has_someone_built_an_exact_replica_of_my_bedroom/)
 
 I spun around, back slamming against the headboard, heart thundering.
 

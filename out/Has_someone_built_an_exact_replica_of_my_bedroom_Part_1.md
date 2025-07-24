@@ -1,4 +1,4 @@
-**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/1m75jju)
+**Part 1** | [Part 2](https://www.reddit.com/r/nosleep/comments/1m75jju) | [Part 3](https://www.reddit.com/r/nosleep/comments/1m80rg4/has_someone_built_an_exact_replica_of_my_bedroom/)
 
 I’m not what you'd call a morning person. If my alarm doesn’t pry me out of bed, nothing will. So when I woke up in the pitch dark feeling refreshed and jaunty, I could already tell something was off. I scowled and fumbled around for the bedside lamp until I found the switch.
 
