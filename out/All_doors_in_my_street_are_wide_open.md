@@ -70,10 +70,6 @@ The sound waves of a clearly audibly perceptible grumbling sprouted through the 
 
 
 
-\---
-
-
-
 My "night" has been short and without sleep. The noon's sun crawled through the slit in the curtains and enlightened my dozing face until my body gathered enough motivation to get up. Well, motivation is well said. It's rather the bad feeling from starting the day late. It's weird that I still feel bad even if there is nobody that can be disappointed by me. But the human is best at criticizing itself after all.
 
 
@@ -135,10 +131,6 @@ I grabbed the keys and made my way into the courtyard behind our house. I didn't
 
 
 Despite the small light that my dad installed centuries ago, a dark but somehow cozy atmosphere filled the room. My roommates shifted from divas in rodent costumes to small eight-legged guys and gals that made their homes in the corners of the cold car-holding structure and would protect me from any nasty vermin crawling in these streets. It is surprisingly cold for a summer night and the thin sleeping pad on the concrete floor doesn't really scream 'restful sleep.' I am guessing that today's experiences will keep me awake, but I am hoping that my exhaustion will put me to sleep.
-
-
-
-\---
 
 
 
