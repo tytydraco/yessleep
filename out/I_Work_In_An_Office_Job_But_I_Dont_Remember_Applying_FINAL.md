@@ -1,0 +1,51 @@
+The deciding factor of Kayla’s life was entirely dependent on this next moment. She walked in. “Hey Jack, boss sent me in to check on you.” I looked at her, my eyes still glazed over from swollen tears. “What’s this?” Before I could put it away or answer or say anything, she took it from my hands and looked over it. “Odd, I don't recall this ever happening. Who’s that with his arm around you?” I could’ve said no one, an old fired employee who was caught stealing, but even I knew that wasn’t the truth.
+
+“My brother. He worked here.” She looked up at me with a half-smile, wondering if he left or otherwise. Then she asked.“Did he get fired or something?” Again, the truth wasn’t necessary, but I kept telling it. “I don’t remember. I had completely forgotten about him until this point, and I don’t understand why.” She looked at me with what looked like relief, as if finally someone understood. “Oh, thank God, I thought it was just me. I keep having lapses in my memory. I’ve been missing entire work days, Jack. Do you remember applying for this place? Because I sure as hell don’t.”
+
+Another moment where I could’ve just kept my mouth shut and lied, another step closer to her death. I’m sorry, Kayla. “No, only recently did I remember. I think something is in the water tank making us forget.” Stupid. So naive and stupid I was.
+
+“I’ll go to Mr. John and tell him about the water, our memories, and I even have proof.” She held up the photo frame. I remembered my encounter with Steve or… what I thought was Steve. What if John is like him? “I don’t know if that’s a good idea, Kayla.” The only good decision I made that day, however, it amounted to nothing. She looked at me, confused.
+
+“Oh, don’t be silly.” Before I could protest, she had already left the room, and I could hear her walking at a brisk pace down the hallway. I closed the lid to the now-empty box and tried to follow. I made my way past Steve’s office when I was stopped by Steve. “Finish it yet?” I could see past his shoulder. Kayla walked into John’s office, and the door closed behind her. That was the last time I ever saw Kayla. Technically. Finally, I gave my attention to Steve, but as I saw him in the dark hallway, my arm hair stood up. He was completely shadowed as a silhouette, the light of the office shining behind him. Have you ever seen a dog or a cat, or a wild animal in the dark? Their eyes shine… almost a glow. It’s what is responsible for their night vision as light reflects differently. All I could see was that glow.
+
+Trembling, while doing my best to hide the terror I was feeling, I answered. “Uh, yeah, man. All done.” I gave him a thumbs up. I hoped that had worked. He laughed and took me by the arm, giving me his usual small talk as he led me near my cubicle, and I sat down. Every story this man told was as if it had belonged to someone else. My memories… people’s voices… what else did they steal?“Ma boy, you do good work here. Tomorrow’s Friday, the end of the week, but that doesn’t mean ya get to be sloppy, lad.” I nodded in understanding. The last thing on my mind was getting this man… or an imitation of one, mad. “Good, enjoy ya night, Tom.”
+
+It slipped up.
+
+It turned around and walked away as if no mistake had occurred. Probably hoping I didn’t catch it getting lazy with its mimicry. I sat for 10 minutes as it was 4:50. Kayla still hadn’t come out, and it was time for me to leave. I tried to stick around a little longer when my “coworkers,” as I thought they were at the time, just stared with those bulging eyes and bared toothy smiles. I felt like they were going to lunge at me if I didn’t leave, so I did. I slept uneasily that night. Dreams filled with fractured memories haunted me throughout my restless sleep. It had to be the water. When you drink the water, you lose your sense of memory and time. Had I REALLY been there for 2 months, or was that the water not working fully? Did I figure this out before? Is that how Michael got ”fired”? Why? What even is Sampson and Co.’s Paper Company? I never did really work there. I printed off false reports and faxed blank paper.
+
+It was the entire reason why I had been shaking, getting hot and cold flashes, sweating, and throwing up that black phlegm. THAT was the water. I was going through withdrawals like it was a drug. Tomorrow I’ll just get through the day and tell them I can’t do Sunday and hand in my resignation. Simple. It wasn’t.
+
+Friday was only next to Sunday in terms of my world changing for the worse and the weirder. Mostly worse. I arrived at work on time and sat at my desk. Something was off. 
+
+Someone else was sitting in Kayla’s chair. 
+
+I stared at the man with disbelief. He was an older gentleman with a moustache who wore business casual. Then again, this den of monsters definitely didn’t care for dress code. He noticed me staring. “You good, Jack?”
+
+This man didn’t know me. “Who the hell are you?” I said with an accusing tone, not loud enough to draw the attention of the “coworkers.” He looked at me, confused.“Uh, David? We’ve been working for 3 years now?” Heck. No. I have never met this man before IN MY LIFE. Yet I had- no, HAVE memories of him to this day. Did they get smarter? Did they know I hadn’t had a single drop those past few days? Did they even need the water anymore? Kayla asked too many questions, and now she’s gone.I immediately got up from my cubicle and briskly walked to my “boss’s” office. “Steve” came out from the hallway.. “Jackie, ma boy!” I ignored it. Looking back, I definitely could catch it on the corner of my eye, giving me this death scowl. The type of look a dog gets when another gets too close to its food. I knocked on “John’s” office door.
+
+It opened the door and stood in front of me. “You alrighty there, Son? You banged on mah door a lil’ loudly there.” I wonder who this thing killed to get this persona. Whoever this thing killed and mimicked must’ve worked here prior to me. I handed it my resignation note. 
+
+“I can’t do Sunday. I’m sorry.” I wasn’t.
+
+It looked at me with a fake and stern look as if I had hurt its feelings. “Son, this is highly unprofessional. But if you feel that way, I can’t stop you.” It shook my hand, tight enough to hurt. “You do take care now. I hope you find what you’re lookin’ for.” It let go. I grabbed my things, and I went home.
+
+Saying that the rest of the week was uneventful would be an outright lie. Stuff happened. Stuff that would kill a Victorian child… and that’s not even a joke, it would. Let’s continue.I pulled into my driveway, got undressed, and cried in my bedroom for an hour. Kayla’s best case was that she got fired, and her worst was that she was dead. I don’t need to put a spoiler warning as to which case ended up being true here. Excuse me for slight humor, but I almost died last night.
+
+After a few hours of moping and feeling sorry for myself, nightfall had come. I went outside and closed the door behind me to take out the trash. The last thing I needed was adorable, chubby raccoons coming in for a new home. That happening at this current point in time would now be preferable. 
+
+I opened the trash lid and was startled by barking. It was quite dark out, even with the streetlights. My driveway was long. So you had about 6 rows of street lights before it connected with the main road. It was a Large property that was given to me by what I now remember being my parents. Fuck that damn water cooler. Yes, those blocked numbers were real family. I absolutely hate myself for that. Sorry, tangent. The odd thing was… I only have like 4 neighbors on either side, and NONE of them have dogs, and unless it walked a few miles, there’s not really any other properties out here. I looked towards the beginning of my driveway, a good 100ft away from my front door, when I saw something standing there in the dark past my gate. The source of the barking, the street lights at the end, flickered. A crow behind me scared the daylights out of me as I rushed to the door.
+
+Here’s the thing… my trash cans are near the end of the street. So I would have to haul ass to get to my door. Just when I thought I was seeing things, it stepped closer. I could barely make out what it was; it could’ve been a wild dog or a wolf. I started to back away, and it started to walk closer. My breath heavy with fear, the MOMENT that animal got closer to the streetlights, they blew. That’s when I hauled ass. Before I ran, I caught a glimpse of it about to pick up speed. For sure, it stood on two and went on four and lunged forward. Bulb after bulb exploded as my driveway grew darker and the thing grew closer. As I got to the door, I stopped in my tracks.
+
+The Door was open.
+
+I noticed the bulbs had stopped blowing. As I turned around, the thing was not there. I hurried inside and shut the door, locking it. I ran around the house, locking every door and window. I was safe, I knew I was safe, I checked the whole house, and I don’t have a basement or an attic.
+
+Just as I stood by the door with my gun, I heard it. The screaming. The sounds of multiple animals and people that it's killed, wailing out for help. The sounds of dying deer and hurt, whimpering children could be heard, all coming from the same source. It smashed against my front door, unable to get in. It was big. It tried to lure me out over the course of an hour, using every tool at its disposal. I heard Tom, I heard Michael, I heard Kayla. Begging me to let them in. I cried against the door, sobbing with my hands over my ears, begging for the cries and wails to stop. It even tried mimicking me, some messed-up attempt at getting me to open the door as a form of some reverse-psychology. The sounds died out. It was over. I looked through the keyhole and…
+
+There was a big, dead, yellow eye. Before I could even comprehend it, it threw itself at my door one more time, denting it inward, almost hitting me in the head. And it ran. I opened the door. I looked at my concrete porch in anguish as I saw it:
+
+Lying on the floor was my resignation. Kayla’s locket. The photo of Michael and me. And above it in this black, decayed, bloody handwriting, wrote….
+
+"See you Sunday :)"
