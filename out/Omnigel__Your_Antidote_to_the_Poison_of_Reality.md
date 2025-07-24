@@ -16,7 +16,7 @@ I clapped until it became clear that he didn’t want me to clap, face grimacing
 
 I didn’t quite understand what he was asking me, but I became uncomfortably aware of my body as he monologued. My stagnant, garlic-ridden breath. The cherry-red gingivitis crawling along my gumline. My ghoulish hunchback and my bulging pot belly. The sensation of my tired heart beating against my flimsy rib cage.
 
-Eventually, I spit out a response, but I did not get up, and I did not meet his gaze.
+Eventually, I spat out a response, but I did not get up, and I did not meet his gaze.
 
 *“Well…sir…I’m just here to get paid. And I apologize - I’m not used to the whole ‘dog and pony’ show. Usually, I just take the pills and report the side effects. But…I’m, I’m appreciative of…”*
 
