@@ -27,7 +27,7 @@ I talked similarly of children, too. I considered myself a proud anti-natalist o
 
 My friends poked fun at me for the apparent midlife crisis that had me in its midst. From their perspective, my personality had done a total 180 from the Jennifer they knew before. I’d gone from a miserable cynic with a biting sense of humor to a doting cat lover. I swear to God, if I was a proper old woman, I would have knitted Peter a sweater by then. He would have looked like a gentleman. 
 
-Last month was Peter’s adoption anniversary, so I jumped at the opportunity to invite two of my friends over for drinks. As much as they liked to taunt me for my lifestyle shift, they were also fond of my cat. They insisted on bringing toys, catnip and chin scratches along with their picks for our collaborative charcuterie board. It was nice to get together and gossip. It felt like we were in college again.
+Two months ago was Peter’s adoption anniversary, so I jumped at the opportunity to invite two of my friends over for drinks. As much as they liked to taunt me for my lifestyle shift, they were also fond of my cat. They insisted on bringing toys, catnip and chin scratches along with their picks for our collaborative charcuterie board. It was nice to get together and gossip. It felt like we were in college again.
 
 At some point we got to talking about our relationships. Emma sweetly talked at length about her long term boyfriend while Maggie occasionally made passing comments about her own husband. I sat there, nodding and absentmindedly petting Peter in my lap. After a while of talking, Emma and Maggie laughed quietly. 
 
