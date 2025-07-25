@@ -69,3 +69,5 @@ People were talking, not as secretive as before. Everyone was in a state of pani
 Their eyes were boring through us once they noticed us. Marc achieved his goal without even a scratch, but he didn't look satisfied. This wasn't supposed to happen this way, was it? By the time we returned to our room, Marleen had already heard what had happened. Everyone knew by then. I didn't know if I was supposed to feel pride or distress. All I knew was that that particular night seemed a little darker than the last.
 
 [Part 3](https://www.reddit.com/r/nosleep/s/xfHspnzyix)
+
+[Part 5](https://www.reddit.com/r/nosleep/s/kEJL4wB8Bg)
