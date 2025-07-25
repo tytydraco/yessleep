@@ -114,7 +114,7 @@ I think I forgot how to speak. I tried reciting the fifty states again but the w
 
 Day 28
 
-Frank spoke again. Whispered, really. Said he found the door. Said I had to be ready. I asked Linda what he meant and she just cried. First time I’ve seen her cry. I wanted to comfort her but she disappeared before I could. I don’t want the door. I just want sleep. Hopefully the door is just a this actual fucking door opening and them letting me the fuck out of here. Maybe that's why Linda cried, maybe she doesn't want me to leave yet.
+Frank spoke again. Whispered, really. Said he found the door. Said I had to be ready. I asked Linda what he meant and she just cried. First time I’ve seen her cry. I wanted to comfort her but she disappeared before I could. I don’t want the door. I just want sleep. Hopefully the door is just this actual fucking door opening and them letting me the fuck out of here. Maybe that's why Linda cried, maybe she doesn't want me to leave yet.
 
 Day 29
 
