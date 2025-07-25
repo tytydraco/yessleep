@@ -250,7 +250,7 @@ I perked my ears and waited. Nothing. Dead, oppressive silence. I couldn’t eve
 
 *When did it stop? Why didn’t I notice?*
 
-The sound of small galloping against wood erupted from the ceiling above me. Child-like laughter reverberated through the halls.
+The sound of small feet galloping against wood erupted from the ceiling above me. Child-like laughter reverberated through the halls.
 
 *“Alright, that’s it…”* I growled, climbing to my feet.
 
