@@ -46,7 +46,7 @@ At that point, I didn’t know if things were complicated because I didn’t wan
 
 With that, he gave me a tour of the warehouse. Row after row of Little Miracle chests, all wrapped in cellophane and ready to be shipped out.
 
-The Little Miracle chests are about 4 feet long, 3 feet wide, and has a rounded “treasure chest” kind of lid. The thing is made of some solid kind of wood and has these metal handles bolted to the side. It’s heavy; at least 30 pounds. On the side, you got all kinds of classic Americana printed. Boys and girls playing in the sun, a white church, green grass, a rainbow, happy couples leaning on one another. But also a few of adventurous motifs, like lions being ridden by young boys, or little girls feeding unicorns. It’s probably the most sugar-coated wholesome thing you’ll ever see, if you haven’t seen one already.
+The Little Miracle chests are about 4 feet long, 3 feet wide, and has a rounded “treasure chest” kind of lid. The thing is made of some solid kind of wood and has these metal handles bolted to the side. It’s heavy; at least 30 pounds. On the side, you got all kinds of classic Americana printed. Boys and girls playing in the sun, a white church, green grass, a rainbow, happy couples leaning on one another. But also a few of adventurous motifs, like lions being ridden by young boys, or little girls feeding unicorns with blue sunflower seeds. It’s probably the most sugar-coated wholesome thing you’ll ever see, if you haven’t seen one already.
 
 Before we could enter, Jonah gave me a tap on the back.
 
