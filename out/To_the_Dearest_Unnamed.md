@@ -1,0 +1,28 @@
+I cannot tell you who they are. I can’t say if they were friend or family, lover or stranger, child or adult, male or female--all I can say is that they meant a lot to me, and now, they’re gone.
+
+It was so instantaneous, yet all predictable at the same time. I knew they were going to leave, but I didn’t think it would be true. Somewhere, my heart still bleeds in their hands, but we are too far apart for it to beat. Yet, I still feel *their* heartbeat. As if they were just around the corner, but the second I turn, they’re gone. I get deja vu in every hallway, but where are they now? Gone, that’s all I know.
+
+I don’t know how to handle this grief. I keep thinking that if I just wait long enough, I’ll eventually stop thinking about it. That’s all people ever say nowadays: give it time! But I don’t know how much longer I can give it. My home feels so empty now without their voice. There was the white noise of their laughter, but now that it’s stopped, it’s deafeningly quiet. 
+
+Do you ever get that feeling, that feeling when your fan or computer shuts off and you didn’t realize it was making a noise until there is suddenly a space devoid of it? That’s how I feel now.
+
+My closest friends and my kindest family have suggested therapy. I was hesitant at first, but somehow, they’ve convinced me. After all, I cannot say there isn’t a part of me that wants to get better. I have gone through a few different services. Some specialize in behavioural therapy, cognitive therapy, trauma therapy, PTSD therapy, anxiety therapy, etc. I never really stuck to one place; being there always made me anxious because of how devoid they were of any stimuli. And they were cold, very cold, no matter where I went. It’s like their offices were trying to coax me away by freezing me to death, so I’d fold my arms around myself in a tight hug, just hoping to warm up. I never did.
+
+I think it’s just the style of the local businesses around here, at least that’s what I’ve summed it up to. Nowhere seems welcoming or warm, but maybe that’s because I haven’t felt that great for a while.
+
+However, I found another doctor I like and go to routinely. Her name is Dr. Waylm, and her office is a little warmer. The first time I met her, she offered me a drink and some candy from her teal clay bowl, which I took and ate happily. A few sips of water and some awkward shifting around her therapy couch (office couch? Whatever you want to call it), and I felt a little more relaxed. Maybe, because I had worn my cozy white sweater today, or because I sank nicely in the chair, or because of the complimentary sugar, I couldn’t tell you why I felt much better here than at other places. It just seemed to be the right day for help. 
+
+It took a few minutes of silence before she spoke to me. I can’t remember all she said, something about asking for my name and hobbies- the mundane small talk. Now that I felt safer, I took this moment to glance around her office. To my dismay, it was just as bleak as every other building in this town. Muted grays and pure whites, the only thing that brought some color to the room was her earthy colored outfit and the teal bowl of candy, which was now empty. I must’ve taken the last piece.
+
+It was after I introduced myself that she introduced herself. Her name is Dr. Waylm, and she likes cats. She has her little tabby cat named Fozzy. She asked if I had any pets, but I wasn’t sure how to reply. As a kid, I practically adopted any animal I found. The injured ones always held a special place in my heart, which is why when I saw this poor baby raccoon abandoned in a dumpster, I immediately took him in. I named him Scuff. He was still a wild animal, so when he was older, he lived strictly outside, but he was like a pet to me. No, more like a friend. Yeah, I like that better.
+
+For the rest of our first session, we went off on tangents about animals. Truthfully, I didn’t want her sympathetic *“how are you feeling”*s? So it was nice to have a normal conversation with another person. I feel like I haven’t talked in days. At least a week or so. Maybe a day, though I can’t remember. When our session was over, I went home and kind of did nothing. I just sat around. I wondered if this was the recovery I wanted. But I remembered that this is what they would’ve wanted for me. So, I scheduled another appointment. Since that day, she’s still my therapist.
+
+But the house is still empty, and I’m still alone. The only visitor I get is a songbird tending to her nest. I’m hoping she has some chicks so I can secretly supervise from my window. If a stray cat or some nefarious other creature starts to stalk her babies, I’ll be helping her swat them away! It’d be something to feel good about. But it’s not spring yet, so I’ll have to wait.
+
+I hope you join me in the spring, my dear. Wherever you are, please come home. I’ve got many new things to show you! I’ve built birdhouses, and mice huts, and feeders for all the animals we love. That one fawn we saw last fall, the one you named Rufus, well, he’s grown into a big, strong buck. I bet he misses you feeding him carrots and the bananas you decided you didn’t want anymore.
+
+When you get home, I’ll have the heater on if it’s winter and the A/C if it’s summer or a balance of them both if you’d like. If it rains, I bought some board games and some card games and if it snows, I have movies lined up. We can watch and rewatch whatever you’d like, darling. Just please don’t leave me alone. At least write a letter saying you’re safe and on your way back to me, okay? I miss you.
+
+I hope this update finds you well.
+
