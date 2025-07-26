@@ -44,7 +44,7 @@ As I prepared to launch myself back to Earth, I noticed something out of the cor
 
 I’ll call it what it was: a door. Not like the kind of door you can grab by the handle and physically open, but rather, an opening to a different place.
 
-In this case, it was a door to a different universe.
+In this case, it was a door leading out of the universe.
 
 I stared hesitantly at the doorway, uncertain of what lay beyond it.
 
@@ -64,7 +64,7 @@ I proceeded to phase through the entryway effortlessly, my ethereal body feeling
 
 Before I knew it, I was back in my bed, wide awake.
 
-“As strange as that all was, perhaps it was just an incredibly lucid dream,” I said to myself. That was more or less my view on the situation, until I took a closer look around my bedroom.
+“As strange as that all was, maybe it was just an incredibly lucid dream,” I said to myself. That was more or less my view on the situation, until I took a closer look around my bedroom.
 
 It was my bedroom… except, it wasn’t.
 
@@ -84,4 +84,4 @@ I’ve tried going back to sleep in hopes that I could somehow astral project ag
 
 I don’t have a Reddit account, but this me does. I’m using his account to upload my story in hopes that one of you will have some advice as to how I can get back home to my world.
 
-I’m open to anything.
+I’m open to any suggestions.
