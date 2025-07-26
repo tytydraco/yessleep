@@ -184,7 +184,7 @@ In the first one, I was sitting on a bench in an oddly shaped room, with pink-ti
 
 It wasn’t painful, nor did I experience fear. I observed the man burrow out of my innards and splatter at my feet with a passing curiosity: a TV show that I let hover on-screen only because there wasn’t something more interesting playing on the other channels.
 
-He was a strange creature, undeniably. Only two feet tall, naked as the day he was born, caked in viscera and convulsing on the salmon-colored floor with a pathetic intensity. Eventually, he ceased his squirming. He took a moment to catch his breath, sat up, and brushed the hair from his face.
+He was a strange creature: only two feet tall, naked as the day he was born, caked in viscera and convulsing on the salmon-colored floor with a pathetic intensity. Eventually, he ceased his squirming. He took a moment to catch his breath, sat up, and brushed the hair from his face.
 
 I was surprised to discover that he looked like me. Smaller, sure, but the resemblance was indisputable. He smiled at me, but he had no teeth to bare. Unadorned pink gums to match the pink walls. I smiled back to be polite. Then, he pointed up, calling attention to our shared container. 
 
