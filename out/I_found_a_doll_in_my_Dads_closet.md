@@ -41,3 +41,5 @@ He seemed genuinely surprised.
 When we got home, I immediately ran to my room and went to unscrew the vent. One of the screws was missing, so I undid the other side of the vent and grabbed the doll. I found the second screw stabbed in the top of the dolls head.
 
 (Part 1)
+
+Edit: Part 2 and 3 will be posted in r/creepcast!
