@@ -1,3 +1,5 @@
+(sup, caleb here. more posts on this link: [https://www.reddit.com/r/nosleep/comments/1ma6i9y/if\_you\_see\_a\_help\_wanted\_sign\_at\_old\_man\_thornes/](https://www.reddit.com/r/nosleep/comments/1ma6i9y/if_you_see_a_help_wanted_sign_at_old_man_thornes/) )
+
 *Part 1*
 
 Hi, my name is Caleb and I’m an addict. Not only a deadbeat drug addict that just came out of rehab, but also a convicted felon. After spending several years behind bars and immediately relapsing when released, I was admitted to rehab by my parents. Staying in the town where I grew up was not an option anymore. Everyone knew I had been imprisoned and labeled me as the dirty heroin junkie, so I decided to move as far away as I possibly could, somewhere no one would know me, to a town by the name of Whitersgate Falls.  
