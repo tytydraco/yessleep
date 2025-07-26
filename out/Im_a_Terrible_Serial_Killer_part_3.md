@@ -1,0 +1,41 @@
+[Previous story](https://www.reddit.com/r/nosleep/s/l1Ro8jSt2E)
+
+The world is full of people who complain, constantly attacking polite society with their weak excuses. They blame their problems on everything—drugs because their parents divorced, poverty because their grandma is still alive, or promiscuity because an uncle was obsessed with tickling. I honestly don’t understand how most of them can bear to look at themselves in the mirror. 
+
+When I reflect on my early life, I have profound respect for the people who shaped it. My mother was an incredible cook and always made sure I felt loved. My father was the best man I could imagine having in my corner. Every weekend throughout my childhood, they took me on outings—boating, golfing, fishing. It was a truly amazing experience. 
+
+I had an ideal childhood; my parents never flaunted their wealth, but they did very well for themselves. I never had to worry about much—cars, housing, and college were all paid for. I used to be disappointed by panhandlers who had their children on the corner, thinking how disgusting it was that they chose to have kids instead of addressing their financial situation. It made me sick that my parents would always stop to give their hard-earned money to people like that. I’ve since grown to understand this as a form of self-care, knowing you’ve helped a family more than they could help themselves. 
+
+Anyway, I kidnapped a group of Mexicans. These poor souls came to the land of opportunity to provide for their starving children, only to end up begging for work at the local hardware store. This was incredibly convenient for me, as I had a glorious artistic awakening while reflecting on my childhood’s follies. I planned to use my creativity to expose the true reality of the American plight. 
+
+I’m probably the only person brave enough to do what needs to be done. It was an added bonus that I needed a walk-in freezer installed, and their kind tends to offer the cheapest labor. My vision was to create a sculpture of three to four strong Hispanic men climbing a wall, only to find a cop kneeling on a Black person. Sure, it’s a bit on the nose, but the impact of this exhibit would spark ripples of dialogue throughout society. My infamy would elevate me to a level that legends like Rembrandt could only dream of. 
+
+I started by buying an old van from some hillbilly on Craigslist. I nearly killed him just for his deplorable appearance, but that would’ve left too much of a paper trail. He wouldn’t stop talking about the recent disappearance of his addict son. Honestly, I couldn’t care less about some lowlife’s kid, but it was still better than letting filthy people into my Escalade. 
+
+It took about a week to gather the materials for my sculpture, which felt like an eternity. The problem was that there were always too many white people in the work lines. It’s not that I’m racist; it’s just that white people climbing a wall didn’t fit the project’s integrity. Once I had my subjects, we headed to my Sistine Chapel. 
+
+Unlike the last person who rode with me to their final destination, they were quite talkative, but of course, they didn’t bother to learn the local language. It baffled me why anyone would go through so much trouble to live in a place where no one understands them. No problem, though—I got a copy of the freezer’s manual in Spanish. Upon arrival, I let them out of the van and said, “Este es el manualo de instructionso, por favor installo.” Most people wouldn’t have the decency to Google the phrase “this is the instruction manual, please install,” but I’ve always seen myself as one of the people—obviously better off than most, but still, we’re all just cosmic ants. 
+
+They called after about eight hours, which seemed like an outrageous amount of time for what should’ve been simple electrical work. Not that I cared—I wasn’t going to pay them anyway. In my artistic journey, this was the first and only time I felt like an assassin. I never left the property, knowing the sound of my vehicle on the gravel would draw them to the entrance like lemmings. I figured I’d have a better chance of completing my objective if I could take out at least one of them. 
+
+Luckily, the oldest smoked, and as any forward-thinking person might guess, smoking leads to health problems later in life. His smoking led to a knife in his carotid artery—quite poetic, in my opinion. I stormed into the building, eyes scanning for the other two, my gun ready. They were admiring their work on the walk-in freezer when I shot them—one died instantly, the other gurgling obscenities in his native tongue while I laid a tarp in my newly functional freezer. 
+
+It was a relief to hear myself think once I locked the freezer door. Can you believe that inconsiderate fool yelled and gurgled the entire time I loaded him and his friends into the freezer? Don’t they have mothers in Mexico to teach them manners?
+
+ With the necessary Mexicans secured, I moved on to planning how to obtain a police officer. Finding a Black person, I figured, would be easy—I’d just check the white pages of a neighboring city for Afro-centric names with the last name Washington. I decided to make it personal. James Dunham. That’s who I’d take. It was an eleven-hour drive, but worth it. 
+
+That arrogant excuse for a man had the audacity to write me a ticket four years ago for barely missing the time on a parking meter. Calling that effeminate man a cop was almost an insult to those who actually protect and serve, but that’s what made him perfect. Would anyone really miss a meter maid? 
+
+The morning after I arrived in the crime-ridden place he called home, I saw him making rounds on that ridiculous GO-4 Interceptor. I had doubted he’d still be in that role, hoping he’d at least moved up to a real police car, but no—my sweet, ignorant boy was as pathetic as ever. It was the most insufferably boring day of my life, watching this small, probably gay man write ticket after ticket. 
+
+It felt like an eternity. Finally, he ditched his toy vehicle for a car fit for a human. After that, it was simple—follow him home, a quick injection, and into the van he went. I thought finding a Black person would be straightforward, but at the first house, a white guy opened the door. I killed him out of spite—Demarcus Washington being white? That deserved a scalpel across the neck. His nosy wife came around the corner, so I shot her in the face. If she’d minded her business, she might’ve gotten an “I’m out getting cigarettes” text, but instead, she met her unfortunate end. 
+
+In the next town, I found the perfect Black man—or rather, I was just relieved to find a Black man after the night I’d had. And so the game began. 
+
+My plan was simple: once the sedative wore off after a couple of hours of driving, both men would wake—the officer first, then the Black man. Like two riled-up dogs in a cage, they’d tear at each other’s throats. By the time we reached my domain, they’d be tattered and scarred, perfect for my sculpture. 
+
+But those bastards became friends the moment they woke up. They found a sense of brotherhood almost instantly. It was infuriating. In what world does a cop wake up next to a Black man and not go berserk, or vice versa? Nothing made sense in this cruel world. 
+
+About three hours from my destination, I yelled into the back, “James, don’t you realize you’re sitting next to a Black man?” James responded, “Who are you? Why did you take me? What would make me want to kill a random man I’ve never met?” That wasn’t satisfactory, so I pulled over and shot them both in the back of the van. I deserved some peace and quiet. One minor sacrifice wouldn’t ruin my artistic vision. 
+
+What did ruin my sculpture was the smell when I got to the warehouse—the most putrid thing I’d ever encountered. I realized the freezer had failed. I rushed over to see the temperature above seventy-five degrees, opened it, and found three disgustingly bloated, melting corpses. Of course, I buried them all in an eight-foot hole filled with cement. This just goes to show—if you want electrical work done, hire an electrician, not random Mexicans.
