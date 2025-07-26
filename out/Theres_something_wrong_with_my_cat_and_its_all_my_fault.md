@@ -68,7 +68,6 @@ I laughed at myself and led people to laugh alongside me, but I seldom let anyon
 I took a sip of my wine and leaned back, glaring up at my ceiling light. 
 
 “A long time, I guess.” I finally responded.
-
 “Peter was what I would have named my baby if it was a boy.”
 
 My friends, one by one, wilted with hesitation. 
