@@ -32,13 +32,13 @@ I kicked off the covers, sat up — and nearly screamed.
 
 The skin on my forearm was peeling back.
 
-Not cut or damaged. 
+Not cut or damaged.
 
-Peeling. 
+Peeling.
 
 Clean and smooth, in a neat little curl, just like the top of a banana when you pinch it.
 
-There was no blood. No pain. Just this soft, fleshy yellow stuff underneath. Not muscle. Not fat. 
+There was no blood. No pain. Just this soft, fleshy yellow stuff underneath. Not muscle. Not fat.
 
 Something... softer.
 
@@ -50,7 +50,7 @@ I told myself it was a dream.
 
 A really, really bad dream.
 
-But just to be sure, I went back to the fruit stand. Back to that crooked alley near the station. I hadn’t been there before the banana — I swear I hadn’t. I don’t even remember deciding to walk down it.
+But just to be sure, I went back to the fruit stand. 
 
 Now? It looked completely ordinary.
 
@@ -82,7 +82,7 @@ My toes were splitting.
 
 The skin had unzipped down the middle, curling outward like petals, revealing more of that soft yellow pulp underneath. No pain. Just... warmth. A strange, syrupy warmth, like whatever was under there wanted out.
 
-I panicked. 
+I panicked.
 
 Kept trying to wake myself from this certain dream. But I couldn’t.
 
@@ -102,7 +102,7 @@ The fourth night, I woke drenched in sweat. My chest and neck peeled in long, ra
 
 I felt sick, weak, and every morning brought a new layer of slime and decay.
 
-I finally cracked and got help. But the doctors were useless. No infection. No rash. Just... skin that had become sensitive. That and an overractive imagination. 
+I finally cracked and got help. But the doctors were useless. No infection. No rash. Just... skin that had become sensitive. That and an overractive imagination.
 
 But I knew there was more going on.
 
