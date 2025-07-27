@@ -385,4 +385,4 @@ I nodded.
 
 \- - - - - 
 
-[Satisfactory, Mr. Walker?](https://www.reddit.com/r/unalloyedsainttrina/)
+[Satisfactory, Mr. Walker?](https://www.reddit.com/r/unalloyedsainttrina/s/W11yxOk5Cp)
