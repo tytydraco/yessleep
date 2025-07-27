@@ -1,0 +1,17 @@
+I ain't much for writing but I figured before I'd done anything too stupid, I oughta tell someone what lead me to done it in the first place. 
+
+My names Jim Hetfield and in the year of our lord 1995, I saw what only coulda been Bigfoot. One hot day me and Axe figured we'd go trekking along the old dried up creek bed up there on Ol Lady G's property. Now everybody knows that old coot don't like nobody goin up on her land for nothin but Axe and I being bored as bankers said to hell with it and chose to risk it. 
+
+We'd prolly only been walkin round for bout an hour or so before I realized just how quiet it was. I mean there weren't no birds chirping or bugs buzzing which for the middle of summer is pretty damn strange. Only thing heard was me and Axe's footsteps, whole damn woods were as silent as a church on Tuesday. I tried joking to Axe on how we'd prolly be able to hear a squirrel fart a mile away but when I ain't heard nothin from him I noticed how uneasy I was. 
+
+Lookin back at him, turns out he was so quiet cause he was right in the middle of the second most intense staring contest of his life. I tracked his eyes bout 50 feet up the ridge to our right and just barley peekin over the ridge line, was the biggest pair of brown eyes I'd ever saw. Only one thing livin in those woods that big but I knew there ain't no way it was a grizzly. From what little of the head I saw it looked more like a gorilla but more human. Axe barked out some fierce warnins but if I could hear the fear in 'em, I know that thing could too. 
+
+For a second we actually thought that maybe the bastard got the message cause he ducked out of there faster then a French man runs from a fight but ain't 2 seconds later he popped up again. This time though he weren't just peekin over, I saw now clear as day that standin up on that ridge was unmistakably the legendary creature Bigfoot. 
+
+Now don't get me wrong I ain't no pussy or nothin but when that fellar gave us a warnin of his own I damn near passed out from fear. I ain't even had the time to soil myself before I'd seen Axe took off haulin ass back way we came and I figured it a pretty good idea to join him. Me and him tore through 'em woods like drunk loggers, trippin over every rock and tree branch long the way. 
+
+At some point Bigfoot must of started chasin us cause the whole time were runnin, from right behind we'd hear low deep grunts and could smell the strongest sent of rotting garbage. When I finally made it to that woods edge and broke through 'em trees I felt relief like no other but I still ain't stop runnin. Seems like Bigfoot don't like goin pass the tree line cause he stopped his chase right there but not before he let out the longest, loudest whistle as a sorta finale warnin I guess. 
+
+For years after the run in Me and Axe could hear knocks and bumps on our house every damn night, guess he don't have any trouble leaving the woods at night. The noises stopped round the same time Axe had died. I'd let him outside one day to use the bathroom but he just never ended up comin back. I say died and not missin cause I went lookin for him that same day and ended up findin him curled up at the base of a pine. Weren't no cuts or scratches on him, just a broken neck. I know Bigfoots the one that killed my dog and I'll be damned if I ain't gonna return the favor. 
+
+If I survive I'll let y'all know but if I don't, please bury me next to my best friend.  
