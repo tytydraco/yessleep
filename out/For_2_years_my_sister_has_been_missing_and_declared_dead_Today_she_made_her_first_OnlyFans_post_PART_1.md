@@ -149,3 +149,5 @@ That night, I only slept due to the wringer the day had drained me through. The 
 I didn’t want my computer, I didn’t want my phone— they call it the worldwide web, not because it's connected, but because it's full of venomous spiders, especially ones with microphones that label themselves “journalists.” For hours, I stared till my eyes dried and grew bloodshot like crimson lightning.
 
 When my phone vibrated next to me, I nearly screeched from fear. Y’know, when you typically assume the worst, but this time the outcome actually was the worst? This was one of those moments.
+
+[PART 2](https://www.reddit.com/r/nosleep/s/SwTtmL0uEF)
