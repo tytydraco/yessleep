@@ -90,7 +90,7 @@ He reeled me into his chest, slow and steady like a fishing line, and once I was
 
 *“From there, it was simple - City Hall lent us some blueprints, we found a suitable location, called in a few favors from Hollywood set designers, a few more favors from some local architects…but I’m sure you’re not interested in the nitty-gritty. You said it yourself - you’re here to get paid!”*
 
-My shaky feet stepped from the road to the sidewalk. Even though it was the afternoon, it was the middle of the night in the warehouse. The streetlights were on. There were no stars in the sky. Or rather, there none attached to the ceiling. How far back did the road go? How many houses had they built? I couldn't tell. 
+My shaky feet stepped from the road to the sidewalk. Even though it was the afternoon, it was the middle of the night in the warehouse. The streetlights were on. There were no stars in the sky. Or rather, there were none attached to the ceiling. How far back did the road go? How many houses had they built? I couldn't tell. 
 
 Every single detail was *close* to perfect - 0.001% off from a truly identical facsimile. It doesn't sound like a lot, but that iota of dissonance might as well have been a hot needle in my eye. The tiny grain of friction between my memories and what they had created was unbearable.
 
