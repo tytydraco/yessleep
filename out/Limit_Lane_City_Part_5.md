@@ -103,3 +103,5 @@ He smiled proudly. Maybe his plan wasn't so bad after all. The plant had many br
 "I actually planted corn."
 
 [Part 4](https://www.reddit.com/r/nosleep/s/ukfLcXevfg)
+
+[Part 6](https://www.reddit.com/r/nosleep/s/JfLVXy5Qln)
