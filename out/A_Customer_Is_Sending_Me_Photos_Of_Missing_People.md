@@ -15,15 +15,16 @@ I figured it must've been for a community-related project, like some college kid
 
 The sketched ones irked me a little. But as long as this person paid me, I didn't see any real issue.
 
-I emailed them back, "Good afternoon! Shouldn't be an issue. An estimate of one copy with shipping will cost approximately $28.42. Here's a link to where you can send your payment."
+I emailed them back, "Good morning! Shouldn't be an issue. An estimate of one copy with shipping will cost approximately $28.42. Here's a link to where you can send your payment."
 
-Immediately, I got an alert on my phone for one payment of $28.42. So, I printed off the book and got it all ready, then a USPS worker came and picked it up along with the other packages that UPS didn't pick up.
+Immediately, I got an alert on my phone for one payment of $28.42. So, I printed off the book and got it all ready, then a USPS worker came to pick it up along with the other packages that UPS didn't take.
 
 Done, and done.
 
-The next morning, I woke up bright and early to find my wife sitting in the living room and drinking her morning coffee. She was looking at her phone while the news played on the TV.
+The next morning, I woke up bright and early to find my wife sitting in the living room and drinking her coffee. She was looking at her phone while the news played on the TV.
 
 "Authorities are still struggling to locate 27-year-old Sarah Mitchell, who was last seen leaving her apartment on Upper Glenway two weeks ago. She's described as 5'6, with brown hair and green eyes. Anybody with information is urged to contact the local police department immediately. Family and friends are deeply concerned for her safety and are praying that she comes back home soon. Here's a photo of the missing person," said the news anchor.
+
 I looked over at the TV and saw her face. She looked familiar.
 
 It took me a minute to realize I had seen her before. I saw her in the file that the unknown email sent me yesterday.
@@ -36,27 +37,39 @@ Doing reverse image searches on some others revealed something cryptic to me. Th
 
 Haunting portraits of these lost individuals illuminated my screen. Some of these were Jane or John Does; they were never identified.
 
-Whoever was on the other end of this email was using these pictures for something. Whatever that was, it was beyond me.
+Some had disappeared years ago, but what really got under my skin was that some of these people went missing more recently. Like a week or less.
 
-Were they somehow connected to the missing persons? I took everything I had to the police right away.
+Whoever was on the other side of this email was using these pictures for something. Whatever that was, it was beyond me.
 
-An officer said he looked into the email, but it was untraceable, and the address I sent the package to was a house with no residents.
+Were they somehow connected to these missing persons? I took everything I had to the police right away.
 
-I asked if there was anything else they could do, but he told me they couldn't do anything since no crime had been committed.
+An officer called me back, saying he looked into the email, but it was untraceable. The address I sent the package to was a house with no residents.
 
-A week or so went by when I received another email from them.
+It had been abandoned for years.
+
+I asked if there was anything else they could do, but he told me they couldn't really do anything since no crime had actually been committed.
+
+A week went by before I received another email from them, much to my disdain.
 
 "I need another book. Same deal as before, but this time put 'Volume 2' instead. Only one copy is needed. Payment has been sent," they said.
 
-Before I responded to this, I looked at the zip file attached. One of the pictures was of my wife.
+Now that I knew what this was, there was no way I was going to give them what they wanted. Honestly, I wanted nothing to do with it.
+
+Before I responded to this email, I looked at the zip file that was attached. One of the pictures was of my wife.
+
+She looked emotionless and cold.
 
 I panicked and pulled my phone out to call her, but she didn't pick up. I called so many times, but still no response.
 
 I sped home, but couldn't find her anywhere when I got home. Her car was still here, and her phone, purse, and keys were on the living room table.
 
+Dialing 911, I drove all around town to search for her. I must've asked everybody around town if they saw her. 
+
+But she vanished...
+
 It's been weeks, and I haven't heard anything regarding my wife. The police have been no help; they keep telling me there are no leads and they can do nothing.
 
-I reached out to the mysterious email and pleaded with them. I said I would even pay money if that's what they wanted.
+I reached out to the mysterious email and pleaded with them. In a desperate attempt, I begged and said I would even pay money if that's what they wanted.
 
 The only response I got was another request for a book. When I opened the attachment this time, I saw a police sketch among the other missing people.
-It was a John Doe sketch of me
+It was a John Doe sketch of me.
