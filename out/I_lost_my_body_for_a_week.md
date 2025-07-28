@@ -74,8 +74,6 @@ I can’t tell you exactly what it did to Rick, there was no way I could have se
 After the light finally disappeared I didn’t move. I sat, rocking back and fourth with my
 knees pulled to my chest and my eyes pressed into them, for what felt like hours. I sobbed, and then I’d sit in silence, just to break down into the same animalistic cries again. Why no neighbors called 911 I’m not sure. Maybe we had all been secretly hoping for this, begging for someone to finally take the revenge that we prayed for in church every Sunday but unwilling to be the instrument that carried it out.
 
-Slowly the events put themselves together, my mind gathered the stories that had been told about the man across the room for me. I processed the girl I had seen, the pendant with that small engraving. The conclusion I came to is that the girl I found must have been more than his usual victim. The pendant suggested that they may have had a relationship, one that she must have tried to escape. And she paid the price for her attempt to return to a normal youth. 
-
 When I finally allowed my eyes to see the light, when I blinked away the blood that clouded them and they adjusted to the scene before me, I did not hold back the bile that rose in my throat. 
 
 Rick was in a state I cannot fully describe. I don’t know if I would even had I been given the words to relay the scene that lies in front of me. 
