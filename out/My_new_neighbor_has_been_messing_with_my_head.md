@@ -98,7 +98,7 @@ I fought my way through the day. I told myself I wasn’t going to answer the do
 
 
 
- I drove home and parked. I wasn’t two steps out of my car before he approached me.
+I drove home. I wasn’t two steps out of my car when he approached me.
 
 
 
@@ -114,7 +114,7 @@ I was a toddler on a swingset. I was smiling and laughing. Behind me, the tall m
 
 
 
-Then it was my birthday. I watched as Mikey lit my candles, he sparked the lighter with his grey hands, his yellow nails longer than his fingers.
+Then it was my birthday. I watched as Mikey lit my candles; he sparked the lighter with his grey hands, his yellow nails longer than his fingers.
 
 
 
