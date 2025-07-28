@@ -1,4 +1,4 @@
-[Part 4](https://www.reddit.com/r/nosleep/comments/1lq6n06/bloody_numbers_have_been_appearing_on_my_hand_i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 4](https://www.reddit.com/r/nosleep/comments/1lq6n06/bloody_numbers_have_been_appearing_on_my_hand_i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 6](https://www.reddit.com/r/nosleep/comments/1mb76f4/bloody_numbers_have_been_appearing_on_my_hand_i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I was wandering in a dazed state down a sidewalk. I had no idea where to go, where Cassandra was, or what the strange organization that had taken her was either.
 
