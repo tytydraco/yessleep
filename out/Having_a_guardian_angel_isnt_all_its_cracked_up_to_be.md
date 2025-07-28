@@ -50,11 +50,11 @@ During these few happy years of my life, only one event shook me. Once, in senio
 
 But of course, it couldn’t. Nothing lasts forever. Or, at least, almost nothing.
 
+But hey, at least I got my degree. Not too many kids from the foster system get to say that. And I even met Gracey along the way. Every time I could feel the depression or the fear creeping in, she was like the shot in the arm that got me going again. For the first time in my life, I was well and truly in love.
 
+The other shoe dropped on what had, at first, seemed an ordinary day. Couldn’t have been more perfect, really, that beautiful blue sky over the humble little home we had together in the Sisquehanna Valley. It all started with such a simple thing. I’d come downstairs in the morning to find her looking groggy as she watched the birds out the back window, so I saw fit to wake her up with a surprise visit from the tickle monster. I might have been a little too sneaky. She was so startled she just about bowled me right over, and I busted my eyebrow open on the edge of the dining room table. No big deal. We patched it up, and forgot about it pretty much immediately.
 
-
-
-The other shoe dropped on what had, at first, seemed an ordinary day. I was sat on my favorite bench, overlooking a cliff on the edge of time with a beautiful view of the sea, while chatting with Gracey over the phone. We were rambling on about something unimportant, I think it was Penn State winning some big game, when all of a sudden, she let out this little yelp. “Christ!” There was a silence for a moment, and then I chimed in asking her what was wrong. “Nothing. It’s nothing. You know, um, the light in the backyard? It just turned on all of a sudden. It startled me, that’s all.”
+Later that night, after work, I was sat on my favorite bench at Pinnacle Overlook, on the edge of a cliff with a gorgeous view of the lake below, while chatting with Gracey over the phone. We were rambling on about something unimportant, I think it was Penn State winning some big game, when all of a sudden, she let out this little yelp. “Christ!” There was a silence for a moment, and then I chimed in asking her what was wrong. “Nothing. It’s nothing. You know, um, the light in the backyard? It just turned on all of a sudden. It startled me, that’s all.”
 
 I groaned. The light was motion activated, so I already knew what it probably meant. “Oh, God. It’s probably the damn raccoons trying to get into our garbage again,” I said. “You remember the mess they made last time. Can’t you scare them off?”
 
