@@ -29,7 +29,7 @@ I looked over at the TV and saw her face. She looked familiar.
 
 It took me a minute to realize I had seen her before. I saw her in the file that the unknown email sent me yesterday.
 
-Why would this person send me a photo of a missing person?
+Why would they send me a photo of a missing person?
 
 I got to work after that, and out of curiosity, I pulled that file up again. Looking through, I stumbled on Sarah's photo again.
 
@@ -61,7 +61,7 @@ She looked emotionless and cold.
 
 I panicked and pulled my phone out to call her, but she didn't pick up. I called so many times, but still no response.
 
-I sped home, but couldn't find her anywhere when I got home. Her car was still here, and her phone, purse, and keys were on the living room table.
+I sped home, but couldn't find her anywhere when I got there. Her car was still here, and her phone, purse, and keys were on the living room table.
 
 Dialing 911, I drove all around town to search for her. I must've asked everybody around town if they saw her. 
 
@@ -72,4 +72,7 @@ It's been weeks, and I haven't heard anything regarding my wife. The police have
 I reached out to the mysterious email and pleaded with them. In a desperate attempt, I begged and said I would even pay money if that's what they wanted.
 
 The only response I got was another request for a book. When I opened the attachment this time, I saw a police sketch among the other missing people.
+
+I couldn't quite make the details out at first, but then I was sure of who it resembled.
+
 It was a John Doe sketch of me.
