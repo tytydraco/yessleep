@@ -39,7 +39,7 @@ Haunting portraits of these lost individuals illuminated my screen. Some of thes
 
 Some had disappeared years ago, but what really got under my skin was that some of these people went missing more recently. Like a week or less.
 
-Whoever was on the other side of this email was using these pictures for something. Whatever that was, it was beyond me.
+Whoever was on the other side of this email is using these pictures for something. Whatever that was, it was beyond me.
 
 Were they somehow connected to these missing persons? I took everything I had to the police right away.
 
