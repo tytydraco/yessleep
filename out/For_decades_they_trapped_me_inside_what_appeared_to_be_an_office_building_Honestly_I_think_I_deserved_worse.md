@@ -286,7 +286,7 @@ I raced across the rug to the opposite side of the room. My hand shot out to gra
 
 I didn’t listen. My palm folded around the knob.
 
-A searing agony erupted across my hand.
+Searing agony erupted across my hand.
 
 The smell of burning skin permeated the room. I screamed and tried to pull it away. Strips of charcoaled flesh remained glued to the metal. Tatters of what used to be my palm elongated like melted cheese as I continued to pull back until they snapped. For a second, I nearly smiled. Pain, true physical pain, had become a precious novelty after my years in the labyrinth.
 

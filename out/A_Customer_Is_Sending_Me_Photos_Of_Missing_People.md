@@ -4,7 +4,7 @@ Most of the orders I receive from people are online, usually including wedding i
 
 Last Monday, I came into work and started by looking at my backlog of customer emails. The first one I saw when I booted up my computer was from an ID named facelisting@finalproofs.co.
 
-The email read, "I need these images printed at 11x14 on matte paper (200 gsm). Each page needs to have a half-inch white border around the photo. Then, I need you to bind them with coils into a book. I want a front page for this book with a title in the center that reads, in cursive, 'Faces in Passing: Volume 1'. Let me know how much I owe you for one copy. Accuracy is critical."
+The email read, "I need these images printed at 11x14 on matte paper (200 gsm). Each page needs to have a half-inch white border around the photo. One-sided. Then, I need you to bind them with coils into a book. I want a front page for this book with a title in the center that reads, in cursive, 'Faces in Passing: Volume 1'. Let me know how much I owe you for one copy. Accuracy is critical."
 
 Very specific. This person knew what they wanted.
 Attached to the email was a zip file with about thirty pictures, each photo of a different person. None of them particularly resembled fashion models; they looked like ordinary people.
