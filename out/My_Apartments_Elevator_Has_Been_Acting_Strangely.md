@@ -44,8 +44,6 @@ And I realized, with a sinking horror, that I no longer had the tiniest bit of c
 
 The elevator was taking me somewhere else.
 
-
-
 The elevator slowed, then stopped.
 
 No ding. No announcement. Just a soft metallic breath, like something exhaling through the cracks in reality. The doors parted.
@@ -54,7 +52,7 @@ Beyond them wasn’t a lobby.
 
 It was a wasteland.
 
-The air glistened with a sickly haze that bent light in unnatural ways, warping the horizon like a wave. A scorched sky hung overhead, low and oppressive, painted in shades of nuclear dusk—deep amber bleeding into toxic moss. The ground was fractured, veined with glowing fissures that pulsed rhythmically, like the earth itself living. I had to make a decision. After what felt like an eternity, I stepped out, against every instinct I had.
+The air glistened with a sickly haze that bent light in unnatural ways, warping the horizon like a wave. A scorched sky hung overhead, low and oppressive, painted in shades of nuclear dusk—deep amber bleeding into toxic moss. The ground was fractured, veined with glowing fissures that pulsed rhythmically, like the earth itself was living. I had to make a decision. After what felt like an eternity, I stepped out, against every instinct I had.
 
 The elevator didn’t wait. It closed behind me and vanished. Like it had never been there at all.
 
@@ -87,8 +85,6 @@ I ran.
 Every step felt like it weighed a hundred pounds. The air tasted metallic. The land shifted beneath me, like it was trying to make me trip. But I reached the elevator. It was just standing there. No walls. No enclosure. Just the doors and the panel.
 
 It opened before I pressed anything. I stepped inside. No hesitation. The doors closed. It began to descend.
-
-
 
 Nothing had changed, but everything felt different.
 
@@ -160,8 +156,6 @@ The elevator was mine again.
 
 But emptier. Somehow.
 
-
-
 During the descent, I reached into my pocket without thinking. And it was there. My phone.
 
 I don’t remember getting it back. Not after what happened. Not after what should’ve happened. I don’t remember feeling it. I didn’t hear it vibrate. But it’s here now. Warm. Flickering. Like it never left.
@@ -171,4 +165,3 @@ So I’m typing this now. From inside the elevator.
 It’s still going down. This time feels longer than the last. The lights overhead still pulse with their slow, rhythmic hum. The walls don’t look the same anymore.
 
 I don’t know where I’m going. But I know I’ll be there soon.
-
