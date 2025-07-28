@@ -1,4 +1,4 @@
-I own and operate my own 
+I own and operate my own print shop.
 
 Most of the orders I receive from people are online, usually including wedding invitations, custom stickers, awkward school photos, and designed posters we ship off once they're printed and packaged up. Admittedly, owning a print shop isn't the most exciting career in the world, but it puts food on the table for me and my family.
 
