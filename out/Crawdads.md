@@ -144,4 +144,4 @@ Ryder’s grin widened, and he backed away from the window before vanishing arou
 
 \*\*\*
 
-End of Part One//Didn't realize these things had a character limit, but I'll make a second post with the rest of that transcribed story soon.
+End of Part One//Didn't realize these things had a character limit, but I'll make a second post with the rest of that transcribed story soon.[Pt.2](https://www.reddit.com/r/nosleep/comments/1mb0pe0/crawdads_pt_2/)

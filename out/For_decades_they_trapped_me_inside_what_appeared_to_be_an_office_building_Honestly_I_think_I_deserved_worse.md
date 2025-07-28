@@ -1,4 +1,5 @@
 **NSFW:** One brief, fantastical depiction of self-harm. Additionally, horror relating to the harming of a child.
+
 \- - - - 
 
 *“For the love of God, man, can we get this show on the road already?”* I grumbled, pacing restlessly around the cramped office.
@@ -17,7 +18,7 @@ He chuckled at the sight. I shoved my hand up to his face. That made him laugh e
 
 *“What the hell is on my hand?”* I barked.
 
-*“No idea!”* He replied. The chuckling transitioned to full-on cackling. His cheeks became flushed from the elation, his breathing strained.
+*“No idea!”* He replied. The chuckle transitioned to full-on cackling. His cheeks became flushed from the elation, his breathing strained.
 
 I began pulling my hand away, but he yanked my palm back to his face with enough force that I needed to anchor my other hand onto the desk to avoid toppling over.
 
@@ -323,7 +324,7 @@ Quickly, I grabbed a pill bottle from my pocket, poured a few tablets onto the c
 
 A minute later, I paced into the kitchen with a young woman in tow. I was rushing around and giving her directions.
 
-*“FYI - Owen has an ear infection. I’ll make sure he gets his juice before I head out. It’s got cold-and-flu medicine in it, so don’t be surprised if he’s out like a light. There’s money for pizza in the foyer. I should be back by eleven. Oh, also, Meghan - I know you smoke. I’m not going to narc on you to your parents, but if you need to take a drag, please do it outside. Away from the house but not too far either. Got it?”*
+*“FYI - Owen has an ear infection. I’ll make sure he gets his juice before I leave. It’s got cold-and-flu medicine in it, so don’t be surprised if he’s out like a light. There’s money for pizza in the foyer. I should be back by eleven. Oh, also, Meghan - I know you smoke. I’m not going to narc on you to your parents, but if you need to take a drag, please do it outside. Away from the house but not too far either. Got it?”*
 
 I blinked. When my eyes opened, the scene had changed. The room had changed, too. Now, there was the side of my secluded farmhouse in the dead of night through the window, and I was looking at it from a first-person point of view. I knew that point of view was my own.
 
@@ -333,7 +334,7 @@ I lit a cigarette, but I didn’t smoke it.
 
 My hands weren’t shaking anymore.
 
-I dropped the ember onto the diesel, turned around, I walked away.
+I dropped the ember onto the diesel, turned around, and I walked away.
 
 *“God, Owen, I…I’m so sorry...I…I just…I just wasn’t strong enough to choose you…”* I whispered, but not in the memory that was replaying through the window.
 
