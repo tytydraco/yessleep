@@ -1,0 +1,39 @@
+It started as one of those perfect summer afternoons, the kind you remember years later, framed by the sound of birds chirping, children laughing in the distance, and the smell of fresh-cut grass. A perfect day at the park. Oliver bounced at my feet, eyes bright, tail wagging with anticipation.
+
+“Ready, Ollie?” His entire body quivered, eager for the chase. Ever the obsessive ball-chaser, Oliver was already off at a sprint before my arm fully cocked back. “Go get it! Fetch!”
+
+The tennis ball arced gracefully, soaring through warm air. It hit the ground, bounced once, twice—and then took an odd hop off a jagged rock by the park’s edge, disappearing into a puddle pooling at the base of the hill. My heart dropped. Even from far away I could tell that something about the water was... off. The puddle had an unsettling antifreeze-green glow. It was runoff from the old water treatment facility nearby.
+
+“Oliver, no! Stay! Leave it!” my voice echoed uselessly. My commands were quick, but Oliver’s instincts were quicker. It was too late. He lunged, grasping the soggy tennis ball in his mouth, returning proudly with his prize dripping in unnatural green.
+
+Panic clawed at my chest. *It's not antifreeze, right? I know they say antifreeze has a sweet taste, but it couldn't be.* I wrestled the ball away, ignoring his confused whines, and ran to a nearby water fountain where I flushed his mouth repeatedly , whispering soothing words more for myself than him. *What if he’d swallowed it? Was it toxic?* Eventually, satisfied he was safe, we headed home.
+
+After hours of anxious obsessive observation, Oliver seemed fine, his exuberant self. I hesitated to throw the ball out; it was his favorite, after all, and besides, after rinsing, it seemed to have a stuborn residue that wouldn't come off. The color seemed fine, it smelled okay, it looked harmless enough. I was sure that if I let it dry overnight, the ball would be safe and back to normal. If not, I could always buy him a new one. Later, I tossed it absent-mindedly into his basket of toys, dismissing the lingering unease. It was just water, right? Harmless, surely.
+
+Yet, long past midnight, I awoke suddenly, awakened by the sound of my dog. Oliver growled softly, body rigid as he stared at the shadowed corner of the room. Darkness yielded nothing but the ticking of the clock on my wall at first, then silence gave way. I heard it: a faint, wet squelch. My blood froze. I flipped on the lamp and rubbed my eyes to help them adjust to the light.
+
+There was the ball, glistening oddly at the edge of the carpet. I watched, horrified, as it rolled slowly toward us as if compelled by some unseen force, or worse, on its own. It slowed and stopped inches from Oliver’s trembling paws. My breath caught as the ball's seam slowly split apart, revealing sharp, glistening teeth. A low, menacing hiss filled the silence. Oliver whimpered softly, retreating into my protective embrace.
+
+The ball had changed. Whatever toxic nightmare lurked in that green puddle had infected Oliver’s favorite toy. Now it was hungry, and it was in our home. For a breathless moment, everything froze, the silence heavy, charged with menace. The ball hissed louder, the gaping maw widening slowly, unnatural neon green saliva  dripping onto the carpet. It rolled back ever-so slightly as if preparing to lunge.
+
+Oliver trembled in my arms, his tiny heartbeat hammering frantically against my chest. Instinct surged through me, primal and fierce. I needed to protect him. Without breaking eye contact with the grotesque thing before us, I stretched out one hand, fingers blindly searching until they wrapped around the solid handle of the baseball bat leaning against my nightstand. My pulse pounded in my ears as I swung with all my strength. The bat connected solidly, a satisfying crack echoing through the room as the ball flew across the room, slamming into the far wall with a wet, disturbing smack.
+
+For a brief second, relief flooded me. I forgot something critical: tennisballs don't behave like baseballs. Tennisballs bounce. But before I could even lower the bat, the ball rebounded, faster than seemed possible. It hurtled across the room like a bullet, mouth wide, fangs glinting in the lamp's glow. Pain exploded through my leg as it sank razor-sharp teeth into my calf, biting down relentlessly.
+
+I shouted, toppling backward onto the floor as I dropped Oliver next to me before desperately swinging the bat again. I screamed out in pain as my first swing missed and cracked my shin. The second and third swings hit the mark. But the ball held on, jaws locked around my flesh, digging deeper with every frantic heartbeat. Warm blood pooled beneath me as a nauseating sensation of burning and numbness began to radiate outward from the bite.
+
+Oliver barked wildly, circling helplessly around me, unsure how to protect me from his beloved toy turned monstrous attacker. He jumped forward as if to try to grab the ball, but backed away every time I swung the bat and the ball snarled. Gritting my teeth through the pain, I slammed the bat down repeatedly, adrenaline surging, panic fueling every blow. Finally, mercifully, the ball released its grip with an angry hiss and rolled backward, coming to rest a few feet away.
+
+Breathing heavily, I propped myself up on trembling arms. The wound on my leg pulsed angrily, oozing blood tinged with a sickly green. As I stared at the sinister ball, now coated in my own blood, realization washed over me with chilling clarity: whatever it had become, this thing was no longer a toy. It was a predator, and Oliver and I were its prey.
+
+I dragged myself backward, heart thundering, leaving a smeared trail of greenish blood on the carpet. The wound burned and throbbed, each pulse sending tendrils of agony deeper into my leg. My vision blurred momentarily, shadows around the room wavering with unnatural fluidity. Oliver's anxious barks pulled me back to reality. I glanced at him, noticing the fear in his eyes and the way he stood protectively between me and the monstrous thing lurking just feet away. But strangely, the ball had grown still, its sharp teeth slowly retreating behind the seam, once again resembling nothing more than a harmless toy, coated in my blood.
+
+A wave of dizziness washed over me. Sweat dripped from my brow, burning my eyes. I reached down to inspect the wound and nearly vomited at the sight. The bite marks were darkening, veiny lines of glowing green spider-webbing outward beneath my skin. Something was inside me now, spreading.
+
+Oliver whimpered softly, nudging my arm with his wet nose. "It's okay, buddy," I whispered, trying to keep my voice steady, to reassure us both. But my thoughts felt increasingly scattered, fragmented, as if something were gently tugging at the corners of my mind, unraveling my sanity thread by thread. Suddenly, a high-pitched ringing filled my ears, rising in intensity until I clutched my head in agony. The room spun violently, colors and shadows bleeding together. A low, guttural whisper crept into my consciousness, cold and unfamiliar, yet somehow coming from within:
+
+*"Fetch…"*
+
+I shook my head violently, resisting the invasive voice, struggling to reclaim control. Panic flooded me.  With a trembling hand, I reached for my phone to call for help, but my fingers felt numb, uncooperative. My vision darkened around the edges. I slumped to the floor, breathing shallow and ragged. Just as consciousness began slipping away, I saw it: the tennis ball slowly rolling forward again, a low rumble emanating from within. But now, I didn't feel fear.
+
+I felt… hunger.
