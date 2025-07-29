@@ -1,3 +1,5 @@
+Part one link: https://www.reddit.com/r/nosleep/s/x6NkNdHJQC
+
 Updated Entry – Posted July 21, 2025
 
 It’s been a while since I last updated this.

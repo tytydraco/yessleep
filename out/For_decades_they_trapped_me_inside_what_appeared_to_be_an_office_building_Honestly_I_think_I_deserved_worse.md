@@ -182,7 +182,7 @@ In the room where I finally stopped to catch my breath, a hundred or so abstract
 
 I slumped to the floor, defeated, weeping as I leaned my broken body against the wall. At first, I collapsed in the area furthest from the man and his infestation. After a moment, though, I realized that put me only a few feet away from the shuttered window.
 
-In comparison, it was were worse.
+In comparison, it was worse.
 
 I scrambled across the room on all fours, squashing several insects in my wake. When I got as far as I could away from the window, I shifted myself towards the wall, and I laid down. Eventually, the tears stopped flowing. I closed my eyes, and I waited for sleep to take me away.
 
