@@ -1,0 +1,15 @@
+I moved into my friend’s spare bedroom in her nyc apartment with my boyfriend in June of this year. After spending some time in the apartment I quickly noticed I never get that occasional “tingly feeling” like I’m being watched, followed around, or anything like that. My boyfriend felt the same way. I mean at least from my experience, every house I’ve lived in to this point in my life has had at least some moments of the day/ week where I feel like that.
+
+Well about a week ago my Roomate left for vacation and I started noticing those sorts of feelings at various points of the day. I started to see figures for brief moments when Id turn my head, sometimes blue, sometimes white, sometimes black. I also would see them pass by from the corner of my eye, usually thinking they were my boyfriend walking past. I was keeping my feelings to myself because my boyfriend tends to be pretty “logical” and I didn’t want to sound silly or paranoid especially because I wasn’t really scared or anything. but eventually I started to get a bit spooked at times so I asked him if he felt like he was being watched or anything and he admitted he felt the same way but didn’t want to worry me.
+
+Well last night I fell asleep on the couch without my boyfriend. I woke up at about 5 am to the sun rising because my cat was climbing over me to get on her window hammock bed and it fell down. I didn’t think much of it, I sat up, folded my blanket, checked my phone and started to recall my dreams of the night. Then I heard three loud semi fast knocks from what seemed to be the front door. I was like wtf bc the cats seemed skittish like they heard it too. So I woke my boyfriend up and told him what happened, he said he thought he heard it too but wasn’t sure because he wasn’t very awake, and while I was talking to him I told him my right calf was burning a bit, so I looked at it and there were stretch-mark looking red lines on it. I took a photo with flash to get a better look, The marks went away within ten or fifteen minutes. I know this sounds dumb but I swear I counted thirteen marks this morning.
+
+I’m posting here because I’ve already contacted a few people in the area who cleanse homes/ spiritualists, but I just wanted to see if anyone had advice.
+
+I did go around the house and burn palo santo/ open the windows. I tried to tell whatever is here that it can move on, I felt at ease all day but tonight I started to feel watched again.
+
+Also- the three knocks were not due to a “creaky house” or neighbors. I got a crazy deal on rent I live in a newly renovated large apartment building in the west village. I have never heard any noises from the next door neighbors in the past.
+
+Also I did not open the door this morning, I will admit I was a bit shocked and spooked.
+
+Any advice? Insight? I’m not scared I just don’t want to mess around with anything, and I’m also wondering if maybe the knocks were an omen perhaps? Whatever is going on I take it seriously.
