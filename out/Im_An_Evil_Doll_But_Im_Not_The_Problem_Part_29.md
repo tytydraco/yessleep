@@ -430,3 +430,8 @@ Thank you everyone that has stayed with me this far.
 Listen to each other. 
 
 Punch.
+
+
+I get a break, check it out:
+
+https://www.reddit.com/r/nosleep/s/AukDaiPyi2
