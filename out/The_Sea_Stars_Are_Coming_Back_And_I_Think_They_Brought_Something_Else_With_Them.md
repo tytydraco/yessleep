@@ -56,7 +56,7 @@ My legs were cramping from the awkward way I was holding myself, extended across
 
 I felt my legs begin to shake. The beam of my flashlight wavered as my arm grew tired.
 
-I worried that the monster of a sea star would notice and respond, but he didn’t. He just waited there as my hand grew numb. I felt something warm seeping down from my hand. I looked down and watched as blood dripped down into the pool. I couldn’t hold my hand there any longer. I lowered the light and used that hand to push myself away from the rock. My bloodied hand shook, and when I looked down at it, a wave of nausea washed over me at the sight of the black goo pulsing down from my hand. It seemed like too much blood. I wondered what had 
+I worried that the monster of a sea star would notice and respond, but he didn’t. He just waited there as my hand grew numb. I felt something warm seeping down from my hand. I looked down and watched as blood dripped down into the pool. I couldn’t hold my hand there any longer. I lowered the light and used that hand to push myself away from the rock. My bloodied hand shook, and when I looked down at it, a wave of nausea washed over me at the sight of the black goo pulsing down from my hand. It seemed like too much blood.
 
 I didn’t dwell on it. Instead, I aimed my flashlight back at the monster sea star at the edge of the pool. There he was, unconcerned. I thought he looked like he was made of rock, and somehow the idea of that scared me more than anything so far. 
 
@@ -151,8 +151,6 @@ When the water subsided, I shook the ocean out of my eyes and looked around. Eve
 I lunged for one, desperate to hold on to anything of Mike.
 
 The thread snapped and I’m left holding a tiny sea star. I stared at it until even the sea star dissolved and slipped through my fingers.
-
-
 
 UPDATE:
 
