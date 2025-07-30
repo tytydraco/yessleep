@@ -5,7 +5,7 @@ Curiosity got the best of me and I read it...
 I don't know what this is, or even if its true, but I have to get it out there. 
 
 
-September 5th, 2024.
+September 5th
 
 
 We were four rounds deep when someone made a toast to “earning it”. I grinned, clinked, and sat back down again to enjoy my overpriced seared scallops. Bob, my coworker, slapped my back and tightened his grip on my shoulder and shook me.
@@ -40,7 +40,7 @@ And now?
 Now I laugh at shitty jokes. Playing the part. These civilians. .. would they have lasted even one night with us?
 
 
-September 6th, 2025
+September 6th
 
 
 I flew home the next day. I tried shaking off the anger. Instead, I found myself back in the office giving an uninspired debrief to my boss. I slipped out early, blaming my lack of enthusiasm on a headache.  
@@ -96,7 +96,7 @@ I thanked the bartender as he handed me another cocktail. “I aint from nowhere
 My eyes darted away from my drink and towards the man, but he was gone. Then I heard the front door close on his way out.
 
 
-September 7th, 2025
+September 7th
 
 
 The next day was a Saturday. I woke up to Nina cooking pancakes for Ben. I stumbled my way to the bathroom and spent some time trying to hawk up the taste of copper from the back of my throat. My stomach convulsed and I choked back vomit. The man from last night was still whispering in my skull. I couldn’t seem to stop my hand from shaking as I squeezed toothpaste all over the bowl of the sink.  
@@ -119,7 +119,7 @@ I pulled into the Whole Foods parking lot and grabbed the bag of Nina’s ill-fi
 I took the stairs slow up to my apartment. Nina was watching some Spanish soap opera while Ben laid by the couch, coloring. I approached her with my sullen grin and the flowers outstretched. “Got you something at the store”. She looked up in my direction, staring right through the flowers. She turned her attention to Ben “lets go to the park honey, go get your shoes on”. Excited, Ben shot up and ran to his room. Nina got up slowly. Deliberately looking in every direction but mine. “You don’t like them? ” I said in a quavering voice. She didn’t answer me until she was walking away “get them the fuck out of here”. Ben had his shoes on by now. I watched as they left the house, Nina made eye contact with me for the first time before I watched her slip out the door. I stood in the family room alone, holding the bouquet.
 
 
-September 12th, 2024
+September 12th
 
 
 Group therapy was on Thursday. It was something suggested by the VA doctor while I waited for a real one-on-one therapist. The waiting list was long for any type of mental health appointment, and this was the only thing they offered for the meantime. I arrived late to my appointment. I drove around the parking lot for a solid ten minutes before I found parking down the street and made my way up to the entrance.
@@ -179,7 +179,7 @@ I stood up, knocking my chair over and stormed over to Steve, lording over him, 
 I was out of breath. Steve sat in his chair with a look of shock and horror. I waited for someone to say something. I straightened my back and quickly walked back to my chair to grab my things and headed towards the door. That was my last session.
 
 
-September 21st, 2024
+September 21st
 
 
 I ghosted my way through the rest of the week, stuffing my emotions into a bottle while delivering half-hearted PowerPoint presentations. I barely spoke to Nina. I kissed my son on the forehead each night like I was clocking out of a shift. I stayed in the office a little later Friday, afraid at what another full weekend at home.
@@ -261,7 +261,7 @@ On the road, I thought about Ben before resigning my fate as a parent to an abse
 I ended up off the side of the 495 that led straight into the Holland Tunnel. At a Super 8 motel that a man like me had no place to visit. I got out of the car, slipped my wedding ring into my wallet and looked up at the rows of rooms and the billboard that read “Travel safe! All rooms sanitized”. I checked the room number from my text messages a second time and crept up the stairs. 203. I knocked. She opened the door, hiding most of her body out of sight and asked me to leave the money on the counter.
 
 
-November 23rd, 2024
+November 23rd
 
 
 I woke up to the smell of the sea carried by a cool breeze from the Hudson River. The morning sunrise illuminated the silhouette of the Manhattan skyline. It’s orange light casted behind the tall buildings dissipated into a purple sky. The air cut through the thick tree line and breezed through my camp on the New Jersey palisades, rattling the fixtures on my plywood abode loud enough to wake me up.  
@@ -463,7 +463,7 @@ It was true. He had been there. My heart tried to command my knees to stop climb
 He pushed. It opened. The darkness was great. It enveloped us in its embrace.
 
 
-December 28th, 2024  
+December 28th
 
 
 I woke up in a gutter off fifth avenue with no idea of how I had gotten there. My legs laid outstretched into the sidewalk, causing early morning commuters to step over me. My body was scraped and bruised with some wounds forming scabs that I didn’t recognize. I rose up and tried to walk before feeling a shooting pain jolt up my spine from my left leg. I was shirtless, hungry, and afraid. I looked around hopelessly for my peacoat out of instinct before realizing I wasn’t cold at all. That’s when I noticed my hands, blackened with soot. The cathedral. What happened there? I had to go back to the Palisades. Back to my camp, or whatever was left of it.
