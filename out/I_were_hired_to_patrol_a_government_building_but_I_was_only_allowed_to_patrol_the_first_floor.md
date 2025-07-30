@@ -121,17 +121,17 @@ The key was missing. Its owner would probably be coming back soon.
 I put on the beautiful blue tunic — it smelled nice and felt good on my skin.
 The golden mask had a neutral face and fit me almost perfectly.
 After finishing my disguise, I approached the door to the lobby again, determined to find a way out.
-But then I heard footsteps — heavy ones, just like the ones I was wearing now.
+But then I heard footsteps — heavy shoes, just like the ones I was wearing now.
 They were coming from outside the door.
 
 Seeing no way out, I figured talking was my only option.
 
-Before the person could enter, I opened the door myself — and realized I had been holding my breath.
+Before the person could enter, I opened the door myself — and realized I had been holding my breath only when I started shoking.
 
 A familiar face. So young, so pretty.
 Pietra — the mayor’s daughter.
 
-"I apologize for my late arrival. I had some trouble upstairs — the night guard found the other cameras. We will punish the morning guard for his mistake with the keys.
+"I apologize for my late arrival. I had some trouble upstairs — the night guard found the other cameras. We will punish the guard of the other shift for his mistake with the keys.
 Now, identify yourself."
 
 I remembered the lockers had engraved names — not real ones, just false labels. Including the one on the open locker.
@@ -152,7 +152,7 @@ I need to get out of here — fast.
 “Understandable. I hope you enjoy your first day of service. I… I must be going now.”
 
 I walked past her, not waiting for a reply.
-In my peripheral vision, I saw her and another man entering the room — probably the rightful owner of the outfit.
+In my peripheral vision, I saw her and another man entering the room — probably the rightful owner of the outfit I were wearing.
 
 I walked as quickly as I could, trying to mimic the same posture as everyone else.
 I kept close to the walls. The place was huge — bigger than the city itself.
@@ -171,9 +171,8 @@ Massive scriptures carved into the ground and walls.
 In the center — a large white symbol painted on the floor, with five smaller ones surrounding it.
 And the worst of all: four people kneeling on top of them — and one empty spot.
 
-Standing there, I saw horrific visions flashing through my mind.
-I heard screams echoing inside my ears.
-I staggered and fell to my knees. It felt like my soul was being torn into pieces.
+Standing there, I saw horrific visions flashing through my mind like my soul was being teared into pieces, hearing demonic screams echoing inside my ears
+I staggered and fell to my knees. 
 
 This place… there was something terrible here.
 
@@ -209,7 +208,7 @@ I’ve been hiding here for 30 minutes. I’ve armed myself.
 But I know they have total control.
 
 They could kill me any second, a bullet could have penetrated one of the walls and through my head anytime. 
-I don’t know why they haven’t.
+I don’t know why they haven’t done it yet.
 Maybe they’re just playing with their food.
 
 Anyway, now you know.

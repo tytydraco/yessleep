@@ -116,7 +116,7 @@ I know, I know. You have to be eighteen to buy those, yada yada, but I was frien
 
 I paused. “You know, I wish they did tell us who. Other states force the lotto companies to announce it, I've heard. It might make me feel better about wasting my paychecks on these.”
 
-Gerald shrugged. “Some things you never get to know. Some things you have to live your whole life without the answer.”
+Gerald shrugged. “Some things you never get to know. Some things you have to live your whole life without an answer to.”
 
 “Somebody should put that on a motivational poster.”
 
@@ -233,4 +233,4 @@ And then when she asks, “why?” I will tell her the horrible truth.
 
 That some things you never get to know. 
 
-Some things you have to live your whole life without [the answer](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/).
+Some things you have to live your whole life without an [answer to](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/).
