@@ -61,7 +61,7 @@ I grit my teeth, embarrassed but nodded and waved, before shutting the door and 
 
 “I- Uh… I don’t know if that’s where I belong. I don’t- I’m not-”
 
-“I’m not asking you to. And, trust me when I say, you need to. But it’ll help.”
+“I’m not asking you to. And, trust me when I say, you don’t need to. But it’ll help.”
 
 I chewed on my cheek. “Alright. Where is it?”
 
@@ -69,7 +69,7 @@ I chewed on my cheek. “Alright. Where is it?”
 
 “Deal.”
 
-The next day, around 3pm, Lou: *Tap Tap Tap,* then cracked open my door and peered in. I craned my neck, cheeks slightly tear stained as I gripped a photo of my son in Thomas the Tank engine costume me and him had DIY’d for Halloween.
+The next day, around 3pm, Lou: *Tap Tap Tap,* then cracked open my door and peered in. I craned my neck, cheeks slightly tear stained as I gripped a photo of my son in a Thomas the Tank engine costume me and him had DIY’d for Halloween.
 
 “Hey, Bud… Bad time?”
 
@@ -91,7 +91,7 @@ A humming chuckle rose in my throat but died there as well. He walked in, the su
 
 “He’s in a better place now.”
 
-Tears flowed again. “I hope so… If I had it my way, he’d be in his room right now, building some skyscraper with his magnet tiles. But, maybe he is. Just not here.” A rock grew in my throat and an opaque haze blurred my vision. “I’m sorry for… all this- can i get you coffee or a sandwich or something?”
+Tears flowed again. “I hope so… If I had it my way, he’d be in his room right now, building some skyscraper with his magnet tiles. But, maybe he is. Just not here.” A rock grew in my throat and an opaque haze blurred my vision. “I’m sorry for… all this- can I get you coffee or a sandwich or something?”
 
 “No no… I just wanted to swing by and say hi, I gotta unpack and’ll be at it all day.”
 
@@ -101,7 +101,7 @@ Tears flowed again. “I hope so… If I had it my way, he’d be in his room ri
 
 “How far down the way are you?”
 
-“You know the fork in the road, about a mile or two…” He conjured a mental map, “That way.” He gestured west. “The yellow one. 
+“You know the fork in the road, about a mile or two…” He conjured a mental map, “That way.” He gestured west. “The yellow one.”
 
 “Oh… The manor house?! Wow… you’re *rich* rich.” 
 
