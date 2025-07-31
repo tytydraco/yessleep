@@ -25,3 +25,5 @@ To start this story off, I have to explain that I found this document in my gran
 ***\[END OF RECORDING\]***
 
 *I’d love to write this off as a prank or someone’s twisted fiction, but the folder I found it in was tucked deep in a locked box, alongside my grandfather’s military discharge papers, a deed, and other official documents. This wasn’t just loose paper. It looked government-issued, with seals and serial numbers I don’t recognize. If anyone can verify whether this is real or part of some kind of case file classification system, I’d really appreciate it. I’m not trying to stir up conspiracy or drama, I just… I need to know I’m not going crazy. Whatever this is, it’s shaken me.*
+
+[Update](https://www.reddit.com/r/nosleep/comments/1mdol9c/i_found_a_murder_case_in_my_grandfathers_files/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
