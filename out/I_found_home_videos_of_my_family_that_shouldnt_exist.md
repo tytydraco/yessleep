@@ -26,7 +26,7 @@ It was a home video.
 
 I didn’t even know we had any. I don’t remember my parents ever owning a camera.
 
-The video starts with static, then clears just enough to show something. The picture is muddy, warped by tracking lines. It could be the living room, but the furniture looks wrong. Everything is too big or too small, shifting every time the frame jitters. Sometimes it almost looks like a bedroom. Sometimes, like a hallway.
+The video starts with static, then clears just enough to show something. The picture is muddy, warped. It could be the living room, but the furniture looks wrong. Everything is too big or too small, shifting every time the frame jitters. Sometimes it almost looks like a bedroom. Sometimes, like a hallway.
 
 No faces. No clear shapes. Just flickering shadows that don’t match what the voices are saying.
 
@@ -40,7 +40,7 @@ Low, deliberate, close enough that you couldn’t miss it:
 
 Then the video cut off. Just like that.
 
-I scrambled to rewind it, not even thinking about the other two discs still stacked under the TV. I just wanted to hear him laugh again. That laugh. I tried not to think about the end, though the fear of it was crawling slowly up my spine as I hit play.
+I scrambled to replay it, not even thinking about the other two discs still stacked under the TV. I just wanted to hear him laugh again. That laugh. I tried not to think about the end, though the fear of it was crawling slowly up my spine as I hit play.
 
 Because the way it spoke, it sounded like it wasn’t part of the recording at all. Like it was speaking to the camera. To me.
 
