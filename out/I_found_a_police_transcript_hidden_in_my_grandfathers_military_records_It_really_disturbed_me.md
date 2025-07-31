@@ -1,7 +1,5 @@
 To start this story off, I have to explain that I found this document in my grandfather’s closet. He was always an outgoing, charming man who never seemed to have enemies. I believe he is the subject in this story. As you can imagine, discovering something this shocking about a family member has been difficult. If anyone has insight on what this might be, or why he would have this writing, I’d deeply appreciate it.
 
-
-
 **Interview Transcript: July 5th, 2027** **Location:** Nebraska State Police Department **Interrogating Officer:** Detective James Davis **Subject Name:** Unknown **Physical Description:** Male, approx. 5’10.5”, dark brown/black hair, blue eyes, lean build, unusually attractive
 
 ***Davis:*** *Hello. How are you doing today, sir?* ***Subject:*** *About as good as anyone could be, given the circumstances. (He chuckles softly. It’s not nervous. It’s amused.)* ***Davis:*** *Right. I can see that. You want something to drink or eat? You must be starving.* ***Subject:*** *A water would be nice, thank you.*
@@ -26,7 +24,4 @@ To start this story off, I have to explain that I found this document in my gran
 
 ***\[END OF RECORDING\]***
 
-
-
 *I’d love to write this off as a prank or someone’s twisted fiction, but the folder I found it in was tucked deep in a locked box, alongside my grandfather’s military discharge papers, a deed, and other official documents. This wasn’t just loose paper. It looked government-issued, with seals and serial numbers I don’t recognize. If anyone can verify whether this is real or part of some kind of case file classification system, I’d really appreciate it. I’m not trying to stir up conspiracy or drama, I just… I need to know I’m not going crazy. Whatever this is, it’s shaken me.*
-

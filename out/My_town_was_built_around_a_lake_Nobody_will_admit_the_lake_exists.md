@@ -162,7 +162,7 @@ We were all silent. None of our parents would be especially thrilled about hosti
 
 “I know what we could do,” I said. My words probably slurred. “Something dangerous.”
 
-That word seemed to perk everybody up: dangerous. In high school, it was equivalent with fun. They followed me without questions down the street and through a grove of trees.
+It seemed to perk everybody up: dangerous. In high school, that word was equivalent with 'fun'. They followed me without questions down the street and through a grove of trees.
 
 We stood on the lake shore.
 
