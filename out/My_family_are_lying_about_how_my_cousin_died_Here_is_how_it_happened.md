@@ -276,5 +276,5 @@ I couldn’t tell my sister how afraid I was of the Certain People coming by aga
 
 There were so many nights after that I felt the ‘box feeling’ of the uncanny and wondered if I was opening other shortcuts somewhere, or building something new and unspeakable that even together my sister and I could not control.
 
-I wished we’d never learned what had happened to Henry. That I didn’t know what we could do, or what we’d done.
+I wished we’d never learned what had happened to Harry. That I didn’t know what we could do, or what we’d done.
 
