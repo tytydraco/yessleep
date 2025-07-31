@@ -12,7 +12,7 @@ That wasn’t my intention today either. It wasn’t my intention to find a stac
 
 There were three of them. Just labeled 1, 2, and 3.
 
-The only DVD player in the house is still hooked up to his old TV. Everything else went streaming years ago. For a minute, I told myself not to do it. They weren’t mine. They probably didn’t matter. 
+The only DVD player in the house is still hooked up to his old TV. Everything else went streaming years ago. For a minute, I told myself not to do it. They weren’t mine. They probably didn’t matter.
 
 I picked up some of the items I had collected, put the DVDs back in his drawer, and returned to my room. 
 
@@ -26,7 +26,7 @@ It was a home video.
 
 I didn’t even know we had any. I don’t remember my parents ever owning a camera.
 
-The tape starts with static, then clears just enough to show something. The picture is muddy, warped by tracking lines. It could be the living room, but the furniture looks wrong. Everything is too big or too small, shifting every time the frame jitters. Sometimes it almost looks like a bedroom. Sometimes, like a hallway.
+The video starts with static, then clears just enough to show something. The picture is muddy, warped by tracking lines. It could be the living room, but the furniture looks wrong. Everything is too big or too small, shifting every time the frame jitters. Sometimes it almost looks like a bedroom. Sometimes, like a hallway.
 
 No faces. No clear shapes. Just flickering shadows that don’t match what the voices are saying.
 
@@ -36,15 +36,15 @@ Then, beneath it is another voice.
 
 Low, deliberate, close enough that you couldn’t miss it:
 
-*"*You haven’t noticed yet.*"*
+*"You haven’t noticed yet."*
 
 Then the video cut off. Just like that.
 
-I scrambled to rewind it, not even thinking about the other two tapes still stacked under the TV. I just wanted to hear him laugh again. That laugh. I tried not to think about the end, though the fear of it was crawling slowly up my spine as I hit play.
+I scrambled to rewind it, not even thinking about the other two discs still stacked under the TV. I just wanted to hear him laugh again. That laugh. I tried not to think about the end, though the fear of it was crawling slowly up my spine as I hit play.
 
 Because the way it spoke, it sounded like it wasn’t part of the recording at all. Like it was speaking to the camera. To me.
 
-I pressed play again, this time pausing every few seconds, desperate to make sense of what I was seeing. But nothing held still. Everything on the tape looked almost familiar, like a room you swear you’ve been in but can’t place. The walls are a little too narrow, and the colors are washed out enough to make it something you’ve never seen before. It made me feel like my brain was short-circuiting. 
+I pressed play again, this time pausing every few seconds, desperate to make sense of what I was seeing. But nothing held still. Everything on the film looked almost familiar, like a room you swear you’ve been in but can’t place. The walls are a little too narrow, and the colors are washed out enough to make it something you’ve never seen before. It made me feel like my brain was short-circuiting. 
 
 Then I froze the frame just before the moment he laughed.
 
@@ -64,11 +64,9 @@ But then the voice returned.
 
 Closer this time. Wet against the microphone, broken and cutting in and out like static.
 
-*"*You noticed.*"* 
+*"You noticed."* 
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 I ripped the DVD out of the player and threw it across the room. I don’t even know why I did it. Adrenaline, I guess. My hands were shaking so hard I couldn’t control myself.
 
@@ -78,4 +76,4 @@ I just bolted back to my room and dove under the covers. Like that would help. I
 
 It’s dark. It’s late. The rain just started. 
 
-The bathroom faucet always drips, but tonight it sounds so much louder. You could almost confuse it for footsteps. 
+The bathroom faucet always drips, but tonight it sounds so much louder. You could almost confuse it for footsteps.
