@@ -81,7 +81,7 @@ On August 29th, I stayed home.
 
 
 
-"March 30th – Another Package"
+"August" 30th – Another Package"
 
 The next morning, I found a manila envelope on my porch.
 
