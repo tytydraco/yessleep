@@ -102,4 +102,4 @@ I try to force myself up but fall as another wave hits me. My eyes are closed bu
 
 As I look over I catch a glimpse of Vitale, water spewing from her mouth as she coughs it from her lungs. She looked at me with terror in her eyes, in just the same state of confusion. We know where we just were, know what we saw, so how the hell did we get here?
 
-The last thing I hear before the darkness overtakes me, knocking me unconscious from the ordeal we’ve gone through, is the blare of sirens coming our way, like a loud whistle breaking through the hiss of ocean [waves](https://www.reddit.com/u/googlyeyes93/s/2RdEaPeoYN).
+The last thing I hear before the darkness overtakes me, knocking me unconscious from the ordeal we’ve gone through, is the blare of sirens coming our way, like a loud whistle breaking through the hiss of ocean [waves](https://www.reddit.com/u/googlyeyes93/s/PH7EiE1cmf). 
