@@ -1,16 +1,16 @@
-There used to be people here. Thousands, if not tens of thousands, of men, women and children, making their way through life the best they knew how. Now, most of them are gone. Not killed. Not abducted. No bloody war or grand exodus. They’re just…gone.
+There used to be people here. Thousands, if not tens of thousands, of men, women and children. Now, most of them are gone. Not killed. Not abducted. No bloody war or grand exodus. They’re just…gone.
 
 I’m the only one who seems to remember them. According to Dr. Wakefield, that makes me special:
 
 *“Humans are disappearing, but they’re disappearing quietly - whispers drowned out by the buzzing of locusts. We need people who can hear the whispers. We need people who remember."*
 
-My eyes scanned the endless vacant sidewalks and empty storefronts, a barren landscape that had once been my hometown. Feeling my teeth begin to chatter, I reached out and attempted to increase the heat, but my car’s A/C couldn’t go any higher. Per my dashboard, the temperature was twenty-eight degrees Fahrenheit. Not sure precisely what’s happening in your neck of the woods, but it’s not *typically* below freezing outside during the summer. 
+My eyes scanned the endless vacant sidewalks and empty storefronts, a barren landscape that had once been my hometown. Feeling my teeth begin to chatter, I reached out and attempted to increase the heat, but my car’s A/C couldn’t go any higher. Per my dashboard, the temperature was twenty-eight degrees Fahrenheit. Not sure precisely what’s happening in your neck of the woods, but it’s not *typically* below freezing outside during the summer.
 
 Not in Georgia, at least.
 
 The hum of my sedan’s tired engine began overpowering the pop song playing over the radio, but I barely noticed. My attention was stuck on the objects lurking in my glove compartment. I couldn’t stop imagining them rattling around in there. These tools - they were things that didn't belong to me. Things you hide from plain view because of their implications. Not that I needed to hide them. I could have left them on my backseats, half-concealed under a litany of fast food wrappers. Hell, I could have let them ride shotgun, flaunting my violent intent loud and proud. Wouldn’t have made a damn bit of difference.
 
-Who was left to hide them from? The Police Station was abandoned, too.
+Who was left to hide them from? The police station was abandoned too.
 
 As I passed through a rural neighborhood, I spotted what looked to be a family stacking cut lumber into neat little piles on their front porch. They darted inside when they saw me coming. I'm sure they didn’t comprehend the magnitude of what’d been transpiring, but that didn’t mean their survival instincts were off the mark.
 
@@ -28,7 +28,7 @@ That man I saw? She claimed it wasn’t a man at all. Oh, no no no. He was somet
 
 Thankfully, Dr. Wakefield said that meant he was *sort of* human.
 
-When I finally found *him*, sitting on a bench at the outskirts of town, I parked far enough away to avoid suspicion. I clicked open the glove compartment, and for a moment, I wasn’t nervous, nor was I concerned about the morality of what I was about to do. Instead, I felt the warmth of a smoldering ember in my chest.
+When I finally found *him*, sitting on a bench at the outskirts of town, I parked far enough away to avoid suspicion. I clicked open the glove compartment, and for a moment, I wasn’t nervous, nor was I concerned about the morality of what I was about to do. Instead, I felt the warmth of a smoldering ember inside my chest.
 
 I was about to do something important. Heroic, even.
 
@@ -154,7 +154,7 @@ I nodded.
 
 *“Good. The situation is becoming progressively more…complex. I’ve always suspected The Grift was more of a network than a single, isolated entity, and I seem to be receiving intel that confirms the assertion, more and more with each passing hour.”*
 
-Her head tilted up to the ceiling, and she went silent. I’d only known Dr. Wakefield for a few days, but I was quickly becoming accustomed to her quirks, and this was certainly one of them. The woman was clearly intelligent. Almost to her own detriment. Sometimes, she’d be laboring on about a particular topic, only to abruptly stop halfway through the ad-libbed dissertation, often mid-sentence. I don’t think her speech actually stopped, however - I think it continued, but only within the confines of her skull. 
+Her head tilted up to the ceiling, and she went silent. I’d only known Dr. Wakefield for a few days, but I was quickly becoming accustomed to her quirks, and this was certainly one of them. The woman was clearly intelligent. Almost to her own detriment. Sometimes, she’d be laboring on about a particular topic, only to abruptly stop halfway through the ad-libbed dissertation, often mid-sentence. I don’t think her speech actually stopped, however - I think it continued, but only within the confines of her skull.
 
 I certainly wasn’t an expert at navigating her eccentricities, but I had learned a thing or two. For example, I didn’t disrupt her internal monologues, as informing her that she was no longer speaking seemed to spark anger. More importantly, she’d just start over from the top. Patience was key. Her brain and vocal cords would reconnect - eventually.
 
@@ -174,7 +174,7 @@ I couldn’t remember when Dr. Wakefield last slept.
 
 To my surprise, Leah chimed in.
 
-*“Okay, but…what if it doesn’t? What if it won’t fold? Or what if it tries to hurt Vanessa? You say it won’t, but this is…you know, uncharted territory? Shouldn’t she go in with a way to protect herself? Or maybe we just kill it and save ourselves the trouble.”
+\*“Okay, but…what if it doesn’t? What if it won’t fold? Or what if it tries to hurt Vanessa? You say it won’t, but this is…you know, uncharted territory? Shouldn’t she go in with a way to protect herself? Or maybe we just kill it and save ourselves the trouble.”
 
 Sam smiled at her, but she didn’t turn to face him.
 
@@ -200,7 +200,7 @@ I swallowed hard and tried to compose myself.
 
 *“Uh…Where did you come from? What do you want?”*
 
-Her stare intensified. I gagged at the sight of her bloodshot capillaries, imagining those little red worms writhing within her eye until one of them was smart enough to pierce her flesh and pop out the front. 
+Her stare intensified. I gagged at the sight of her bloodshot capillaries, imagining those little red worms writhing within her eye until one of them was smart enough to pierce her flesh and pop out the front.
 
 Then, they’d all spill out.
 
@@ -214,7 +214,7 @@ I expected him to leap up and attack me on sight, or at least do *something* tha
 
 That is not what he did.
 
-I discovered the man was awake and sitting against the wall opposite the door. 
+I discovered the man was awake and sitting against the wall opposite the door.
 
 He waved at me as I crept in.
 
@@ -268,7 +268,7 @@ Once again, he pulled his suffocating gaze away from me put it to the floor.
 
 My eyes drifted away from the man. Nausea began twisting in my stomach. My hand rested on the knob but did not turn it.
 
-Had we gotten something wrong? 
+Had we gotten something wrong?
 
 Who was this man?
 
@@ -296,7 +296,9 @@ And again.
 
 And again.
 
-The fifth time it finally shut, and I scrambled to push the end-table against the door. Once it was in place, I bolted out of the antechamber and into chapel. Sam and Dr. Wakefield heard the commotion and were coming to investigate. I nearly trampled the old woman as I turned the corner, but stopped myself just in time.
+The fifth time? It finally shut.
+
+I scrambled to push the end-table against the door. Once it was in place, I bolted out of the antechamber and into chapel. Sam and Dr. Wakefield heard the commotion and were coming to investigate. I nearly trampled the old woman as I turned the corner, but stopped myself just in time.
 
 *“V! What the hell is going on back there?”* Sam barked.
 
@@ -304,7 +306,7 @@ I collapsed to the floor and rested my head against the wall, catching my breath
 
 *“I’m…I’m not sure he’s a Grift. Somehow…he remembers people. Like me. What…what are the odds of that?”*
 
-Sam spun around and began pacing in front of the pulpit, hands behind his head. Dr. Wakefield, once again, appeared to be lost in thought. 
+Sam spun around and began pacing in front of the pulpit, hands behind his head. Dr. Wakefield, once again, appeared to be lost in thought.
 
 That time, though, my assumption was wrong. She was listening.
 
@@ -320,4 +322,4 @@ He only got a few words out:
 
 At the same time, Dr. Wakefield said:
 
-[“Who’s Leah?”](https://www.reddit.com/r/unalloyedsainttrina/)
+["Who's Leah?"](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)

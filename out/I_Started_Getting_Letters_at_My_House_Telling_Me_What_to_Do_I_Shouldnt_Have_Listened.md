@@ -15,7 +15,7 @@ The next day at the office was the same old same old. The building always smelle
 
 I’m a credit controller. Which means most of my job is just chasing clients for money they're already two weeks late on, acting polite while internally praying they go bankrupt so I can be free.
 
-Most of the day was uneventful. My boss wore a horrible tie with dinosaurs on it, and asked me if I liked it. The new intern got caught filling the printer the wrong way. Around 11 a.m. I caught Jenna standing by the filing cabinet, half-leaning against it with her phone in one hand, scrolling. She was smiling at something. Then she laughed quietly to herself, or maybe it was more like a giggle. She looked up, saw me looking, and we just held that weird eye contact for a second too long.
+Most of the day was uneventful. My boss wore a horrible tie with dinosaurs on it, and asked me if I liked it. The new intern got caught filling the printer the wrong way. Around 11 a.m. I saw Jenna standing by the filing cabinet, half-leaning against it with her phone in one hand, scrolling. She was smiling at something. Then she laughed quietly to herself, or maybe it was more like a giggle. She looked up, saw me looking, and we just held that weird eye contact for a second too long.
 
 I looked away first.
 
@@ -95,7 +95,7 @@ I gave a half-laugh, too quick, like I didn’t know if it was okay.
 
 She started fixing her coffee. Powder, water, stir. I couldn’t stop myself.
 
-“Honestly?” I said, “Yeah. But if I did, probably notfrom this office as it's only 5 stories. I’d probably just bounce off the second-floor awning and end up with a broken leg. The guys next door at Jpact have a ten story building, so probably that would give me a better chance.
+“Honestly?” I said, “Yeah. But if I did, probably not from this office as it's only 5 stories. I’d probably just bounce off the second-floor awning and end up with a broken leg. The guys next door at Jpact have a ten story building, so probably that would give me a better chance.
 
 She looked at me.
 
@@ -360,12 +360,12 @@ Then nothing.
 
 Then just—
 
- “Oh my god.”
+ “It says... Oh my god. It says hang up the phone.”
 
-The line went dead.
+Before I could even register what she had just said, the line dropped. 
 
 That was three days ago.
 I’ve been calling in sick to work ever since.
 
-I haven’t left the apartment.
+I haven’t left the house.
 And I haven’t checked the mail.
