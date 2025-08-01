@@ -139,3 +139,5 @@ Run. Just… keep running. Dear god, keep running. It was still back there, wait
 There was a faint light coming from ahead, through the tree line. A bright blue glow like nothing I had seen. Almost neon in the intensity, it was beckoning us towards it, out of the forest, into what I could only pray was some kind of safety.
 
 As we broke the tree line it became visible in full glory. There was a cliff in front of us, a river flowing over the side and continuing down below, leading to a huge, glowing blue cluster of spires only a few miles away. It was beautiful, like a rock quarry of nothing but the most brilliant diamonds and sapphires, giving us a beacon in the dark [world](https://www.reddit.com/u/googlyeyes93/s/PDOdYTDp23).
+
+[Next](https://www.reddit.com/r/nosleep/s/C30NjhDE8j)

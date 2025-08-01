@@ -7,6 +7,3 @@ I propelled myself out of bed raising my firearm in the direction of the door wh
 A deep sinister laughter erupted from below. I barreled down the stairs only for the laugh to cut off midway. Standing stranded in a sea of darkness with my feet resting on the cold floor, i could see nothing. It was pitch black, not even light shone through the windows being cast by streetlamps out front. 
 
 My pulse echeoed through my ears. Noticing the rapid rapid rise and fall of my chest i took a deep breath and tried to steady myself. "WHAT DO YOU WANT?" I yelled as sweat dripped from my pinky onto the grip of the pistol. I should have never asked. In my own voice something from the corner of the ceiling said "You know what i want."
-
-Writers Note:
-Hey guys, this is my first attempt at writing a short horror story. (Actually writing any story at all.) Please let me know what you think and if i should do a part 2!
