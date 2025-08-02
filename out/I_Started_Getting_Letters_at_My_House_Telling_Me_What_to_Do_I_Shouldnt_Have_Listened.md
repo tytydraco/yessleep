@@ -1,5 +1,5 @@
 
-I found the first letter stuck under my doormat when I got home. Not slipped in the mail slot or dropped on the porch like when I normally get mail, but jammed under the mat like it was waiting for me. The envelope was sealed, and had my name on the front, so at first I assumed it was a that bill I had forgotten about. 
+I found the first letter stuck under my doormat when I got home. Not slipped in the mail slot or dropped on the porch like when I normally get mail, but jammed under the mat like it was waiting for me. The envelope was sealed, and had my name on the front, so at first I assumed it was a bill I had forgotten about. 
 
 But it wasn't.
 
