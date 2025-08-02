@@ -99,17 +99,17 @@ Then the smell returned — sweet, spoiled.
 
 ---
 
-I don’t really sleep now.
+I didn’t sleep.
 
-I lie in bed staring at the ceiling I don’t trust. The corners stretch if I blink too long. Sometimes the fan slows.
+I lay in bed staring at a ceiling I didn’t trust. The corners stretched if I blinked too long. At times the fan slowed.
 
-Sometimes I hear that second breath.
+At times I heard that second breath.
 
-And sometimes, I don’t remember lying down at all.
+And at times, I didn’t remember lying down at all.
 
-Every morning I ask myself the same thing: Was it real?
+Every morning I asked myself the same thing: Was it real?
 
-And every morning, something inside me waits too long to answer.
+And every morning, something inside me waited too long to answer.
 
 
 ---
