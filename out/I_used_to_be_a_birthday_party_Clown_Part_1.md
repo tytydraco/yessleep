@@ -1,7 +1,7 @@
 Look, I get it. Clowns are creepy. I’ve heard it all. “Clowns are childhood trauma in face paint.” “Clowns are demons with balloon animals." Blah blah blah but for me, being a clown was rent money. I didn’t choose the clown life, the clown life chose me, well after I got fired from my last job.
 
 So yeah, I was Chuckles. Full-time party clown, part-time existential crisis in oversized shoes.
-And this? This is the story that made me hang up the rainbow wig forever.
+And this? This is the story that made me want to hang up the rainbow wig forever.
 
 It was a Saturday afternoon in July. Hot as Satan’s jockstrap. I was already sweating before I got the costume on.
 
