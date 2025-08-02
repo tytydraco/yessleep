@@ -210,7 +210,7 @@ Then, they’d all spill out.
 
 \- - - - -
 
-I expected him to leap up and attack me on sight, or at least do *something* that was emotionally equivalent. Brandish a weapon. Scream at me. Weep and plead. At worst, I anticipated he’d drop the facade and reveal its true, eldritch form, irreparably scarring my mind and rendering me a miserable husk of broken flesh.
+I expected him to leap up and attack me on sight, or at least do *something* that was emotionally equivalent. Brandish a weapon. Scream at me. Weep and plead. At worst, I anticipated he’d drop the facade and reveal his true, eldritch form, irreparably scarring my mind and rendering me a miserable husk of broken flesh.
 
 That is not what he did.
 
