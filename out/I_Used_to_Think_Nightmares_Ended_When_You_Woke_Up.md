@@ -114,7 +114,7 @@ And every morning, something inside me waits too long to answer.
 
 ---
 
-Last night, I hovered.
+One night, I hovered.
 
 My body refused to move. The walls pulsed with a heartbeat that wasn’t mine.
 
