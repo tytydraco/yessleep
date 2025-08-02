@@ -142,4 +142,4 @@ Laura’s wedding was a spectacular success. The Crone attended, as she was cont
 
 Business poured in. I wasn’t just planning weddings, I was bargaining for the impossible on behalf of wealthy clients. And I was paid very, very well to do it.
 
-And anyway, by the time Laura was married, the stump where my hand used to be had healed. Mostly.
+And anyway, by the time Laura was married, the stump where my hand used to be had healed. [Mostly](https://www.reddit.com/user/DickinsonPublishing/).
