@@ -1,4 +1,4 @@
-The town of Spectral Lakes, Washington is known for the glut of ghost stories choking the annals of our history. You can’t enter a single gift shop, motel, or museum without gaudy flyers advertising our “ghost tours” being shoved into your periphery on every kiosk.
+The town of Spectral Lakes is known for the glut of ghost stories choking the annals of our history. You can’t enter a single gift shop, motel, or museum without gaudy flyers advertising our “ghost tours” being shoved into your periphery on every kiosk.
 
 Most of the stories are relegated to Lake Spectral, the biggest of the town’s lakes, but I’ve always felt a much deeper connection to Lullaby Lake, mostly because my Uncle Chung-Ho (all names in this story changed for privacy) ran the summer camp there, and I lived near it for my whole childhood.
 
@@ -36,17 +36,15 @@ I took a tentative glance at her. Her eyes looked far off, past the pine trees o
 
 “There were bruises around his ankles. Police said that his feet must have gotten tangled in debris.” A mosquito buzzed near her thigh. She didn’t seem to notice. “But that lifeguard told me they looked more like hand marks.”
 
-“Chung-Ho never told me,” I said, brows raised. 
+“Chung-Ho never told me,” I said, brows raised. 
 
-She shrugged. “Didn’t wanna scare you off, prolly.” She smiled at me. It was simple, almost put-on in order to lighten the mood. But still. I glanced away from her, cheeks red. 
+She shrugged. “Didn’t wanna scare you off, prolly.” She smiled at me. It was simple, almost put-on in order to lighten the mood. But still. I glanced away from her, cheeks red. 
 
-It was good that I did. I noticed something. 
+It was good that I did. I noticed something. 
 
 A blur of orange lurked under the water, near the border rope. A few brown fingers showed their tips above the surface before sinking down.
 
 I jumped from the tower, grasping my rescue buoy and diving into the lake.
-
-The water was freezing. I shouldn’t have focused on that in such a life-or-death moment, but I was used to the temperatures of Washington lakes, and this was unusually cold for a summer day.
 
 I grabbed at the orange blur before me, fingers closing in on swimsuit material. I got a grip around a small arm with my other hand and dragged it up to the surface.
 
@@ -54,11 +52,11 @@ The kid emerged in a huff. I propped her up on the buoy and quickly towed her to
 
 The other kids stopped what they were doing and watched with mouths agape.
 
-“Mr. Choi? Is she okay!?” asked a friend of hers.
+“Mr. Noah? Is she okay!?” asked a friend of hers.
 
 “HA! Katie can’t swim!” jeered one of the asshole kids.
 
-Katie’s red eyes bloomed with scared tears. 
+Katie’s red eyes bloomed with scared tears. 
 
 “You okay?” I asked.
 
@@ -72,7 +70,7 @@ Katie wiped at her red eyes and gave a nod as she wheezed.
 
 I reported the incident to her parents and my Uncle. After what felt like hours of my Uncle and I calming down her hysterical mother over the phone, it was twilight on the lake. I went to my little cabin (which wasn’t much more than a small bedroom and bath), and slipped out of my swim trunks.
 
-”Oh, shit,” I said as I put my lifeguard gear away. 
+”Oh, shit,” I said as I put my lifeguard gear away. 
 
 My whistle was missing. It was a cheap little thing, but Uncle Chung-Ho was cheap about replacing stuff. I walked back out to the lake to comb the shore for it, but it was getting real dark and I figured I’d just find it in the morning, so I stopped.
 
@@ -80,11 +78,15 @@ After dinner, I settled into bed and felt a wave of exhaustion overtake me. I go
 
 Usually I’d play gatcha games or something before I slept, but I could barely keep my eyes open, so I just let myself drift off.
 
+
+
 \---
+
+
 
 I felt cold water all around me. My eyes seemed frozen shut, so my body just floated in blackness for a while.
 
-I kicked my legs, hoping to get my head above water, but I had no idea where I was going, and there was something wet and slimy curled around my ankle. I screamed in surprise. Even after kicking vigorously, it just stayed firmly in place, as if it’d been tied there to anchor me to the lakebed. 
+I kicked my legs, hoping to get my head above water, but I had no idea where I was going, and there was something wet and slimy curled around my ankle. I screamed in surprise. Even after kicking vigorously, it just stayed firmly in place, as if it’d been tied there to anchor me to the lakebed. 
 
 Lakebed. That was it. It must be a lake plant, and if it was, it was growing from the bed. So the opposite direction would be my ticket out of the water.
 
@@ -112,19 +114,19 @@ I picked her up. Despite the exceptionally more serious situation I was currentl
 
 The whistle screamed again. I turned my head to face the sound. It came from deeper in the lake. The lakebed curved downward into a darker valley.
 
-I decided to follow the whistle. 
+I decided to follow the whistle. 
 
-My lungs were full of water, and my feet walked on the lakebed like I was a spaceman on the surface of Mars. So clearly, this was a dream. *Why should I worry about getting to the surface now? May as well see where this goes.*
+My lungs were full of water, and my feet walked on the lakebed like I was a spaceman on the surface of Mars. So clearly, this was a dream. Why should I worry about getting to the surface now? May as well see where this goes.
 
-I tread through the ice-cold environment. The valley went deeper and deeper, through areas the moonlight struggled to pierce. Still, I wandered, guided by that eerie sound. 
+I tread through the ice-cold environment. The valley went deeper and deeper, through areas the moonlight struggled to pierce. Still, I wandered, guided by that eerie sound. 
 
 To the left I saw an old toy diving ring. To my right, a sunk fishing dinghy. I stepped on a broken bottle as I walked, cursing to myself. My words were garbled as bubbles erupted from my mouth. A trail of blood floated up from my heel. Still, I kept walking.
 
-Soon it was too dark to see. I stopped then. The full brunt of what was happening here was at the edge of crashing down on my psyche. 
+Soon it was too dark to see. I stopped then. The full brunt of what was happening here was at the edge of crashing down on my psyche. 
 
-A light was visible in the distance. Cold and blue. 
+A light was visible in the distance. Cold and blue. 
 
-I walked toward it. 
+I walked toward it. 
 
 I heard the whistle again. It was followed by a choir of whispering laughs.
 
@@ -140,9 +142,13 @@ Darkness pressed in on my vision. The whistle’s cry cut off prematurely.
 
 The last thing I saw before blackness overtook me was a white face highlighted in blue.
 
+
+
 \---
 
-I woke up with a lot more coughing. It felt like it took a half hour before I could properly breathe again. My bed was soaked, like I’d sweated out all the soda I’d drank yesterday. 
+
+
+I woke up with a lot more coughing. It felt like it took a half hour before I could properly breathe again. My bed was soaked, like I’d sweated out all the soda I’d drank yesterday. 
 
 When I got the chance to look up, I noticed my door was unlocked. I quickly locked it and stumbled to the bathroom.
 
@@ -150,7 +156,7 @@ What a terrible night. I shoved my bedsheets into a bag. They really needed to b
 
 I walked out of my cabin and headed for the laundry. The lake was as beautiful as ever in the morning light, but I felt a sudden aversion when looking at it that I’d never experienced before.
 
-Yawning, I continued down the shoreline in my sandals (which I could hardly feel with how numb my feet were), when a speck of hot pink caught my eye. 
+Yawning, I continued down the shoreline in my sandals (which I could hardly feel with how numb my feet were), when a speck of hot pink caught my eye. 
 
 A mermaid Barbie perched on the sand. Water lapped up at her fins. She smiled, her stiff plastic arms pointed up at the sky.
 
@@ -158,7 +164,11 @@ And beside her, almost dissolved amongst the sand, were bloody footprints leadin
 
 I looked down at my foot. Blood had pooled at the bottom of my sandal.
 
+
+
 \---
+
+
 
 I didn’t want to go to my shift that day. I used the first aid station to patch up my cut foot, but I kept shivering whenever I caught even a glimpse of the lake now.
 
@@ -180,7 +190,7 @@ Chung-Ho glared at me with the concentrated power only an uncle could. “Noah. 
 
 I shrugged, trying to figure out where this was going.
 
-“The fancy playground I’d *just bought* went missing! The whole thing! I got it with a loan I’m still trying to pay off. Now you want to get paid? You don’t want me to go bankrupt, do you?”
+“The fancy playground I’d just bought went missing! The whole thing! I got it with a loan I’m still trying to pay off. Now you want to get paid? You don’t want me to go bankrupt, do you?”
 
 I shrugged again, regretting saying anything about getting paid. The memory of that incident came back to me now. On reflection, it was really weird. The whole playground was stolen, the only bits remaining being some leftover screws and wagon wheel tracks that went straight into the lake. Police said there was only evidence of a singular thief, and that he’d worked through the night disassembling it and bringing the pieces onto a boat.
 
@@ -188,9 +198,13 @@ I shrugged again, regretting saying anything about getting paid. The memory of t
 
 “Jokes should be funny, Noah.”
 
-I walked out of his office, wincing even as I stepped lightly. 
+I walked out of his office, wincing even as I stepped lightly. 
+
+
 
 \---
+
+
 
 Already feeling sufficiently emasculated by the way I’d hugged that doll last night, I was desperate to hide my trembling when I took over Bethany’s shift later that day.
 
@@ -206,11 +220,11 @@ I failed.
 
 “Uh, yeah. I found it on the beach this morning,” I said, shifting my weight away from my cut foot.
 
-”THANK YOU THANK YOU THANK YOU!” Said Katie, who jumped up and down. She wore her campground clothes, not her swimsuit. Probably not in the mood to get into Lullaby. I sympathized. 
+”THANK YOU THANK YOU THANK YOU!” Said Katie, who jumped up and down. She wore her campground clothes, not her swimsuit. Probably not in the mood to get into Lullaby. I sympathized. 
 
 “If you hadn’t saved her, she was gonna get taken by the weeds!” Katie said, shaking her head and petting the doll’s hair.
 
-*Weeds?* I wondered, heart thumping. “What do you mean?”
+Weeds? I wondered, heart thumping. “What do you mean?”
 
 “Lullaby weeds take toys down deep.” she said matter-of-factly. “Maybe the lake likes to play with them. I dunno.”
 
@@ -230,7 +244,7 @@ Shit. There. A kid way out was bobbing his head out of the water silently, barel
 
 Bethany immediately followed my gaze and leapt to her feet.
 
-Before I could move, she said: “I got this. You played the hero yesterday.” She grabbed my rescue buoy and made a graceful dive into the water. 
+Before I could move, she said: “I got this. You played the hero yesterday.” She grabbed my rescue buoy and made a graceful dive into the water. 
 
 I called everyone out of the lake. A mass of kids gave disappointed signs and made their way to the shore.
 
@@ -240,11 +254,11 @@ Seconds passed.
 
 And then more.
 
-Then more. 
+Then more. 
 
 Something was wrong. I jumped forward, but somehow my trunks had caught fast on a nail head. My body lurched down, the threads broke, and I painfully landed at the base of the lifeguard tower. My shoulder ached. For a second I wondered if it was dislocated. I spat sand out of my mouth and stumbled to my feet before managing a beeline towards the water.
 
-My shoulder crying in protest, I swam as fast as I could to the spot both of them had disappeared. 
+My shoulder crying in protest, I swam as fast as I could to the spot both of them had disappeared. 
 
 Just before I went down, Bethany breached the water, gasping and sputtering. Her face was awash in fear.
 
@@ -286,7 +300,11 @@ The kid retched out dirty lake water, turning on his side as bile burst from his
 
 Seeing the color return to his face, I started to cry.
 
+
+
 \---
+
+
 
 My uncle congratulated me warmly. He was proud I’d saved another kid’s life.
 
@@ -294,7 +312,7 @@ I felt cold. Two close calls in a row was two too many.
 
 Bethany didn’t talk much after the kid was handed over to EMTs. I could tell she was in a shock. Probably felt horrible that she had almost let him drown. She went home looking pale.
 
-As I got back into my cabin’s bed, the sheets now clean and dry, I rubbed my sore shoulder while I waited for the pain meds to kick in. 
+As I got back into my cabin’s bed, the sheets now clean and dry, I rubbed my sore shoulder while I waited for the pain meds to kick in. 
 
 I wondered if it was possible for me to sleep after all that had happened. I slipped out of bed to make sure my door was locked. I stood there for a moment. Looked out my windows at the lake.
 
@@ -302,17 +320,21 @@ I closed the blinds.
 
 My phone buzzed.
 
-“wow im playing mario now. hes cool. i like the turtles -Ken” 
+“wow im playing mario now. hes cool. i like the turtles -Ken” 
 
 How much access did Dad let this kid have to his phone, anyway?
 
 The rest of my messages were filled with notifications for new events in my gatcha games, so I tried to get my mind off of things by playing them a bit. But while my character rode around in search of pngs to gamble for, I soon slipped out of consciousness, the relaxing music taking me deep into the fathoms below.
 
+
+
 \---
+
+
 
 That blue light again.
 
-I saw it before me. 
+I saw it before me. 
 
 I was back under the waves, toes dug into the sand of the lakebed, standing right where I’d drifted off the night before. The sudden feeling of water seeping through every nook and cranny of my being flooded my senses.
 
@@ -336,7 +358,7 @@ I saw plastic construction toys near one hut. Broken G.I. Joes stuck in the sand
 
 The source of the blue light was a large old fisherman’s lantern. The kind that’d be used to ward sailors from the lakeshore at night.
 
-It illuminated the centerpiece of the little town. A playground. This was the only piece that wasn’t makeshift. It was a whole Costso playground with a slide and everything that was somehow sunk in the middle of the lake. 
+It illuminated the centerpiece of the little town. A playground. This was the only piece that wasn’t makeshift. It was a whole Costso playground with a slide and everything that was somehow sunk in the middle of the lake. 
 
 This was Uncle Chung-Ho’s.
 
@@ -362,11 +384,15 @@ The hand pulled itself closer to its body. I was moved with it. A face appeared 
 
 All I could do was watch while bloated, misshapen lips pulled themselves over small teeth as a whispering girl’s voice pried itself in the folds of my brain.
 
-“*Stop saving them*.”
+“Stop saving them.”
+
+
 
 \---
 
-I awoke at the edge of the lake. 
+
+
+I awoke at the edge of the lake. 
 
 It was just before dawn. The lake was completely quiet. I stood there for a moment, in shock, watching the water crawl up to touch my feet, as if beckoning me back down with it. Up... and back... up... and...
 
@@ -376,7 +402,7 @@ They looked like children’s fingers.
 
 I staggered back from the shoreline as the full brunt of everything I’d been through hit me. I threw up silty water, my stomach’s contents making a mess of the beach chairs beside my cabin.
 
-“S-son of a bitch...” I said between retches. 
+“S-son of a bitch...” I said between retches. 
 
 All the water was finally out of my body, but I still felt the slimy pond algae mucking up my throat and nose. I retreated into my cabin and drank a few cans of soda to try and wash it down, then gargled a bottle of mouthwash. I showered and scrubbed every last part of myself I could find.
 
@@ -392,11 +418,11 @@ It took several lies to get him to shut down swimming that day. I insisted I’d
 
 My uncle agreed, and announced the news over the PA system to the disappointment of the kids. He was impressed with my maturity, he said.
 
-I didn’t feel noble. Just scared. 
+I didn’t feel noble. Just scared. 
 
 Uncle told me he’d ask the janitors to take care of things when they came tonight. Didn’t know what I’d say to him when they didn’t find anything. How would I keep this up for even a few more days? Would I have to pollute the lake myself?
 
-I said my goodbyes and started back to my cabin. 
+I said my goodbyes and started back to my cabin. 
 
 On the way, I saw Bethany walk away from the lake dressed in her lifeguard swimsuit and a pair of sweatpants. I caught her eye and she sidled up to me.
 
@@ -406,9 +432,9 @@ On the way, I saw Bethany walk away from the lake dressed in her lifeguard swims
 
 ”Is that legal?”
 
-”According to Choi family law.”
+”According to family law.”
 
-She chuckled. But I could tell her heart wasn’t in it. She looked distracted. 
+She chuckled. But I could tell her heart wasn’t in it. She looked distracted. 
 
 “By the way. Since you’re not doing anything right now…”
 
@@ -450,7 +476,7 @@ Okay, so that first text wasn’t a mistake. Something about this made me start 
 
 I tried to shake off my anxiety, but it wouldn’t go. The shivering feeling from yesterday started again. I had to go back. Now.
 
-I left my filled up basket at the door to the chagrin of the shopkeeper and ran down the road towards the camp. 
+I left my filled up basket at the door to the chagrin of the shopkeeper and ran down the road towards the camp. 
 
 Why was it so far away?
 
@@ -478,7 +504,11 @@ I knew where Ken was. I had to go get him.
 
 My fingers pierced the water as I dove. I went deeper and deeper, pressure popping my ears. The lake that was inside me felt like it responded to being back in the water. Currents carried me to the lakebed. Air bubbled out of me. The lake took over, and darkness encompassed my mind.
 
+
+
 \---
+
+
 
 I stood where I’d appeared last night. A good distance away from the underwater town. The blue light remained there like a star in the deep lake. I charged forward through the muck, my steps disturbing the silt and flinging it up into the stillness.
 
@@ -492,7 +522,7 @@ In front of the sunken playground was Bethany. She had a smile on her face and s
 
 It was horrifying. But the thing she played with was even more so.
 
-Across from Bethany sat the corpse of a little girl. It was wrapped in lakeweed, which drifted about her swollen white face like tendrils of living hair. Her eyes were gone, picked clean by lake scavengers. Flesh sloughed off of her body like smeared dough. 
+Across from Bethany sat the corpse of a little girl. It was wrapped in lakeweed, which drifted about her swollen white face like tendrils of living hair. Her eyes were gone, picked clean by lake scavengers. Flesh sloughed off of her body like smeared dough. 
 
 What was left of her mouth pulled into a mockery of a smile. A giggle traveled through the water as her adipocere-laced hands poured ‘tea’ into Bethany’s cup.
 
@@ -512,7 +542,7 @@ Bethany’s ponytail spread out around her head in the gloom. It almost looked l
 
 ”My sister is lonely,” she said simply.
 
-For the first time, I noticed, even through the layers of decomposition, that her and the corpse shared several traits. The black hair, the sharp brows, and… matching beaded bracelets.  
+For the first time, I noticed, even through the layers of decomposition, that her and the corpse shared several traits. The black hair, the sharp brows, and… matching beaded bracelets.  
 
 “How long has she been down here?” I whispered.
 
@@ -526,25 +556,25 @@ I thought I could feel tears on my face, but the only indication of their existe
 
 “He’s staying. He doesn’t want to leave. It’s nice here.” Bethany’s face was still.
 
-”Why don’t *you* stay and keep her company!?” I yelled. “Keep my brother out of it!”
+”Why don’t you stay and keep her company!?” I yelled. “Keep my brother out of it!”
 
 Bethany didn’t answer. Instead, the piercing whisper of the corpse’s words dug into my brain.
 
 “She brings me new friends.”
 
-The sentence sent a violent shiver down my spine. 
+The sentence sent a violent shiver down my spine. 
 
 In the shadowy doorways of the huts, I glimpsed the wavering, twisting forms of other small bodies. Watching me.
 
-There was a boy with weeds tangling his feet. He carried the handles of a jumprope. A girl with a fish darting between her empty ribs slowly pushed a toy car back and forth. 
+There was a boy with weeds tangling his feet. He carried the handles of a jumprope. A girl with a fish darting between her empty ribs slowly pushed a toy car back and forth. 
 
-The ‘balloons’ I thought I’d seen last night weren’t that at all. The bodies of more children were there, floating upside down with weeds around their necks like a hanging seen from the lake’s reflection. They drifted in the water. Whispered to one another. Used the weed to pull themselves downward to the lakebed like I’d done the first night I’d been drowned. 
+The ‘balloons’ I thought I’d seen last night weren’t that at all. The bodies of more children were there, floating upside down with weeds around their necks like a hanging seen from the lake’s reflection. They drifted in the water. Whispered to one another. Used the weed to pull themselves downward to the lakebed like I’d done the first night I’d been drowned. 
 
 They moved silently, all drawing closer to me while hugging toys desperately to their chests as if those were the last bits of humanity left to them.
 
-The freshest body was a boy with a campground wristband on his arm. 
+The freshest body was a boy with a campground wristband on his arm. 
 
-I couldn’t move. Or even think. 
+I couldn’t move. Or even think. 
 
 That’s when I heard a whistle blow.
 
@@ -560,7 +590,7 @@ I wrenched out of her grasp, squeezing so hard on her wrist that I heard a ‘cr
 
 I didn’t look back, charging into the large hut and gasping at the sight within.
 
-Ken lay on a bed of weeds. He was still, eyes bleary, but I could see a whistle tucked between his teeth. 
+Ken lay on a bed of weeds. He was still, eyes bleary, but I could see a whistle tucked between his teeth. 
 
 I hovered over him, my face twisted in pain, looking for any sign of life.
 
@@ -588,7 +618,7 @@ I only glanced behind me for a second, but in that glimpse, I saw Bethany reach 
 
 When the corpses realized that their intended prey was escaping their grasp, they instead moved to the easier prey.
 
-They needed *someone* to stay with them.
+They needed someone to stay with them.
 
 All I heard was a gurgling scream slowly fading away behind me as I swam up.
 
@@ -618,7 +648,11 @@ He started to try and speak.
 
 I laughed. “Yeah, buddy. You’re right.”
 
+
+
 \---
+
+
 
 All I told Uncle Chung-Ho the next day was that I was bored of the job and needed something that paid. He grumbled about it but I was let off the hook. Though, he did ask me a few times if I knew where Bethany went. She wouldn’t answer his calls. I told him I hadn’t heard from her either.
 
@@ -632,4 +666,7 @@ Even now I can feel the lake when I’m across the world. I can sense the eddies
 
 Sometimes I can hear when Ken throws old toys into Lake Lullaby.
 
+
+
 He hopes it likes them.
+
