@@ -23,7 +23,7 @@ Also, hi. I guess. I’m not really sure where to start with all this.
 ---
 
 Edit :
-Looks like I can't actually post on other subs right now.  Is something wrong with my account?
+Looks like I can't actually post on other subs right now. Not sure what's wrong.
 
 Either way, I guess I'm stuck here for now.
 
@@ -146,7 +146,7 @@ i tried to cut it out. it spelled
 
 
 i’m shaking. i can’t feel my hands.
-please. please if anyone is reading this—
+please. please if anyone is reading this;
 i can’t tell what’s me anymore
 i think it’s using my face
 i think it’s already
