@@ -30,7 +30,7 @@ The N65, its edgier nighttime twin, was an oasis from drunken, stumbling nights 
 
 After the first holiday with my now-girlfriend to Edinburgh, one in which I think we truly fell in love with one another, the 65 carried us back home. I remember this journey because we had missed our last tube, and Ubers were being expectedly unreliable. I was stressed, a level of anxiety took over me as I worried if we’d ever make it home at a reasonable time, and she calmed me down on that bus while we listened to my favourite audio drama, her getting to observe a side of myself that I would rather have kept hidden.
 
-To say that the 65 has been an unintentional passenger in my life would be an understatement. Beyond the house I despised, it was the only other constant across those two years. It was an artery that I clung to as a catalyst for solace. A vital vein that connected me to one of my coping mechanisms,  the not-so-hidden gems of southwest London, the Kew to Richmond towpath – my truest home.
+To say that the 65 has been an unintentional passenger in my life would be an understatement. Beyond the house I despised, it was the only other constant across those two years. It was an artery that I clung to as a catalyst for solace. A vital vein that connected me to one of my coping mechanisms, the not-so-hidden gem of southwest London, the Kew to Richmond towpath – my truest home.
 
 This riverside walk was the go-to-cure for my woes and ills. Whenever I felt bored, exhausted, anxious, sad, happy or lonely, I would put on my shoes, embark upon the 65 to carry me to Kew, load up on snacks at the Tesco Express and loop from Kew to Richmond and back again by foot. This journey would take me about 3 hours, and I would do it nearly every single day.
 
@@ -52,66 +52,74 @@ For a journey I had taken so many times before, an ill familiarity took a hold o
 
 I took too many steps before I realised that I could no longer see far ahead, relying upon the occasional break in the treeline for a faint outline of where I would need to travel to next.
 
-Leaves that were once individually perceptible formed a mass of darkness, and the stones beneath my feet curved in ways that felt like they’d pierce the sole of my shoes. There came a moment where began to lower the volume of my podcast. The horror stories that would once fill my mind with creativity suddenly felt far too real and I had chosen to switch to an upbeat soundtrack to force my brain out of a state of fear. It was as I paused the podcast that I had noticed it was the only sound. I took one step forward and the crunch of matter below my feet echoed through my surroundings.
+Leaves that were once individually perceptible formed a mass of darkness, and the stones beneath my feet curved in ways that felt like they’d pierce the sole of my shoes. There came a moment where I began to lower the volume of my podcast. The horror stories that would once fill my mind with creativity suddenly felt far too real and I had chosen to switch to an upbeat soundtrack to force my brain out of a state of fear. It was as I paused the podcast that I had noticed it was the only sound. I took one step forward and the crunch of matter below my feet echoed through my surroundings.
 
-The call of birds and faint laughter from pub side chats were gone. It did not matter how recently I had remembered them being present, they were nowhere. And so was I. The wind did now blow. I was the sole source of disturbance. Noise did not return.
+The call of birds and faint laughter from pub side chats were gone. It did not matter how recently I had remembered them being present, they were nowhere. And so was I. The wind did now blow. I was the sole source of disturbance and noise did not return.
 
 I began to panic as I frantically turned my phone’s torch on to scan the route ahead of me, tracing myself along Google Maps to see if I should just pivot and turn back rather than face the uncertainty of what lay ahead. Unfortunately, I had ventured too deep. It would take me the same amount of time to get closer to home than it would to get back to Richmond, the choice had been made for me.
 
-Using the torch, I aimed it ahead to check every inch of woodland and greenery for something that lay dormant, ready to find me and my isolation. It was then that I had noticed a cast iron bench.
+Using the torch, I aimed it ahead to check every inch of woodland and greenery for something that lay dormant, ready to find me and my isolation. My mind ran through 1,000 different scenarios of what could lay ahead – a murderer, wild animals, clowns, carnivorous plants. As I searched through the plethora of death-inducing sources, it was then that I had noticed a cast iron bench off a dirt track to my right.
 
-Where before the darkness created new shapes out of the land that I knew had always been there, this was something completely new. While benches were not uncommon, this looked rusted with age, and far too uncomfortable for any normal person to use it. The back of the bench curved high, if I had sat down it would’ve surged passed my head by a few inches. It was wide and gently bent towards me.
+Where before the darkness created new shapes out of the land that I knew had always been there, this was something I had never noticed before. While benches were not unusual, this one looked rusted with age, and far too uncomfortable for any normal person to use it. The back of the bench curved high, if I had sat down it would’ve surged passed my head by a few inches. It was wide and gently bent towards me.
 
-I looked below.
+I stepped onto this new path, and I looked below.
 
 The moss-covered bolts that presumably kept it pinned to the ground were unscrewed and discarded along the floor. As I began to bend down and pick one up, the darkness expanded and enveloped the floor. In a blink of horrified reaction, the darkness was gone, but so were the bolts, now tightened hard into the bench. My head throbbed.
 
-I stepped back and saw the benches shadow grow. My mind was drawn to an ornate sheet of metal, but this plaque was empty. No dedications or “in loving memory” were printed out, just a faint outline of what I thought was my name. I did not look back as I left the bench behind.
+I stepped back and saw the bench’s shadow grow. My mind was drawn to an ornate sheet of metal, but this plaque was empty. No dedications or “in loving memory” were printed out, just a faint outline of what I thought was my name. I did not look back as I left the bench behind.
 
 The sun was gone.
 
-In the feint outline of moonlight, a tree lay ahead. Its bark ran high, the tree merging into a mass of forestry that meant I saw no end, nor did I see where it began. Four orifices from the bark looked upon what I had hoped was the Thames.
+I was left with my mind and the desire to simply keep moving.
 
-I took a photo to send to my girlfriend, my terrified messages laying unread. My signal had disappeared.
+After what felt like an hour, in the feint outline of moonlight, a tree lay ahead. Its bark ran high, the tree merging into a mass of forestry that meant I saw no end, nor did I see where it began. Four orifices from the bark looked upon what I had hoped was the Thames.
 
-The tree began to shift towards me and sang.
+I began to make my way closer, but something felt off. The music had stopped playing quietly in my ears and the silence took a hold of me, dragging me further towards the roots that flowed impossibly deep into the ground, pulsing ever so slightly, a feint glow of red emanating onto its surroundings.
 
-I looked at Google Maps, desperate for the solace of knowing I was nearly there. It could not find me.
+Two yellow dots appeared beyond the tree. I pointed my torch, but its reach was not far enough. I stumbled backwards in an awkward pace, attempting to understand what could emerge. Childish attempts to protect myself flooded my brain, trying to make myself look taller, broadening my shoulders to look bigger. From a distance I would have looked like a baby deer taking its first steps, a mockery of nature, but in my mind the overwhelming urge to scream and cry for help or mercy pressed hard against my skull.
 
-I sprinted beyond the tree, its cacophony filling the air in a warped, slowed rhythm that felt like a melted record. I did not stop, catching my balance as the path began to decline and ascend, twisting and curving across itself. The further I ran the more the horizon disappeared, the stars above fading into the black of night.
+The yellow dots remained and blinked, and the tree began to shift towards me. Splinters of wood flew out as it broke apart, covering the ground in debris, turning to face me. Once the orifices from the tree were upon me, it sang.
+
+In that moment of ungodliness, I sprinted back on myself. I could not face its cacophony filling the air in a warped, slowed rhythm that felt like a melted record. I looked at Google Maps, desperate for the solace of knowing I was nearly home. It could not find me. The eyes did not follow me, and I could not stop, catching my balance as the path began to decline and ascend, twisting and curving across itself. The further I ran the more the horizon disappeared, the stars above fading into the black of night.
 
 I screamed but nothing came out of my empty lungs. I searched across the river for a reminder of where I was, but crooked shapes amassed around unfamiliar structures.
 
-When I finally reached what I thought was Kew Bridge, my phone clinging to 1%, it wasn’t. It was a bridge, yes but not the one I knew. Older. Built of black brick. No traffic. Just a single red bus, parked in the middle of the span.
+I do not know if my eyes were opened or closed, my feet touching nothing as I ran and ran and ran and ran and ran and ran and ran. The chorus of trees gripped my eyes, my eyes stung, and tears flowed.
 
-The 65. Its lights were on. The doors were open. I boarded.
+As I shifted my body around a corner that should’ve seen me land directly in the icy water, something new filled my vision. The arches of a bridge, its cold railings and lights filling my heart with a relief that I have never known. It was Kew Bridge, but I did not know that this was impossible.
 
-The driver didn’t look up. I didn’t ask where we were going.
+A staircase brought me to a street of no name, lit by lanterns that hung from nothing, upon a surface of cold black brick. There was no traffic, nor was there anything beyond what I could see. The river below me was vicious and brought bubbles to its surface.
 
-The doors hissed shut behind me. The air changed, heavy, viscous, like I’d stepped underwater. My ears popped. My chest tightened. The glass refused to show me the world as I tried to gaze out onto the streets.
+In the middle of this structure was a single red bus, parked in the middle of the span.
+
+The 65 was here to take me home. Its front, usually an indicator of directions, did not say anything. The doors were open, and I boarded.
+
+The driver was a mere silhouette and did not look up. I tapped my card and did not ask where we were going.
+
+The doors hissed shut behind me and relief came over me.
+
+Hiding tears, I climbed the stairs and found my seat at the front. It was the only one available on the empty bus. I had sunk into it, and breathed hard, shaky gasps. It had felt like it was finally over, whatever monstrosity had been unleashed upon my mind.
 
 We moved.
 
-My eyes warped out onto the darkness surrounding me, and I tried to recognise the street. People walked backwards on the pavement, heads twitching every few seconds as though catching whispers from nowhere. A child pointed at me from the corner. Their hand had too many fingers. A dog barked, and the sound came out hours later, long after the dog had gone.
+I took out my phone in the hope that a signal would return, but it was dead. The echo of the trees looped in my ears as I tried to retrace the steps of my journey, but I felt a migraine try to settle upon me.
 
-I closed my eyes for a second. When I opened them, I was home.
+As I looked up, my eyes warped out onto the darkness surrounding me, and I tried to recognise the buildings or streets. Everything was right but in the wrong order, as buildings miles apart fused and shops advertised products that were never real in fonts that I could not recognise. People walked backwards on the pavement, heads twitching every few seconds as though catching whispers from nowhere. A dog barked, and the sound came out hours later.
 
-The 65 vanished into the darkness behind me. Not down the road but into it. Like the tarmac folded open and swallowed it whole.
+I closed my eyes for a second. When I opened them, I was at my house, and I finally recognised the world around me.
 
-That was nearly two years ago.
-
-I tell people I’m fine. I go to work. I see friends. But something’s off. The sky is too low some days, like it’s pressing down on my head. My girlfriend doesn’t sleep anymore. She just lies there, eyes open, whispering in a language I don’t know. She says we never went to Edinburgh. She says we’ve never left London. We never lived together before that night.
+I tell people I’m fine. I go to work. I see friends. But something’s off. My girlfriend doesn’t sleep anymore. She just lies there, eyes open, whispering in a language I don’t know. She says we never went to Edinburgh. She says we’ve never left London. We never lived together before that night.
 
 Photos in my house keep changing. Not dramatically. Just a shadow moved here. A hand where there wasn’t one before.
 
-The Shaftesbury’s gone. Boarded up. No one remembers it. The sign now says: “CLOSED FOR MAINTENANCE SINCE 1965.”
+The Shaftesbury’s gone. Boarded up. No one remembers it.
 
 At night, it calls. Not loudly. But low, and rhythmic. The river. It sounds like breath. Sometimes I see figures walking just beneath the surface, heads tilted, mouths open wide.
 
-I avoid the towpath. But the 65? It doesn’t care.
+I’ve moved house, moved to the other side of London to escape its reach, but I don’t dream. Because when I do, I’m back on that bus. I wake with bruises on my shoulders, handprints on my arms. My phone has photos of me from afar.
 
-I’ve moved house, moved to the other side of London, but I don’t dream. Because when I do, I’m back on that bus. I wake with bruises on my shoulders, handprints on my arms. My phone has pictures I didn’t take.
+The journeys we take draw closer to me, winding down streets that are increasingly familiar.
 
-The journeys we take draw it closer to me. Tonight, as I write this down, I dreamt that it had pulled up outside my new home. I heard the engine purring, low and hungry, like it was just behind my window. The walls are thinner than they should be.
+Tonight, as I write this down, I dreamt that it had pulled up outside my new home. I heard the engine purring, low and hungry, like it was just behind my window. The walls are thinner than they should be.
 
 The 65 never left me, and I will never leave it.
