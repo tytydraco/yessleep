@@ -183,3 +183,4 @@ I will NEVER stay there alone again.
 
 
 Rest in peace chula😔❤️
+(She passed from old age)
