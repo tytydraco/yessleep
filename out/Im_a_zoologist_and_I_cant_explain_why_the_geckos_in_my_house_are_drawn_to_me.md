@@ -55,3 +55,5 @@ I don't trust the spaces I inhabit anymore. I'm always looking around, scanning 
 I keep telling myself there must be a rational explanation, some obscure phenomenon, some missed variable, but it only gets worse. 
 
 I'm documenting everything, hoping someone out there knows something I do not. If any of you can help me, please do, because I just want to sleep in my own bed again.
+
+Edit: I’m planning to capture and dissect one of them. I’ve prepared for it, methodically. But I’m terrified, and that’s not typical for me. I’ve handled venomous reptiles before so this shouldn’t be any different, but it is. Something about them sets off every warning bell in my brain. Still, I’ll do it. I have to. I’ll let you know how it goes.
