@@ -46,7 +46,7 @@ Laura looked behind me, behind herself, and all around the room. I was a well-so
 
 I was half-right. She didn’t tell me the secret, but she showed it to me. She hiked her skirt up all the way to her waist so I could see her panties, whole thighs and buttocks.
 
-Laura’s flesh was missing—a pound’s worth, if I had to guess—from the inside of her thigh, right below her perineum.
+Laura’s flesh was missing—a pound’s worth, if I had to guess—from the inside of her thigh, below but very close to the inguinal region.
 
 I shuddered. Laura’s face reddened. She pulled her skirt back down before looking away. I thought I saw the glimmer of a tear welling in one of her eyes. She wiped her face.
 
@@ -140,6 +140,6 @@ She was quiet for what seemed like a very long time. She finally said, “Very w
 
 Laura’s wedding was a spectacular success. The Crone attended, as she was contractually obligated to attend. It gave Laura great cache, and it made my reputation.
 
-Business poured in. I wasn’t just planning weddings, I was bargaining for the impossible on behalf of wealthy clients. And I was paid very, very well to do it.
+Business poured in. I wasn’t just planning weddings, I was bargaining for new, impossible things on behalf of wealthy clients (though what I bartered with now wasn't anything so exotic as a pound of flesh). And I was paid very, very well to do it.
 
 And anyway, by the time Laura was married, the stump where my hand used to be had healed. [Mostly](https://www.reddit.com/user/DickinsonPublishing/).
