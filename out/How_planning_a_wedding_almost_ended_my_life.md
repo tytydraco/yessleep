@@ -74,7 +74,7 @@ My bowels felt stuffed full of lead shot and detached from my intestines.
 
 “Hello,” I said, eyeing the girl’s missing hands. “Are you okay?”
 
-She whispered like she was afraid someone was listening. “I have a secret to tell you.” She curled her finger toward herself. I leaned close to her and turned my ear in toward her lips.
+She whispered like she was afraid someone was listening. “I have a secret to tell you.” She waved one of her stumps inward. I leaned close to her and turned my ear toward her lips.
 
 I heard a man’s voice say, “In for a penny, in for a pound.” I turned and saw a six-foot ghoul dressed in the same Victorian maid outfit as the two little girls. I screamed and turned to run, but he wrapped one of his long limbs over me from behind, pinning my arms to my body and my body to his. He covered my mouth and whispered, “Shh, shh, shh. Quiet now, quiet now.” I cried into his hand.
 
