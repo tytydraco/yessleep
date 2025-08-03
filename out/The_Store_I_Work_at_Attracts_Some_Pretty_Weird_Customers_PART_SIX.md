@@ -403,3 +403,9 @@ That was all for the 6^(th). However, the next four days were likely the crazies
 The next part will be the last one, so stay tuned.
 
 >It’s going to be a hell of a ride.
+
+-EDIT-
+
+I lied, the next part isn’t the last one, but the one after will be. 
+
+Anyways, here’s [part seven](https://www.reddit.com/r/nosleep/s/0xdQR7kQyb)
