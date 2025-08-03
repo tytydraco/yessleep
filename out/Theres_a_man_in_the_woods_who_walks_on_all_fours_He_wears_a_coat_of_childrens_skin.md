@@ -162,6 +162,6 @@ The Brittle Man was here, and that left me with a choice between dying for sure,
 
 And then the ground vanished beneath me. 
 
-I fell, screaming, down the throat of the tree, swallowed up by the Crooked Wood. 
+I fell, screaming, down the throat of the tree, swallowed up by the [Crooked Wood](https://www.reddit.com/r/nosleep/comments/1mg2pc6/theres_a_man_in_the_woods_who_walks_on_all_fours/). 
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
