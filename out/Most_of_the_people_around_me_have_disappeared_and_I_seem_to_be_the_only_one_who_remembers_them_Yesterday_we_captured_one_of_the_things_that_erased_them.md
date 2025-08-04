@@ -174,7 +174,7 @@ I couldn’t remember when Dr. Wakefield last slept.
 
 To my surprise, Leah chimed in.
 
-\*“Okay, but…what if it doesn’t? What if it won’t fold? Or what if it tries to hurt Vanessa? You say it won’t, but this is…you know, uncharted territory? Shouldn’t she go in with a way to protect herself? Or maybe we just kill it and save ourselves the trouble.”
+*”Okay, but…what if it doesn’t? What if it won’t fold? Or what if it tries to hurt Vanessa? You say it won’t, but this is…you know, uncharted territory? Shouldn’t she go in with a way to protect herself? Or maybe we just kill it and save ourselves the trouble.”*
 
 Sam smiled at her, but she didn’t turn to face him.
 
