@@ -1,0 +1,28 @@
+It was the autumn of 2020. I was playing Roblox to chill out after 2 tests in school. I came across a game on the front page named "View Your Country", which had only 21 players total and they were at only one server. Unusual. I joined out of curiosity. The game looked eerie, with flags of countries on a wall and teleports to them. The rest of the place was pitch black. I teleported to my home country, Poland.
+
+
+I expected it to spawn me in a fictionalized Warsaw or a rural town with tons of blocks and run down houses.
+
+
+I didn't get any of that.
+
+I spawned in a forest. It was daytime and the graphics looked like straight out of Minecraft instead of Roblox. I looked around, and the forest was seemingly infinite, then i started walking. There was nothing to see here, except occasional tombstones that looked like they were pulled straight from a cemetery. Because of that, i thought this is some horror game but nothing happened yet, so i continued going. Then i saw a cave, where other 5 players were going into. I followed them. The cave was completly empty instead of some monster with pointy teeth, pitch black skin and red eyes chasing us. The only thing i saw was a banner with "In Collaboration with pamietajmyumarlych.pl"
+
+" "Remember the dead?" Why is this in a Roblox game?"- i thought.
+
+I went out of the cave and i saw one thing. A silhouette of a car. I was surprised there's something on this map. I went towards it. That is the worst mistake i have ever done.
+
+The car looked strange. To describe it, inagine a TVR Tuscan front with a fifth generation Mustang in the back. All that is lifted with off-road elements for aesthetics to make it look like a SUV coupe.
+
+There was no badging, and the windows were blacked out. But the text on the rear said "REMIX ENGINEERING". There was a model name but it was covered in what seemed to be black tape. Later, i googled the car. There was only one result. A r/nosleep post about it, where it (same brand name) kills the designer of it when he sits inside it during the Geneva Motor Show, then the car disappears into thin air and nobody cares. The post described it as metallic orange and a similar design description as i sae it in Roblox
+At first glance it's nothing really weird, maybe the game creator saw the post and was inspired to add it as an easter egg. Problem was, the post was a 9 year old one with 3 upvotes and 0 comments. So either he was one of the few that saw it and decided to include it in his game, which was unlikely, or the creator of the post was also the creator of the game. I considered the second option to be true.
+
+It was not.
+
+Next day, i googled "Remix Engineering" again. 2 results. The same post again, and a mobile game. It apparently had 1 million downloads and 0 reviews. I realized something weird is going on. Then i made the mistake of downloading it. It was ominous, to say the least. No scary monster in it. But i felt something bad is going to happen somewhere. The gameplay was... boring to say the least. The only thing i could do is drive the Remix Engineering Emalis, as that was supposedly it's full name around a low graphics city that reminded me of GTA 3 but in 144p and it was dusk forever. There were pitch black NPCs sometimes that when you hit them, they just vanished into thin air. I uninstalled it after reaching Mach 1 in the car which didnt have a speed limit, and doing that gave me a error message saying "ERROR 2003: ARRESTED FOR SPEEDING". I only then realized how it's strange that i already saw 2 references to a forgotten nosleep post in the span of 2 days. At this point i believed that this is either some demon or that was a repost and the original was super popular. 
+
+Next day i went to my grandma that lived in a small village. I took out my old scooter and decided to chill myself after this mess. Then i saw it. An old abandoned wooden shack. Nothing was ever here as far as i can remember. Yet there was something. Something that had was orange and a car. And had a rear end of a fifth generation Mustang. I thought i was tripping. I went closer to it, as if something was forcing me. The Emalis stood there in it's full "glory". Exactly as it looked in the game and in Roblox. But now, it was real. It had it's left side door open, tempting me to go in. The shack itself had now text that was never there before. "WŁASNOŚĆ REMIXA MALDBTA", or "PROPERTY OF REMIX MALDBT". Remix. Remix Engineering. Was that the designer? I looked around and saw something move in the backseats. Even if its windows were blacked out i could see it properly. I entered the car. The door closed itself. Then the car was locked. I tried smashing the windshield but it was harder than a rock. I gave up, and i tried driving it, even though i was 13. When i hit the gas i got teleported into a highway. It had infinite lanes. And went on infinitely. The car said "NEXT STOP: 99999999 KM. DRIVE ME TO DESTINATION". I had enough of this. I deflated all its tires and kicked it multiple times to damage it. And lastly, i threw it off a bridge. That was 5 years ago. My phone is at 3%, at least the Wi-Fi is here so i can write my story. I saw no one, except one old nice guy that lent me his powerbank and went his way. He didn't say anything. The car disappeared as soon as it landed. Maybe jumping off is the only way to go back to the real world? 
+
+If i go back, i will write again. If i don't, i won't.
+
+But if you see a car named "Remix Engineering" or "Emalis" or both names combined anywhere on the internet: log off, never google it, change your device, maybe destroy your old and move countries if that's necessary. Because it curses anyone that interacts with it 2 times. Or i think that's the case.
