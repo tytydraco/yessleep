@@ -138,19 +138,19 @@ My belly was sore, wet, and warm. There were many deep gashes. The blood from my
 
 I looked toward the voice—in the wading pool, the surface clouded over with steam. I saw a body break through, saw a triangular head on an overlong neck between steep-sloping shoulders.
 
-Chance was next to me now, roughly shoving my three attackers away and hissing at them. The three cowered before him. Chance was naked, though what he had between his legs was a reptile hemipene and not a human penis
+Chance was next to me now, roughly shoving my three attackers away and hissing at them. The three cowered before him. Chance was naked, though what he had between his legs was a reptile hemipene and not a human penis.
 
-The creature stepped up from the wading pool’s mist. When I saw her, I almost felt relief, because though her body had the squat limbs and elongated body of a lizard, she stood on legs; her flesh was the peach-blonde-pink of human flesh, and her silver hair was in fact silver human hair. And she wore a very human thing to wear—a skirted one-piece bathing suit in a floral print pattern, just like any grandma taking an Aqua Zumba class at the Y.
+The creature stepped up from the wading pool’s mist. When I saw her, I almost felt relief, because though her body had the squat limbs and elongated body of a lizard, she stood up on two legs; her flesh was the peach-blonde-pink of human flesh, and her silver hair was in fact silver human hair. And she wore a very human thing to wear—a skirted one-piece bathing suit in a floral print pattern, just like any grandma taking an Aqua Zumba class at the Y.
 
 In my delirium, I almost laughed at the thought that popped into my head: “Komodo Grandma.”
 
 “I have brought him to you,” Chance said, lifting me from under my armpits like he was picking up a baby. “The *ayah*. I’ve brought him to you, *Ratu Naga*.”
 
-Komodo Grandma sucked through her teeth in disapproval. “For all the good it does me. The children have got at him! Do I need a disemboweled husband?”
+Komodo Grandma sucked through her teeth in disapproval. “For all the good it does me. The children have got at him! Do I need a disemboweled convert?”
 
-“Husband…?” I was weak, barely able to speak, vision swimming. But I was still conscious.
+“Convert…?” I was weak, barely able to speak, vision swimming. But I was still conscious.
 
-She got on her belly and crawled up tier to tier. She slinked in right beside me. None of the others were as reptilian as Komodo Grandma. Was that why they cowered in fear of her? They were like hyperactive kids busting open a supply of paint in a rainbow over clean, white walls.
+She got on her belly and crawled up tier to tier. She slinked in right beside me. None of the others were as reptilian as Komodo Grandma. Was that why they cowered in fear of her? One moment they were like hyperactive kids busting open a supply of paint in a rainbow over clean, white walls. The next they were seen but not heard.
 
 A black border was closing in around my field of vision. I smelled and tasted the iron of my own blood in the air. 
 
@@ -168,7 +168,7 @@ Komodo Grandma sighed. It sounded like someone emptying water from a slide whist
 
 “My wife…” I didn’t want to, but I cried.
 
-Komodo Grandma patted my chest. “...will always be your wife, Irvin. I’m just trying to save her husband. And maybe get something from you in return.” Her stubby, thick fingers pinched my wrist and she slide-whistle-sighed again. “Your pulse is going, Irvin. You’re going to have to choose.”
+Komodo Grandma patted my chest. “...will always be your wife, Irvin. I’m just trying to save her husband. And maybe get something from you in return.” Her stubby, thick fingers pinched my wrist and she slide-whistle-sighed again. “Your pulse is going, Irvin. You have to choose.”
 
 “What’s your name?” I asked.
 
