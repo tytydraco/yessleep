@@ -343,3 +343,5 @@ A new head. A perfectly sculpted, pale mask of porcelain sprouted out and consum
 It was that way again until it once again reached the funeral side of the room, at which point the mask made a sound like a neck snapping, turned 90 degrees, then was slurped back into the snake's gut. It’s mouth returned to normal, its scales flipped back to black, and it continued its hauntingly silent crawl toward us.
 
 The girls and I reflexively took a step backward into the control room, but it wouldn’t help so long as we were at the mercy of the doors. Luckily, right as the beast bumped the pulpit over, the doors shut, and we had just enough time to see it lunge before hearing a hard thump against the barrier.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1mgxpph/im_trapped_on_the_edge_of_an_abyss_things_are/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
