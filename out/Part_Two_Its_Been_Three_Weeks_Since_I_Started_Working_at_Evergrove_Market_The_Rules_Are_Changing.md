@@ -1,4 +1,4 @@
-Read: [Part 1](https://www.reddit.com/r/nosleep/comments/1lwk0ql/night_shift_at_the_evergrove_market_day_1/)
+Read: [Part 1](https://www.reddit.com/r/TheCrypticCompendium/comments/1mcbi1p/i_took_a_job_to_fix_my_life_its_going_to_end_it/), [Part 2](https://www.reddit.com/r/nosleep/comments/1m8xqld/part_two_its_been_three_weeks_since_i_started/), [Part 3](https://www.reddit.com/r/nosleep/comments/1mbc7gt/part_3_five_more_nights_until_my_final_review_i/), [Part 4](https://www.reddit.com/r/nosleep/comments/1mcb2gs/part_4_i_thought_evergrove_markets_rules_only/), [Part 5](https://www.reddit.com/r/nosleep/comments/1mdch14/part_5_last_night_i_met_myself_only_one_of_us/), [Part 6](https://www.reddit.com/r/nosleep/comments/1mfxls1/part_6_the_evergrove_market_doesnt_hire/), [Part 7](https://www.reddit.com/r/nosleep/comments/1mib8nr/comment/n72dugg/?context=3) (Part 1 will come soon on r/nosleep, other parts are on nosleep)
 
 Believe it or not, I’ve made it three whole weeks in this nightmare.
 
@@ -263,18 +263,12 @@ Because babies are terrifying now, apparently.
 What the actual hell?
 
 1. **If you find yourself outside the store without remembering how you got there—go back inside immediately. Do not look at the sky.**
-
-1. **Something new lives behind the canned goods aisle. If you hear it breathing, whistle softly as you walk by. It hates silence.**
-
-1. **If the intercom crackles at 4:44 a.m., stop whatever you're doing and lie face down on the floor. Do not move. You will hear your name spoken backward. Do not react.**
-
-1. **Do not use the bathroom between 1:33 a.m. and 2:06 a.m. Someone else is in there. They do not know they are dead.**
-
-1. **If the fluorescent lights begin to pulse in sets of three, you are being watched. Do not acknowledge it. Speak in a language you don’t know until it passes.**
-
-1. **There will be a man in a suit standing just outside the front doors at some point. His smile will be too wide. He does not blink. Do not let him in. Do not wave. Do not turn your back.**
-
-1. **If the emergency alarm sounds and you hear someone scream your mother’s name—run. Do not stop. Do not check the time. Run until your legs give out or the sun rises. Whichever comes first.**
+2. **Something new lives behind the canned goods aisle. If you hear it breathing, whistle softly as you walk by. It hates silence.**
+3. **If the intercom crackles at 4:44 a.m., stop whatever you're doing and lie face down on the floor. Do not move. You will hear your name spoken backward. Do not react.**
+4. **Do not use the bathroom between 1:33 a.m. and 2:06 a.m. Someone else is in there. They do not know they are dead.**
+5. **If the fluorescent lights begin to pulse in sets of three, you are being watched. Do not acknowledge it. Speak in a language you don’t know until it passes.**
+6. **There will be a man in a suit standing just outside the front doors at some point. His smile will be too wide. He does not blink. Do not let him in. Do not wave. Do not turn your back.**
+7. **If the emergency alarm sounds and you hear someone scream your mother’s name—run. Do not stop. Do not check the time. Run until your legs give out or the sun rises. Whichever comes first.**
 
 I blinked.
 

@@ -1,4 +1,4 @@
-Read: [Part 1](https://www.reddit.com/r/nosleep/comments/1lwk0ql/night_shift_at_the_evergrove_market_day_1/), [Part 2](https://www.reddit.com/r/nosleep/comments/1m8xqld/part_two_its_been_three_weeks_since_i_started/), [Part 3](https://www.reddit.com/r/nosleep/comments/1mbc7gt/part_3_five_more_nights_until_my_final_review_i/)
+Read: [Part 1](https://www.reddit.com/r/TheCrypticCompendium/comments/1mcbi1p/i_took_a_job_to_fix_my_life_its_going_to_end_it/), [Part 2](https://www.reddit.com/r/nosleep/comments/1m8xqld/part_two_its_been_three_weeks_since_i_started/), [Part 3](https://www.reddit.com/r/nosleep/comments/1mbc7gt/part_3_five_more_nights_until_my_final_review_i/), [Part 4](https://www.reddit.com/r/nosleep/comments/1mcb2gs/part_4_i_thought_evergrove_markets_rules_only/), [Part 5](https://www.reddit.com/r/nosleep/comments/1mdch14/part_5_last_night_i_met_myself_only_one_of_us/), [Part 6](https://www.reddit.com/r/nosleep/comments/1mfxls1/part_6_the_evergrove_market_doesnt_hire/), [Part 7](https://www.reddit.com/r/nosleep/comments/1mib8nr/comment/n72dugg/?context=3) (Part 1 will come soon on r/nosleep, other parts are on nosleep)
 
 “So… are you human?” I asked. 
 
