@@ -16,7 +16,7 @@ I got into the tent and zipped it up. It was only small, just enough room for on
 
 I woke up abruptly. I didn’t know what it was, but I had a bad feeling in my stomach and shivers burrowed their way through my body. I reached next to me for my phone but realised I had left it outside when I put it down earlier. I was about to get up and go out to find my phone when I saw a light coming from just inside the tent by the zip. I realised it was my phone. Maybe I had picked it up and it had slipped out of my pocket, I thought, trying to reassure myself.
 
-A minute later, the phone chimed. My heart sank. A new message appeared on the screen. It was from an unknown number. My hands began to tremble. I shakily unlocked my phone and opened the message.
+A minute later, the phone chimed. A new message appeared on the screen. It was from an unknown number. My hands began to tremble. I shakily unlocked my phone and opened the message.
 
 "I CAN SEE YOU. WHY DON’T YOU COME OUT AND PLAY."
 
