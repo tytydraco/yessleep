@@ -1,166 +1,4 @@
-
-
-
-
-I’m writing this because I’m in way over my head. I have no idea what I’m dealing with or what to do about my situation. If anyone out there has information—any at all—I’d appreciate it. The facade of my life is in shambles. More than it was before, even.
-
-Don’t get me wrong, I had a charmed life compared to others. I had a nice suburban neighborhood, a dad who was a lawyer, and food always on the table thanks to my flawed stay-at-home mom. On paper, it was perfect. But it all felt so hollow. Superficial.
-
-Even though I grew up with two parents, a house, and went to one of the top schools in the area, I never felt like I knew who they really were. It seemed like we had the ideal American lifestyle. Emphasis on "seemed." They fed me, bathed me, took me to school. But they never comforted me when I cried. Never read me bedtime stories. Never hung my art on the fridge—even the ones I was proud of.
-
-But the real issue was my dad’s drinking.
-
-He was, from what I understand, a highly functioning alcoholic. The moment he got home, he’d start throwing back bourbon like his life depended on it. By the seventh or eighth swig of Jim Beam, the yelling would start. The smallest mistake—from me or my mom—he’d snap. Cursing. Insults. Rage.
-
-He never hit us, but that didn’t make it easier. I eventually got used to it. I tried my best not to upset him, walking on eggshells every night.
-
-Luckily, he wasn’t in my life for long.
-
-One night when I was in second grade, I was lying on the hardwood floor in the living room, drawing. My mom was making dinner—pot roast. The smell made my mouth water. She was a kind woman, but her eyes always looked... detached. Hollow.
-
-Now that I’m older, I recognize that look: surrender. The kind you give when you’ve already died inside, years before.
-
-I peered at her through the kitchen doorway. I was sketching her—frozen at the window, eyes distant.
-
-Then the front door slammed. Loud. Violent. My dad stumbled in, already drunk. His thinning hair was a mess. His face, beet red with rage.
-
-He threw his jacket on the floor and barreled into the kitchen, not even glancing at me. He normally didn’t come home this drunk—even though I knew he snuck sips at work.
-
-My mom tensed.
-
-“Phillip, what’s the matter?” she asked, voice shaky.
-
-He didn’t answer. Just shoved past her and grabbed one of the bottles of Jim Beam from the cabinet. One of eight.
-
-He took a huge swig.
-
-“Did something happen at work?” she asked again, more hesitantly this time.
-
-Usually, he’d come home, pour a drink, sit in his recliner, and watch whatever game was on. My mom would bring him dinner without a word.
-
-But this night was different.
-
-“Phillip, talk to me,” she tried again.
-
-“I can’t take it here anymore!” he roared, five inches from her face. Then he hurled the bottle to the ground. It shattered into a sticky mess of glass and alcohol. I flinched.
-
-My mom froze. She looked up at him, eyes wide.
-
-But instead of screaming more, he grabbed another bottle and stormed out the door.
-
-He never came back.
-
-The next morning, cops showed up at our door. My dad had driven his Ford Explorer off the road. No other cars or pedestrians were involved. They asked my mom to come identify the body. I stayed home and drew in my sketchbook.
-
-When she returned, she looked emptier than I’d ever seen her.
-
-Soon after, we found out my dad had been drowning in debt. My mom never explained how or why. She didn’t talk about it.
-
-Eventually, we were forced to move into a tiny apartment in a run-down part of Illinois.
-
-My relationship with her fractured more every day. She got a job waitressing at some dive bar, doing anything to keep food on the table. She worked odd hours and left me home alone most nights. Now, I get a call from her maybe once a month. The conversations don’t last long. It feels like obligation, not love.
-
-The trauma stuck with me.
-
-By fifteen, I was in juvie for beating a kid so bad he needed reconstructive surgery. I got off easy—eight months in juvie, two years probation. Dropped out of high school at seventeen. Now I work full-time at Walmart and live in an even worse apartment. I never got my GED. My criminal record keeps me from getting hired anywhere else.
-
-I moved out at eighteen and haven’t had a goal since. My life just... is. Has been for a while.
-
-A few months ago, after a long day at work, I was waiting for my roommate Johnny to bring jumper cables. My battery had died during my double shift.
-
-Johnny and I met in juvie. He was the only one who showed me the ropes—taught me what food not to eat, how to keep the tough kids away.
-
-That night, the moon lit up the Walmart parking lot. I leaned against my 1998 Chevy Cavalier, smoking my third cigarette. Johnny said he’d be there "soon"—two hours ago. I hoped he wasn’t passed out drunk watching WrestleMania again. That happened more than I’d like to admit.
-
-I was about to walk home when a black Kia pulled up.
-
-A large man in his late 40s stepped out. Tattoos covered both arms.
-
-“You okay, son? It’s late to be hanging out at Walmart.”
-
-I hesitated, but told him the truth.
-
-“Yeah. My car won’t start. Waiting for a jump.”
-
-“I’ve got cables in the trunk. Want to use mine?”
-
-“That’d be great. Thanks.”
-
-He popped the trunk, hooked up the cables, and we stood there in silence for a bit. Eventually, he tried for small talk.
-
-“Where you from?”
-
-“Naperville.”
-
-“Nice area,” he muttered.
-
-After a few minutes, I turned the key. The engine hummed to life. Relief.
-
-But he didn’t leave right away. Instead, he asked:
-
-“You ever heard of the Windmill People?”
-
-I blinked. “What?”
-
-“The Windmill People.”
-
-I squinted at him, suddenly unsure.
-
-“No. Why?” I asked, eyebrows furrowed. Is this guy about to launch into some conspiracy cult nonsense? “Windmill People” sounded like a dollar store version of the Ant Hill Kids.
-
-He looked like he wanted to explain, but he paused.
-
-“You just seem—”
-
-HONK!
-
-Johnny’s obnoxious horn cut him off as he pulled into the lot, stoned out of his mind. Typical. He parked next to us and nearly flew out of his beat-up Corvette.
-
-“Dude, sorry! Sarah had a freakout and I had to—uh... who’s this?” he asked, noticing the man beside me.
-
-“Well, since you took so long, someone else actually showed up to help,” I snapped.
-
-“Oh. Hi, I’m Johnny! Thanks for saving my bestest friend,” he said with a dopey grin. I shot him a glare.
-
-The man chuckled. “Well, now that your friend’s here, I’ll be heading out.”
-
-“Thanks,” I said, sticking out my hand.
-
-“I’m Terrence.”
-
-“Evan.”
-
-He drove off. I turned to Johnny, who looked sheepish.
-
-“What the fuck, man?”
-
-“I know. I screwed up. L.S.D. for a week to make up for it?”
-
-L.S.D. meant laundry, supper, dishes. We came up with it at fifteen. Don’t judge us.
-
-“Make it two. I work the early shift tomorrow.”
-
-“Deal. Car good?”
-
-“Seems fine. Just follow me home, yeah?”
-
-He nodded with an understanding grin.
-
-We left.
-
-As we drove away, I couldn’t stop thinking about the question Terrence had asked me.
-
-“Make it two. I open tomorrow.”
-
-He held up his hands like he’d been arrested. “Fair. Totally fair.”
-
-I lit another cigarette. “You at least sober enough to follow me home?”
-
-He gave me finger guns. “Sober? Never. Functional? Always.”
-
-I rolled my eyes and got in my car.
-
-ay over my head. I have no idea what I’m dealing with or what to do about my situation. If anyone out there has information—any at all—I’d appreciate it. The facade of my life is in shambles. More than it was before, even.
+I am writing this because I am in way over my head. I have no idea what I’m dealing with or what to do about my situation. If anyone out there has information—any at all—I’d appreciate it. The facade of my life is in shambles. Evan more than it was before.
 
 Don’t get me wrong—I had a charmed life compared to others. A nice suburban neighborhood. A dad who was a lawyer. A stay-at-home mom. A little brother. On paper, it was perfect. But it all felt so hollow. Superficial.
 
@@ -216,7 +54,7 @@ Soon after, we found out my dad had been drowning in debt. My mom never explaine
 
 Eventually, we were forced to move into a tiny apartment in a run-down part of Illinois.
 
-My relationship with her fractured more every day. She got a job waitressing at some dive bar, doing anything to keep food on the table. She worked odd hours and left me home alone most nights. Now, I get a call from her maybe once a month. The conversations don’t last long. It feels like an obligation, not love.
+My relationship with her fractured more every day. She got a job waitressing at some dive bar, doing anything to keep food on the table. She worked odd hours and left me home alone most nights. Now, I get a call from her maybe once a month. The conversations don’t last long. It feels like obligation, not love.
 
 The trauma stuck with me.
 
@@ -346,7 +184,9 @@ The blue screen flickered, then shifted to grainy footage of my parents. My mom 
 
 That alone was disturbing. They’d never shown each other affection. Not once, not in front of me.
 
-The footage glitched, then cut to a new recording.
+The footage gli
+
+tched, then cut to a new recording.
 
 My mom was talking to a man, her face tight with distress. It was hard to make out the guy’s face because of the lighting, but he wore a purple robe—completely out of place for late spring. He was holding something.
 
