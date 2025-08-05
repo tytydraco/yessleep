@@ -1,4 +1,4 @@
-[Part 5](https://www.reddit.com/r/nosleep/comments/1lv866d/bloody_numbers_have_been_appearing_on_my_hand_i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 5](https://www.reddit.com/r/nosleep/comments/1lv866d/bloody_numbers_have_been_appearing_on_my_hand_i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Final Part](https://www.reddit.com/r/nosleep/comments/1mhtoka/bloody_numbers_have_been_appearing_on_my_hand_i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 The cycle of running for my life and losing consciousness was getting old. I supposed this time I felt safer being in the hotel room. I was grateful no one had captured me while I slept, though I wondered if I had truly slept at all. I was not sure, but the bloody three on my hand, reminded me that sleep was not the concern just then.
 
