@@ -74,7 +74,7 @@ Not worth it.
 
 I was about to close the book when a fresh page caught my eye. The ink was still wet.
 
-REMI ASHFORD – RULES: PENDING
+REMI XXXXXXX – RULES: PENDING
 
 No rules. Just my name. Waiting.
 

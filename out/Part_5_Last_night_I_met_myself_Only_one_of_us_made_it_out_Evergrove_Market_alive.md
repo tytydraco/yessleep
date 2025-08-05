@@ -136,9 +136,7 @@ No Selene.
 
 Only a single scrap of paper stuffed behind the mirror, the same place I had found the promotion note, written in shaky block letters:
 
-“my name is selene
-
-Selene Nodern..”
+“my name is selene...”
 
 The handwriting looked frantic, like someone trying to leave proof that they’d been real. I tore my eyes away. The air inside was so thick with heat it felt alive. I left to find the ledger.
 
@@ -152,7 +150,7 @@ Even the wrong ones.
 
 Inside, the pages weren’t paper so much as skin. The ink sank into it like veins. I flipped past symbols that moved when I blinked, past names I didn’t dare read out loud, until I found it.
 
-Selene Nodern.
+Selene XXXXX.
 
 The letters swam, like they knew I was watching.
 
