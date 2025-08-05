@@ -421,8 +421,6 @@ My shoulder burned hotter now. The handprint wasn’t just a bruise anymore—it
 
 Tomorrow was the evaluation. And I was already marked.
 
-So if you ever visit Evergrove Market,
-
-**don’t look at the freezer doors.**Not even for a second.
+So if you ever visit Evergrove Market, don’t look at the freezer doors. Not even for a second.
 
 Some things don’t like being seen.
