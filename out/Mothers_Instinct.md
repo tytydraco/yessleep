@@ -412,7 +412,7 @@ Emma laughs.
 
 I turn to see Reese and Blake and they look traumatized.
 
-“Hey guys, Taylor will be okay. Just a boo boo. Let’s keep playing and he will join us when he’s ready.”, I say, patting both of them on the shoulder.
+“Hey guys, Taylor will be okay. Just a boo boo. Let’s keep playing and she will join us when she’s ready.”, I say, patting both of them on the shoulder.
 
 “Reese, why don’t you show her your swing?”, I suggest.
 
