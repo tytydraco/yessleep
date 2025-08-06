@@ -134,7 +134,7 @@ Next thing I know, its after 2:00am and I was behind the wheel of my car... drun
 
 I was taking the curves too fast. The radio was off but I was singing at the top of my lungs when a figure in the road appeared. 
 
-My brain was not registered or reacting quick enough. By the time I hit the brake, it was too late. 
+My brain was not registering or reacting quick enough. By the time I hit the brake, it was too late. 
 
 I hit the figure. Hard. 
 
@@ -154,7 +154,7 @@ I heard his voice, deep and rough.
 
 "Help... I see you..."
 
-I panicked. If I called this in, I'd lose everything, everything being Jake and we had built. I'd go to jail possibly for life.
+I panicked. If I called this in, I'd lose everything, everything being Jake and what we had built. I'd go to jail possibly for life.
 
 I looked around at my surroundings. Mostly woods, a few houses farther down the road, completely darken. No lights, no people, no witnesses.
 
