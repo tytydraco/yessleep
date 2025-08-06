@@ -1,4 +1,4 @@
-Part 1 | [Part 2](https://www.reddit.com/r/nosleep/comments/1lz8ygr/i_work_as_a_librarian_in_the_old_town_library_we/)
+Part 1 | [Part 2](https://www.reddit.com/r/nosleep/comments/1lz8ygr/i_work_as_a_librarian_in_the_old_town_library_we/) | [Finale](https://www.reddit.com/r/nosleep/comments/1mivdx1/i_work_as_a_librarian_in_the_old_town_library_we/)
 
 I have now worked for a week in my new job at the old city library-and a creeping suspicion has taken hold of me that this library conceals far more than meets the eye.
 

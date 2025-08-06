@@ -67,7 +67,6 @@ A few months ago, after a long day at work, I was waiting for my roommate Johnny
 Johnny and I met in juvie. He was the only one who showed me the ropes—taught me what food not to eat, how to keep the tough kids away.
 
 The moon was full and the lot was dead quiet. I leaned against my '98 Cavalier, smoking my third cigarette while waiting for Johnny to bring jumper cables. We lived ten minutes away.
- I leaned against my '98 Cavalier
 
 It had been two hours.
 

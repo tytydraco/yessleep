@@ -139,3 +139,5 @@ The black deer reared back. It looked me in the eyes—really, really looked, li
 It pulled back with as much violence as it had speared me.
 
 I thought the final blow was coming. I thought my death was coming, [too](https://www.reddit.com/user/DickinsonPublishing/).
+
+\[*See*: [Part 2](https://www.reddit.com/r/nosleep/comments/1mjihod/i_found_the_mummified_remains_of_the_biggest_deer/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)\]
