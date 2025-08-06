@@ -315,3 +315,5 @@ The whole ordeal did give me a lot more insight into how Ann thinks, however. I 
 For now, though, I’m alive. In pain and concussed, but alive. Maybe now that I have to take it easy for a bit while I heal, I can work at trying to get the signal better again. I’m still dying to know what you’re all making of this.
 
 Thanks for sticking with me so far. I’ll update you again soon.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1li8jly/im_trapped_on_the_edge_of_an_abyss_i_finally_know/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
