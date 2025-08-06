@@ -1,6 +1,6 @@
-I am writing this because I am in way over my head. I have no idea what I’m dealing with or what to do about my situation. If anyone out there has information—any at all—I’d appreciate it. The facade of my life is in shambles. Evan more than it was before.
+I am writing this because I am in way over my head. I have no idea what I’m dealing with or what to do about my situation. If anyone out there has information—any at all—I’d appreciate it. The facade of my life is in shambles. Even more than it was before.
 
-Don’t get me wrong—I had a charmed life compared to others. A nice suburban neighborhood. A dad who was a lawyer. A stay-at-home mom. A little brother. On paper, it was perfect. But it all felt so hollow. Superficial.
+Don’t get me wrong—I had a charmed life compared to others. A nice suburban neighborhood. A dad who was a lawyer. A stay-at-home mom. And food on the table. On paper, it was perfect. But it all felt so hollow. Superficial.
 
 Even though I grew up with two parents, a house, and went to one of the top schools in the area, I never felt like I knew who they really were. It seemed like we had the ideal American lifestyle. Emphasis on “seemed.” They fed me, bathed me, took me to school. But they never comforted me when I cried. Never read me bedtime stories. Never hung my art on the fridge—even the ones I was proud of.
 
@@ -114,12 +114,6 @@ We let the cars sit for a bit longer just in case. That’s when he said it.
 
 “You ever heard of the Windmill People?”
 
-I gave him a look. “...What?”
-
-“The Windmill People.”
-
-Oh no. Not this shit.
-
 I squinted, already preparing to disengage. “No. Why?”
 
 He tilted his head like he was trying to read something written on my soul. “It’s just—you seem—”
@@ -161,12 +155,6 @@ I lit another cigarette. “You at least sober enough to follow me home?”
 He gave me finger guns. “Sober? Never. Functional? Always.”
 
 I rolled my eyes and got in my car. As we drove away I pondered the question Terrence asked me. 
-
-
-
-
-
-
 
 The next few days were a blur. I barely slept. I lived off Monster and nicotine just to stay awake. On my day off, I finally had a moment to breathe. I stayed in my room sketching a phoenix with colored charcoal—commission work. It helps me earn a little extra. Drawing has always been an escape. An escape from my dad’s belligerent yelling. From the constant ache of a neglected childhood. From my lifeless side-life.
 
