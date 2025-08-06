@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1lugeoq/i_work_as_a_librarian_in_the_old_town_library_we/) | Part 2
+[Part 1](https://www.reddit.com/r/nosleep/comments/1lugeoq/i_work_as_a_librarian_in_the_old_town_library_we/) | Part 2 | [Finale](https://www.reddit.com/r/nosleep/comments/1mivdx1/i_work_as_a_librarian_in_the_old_town_library_we/)
 
 Since that ill-omened day when I rediscovered the book amidst the other volumes - that dark turning point marking the onset of my inexorable descent into a realm beyond human reason - weeks have passed whose torments have shackled both heart and mind.
 
