@@ -26,7 +26,7 @@ My mom tensed.
 
 “Phillip, what’s the matter?” she asked, voice shaky.
 
-He didn’t answer. Just shoved past her and grabbed one of the bottles of Jim Beam from the cabinet. One of eight.
+He didn’t answer. Just shoved past her and grabbed one of the bottles of his usual beverage of choice from the cabinet. One of eight.
 
 He took a huge swig.
 
@@ -66,13 +66,8 @@ A few months ago, after a long day at work, I was waiting for my roommate Johnny
 
 Johnny and I met in juvie. He was the only one who showed me the ropes—taught me what food not to eat, how to keep the tough kids away.
 
-That night, the moon lit up the Walmart parking lot. I leaned against my 1998 Chevy Cavalier, smoking my third cigarette. Johnny said he’d be there "soon"—two hours ago. I hoped he wasn’t passed out drunk watching WrestleMania again. That happened more than I’d like to admit.
-
-I was about to walk home when a black Kia pulled up.
-
-A large man in his late 40s stepped out. Tattoos covered both arms.
-
-It was late. The moon was full and the lot was dead quiet. I leaned against my '98 Cavalier, smoking my third cigarette while waiting for Johnny to bring jumper cables. He lived ten minutes away.
+The moon was full and the lot was dead quiet. I leaned against my '98 Cavalier, smoking my third cigarette while waiting for Johnny to bring jumper cables. We lived ten minutes away.
+ I leaned against my '98 Cavalier
 
 It had been two hours.
 
@@ -80,15 +75,6 @@ I checked my phone again. Nothing.
 
 I swear, if that idiot passed out mid-WrestleMania with a beer in one hand and a corndog in the other...
 
-I was about to say screw it and walk home when a black Kia rolled up. Out stepped this big guy, late 40s maybe, with colorful tattoo sleeves, like he got drunk at a biker bar and told the artist, “Surprise me.”
-
-It was late. The moon was full and the lot was dead quiet. I leaned against my '98 Cavalier, smoking my third cigarette while waiting for Johnny to bring jumper cables. He lived ten minutes away.
-
-It had been two hours.
-
-I checked my phone again. Nothing.
-
-I swear, if that idiot passed out mid-WrestleMania with a beer in one hand and a corndog in the other...
 
 I was about to say screw it and walk home when a black Kia rolled up. Out stepped this big guy, late 40s maybe, with colorful tattoo sleeves, like he got drunk at a biker bar and told the artist, “Surprise me.”
 
@@ -120,7 +106,7 @@ He tilted his head like he was trying to read something written on my soul. “I
 
 *HONK HONK HONNNNK.*
 
-And cue *Johnny*.
+Almost on que Johnny pulled up.
 
 His piece-of-crap Corvette swerved into the parking lot like it had three wheels and a dream. The door flung open and out he came, stoned off his ass but still moving like he’d just been shot out of a cannon.
 
@@ -172,9 +158,7 @@ The blue screen flickered, then shifted to grainy footage of my parents. My mom 
 
 That alone was disturbing. They’d never shown each other affection. Not once, not in front of me.
 
-The footage gli
-
-tched, then cut to a new recording.
+The footage glitched, then cut to a new recording.
 
 My mom was talking to a man, her face tight with distress. It was hard to make out the guy’s face because of the lighting, but he wore a purple robe—completely out of place for late spring. He was holding something.
 
