@@ -14,7 +14,7 @@ We hopped in bed, gave each other a goodnight kiss, cut the main light off in ou
 
 I awoke with a start and was confused. After blinking a few times and letting myself become more focused, I glanced at the alarm clock on my nightstand to see 2:32am in bold red. 
 
-I turned to over to face towards Jake and immediately froze. Jake was laying flat on his back, arms laying perfectly still by his sides but his head was turned towards me, he had blank expression but his eyes were wide open staring directly into my soul. 
+I turned over to face towards Jake and immediately froze. Jake was laying flat on his back, arms laying perfectly still by his sides but his head was turned towards me, he had blank expression but his eyes were wide open staring directly into my soul. 
 
 I literally stopped breathing. I just stared back into his wide, unblinking eyes for several seconds before reality sank back into my brain and I realized something had to be horribly wrong. 
 
@@ -78,7 +78,7 @@ It was like slapping a solid rock. Cold and unmoving. He didn't respond at all. 
 
 I turned away to reach for my phone again, only to hear the sound of him snoring. I jerk my head to see him, once again, sound asleep. Eyes closed, face relaxed.
 
-I snatched my phone off the nightstand and headed out of the room to the couch in our den. I switch on the light and grabbed the blanket off the couch. 
+I snatched my phone off the nightstand and headed out of the room to the couch in our den. I switched on the light and grabbed the blanket off the couch. 
 
 I snuggled under the blanket as I laid on the semi-comfortable cushions. I searched up night terrors, trying my best to convince myself that was all it was. No matter what I read, I could not bring myself to go back into the bedroom with him. 
 
