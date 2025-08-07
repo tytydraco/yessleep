@@ -62,3 +62,6 @@ Miranda and I walked a little closer to them. There wasn't much to see but vast 
 I turned back around to the baseball area, just to be greeted by a familiar face, walking up the tribune. It looked even smaller compared to his enormous size. It was Marc, only, it wasn't. I finally saw him clear again after not seeing him at all for many days. Where his piercing blue eyes once were, was now a bottomless pit of pure blackness. 
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/1m8u1g4/limit_lane_city_part_5/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=2)
+
+
+[Part 7](https://www.reddit.com/r/nosleep/s/hFyb1u9Vkg)
