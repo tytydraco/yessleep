@@ -401,7 +401,7 @@ I don’t want to. But my hands move on their own.
 
 I write my name beneath the others:
 
-Darrell Coon – Permanent Guest
+Darrell Cole – Permanent Guest
 
 And then I’m gone.
 
