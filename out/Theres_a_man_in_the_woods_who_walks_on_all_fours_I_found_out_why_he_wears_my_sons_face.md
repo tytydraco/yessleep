@@ -174,42 +174,40 @@ But I couldn’t do it. Maybe all the fight had gone out of me. Or maybe I hated
 
 And that thought broke me. 
 
-My knees gave out, and crumpled before him, sobbing. I don’t know how long I cried. Hours. Days. It’s hard to say when your heart is spilled open like that. What I do know is he sat there through all of it. He never moved. He let every one of my tears crash against him, and it was only once I’d finished that he pointed over my shoulder at the trees. “For… you…” 
+My knees gave out, and crumpled before him, sobbing. I don’t know how long I cried. Hours. Days. It’s hard to say when your heart is spilled open like that. What I do know is he sat there through all of it. He never moved. He let every one of my tears crash against him, and it was only once I’d finished that he pointed over my shoulder at the trees. 
 
-His voice was frail.
+“For… you…” His voice was frail.
 
-“I’m… sorry…Cain…”I turned, sniffling, and saw the sketchpad I’d snatched from his hands. Its pages rippled in the breeze, bleeding in the light of the setting sun. “I don’t want your stupid doodle book,” I said. “I want my son. I want my wife.”
+I turned, sniffling, and saw the sketchpad I’d snatched from his hands. Its pages rippled in the breeze, bleeding in the light of the setting sun. 
 
-But when I looked back, the Stranger was gone. He’d left without a word. Without so much as a wave. For a second, I almost left it there, rising to march back to my truck, but something called to me. So I turned. 
+“I don’t want your stupid doodle book,” I said. “I want my son. I want my wife.”
+
+But when I looked back, the Stranger was gone. He’d left without a word. Without so much as a wave. For a second, I almost left it there, rising to march back to my truck, but something about it called to me. So I turned. 
 
 I picked up the sketchpad and gazed at his last drawing—it was familiar. I’d seen it before, only briefly, when he’d emerged from the woods with Charlie so long ago. A smile broke on my face. And I laughed, wiping tears from my cheeks as I wandered back to the log, sitting down and beaming.
 
-It was a drawing of us. Charlie. His mother. Me.
+It was a drawing of us.
 
-It was a whole lifetime captured in a single image, fifty years of joy and love and hope and all the ingredients a human could ever desire. And as I stared at that charcoal sketch, I got to live every single moment of it, over and over. 
+Charlie. His mother. Me.
 
-I held it to my chest, and I looked up to find a star-soaked sky.
+It was a whole lifetime captured in a single image, fifty years of joy and love and hope and all the ingredients a human could ever desire. And as I stared at that charcoal sketch, I got to live every single moment of it. 
+
+I clutched it against my chest, and I looked up to find a star-soaked sky. And with a heavy heart, I said goodbye to the Stranger. 
 
 “Thank you,” I whispered. “For doing your best.”
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-That was twenty years ago. Things have changed since then. The Beast has been rampaging across the cosmos for two decades now, and you can feel it. All of you can. 
+That was twenty years ago, back in 2005. Things have changed since. The Beast has been rampaging across the cosmos, making meals of whole galaxies. You can feel it in the fabric of things. It's hard to miss, the way the balance has shifted. 
 
-Sure, the world hasn’t ended. Not yet. It’s just unwell.
+Sure, the world hasn’t ended. Not yet. But it's unwell. More angry. More loud. 
 
-Angrier. Louder.
+People are scared. Fear has become a virus, omnipresent and contagious, eating at our hearts and souls, leaving us emptier with each passing moment. 
 
-People are scared and they’re getting worse by the day. Fear has become a virus, omnipresent and contagious, eating at our hearts and souls, leaving them emptier with each passing moment. 
+You see it in the faces of one another. In the way we’re always arguing, always at each other's throats. You see it in the stars. The way they feel further away, night after night, each of them slowly fading to black. 
 
-You see it in the faces of people. In the way we’re always arguing, always at each other's throats. You see it in the stars. The way they feel further away, night after night, each of them slowly fading to black. 
+Life doesn’t feel like it used to. Reality has changed. It feels hopeless these days, and maybe it is. Or maybe things are only returning to the way they were---the way they always should have been. 
 
-Life doesn’t feel like it used to. Reality has changed. If it feels hopeless these days, it’s because it is, but that doesn’t mean you need to be afraid. Things are only returning to the way they were. The way they always should have been. 
-
-See, we’ve always told stories, human beings. It’s how we make sense of our existence, through narrative, through structure. 
-
-Our favorites tend to be the ones about heroes—about good triumphing over evil, as if it’s the natural order of things, as if we never need to worry about our position in the cosmos because light will always prevail. But the stories forget that the darkness came first. 
-
-It’s the light that’s trespassing.  
+After all, the darkness came first. It's the light that's trespassing. 
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)

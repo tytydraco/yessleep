@@ -170,3 +170,4 @@ Please stay safe in the meantime. God bless you all, and God bless the United St
 
 END TRANSCRIPT - 1 
 
+TRANSCRIPT 2 - https://www.reddit.com/r/nosleep/s/Pmj4mPgRCb
