@@ -141,7 +141,7 @@ I don’t know what that means. I’m not religious. I don’t go to church. I�
 
 So here it is. My warning. If you live near a church, or a mosque, or a synagogue, go. Pray to anything.  I don't know what being this thing serves, but something has to be better than nothing.
 
-And if you’re in a city, get out. I think that’s where it’s going to start. I keep seeing fire and ash. People kneeling in the streets. Places I know, burning.
+And if you’re in a city, get out. I think that’s where it’s going to start. I keep seeing fire and ash. People kneeling in the streets. Places I know burning.
 
 I don’t know how much time we have.
 
