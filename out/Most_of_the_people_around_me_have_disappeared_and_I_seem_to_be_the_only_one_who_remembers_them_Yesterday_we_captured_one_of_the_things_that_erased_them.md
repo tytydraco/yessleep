@@ -323,3 +323,7 @@ He only got a few words out:
 At the same time, Dr. Wakefield said:
 
 ["Who's Leah?"](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+
+\- - - - - 
+
+EDIT:[ PART 2](https://www.reddit.com/r/nosleep/comments/1mk5aui/most_of_the_people_around_me_have_disappeared_and/)
