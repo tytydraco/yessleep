@@ -88,7 +88,7 @@ Easy I thought. I ran through the water door and was greeted by the same blue ha
 
 
 
-Moving through I felt a wet squish of carpet beneath me and looking down I could see the hall was beginning to flood. My pace quickened and as I reached the file cabinet the water had already reached my knees. I looked back, though I wish I didn't. The old women was staring at me and immediately got up. Her form was massive, maybe eight feet tall. I yelled and turned to see my new choices.
+Moving through I felt a wet squish of carpet beneath me and looking down I could see the hall was beginning to flood. My pace quickened and as I reached the file cabinet the water had already reached my knees. I looked back, though I wish I didn't. The old woman was staring at me and immediately got up. Her form was massive, maybe eight feet tall. I yelled and turned to see my new choices.
 
 
 
