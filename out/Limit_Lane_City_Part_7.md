@@ -95,3 +95,5 @@ The food wasn't back. It was more than just that. I forced my weak legs up the s
 I ripped off a glazed turkey's leg and took a big bite. I swear, I had never tasted anything like it in my whole life. But maybe the hunger skewed my perception a bit. The sounds of masses of people chewing and slurping dampened it's magic. In the middle of the store, on the platform where the old gods head was propped up, lay now an enormous roasted suckling pig. Its dark red skin glimmered in the perpetual sunlight. Fresh fruits were stacked up around it and an apple adorned it's mouth. As I ripped out another piece of the turkey with my teeth I stared into its blank dead eyes and wondered: Were the people taken in exchange for this feast merely payment, or perhaps ingredients.
 
 [Part 6](https://www.reddit.com/r/nosleep/s/b7nUMQj8Dq)
+
+[Part 8](https://www.reddit.com/r/nosleep/s/WEzqQvBvsK)

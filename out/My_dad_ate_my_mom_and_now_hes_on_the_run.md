@@ -18,7 +18,7 @@ I was surprised to hear my father giving me the command. He wasn’t normally ho
 
 “I left early to make dinner,” he said, rounding the corner. He looked bizarre. He was always a bit detached, but now it was in an unhinged sort of way. His tie was loosened. One side of his collar stood up like alfalfa. And his usually well-groomed hair now hung down in his face, which was slick with perspiration. He wore a stained apron over his work suit, and his feet were bare.   
 
-“It’s not even four yet, Dad?”
+“It’s not even four yet, Dad.”
 
 He stood there for a moment, almost like I hadn’t said anything at all. Then he sprang to life. 
 
