@@ -50,7 +50,7 @@ You never touch the unexplainable thing.
 
 But this was real life. I was not in a movie. My job was to clean and, to a lesser degree, organize the bloodbank at night, and I couldn’t imagine that didn’t include any and all rogue bedlinens. So I touched the sheet.
 
-I swear, it made a sound. Like it was purring. Then it floated up toward the air vent over the last toilet stall, and slithered through the grill toward parts unknown.
+I swear, it made a sound. Like it was purring. Then it floated up toward the air vent over the last toilet stall, and slithered through the grill, then off to parts unknown.
 
 •
 
