@@ -126,7 +126,7 @@ I tried to reply but my voice failed me. Nothing came out. I’ve never felt so 
 
 My heart raced painfully in my chest, and my breathing was irregular. I think I may have been having a panic attack. 
 
-“Maybe we can practice with the bat”
+“Maybe we can practice with the bat.”
 
 SMASH!
 
