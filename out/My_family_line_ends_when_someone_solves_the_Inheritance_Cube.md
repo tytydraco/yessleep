@@ -56,7 +56,7 @@ My heart jumped into my skull. I almost choked on a piece of spicy pepperoni.  
 
 An otherworldly *coldness* seeped out of the cube. But not through any kind of breeze or wind, it was more of a *pulsating coldness*, a sort of invisible radiation. The chill permeated from the puzzle, and spilled around my body, and gaming chair.
 
-Something inside me could sense the cube was channeling an ethereal *awfulness* from a far off place. Perhaps an impossible place...
+Something inside me could sense the cube was channeling an ethereal awfulness from a far off place. Perhaps an impossible place...
 
 I flipped over the printed note. On the reverse side was a riddle.
 
@@ -159,7 +159,7 @@ My chonky adult hands couldn’t make half the moves his dexterous little Swedis
 
 The oven was sweltering. My hands were dripping from sweat. I could barely twist the cube properly, and I kept having to restart because this fucking Swedish kid’s tutorial was going *way* too quickly. 
 
-“Wal! Don’t forget there’s that trick to get the oven element to\*—\*”
+“Wal! Don’t forget there’s that trick to get the oven element to—"
 
 “—Not now mom! I’m trying to solve uncle’s stupid fucking thing! Leave me alone!”
 

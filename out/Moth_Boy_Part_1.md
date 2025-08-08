@@ -1,3 +1,5 @@
+\[Part 1\] - \[[Part 2](https://www.reddit.com/r/nosleep/comments/1ml9de6/moth_boy_part_2/)\]
+
 I’ve been reluctant to do this for many years. Friends and family have asked me to tell them about the Moth Boy for years, but I’ve declined. Perhaps they think I just have a creepy anecdote, or a fun factoid. Not a lot of people know I’ve been there since the beginning.
 
 For reasons that will become apparent, I’ve been motivated to look closer at my experience with this person. Moth Boy. A stupid nickname. Funny, even. Like a sidekick to an insectoid superhero.
