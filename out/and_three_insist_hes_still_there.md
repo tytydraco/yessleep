@@ -5,7 +5,7 @@ It’s a decades-old joke. Cliche “boomer humor”. Probably been told almost 
 
 A man doesn’t come home one night. The next day he tells his wife that he slept over at a friend’s house. The wife calls her husband's five best friends. All of them say he had slept over, and three claim that he was still there.” 
 
-Of course, the number of friends varies, etc, but it’s a pretty specific joke, so it has fewer forms than most. It’s just there to go “Haha! Women’s friends are catty and insincere while boys are rude-or-die for the guy who said ‘nice shirt’ one time at a Wendy’s—cliche stereotype stuff. 
+Of course, the number of friends varies, etc, but it’s a pretty specific joke, so it has fewer forms than most. It’s just there to go “Haha! Women’s friends are catty and insincere while boys are ride-or-die for the guy who said ‘nice shirt’ one time at a Wendy’s—cliche stereotype stuff. 
 
 Now, if the joke happened to you, unlike some weirder ones you wouldn’t bat an eye. Either your friends suck, or they're awesome depending on which side of the joke you're playing. But, well… you’ll understand in a moment I guess. 
 
