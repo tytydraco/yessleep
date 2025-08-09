@@ -8,7 +8,7 @@ They understood the value that sports played in social development, as well as h
 
 They cared in their own way, I suppose. At least my mom did, I think. She showed the most potential for being human. Perhaps that was her downfall.
 
-I threw open the front door and was assaulted by an array of aromas. There was onion, and maybe garlic. Very typical. The canned peas were obvious, and whether you loved them or hated them, they were very distinct. There was also a bit of a smokey or slightly burnt-meat smell. Beef perhaps. Or maybe pork. But underneath it all, was a very bizarre odor. It was pungent, but it was hard to identify. The other smells masked it so perfectly, I almost thought I imagined it. It was like a phantom.
+I threw open the front door and was assaulted by an array of aromas. There was onion, and maybe garlic. Very typical. The canned peas were obvious, and whether you loved them or hated them, they were very distinct. There was also a bit of a smokey or slightly burnt-meat smell. Beef perhaps. Or maybe pork. But underneath it all, was a very peculiar odor. It was pungent, but it was hard to identify. The other smells masked it so perfectly, I almost thought I imagined it. It was like a phantom.
 
 “Shoes off,” a voice called from the kitchen.
 
@@ -122,7 +122,7 @@ I heard the coat closet slide open. I perked up and listened intently; holding m
 
 I tried to reply but my voice failed me. Nothing came out. I’ve never felt so helpless in my life. The closest phenomenon I can relate it to is sleep paralysis. But there was no “dream demon”. Only the demon I had formally known as “dad”. 
 
-“How about a game of catch with your old man?
+“How about a game of catch with your old man?"
 
 My heart raced painfully in my chest, and my breathing was irregular. I think I may have been having a panic attack. 
 
