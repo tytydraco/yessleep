@@ -2,7 +2,7 @@
 
 *That's because it is.*
 
-*As the road lengthens, new side streets may appear. Ddo not take these, however alluring. Gas stations may pop up to fill in stretches of empty desert. Be wary of purchasing snack brands you have never heard of or that do not exist. Cacti will show up every few miles that weren't there on your last drive. These are just cacti.* 
+*As the road lengthens, new side streets may appear. Do not take these, however alluring. Gas stations may pop up to fill in stretches of empty desert. Be wary of purchasing snack brands from them you have never heard of or that do not exist. Cacti will show up every few miles that weren't there on your last drive. These are just cacti.* 
 
 *No need to fear the cacti.*
 
