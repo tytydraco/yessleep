@@ -1,101 +1,13 @@
-*Time of death 7:44 pm* 
+I was at my grandparents' house, in the dining room, playing cards with my parents and uncles. It was around 11’oclock, maybe closer to midnight. I was 12 years old and it was summer break I was visiting my grandparents house in Maine for a family reunion. The house was in a very rural area and the closest town was about an hour drive away. You couldn’t see any of the closest houses from any point on the, multi-acre, farm-like, property. I mean, it was really in the middle of nowhere. I remember having the worst nightmares about that place for a good deal of my childhood. I remember some about spiders. Some about clowns. Some about, strangely enough, mummies.  But none of them were as terrifying as what happened that night.
 
+So, we were playing cards and I had been drinking a lot of Pepsi that night so I had to pee… real bad. I got up from the table, ran to the bathroom, and heard the shower running. I knocked on the door and my uncle Greg was in the shower.  I just saw him in the living room moments ago so I know this shower had just started. It was the only bathroom other than the one in the basement.  And I couldn’t go to the one in the basement. I never could; That basement was, and still is very scary. Just dark, concrete, and weird metal sounds coming from the old wood burning furnace. But, honestly, looking back I really wish I just went to the cellar bathroom. 
 
+My scared 12 year old mind had no other choice but to go outside at night to relieve my bladder. Now, I wasn’t stupid, I knew there was a motion sensor light on the side of the house, so once I got to there I would have plenty of time in the light to pee. I stood at the front door grasping the old brass knob in my hand. I could feel some bumps and scratches from years of use. Squeezing the cool metal helped me gather my courage enough to go out into the dark night. I opened the door and ran out of the house as fast as I could , jumping off the porch. And safely making it to the side of the house with the motion sensor light. It turned on and I started to pee.
 
-*“Beep, Beep, Beep”* A constant beeping, i can't escape it, i cant… I said this in my head as I woke up prepared to go to one of my last days of highschool ever. I got out of bed and threw some clean clothes on before walking by my mom saying bye “Mark make sure to do your chores when you get home” yeah, absolutely not. I get in my car and head to school just like normal 
+I wasn’t much into my piss when I started to feel a real eerie and heavy feeling. Suddenly, I felt my eyes begin to water. I looked up and saw an empty field and a dark treeline at the horizon... Then, I saw it... My pee stopped immediately and a shiver went up my spine. I was frozen. In the distance, along the treeline, I see something, I can’t tell what it is. I know its something because it's blacker than the rest of the dark. It was a shadow and it was taller than the trees. But I could barely make it out. I felt it, the presence of an animal that knows you are there. But this was definitely not an animal or a human. I remember thinking “is my mind playing a trick? Is this real.”  But I knew it was alive. Then the motion sensor light went out. And it got dark.
 
+I don’t know if you have ever experienced middle of nowhere darkness. But it went from light bulb bright to pitch black. I couldn’t see my own hands, if I had the strength to move them at the time. In this pitch black nothingness, my eyes were still focused on it. The thing I saw. I could still see Its darkness through the pitch black. I couldn’t move, I was terrified to take my eyes off it. I don’t know how much longer I stood there, paralized, trying to figure out what this thing was, but eventually my uncle came out and yelled “Bathrooms free.” And I snapped out of it, I turned around as quick as I could and ran to the front door, making sure not to look back. I made it in safely and I didn’t tell anyone what I saw. I was scared they wouldn’t believe me. I mean, I don’t even know what I saw.
 
+The next night I couldn’t hold it and curiosity got the best of me. Somehow, I found myself back at the front door grasping at the doorknob. I was there for a little longer this time and was squeezing the handle a lot harder. I swear, I made more dents in it that night, I was grabbing it so tight. But I found the courage to go out into the dark again, running to activate the light. It turned on and I looked out. I scanned the shadowed treeline for so long. And I saw nothing… there was nothing there. And yet, suddenly, my eyes began to water as the motion light went out.
 
-*8:39 am* 
-
-
-
-I sat in the first hour as bored as ever, god i hate math and just when i thought it couldn't get any worse the fire alarm went off. “*Beep, Beep, Beep”* As annoyed as i was, i honestly was happy to get out of math class and go outside. As i walked out of class something felt weird, nothing, that's what it was, nothing, nothing, nothing, nothing, 
-
-
-
-*10:01 am* 
-
-
-
-Walking out of free period i just couldn't put my finger on the problem, i don't know the issue was but i don't know what the issue was but i don't know what the issue was but i don't know what the issue was but i don't know what the issue was but i don't know what the issue was but i don't know what the issue was but i don't know what the issue was but
-
-
-
-*2:17 pm*
-
-
-
-I left school early, I didn't go home right away but instead i decided to go to the lake, I usually go to the lake to relax, it helps me chill out because
-
- N
-
-O
-
-T
-
-H
-
-I
-
-N
-
-G
-
-*4:28 pm*
-
-Please
-
-
-
-*5:11 pm* 
-
-What's the point of life? Why do we work? God gave us everything to live and we sit here and work and work and pursue a pointless purpose. In the end what do we get? Nothing? Yes, you're correct. Why was God created? To give people a purpose. With no god, we live to live to live to live decades of you guessed it
-
-Nothing
-
-
-
-*7:40 pm*
-
-It's almost time. As I sit in my chair, tell you this rundown of my day. I need to find the purpose. I'm tired of nothing. 
-
-
-
-*Time of death 7:44 pm* 
-
-*“Beep, Beep, Beep”* A constant beeping, i can't escape it, i cant… I said this in my head as I woke up prepared to go to one of my last days ever. 
-
-*8:39 am* 
-
-
-
-I sit in first hour as bored as ever, **god i want to die**
-
-
-
-Don't mock god, god will take, god doesn't give, 
-
-  
-
-
-Hello! My name is mark and im **NOTHING** 
-
-
-
-Mark cant sleep, Mark cant sleep, 
-
-
-
-*Time of death 7:44 pm* 
-
-
-
-Yep, there's nothing, when you die you die. People will say things about god and going to heaven and hell but really take a second to think about that. Faith, that's what we were banking on. Marks dead, gone forever, close your eyes tight. This is what Mark is seeing forever. Can you comprehend forever? no , just like you can't comprehend nothing. 
-
-  
-  
-  
-  
-  
-NOTHING
+	
