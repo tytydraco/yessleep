@@ -1,3 +1,4 @@
+
 **I’m writing this to prove I existed.** To document my journey and the horrors I’ve witnessed. If someone reads this, maybe it’ll mean I was real. My name is \*\*\*\*\*\*. I live in \*\*\*\*\*\*\*\*\*\*. Or at least, I did. I don’t know anymore. Maybe I’m dead. Maybe not. I can’t tell how long I’ve been here—days, weeks, longer? Time’s twisted here. It doesn’t behave.
 
 I don’t like to be noticed. I’m someone who can disappear for months without anyone wondering where I went. I have friends—real ones. Those who care. Those who keep trying to drag me back out into the world. But I don’t like the world. I like my apartment. It's my bubble. It’s safe. It’s quiet. It doesn’t judge.
