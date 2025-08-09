@@ -8,7 +8,7 @@ They understood the value that sports played in social development, as well as h
 
 They cared in their own way, I suppose. At least my mom did, I think. She showed the most potential for being human. Perhaps that was her downfall.
 
-I threw open the front door and was assaulted by an array of aromas. There was onion, and maybe garlic. Very typical. The canned peas were obvious, and whether you loved them or hated them, they were very distinct. There was also a bit of a smokey or slightly burnt-meat smell. Beef perhaps. Or maybe pork. But underneath it all, was a very peculiar odor. It was pungent, but it was hard to identify. The other smells masked it so perfectly, I almost thought I imagined it. It was like a phantom.
+I threw open the front door and was assaulted by an array of aromas. There was onion, and maybe garlic. Very typical. The canned peas were obvious, and whether you loved them or hated them, they were very distinct. There was also a bit of a smokey or slightly burnt-meat smell. Beef perhaps. Or maybe pork. But underneath it all was a very peculiar odor. It was pungent, but it was hard to identify. The other smells masked it so perfectly, I almost thought I imagined it. It was like a phantom.
 
 “Shoes off,” a voice called from the kitchen.
 
