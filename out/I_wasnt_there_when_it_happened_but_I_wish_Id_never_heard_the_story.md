@@ -1,4 +1,6 @@
-I’m not in this story, but it’s one that’s stuck with me ever since I first heard it from my cousin. She swears it happened to a group of people she knew, friends of hers from an improv troupe who went on a weekend retreat together. I can’t vouch for how much of it is true, but the way she told it… well, let’s just say I’ve never been able to hear the words “Yes, and” the same way again.
+Edit: Just finished adding the next part, [part 2 here](https://www.reddit.com/r/nosleep/comments/1mluild/i_wasnt_there_when_it_happened_but_i_wish_id/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+I’m not in this story, but it’s one that’s stuck with me ever since I first heard it from my cousin. She swears it happened to a group of people she knew, friends of hers from an improv group who went on a weekend retreat together. I can’t vouch for how much of it is true, but the way she told it… well, let’s just say I’ve never been able to hear the words “Yes, and” the same way again.
 
 \-
 
@@ -18,8 +20,8 @@ The group had found success in the first few years (and a few audience drinks) c
 
 Mara felt in her gut that something needed to change, and needed to change quickly, or else she was going to regret never finishing her accounting degree. 
 
-Luckily for her, she had the perfect plan to reignite the group's spark, and it all started with Mara’s aunt's untimely car accident.  
-  
+Luckily for her, she had the perfect plan to reignite the group's spark, and it all started with Mara’s aunt's untimely car accident.
+
 Mara had never been particularly close to her aunt Marge. Ever since Mara was a child, Marge had lived outside of the city on a few acres of land with a somewhat dilapidated large house that sat right in the middle of the land. 
 
 Marge would visit Mara and her family on birthdays, holidays, and when Mara’s grandparents had passed away. She never married or had children of her own. Marge had told everyone in their family that it was never in the cards for her, and they had all accepted that. 
@@ -68,7 +70,7 @@ Unlike Dan, Lila wasn’t invited to join the improv group.
 
 She just kind of… showed up.
 
-About three years ago, the group was running a barely attended show in the back room of a vegan bakery-slash-crystal-emporium called **“**Chakra Cake**.”** Right as the lights went down, Lila walked in, barefoot and radiant, carrying a handmade kombucha bottle and smelling somewhat strongly of patchouli. She took a seat in the front row and laughed at everything — even the weird bits that didn’t land.
+About three years ago, the group was running a barely attended show in the back room of a vegan bakery-slash-crystal-emporium called **“Chakra Cake.”** Right as the lights went down, Lila walked in, barefoot and radiant, carrying a handmade kombucha bottle and smelling somewhat strongly of patchouli. She took a seat in the front row and laughed at everything — even the weird bits that didn’t land.
 
 After the show, she approached the group and said:
 
@@ -132,11 +134,11 @@ Natalie gave a slight nod (she wasn’t sure what successes Mara was referring t
 
 Rule number 4: Respect the space! This is my aunt’s old home. It’s an antique, and there are antiques inside it. Try not to break anything or get too nosy, even I don’t know what’s in there.” Mara said.
 
-**“**That’s smart.**”** Natalie cut in, her voice quiet but serious. 
+**“That’s smart.”** Natalie cut in, her voice quiet but serious. 
 
 Everyone turned to look at her.
 
-She shrugged.**“**Old houses are like… emotional sponges. Bad stuff sticks around. You don’t want to wake it up**.”**
+She shrugged.**“Old houses are like… emotional sponges. Bad stuff sticks around. You don’t want to wake it up.”**
 
 Chris raised an eyebrow. “Are you saying this place has, like, emotional mold?”
 
@@ -392,8 +394,6 @@ She needed to maintain the integrity of the retreat's structure, and Chris’ mo
 
 Above them, the wind died down. The fire resettled itself even smaller than it had been originally. The house and the land became very, very quiet. 
 
-\- 
+\-
 
 I'll write out more of what I know of the story if people are interested, it gets even crazier but I didn't have time to get to the next part.
-
-  
