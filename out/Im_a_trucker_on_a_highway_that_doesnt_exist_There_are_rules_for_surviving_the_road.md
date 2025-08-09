@@ -250,11 +250,9 @@ Go ahead. Hate me if you want. But never underestimate what you yourself wouldnâ
 
 It was only hours later, after my flight home, after I was safe in my bed on campus, and the whole interview felt like a distant nightmare, that I finally cracked open my new employee handbook. I found the section on the one minute forty-seven second incident. Section 9.A. It explained what Randall had, that I should count in my head, not freak out, and usually nothing would happen. There was some additional explanation too.
 
-*If your engine does not immediatly come to life after the waiting period has concluded, then close your eyes and hide. The things in the forest will eventually lose interest.*
+*If your engine does not immediately come to life after the waiting period has concluded, then close your eyes and hide. The things in the forest will eventually lose interest.*
 
-*Above all, remain in your vehicle. If you leave at any point during the hunting ceremony, they will learn your scent.* 
+*Above all, remain in your vehicle. If you leave at any point during the hunting ceremony, they will know your scent.* 
 
-*They will hunt you.*
-
-*They will* [find you](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)*.* 
+*You will never* [rest again.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/) 
 
