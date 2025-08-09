@@ -22,7 +22,7 @@ Days later, I was sifting through paranormal junk online, zombies in Mahopac, Bi
 
 And then, as I scrolled, a whisper threaded into my ear.
 
-Sir Robert Dudley… Henry called him traitor… the witch’s curse crossed the sea…
+Sir Robert Dudley… King Henry called him traitor… the witch’s curse crossed the sea…
 
 A few steps later, I was in my living room, not on a trail, and the whisper changed.
 
