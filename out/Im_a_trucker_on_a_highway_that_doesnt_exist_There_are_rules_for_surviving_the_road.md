@@ -14,6 +14,8 @@
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/1mmsi7t/im_a_trucker_on_a_highway_that_doesnt_exist_you/)
+
 It was about the time I graduated from undergrad, and finally braved checking on the empty void that was my bank account, that I realized three things: 
 
 1. *Hmmm*, perhaps an English degree hadn't been the smartest choice for replenishing the aforementioned empty void that was my bank account.
@@ -252,7 +254,8 @@ It was only hours later, after my flight home, after I was safe in my bed on cam
 
 *If your engine does not immediately come to life after the waiting period has concluded, then close your eyes and hide. The things in the forest will eventually lose interest.*
 
-*Above all, remain in your vehicle. If you leave at any point during the hunting ceremony, they will know your scent.* 
+*Above all, remain in your vehicle. If you leave at any point during the hunting ceremony, they will know your scent.*
 
-*You will never* [rest again.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/) 
+*You will never* [rest again.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
 
+[Read more.](https://www.reddit.com/r/nosleep/comments/1mmsi7t/im_a_trucker_on_a_highway_that_doesnt_exist_you/)

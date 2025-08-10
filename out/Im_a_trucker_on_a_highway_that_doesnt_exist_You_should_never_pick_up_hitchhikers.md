@@ -176,15 +176,15 @@ We drove. She became increasingly cuddly. Her grip when she held my hand―it wa
 
 “No.”
 
-I stopped three more times to stretch my legs. “You should too,” I said each time, but she refused. She wouldn’t get out.
+I stopped three more times to stretch my legs. “You should too,” I said each time, but she refused. She wouldn’t leave.
 
-“Stop it!” she growled the fourth time stopped. Her face distorted into a grotesque mask―then softened back into a smile. “I’ll miss you.”
+“Stop it!” she growled the fourth time we stopped. Her face distorted into a grotesque mask―then softened back into a smile. “I’ll miss you.”
 
 “Myra.” I took a breath. “There’s actually something I need to ask you.”
 
 “Yes?”
 
-“It’s not something I can ask you in a truck though.”
+“It’s not something I can ask you in a truck, though.”
 
 Her face scrunched in annoyance. Her breath grew harsh and gravelly.
 
@@ -200,7 +200,7 @@ She did.
 
 Then I bolted for the truck.
 
-It was seconds before she realized what was happening and even longer before she started after me. By the time the thing, the \*not-\*Myra, reached me, the doors were already locked. I was already rolling away.
+It was seconds before she realized what was happening and even longer before she started after me. By the time the thing, the not-Myra, reached me, the doors were already locked. I was already rolling away.
 
 Her face was something entirely inhuman. Her eyes dripped like melted wax from her empty sockets, and her hair peeled off in clumps. “No!” she screeched. “I love you! Don’t leave me!”
 
@@ -268,4 +268,4 @@ I was afraid of the road. Of the things that prowled behind the trees and waited
 
 I was just afraid of the real world more.
 
-So I stayed. I kept driving. And one day, when the road expands past days-long into weeks-long―possibly even *years* long―I will [keep driving.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
+So I stayed. I kept driving. And one day, when the road expands past days long into weeks long―possibly even *years* long―I will [keep driving.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
