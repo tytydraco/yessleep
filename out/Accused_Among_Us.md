@@ -14,7 +14,7 @@ And then a beautiful distressed woman ran into the gas station asking for help. 
 
 Then I told her: “Everything Is Going To Be Alright, What’s Your Name”? She replied: “My Name Is Lily”. Then I said: “Nice To Meet You, Lily. My Name Is Kaine”. Gabel suggested that we should call the cops, but Lily said she tried that multiple times and the police always tell her to file a domestic report.
 
-While all of us was processing what we were going to do, a man in a black suit and white colored eyes was at the door. While Lily was founding a place, the man walked up to us and said: “My Name Is Raziel, I’m Looking For A Woman Named Lily”. Raziel asked: “Do The Both of You Know Where She Is”?
+While all of us was processing what we were going to do, a man in a black suit and white colored eyes was at the door. While Lily was founding a place to hide, the man walked up to us and said: “My Name Is Raziel, I’m Looking For A Woman Named Lily”. Raziel asked: “Do The Both of You Know Where She Is”?
 
  As Gabel stumbled his words, I asked Raziel: Why? So You Can Abuse Her Some More”? Raziel replied: “Oh, So She Is Here? She’s Lying To You”. Raziel continued: “I Never Laid A Hand On Her or Any Woman In My Life Unless I Have To”.
 
