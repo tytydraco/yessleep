@@ -18,23 +18,23 @@ But in my mind’s eye now, her irises aren’t blue. They are black. I do not k
 
 I remember a day in the forest birdwatching. She loved cardinals and I loved bluejays. “James,” she called, “I hear the call of an endangered…” The name escapes me. She vanished into the bushes. Fifteen minutes. Then thirty. Her voice returned from behind me. “James, don’t worry. I’m fine. I love you. You need to…” I am certain she said Feel the embrace of nature. I am equally certain she did not.
 
-Days later, I was sifting through paranormal junk online, zombies in Mahopac, Bigfoot in Bloomingburg, a man who discovered ghosts in his cellar after a healthy dose of LSD, when something caught my eye. Dudleytown. Connecticut.
+A few days after the dream, I found myself sifting through the usual heap of paranormal nonsense, zombies in Mahopac, Bigfoot in Bloomingburg, a fellow who claimed to have discovered ghosts in his cellar after a healthy dose of LSD, when something caught my eye: Dudleytown, Connecticut.
 
 And then, as I scrolled, a whisper threaded into my ear.
 
 Sir Robert Dudley… King Henry called him traitor… the witch’s curse crossed the sea…
 
-A few steps later, I was in my living room, not on a trail, and the whisper changed.
+A few steps later, I was in my living room, yet the light through the window seemed the dim green of a forest canopy, and the whisper changed.
 
 No… not Dudley. The name was Radley. Henry loved him. The curse came from a starving hermit with teeth like pinecones.
 
-The voice was calm, patient, as if explaining something obvious to a slow child.
+The voice was calm, patient, as if explaining something obvious to a small child.
 
 I told myself I did not believe it. Which is why, of course, I went there.
 
 The next weekend I hiked deep into the woods. Birds chattered, leaves rustled, the wind cooled my skin. Then the wind died. The birds fell silent.
 
-The trees seemed to lean closer, their crooked limbs settling into the posture of conspirators. A warmth spread through my chest, like my wife’s arms were around me again. The smoky fog slid in, brushing my ankles.
+The trees seemed to lean closer, their crooked limbs settling into the posture of conspirators, keeling over in laughter. Warmth spread through my chest, as if my wife’s arms had found me again. The smoky fog curled in low, brushing against my ankles.
 
 The curse clung to the Dudleys… or the Radleys… or maybe it was you all along…
 
