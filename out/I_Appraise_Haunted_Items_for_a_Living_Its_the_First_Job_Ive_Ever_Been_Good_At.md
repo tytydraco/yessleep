@@ -44,9 +44,9 @@ A nod.
 
 The clasp clicked under my thumb. Inside, faded red velvet, a handful of tarnished hooks, and an oval mirror set into the lid.
 
-“Hang on.” I turned and called toward the side counter. “Harvey? Ballpark me.”
+“Hang on.” I turned and called toward the side counter. “Jaque? Ballpark me.”
 
-Harvey shuffled over, took one glance, and hummed low in his throat. “Mid-19th century. Wear’s consistent with age, wood’s in better condition than the hinges. Velvet’s faded, probably sun damage. If it weren’t for the corrosion on the clasp, I’d say eight hundred easy. With it…” He shrugged. “Six?”
+Jaque shuffled over, took one glance, and hummed low in his throat. “Mid-19th century. Wear’s consistent with age, wood’s in better condition than the hinges. Velvet’s faded, probably sun damage. If it weren’t for the corrosion on the clasp, I’d say eight hundred easy. With it…” He shrugged. “Six?”
 
 I peered into the glass again.
 
@@ -113,4 +113,3 @@ That was one of the best parts about working here. The recognition of a job well
 She turned and left with the box, and I was left standing there, the buzzing in my chest settling into something steady.
 
 Everywhere else, I’m cursed. Here though, that curse becomes a talent.
-
