@@ -167,3 +167,5 @@ Due to the time of day we hadn’t been outfitted with night vision, but part of
 Ever so faintly, we could hear voices screaming in the tunnel, and the sound of something squelching. 
 
 END TRANSCRIPT - 2 
+
+TRANSCRIPT 3 - https://www.reddit.com/r/nosleep/s/VPDZXwdcuC
