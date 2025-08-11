@@ -92,8 +92,6 @@ Mara, Dan, and Natalie shared a look. This was classic Lila. She didn’t even n
 
 They made it into the house and headed off to their separate bedrooms, noting that Chris’s room was dark underneath the door. 
 
-**ACT 2: Chapter 7: The Next Morning**
-
 It was 9:04 AM. Breakfast was scheduled for 9 AM. Mara was anxious. 
 
 She was the only one in the kitchen, dressed and prepared for the day, and for their scheduled breakfast. 
