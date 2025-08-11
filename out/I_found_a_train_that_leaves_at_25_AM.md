@@ -1,6 +1,6 @@
 I'm starting to think that God himself wishes my downfall. I've had the worst day of my life and I am not exaggerating. The first sign that i should have just called in sick is when I spilled my coffee all over my new white shirt and only clean pair of pants. The next is that is sent my "I love you baby" text to my boss instead of my girlfriend. Perhaps, shredding the pile of documents I needed to sign by the end of the day instead of the pile of paper I was supposed to dispose of was just the cherry on the sunday. So here I am 2 minutes after midnight and I've missed the last train home.
 
-"Great, this is just what I needed. I am already running on two hours of mediocre sleep and now I am stuck in this city, unable to go home. I guess I'll just go sleep next to the homeless man that hogs the bench until the next train comes" I said out loud, knowing nobody was listening to me (aside from that homeless guy I mentioned earlier). I walked closer to the wall and sat down. Putting my vest between my shoulder and head to create a "pillow" as well as using my coat like a blanket, I drifted of to sleep. Atleast, that was until I heard a grating voice beside me.
+"Great, this is just what I needed. I am already running on two hours of mediocre sleep and now I am stuck in this city, unable to go home. I guess I'll just go sleep next to the homeless man that hogs the bench until the next train comes" I said out loud, knowing nobody was listening to me (aside from fred, the homeless guy I mentioned earlier). I walked closer to the wall and sat down. Putting my vest between my shoulder and head to create a "pillow" as well as using my coat like a blanket, I drifted of to sleep. Atleast, that was until I heard a grating voice beside me.
 
 -Hey man, are you new in town? It's the first time I see you camping in the station, asked the stranger. Today is my lucky day because another house less weirdo is going to steal my only opportunity of visiting dreamland this evening.
 
@@ -16,7 +16,7 @@ I'm starting to think that God himself wishes my downfall. I've had the worst da
 
 -You're in a suit, so I assume you have a pretty good job. You must have made really bad financial decisions to end up broke like that.
 
--Okay, can you shut the fuck up-- As the sentence exited my mouth, I opened my eyes and realized I was not talking to homeless man. I was talking to a very colorful Clown with a flowery bowl hat.
+-Okay, can you shut the fuck up-- As the sentence exited my mouth, I opened my eyes and realized I was not talking to fred. I was talking to a very colorful Clown with a flowery bowl hat.
 
 -Why...why are you dressed like a Clown? I questionned, confused and concerned. -Why not, exclamed the smilling flower on his hat? But you did not answer my question about your financial situation. What happened?
 
