@@ -336,4 +336,4 @@ As I stared at her across the circle from me, that damaged, angry look still in 
 
 After around 20 minutes, we popped the chords from the scientist's body, and the entire room began to rumble and sway. We were already to the door and pounding the ‘open’ button before it stopped.
 
- 
+ [Next Update](https://www.reddit.com/r/nosleep/comments/1mmybcn/im_trapped_on_the_edge_of_an_abyss_ive_just_been/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

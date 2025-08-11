@@ -1,3 +1,5 @@
+[PT 2](https://www.reddit.com/r/nosleep/comments/1mmyc1s/i_appraise_haunted_items_for_a_living_its_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  
+  
 The sign outside **Obscura** was impossible to miss - a flickering relic of a carnival that never existed, neon buzzing and gold leaf peeling, letters twisting in a font that looked like it had been designed by someone in the middle of a fever dream. It read:
 
 **BUY, SELL & TRADE YOUR HAUNTED ITEMS**
