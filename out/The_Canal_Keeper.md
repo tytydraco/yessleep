@@ -1,6 +1,6 @@
-I've been the Canal Keeper of Sangrevor for twenty-three years, and in all that time, I've never missed a single day of work.   
-  
-Not when I had that operation three years ago, when they had to cut through my ribs to fix the damage. They said I’d need weeks to recover, but the thought of the canals sitting there, waiting… it pushed me through the pain. 
+I've been the Canal Keeper of Sangrevor for twenty-three years, and in all that time, I've never missed a single day of work.
+
+Not when I had that operation three years ago, when they had to cut through my ribs to fix the damage. They said I’d need weeks to recover, but the thought of the canals sitting there, waiting… it pushed me through the pain.
 
 Not when the fever hit me hard, high enough to leave me delirious, my mind a fog of twisted dreams and aching bones, I still showed up. Because something about the sound of the water, the rhythm of the tides... it clears the head, soothes the soul.
 
@@ -20,7 +20,7 @@ Then there's the matter of the fish.
 
 Not that we call them fish, you understand. The official term is "aquatic anomalies," and the official policy is that they don't exist. But every Canal Keeper knows about them. Pale, eyeless things that sometimes swim up from the deeper channels, their fins like shredded silk and their mouths full of needle teeth. When you see one, and you will, no matter how careful you are, you net it quickly and dispose of it in the furnaces beneath City Hall. You don't examine it too closely. You don't mention it in your reports. You certainly don't take it home.
 
-My predecessor, Old Henrik, explained it to me on my first day. He was a weathered man with hands like tree bark and a nervous habit of touching the iron pendant he wore around his neck. "The water's been good to this city for three hundred years, boy," he told me as we walked the main channel. "It keeps the plague away, makes the crops grow strong, helps the sick recover faster than anywhere else in the kingdom. All it asks in return is a little discretion."
+My predecessor, Old Henrik, explained it to me on my first day. He was a weathered man with hands like tree bark and a nervous habit of touching the iron pendant he wore around his neck. "The water's been good to this city for three hundred years, boy," he told me as we walked the main channel. "It keeps the plague away, makes the crops grow strong, helps the sick recover faster than anywhere else in the region. All it asks in return is a little discretion."
 
 I thought I understood what he meant. I was young then, twenty-two and full of confidence in my ability to handle whatever strangeness came my way. I'd grown up in Sangrevor, after all. I'd been drinking the red water my whole life, and it had never done me any harm.
 
@@ -48,13 +48,13 @@ I gave her the same explanations the city had given me—iron deposits, clay bed
 
 She found things I wish she hadn't found.
 
-Last week, she came to me with a leather-bound journal she'd discovered in the library's restricted section. It was the diary of Mr. Cross, Sangrevor's first Canal Keeper, dating back to the city's founding in 1634. His early entries were mundane enough, construction reports, flow measurements, complaints about his meager salary. But as the months progressed, his tone grew increasingly disturbed.
+Last week, she came to me with a leather-bound journal she'd discovered in the library's restricted section. It was the diary of Mr. Cross, Sangrevor's first Canal Keeper, dating back to the city's founding in 1704. His early entries were mundane enough, construction reports, flow measurements, complaints about his meager salary. But as the months progressed, his tone grew increasingly disturbed.
 
 Clara read to me from entries that made my blood run cold:
 
 *"The workers found something today while excavating the central channel.The architects want to seal it and continue construction, but the sounds... dear God, the sounds that echo up from those depths..."*
 
-*"The red seepage has begun in earnest now. The city council insists it's a natural phenomenon, but I've seen the tests Dr. Harwick performed. This is no mineral deposit. This is something else entirely."*
+*"The red seepage has begun in earnest now. The city council insists it's a natural phenomenon, but I've seen the tests Dr. Harwick performed. This is something else entirely."*
 
 *"I cannot sleep. The dreams come nightly now. I feel watched, measured, found wanting. Yesterday I caught my reflection in the canal water and for a moment... for a moment it was not my face looking back."*
 
