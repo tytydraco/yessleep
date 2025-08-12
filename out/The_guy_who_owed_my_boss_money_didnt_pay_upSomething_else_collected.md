@@ -18,7 +18,7 @@ The nights I work I preferred to keep the windows open to feel the night’s coo
 
 The house was medium sized, looked old and run down, all the lights are off, kinda looked like nobody was home too but my guy told me someone’s always home. I stepped out of the car and closed the door slowly, I locked it and walked up to the curb. You know that feeling you get when your entire body freezes up and every nerve in you is telling you to stop, to turn back, to not go through with it? I never felt that my entire life but this particular night that specific feeling hit me and it hit me hard. I shook it off being the stubborn bastard I am and treaded on, it was my job and I had to do it.
 
-Today’s ‘client’ is ‘James Morelli’ but we call him Jimmy. The little rat always run into money problems because he’s an incredibly high maintenance fuck with lots of vices and eccentric hobbies to fuel. He usually pays but never on time, we have to rattle him a little bit each time to squeeze the cash outta him. This particular time though, ol’ Jimmy’s been ducking our calls, he’s been past due for 3 months already and he owes my boss 50 grand. My boss doesn’t take kindly to being ignored, ESPECIALLY if you owe him that much money. 
+Today’s ‘client’ is ‘James Morelli’ but we call him Jimmy. The little rat always ran into money problems because he’s an incredibly high maintenance fuck with lots of vices and eccentric hobbies to fuel. He usually pays but never on time, we have to rattle him a little bit each time to squeeze the cash outta him. This particular time though, ol’ Jimmy’s been ducking our calls, he’s been past due for 3 months already and he owes my boss 50 grand. My boss doesn’t take kindly to being ignored, ESPECIALLY if you owe him that much money. 
 
 I walked up to the door and banged on it with force. 
 
@@ -48,4 +48,6 @@ The next day after that shitshow I told my boss everything that happened in comp
 
 “Jimmy owed money to something else, simple as that.” As he quickly resumed back to his paperwork.
 
-I’ve never been a religious man but these days I’ve been going to church every sunday and praying to the lord. I sleep with a bible under my pillow and I pray every night before going to bed, rosary and all. Sometimes I think of gathering some of my coworkers and going back to that house with lots of guns, maybe set that fucking place on fire and shoot whatever comes out. 
+I’ve never been a religious man but these days I’ve been going to church every sunday and praying to the lord. I sleep with a bible under my pillow and I pray every night before going to bed, rosary and all. 
+
+Sometimes I think of gathering some of my coworkers and going back to that house with lots of guns, maybe set that fucking place on fire and shoot [whatever comes out.](https://www.reddit.com/u/Jaredism420/s/iO2rJUSnX7)
