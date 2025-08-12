@@ -357,3 +357,5 @@ The creature grabbed Cassara’s hand, its eyes glowing yellow as it opened its 
 Cassara’s eyes went wide, and I realized it was doing exactly what it did to me when it had fallen on top of me.
 
 It was feeding off of Cassara’s [essence](https://www.reddit.com/r/The_Guardian_Temple/).
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1mnuanp/im_a_missionary_and_florida_is_zombiecountry/)
