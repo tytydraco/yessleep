@@ -79,7 +79,11 @@ I must’ve fallen asleep somehow, because the next thing I knew, sunlight was p
 For a minute, I almost convinced myself I had imagined the whole thing. But when I checked my phone, the call logs were still there. I really had called my mom. I really had called my grandma. That part was real.
 I tried to push it out of my headtold myself it was some kind of sleep paralysis or dream.
 
-Around 11 PM, I’d just gotten out of the hot tub in the garage. The door was wide open there’s no one around for miles, so I hadn’t bothered to close it.
+Around 11 PM, I’d just gotten out of the hot tub in the garage.
+
+Now, here’s the thing — the garage isn’t attached to the house. It’s about 20 feet down the driveway, a separate little building all on its own. You have to walk across the driveway to get to it.
+
+That night, I’d left the garage door wide open because, well, there’s nobody else around for miles. I figured it was safe enough, and I wanted to air the place out a bit after the hot tub steam.
 
 Then I heard it.
 
