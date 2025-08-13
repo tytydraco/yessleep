@@ -6,7 +6,7 @@ Since we moved to our current home, about 10 years ago, things always went ‘mi
 
 And every time, without failure, he was correct, because after a couple days or weeks, sometimes entire months, the missing item would be found in an incredibly obvious location. Me and my family figured this was a normal occurrence, easily explained by healthy faults in our memories and so on, so we got used to it and lived normal lives. 
 
-On that faithful day, my brother could not find his earbuds, so I said the words that our father had imprinted in our brains: 
+On that fateful day, my brother could not find his earbuds, so I said the words that our father had imprinted in our brains: 
 
 “forget it and it will find its way back to you”
 
