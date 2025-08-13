@@ -80,7 +80,7 @@ All he had was a single duffel bag full of stuff. Enough clothes to last a week 
 
 We ended up smoking the weed and watching Texas Chainsaw Massacre. He presented it like it was some artistic horror masterpiece, but the whole thing was so cheesy it felt surreal, which I guess was the point. Either way, we were laughing our asses off within minutes, and it was like old times again.
 
-I had a million questions in the back of my mind, like what the deal was with his parents, and why he’d wanted to kill himself, but I didn’t ask any of them. Secretly, a part of me just wanted to push it under the rug for now. The two years before John came were the loneliest years of my life. As far as social interaction went, I invited some of my work “friends” over, once or twice, but it always felt more like a chore. I was happy he’d come, despite the circumstances, and I didn’t want to ruin it, not yet, anyway.
+I had a million questions in the back of my mind, like what the deal was with his parents, and why he'd been at the hospital in the first place, but I didn’t ask any of them. Secretly, a part of me just wanted to push it under the rug for now. The two years before John came were the loneliest years of my life. As far as social interaction went, I invited some of my work “friends” over, once or twice, but it always felt more like a chore. I was happy he’d come, despite the circumstances, and I didn’t want to ruin it, not yet, anyway.
 
 There were plenty of rooms. He chose the one on the other side of the hall from mine. It had been my grandmothers, before she died. The walls were chock full of her paintings: light, flowery, scenes of women in elegant clothing in fields of beautiful roses. My grandfathers were the opposite: erratic and chaotic, with stark colors, painted as if in a frenzy, desperately scraping the canvas. He mostly painted scenes from the Vietnam War, with elements of religion – a devout Orthodox, but even the religious parts were never entirely pleasant. A man, getting riddled with bullets, his friends diving for cover, but nevertheless bathed in holy light, an angel standing over him, skin soft and pale, hand on his shoulder. This was the religion of the Old Testament, tinged with the barbarity of a time before civilization.
 
@@ -100,4 +100,4 @@ They looked like eyes.
 
 Just before sleep, the words finally pierced whatever obstruction blocked me from understanding. The voice that spoke them, its tone inhuman, as if whispered by a man at the brink of terminal dehydration, sent goosebumps slithering up my skin.
 
-*Come here.*
+*Come Here*
