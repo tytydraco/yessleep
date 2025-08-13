@@ -1,4 +1,4 @@
-(Pt.1) Does your town have any creepy stories? Urban legends? Mine does. It actually is somewhat well known. Have you ever heard of Crybaby Bridge off of Egypt Road? It is in Salem, Ohio. Where I was unfortunate enough to be born. If you don't believe me, look it up. Really, I insist. The story is somewhat vague, you know like the normal scary stories that get passed around when buildings get abandoned, when bridges start to rust. I don't know it verbatim but what I do know is that supposedly some woman long ago took her baby there and drowned it. I don't remember why or if the story actually gives a reason. I'll tell you what I do know: it's said if you go to the bridge at night you will hear that poor little unloved baby thrown away by its own mother.
+(Pt.1) Does your town have any creepy stories? Mine does. It actually is somewhat well known. Have you ever heard of Crybaby Bridge off of Egypt Road? It is near where I was unfortunate enough to be born. If you look it up you can find the original tale. The story is somewhat vague, you know like the normal scary stories that get passed around when buildings get abandoned, when bridges start to rust. I don't know it verbatim but what I do know is that supposedly some woman long ago took her baby there and drowned it. I don't remember why or if the story actually gives a reason. I'll tell you what I do know: it's said if you go to the bridge at night you will hear that poor little unloved baby thrown away by its own mother.
 
 This piqued my interest. I grew up in a relatively boring town. I went to church every Sunday but I didn't pay much attention. Especially since I didn't go to Sunday school anymore. The only reason I paid attention was because I wanted to be the smartest person in the room. I would rather consume random horror media. 
 
@@ -24,7 +24,7 @@ Andie stopped fiddling with the camera to smile at me. "Yeah, but I mean isn't p
 
 It was a good idea. Still, I wanted to mess with her. "Andie if we do hear anything the only person that footage will scare is you."
 
-She scoffed and rolled her eyes but there was a slight smile. We'd been friends since grade school. She knew I was only joking and she was too interested in getting the camera to work to give me any real reaction.
+She scoffed and rolled her eyes, but there was a slight smile. We'd been friends since grade school. She knew I was only joking and she was too interested in getting the camera to work to give me any real reaction.
 
 Anticipation built in my stomach as we arrived at the bridge off Egypt Road. I stepped out of the car, almost giddy with a smile on my face. It wasn't just the chance of seeing something supernatural. It was the fact that I got to drive here in the middle of the night without any adults. I could see Andie was genuinely nervous. I didn't tease her about it. I teased her about a lot of things but I never wanted to genuinely hurt her feelings. From the look on her face, pushing this would.
 
@@ -47,9 +47,9 @@ I began crying as I pictured myself and Andie, being strangled by cultists and b
 
 My thoughts were cut off by adrenaline and panic flowing through me at the sound of something hitting my window. Andie was staring at whatever was outside. Moonlight shone onto it casting a shadow in the car. I attempted to ignore the human shape and stared forward, trembling. Andie began sobbing. If we did survive she would probably stop being my friend. I wish I never brought her here. I wish I didn't come. I should've celebrated my license with Handel's like Alice did. 
 
-Oh God, I know I haven't been exactly faithful but I swear I'll pay attention in church. I will read my bible. I'll pray every hour if that is what it takes, just save me please.
+I begged God to save me, I hadn't been exactly faithful but I promised God that if he saved me I'd become a loyal Christian. I swore I'd read my bible. I swore I'd pray all the time. I swore I would live according to his word. I promised God that if he saved me in that moment I would become a devout Christian.
 
-I heard laughter from outside of my window. I slowly turned towards the sound. An older man was staring at me with crazed, wide eyes. They were a sickly shade of green and were filled with burst blood vessels. He was licking the window and panting like a rabid animal. I almost screamed like Andie but my throat felt like it was closing in on itself. No. Not now. 
+My plea was cut off as I heard laughter from outside of my window. I slowly turned towards the sound. An older man was staring at me with crazed, wide eyes. They were a sickly shade of green and were filled with burst blood vessels. He was licking the window and panting like a rabid animal. I almost screamed like Andie but my throat felt like it was closing in on itself. No. Not now. 
 
 I was having a panic attack.
 
