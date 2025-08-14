@@ -50,7 +50,7 @@ At first I thought it was a mannequin. It wouldn't be that surprising, I guess, 
 
 It was a sex doll. Clear as day. No mannequin had that kind of detail. 
 
-The doll came in several different pieces, the long legs lying separate to the torso, which was separate to the head. The skin was a tan shade of olive, and its - *her* \- hair was long, dark brown and tangled. She wasn't skinny, which was the first thing I noticed that was strange... stranger than a hyper-realistic sex doll on my doorstep, I mean. She wasn't fat either, per se, but the shape of her body was nothing like the sex dolls I had seen before on the internet: not petite, not toned or even overly curvy either. Looking at her body felt realistic to me, like slipping on a sock or climbing into bed. Like something I had done thousands of times before. 
+The doll came in several different pieces, the long legs lying separate to the torso, which was separate to the head. The skin was a tan shade of olive, and its - *her* \- hair was long, dark brown and tangled. She wasn't skinny, which was the first thing I noticed that was strange... stranger than a hyper-realistic sex doll on my doorstep, I mean. She wasn't fat either, per se, but the shape of her body was nothing like the sex dolls I had seen before on the internet: not petite, not toned or even overly curvy either. Looking at her body felt familiar to me, like slipping on a sock or climbing into bed. Like something I had done thousands of times before. 
 
 Then I saw her eyes. 
 
