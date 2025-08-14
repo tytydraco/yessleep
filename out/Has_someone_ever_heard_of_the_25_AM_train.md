@@ -21,4 +21,4 @@ Last seen wearing: purple yoga pant, black t-shirt, guess purse and nike shoes.
 Last seen in: Toronto
 Last words (in the worst case scenario): do not get on the 25 AM train 
 
-(Notes: This is not real and nobody has actually gone missing and English is not my first langage so if there are mistakes please message me, thank you)
+(Notes:English is not my first langage so if there are mistakes please message me, thank you)
