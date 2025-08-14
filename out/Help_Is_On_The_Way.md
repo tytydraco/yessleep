@@ -34,25 +34,25 @@ The man did not turn his head. In the full beam of my headlights, however, I cou
 
 Then he was running towards my car.
 
-Not like a man, but like an animal. He flung himself in my direction like a rag doll being thrown, so off balance that he collapsed forward onto his hands, head still contorted at that terrible angle. He splashed headlong into the now still floodwater like a dog cavorting in a river, barreling toward me on all-fours. 
+Not like a man, but like an animal. He flung himself in my direction like a rag doll being thrown, so off balance that he collapsed forward onto his hands, head still contorted at that terrible angle. He splashed headlong into the floodwater like a dog cavorting in a river, barreling toward me on all-fours. 
 
 In that split second, I considered my options. Pistol in the glovebox? No. Lent it to someone back home. Police? God, no. They wouldn't make it in time and even if they did, I could not take my chances with the law for personal reasons I will not disclose here. 
 
 The man, the animal, the thing in the road closed in and all I could do was lock my doors and pray.
 
-A blaring honk cut through the night air.
+A blaring honk split the air.
 
 The soft yellow glow of my headlights was rapidly overtaken by a blinding white. In the rearview, I saw it: a huge white pickup truck. It pushed past my car, sending a wave of brown water up over the windows. 
 
 I looked through the windshield again, dreading what I'd find... but the man in the flannel was gone. My heart pounded. My head swam. Everything felt indescribably wrong, like a bad high.
 
-The white pickup parked in a dryer patch of road up ahead without dimming its brights. A man stepped out. He was middle-aged, balding, and wore a blue mechanic's jumpsuit.
+The white pickup parked in a drier patch of road up ahead without dimming its brights. A man stepped out. He was middle-aged, balding, and wore a blue mechanic's jumpsuit.
 
 After a moment of careful observation, I decided to exit my car as well.
 
 "Looks like you could use some help," the mechanic called out.
 
-I just stared. He was already walking over anyway, rolling up his sleeves. He didn't seem to be the tow I'd hired. At this point, I was just happy to see a friendly face.
+I just stared. He was already walking over anyway, rolling up his sleeves. He didn't seem to be the tow I'd called for. At this point, I was just happy to see a friendly face.
 
 "Better put that thing out," he gestured to the lit cigarette. I'd forgotten I was holding it.
 
@@ -62,7 +62,7 @@ I just stared. He was already walking over anyway, rolling up his sleeves. He di
 
 "Who?"
 
-"Put it in neutral," he grunted. I obliged and splashed back around, digging my own heels into the mud and pushing alongside him until we could feel the wheels loosening. Slowly but surely, they began to roll.
+"Put it in neutral," he grunted. I obliged, then splashed back around. Digging my own heels into the mud, I pushed alongside him until we could feel the wheels loosening. Slowly but surely, they began to roll.
 
 It took us another ten minutes or so to shove the dead vehicle onto relatively dry land. At one point, I had to jump into the driver's seat again and steer the thing to prevent it from sliding back into the ditch. As I did, my eyes were drawn to the tree line. A bit of red fabric fluttered there, barely sticking out of the brush. I felt ill.
 
@@ -70,19 +70,19 @@ It took us another ten minutes or so to shove the dead vehicle onto relatively d
 
 A beat of silence followed. Once the car was safely out of the danger zone, I climbed out and asked again. He shook his head.
 
-"No," he said. "I've got a friend." Then he began to get back into his truck. I thought about asking for a ride instead. Something rooted me to the spot, even in my unease. That something kept me from claiming shotgun and begging him to take me to the nearest motel. Maybe it was my own ego, the same stupid pride that had me driving through a flash flood in the wetlands of the deep South, refusing to take a favor from a man I'd once called something like a friend. 
+"No," he said. "I've got a friend." He began to get back into his truck. I thought about asking for a ride instead. Something rooted me to the spot, even in my unease. That something kept me from claiming shotgun and begging him to take me to the nearest motel. Maybe it was my own ego, the same stupid pride that had me driving through a flash flood in the wetlands of the deep South after refusing to take a favor from someone I'd once called a friend. 
 
 "You just sit tight," the mechanic called out the window. "Help is on the way."
 
-I watched the truck's headlights disappear into the darkness, shrinking into distant searchlights, then twin fireflies, then nothing at all. I was alone again.
+I watched the truck's high beams disappear into the darkness, shrinking into distant searchlights, then twin fireflies, then nothing at all. I was alone again.
 
-I crouched down on the road. By now the rain had slowed to a gentle mist. All around me, frog calls and the shrill chorus of the cicadas blended into a hypnotic sort of white noise. The air was heavy and wet. It clung to my skin in a film of suffocating moisture. I needed a cigarette.
+I crouched down on the road. By now the rain had slowed to a gentle mist. All around me, frog calls and the shrill chorus of cicadas blended into a hypnotic sort of white noise. The air was heavy and wet. It clung to my skin in a film of suffocating moisture. I needed a cigarette.
 
 As I reached for the pack, I remembered the mechanic's words: it lures them.
 
 Them.
 
-I looked into the trees. I couldn't see that scrap of red fabric anymore. Still, I knew he was watching. 
+I looked into the trees. I couldn't see that scrap of red fabric anymore. Still, I knew it was watching, whatever it was. 
 
 The man in red could've been a hallucination brought on by my sleepless, heat addled brain. My psyche does tend to betray me in times of stress. That's part of why I set out on this trip to begin with, wasn't it? When I'm on the road, I'm not in my head. There's only here and now. Gas stations and billboards and exit markers and the question of where to go next. I think maybe it's what I live for: being anywhere else. 
 
@@ -92,9 +92,9 @@ Of every detail I've recorded so far, what follows is the part that I'm perhaps 
 
 I lit another cigarette.
 
-The rest of the night is like a hazy dream. It took till around midnight for a tow truck to arrive. I don't recall if it was the one I'd called for all those hours ago or the one sent by the mechanic. It had no company logo. I watched the driver haul my car onto the bed, red mud caked across the pearly blue hood. I watched him hand me paperwork. I watched myself sign. I watched myself get into the passenger seat of the truck. I watched us drive away.
+The rest of the night is like a hazy dream. It took till around midnight for a tow truck to arrive. I don't remember if it was the one I'd called for all those hours ago or the one sent by the mechanic. It had no company logo. I watched the driver haul my car onto the bed, red mud caked across the pearly blue hood. I watched him hand me paperwork. I watched myself sign. I watched myself get into the passenger seat of the truck. I watched us drive away.
 
-I'm sitting on a cot in some two-star motel room as I write this account. I think I'll take a break from road tripping for awhile, not that I have much of a choice. I'll work odd jobs in this town, save a little, and then hitchhike my way back home when I'm ready. But first, I need to catch my breath.
+I'm sitting on a cot in some two-star motel room as I write this account. I think I'll take a break from road tripping for awhile, not that I have much of a choice. The car is far beyond repair, I was told. I'll work odd jobs in this town, save a little, and then hitchhike my way back home when I'm ready. I'll even give K a call. But first, I need to catch my breath.
 
 As I type, I can't help but feel like I never left that place. 
 
