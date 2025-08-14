@@ -14,7 +14,7 @@ I thought I'd be staying longer, but about two days in he made it pretty clear o
 
 The stranding itself is a blur. Listen, I hadn't been thinking straight when I gunned it onto that unpaved road. Before I knew it the floodwaters were sliding up past the tires. When the engine sputtered out, I just sat there for a while, searching for the will to face the deep shit I was in. Then, seeing as I had no choice, I made the call.
 
-So there I sat, three hours later. My cellphone battery read 1%. The daylight was running low. Taking in the lone dirt path and endless repeating pines, I was acutely aware of the fact that, for perhaps the first time in my life, I was utterly alone.
+So there I sat, three hours later. My cellphone battery read 1%. The daylight was running low. Taking in the desolate dirt path and endless repeating pines, I was acutely aware of the fact that, for perhaps the first time in my life, I was utterly alone.
 
 I had just popped in another CD and lit up a cig when the crunch of what could only be footsteps made me freeze. I glanced in the rearview. Nothing but empty road stretched out behind. The sound came again, louder. It seemed to approach from somewhere ahead, closer to the driver's side. I flicked on my headlights and peered out towards the pines.
 
@@ -58,11 +58,11 @@ I just stared. He was already walking over anyway, rolling up his sleeves. He di
 
 "Why?" 
 
-"The smoke," he said, readying himself to push my car. "Lures em."
+"The smoke," he said, readying himself to push my car. "Lures 'em."
 
 "Who?"
 
-"Put it in neutral," he grunted. I obliged, then splashed back around. Digging my own heels into the mud, I pushed alongside him until we could feel the wheels loosening. Slowly but surely, they began to roll.
+"Put it in neutral," he grunted. I obliged, then splashed back around to help. Digging my own heels into the mud, I pushed alongside him until we could feel the wheels loosening. Slowly but surely, they began to roll.
 
 It took us another ten minutes or so to shove the dead vehicle onto relatively dry land. At one point, I had to jump into the driver's seat again and steer the thing to prevent it from sliding back into the ditch. As I did, my eyes were drawn to the tree line. A bit of red fabric fluttered there, barely sticking out of the brush. I felt ill.
 
