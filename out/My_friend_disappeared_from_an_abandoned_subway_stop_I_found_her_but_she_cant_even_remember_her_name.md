@@ -116,7 +116,7 @@ My legs buckled as I felt an aftershock between them.
 
 “I suggest you not wear it outside your home until you’ve had time to adapt.” My incomprehension must have been obvious, because she added, “Unless you want people to see you climaxing in the middle of the street.”
 
-I nodded. “Okay. But, um…”
+I nodded. “Oh. Right. Okay. But, um…”
 
 “You’ll still look the way you look right now. Beautiful. At least long enough for you to get home.”
 
@@ -130,7 +130,7 @@ The giantess escorted me outside her shop. What I saw shocked me. 
 
 Inside the brass cages there were now naked women. They were lapping at their steel bowls like animals. All of them had defecated in their cages. Many were missing teeth. 
 
-These captives wailed like dogs left too long in their cage at the pound. Their legs were bloody and raw from the manacles’ friction. They were so filthy that I had to hold my nose. The sight was horrible, the smell was worse, and the noise of their anguish was unbearable.
+These captives wailed like dogs left too long at the pound. Their legs were bloody and raw from the manacles’ friction. They were so filthy that I had to hold my nose. The sight was horrible, the smell was worse, and the noise of their anguish was unbearable.
 
 I looked up at the giantess, my face warped with shock. “What the hell is this?”
 
@@ -156,15 +156,15 @@ I promised myself I would call the police the instant I was a safe distance from
 
 I went out that night wearing my rawhide coat. Self-consciousness was inevitable, with the garment being so rustic and strange. I worried people would see me as a weird bumpkin dressed for a southwestern ranch, somehow stranded here in the big city.
 
-If anyone even noticed my coat, they said nothing. Men and women (both) were too busy falling over themselves to buy my drinks. A wardrobe critique was not in the works.
+If anyone even noticed my coat, they said nothing. Men and women (both) were too busy falling over themselves to buy me drinks. A wardrobe critique was not in the works.
 
 I went to a club I’d always been too intimidated to even get in the queue for. You know the kind of place I’m talking about; only certified nines and tens past the velvet rope, eights allowed only if they were a big enough name for TMZ on TV.
 
-I danced with people who were the sort of beautiful you only saw in advertisements for *haute couture* and French fragrance, not in the flesh. I had sex only in public places that night, or at least in places where many people could see me. I snorted things and burnt things and ate things; sweated, screamed and danced.
+I danced with people who were the sort of beautiful you only saw in advertisements for *haute couture* and French fragrance houses, not in the flesh. I had sex only in public places that night, or at least in places where many people could see me. I snorted things and burnt things and ate things; sweated, screamed and danced.
 
-And as I did all this, and caught my reflection in every shiny surface, I fell more and more in love with a new, beautiful me. Sliding up and down on a man’s waist with his back to a bathroom mirror, I stared at myself, looked into my own eyes. And I caused myself to orgasm by my own new and foreign beauty. The intensity of my self-possession was such that if I’d seen my reflection in a pool, I might have died trying to kiss myself.
+And as I did all this, and caught my reflection in every shiny surface, I fell more and more in love with a new, beautiful me. Sliding up and down on a man’s waist with his back to a bathroom mirror, I stared at myself, looked into my own eyes. In witnessing my own new and foreign beauty, I gave myself an orgasm. The intensity of my self-possession was such that if I’d seen my reflection in a pool, I might have drowned trying to kiss myself.
 
-Only one thing gave me pause. In the far distance inside each reflection, I thought I saw the filthy, emaciated bodies of the naked women in cages. Well, not directly. I saw them only (if at all) on the periphery of my line of sight. But I heard their rattling chains and manacles; I heard their bestial howls sounding all the way from inside their excrementitious cages.
+Only one thing gave me pause. In the far distance inside each reflection, I thought I saw the filthy, emaciated bodies of the naked women in cages. Not directly, though. I saw their bodies only (if at all) peripheral to my line of sight. But their rattling chains and manacles, those I could hear; their bestial howls sounding all the way from inside their excrementitious cages, too.
 
 I forgot to call the police. Ask me how I could forget such a thing. Nevertheless, I did. But I saw those women, or sensed them, in the reflections of car windows and sidewalk puddles, in the gleaming curves of sleek German cars, in any surface that showed back my likeness. It felt like they were waiting to break through. And they seemed so very hateful to me.
 
@@ -178,7 +178,7 @@ One week was too short a time to have the coat. I needed it to be mine. I went o
 
 I needed to keep the coat, no matter the cost.
 
-And when I made up my mind, that was when I saw her; one of the manacled gutter puppies, naked and howling she’d done in the bazaar. For the first time, I could see her clear and straight ahead in the mirror’s reflection.
+And when I made up my mind, that was when I saw her; one of the manacled gutter puppies, naked and howling as she’d done in the bazaar. For the first time I could see her, a clear view and straight ahead in the mirror’s reflection.
 
 I tried calling Kiki, but it went straight to voicemail again.
 
