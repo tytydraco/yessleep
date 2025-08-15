@@ -269,3 +269,5 @@ I was afraid of the road. Of the things that prowled behind the trees and waited
 I was just afraid of the real world more.
 
 So I stayed. I kept driving. And one day, when the road expands past days long into weeks long―possibly even *years* long―I will [keep driving.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/1mrcfkc/im_a_trucker_on_a_highway_that_doesnt_exist_i/)
