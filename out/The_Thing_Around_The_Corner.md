@@ -1,0 +1,33 @@
+I had just gotten home from my Psychopharmacology class at the community college. I was exhausted and wanted nothing more than to have a quick dinner and conk out in bed, excited to wake up in the morning to a day of no classes. Before I even stepped through the threshold, I felt the familiar feeling of being watched. My heart sank when the note on the fridge confirmed my suspicions. 
+
+My Aunt had an emergency, and both my parents were gone to help her, so I was home alone tonight. I’ve always hated being home alone for as long as I can remember. I have no idea why, but whenever I’m home alone I always feel like I’m being watched… stalked. My parents were never much help, even when I was a kid they would wave it off as my overactive imagination. Now, they wouldn’t even talk about it. They always say something to the effect of. 
+
+“Christ’s sake, Allison, you’re twenty years old. Surely you’ve gotten over that juvenile fear by now.”
+
+Obviously I haven’t, but as they say, I’m twenty years old now. Even if I am scared, I’m much too old to let it get to me.
+
+I went to the kitchen to continue my mission for dinner, and scrounged up a packet of instant potatoes and chicken nuggets. I only half paid attention as I mixed the potatoes on the stove, hitting my hand on the hot pot once or twice. As I said, I was exhausted, but I snapped back to attention real quick when out of the corner of my eye, I saw a shadow move at the kitchen door. When I turned to look, there was nothing there so I continued on with my dinner. I sat down at the table with my food and started shoveling it all into my mouth, desperate to finish it as fast as humanly possible. 
+
+Then I saw a face at the door, crouched like a child peeking around the doorframe to try and scare you, only visible from the eyes up. It was humanoid, but I’d hesitate to say it was a human. The black hair was thin and wispy, and it looked like it had never seen a brush. The skin wasn’t just pale, but opaque and the brightest shade of white you’d ever seen, almost like clown makeup, but I could see the texture was that of just skin. The eyes, though… Why is it always the eyes that are the worst? Were they even eyes? They really just looked like endless abysses of darkness where the eyes should have been.
+
+I jumped so hard I damn near fell out of my seat. But when I looked back towards the door, it was gone.
+
+I couldn’t decide what to think. Had someone gotten into the house? Or was I losing it? I thought I had to have imagined it. I was in school to be a therapist so it should have been ridiculous for me to have thought otherwise. If nothing else, I knew that hallucinations exactly like this are a really common sign of sleep deprivation, so I assumed it was probably just the months of overworking myself without proper rest finally catching up with me. 
+
+I still couldn’t shake that feeling of being watched though. I’m usually okay at ignoring it, but after seeing the face, it was just making everything so much worse. You’re probably going to groan at what I did next, but let me remind you that at this point I was fully convinced it wasn’t real, that I just needed to reassure myself.
+
+So I pushed my plate aside, and made my way out to the hallway. There was nothing there, so I felt I could breathe. Even with my new relief, I still figured it would be a good idea to double check the locks on the doors and windows, so I did exactly that and when I knew every lock was secure I returned to my plate in the kitchen.
+
+That nagging feeling just wouldn’t let up, and I couldn’t bring myself to just sit down. I got the notion that maybe a distraction would be best and brought my food into the living room. I turned on the TV, some stupid comedy that I hoped would at least be funny enough to take my mind off things. It mostly worked, it eased my anxiety enough to eat, but I still had to hold back a gasp every time I saw that face out of the corner of my eyes, just like in the kitchen, peeking around the corner. To further prove that I was imagining it, it would never stay long, it would never move, never got closer to me or even made a noise, it just peeked around the corner, and watched.  
+
+I didn’t even finish the movie. As soon as my plate was empty, I got up, threw my dishes into the dishwasher, and headed upstairs for a well deserved early bedtime. The sun hadn’t even begun to set yet.
+
+I don’t know how long I’d been sleeping before the thump woke me up. It felt like I'd just closed my eyes, but when I opened them, it was pitch black outside. Then a shuffling sound at the door demanded my attention, I looked over and saw the face again. This time I saw it move, cause when I screamed, I did not close my eyes and I saw it run away, just a white, bony blur as it ran down across the doorway towards the stairs. 
+
+My first instinct was to hide, but the last thing I wanted to do was trap myself with it. I had no desire to follow it down the stairs, so there was only one other option. Out the window. 
+
+Unfortunately, there isn’t a tree conveniently located in the perfect spot for me to climb down, so I had to get creative. There was a drain pipe nearby that I could pray would hold my weight, but I knew that even if it could there was no way my hands would be able to keep a grip on it all the way down. What I could keep my grip on was the rope that held my curtains open when I wanted to let in the sunlight, so I grabbed it, and down I went, with the rope pulled as tightly as I could under the drainpipe. It shook with every movement making me less and less sure that it would hold me. I squeezed my eyes shut as I inched my way down. The pipe couldn’t hold me of course, but when I fell I was only about six feet off the ground, so while the impact really hurt my shoulder, I didn’t sustain any injuries.
+
+I ran as fast as I could to a McDonald’s that was a ways away but always busy no matter what time it is, and waited for my friend to pick me up. I’ve been staying in her dorm with her since. 
+
+I was going to go home after my parents got back, but when I told them what happened they rolled their eyes and said that they’d thought I was past it. That when I turned five and stopped talking about the face, and my complaints only became that I felt like I was being watched, they thought for sure it would go away on its own. Honestly, even after that night, I could initially believe it was a hallucination, but now knowing that this face was haunting me throughout my entire childhood. Well, how likely do you think it to not be real? I think for now it’s best that I don’t be around them, and I’ve begun looking for my own place
