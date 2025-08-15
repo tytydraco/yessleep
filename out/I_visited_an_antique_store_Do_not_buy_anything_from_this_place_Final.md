@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/hOFPH3nEyK)
+
 [Part 2](https://www.reddit.com/r/nosleep/s/gZ1A3vwQNt)
 
 Yes, I know. It’s been three months since my last update, and I’m sorry.
