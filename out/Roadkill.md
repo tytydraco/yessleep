@@ -1,249 +1,88 @@
-It was getting hot in the Uk, no not 10˚, I’m talking 25-30˚. Driving home after yet another backbreaking shift at a job I was pressured into, my mind was simply on autopilot.
 
 
+Some people believe that only humans possess a soul. That we alone are the wisest and the highest beings, meaning we alone are better than anything else out there.
+And others see the world in a bigger frame,
+Knowing that all around us breathes and lives. They carry deep empathy - a quiet awareness for nature and the creatures
+Within the world we are building around them.
+                                 
+                                        .  .  .  .  .
 
-I’d driven these suburban roads countless times, with their only hazard being the speedbumps. At least the cool breeze through my buzzcut and burnt orange sunset was a positive. It was late at that point, somewhere around 9:00 as I rounded the final corner.
+Ever since I was a kid I always felt out of place. Being forced to live with my grandparents when I was six, forced me to mature faster than the other kids around me. 
+My grandparents always seemed annoyed with my childlike behavior towards things. Dismissing the “nonsense” I spoke, Scoffing at the hours I spent with toys, As if my imagination was a waste, Better traded for something “useful.” 
+I had always hated how distant they were, how they avoided any real emotional connection with me. I felt like such a burden, constantly aware that my presence might be an inconvenience to whatever they where doing. I tryed to avoid asking questions, and knew to only watch my cartoons when they would go to bed.
+Though my youth spent with them wasn’t the most enjoyable or memorable, I do have several memories of my time around there farm. Each afternoon, I’d hop off the school bus and make my way to the barn. Always looking forward to the quiet company of the creatures who never minded my presence. I enjoyed peacefully being able to be myself, not being scolded at for talking to loud, or for asking too stupid of a question. They never cared what I did, or what I said. 
 
+Another memory I have on the barn, is the first time I learned about our finishing barn.
+I was around twelve when my grandmother decided I was old enough to know about this part of the farm. She led me down a narrow path I had never noticed before behind the barn, Its dirt worn by countless footsteps mixed with a few pebbles that scrunched and cracked when walked over. At the end stood a weathered barn. Its rusted metal roof rattled ever so slightly through a breeze, mixing precariously with the sound of grunts and squeals.
+A fence enclosed the back where pigs all milled about. There round bodies looked like pink and brown dots scattered behind the fence from a distance.
+It was there I first learned the truth—
+When I learned about our slaughter stock.
 
+Over time, I found myself walking down that worn path every weekend, just before breakfast.
+With a notebook, pencil case, and towel in hand, I’d sit just feet from the fence,
+Watching the pigs—resting, eating, playing—
+And unaware of there upcoming fate.
+Most days, I sketched the young piglets nestled beside their mother,
+Struck even at a young age by the image of life and death so near to eachother.
 
-Hitting the start of that small hill my house resides on; there was a pigeon just doing its thing in the middle of the road. Nothing new, I thought as I begrudgingly slowed down to sub-20mph. The little shit barely avoided becoming an ornament on my bumper, as it shot out at the last possible second.
+Some days I would sit outside till lunch, sharing whatever snacks I brought with the pigs before I had to leave. And Others, I would have to leave early before my grandfather arrived.
 
+I think that experience I had as a child, the love of animals intertwined with the fascination of death, lead me to where I am now. Allowing me to ease the grief and sorrow of others. Showing them the beauty of death, to preserve a quiet connection between life and what lies beyond.
 
+( Fourteen years later … )
 
-There was no sound, but the advent of feathers on the road behind me indicated the fowl didn’t get off scot-free.
+My phone alarm blares again, casting a harsh glow across the dim room I’ve been hunched over in for hours. I silence it quickly, glaring at the screen—2:30.
+I told myself I would be asleep hours ago. 
 
+Maybe that Adderall wasn’t the best idea.
 
+I quickly roll my chair over to the side drawer, fingers rummaging until they find a few more pins. Just a few more, and I’ll finally be done. Nearly my entire weekend has been swallowed by this piece for one of my neighbors, the hours blurring together in a haze of pins and needles with stubborn determination. I lean in, carefully pressing each final pin into place, double-checking that nothing feels loose or looks sloppy. 
+She’d been very specific with her request for this piece, her cat in a perfect sitting posture, head tilted just slightly to the right, and his tail held high. 
 
-Quickly flicking from my wing to rearview, it had landed on the pavement, now seemingly staring back at my car. Obliviously bouncing over the first speedbump, my focus was quickly trained back on the road ahead.
+Rolling back in my chair I take sight in the piece that consumed my whole weekend. A slow tired breath left me as I finally moved the piece off my work bench into a soft bed of tissue paper, folding each corner around it like a blanket. The box closed with a gentle thud, and I carried into my kitchen carefully placing it onto the countertop.
+ 
+I slowly treded into my bedroom, sliding off my slippers letting them tumble somewhere into the clutter beneath my bed. The mattress sighs beneath me as I crawl under my blanket, pulling it up to my chin until I’m cocooned in its warmth. The room is quiet except for the faint hum of the ceiling fan, and for a moment I thought sleep would come easily. But it doesn’t.
+ I lay in bed for a few moments staring into the dark, before accepting the fact I’m somehow wide awake. With an agitated sigh, I scoot up against my headboard, reaching over to unplug my laptop. The screen flares to life, momentarily blinding me, the harsh white light spilling across the walls and washing my whole room in its pale glow. 
+I figured it would be best to check any socials I have, just to see if I’d picked up any new followers since this weekend or maybe even gotten a few personal requests. Recently, I’ve been trying to build more of a social media presence, mostly because my personal hobbies alone can’t pay the rent. Part-time, I sell tattoo designs and 
+sketches; mostly to friends, though every now and then I’ll get random requests from people. Another hobby I do is taxidermy. These days, I sell my pieces online, usually of smaller animals like mice or rats. 
+For some reason, people go crazy over tiny rodents dressed in personalized little outfits? 
+I also do larger animals too, but mostly by request. Over the years, I’ve tried to get more traction for my pieces, attending events, setting up pop-up booths whenever I can—but the truth is, people aren’t always comfortable with taxidermy. They’ll admire my work for ages, take photos, even ask questions… but when it comes to buying, most just walk away. 
 
+Playing around on my laptop, with the feeling of sleep slowly creeping up to me, I notice a new email notification slide into the corner of my screen. I click it without much thought, expecting spam mail, or a sale from a website i forgot i was subscribe to. Instead, it’s a business inquiry.
+Not only was it strange to get one this late at night, It also wasn’t sent to my work email. In fact, it had landed in an account I rarely use, one I don’t even list anywhere online. This was my personal email only used for subscriptions or junk mail. 
+My fingers hover over the trackpad, caught of gaurd by this. Slowly, I click on the email and begin to read.
 
+From: K3ith_Williams@gmail.com
 
-Though it seemed okay, I could tell it wasn’t normal. Something about its proportions, maybe one wing was smaller, or its leg was a little too thick. Regardless though those features didn’t stand out as important.
+To: ariAlt3178@gmail.com
 
+Subject: Inquiry 
 
+Hello, 
 
-Understandably pissed off, that experience was quickly shoved into the useless memories department of my brain ready to be forgotten.
+I realize this might be an unusual request, but I was wondering if you ever have worked with reptiles? I have a pet turtle, and I’m interested in the possibility of having him preserved. I understand this isn’t a typical commission, but I thought I’d reach out anyway. I know a friend who recommended you through Instagram, and I was immediately impressed with your work. I work as a Wildlife Biologist, and I particularly appreciate when animals are preserved in a way that doesn’t humanize them. 
 
+If interested, please get back with me. I will be attending the Wildlife and Habitat expo in Springfield this week, I hope to see your booth there!
 
+Thank you,
+Keith
 
-That would have been the case if it hadn’t escalated.
+It’s three o’clock now. My eyelids feel heavy, and every part of me is begging for sleep. I still feel a bit uneasy over how he got my personal email, although I didn’t know if it was just my lack of sleep making me more paranoid that I should be. Hesitantly I start typing a reply,  
 
+From: ariAlt3178@gmail.com
 
+To: K3ith_Williams@gmail.com
 
-\---
+Subject: Reply
 
-  
+Thank you for reaching out and for your kind words about my work. I have occasionally worked with reptiles, and I’d be happy to discuss your request further. Could you provide a few more details about your turtle and what you’re hoping for in the finished piece?
 
+And yes I was planning on attending the Expo next week. I would love to meet you there. Also, may I ask how you got ahold of this email? This is mostly used for my personal needs. If you would like I can offer you my work email, or you can find it linked on all my socials!
 
-Same time, same road a couple of days later, again there was the pigeon dawdling at the start of my hills incline. Taking action once again, this time to the extent of an emergency stop, the dumb bird just flapped off to the side of the pavement, observing as I departed.
+Thank you,
+Preserve and Protect/Arianna
 
 
+I gently close my laptop and set it carefully on the table beside me. Sliding back under the covers, I tug the blanket up around my shoulders, trying to ease the restless tension in my mind. My eyelids feel heavy, my thoughts still buzzing from that late-night email and the tiny spark of confusion from how that email was even obtained? 
 
-My increasingly rational mind thought up a scenario where the government was checking people’s willingness to stop in the event of an animal on the road, utilising their drone pigeons.
-
-
-
-Though its basis was on as stable ground as the ocean, I did feel better abound not driving it into the tarmac, mechanical or not.
-
-
-
-With those previous experiences fresh in my mind, my final journey home for the week was altered. Opting for a different route, in order to theorise weather that bird was in fact singling me out, I took a right, rather than a left.
-
-
-
-Yes, the road works shutting off that lane was a deciding factor, though that small portion of my brain still wanted answers.
-
-
-
-Funnily enough, he’d brought his friends this time. Five, I repeat five pigeons across the same stretch of road, only 1 kilometre long. Each incident, had them darting away as I slowly lost patience and refrained from even touching my break by the last one.
-
-
-
-That final bird, being the one I’d seen all week. Lingering there in the centre of the road, its brainless almost mocking head cocks sought to infuriate me further.
-
-
-
-Messaging my parents, didn’t give me any reprieve. My father barked that increasingly common line, “you’re not a child anymore Harrison, stop lying and ack like a man.”
-
-
-
-Five days down, five birds still alive. Rucky numbers in most fps games and far from how my father would have delt with them.
-
-
-
-\---
-
-  
-
-
-That weekend was equally as warm, hitting heights of 32 degrees. My lazy ass slumped back in my desk chair, two fans on me and one on my pc. No driving = no birds, or so I thought.
-
-
-
-Grabbing a drink and making my way back to my room, my gaze was grasped by a pigeon sitting on my balcony. The old Victorian house I resident at had small extensions, not fit to stand on, though surprisingly welcoming for the occasional bird.
-
-
-
-Thinking nothing off it, I hopped back onto my chair, enjoying the incoming breeze from my open window.
-
-
-
-That fact alone froze my previously clammy body, as I was petrified in place. I hate insects in my room, so I only ever crack my bedroom window open an inch or two. As my body thawed, allowing just my head to turn, that same uncanny bird peaked its twitching head under my uplifted glass pane, as a glazed over white eyes scanned me.
-
-
-
-I’ll admit, I freaked, grabbing the metal flask to my side and using it like a ram, forcing the bird back and slamming the pane down. The bird twitched again, as I got a better look at its overall appearance.
-
-
-
-Practically nothing about the ‘bird’ could be described as natural. That milky white eye was massive, far larger than should have been able to fit into the socket it bulged from. Similarly, its ‘feathers’ were nothing more than patches of matter fur, hair and the occasionally sparce quill.
-
-
-
-Worse of all were its feet, if you can even call them that. Three small burnt blistering human fingers sprouted from the creature’s leg. Those soft, wet thuds as it crept from one side of the window to the other almost made me gag as I tried not look.
-
-
-
-Its other appendage was a short, hairless pawlike structure, though significantly small, forcing the creature to waddle with a limp.
-
-
-
-From a distance its colouration and makeup could have passed for a natural creature, but up close, the horrific facsimile was nothing more than a mishmash of organic parts.
-
-
-
-Taking a step back and reaching for the toggle for my blind in an attempt to avert my eyes, it opened its cracked beak, letting out a raspy guttural squark.
-
-
-
-Though my headphones were supposed to be noise cancelling, that creatures’ shrill caws still pierced my ears and just my luck, it was relentless. Somehow, I managed to get a couple hours sleep that night, though waking in the morning and peaking from behind the blind, it was still there, scratching out its incessant tune.
-
-
-
-\---
-
-  
-
-
-Thankful my parents were returning from their weeklong holiday; I was hoping that my farther would at least be able to shoo it off.
-
-
-
-Getting chewed out again for ‘acting like a girl’, my father scoffed at my account as he entered the front door. Sighing and relenting, he strode up and into my room. Opening the window and coming face to face with the creature, he spoke.
-
-
-
-Though it was faint, I could hear him mutter under his breath. “Pigeons, again.”
-
-
-
-Peaking from behind, another bird had joined my roadkill-esque stalker.
-
-
-
-Though not nearly as grotesque as its compatriot, the other pigeon was equally as misshapen, giving the silhouette of a living breathing creature, though adorned with a haphazard arrangement of miscellaneous parts of other fauna.
-
-
-
-Bellowing back to me in his familiar demanding tone, my fathers voice cut through the duet of broken squawks.
-
-
-
-“Make yourself useful and bring me something to smack them off with.”
-
-
-
-His venomous order had me on my heels as I ventured across the hall and into his room. I knew far too well that he kept a bat behind his wardrobe and though my mother didn’t condone it, she was idle in his presence.
-
-
-
-Moments before reaching out for the doorknob, a high-pitched wail emanated from the first floor as the squawks only grew louder, slowly contorting into what I can only describe as gleeful laughter, followed by a thud.
-
-
-
-Though in my heart I think I knew what they’d done, orders were orders. Gripping the bat and slowly stepping back into my room, my father was gone, and so were the creatures.
-
-
-
-Hesitantly stepping to the window, bat outstretched in my trembling hands. Peaking just over the eclipse of the chipped stone balcony, was a body, lying face down in the grass of my front garden.
-
-
-
-A swath of creatures encircled, as they quietly crept closer. There had to be around four or five, with the larger creature easily identifiable. That bird limped over to the body, before hopping on to his upper back. The perimeter of malformed pigeons cued as the larger one pecked.
-
-
-
-After only a few seconds of picking at the cadavers’ throat, it let out another unholy caw, this time resembling the broken scream of a person. Its call to devour elicited the gang of creatures to gorge themselves.
-
-
-
-I couldn’t look down there, regardless of how he was. Soft ripping and snapping sounds followed as my mind crafted a disgusting vision, imprinted on my psyche.
-
-
-
-Her screams quickly followed. Shouts of ‘get away’ or ‘leave him alone’ only momentarily paused their evisceration. What she hoped to gain from her hysteric please, I don’t know. Just stepping out there, however noble, had only sealed her fate.
-
-
-
-Oh, she screamed, unlike my father she was definitely alive, at least for the start. That same clawing, ripping sound had me balled up with my hands over my ears, trying in vain to block out their frenzied swarm.
-
-
-
-It wasn’t quick, at least he’d been silenced in one swift motion. The persistent pecking only seaced with a word. A name.
-
-
-
-Turning slowly, that crude organism was plastered to the window. Its mattered covering now a mixture of skin, fur and feathers, though stretching out from the rounded numb of its wings were three bony appendages, mimicking fingers.
-
-
-
-Flocked by its now quire of malformed raptors, it opened its snubbed beak, revealing a sparce spread of small human teeth and a long pink tongue.
-
-
-
-Then it spoke again.
-
-
-
-In a broken scratchy attempt at human speech, to my fractured mind, it really sounded like that creature said my name.
-
-
-
-\---
-
-  
-
-
-In the days since, I’ve had a multitude of calls and texts about my absence, though killer birds isn’t a strong excuse. I even called the police, said something or someone was trying to break in, it wasn’t hard to make it sound believable, but she stopped me.
-
-
-
-Only asking if I’d seen any strange birds.
-
-
-
-Thinking these creatures were known and they’d be willing to assist, I blurted out what I’d seen and what had happened.
-
-
-
-She let me rant, cry and sputter out the events of the last week, before saying sorry and hanging up.
-
-
-
-Repeated calls all resulted in a deadline. Maybe those creatures tampered with the fuse, or I was just being confined to my fate.
-
-
-
-It wasn’t like I could wait for anyone to just stumble over their bodies, looking down to the lawn below, nothing more than a small pool of stain grass remained in their wake. With me not having any other living family in the country, it wasn’t like I could coerce anyone to freely feed themselves to the swarm in hopes of rescue. 
-
-Could I make a run for it? Undoubtably pointless.
-
-Peeking out from behind my blind, they’d grown. Not just in size but in quantity. Every available branch, power line and spot on my balcony was covered in birds, all in varied stages of modification.
-
-That things now forward-facing eyes gleamed back into mine with a twisted smile cracking as it contorted across that creature’s twisted face.
-
-It must know I can’t stay here forever.
-
-Those ever-present squawks repeat as more join the cacophony of calls, all scratching out my name.
-
-That misplaced feeling of relief for not hitting what I deemed a poor defenceless animal, inverted. Its malicious ego intent to render me unappreciated, like carrion by the roadside.
+Turning over to my side, I lay there for a few more moments until I eventually feel myself finally drifting into sleep.
