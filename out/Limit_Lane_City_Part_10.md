@@ -78,3 +78,5 @@ We waited for the doors to close in front of us before we pressed the button tha
 In front of us was the restaurant, just like we left it. But, no. It wasn't the same. The people were different. I remembered the couple sitting right across from the door. There were now three young men devouring a plate of spring rolls instead. I pressed the button again and again we ended in a hall full of tables and food. We went down many floors and with each one we found another dining room, stuffed to the max with eating people. After about seven or eight floors we decided to go back up. There was nothing down there after all. This could have gone on forever. I started to believe that the only reason the god brought Valerie in here was so there weren't any witnesses.
 
 [Part 9](https://www.reddit.com/r/nosleep/s/7IsQywh97d)
+
+[Part 11](https://www.reddit.com/r/nosleep/s/0a6qpRM4iM)
