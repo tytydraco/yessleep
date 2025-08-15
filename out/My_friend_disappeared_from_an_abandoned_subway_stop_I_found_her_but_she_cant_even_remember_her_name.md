@@ -2,7 +2,7 @@
 
 “It used to be the subway stop for city hall,” Kiki said. 
 
-Kiki was a militant lesbian who also worked as a high-class escort specializing in bondage and sadomasochism. She was also an “urban explorer”. Urban exploration is “the exploration of manmade structures, usually abandoned ruins or hidden components of the manmade environment.” (I’ve run up quite the intellectual debt to Wikipedia.)
+Kiki was a militant lesbian who worked as a high-class escort specializing in bondage and sadomasochism. She was an “urban explorer” too. (Urban exploration, if you're not in the know, is “the exploration of manmade structures, usually abandoned ruins or hidden components of the manmade environment.” Thank you, Wikipedia.)
 
 We met because she was auditing a textile/surface design class at my fashion institute. Kiki is the coolest human being I know. She is also super hot, and since I am the opposite of super hot, I appreciate that she hangs out with me. I’m not jealous of her at all.
 
@@ -52,9 +52,9 @@ I walked in and started browsing. The place was wild. A tiny old lady wearing a 
 
 I passed by a tent filled with middle-aged women, all of them at least six feet tall. They were dusky, every one of them with a severe hunchback, and formed a circle around two of their kind, who were in the middle of playing some strange variation of craps that involved slaughtering a live chicken. Elder worthies sat on stools outside the circle and toothlessly screamed while throwing brown liqueur on the competitors (at least I hoped that’s what it was).
 
-I came to the edge of the market. A lonely brick-and-mortar shop stood apart there, from all other commerce. Outside the shop there were empty brass cages that looked like they belonged in a nineteenth-century millionaires menagerie of animals he bought on safari. There were chained manacles and steel water bowls inside of each cage. I looked at the storefront window. These characters were written on the glass in gilt lettering: ⲃⲱⲱⲛ ⲥⲁ ⲛⲁϥ.
+I came to the edge of the market. A lonely brick-and-mortar shop stood apart there, from all other commerce. Outside the shop there were empty brass cages that looked like they belonged in a nineteenth-century millionaire's menagerie of live animals bought on safari. There were chained manacles and steel water bowls inside of each cage. I looked at the storefront window. These characters were written on the glass in gilt lettering: ⲃⲱⲱⲛ ⲥⲁ ⲛⲁϥ.
 
-I walked inside through a flap made out of a pungent-smelling rawhide.
+I walked into the store through a flap made out of a pungent-smelling rawhide.
 
 An old woman sat behind the counter. I had the unexplainable feeling that she’d been sitting there waiting for me. She looked at me. “Yes?”
 
@@ -156,126 +156,128 @@ I promised myself I would call the police the instant I was a safe distance from
 
 I went out that night wearing my rawhide coat. Self-consciousness was inevitable, with the garment being so rustic and strange. I worried people would see me as a weird bumpkin dressed for a southwestern ranch, somehow stranded here in the big city.
 
-
-
 If anyone even noticed my coat, they said nothing. Men and women (both) were too busy falling over themselves to buy my drinks. A wardrobe critique was not in the works.
-
-
 
 I went to a club I’d always been too intimidated to even get in the queue for. You know the kind of place I’m talking about; only certified nines and tens past the velvet rope, eights allowed only if they were a big enough name for TMZ on TV.
 
-
-
 I danced with people who were the sort of beautiful you only saw in advertisements for *haute couture* and French fragrance, not in the flesh. I had sex only in public places that night, or at least in places where many people could see me. I snorted things and burnt things and ate things; sweated, screamed and danced.
-
-
 
 And as I did all this, and caught my reflection in every shiny surface, I fell more and more in love with a new, beautiful me. Sliding up and down on a man’s waist with his back to a bathroom mirror, I stared at myself, looked into my own eyes. And I caused myself to orgasm by my own new and foreign beauty. The intensity of my self-possession was such that if I’d seen my reflection in a pool, I might have died trying to kiss myself.
 
-Only one thing made me hesitate. Far off, in each reflection, I thought I saw the filthy, emaciated bodies of the naked women in the brass cages of the bazaar. I couldn’t see them directly, but I could hear their chains and manacles rattling, and the terrible wails that they’d made inside their excrementitious cages.
+Only one thing gave me pause. In the far distance inside each reflection, I thought I saw the filthy, emaciated bodies of the naked women in cages. Well, not directly. I saw them only (if at all) on the periphery of my line of sight. But I heard their rattling chains and manacles; I heard their bestial howls sounding all the way from inside their excrementitious cages.
 
-I forgot to call the police—ask me how I could forget such a thing, but nevertheless, I did. But I saw them, or sensed them, in the reflections of car windows and sidewalk puddles, in the gleaming curves of sleek German cars, and in every reflective surface otherwise. It felt like they were waiting, seeking to break through. And they seemed so very hateful to me.
+I forgot to call the police. Ask me how I could forget such a thing. Nevertheless, I did. But I saw those women, or sensed them, in the reflections of car windows and sidewalk puddles, in the gleaming curves of sleek German cars, in any surface that showed back my likeness. It felt like they were waiting to break through. And they seemed so very hateful to me.
 
-I was afraid of them, the naked women in chains. I was so afraid of them, that when I left the club and returned home, I decided that I wouldn’t call the police after all. I didn’t know what I saw in those cages, I decided. And besides, I had a new life to live.
+I was afraid of them, the naked women in chains. I was so afraid of them, that when I left the club and returned home, I decided that I wouldn’t call the police after all. I didn’t know what I saw in those cages, I decided. Really, I had no idea what I’d seen. And I had a new life to live.
 
-I tried calling Kiki the next day to share the good news, to invite her over to see my transformation, but her phone sent me straight to voicemail.
-
-•
-
-One week was too short a time to keep the coat. I needed for it to be mine. I went out every night, desperate to accumulate a track record of hedonism. I felt a lust for my own image, like I was a self-obsessed idolater. Even though I was accepted and desired by the most beautiful people in the city, it was my own flesh and likeness I needed more of. I decided that I needed to keep the coat, no matter the cost.
-
-And when I settled on that decision, that was also the first time I saw one of the naked women in chains directly in a mirror’s reflection.
-
-I tried calling Kiki again, but it went straight to voicemail again.
+I tried calling Kiki the next day to share the good news, to invite her over to see my transformation. But her phone sent me straight to voicemail.
 
 •
 
-When five days’ time had passed, I had my textile/surface design class. I looked for Kiki, but she wasn’t there. I called her again, having sent innumerable text messages. I heard a new message. Instead of notifying me that the caller’s voicemail box was full, Kiki’s cell service provider informed me that the number I was calling was no longer in service, to please check that I’d called the right number before trying to call again.
+One week was too short a time to have the coat. I needed it to be mine. I went out every night and built up a repertoire of hedonism. I felt an idolater’s lust for my own image. I was completely self-obsessed. Even though I was desired by the most beautiful people in the city, it was my own flesh and likeness that set me aflame. 
 
-I’d like to say I was deeply concerned about Kiki, and her disappearance (though I didn’t allow myself to admit that that was what had happened), but the notion of returning the coat to the giantess disturbed me more than any missing “friend” ever could.
+I needed to keep the coat, no matter the cost.
 
-I decided that the next day, I would go back to the bazaar and speak with the giantess. 
+And when I made up my mind, that was when I saw her; one of the manacled gutter puppies, naked and howling she’d done in the bazaar. For the first time, I could see her clear and straight ahead in the mirror’s reflection.
+
+I tried calling Kiki, but it went straight to voicemail again.
 
 •
 
-It took some doing, but I found it again. I passed the sign reading GHOULS’ HYPOGEAN BAZAAR and entered the concourse.
+After five days’ time, I’d returned to my textile/surface design class. Kiki didn’t show. I called her again (I’d already sent innumerable text messages).
 
-There were still stalls all over, but they were either poorly tended or seemed to have been abandoned. I passed by where I’d seen the dusky women playing their strange game of poultry and dice, and there was only one of the old, toothless ones. She looked at me and cackled like a lunatic, threw some of her brown liqueur at me but, mercifully, she missed. 
+Instead of notifying me that the caller’s voicemail box was full like before, Kiki’s service provider informed me that the number I was calling was no longer in service (and, to please check the number and try again).
 
-Everything was similar, but it had all decayed. It was not the bustling souk of foreign objects and strange sellers I’d seen before.
+I’d like to say I was deeply concerned about Kiki, and her disappearance, but the notion of returning the coat to the giantess disturbed me more than any missing “friend” ever could.
 
-There was only one thing that seemed better down here in the bazaar, and it was that when I saw a reflection down here, I did not sense the naked women in chains lurking somewhere distant inside it.
+I decided that the next day, I would go back to the bazaar and speak with the giantess. I couldn’t surrender the coat.
 
-I found the giantess again. I can’t describe the relief I felt when I came into view of her shop at the edge of the now-empty market, and saw there was only one brass cage. I allowed myself to be deluded with the hope that those filth-smeared naked women had been freed.
+•
 
-I entered the giantess’s shop through the pungent-smelling flap of rawhide, and the giantess was sitting behind the counter waiting for me, just as she’s done before. Her smile was deep and mean.
+It took some doing, but I found it again. There it was: the sign reading GHOULS’ HYPOGEAN BAZAAR.
 
-“Ah,” she said, clasping together her overlong fingers like knobby chicken legs eaten down to the bone, “you’re back. And you look more beautiful than ever, darling! I was worried you wouldn’t be back in time to return the coat.” 
+I entered the concourse.
 
-“I’m back,” I said through teeth gritted in rage. The woman knew exactly what she was doing, I thought. She knew it would be agony to return this coat.
+There were still stalls all over, but they were either poorly tended or abandoned. I passed by where I’d seen the dusky women playing their strange game of chicken-slaughter-dice. There was only one toothless, old woman there. She looked at me and cackled like a lunatic, then threw some of her brown liqueur at me (a small mercy it missed).
 
-“All’s well that ends well. Go ahead and take it off, and I’ll get you a receipt.” She stood up behind the counter and pawed around, I presumed, for her receipt pad.
+I recognized the bones of the bazaar, but the flesh of commerce had decayed. It was not the bustling souk filled with curiosities and oddments I’d seen before.
+
+There was only one thing that was a feature and not a bug. When I saw a reflection while in the bazaar, I no longer saw the women in chains looking back at me.
+
+I can’t describe the relief I felt when I came into view of the giantess’s shop at the edge of the now-empty market. Now, outside her store, there was only one brass cage. I allowed myself the delusional hope that those filth-smeared women had been freed.
+
+I pushed aside the pungent flap of rawhide and entered the shop. The giantess was sitting behind the counter waiting for me, just as she’d done before. Her smile was etched in deep, fleshy lines in her face. But she didn’t look happy. In fact, she looked mean.
+
+“Ah—” she brought together her fingers that were like long, knobby chicken legs eaten down to the bone “—and here you are! Looking more beautiful than ever, if I may say so, darling. I was worried you wouldn’t be back in time to return the coat.”
+
+“I’m back.” My teeth gritted in sudden rage. The woman knew exactly what she was doing to me. She knew it was agony to come back with the coat.
+
+“All’s well that ends well. Go ahead and take it off, and I’ll get you a receipt.” She stood up behind the counter and pawed around for her receipt pad (I guessed).
 
 “What happens when I return it to you?” I said.
 
-The giantess continued “searching” among her things, making a show of picking up and putting down and rearranging things. She didn’t look at me when she answered me and said, “Why, then I’ll have it back, I suppose.”
+The giantess continued “searching” among her things, making a show of picking up and putting down and various rearrangements. She didn’t look at me when she answered. “Why, then I’ll have it back, I suppose.”
 
-“No. I mean, what happens to me?” I felt my throat tightening and wettening and my sinuses watering up. I was going to cry.
+“No. I mean, what happens to me?” I felt my throat tightening and fluid sluicing my sinuses. I was probably going to cry.
 
-“Oh.” The giantess was trying to sound ponderous, I was sure, as if she’d only thought about my question right at that moment, that what happened to me or anyone else who’d returned the coat after having it for a short time had only crossed her mind today for the first time. She looked directly at me, suspending the ruse that she was searching for something (I doubted very much this woman had a moment in her whole life where she didn’t know where to find exactly what she needed and owned). “I’m afraid you’ll be a dowdy, chubby, ugly little duckling again.”
+“Oh.” The giantess was feigning revelation, I was sure, as if she’d only considered, right at that moment, what surrendering the coat would do to me. As if what happened to me after wearing it only long enough to develop a hellacious dependence, had only crossed her mind for the first time today. She looked directly at me, ending her rummaging ruse (I doubted very much that this woman ever lost track of anything she owned). “I’m afraid you’ll be a dowdy, chubby, ugly little duckling again.”
 
-Her words stung. I tried to keep from crying. “I want to keep it.”
+Her words stung. I bit down on my tongue. Then I collected myself to state my claim. “I want to keep it.”
 
 “You want to keep it?” she said.
 
-“YES!” I practically screamed at her. I was unhinged. The idea of becoming a fat, nerdy undesirable again seemed like catching a disease. I was revolted by my former self. I couldn’t go back to that. “Yes,” I said, repeated in a much softer tone. “Please. Please, I would like to buy it.”
+“YES.” I practically screamed at her. I was unhinged. The idea of becoming a fat, nerdy undesirable again seemed as deadly to me as Ebola fever. I was revolted by my former self. I couldn’t go back to that. “Yes,” I said, repeated in a much softer tone. “Please. Please, I would like to keep it.”
 
 The giantess sighed and crossed her arms. “You certainly do seem very attached to it.”
 
 I nodded. “I’d do anything to keep it.”
 
-She stretched to her true and full, terrible height, and it looked to me like her eyebrows might raise almost to the ceiling. “Anything?”
+She stretched to her true and full, terrible height, and it looked to me like she could break through the ceiling. “Anything?”
 
-“Yes.” I repeated myself again. “Yes, I’d do anything to keep it.”
+“Yes.” I straightened my back. “Yes, I’d do anything to keep it.”
 
-“Then all you have to do is tell me, darling,” she said as she came around the counter. Her sagging skin rustled in an invisible breeze and her sockets darkened under shadows that cut against where light, not shadow, ought to have been. “Tell me one more time, and mean it with everything in your heart.”
+“Then all you have to do is tell me, darling.” She came around the counter. Her sagging skin rustled in an invisible breeze. The hollows of her eyes darkened where light, not shadow, ought to have been. “Tell me one more time. Tell me, and mean it with everything in your heart.”
 
-The declaration I made to her was spoken with more honesty and more deep feeling than I’d ever given of myself to anything else in my whole life. “I would do anything to keep my—” I faltered, realizing my overeager mistake. I cleared my throat and held back tears and corrected myself, and said, “I would do anything to keep this coat.”
+The declaration I made to her was spoken with honesty and deep, deep feeling; more than I’d ever given of myself in my whole life. “I would do anything to keep my—” I faltered at my mistake. I cleared my throat. I corrected myself, and said, “I would do anything to keep this coat.”
 
-The giantess grinned, her teeth sharper than I remembered, and a yellow the color of putrid exudate. “Okay, Jerrica. The coat is yours.” She held out her hand for me to shake.
+The giantess grinned, her teeth sharpened on my desperation and yellowed to the color of putrid exudate. “Okay, Jerrica. The coat is yours.” She held out her hand for me to shake.
 
-I came around the counter and, instead of shaking her hand, I fell to my knees in front of her. I allowed myself to sob in relief. I thanked her again and again and again.
+Instead of shaking her hand, I fell to my knees in front of her. I sobbed. I thanked her. I thanked her again and again.
 
 •
 
-When the giantess escorted me out of her shop, I saw a woman in the one brass cage that still remained. She wasn’t as dirty as the ones I’d seen before. And, I realized, I could recognize the tattoos on her body. It was Kiki.
+The giantess escorted me out of her shop. A woman now occupied the lone brass cage that still remained. She wasn’t clean, but she was cleaner than the caged women I’d seen before in her place. I realized, I recognized the tattoos on her body. It was Kiki.
 
-I ran to the bars of the cage and reached through them. “Kiki! Kiki, what happened?”
+I ran to the bars of the cage. I reached through them. “Kiki! Kiki, what happened?”
 
-And when Kiki looked up at me, I didn’t see the fleet eyes and streetwise glamour that animated her before. I saw a dirty, dumb animal. If Kiki recognized me, I couldn’t tell. She thrashed against her chains and bit at my hand, catching me on the knuckle and taking off a chunk of flesh. I leapt back and fell on the floor.
+Kiki looked up at me. I no longer saw the brilliance in her eyes or the streetwise glamour that once animated her. I saw a dirty, dumb animal. 
 
-The giantess saw this and laughed. She laughed in a way that told me she could only ever laugh at another’s pain.
+If Kiki recognized me, I couldn’t tell. She thrashed against her chains. I reached out for her. She snapped her teeth at my hand, catching me on the knuckle and taking off a chunk of flesh. I leapt back and fell on the floor. My hand freely bled.
 
-I wiped tears from my eyes. “Kiki…” I said.
+The giantess saw this and laughed. She delighted in my shock, my misery.
 
-And then Kiki started mocking me, but not like a human would. She mocked me like an ape trying to imitate someone mocking me would do. She tried grunting her name back at me in the dumb pan-flute-sounding pant-hoot of a wild chimpanzee: “Kik. Kok!”
+I wiped tears from my eyes and accidentally smeared blood on my face. “Kiki…” I said.
 
-When she couldn’t get her name right, the giantess laughed so hard that she was wheezing. Falling over herself in laughter, she screamed out, “Try again, dear!”
+Kiki mocked me, then, but it was no human mockery. She mocked me like an ape recreating a human master’s jeers and taunts. She shouted her name back at me, getting it wrong, grunting in the pan-flutelike pant-hoot of a wild chimpanzee: “Kik. Kok!”
 
-Kiki tried to imitate the laughter of the giantess, and the sound was from a living nightmare. Her and the giantess shrieked laughter together, Kiki in her idiot imitation of the giantess and the giantess with a sound like love for evil.
+When Kiki botched her own name, the giantess laughed hard enough to lose her wind and start wheezing. She fell over herself in cackling gales, then screamed, “Try again, dear!”
 
-When Kiki started throwing her feces at me, I ran.
+Kiki tried to imitate the laughter of the giantess. Kiki and the giantess shrieked, and guffawed—Kiki in her idiot imitation of the giantess and the giantess for love of my misery.
+
+Once Kiki started throwing her feces at me, I ran.
 
 •
 
 I got home and I cried. And then I fell asleep in my new coat.
 
-I was awoken in the middle of the night by the sound of chains. I sat up in bed, and heard their heavy metal links dragging on the floor. I knew what the sound was.
+I was awoken in the middle of the night by the sound of chains. I sat up in bed, and heard the heavy metal links drag across the floor. I knew what the sound was.
 
-I covered myself in my bedsheets and trembled.
+I hid underneath my bedsheets and trembled.
 
-The chains dragged along the ground, and their scraping and clanking got louder and louder.
+The chains scraped and clanked along the ground. The sound became louder and louder.
 
-The bedsheets were ripped from over top of me. I looked up and saw the naked women from the cages, standing in their chains, unmanacled to any cage. I saw Kiki standing there with them, her body cleaner than theirs but still stinking of shit and piss, and the vague pheromonal scent that the insane carry with them. The women shrieked and shrieked, and I screamed for help.
+The bedsheets were ripped off of me. I saw the naked women who’d been imprisoned below ground. They stood swinging their chains, unmanacled to any cage. Kiki stood there with them, her body cleaner than theirs but still stinking of shit and piss. They all exuded the vague pheromonal musk that the insane carry with them. The women shrieked and I screamed for help.
 
-But I’d hardly opened my mouth when the first woman’s chain struck me in the mouth. I felt teeth shatter. Another one lashed me with her chain, and it struck my eyebrow. A burst of blood showered over my face, and I was sure that my eyebrow had been whipped off. They beat me and beat me. It was the unrestrained blood orgy of animals. And while they were beating me, I heard Kiki screaming out with every flail of her heavy metal chains against my body and face: “Kok! Kik! Kok!”
+But I’d hardly begun screaming when the first woman’s chain struck me in the mouth. My teeth shattered. Another woman lashed me with her metal links, striking my eyebrow. A burst of blood showered over my face. I reached up my hand and felt my eyebrow was gone. They beat me and beat me with their chains. It was the unrestrained frolic of animal violence. 
+
+And while they beat me, I heard Kiki bellow, with every flail of her heavy metal chains against my body and face: “[Kik! Kok!](https://www.reddit.com/user/DickinsonPublishing/)”
