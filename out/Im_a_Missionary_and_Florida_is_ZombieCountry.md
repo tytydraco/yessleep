@@ -355,3 +355,5 @@ Lydia’s eyes lit up for a second as she got to her feet, rushing to the door, 
 Through all the smashing and commotion, I could make out Lydia shouting, the music quickly coming to a stop as the violence outside came to a sudden calm.
 
 Lydia’s voice echo from outside the small room, “That bitch is a fuckin’ [Valkyrie](https://www.reddit.com/r/The_Guardian_Temple/)!”
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1mraofk/im_a_missionary_and_my_friend_has_to_save_me_from/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
