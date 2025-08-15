@@ -173,3 +173,5 @@ I should have said something. I should have told her to stop. This was my rig, 
 ‘Did you know Brazil is a huge UFO hotspot? They get more sightings than we do...’ 
 
 Where was she going with this? 
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1mr927a/im_a_trucker_who_never_picks_up_hitchhikers_but/)

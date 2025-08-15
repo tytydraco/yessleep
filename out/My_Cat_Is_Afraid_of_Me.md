@@ -2,7 +2,7 @@ It wasn't always this way.
 
 When I adopted Gerald as a kitten, he acclimated to my little one-bedroom duplex right away. Not a trace of timidity. He's about one year old now, a sleek orange tabby with white paws who gets into more trouble than I can manage. I've caught him climbing curtains, knocking over glasses of water, and sending embarrassing keyboard-smash messages to my coworkers by napping on my open laptop. Normal, well-adjusted cat behavior.
 
-Last week, however, he started to avoid me.
+This week, he started to avoid me.
 
 I first noticed it at mealtimes.
 
@@ -78,7 +78,7 @@ The stranger stepped down the wooden stairs slowly. I couldn't help but think th
 
 I saw me.
 
-I don't know how else to say it. The stranger wore my face. The same nose, same dark brows and thin lips. Even the small port wine stain on her—or my—left cheek. The woman's eyes were wider and shinier than mine, though, with a blank inscrutable expression I have only seen on prey animals or very young infants.
+I don't know how else to say it. The stranger wore my face. The same nose, same dark brows and thin lips. Even the small port wine stain on her—or my—left cheek. The woman's eyes were wider and shinier than mine, though, holding a blank inscrutable expression I have only seen on prey animals or very young infants.
 
 For a split moment I think I felt something like pity for this wretched creature. She looked so lost, and yet so viscerally, evolutionarily wrong.
 
@@ -88,7 +88,7 @@ I don't know what came over me then. Perhaps some survival instinct or panic res
 
 The woman who wore my face turned and scampered from my backyard like a spurned animal, clambering over the chainlink fence and disappearing into the darkness.
 
-After I was sure she had gone, I went inside to check on Gerald. He was unharmed, washing his paw casually as if nothing had happened at all. That is, until I got too close. He still doesn't trust me. I can tell. I managed to get him into his cat carrier, though. Then I threw a toothbrush and some clothes into a bag, grabbed Gerald's carrier, and left for my sister's place across town.
+After I was sure she had gone, I went inside to check on Gerald. He was unharmed, washing his paw casually as if nothing had happened at all. That is, until I got too close. He still doesn't trust me. I can tell. With great difficulty, I managed to get him into his cat carrier. Then I threw a toothbrush and some clothes into a bag, grabbed Gerald's carrier, and left for my sister's place across town.
 
 Despite the short notice, Laura set up their fold-out couch for me as soon as I explained my night from hell. I even told her about the face. Though she didn't say a thing to discredit my story, I can tell that she thinks my interpretation of events is altered by stress and lack of sleep. I appreciate her listening anyway.
 
