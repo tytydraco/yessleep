@@ -43,3 +43,5 @@ Maybe the gods' way of reminding her what awaits her outside this reality. After
 "I can't get that girl out of my head now. I totally deleted her from my memory for so long and even now, I barely remember anything about her. Thinking back, she looked a bit like your friend." 
 
 [Part 10](https://www.reddit.com/r/nosleep/s/ZCd1Feshng)
+
+[Part 12](https://www.reddit.com/r/nosleep/s/rfBNjq8mqE)
