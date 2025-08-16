@@ -1,4 +1,4 @@
-\[[Part 1](https://www.reddit.com/r/nosleep/comments/1mf885p/moth_boy_part_1/)\] – \[Part 2\]
+\[[Part 1](https://www.reddit.com/r/nosleep/comments/1mf885p/moth_boy_part_1/)\] – \[Part 2\] - \[[Final](https://www.reddit.com/r/nosleep/comments/1mrfeq4/moth_boy_final/)\]
 
 The year was 2012. 8 years after my initial run-in with the infamous Moth Boy. After having almost been set on fire, I was eager to start a new chapter in my life. I went to therapy, I made advancements in my career, and I got married to a wonderful woman. We had our reception on a cruise. I know, unusual, but we’ve always had a thing for the ocean. We met on a diving course.
 

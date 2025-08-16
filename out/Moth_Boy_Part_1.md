@@ -1,4 +1,4 @@
-\[Part 1\] - \[[Part 2](https://www.reddit.com/r/nosleep/comments/1ml9de6/moth_boy_part_2/)\]
+\[Part 1\] - \[[Part 2](https://www.reddit.com/r/nosleep/comments/1ml9de6/moth_boy_part_2/)\] - \[[Final](https://www.reddit.com/r/nosleep/comments/1mrfeq4/moth_boy_final/)\]
 
 I’ve been reluctant to do this for many years. Friends and family have asked me to tell them about the Moth Boy for years, but I’ve declined. Perhaps they think I just have a creepy anecdote, or a fun factoid. Not a lot of people know I’ve been there since the beginning.
 
