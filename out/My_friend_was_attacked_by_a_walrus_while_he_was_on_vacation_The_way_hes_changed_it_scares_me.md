@@ -2,7 +2,7 @@ I work for my best friend Mitch. This is about him. Or, about who he became. Whe
 
 •
 
-Mitch went on vacation in Alaska after his divorce. While he was there—after he’d already had the chance to see the Northern Lights, watch humpback whales from a fishing boat, and gone on a flightseeing tour over the glaciers and fjords—he was attacked by a walrus. 
+Mitch went on vacation in Alaska after his divorce. While he was there—after he’d already had the chance to see the Northern Lights, watch humpback whales from a fishing boat, and gone on a flightseeing tour over the glaciers and fjords—he was attacked by a walrus.
 
 What’s even crazier is that it happened inside his hotel. Because, do you know how many walruses have attacked people inside of hotels? Neither do I, and I think the reason for that is that there is no such number, because it has never happened.
 
@@ -12,11 +12,11 @@ It was bonkers.
 
 It was a weird-looking walrus. It looked like it had been starved, which I thought was impossible because of their blubber. Its front and back flippers were closer to quadrupedal limbs with articulated hands than flippers. And I swear, its skin was rotting off. It must have had a flesh-eating disease or something.
 
-The video is shaky as hell, but there’s one part that’s as clear as can be: 
+The video is shaky as hell, but there’s one part that’s as clear as can be:
 
 The walrus walked into the lobby through a plate glass door, shattering it with its weight. There was a leisureliness to its gait, even as the glass shards just about exploded in the air, hotel patrons screaming all the while.
 
-It moved through the lobby on its weird limbs more like a three-toed sloth than a marine mammal. 
+It moved through the lobby on its weird limbs more like a three-toed sloth than a marine mammal.
 
 It saw Mitch. And for a minute, Mitch and the walrus just stared at each other. Then, I shit you not, it sounded like the walrus was trying to sing a very sad song. Mitch listened to the “song” with his eyes closed, swaying to the music. His dance was mechanical, like a wind-up toy, the movement of a man under hypnosis.
 
@@ -26,17 +26,17 @@ The walrus jumped up and came back down much faster than I would’ve guessed it
 
 Crazy shit, right?
 
-It had been a while by the time Mitch flew back home. They wouldn’t move him back Stateside until he’d healed up for air travel. 
+It had been a while by the time Mitch flew back home. They wouldn’t move him back Stateside until he’d healed up for air travel.
 
 After Mitch came back from Alaska, he changed. A lot.
 
 •
 
-My part in all this began on a trip to the zoo. We all went together—me, Mitch, and his sister Lala (Yolanda). 
+My part in all this began on a trip to the zoo. We all went together—me, Mitch, and his sister Lala (Yolanda).
 
 Lala had medical needs (she was left paraplegic after a bad car accident during high school) and Mitch spent a lot of money on her: a power wheelchair, a luxury hospital bed, the works. Mitch’s then-wife didn’t appreciate the little money her then-husband made flying right out the window faster than it came in the door, and told both him and his “cripple sister” that they could take a hike.
 
-I’ve known Lala almost as long as Mitch. It wasn’t so unusual then, when Mitch had to take a phone call during our little field trip, that me and Lala did our own thing and went to the other animal exhibits. 
+I’ve known Lala almost as long as Mitch. It wasn’t so unusual then, when Mitch had to take a phone call during our little field trip, that me and Lala did our own thing and went to the other animal exhibits.
 
 Also, we were having sex (not while we were in the zoo, of course). I include that information primarily because it helps explain some of what follows, and, secondarily, for the simple reason that I think it’s great, and didn’t mind people knowing it. Except for Mitch. Mitch could not, and, if I had anything to do with it, absolutely would not ever-ever know that I was sleeping with his sister.
 
@@ -108,7 +108,7 @@ Lala shrieked. I turned around again and saw her pointing into the tank. Mitch w
 
 “Petey. Petey—what the hell is he doing?”
 
-I couldn’t answer. I shook my head in disbelief. 
+I couldn’t answer. I shook my head in disbelief.
 
 We were all helpless to watch what unfolded next.
 
@@ -140,13 +140,13 @@ Blood clouded over the tank. Pretty soon, there was only the sound of the seal p
 
 Mitch disappeared before the workers at the zoo or the cops could catch him. A detective was assigned to the case and, of course, interviewed Lala.
 
-Over the course of the next few days, Lala got updates from the detective. 
+Over the course of the next few days, Lala got updates from the detective.
 
 Detective Schumaker reminded me of my high school English teacher more than a gumshoe. She wore a beaded neck cord for her glasses, which were John Lennon imitation frames.
 
 The detective’s working theory, she shared with me and Lala, was that they hadn’t caught Mitch because he’d fled into the river. They could patrol, and send the odd scuba diver, but were otherwise hamstrung. “We’ll have to wait until he reaches dry land,” she said (which fit the circumstance but seemed like a funny thing to say).
 
-A temporary police patrol posted up outside Lala’s house. 
+A temporary police patrol posted up outside Lala’s house.
 
 Lala was edging in toward psychological collapse. She took a leave of absence from the school where she taught. I stayed with her while she tried to pick up the pieces.
 
@@ -192,7 +192,7 @@ Schumaker patted her belly and said, “You know, I probably shouldn’t. Me and
 
 “Sure,” Lala said and pulled the detective’s arm along with her chair, “here, come in the kitchen. Just a little chit-chat, I won’t keep you long.”
 
-I went into Lala’s room to put her things away. 
+I went into Lala’s room to put her things away.
 
 What happened next seemed to stretch out time. Maybe my internal clock slowed because I thought I was going to die (or that we were all going to die). After the police reviewed Lala’s Ring camera footage, they said it all happened in a shade under thirty seconds.
 
@@ -214,11 +214,11 @@ The detective fired. A bullet punctured Mitch’s cheek. A spray of red mist and
 
 I didn’t scream. I watched. I only watched.
 
-Detective Schumaker turned to dive for her gun. Mitch hit her. His hand connected with her face like a sledgehammer smashing into a cinder block. Lala screamed. The detective’s head hid the wooden edge of a wall clock. Bone crunched. The bone of the detective’s skull crunching was loud. Lala screamed. Schumaker collapsed. 
+Detective Schumaker turned to dive for her gun. Mitch hit her. His hand connected with her face like a sledgehammer smashing into a cinder block. Lala screamed. The detective’s head hid the wooden edge of a wall clock. Bone crunched. The bone of the detective’s skull crunching was loud. Lala screamed. Schumaker collapsed.
 
 There was blood on the wall; meat, blood and bone, on the edge of the wall clock. Lala screamed. Pieces of Schumaker’s skull were scattered on the carpet. There were brains on the wall. Lala screamed.
 
-I turned and I ran for Lala. Now I screamed. “Get out!” I rushed through the open entryway to the kitchen. Before I rounded after Lala, I looked back one last time. Mitch’s naked body was bent beside Schumaker’s on the floor. He was disemboweling her with his tusks. 
+I turned and I ran for Lala. Now I screamed. “Get out!” I rushed through the open entryway to the kitchen. Before I rounded after Lala, I looked back one last time. Mitch’s naked body was bent beside Schumaker’s on the floor. He was disemboweling her with his tusks.
 
 Mitch bayed, his bloody tusks covered in ropes of intestine as he raised his head and howled. Lala screamed.
 
@@ -228,7 +228,7 @@ I threw Lala into the passenger seat. I ran around the car. Mitch broke through 
 
 The engine turned. I put it in gear.
 
-And then, suddenly, we were moving sideways. Lala screamed. 
+And then, suddenly, we were moving sideways. Lala screamed.
 
 Mitch hit his shoulder into the car again. The car was pinned. The car was somehow pinned. I hit the accelerator. The tires burned out. Smoke flew from the tires. Lila screamed. The car was pinned.
 
@@ -244,7 +244,7 @@ Lala screamed.
 
 •
 
-I woke up days later in the hospital. Lala was waiting in her power chair by my bed. Mitch had let her go. 
+I woke up days later in the hospital. Lala was waiting in her power chair by my bed. Mitch had let her go.
 
 Lala never told me what she said to her brother to stop him from taking her, and I never asked. I like to think that Mitch recovered his humanity long enough to do the right thing. As likely as not, I’ll never know the answer.
 
@@ -282,18 +282,21 @@ I asked him if it was Lala’s name and address on the envelope.
 
 •
 
-'The time has come,' the Walrus said,
+  
+*'The time has come,' the Walrus said,*
 
-'To talk of many things:
+*'To talk of many things:*
 
-Of shoes—and ships—and sealing-wax—
+*Of shoes—and ships—and sealing-wax—*
 
-Of cabbages—and kings—
+*Of cabbages—and kings—*
 
-And why the sea is boiling hot—
+*And why the sea is boiling hot—*
 
-And whether pigs have wings.'
+*And whether pigs have wings.'*
 
 
 
--Lewis Carroll, “The Walrus and the Carpenter”
+\-Lewis Carroll, “The Walrus and the Carpenter”
+
+  
