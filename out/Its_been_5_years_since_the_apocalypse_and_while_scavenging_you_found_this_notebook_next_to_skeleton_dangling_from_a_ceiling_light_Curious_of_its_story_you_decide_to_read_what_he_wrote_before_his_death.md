@@ -1,0 +1,65 @@
+It was around 2 months ago when the world officially “ended”, at least in my eyes anyways. Scientists barely had time to figure out what it did before humanity was destroyed beyond recovery. It was deemed by news anchors around the world as the “Rotting Fungus”. Cliché, I know, the world doomed to damnation by a flesh eating fungal infection. Who could’ve guessed!
+
+The infection, however, wasn’t as stereotypical as the fungal zombie infections in your run of the mill c-list zombie movie. When the news first hit the world of a researcher in the Amazon rainforest returning with flesh-pink mushrooms splitting his skin and growing out of his face and arms. Everyone, justifiably, assumed it wouldn’t be long until he turned into a flesh-eating fungal abomination with a craving for human flesh. However the reality was, somehow, much more tragic and dire. As the horrid fungus continued to eat away at his body, he begged and begged for help from the researchers asking him questions from behind a bulletproof glass. However, his screams were not those of a man who wished to cling onto life with everything he has, but rather the screams of a men begging for death.
+
+“Please, please, PLEASE,” he yelled through sobs and pained wails, “Burn me, burn me to ashes and get rid of me! You can still save us, burn me and save us all!”
+
+When the audio files were leaked, the world went into outrage, riots filled the streets as the masses demanded the scientists to follow through on his wishes. However, they didn’t, of course they fucking didn’t. Those little know-it-alls with their lab coats and bragging curiousity telling them to research further. So, they continued, they kept him alive in their secret little bunker under layers of earth and protection where no one could stop them. They poked and prodded at this tortured man through his warnings and pained screams. I still remember the video clearly, on the day everything went to shit.
+
+At 6pm EST, in every country across the world. All TVs were switched on and every channel played the same message, the logo of the UN being plastered at the centre of every TV screen across the globe, it didn’t matter where you were in the world, you either saw directly or knew about this video within the hour. Millions sobbed, millions clung to their loved ones with tight embrace, billions prayed. For we all saw the same message translated by a cold robotic voice flashed on TVs across the world.
+
+“Attention, people of the planet, we are sorry to say that we have failed you. As I’m sure your aware, we have been in possession of an individual afflicted with what we now call the “Rotting Fungus”, a fungal infection that causes flesh-pink mushrooms to incubate inside your body before breaking through your skin and spreading further. We foolishly decided to keep this man alive despite his warnings, and we’re afraid that a severe mistake at the hands of our researchers has caused spores of the infection to spread into the outside world. Our research has suggested that the infection is spread through physical contact as well as inhalation of the spores, we are sorry to say that there is nothing more we can do, the spores will soon be widespread across the globe and everything will feel the impact one way or another. The only thing left for you to do is block all air vents, cover your faces and pray to whatever deity looks down upon us. This is our fault, and may we eternally rot in hell for our misdeeds. May god have mercy on you all.”
+
+And with that, it was done. Panic swept every nation in the world as people rushed to the streets to loot and riot. Preachers sang their choruses of chaos on every street chanting about the end times. Almost nobody was thinking clearly, almost nobody followed the few helpful rules of staying inside and covering their faces. Within the first 24 hours, it is theorised that 95% of the world population had caught the infection.
+
+The other 5% of people were smart, they new to cover any orifices, they new to switch down any air filters and keep all entries and windows locked tight. They knew what they needed to do to survive. I was one of these people, I kept me and my daughter locked away in the basement with enough food to last us for weeks, while our neighbours, friends, enemies and everyone else rotted above ground, I comforted my dwughter below, I told them everything would be okay even though I knew they wouldn’t. My daughter was only 5 years old and had no concept of what was going on. She kept asking me “Daddy, when can I go out to play?”, not knowing that the world was coming to an end. “Soon baby, soon,” I said through choked sobs. “Things will be back to normal soon.”
+
+As time passed and supplies shortened, I knew what we had was unsustainable, my daughter was still confused on what was going on and I kept lying and lying and lying like the coward I was, empty promises giving her hope that she would see the outside world again. I knew I couldn’t let her out there, she had to stay locked away where it was safe. Eventually, I decided that I just had to leave, as much as it pained me to step out there we needed supplies and I knew the neighbouring houses would have food to keep us going. It hurt me to lie to my daughter like that, I told her daddy was going out grocery shopping and that she couldn’t leave the bunker no matter what. She cried and begged me to let her see her friends, but I knew I couldn’t. I couldn’t subject her innocent mind to the horrors of the surface. And so, with a deep breath, ventured to the outside world for the first time in weeks.
+
+It was so much worse than I imagined, as far as I could see were the bodies of people I once saw as humans, vile mushrooms peaking through torn flesh and skin, strung out across the barren street like some sick piece of art. It was horrible, but what made it worse was the fact that they weren’t dead. From all the bodies I could hear muffled wails of desperation and fear, feeble cries for help barely squeezed out of their mushroom-filled mouths, some of their vocal cords were to rotted to make intelligible language. Was this what Hell looked like? Hundreds of pained souls begging for death in an unheard cacophony of pain, wishing for hellfire to take them away? Why did the spores keep them alive through all this, it didn’t make any sense. I walked up to the rotting body of what was once an innocent little girl, filled with dreams and aspirations. She was in a somewhat better condition than the others to the point where I could actually recognise her. She was Katie, my daughter’s best friend. Through her rotten teeth and bleeding gums I could hear only one thing.
+
+“Mommy, is that you…it hurts…I wish to burn…”
+
+I could tell she wanted to sob, but her eyes were missing from her eye sockets, being replaced with more of those vile shrooms. I couldn’t help but cry myself, no child deserves such a fate. No living being deserves such a fate, being trapped in an eternal prison of rot with the only escape being to burn to ashes.
+
+With tears in my eyes, I took the lighter out of the hiking backpack I had brought with me and, with one last sob. I set it alight and through it at her. I still remember her screams as I turned away, they weren’t screams of pain or misery but rather screams of relief. The last thing I heard from her burning body was “I’ll see you soon mommy.”
+
+That was my breaking point. I thought I had the will to survive this, I thought I had the strength to persevere.  But no, not one living soul would have the will to carry on after what they’d saw. The knowledge that all these husks were aware of their situation and had to live through all of this for eternity completely broke me. I knew however that I had no choice, my daughter was still alive and completely unaware of the current situation and as long as she was still breathing, I couldn’t let her down. I wasted no time collecting what I needed from the neighbouring houses. I blocked out the wails of my once neighbours, I ignored the putrid rot that lied within every house. My backpack was full of everything we could possibly need, enough to last months with careful rationing. Maybe by then this would all be over. Maybe then the world would return to normalcy. I will not live to see this potential normalcy.
+
+I rushed home, eager to show my daughter what I had collected, but what I spotted when I opened the front door to my house froze my very being. I could see through the dimly lit hallway that the basement door was open, and sat in the doorway of the basement was my daughter, happily going to town on one of the mushrooms.
+
+“Daddy, daddy! I found food, we won’t have to be hungry anymore daddy!”
+
+I froze where I stood, her mouth was smeared with the white insides of the shroom, she has a big grin on her face like she’d just won the lottery. “W-wow that’s great baby-“ was all I managed to get out before collapsing to my knees, tears filling my goggles. I knew what I had to do, but…
+
+“Hey baby, what do you say we go to the garage to prepare for…a trip to the beach!” I exclaimed, trying my best to keep my voice and composure steady. Her face beamed with excitement at the idea, as I led her to the garage I could feel the excitement radiating off her like a vile plague. She looked so happy, I had to make sure she stayed that way.
+
+“Ive already packed everything, so just sit down here and let me brush your hair, okay?” I said quietly, barely holding onto my facade of calmness. She excitedly pulled out her stepstool and sat, face beaming like it was the happiest day in the world.
+
+“Daddy, does this mean everything is going to be okay?”
+
+“Yes.” I said, as I continued my rythmic brushing.
+
+“And can my friends come too?” She giggled, “Katie? And Stacy? And Tyler?!” She turned to look at me. 
+
+“Yes my love, please turn around so I can finish making you beautiful.” I whispered, my voice cracking. She followed my command with joy as I slowly reached for the 9mm hidden in the holster on my belt.
+
+“And mommy? I know you and mommy don’t talk much anymore, but you guys have to get along.” She said, her smile faltering slightly, “Please?” She whispered.
+
+“Of course, my love.” I said, tears falling down my cheek as I raised the gun to the back of her temple. “Everyone will be there, and it will be the best day ever, and nobody will ever fight or argue ever again, a-and the entire world will be there to celebrate your special day.” I barely uttered that sentence before I started sobbing, I could feel her happiness even while not seeing here face, my finger hovering over the trigger.
+
+“Daddy, I love you.” She said, groaning slightly while grabbing onto her rosy cheeks. “Daddy, my face feels funny”, she moaned. I had to be quick.
+
+“Don’t worry baby, it’s all gonna be okay” I sobbed, “I love you more than anything I’ve ever known.”
+
+My daughter cried, a single tear staining her lap, “Daddy, it hu-“
+
+One finger movement was all it took, yet that press seemed to last an eternity. The bang echoed in my ears like an explosion as my daughter collapsed onto the floor in a heap. I fell to my knees, curled into a ball and cried. I felt as if I could stay like that forever, my tears puddling around my face as my eyes begun to sore. I cried until I couldn’t anymore, until my body didn’t have enough water to fuel my emotions. As I slowly stood up, wiping my face, I saw the lifeless body of my daughter, a pool of blood around her small forehead. I turned her body over and saw her innocent face, small tears fracturing her perfect beauty with a small upwards curve on her face. “This was the right thing to do,” I told myself. “It would’ve been worse if you left it, she would’ve been in unimaginable pain and torment for her last moments. You did what had to be done.”
+
+None of these thoughts helped, I still felt like I made the biggest mistake of my life. I knew deep down that this was what needed to be down but the negative thoughts kept on pushing through and plaguing my mind worse than any fungus could. I had failed her, I couldn’t keep her safe, I want to be with her.
+
+“No, not yet,” I told myself, I couldn’t let my memory die with her. I knew that this final act of closure would let me pass in peace, so I did what had to be done. I found this notebook, I found this pen, and I wrote down all my experiences with this hellish new world. In some way, this has brought me the closure I needed, in other ways, it reopened old wounds. The still-living corpses lining the streets. The wails of the damned and Katie, poor girl…
+
+And so, that’s the end. If your reading this you most likely found it next to my hanging corpse. I hope that this way I could have some sort of ‘life flashing before my eyes moment’ to remind me of how good things used to be. My beautiful daughter is buried in the back garden in the sand pit. If you happen to see it, please pay your respects, I’m sure it’ll make us very happy. Don’t worry Katie, daddies coming home.
+
+Signed, X
