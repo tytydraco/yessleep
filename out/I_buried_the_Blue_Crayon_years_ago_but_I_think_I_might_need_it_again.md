@@ -1,3 +1,5 @@
+[PART 2](https://www.reddit.com/r/nosleep/comments/1mt29nd/i_buried_the_blue_crayon_years_ago_but_i_think_i/)
+
 Blue used to be my favorite color, but not anymore. Not after what happened. Not after I bound that crayon in lead and buried it so many decades ago. But these times are strange and desperate, and my need is no different. Unearthing that blue crayon and using it once again may be the only option I have left. The only option I have to save her.
 
 Even as I type this, I wonder what the fuck I’m doing. I need you guys to talk me out of this. I need y’all to tell me that I’m crazy for even considering it. But before we get to that, before I can even tell you about Vic and her situation, I’ve got to spill my guts a little about what happened to me as a kid and how the Blue Crayon itself was made. Yeah, that’s right. I’m capitalizing it. You’ll soon read why.
@@ -22,11 +24,7 @@ I just broke down again right there on those steps. I didn’t want to cry. I di
 
 When a warm and gentle voice said, “Surely there’s a better use for your tears than that,” I just about pissed myself for real.
 
-
-
 *Don’t think about Blue Simon, Danny. Don’t remember Blue Simon.*
-
-
 
 Sorry, y’all. I can’t delete those last two sentences, even though really I want to.
 
@@ -62,15 +60,11 @@ I can only write so much in one go here, so I’ll just say that, thanks to the 
 
 When I brought my three ingredients to the kind man’s property, I saw that the front gate, which was as tall and ivy-covered as the rest of the fence, was unchained and ajar like an open invitation. There was also some kind of industrial sign mounted on it, rusted at the edges, and covered almost entirely by ivy. I pulled some of the overgrowth back to see that there was a logo of a single blue eye, simplistic and large, with words beneath it.
 
-
-
 **IRIS INDUSTRIES**
 
 **Authorized Personnel Only**
 
 **Containment Site A21**
-
-
 
 There was some more stuff on the sign beneath it, but the ivy was thick, and I became distracted by my cause, or perhaps by something like the tone of a bell. The next thing I could recall was being inside with Simon. We were at a great stove where blue fire had already sprung to life, dancing beneath a small iron skillet. He was delighted to see my crayons and my bluebonnets. And I was pleased when he began breaking one into little pieces. He told me to break the other crayon and relish in how good it felt—and true to his word again, it did. I somehow suspected that it was Bradley’s crayon I held, and as I snapped it into pieces, nothing in my young life up to that point had felt better.
 
@@ -93,3 +87,5 @@ Before I tell you about how I used that Blue Crayon and why I think I might need
 I haven’t felt this fucking weird in a long, long time.
 
 I think I need to check on Victoria and clear my head a bit.
+
+[PART 2](https://www.reddit.com/r/nosleep/comments/1mt29nd/i_buried_the_blue_crayon_years_ago_but_i_think_i/)
