@@ -1,21 +1,17 @@
-I have changed everyone’s names for privacy reasons.  Also I apologize in advance if spacing is weird - my laptop hates reddit editor for some reason.
-
-\--------------------------------------------------------------------------------------------------------------
-
 Probably, I should start with our neighbour's abomination of a dog called Max. The goddamn animal had a beehive in place of brains, and spent most of his time turning Mrs. O'Connell's backyard into the other side of a moon. In itself it wasn’t much of a problem. But unfortunately for all involved, Max also happened to be one of those dogs that bark at everything ever: falling leaves, cats, other dogs, birds, passing people, cars, and milkman and so on. Okay, I admit, I detested this mockery of a dog and I'm not a fan of terriers in general, but being a bark-o-mat isn't enough to deserve what happened to Max. His mistress is quite another matter. But I'm getting ahead of myself.
 
 My wife Emilia had asked Mrs. O’Connell nicely  
 to do something about Max I think around a million times or so. But Nora had always been a nasty piece of work wrapped in several layers of a falsely sweet passive-aggressive poison. "Dearest Maxy", in her opinion, was a tiny innocent puppy who obviously could do no wrong. But in reality put everything in place.
 
-It was wonderful evening in the merry month of May. Our youngest - Rory -  had this "how about I grow myself three teeth at once" business going on so we all barely spelt several days prior. Max was relatively busy chasing some very unfortunate squirrels and (as I suspect) was too much out of breath to make noise. So day was pretty quiet ad Rory finally went to sleep about three. But either squirrels found a way to outsmart him or he got tired of this game, but around twenty minutes past three a hurricane of barks started. Max sounded as if he was trying to protect his "beloved human mother" from the Lambtom Worm who, in all his ugly glory, decided to crawl from a garden hose right in front of him. 
+It was wonderful evening in the merry month of May. Our youngest - Rory -  had this "how about I grow myself three teeth at once" business going on so we all barely spelt several days prior. Max was relatively busy chasing some very unfortunate squirrels and (as I suspect) was too much out of breath to make noise. So day was pretty quiet ad Rory finally went to sleep about three. But either squirrels found a way to outsmart him or he got tired of this game, but around twenty minutes past three a hurricane of barks started. Max sounded as if he was trying to protect his "beloved human mother" from the Lambtom Worm who, in all his ugly glory, decided to crawl from a garden hose right in front of him.
 
 I was making dinner (or at least was trying to) and our elder twin girls, Shea and Clodagh were playing dolls in the living room. when Rory started crying upstairs. Next I heard the door slamming and then Emie's footsteps thundering in the hall. She came to me, handled me Rory, then stomped away. One more door slam. Rory and I exchanged glances. He seemingly was too surprised to cry. I sighed, turned off the stove and moved the casserole on the cold hob. Girls carefully peaked into kitchen.
 
-\- Where do you think mommy is going? - asked Clodagh. 
+\- Where do you think mommy is going? - asked Clodagh.
 
 \- I think - to do something bad to Mrs. O'Connell, - shrugged Shea.
 
-\- Well, I'm sure they will solve this misunderstanding like respectable ladies they both are, - to be fair, not that I believed much in such outcome myself. And I was right, because in twenty minutes the door bell rung. I went to see if Emilia has returned. 
+\- Well, I'm sure they will solve this misunderstanding like respectable ladies they both are, - to be fair, not that I believed much in such outcome myself. And I was right, because in twenty minutes the door bell rung. I went to see if Emilia has returned.
 
 Instead I have found her younger brother Liam at my porch. Who kindly informed me of two things: First, my wife broke her hand punching certain woman named Nora in the face. Second, as a garda officer he met some nasty people but Mrs. O'Connell in his opinion was a work of art.
 
@@ -50,7 +46,7 @@ Fast forward to this morning, I woke up because girls were shaking me, screaming
 
 \-What on earth is this?! - I turned to ask twins for more details but girls have already run to wake up Snowy.
 
-I sighed, put on some clothes and went downstairs. It must be an elaborate prank by some tiktok-addicted teenagers, right? Wrong. Because when I opened the back door reality hit me with a power of steam hammer. 
+I sighed, put on some clothes and went downstairs. It must be an elaborate prank by some tiktok-addicted teenagers, right? Wrong. Because when I opened the back door reality hit me with a power of steam hammer.
 
 The sight was utter bewildering: where once had been our garden with neatly arranged flower beds, a dozen of gooseberry bushes and several pear trees now was a vast and unrecognizable wild expanse. The ground beneath the dense foliage was hidden beneath a carpet of blue-green moss. Unfamiliar bright flowers peeked out here and there. Vines as thick as my arm were hanging from the branches; their leaves dark and glossy as if they had been coated in vanish. Bushes, once sparse and well-spaced, were now replaced with towering trees that covered sky above our house. The air was saturated with a rich scent of blooming plants. A faint hum was coming from the depths of the thicket.
 
@@ -64,7 +60,7 @@ I closed the door and make several steps back. I counted to ten and opened it ag
 
 \- Holy smokes, woman, god knows what is going on here, and you are asking me, are there any mangoes?!
 
-\- I like them. Now move, - she gestured me to clear the way and swung the door open. After inspecting the view, making several pictures and videos, she closed the door,  then locked it: 
+\- I like them. Now move, - she gestured me to clear the way and swung the door open. After inspecting the view, making several pictures and videos, she closed the door,  then locked it:
 
 \- Well, these are not the literal jungles. That's a closer to a temperate rainforest. Ask that botanist next door. I think he should know better. However, I'm certain this forest has no mangoes and that's am pity. Also, - she pointed her phone at me. - How about we check the front door?
 
@@ -103,7 +99,7 @@ Backyard still was overtaken by vegetation but it was nowhere as bad as earlier.
 \- Let's see what we've got here... - he put his hand into the bag. - Oh! This one fills heavier than the rest!
 
 He got one of the fruits out. It was the fattest looking “star”.  We went back into the kitchen. Don put the the fruit on a counter, examined it closely, and then took out his pocket knife. With meticulous care, my friend sliced into it. As the ghostly white skin split open, we saw the insides. I swear I could never think that plants could get this bizarre. Its flesh was oddly-labyrinthine, dark deep burgundy-red, smooth  
-and firm like a marinated egg. And caverns of this labyrinth were filled with things even more bizarre: they resembled tiny humanoid embryos: pale pink, half-formed, semi-transparent and underdeveloped, their features still in the making. But each had four peculiar protrusions from their backs, gossamer and fragile-looking, as if stuck between gemstones and stained glass. Blackened blood forever stopped in spider web of minuscule veins. 
+and firm like a marinated egg. And caverns of this labyrinth were filled with things even more bizarre: they resembled tiny humanoid embryos: pale pink, half-formed, semi-transparent and underdeveloped, their features still in the making. But each had four peculiar protrusions from their backs, gossamer and fragile-looking, as if stuck between gemstones and stained glass. Blackened blood forever stopped in spider web of minuscule veins.
 
 \-What in the name of Demetra..?! - Don whispered. He was as baffled as I was. - This is way, way out of my field of expertise.
 
