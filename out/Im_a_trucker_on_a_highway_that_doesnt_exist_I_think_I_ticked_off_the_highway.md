@@ -223,3 +223,5 @@ That realization. That shining understanding, more golden than any moment of hap
 My life didn’t matter to me, which meant I could defy the road all I wanted. Tiff might have given up, but I hadn't. I was going to get her out or die trying. I’d finally found something I hadn't had in years.
 
 [A reason.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
+
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1mt083f/im_a_trucker_on_a_highway_that_doesnt_exist_dont/)

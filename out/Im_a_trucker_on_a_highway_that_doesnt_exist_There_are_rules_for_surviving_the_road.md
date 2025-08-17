@@ -14,8 +14,6 @@
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1mmsi7t/im_a_trucker_on_a_highway_that_doesnt_exist_you/)
-
 It was about the time I graduated from undergrad, and finally braved checking on the empty void that was my bank account, that I realized three things: 
 
 1. *Hmmm*, perhaps an English degree hadn't been the smartest choice for replenishing the aforementioned empty void that was my bank account.
