@@ -125,7 +125,7 @@ The knife slid into his thigh with revolting ease.
 
 His grip on my neck loosened. Warmth gathered over the small of my back, as well as the cusp of my hand. Sticky dew trickled down my skin like melting candle-wax.
 
-He fell backwards, and I gasped a few ragged breaths. Constellations of stars spun around my dazed head. Once my equilibrium stabilized, I spun around to assess his wound.
+He fell backwards, and I gasped a few ragged breaths. Constellations of stars danced above my dazed head. Once my equilibrium stabilized, I spun around to assess his wound.
 
 That’s when I noticed we had an audience.
 
