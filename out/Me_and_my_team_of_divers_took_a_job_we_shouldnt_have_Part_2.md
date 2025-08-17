@@ -32,7 +32,7 @@ Mara’s smile faltered.
 
 Thomas tried to laugh but it came out thin. “Alright, point taken. Warm water, turn back. Got it.”
 
-Kanoa’s gaze swept over each of them in turn. “No. Don’t turn
+Kanoa’s gaze swept over each of them in turn.
 
 Kanoa seemingly more agitated cut back in "you all aren't from around here, you have no idea what you're up against. Truth be told, even my people don't know exactly. We've all been raised on a million different stories and legends but we all know that the music in your ears when you're under water leads to death."
 

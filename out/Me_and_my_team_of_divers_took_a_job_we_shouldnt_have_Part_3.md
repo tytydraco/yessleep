@@ -31,7 +31,7 @@ I couldn't help myself as I took the opening to bust his balls. "If I see your m
 We moved toward it at an easy pace. A curious grouper followed along behind Julian, its thick lips opening and closing as if it were part of the conversation.
 Mara floated upside-down to peer under the drone. “Maybe it just didn’t want to be found. Little undersea rebellion.”
 
-“Good thing machines don’t get lonely but if they did, maybe Julians mom could shake them seashells and keep it company” Thomas said with a shit eating grin plastered all over my face. Julian again laughed before letting out a "fuck you, bro!" We all laughed hysterically together before moving on and continuing our expedition.
+“Good thing machines don’t get lonely but if they did, maybe Julians mom could shake them seashells and keep it company” Thomas said with a shit eating grin plastered all over his face. Julian again laughed before letting out a "fuck you, bro!" We all laughed hysterically together before moving on and continuing our expedition.
 
 We took our time inspecting the coral nearby, careful not to brush against it. There were sea anemones with clownfish darting between their tentacles, the faint shadow of a stingray gliding over the sand far below and the glittering scales of wrasse flickering through beams of light.
 
