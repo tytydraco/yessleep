@@ -26,7 +26,7 @@ The walrus jumped up and came back down much faster than I would’ve guessed it
 
 Crazy shit, right?
 
-It had been a while by the time Mitch flew back home. They wouldn’t move him back Stateside until he’d healed up for air travel.
+It had been a while by the time Mitch flew back home. They wouldn’t move him back to the mainland until he’d healed up for air travel.
 
 After Mitch came back from Alaska, he changed. A lot.
 
@@ -282,7 +282,6 @@ I asked him if it was Lala’s name and address on the envelope.
 
 •
 
-  
 *'The time has come,' the Walrus said,*
 
 *'To talk of many things:*
@@ -295,8 +294,4 @@ I asked him if it was Lala’s name and address on the envelope.
 
 *And whether pigs have wings.'*
 
-
-
 \-Lewis Carroll, “The Walrus and the Carpenter”
-
-  
