@@ -59,9 +59,11 @@ And now that it’s here, I’m not sure what there is left for us to do.
 
 The man I kidnapped at Dr. Wakefield’s request remembered the erased. So did I. There was something important there. We needed to stick together.
 
-I don’t know what I expected, bolting full-tilt at the thing dressed in Dr. Wakefield’s skin, but I expected *some* sort of resistance. Snarling teeth, or sprouting tentacles, or a psionic offensive. Just…something. But it gave me no such resistance. 
+I don’t know what I expected, bolting full-tilt at the thing dressed in Dr. Wakefield’s skin, but I expected *some* sort of resistance. Snarling teeth, or sprouting tentacles, or a psionic offensive. Just…something. 
 
-The Grift smiled at me, hands at its side: world-eater abruptly turned pacifist. It even shifted a few steps to the side, graciously opening the path between the cathedral proper and the recording studio. The concession gave me pause, but maybe that was the intent, I considered. Maybe it wanted to infuse doubt. It seemed to feed on confusion.
+But it gave no such resistance. 
+
+The Grift smiled at me, hands pinned to its side: world-eater abruptly turned pacifist. It even shifted a few steps, graciously opening the path between the cathedral proper and the recording studio. The concession gave me pause, but maybe that was the intent, I considered. Maybe it wanted to infuse doubt. It seemed to feed on confusion.
 
 Or maybe I was a gibbon speculating about nuclear physics. The Grift was some incomprehensible cosmic entity: who *knows* why it does what it does, so what chance did I have to understand it? 
 
@@ -69,7 +71,7 @@ I hugged the corner, creating distance between me and the Grift. It watched me p
 
 It was the scent of blood, of course. 
 
-An hour or so prior to that moment, I’d mangled two of the captive’s fingers by repeatedly slamming the door into them, but that memory didn’t resurface until it was too late. In the interim, I’d witnessed an eldritch being shed Sam’s skin like a layer of caked mud, throwing gray clumps of him to the floor with ruthless abandon. The violence I inflicted may has well have occurred eons ago.
+An hour or so prior to that moment, I’d mangled two of the captive’s fingers by repeatedly slamming the door into them, but that memory didn’t resurface until it was too late. In the interim, I’d witnessed an eldritch being shed Sam’s skin like a layer of caked mud, throwing gray clumps of him to the floor with ruthless abandon. The violence I inflicted may as well have occurred eons ago.
 
 I’d seen the Grift - but Vikram, our captive?
 

@@ -1,5 +1,5 @@
 [PART 1. ](https://www.reddit.com/r/nosleep/comments/1mf9lsg/most_of_the_people_around_me_have_disappeared_and/)  
-\- - - - - 
+\- - - - -
 
 Sam and Dr. Wakefield heard the commotion and were coming to investigate. I nearly trampled the old woman as I turned the corner, but stopped myself just in time.
 
@@ -27,11 +27,11 @@ At the same time, Dr. Wakefield said:
 
 *"Who's Leah?"*
 
-\- - - - - 
+\- - - - -
 
 Sam claimed his girlfriend was resting in the car. Dr. Wakefield outright admitted forgetting about Leah.
 
-I’d only been alone with the Grift for half an hour. 
+I’d only been alone with the Grift for half an hour.
 
 What the hell happened?
 
@@ -69,7 +69,7 @@ Initially, I thought he was referring to the doctor and me, but he wasn’t.
 
 ***“OR WAS IT HIM?”*** His finger pivoted to the hallway that led to the sound booth.
 
-Whatever accusation Sam was making, somehow, I’d already been exonerated. I proceeded carefully, palms facing out, signaling I meant no harm. 
+Whatever accusation Sam was making, somehow, I’d already been exonerated. I proceeded carefully, palms facing out, signaling I meant no harm.
 
 *“Sam…what’s going on?”* I asked, voice trembling under the weight of the situation.
 
@@ -85,27 +85,27 @@ I conceded the request and froze. He seemed to calm down, no longer raining his 
 
 *“Listen: the man in the recording booth needs to die.* ***You*** *need to kill him, Vanessa, and if she tries to stop you, you’ll need to kill her too.”*
 
-My head shot around to Dr. Wakefield. 
+My head shot around to Dr. Wakefield.
 
 *“Look at her. She’s contaminated. She…she just allowed him to take someone from me. I felt it. I felt him rip them from my mind. It was horrible.* ***She’s*** *horrible.”*
 
 God, how quickly our meager task force crumbled.
 
-I tried to piece it back together, but it was a waste of breath. 
+I tried to piece it back together, but it was a waste of breath.
 
 *“Sam, I understand you’re scared. Truly, I do. Whatever just happened, though, surely it wasn’t Dr. Wakefield’s fault…”*
 
 I extended my hand to him and mouthed the word “*please”*. Sam, however, remained obstinate. He would not back down.
 
-*“****Vanessa.*** *I’m not going to say it again. Stay the* ***fuck*** *away from me,”* he growled.
+\*“\****Vanessa.*** *I’m not going to say it again. Stay the* ***fuck*** *away from me,”* he growled.
 
-*"Why...why are calling me Vanessa? You never call me Vanessa."* I whispered. 
+*"Why...why are calling me Vanessa? You never call me Vanessa."* I whispered.
 
 My hand dropped like a lead balloon and landed against my thigh. I felt the faint outline of Sam’s pocketknife over my fingertips. Whether she had been truly erased or not, it was Leah’s idea for me to carry the blade. We never quite got along, but, at that moment, I was thankful for the advocacy.
 
 Though the thought of having to use it against Sam put a pit in my stomach.
 
-He ignored my question and continued his tirade. 
+He ignored my question and continued his tirade.
 
 *“Think about it - how much do you* ***really*** *know about her? Close to nothing. How do we know she isn't behind this all? I mean, consider the timeline. People disappear. Everybody but you forgets them. The atmosphere turns into a fucking tundra. And then this woman, this so-called doctor, parades into town. Just happens to know that we’re forgetting. Not only that, but she inexplicably identifies that* ***you*** *somehow remember. Then she…she fills your head with these wild fantasies. Unhinged, Sci-Fi B-Movie bullshit about demons and Grists - “*
 
@@ -129,9 +129,9 @@ He turned to me and began pleading.
 
 *“Vanessa, take my pocketknife, go back to the recording studio, and drag the blade across that man’s neck -”*
 
-That time, it wasn’t the echoing *thwap* of leather against wood that interrupted Sam. No, the sound was much slighter. A tiny mechanical click. 
+That time, it wasn’t the echoing *thwap* of leather against wood that interrupted Sam. No, the sound was much slighter. A tiny mechanical click.
 
-Dr. Wakefield produced a small pistol from her coat pocket, and the weapon was now cocked. 
+Dr. Wakefield produced a small pistol from her coat pocket, and the weapon was now cocked.
 
 Her eyes still hadn’t left Sam.
 
@@ -157,7 +157,7 @@ As I pushed against that invisible barrier, Sam’s skin peeled back. It bunched
 
 Instead, there was a second layer of skin.
 
-No matter how hard I pushed, I couldn't seem to touch Sam. 
+No matter how hard I pushed, I couldn't seem to touch Sam.
 
 *“Skip was nothing. He was emptiness in its truest form: voracious and predatory, willing to do anything to feel whole. His music - the beauty he exuded - it was simply a trick. A lie. A fishing lure of sorts.”*
 
@@ -165,13 +165,13 @@ My eyes drifted to Sam’s face. He wasn’t watching Dr. Wakefield anymore.
 
 He was staring at me, lips curled into a vicious grin. A harsh whistle pierced through the slits in his gritted teeth.
 
-*“That thing, my father said, that thing you called Skip..."* 
+*“That thing, my father said, that thing you called Skip..."*
 
-I repeated my question one last time. 
+I repeated my question one last time.
 
 *"You never call me Vanessa, Sam. You always call me V. Why...why were you calling me Vanessa?"*
 
-*"...he was a grift.”* 
+*"...he was a grift.”*
 
 Then, there was an explosion. A deafening, sulphurous pop.
 
@@ -179,7 +179,7 @@ My ears rang. My eyes reflexively closed as I threw my arms in front of my face.
 
 Gradually, I opened my eyes and peeked through my arms.
 
-There was a gaping hole in Sam’s chest, but no blood. 
+There was a gaping hole in Sam’s chest, but no blood.
 
 The gunshot did not send him flying. He remained upright. He was still smiling. Still whistling.
 
@@ -217,36 +217,38 @@ She got out a few, critical statements before it reached her.
 
 *“It...he tricked me. I'm sorry. I didn’t mean to guide it to you."*
 
-The Grift crawled down the wall. 
+The Grift crawled down the wall.
 
-*“Remember- it craves a perfect unity. The pervasive absence of existence."* 
+*“Remember- it craves a perfect unity. The pervasive absence of existence."*
 
 It scuttled across the floor at an incomprehensible speed. Low to the ground, he placed both hands at the tip of her right foot.
 
 *"Don’t give in.”*
 
-He wrenched his fingers apart, and her foot split in half. I could see her blood. The bone. The muscle. None of it spilled out. His form collapsed - flattened as if his body had been converted from three dimensions to two. Silently, he burrowed into Dr. Wakefield. 
+He wrenched his fingers apart, and her foot split in half. I could see her blood. The bone. The muscle. None of it spilled out. His form collapsed - flattened as if his body had been converted from three dimensions to two. Silently, he burrowed into Dr. Wakefield.
 
 Once he was fully in, the halves of her foot fell shut.
 
 The imprint of his face crawled up her leg from the inside. Her body writhed in response: a standing seizure. His hooked nose looked like a shark fin as it glided up her neck.
 
-Finally, the imprint of his face disappeared behind hers, and the convulsions stilled. 
+Finally, the imprint of his face disappeared behind hers, and the convulsions stilled.
 
 She looked at me, and a smile grew across her face.
 
-I thought of the man I'd kidnapped. Somehow, he was important. We both were. 
+I thought of the man I'd kidnapped. Somehow, he was important. We both were.
 
 I needed to get to the sound booth, but she was blocking the path.
 
 The whistling started again.
 
-Sure, there was fear. I felt a deep, bottomless terror swell in my gut, but the memory of Sam neutralized it. I was consumed by rage imagining what it did to him. 
+Sure, there was fear. I felt a deep, bottomless terror swell in my gut, but the memory of Sam neutralized it. I was consumed by rage imagining what it did to him.
 
-At the end of the day, my anger was hungrier than my fear. 
+At the end of the day, my anger was hungrier than my fear.
 
 Whatever it was, I prayed that invisible barrier would protect me,
 
 And I sprinted towards [the Grift.](https://www.reddit.com/r/unalloyedsainttrina/comments/1lu8hgo/the_seven_cardinal_sins_remastered_and/)
 
-  
+\- - - - - 
+
+EDIT: To [Final Part](https://www.reddit.com/r/nosleep/comments/1mk5aui/most_of_the_people_around_me_have_disappeared_and/)
