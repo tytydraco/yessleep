@@ -95,5 +95,3 @@ What we do have: clear track of a woman entering the forest on two legs.
 A point where she continues alone on one — no blood, no foreign tracks.
 
 And from there, she abandons the straight path… starts hopping in spirals.
-
-*Translation of the old creepypasta from Russian forum*.
