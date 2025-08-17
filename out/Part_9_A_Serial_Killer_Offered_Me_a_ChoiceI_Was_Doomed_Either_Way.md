@@ -393,3 +393,17 @@ He didn’t look at me, only letting out a dry, cracked laugh. “Burn the store
 I shot him a look, but he kept staring straight ahead, shoulders stiff. After a pause, his voice softened, quieter this time. “Just… don’t make me do it, Remi. Don’t make me torch the place knowing you’re still in there.” Then almost immediately, he shrugged it off, masking his worry with a smirk. “Anyway, if you actually pull this off, drinks are on you. I’m not risking my fake ID for your ‘I survived the Night Manager’ party.” He revved the bike before I could even respond, shattering the heavy silence that had settled between us. I stood there, hoodie thrown over my suit, looking utterly ridiculous as he sped off.
 
 That’s when it hit me. Tomorrow might be the final day. For the store. For me. Maybe both.
+
+And already… things are slipping.
+
+That’s the real reason I’m writing this. If I don’t, there won’t be anything left to hold onto. I can *feel* the gaps widening, pulling at me. I’ve already forgotten my sister’s name. I’ve forgotten her birthday. I can’t remember the number of the house we grew up in, or the street it was on.
+
+Worse—her face is gone.
+
+I know I had one person left in this world worth saving. I know I made a promise to her, something that kept me moving when I wanted to quit. But now, all I have is the ache of that promise, the hollow outline of someone I loved.
+
+The Redwood Killer said she wanted a memory. I didn’t think it would unravel me like this.
+
+I’m terrified of what else I’ll lose tomorrow night.
+
+Because if I forget her completely. If I forget why I’m fighting.....what’s left of me to save?
