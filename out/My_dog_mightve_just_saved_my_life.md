@@ -15,7 +15,7 @@ I don't think it is human. My dog loves everyone and everything, to a fault some
 
 It is so random and sporadic, but the voice is always the same. Weird, almost 'dial-up' sounding). Two knocks at the door. *Rap rap*, then humming a tune I don't recognize (I'll try to get audio next time).
 
-One quick "ANY ONE IN THERE AWAKE AND ALIVE?" was enough to tetrify me, in that strange, artificial sounding voice. We're all huddled in the only room that does not have windows, my wife's hand in one of mine, and a Moss 590 (slug, mind you) in the other, clinching both and keeping eyes on Hammock. He's been quiet, but whatever is outside knows that he exists, *by name*, and he's aware of its presence as well.
+One quick "ANY ONE IN THERE AWAKE AND ALIVE?" was enough to tetrify me, in that strange, artificial sounding voice. We're all huddled in the only room that does not have windows, my dog's paw in one of mine, and a Moss 590 (slug, mind you) in the other, clinching both and keeping eyes on Hammock. He's been quiet, but whatever is outside knows that he exists, *by name*, and he's aware of its presence as well.
 
 The hair on his back is as raised as I've ever seen, and I know the size of his teeth (40lb hound mix) but I've never once seen him use them the way he was.
 
