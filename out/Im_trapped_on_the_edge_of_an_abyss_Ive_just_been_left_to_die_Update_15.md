@@ -289,3 +289,5 @@ I didn’t want that to be true. I didn’t want to believe that there was a par
 Ann had left us, and she wasn’t planning on coming back.
 
 Somehow, without us, she was planning on being the only one to get out alive.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1mteh1x/im_trapped_on_the_edge_of_an_abyss_i_dont_know/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
