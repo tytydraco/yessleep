@@ -1,270 +1,269 @@
-The events I’m about to tell you about happened last week. It’s not something from a long time ago. It’s still happening, and I have to deal with it, even though I don't know how.
+[PART 2](https://www.reddit.com/r/nosleep/comments/1mtzy75/investigating_the_strange_spellbook_i_found_with/)
 
- 
-
-Since the pandemic, the company I work for started operating remotely, and it stayed that way for a good while. About three months ago, I stopped going to the gym, and since I moved to the city where I live less than a year ago, I don't have any friends here. So, I didn't have many reasons to leave the house. In recent months, I haven't stepped outside, only interacting in person with my wife and with the occasional neighbor who came to talk to me for some reason.
+Os eventos que estou prestes a contar aconteceram na semana passada. Não é algo de muito tempo atrás. Ainda está acontecendo e tenho que lidar com isso, embora não saiba como.
 
  
 
-Then, two weeks ago, following the trend of many companies, they decided that employees should return to the office. At first, I was very nervous about it. Getting back on the bus. Leaving the house every morning, coming back at night. All of it seemed terrible to me. My wife helped me get used to the idea. At least now we live in the same city as the company, so the commute wouldn't be as long as it was when I first started working there.
+Desde a pandemia, a empresa onde trabalho passou a operar remotamente e assim permaneceu por um bom tempo. Há cerca de três meses parei de frequentar academia e, desde que me mudei para a cidade onde moro, há menos de um ano, não tenho amigos aqui. Então, não tive muitos motivos para sair de casa. Nos últimos meses, não saí de casa, apenas interagi pessoalmente com minha esposa e com um vizinho ocasional que veio falar comigo por algum motivo.
 
  
 
-Even so, the first week was very difficult. I no longer remembered how stressful it could be to leave the house. Dealing with people became a source of stress for me, even more than before. Working in helpdesk is pretty stressful. Not only dealing with clients who often don’t know what they’re doing and want to blame someone else, but also because various departments can make mistakes, but the client only talks to helpdesk, so we’re almost always the scapegoats.
+Depois, há duas semanas, seguindo a tendência de muitas empresas, decidiram que os funcionários deveriam voltar ao escritório. No começo, fiquei muito nervoso com isso. Voltando ao ônibus. Saindo de casa todas as manhãs, voltando à noite. Tudo isso me pareceu terrível. Minha esposa me ajudou a me acostumar com a ideia. Pelo menos agora moramos na mesma cidade que a empresa, então o deslocamento não seria tão longo como era quando comecei a trabalhar lá.
 
  
 
-I felt like I was in a meat grinder. Even if I managed to get home before eight, which was impossible when I lived in my old city, I still had the feeling that there wasn't much of my night left. It was just enough time to prepare for the next day.
+Mesmo assim, a primeira semana foi muito difícil. Já não me lembrava de quão estressante poderia ser sair de casa. Lidar com pessoas tornou-se uma fonte de estresse para mim, ainda mais do que antes. Trabalhar no helpdesk é muito estressante. Não só lidando com clientes que muitas vezes não sabem o que estão a fazer e querem culpar alguém, mas também porque vários departamentos podem cometer erros, mas o cliente só fala com o helpdesk, por isso somos quase sempre os bodes expiatórios.
 
  
 
-By Friday of that first week, I was already feeling very overwhelmed. I left work trying not to think about the tasks I had postponed but would need to be solved on Monday. Instead of taking my usual bus from the stop near work, I decided to walk to the subway station. It was a 15-minute walk, but I usually took 30, walking slowly and trying to distract myself with things along the way. Halfway there, I decided to stop and eat something. I don't think I was hungry; maybe it was just something to comfort me with a little dopamine. I stopped at a small bar, ordered some snacks and a beer, then took out my phone and scrolled through Instagram.
+Eu senti como se estivesse em um moedor de carne. Mesmo que eu conseguisse chegar em casa antes das oito, o que era impossível quando eu morava na minha antiga cidade, ainda tinha a sensação de que não restava muito da minha noite. Foi tempo suficiente para se preparar para o dia seguinte.
 
  
 
-Between one post and another, something caught my attention. It was a girl, maybe 25. Long black hair with pink streaks. She was exercising in a familiar place. It looked like the gym I used to go to, but I didn't remember her. I don't usually follow anyone I don't really know, except for content creators that I actually follow. I went to her profile. I was following her. But she certainly wasn't a content creator. She hadn't even posted in a few weeks. That gave me a nagging feeling, but my torrent of thoughts was interrupted when the bar employee arrived with my order. I put my phone aside.
+Na sexta-feira daquela primeira semana, eu já estava me sentindo muito sobrecarregado. Saí do trabalho tentando não pensar nas tarefas que havia adiado, mas que precisariam ser resolvidas na segunda-feira. Em vez de pegar meu ônibus habitual na parada perto do trabalho, decidi caminhar até a estação de metrô. Era uma caminhada de 15 minutos, mas normalmente eu fazia 30, andando devagar e tentando me distrair com as coisas pelo caminho. No meio do caminho resolvi parar e comer alguma coisa. Acho que não estava com fome; talvez fosse apenas algo para me confortar com um pouco de dopamina. Parei em um barzinho, pedi alguns petiscos e uma cerveja, depois peguei meu celular e naveguei pelo Instagram.
 
  
 
-I had only one bottle of beer, then went to the station. The time I spent was enough to escape rush hour. I managed to get on a emptier train and even got a seat. Even though I got home later, it seemed worth it. When I arrived, my wife had already gone to the gym, but she had left dinner ready. Since there seemed to be nothing else to do, I took a shower, had dinner, and threw myself on the couch to scroll some more. It wasn't long before I remembered the girl with the pink streaks.
+Entre uma postagem e outra, algo me chamou a atenção. Era uma menina, talvez 25 anos. Cabelo preto comprido com mechas rosa. Ela estava se exercitando em um lugar familiar. Parecia a academia que eu frequentava, mas não me lembrava dela. Normalmente não sigo ninguém que não conheço, exceto criadores de conteúdo que realmente sigo. Fui ao perfil dela. Eu a estava seguindo. Mas ela certamente não era uma criadora de conteúdo. Ela nem postava há algumas semanas. Isso me deu uma sensação incômoda, mas minha torrente de pensamentos foi interrompida quando o funcionário do bar chegou com meu pedido. Deixei meu telefone de lado.
 
  
 
-“Sophia...” I murmured, entering her profile again. I don't know what it was, but something about it was making me really uneasy.
+Bebi apenas uma garrafa de cerveja e depois fui para a estação. O tempo que passei foi suficiente para escapar da hora do rush. Consegui entrar em um trem mais vazio e até consegui um assento. Mesmo tendo chegado em casa mais tarde, pareceu valer a pena. Quando cheguei, minha esposa já tinha ido para a academia, mas havia deixado o jantar pronto. Como parecia não haver mais nada para fazer, tomei um banho, jantei e me joguei no sofá para rolar mais um pouco. Não demorou muito para que eu me lembrasse da garota com mechas rosa.
 
  
 
-I thought she might be my wife’s friend; maybe she had asked me to follow her or something. But when I checked, the two didn't follow each other. I wondered if I had ever reacted to one of her stories. I went into the DMs and to my surprise, there was a conversation. The conversation started with a like from me on a story of hers that was no longer available. Then it continued:
+“Sophia...” murmurei, entrando em seu perfil novamente. Não sei o que era, mas alguma coisa estava me deixando muito desconfortável.
 
  
 
-Me: “Good to see! Focus!” It was probably a story of her working out.
+Achei que ela poderia ser amiga da minha esposa; talvez ela tivesse me pedido para segui-la ou algo assim. Mas quando verifiquei, os dois não se seguiram. Eu me perguntei se alguma vez havia reagido a uma de suas histórias. Entrei nos DMs e para minha surpresa houve uma conversa. A conversa começou com uma curtida minha em uma história dela que não estava mais disponível. Então continuou:
 
  
 
-Sophia: “Thanks. Lol. And you? Haven't seen you training anymore.”
+Eu: "Bom ver! Concentre-se!" Provavelmente era uma história dela malhando.
 
  
 
-Me: “I took a break. I don't think the gym is for me. But seeing you train is an incentive.”
+Sophia: "Obrigada. Kkkkkk. E você? Não te vi mais treinando."
 
  
 
-She sent a smiling emoji.
+Eu: “Fiz uma pausa. Não acho que academia seja para mim. Mas ver você treinar é um incentivo.”
 
  
 
-I felt a chill go up my spine. The conversation was from a month ago. But I didn't remember any of it. It was as if it had been written by someone else. I even wondered if my wife had taken my phone thinking it was hers; that had happened before since our phones are identical. I thought about asking her, but was stopped by a strong sick feeling in my stomach. Something told me not to, and I decided not to say anything about it yet.
+Ela enviou um emoji sorridente.
 
  
 
-That night was difficult. I couldn't stop thinking about that conversation. Was that flirting? It didn't seem like something I would do. Was I trying something with that girl? Was I drunk that day? No, it’s been a really long time since I drank that much. That couldn't be it. I couldn't get any sleep, so in the middle of the night, I just got up and went to the living room. I went back on Instagram, deleted the conversation, and unfollowed the girl.
+Senti um arrepio subir pela minha espinha. A conversa foi de um mês atrás. Mas não me lembrei de nada disso. Era como se tivesse sido escrito por outra pessoa. Até me perguntei se minha esposa havia pegado meu telefone pensando que era dela; isso já havia acontecido antes, já que nossos telefones são idênticos. Pensei em perguntar a ela, mas fui impedido por uma forte sensação de mal-estar no estômago. Algo me disse para não fazer isso e decidi não dizer nada sobre isso ainda.
 
  
 
-“There.” I thought to myself. “Now I just have to forget about this story.”
+Aquela noite foi difícil. Eu não conseguia parar de pensar naquela conversa. Isso foi flertar? Não parecia algo que eu faria. Eu estava tentando algo com aquela garota? Eu estava bêbado naquele dia? Não, já faz muito tempo que não bebo tanto. Não poderia ser isso. Não consegui dormir, então no meio da noite simplesmente me levantei e fui para a sala. Voltei no Instagram, apaguei a conversa e parei de seguir a garota.
 
  
 
-The next day was Saturday. Some weekends, we would go back to our old city, which was an hour and a half by bus from where we currently live. To see family, friends, and everything else. This time, we split up as soon as we arrived in the city. It's a small city, so you can walk everywhere. We got off downtown, said goodbye, and she went to her mom's house, and I went to my parents'. We would meet up again at night.
+"Lá." Eu pensei comigo mesmo. “Agora só preciso esquecer essa história.”
 
  
 
-The path was always nostalgic. The streets of the city where I grew up seemed untouched. Everything was there, the same, as if it were immune to the passage of time. The square, the main church of Our Lady. Everything just as I left it. I caught myself smiling alone with satisfaction. So distracted that I almost tripped over a man sitting on the sidewalk. Shaken, he seemed fine. I apologized, and saw that he was asking for money. I don't remember the last time I used a physical banknote. I usually pay for everything with a banking app. However, to my surprise, I opened my wallet and there was a ten-dollar bill. Worn out, apparently wet. It must have been washed with some pants. I wouldn't miss it. I gave the bill to the man, he thanked me, and I continued on my way to my parents' house.
+O dia seguinte era sábado. Em alguns finais de semana voltávamos para nossa cidade antiga, que ficava a uma hora e meia de ônibus de onde moramos atualmente. Para ver família, amigos e tudo mais. Dessa vez nos separamos assim que chegamos na cidade. É uma cidade pequena, então você pode caminhar por toda parte. Saímos do centro, nos despedimos, ela foi para a casa da mãe dela e eu fui para a casa dos meus pais. Nos encontraríamos novamente à noite.
 
  
 
-That time was really healing for my mind. Sometimes I feel that my parents' house is currently the only place I can really relax. Maybe because there, I'm the visitor, so I don't really have any responsibilities. Maybe because of all the good memories the house brings me. Maybe because of seeing my brother and catching up. We’ve always had a much better relationship than the average siblings. But probably a mix of all these things.
+O caminho sempre foi nostálgico. As ruas da cidade onde cresci pareciam intocadas. Tudo estava ali, igual, como se fosse imune ao passar do tempo. A praça, igreja matriz de Nossa Senhora. Tudo exatamente como deixei. Me peguei sorrindo sozinho de satisfação. Tão distraído que quase tropecei em um homem sentado na calçada. Abalado, ele parecia bem. Pedi desculpas e vi que ele estava pedindo dinheiro. Não me lembro da última vez que usei uma nota física. Normalmente pago tudo com um aplicativo bancário. Porém, para minha surpresa, abri minha carteira e havia uma nota de dez dólares. Desgastado, aparentemente molhado. Deve ter sido lavado com alguma calça. Eu não sentiria falta disso. Entreguei a conta ao homem, ele me agradeceu e continuei meu caminho até a casa dos meus pais.
 
  
 
-I was on the couch, resting after lunch, when my mother came to talk to me.
+Esse tempo foi realmente curativo para minha mente. Às vezes sinto que a casa dos meus pais é atualmente o único lugar onde posso realmente relaxar. Talvez porque lá eu sou o visitante, então não tenho nenhuma responsabilidade. Talvez por todas as boas lembranças que a casa me traz. Talvez por ver meu irmão e colocar o papo em dia. Sempre tivemos um relacionamento muito melhor do que a média dos irmãos. Mas provavelmente uma mistura de todas essas coisas.
 
  
 
-“Are you sleeping here tonight?”
+Eu estava no sofá, descansando depois do almoço, quando minha mãe veio conversar comigo.
 
  
 
-“No.” I answered. “I think we're going to sleep at my mother-in-law's house.”
+"Você vai dormir aqui esta noite?"
 
  
 
-“That's a shame. I had already made up the room.”
+"Não." Eu respondi. “Acho que vamos dormir na casa da minha sogra.”
 
  
 
-“I would sleep here tomorrow, but I have to be at the company very early on Monday, so I think we’ll go home tomorrow night.”
+"É uma pena. Eu já tinha arrumado o quarto."
 
  
 
-“All right. Next time, then. In any case, the things you left last week are on the bed.”
+“Eu dormiria aqui amanhã, mas tenho que estar na empresa bem cedo na segunda-feira, então acho que voltaremos para casa amanhã à noite.”
 
  
 
-And saying that, she went to the backyard to continue taking care of the plants. I was thoughtful on the couch. I didn't remember forgetting anything. Maybe it wasn't anything important, since I hadn't missed it. In any case, I decided to take a look.
+— Tudo bem. Da próxima vez, então. De qualquer forma, as coisas que você deixou na semana passada estão na cama.
 
  
 
-I turned on the light in the room, and I saw what was on the perfectly made bed. A shirt. Some underwear. An old headphone. And a notebook. A notebook I didn't remember. Surely it must have belonged to my brother. I put the other things in my backpack and went to his room with the notebook in my hand. I knocked on the door and heard a “Come in” from inside. When I entered, he was playing on the PC.
+E dizendo isso, ela foi para o quintal continuar cuidando das plantas. Fiquei pensativo no sofá. Não me lembrava de ter esquecido nada. Talvez não fosse nada importante, já que eu não tinha perdido. De qualquer forma, decidi dar uma olhada.
 
  
 
-“Look, I think this is yours.” I said without giving it much importance, throwing the notebook on a shelf.
+Acendi a luz do quarto e vi o que havia na cama perfeitamente arrumada. Uma camisa. Algumas roupas íntimas. Um fone de ouvido antigo. E um caderno. Um caderno do qual não me lembrava. Certamente deve ter pertencido ao meu irmão. Coloquei as outras coisas na mochila e fui para o quarto dele com o caderno na mão. Bati na porta e ouvi um “Entre” lá dentro. Quando entrei, ele estava jogando no PC.
 
  
 
-He took his eyes off the frantic game for a few seconds, then returned to the screen.
+“Olha, acho que isso é seu.” Eu disse sem dar muita importância, jogando o caderno numa prateleira.
 
  
 
-“I don’t think so.” He replied.
+Ele tirou os olhos do jogo frenético por alguns segundos e depois voltou para a tela.
 
  
 
-“What? It’s not mine either.”
+"Eu não acho." Ele respondeu.
 
  
 
-Apparently something happened in the game, and a red game over screen lit up. He turned his attention to me, now more focused. He raised an eyebrow in a strange expression.
+"O quê? Também não é meu."
 
  
 
-“No? But it was with you last week.”
+Aparentemente, algo aconteceu no jogo e uma tela vermelha de game over acendeu. Ele voltou sua atenção para mim, agora mais focado. Ele ergueu uma sobrancelha com uma expressão estranha.
 
  
 
-“Was it? I don’t remember.” I replied, confused. At this point, doubting my memories. Or lack thereof.
+"Não? Mas foi com você na semana passada."
 
  
 
-“Yeah. Isn't that the spell notebook or something?”
+"Foi? Não me lembro." Eu respondi, confuso. Neste ponto, duvidando de minhas memórias. Ou a falta dela.
 
  
 
-Spell notebook? I sat down instantly on the rug near the bed. He just put the headset back on and went back to the game.
+"Sim. Não é o caderno de feitiços ou algo assim?"
 
  
 
-I analyzed the notebook from the outside. It was a thin, very common notebook. Hardcover, covered with black suede paper. It looked old and yellowed. When I opened it, the inside of the cover had “simpatias” (superstitions/sympathetic magic) written in blue ballpoint pen. Already a little smudged, it looked like it had been written a long time ago. Flipping through it, I saw that the content was a complete mess.
+Caderno de feitiços? Sentei-me instantaneamente no tapete perto da cama. Ele apenas colocou o fone de ouvido de volta e voltou ao jogo.
 
  
 
-There was no logic or organization system. Different pages were written with different handwriting and pen types. The things written there ranged from “Recipe to always have money when you need it,” “How to be invisible to your enemies,” “How to discover something that is hidden,” to more nonsensical things like “To change the colors of your sock,” “To attract the attention of stray dogs,” or even “To know in which direction the nearest McDonald's is.”
+Analisei o caderno por fora. Era um caderno fino e muito comum. Capa dura, forrada com papel camurça preto. Parecia velho e amarelado. Quando abri, o interior da capa tinha “simpatias” (superstições/magia simpática) escritas com caneta esferográfica azul. Já um pouco manchado, parecia ter sido escrito há muito tempo. Folheando, vi que o conteúdo estava uma bagunça completa.
 
  
 
-I laughed a little to myself. That notebook couldn't be mine. I would certainly remember reading something like that. Besides the recipes, if I can call them that. There were also what appeared to be comments. I decided to read one.
+Não havia lógica ou sistema de organização. Diferentes páginas foram escritas com diferentes caligrafias e tipos de caneta. As coisas escritas ali iam desde “Receita para sempre ter dinheiro quando precisar”, “Como ser invisível para seus inimigos”, “Como descobrir algo que está escondido”, até coisas mais absurdas como “Para mudar as cores da sua meia”, “Para atrair a atenção de cães vadios”, ou ainda “Para saber em que direção fica o McDonald's mais próximo”.
 
  
 
-“To always have money when you need it, take a bill of any value you want. Put it in a glass of water with salt and leave it outside overnight during a full moon. In the morning, take the bill and let it dry in the wind, repeating “Thank you very much, and come back soon” without stopping for a single second, until it is dry. Then store it in your wallet.”
+Eu ri um pouco para mim mesmo. Esse caderno não poderia ser meu. Eu certamente me lembraria de ter lido algo assim. Além das receitas, se é que posso chamar assim. Houve também o que pareciam ser comentários. Resolvi ler um.
 
  
 
-Further down, comments written in different handwritings from the main text.
+“Para ter dinheiro sempre quando precisar, leve uma nota do valor que quiser. Coloque em um copo de água com sal e deixe do lado de fora durante a noite de lua cheia. De manhã, pegue a nota e deixe secar ao vento, repetindo “Muito obrigado e volte logo” sem parar um só segundo, até secar. Depois guarde na carteira.”
 
  
 
-“It really works!” In red ballpoint pen.
+Mais abaixo, comentários escritos em caligrafia diferente do texto principal.
 
  
 
-“The ratio of water to salt must be less than 10/1 or it won’t work.” Another with more elaborate handwriting.
+“Realmente funciona!” Em caneta esferográfica vermelha.
 
  
 
-Finally, there was what looked like a stamp that said “Bullshit.”
+“A proporção entre água e sal deve ser inferior a 10/1 ou não funcionará.” Outro com caligrafia mais elaborada.
 
  
 
-It all seemed like a big joke. Maybe it was part of the idea to interact by writing something, then leaving it somewhere for someone to find. In any case, it seemed very fun. I didn't pay any more attention to it, put the notebook in my backpack, and went to play video games with my brother. Later, after dinner, I said goodbye, grabbed my things, and left for my mother-in-law's house. A fifteen-minute walk.
+Finalmente, havia o que parecia ser um selo que dizia “Mensagem”.
 
  
 
-The night was warm, and I thought a popsicle would be nice. So I stopped at a little shop on the street to buy one. When I opened my wallet to get my debit card, something caught my attention. A ten-dollar bill. First, I thought it might be another bill. But it was worn out, it had apparently been wet. I could have sworn I had given that bill to the man I found asking on the street earlier. I took the bill and stared at it, incredulous, as if it could tell me what was happening. I was pulled back to reality only when the clerk asked me again what the payment method would be.
+Tudo parecia uma grande piada. Talvez fizesse parte da ideia interagir escrevendo algo e depois deixando em algum lugar para alguém encontrar. De qualquer forma, pareceu muito divertido. Não prestei mais atenção nisso, coloquei o notebook na mochila e fui jogar videogame com meu irmão. Mais tarde, depois do jantar, me despedi, peguei minhas coisas e fui para a casa da minha sogra. Uma caminhada de quinze minutos.
 
  
 
-“Sorry, I think I'm a little distracted today. It’ll be cash.” And saying that, I handed her the bill. And got the change. Two two-dollar bills. I put everything away and continued on my way.
+A noite estava quente e achei que um picolé seria bom. Então parei em uma lojinha na rua para comprar um. Quando abri minha carteira para pegar meu cartão de débito, algo me chamou a atenção. Uma nota de dez dólares. Primeiro, pensei que poderia ser outro projeto de lei. Mas estava desgastado, aparentemente molhado. Eu poderia jurar que entreguei aquela conta ao homem que encontrei perguntando na rua mais cedo. Peguei a nota e olhei para ela, incrédula, como se ela pudesse me dizer o que estava acontecendo. Só fui trazido de volta à realidade quando o atendente me perguntou novamente qual seria a forma de pagamento.
 
  
 
-I spent the whole way thinking about this. Wondering if I had kept the ten-dollar bill and didn't remember. Just as I didn't remember the notebook. Just as I didn't remember the girl with the pink streaks. None of it made sense.
+"Desculpe, acho que estou um pouco distraído hoje. Será em dinheiro." E dizendo isso, entreguei a conta a ela. E consegui o troco. Duas notas de dois dólares. Guardei tudo e continuei meu caminho.
 
  
 
-Upon arriving at my mother-in-law's house, I took a shower and went to my wife’s old room. We caught up. She told me what she did during the day, about the cousins who had also been there today, and about the pets she hadn’t seen since last week. While she was saying all this, I was a bit spaced out, thinking about all the things that had happened. Answering the basics, robotically, while flipping through the notebook sitting at the computer desk. I flipped through the pages until my eyes were caught by something that completely stole my attention. Her voice became more and more distant. A look of panic and disbelief took over my face as my eyes ran across the page.
+Passei o caminho todo pensando nisso. Me perguntando se eu tinha guardado a nota de dez dólares e não me lembrava. Assim como não me lembrei do caderno. Assim como não me lembrava da garota com mechas rosadas. Nada disso fazia sentido.
 
  
 
-“To get rid of a persistent thought:
+Ao chegar na casa da minha sogra, tomei um banho e fui para o antigo quarto da minha esposa. Nós nos alcançamos. Ela me contou o que fez durante o dia, sobre os primos que também estiveram lá hoje e sobre os bichinhos que ela não via desde a semana passada. Enquanto ela dizia tudo isso, fiquei um pouco distraído, pensando em todas as coisas que haviam acontecido. Respondendo o básico, roboticamente, enquanto folheia o caderno na mesa do computador. Folheei as páginas até que meus olhos foram capturados por algo que roubou completamente minha atenção. Sua voz ficou cada vez mais distante. Uma expressão de pânico e descrença tomou conta do meu rosto enquanto meus olhos percorriam a página.
 
  
 
-On a new moon night, write the thought that bothers you on a sheet of paper. The paper must be virgin, but the pen must have been used every day for a month. Write it down and then fold the sheet and store it.
+“Para se livrar de um pensamento persistente:
 
  
 
- 
+Numa noite de lua nova, escreva o pensamento que te incomoda em uma folha de papel. O papel deve ser virgem, mas a caneta deve ter sido usada todos os dias durante um mês. Anote e depois dobre a folha e guarde-a.
 
-Every night, until the waning moon, you will act this out every day: Pretend you are going to open the sheet, then stop as if you were distracted by something else.
+ 
 
  
 
-On the night of the waning moon, burn the sheet, put the ashes in a glass of filtered water, and drink.”
+Todas as noites, até a lua minguante, você fará isso todos os dias: finja que vai abrir o lençol e depois pare como se estivesse distraído com outra coisa.
 
  
 
-Further down, some comments with other handwriting as always.
+Na noite de lua minguante, queime o lençol, coloque as cinzas em um copo de água filtrada e beba.”
 
  
 
-“It can take a while, but it works!” Said one, difficult to read, in blue ballpoint pen.
+Mais abaixo, alguns comentários com outra caligrafia como sempre.
 
  
 
-“The amount of water influences the result. The more the better.” Another in cursive, written with what looked like India ink.
+“Pode demorar um pouco, mas funciona!” Disse um, difícil de ler, com caneta esferográfica azul.
 
  
 
-Finally, the comment that made me freeze.
+"A quantidade de água influencia no resultado. Quanto mais, melhor." Outra em letra cursiva, escrita com o que parecia ser tinta da China.
 
  
 
-“This junk doesn’t work. But I’m going to try again.”
+Por fim, o comentário que me fez congelar.
 
  
 
-It was me. It was my handwriting. I would recognize it anywhere. How could I have written that? My stomach churned. Silently, several pieces fell into place in my head. None of it made sense. Suddenly, my wife called my attention again.
+"Esse lixo não funciona. Mas vou tentar de novo."
 
  
 
-“Are you listening to me?” She questioned angrily, pulling me out of my trance.
+Fui eu. Era minha caligrafia. Eu o reconheceria em qualquer lugar. Como pude escrever isso? Meu estômago embrulhou. Silenciosamente, várias peças se encaixaram na minha cabeça. Nada disso fazia sentido. De repente, minha esposa chamou minha atenção novamente.
 
  
 
-“Sorry, dear. I’m just a little...” My voice failed. “Hey. Do you remember a girl from the gym, one with pink streaks?” I asked suddenly. Unable to contain my confusion.
+"Você está me ouvindo?" Ela questionou com raiva, me tirando do transe.
 
  
 
-First, she seemed angry that I had changed the subject. But her expression quickly changed into a kind of sad, or pitiful, look.
+"Desculpe, querido. Estou só um pouco..." Minha voz falhou. "Ei. Você se lembra de uma garota da academia, uma com mechas rosa?" Eu perguntei de repente. Incapaz de conter minha confusão.
 
  
 
-“Sophia? Did you hearing about it too?”
+Primeiro, ela parecia zangada por eu ter mudado de assunto. Mas sua expressão rapidamente mudou para uma espécie de olhar triste ou lamentável.
 
  
 
-“Hearing about it?” I felt that sick feeling in my stomach again, as if my insides were being churned in an ice cream maker. “Hearing about what?”
+"Sophia? Você também ouviu falar disso?"
 
  
 
-“It's been a few weeks since she last showed up. I thought she had just stopped going to the gym. But I heard comments from people closer to her. It seems she’s disappeared. Her family has been looking for her desperately.”
+“Ouvindo sobre isso?” Senti aquela sensação de mal estar no estômago novamente, como se minhas entranhas estivessem sendo batidas em uma sorveteira. “Ouvindo sobre o quê?”
 
  
 
-All of these things happened last week. Since then, there has been no sign of Sophia. It's inevitable to connect the dots and imagine that this happened because of the notebook. Because of me. Since then, I haven't opened that notebook again. I haven't talked about it to anyone. Until now. Now, past the initial fear, I can't stop thinking that if there are answers to all of this, they are in the notebook. And I need to find out what it's all about.
+“Já se passaram algumas semanas desde a última vez que ela apareceu. Achei que ela tinha parado de ir à academia. Mas ouvi comentários de pessoas mais próximas dela. Parece que ela desapareceu. Sua família está procurando por ela desesperadamente.”
 
  
 
+Todas essas coisas aconteceram na semana passada. Desde então, não houve sinal de Sophia. É inevitável ligar os pontos e imaginar que isso aconteceu por causa do notebook. Por minha causa. Desde então, não abri aquele caderno novamente. Eu não falei sobre isso com ninguém. Até agora. Agora, passado o medo inicial, não consigo parar de pensar que se há respostas para tudo isso, elas estão no caderno. E preciso descobrir do que se trata.

@@ -150,7 +150,7 @@ I stood there for a long while, just like at the elevator above, heavily weighin
 
 We were screwed.
 
-Ann had basically won. She’d somehow plotted this out perfectly so that everything worked in her favor. Somehow, she was the only one with the code. She had Ann for leverage, and she had me and June isolated outside so that there was no way for us to interfere and stop her. Even if we did this—even if we got the body for her and she held up her end of the deal, she still got to escape. She’d get to go home to Trevor, Dad, and everyone else to live *our* life while Hope, June and I got to rot away forever in this godforsaken abyss.
+Ann had basically won. She’d somehow plotted this out perfectly so that everything worked in her favor. Somehow, she was the only one with the code. She had Hope for leverage, and she had me and June isolated outside so that there was no way for us to interfere and stop her. Even if we did this—even if we got the body for her and she held up her end of the deal, she still got to escape. She’d get to go home to Trevor, Dad, and everyone else to live *our* life while Hope, June and I got to rot away forever in this godforsaken abyss.
 
 I thought about it all for a while, but then the adrenaline of everything finally wore off, and I collapsed to the asphalt. Pushing my body to its limit on an injured hip had finally taken its toll, and my muscles could barely move to scrape myself up. June rushed over to help me up, and together we numbly made our way back over to the tower just in time for the light to click on red.
 
