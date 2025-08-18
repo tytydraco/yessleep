@@ -118,13 +118,13 @@ The thing that has always bothered me most about Gare's death is this: they neve
 
 There was no casket at his funeral. Afterwards, Carson, Leo and I sort of lost touch. It just wasn't the same without Gare.
 
-I've been trying to record everything I can remember about that day. Now that a few years have gone by, I feel like I can finally think about it again. Maybe if I finally get it all out, I can put it behind me for good.
+I've been trying to record everything I can remember about that day. Now that a few years have gone by, I feel like I can think about it again without spiraling into depression. Maybe if I finally get it all out, I can put it behind me for good.
 
 I recently asked my parents about the whole Gare situation to confirm the details. They had no idea who I was talking about. I've checked the newspaper archives, public records, even drove by his parents' house. It was foreclosed.
 
 It doesn't feel like my friend died a violent death. It feels like he never existed. He simply faded away. Looking back on those years and knowing I can't call up any of those friends today, it feels like we all did.
 
-I've tried to get in touch with Carson and Leo again. Neither of them seem to be on social media at all. Nothing comes up in search results when I type their names. All I know is that they don't live in Hayfield anymore. At the risk of sounding too crazy, it's like somehow that water washed them out of this world too.
+I've tried to get in touch with Carson and Leo again. Neither of them seem to be on social media at all. Nothing comes up in search results when I type their names. All I know is that they don't live in Hayfield anymore. At the risk of sounding too crazy, it's like somehow that blackwater washed them out of this world too.
 
 \_\_
 
