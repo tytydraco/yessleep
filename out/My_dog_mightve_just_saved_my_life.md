@@ -40,3 +40,9 @@ Hammock disappeared for a few hours and came back with a severed human hand in h
 Both pets are okay. Wife and I, who have a better 'understanding' of what is 'going on' and are scared for our lives. She still doesn't believe all of the details of what I just went through.
 
 -Just heard a pounding at the front door as I was finishing this. Will report back. Already bought plane tickets for tomorrow morning, and have somewhere else to stay tonight if I have to.
+
+-Edit again, door pounding was the police for a security check. Did a thorough inspection of the house, and said they have no evidence to back up any of my claims. No blood, nothing seemingly out of place. I followed them around, and the only thing I could find was that my toothbrush was missing. No blood, no broken glass.
+
+I'm trying to tell myself it was all a dream, a hallucination, or something of the like. I've had nightmares, bad trips, etc, and this is nothing like those. I'm awake, alert, sober, and terrified. So is Hammock.
+
+E: I recognize some inconsistencies, and will clarify, if I still have phone access. I am in a weird alternate reality at the moment. Trying to decide whether or not to go to the ER. Losing more blood than I ever have in my life.
