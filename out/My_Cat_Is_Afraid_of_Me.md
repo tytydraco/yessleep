@@ -34,7 +34,7 @@ I thanked her again and headed to work.
 
 Later that evening, just as I was leaving my last meeting, I noticed a new voicemail. It was from Laura. She sounded chipper as always, but I could tell she was choosing her words very carefully. I know my sister. Something was off.
 
-"Hey Cammie. Just calling to say that the kitty's doing fine! Me and the boys stopped by after school to play with him. He's such a joy! I wanted to ask something. Did you happen to stop by the house before your meetings today? We saw someone leaving out the backdoor as we were pulling up, but your car wasn't in the driveway. It's probably nothing but I thought I'd ask. Have a good night!"
+"Hey Cammie. Just calling to say that the kitty's doing fine! The boys and I stopped by after school to play with him. He's such a joy! I wanted to ask something. Did you happen to stop by the house before your meetings today? We saw someone leaving out the backdoor as we were pulling up, but your car wasn't in the driveway. It's probably nothing but I thought I'd ask. Have a good night!"
 
 I felt a pang of anxiety in my chest. I hadn't been home since the morning.
 
