@@ -52,7 +52,7 @@ As the rushing of the falls grew closer, a hush fell over the four of us, as if 
 
 Incruenta Falls. No one knew why they called it that, but everyone agreed that's what it was called. The entrance used to have an informational plaque tacked onto a wooden post, but it had long since fallen down and worn away, taking its history with it.
 
-The falls themselves weren't anything to write home about, just shelves of rock stacked around twenty feet high. Frothy fresh water trickled down into a round swimming hole surrounded by flat boulders that were the ideal size and shape for spreading out towels and picnic blankets. The water was a translucent dark brown. It always reminded me of over-steeped tea.
+The falls themselves were pretty, but not anything to write home about, just shelves of rock stacked around twenty feet high. Frothy fresh water trickled down into a round swimming hole surrounded by flat boulders that were the ideal size and shape for spreading out towels and picnic blankets. The water was a translucent dark brown. It always reminded me of over-steeped tea.
 
 When the trees parted, Gare sprinted past us and took a flying leap into the hole with a whoop, disappearing beneath the surface. Leo took off running after him, executing a perfect cannonball that splashed me, Carson, and our towels.
 
@@ -68,7 +68,9 @@ But as I said this, I noticed something else. I could not see or feel a single i
 
 Today, the swimming hole was in utter stasis. I don't know what else to say other than that it was deeply wrong. I found myself wondering if we'd taken a wrong turn. It felt so foreign, like a completely different place from the one I'd spent so many summers hanging around. No. The same toppled signpost had been there, I was sure of it. Why was everything so dead?
 
-I did notice a few abandoned towels scattered about on the rocks. It was at least comforting to know that people had recently been here. Seeing this, I tried to push the thought from my mind, but I could not bring myself to get into the water just yet. At some point, someone brought up the game again.
+I did notice a few abandoned towels scattered about on the rocks. It was at least comforting to know that people had recently been here. Seeing this, I tried to push the thought from my mind, but I could not bring myself to get into the water just yet.
+
+At some point, someone brought up the game again.
 
 Carson and I dared Leo to jump from a thick oak branch overhanging the deepest part of the hole. He scrambled up the slick bark without a second thought.
 
@@ -80,7 +82,7 @@ We waited for a long, measured moment, and I remember thinking how I'd never for
 
 Leo broke the surface with a gasp. He hauled himself out of the water, collapsing onto the rock belly-up. He was laughing, but he seemed different.
 
-"You good?" I offered. He met my eyes and for that split second, seemed panicked. I've never seen him so terrified.
+"You good?" I asked. He met my eyes and for that split second, seemed panicked. I've never seen him so terrified.
 
 "Yeah. What a rush," Leo breathed. He stood, turning away from me. "Gare, you're up next, man."
 
@@ -112,7 +114,7 @@ He did not resurface.
 
 \_\_
 
-The thing that has always bothered me most about Gare's death is this: they never found a body. I remember hearing that the recovery team found nothing but mud at the bottom of that swimming hole.
+The thing that has always bothered me most about Gare's death is this: they never found a body. I remember hearing that the recovery team dug up nothing but mud from the bottom of that swimming hole.
 
 There was no casket at his funeral. Afterwards, Carson, Leo and I sort of lost touch. It just wasn't the same without Gare.
 
