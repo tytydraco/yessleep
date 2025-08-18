@@ -94,7 +94,7 @@ I started talking with the other drivers at the truck yard before and after haul
 
 Deidree was a divorced mom of three. She hated she had to be away from her kids for such long stretches, but this job’s pay was the only way she’d be able to send her oldest to college.
 
-Then there was Vigram. He immigrated with his family from India about ten years ago. He tried taxi-ing in Chicago, but the pay was crap and the people were rude. He liked long-hauling much better.
+Then there was Vikram. He immigrated with his family from India about ten years ago. He tried taxi-ing in Chicago, but the pay was crap and the people were rude. He liked long-hauling much better.
 
 Chris was more of a short-hauler. He’d been on Route 333 for almost fifteen years, longer than anybody else. He’d started like me with an extremely short drive time, and the road had taken its sweet time expanding for him. He mainly did short trips now to be safe, one or two day hauls. That’s how long it took him to get out of the redwood section to the first turnaround point (from my interview). About 10X slower than me still. Even so, he could still cover ground quicker than some of the others.
 
