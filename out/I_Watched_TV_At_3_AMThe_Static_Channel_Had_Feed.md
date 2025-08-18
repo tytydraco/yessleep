@@ -74,4 +74,4 @@ I must wake up—
 
 Help me.
 
-[*\[Sequel - Children Of The White Rooms\]*](https://www.reddit.com/r/nosleep/comments/1mtiv83/children_of_the_white_rooms/)
+[*\[Sequel - Children Of The White Rooms\]*](https://www.reddit.com/r/creepypasta/comments/1mtsgim/children_of_the_white_rooms/)
