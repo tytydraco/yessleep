@@ -2,7 +2,7 @@ If you’re reading this, be warned. This is not for the weak minded. It has bee
 
 A few days of neglect later, one of the elderlies approached their house, finding their balcony window broken. He went in, and...came out screaming. Pat's parents were still in their beds, bugs surrounding their bed. The floor was dried blood.
 
-I had nothing to do with this until a month ago, when a dump load of pagers greeted me outside my workplace in a large, black garbage bag.
+I had nothing to do with this until a month ago, when a dump load of two-way pagers greeted me outside my workplace in a large, black garbage bag.
 
 At first, I...I didn't know what to do with them. I got in touch with an old friend of mine who works in the IT, and he told me to send over a sample. The pagers were the same as the others—white, numbered, with a text embedded on their bodies...*"I MUST GO NOW".*
 
