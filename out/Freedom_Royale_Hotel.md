@@ -1,0 +1,35 @@
+Here’s an interesting tale about how I became the hotel manager for the Freedom Royale Hotel. At the time, I was the assistant manager for about a year in a half and I was taking orders from the main hotel manager: Walter Atherton. Walter was so arrogant to everyone and at times, to customers who didn’t look like they could afford to stay.
+
+I don’t know to much about the history of this hotel. All I know is that the hotel that I’m working in has been around since 1890s and the owner of this hotel was a former slave named Ned Amnesty who welcomed anyone who wants to stay and relax. Then one day, his hotel rival: Jim came to his hotel and accused him of a crime. So Jim and his workers burned down his hotel (along with Ned, his staff, and all the guests that stayed the night).
+
+Then days later, Jim had a change of heart and decided to reopen Freedom Royale Hotel, while leaving his other hotel in dire straits and closed his hotel down for good. And ever since then, Freedom Royale Hotel has been thriving for years due to sticking with the motto: “When You’re Here, Everyone Is Free At The Freedom Royale”.
+
+Then one day, a young Hispanic man named: Denny Guevara walked in for a job interview for the Receptionist job. Walter said that the position for the job was already filled. Confused, I said: “No It’s Not, He’s Like The Second Person To Ask About This Job”. My manager gave me a disgusted look when I mentioned that fact.
+
+Then Walter said: “Okay, But You Are The One That’s Going To Interview Him. I Don’t Have Time For This”. So I interviewed Denny and his skills, communication, and knowledge of the hotel business was excellent. I told him that he is a total shoe-in for this position.
+
+When Walter asked me how the interview went, I told him: “I Think We Got The Perfect Candidate For This Job”. Walter replied: I Bet, Too Bad We’re Not Going To Hire Him”. When I asked him why, Walter said: “We Already Have Too Much Hispanics Working and Staying At This Hotel, We Don’t Need A Mini Mexico Here”.
+
+I replied: “Sir, That Is Wrong, It’s Our Job To Be Accepting To Everyone In This Hotel”. I continued: “His Credentials Is Just What We Needed For This Receptionist Position”. Then Walter replied: Well, I Said It’s Not, Now: Go Tell Him That He’s Not The Person That We’re Looking For or You’re Fired. The CEO of This Hotel Is Coming Here Tomorrow and I Don’t Need The Spanish Revolution To Ruin His Visit”.
+
+After reluctantly complying to Walter’s order, I told Denny the bad news, to which he looked devastated. I told Denny if I was the manager of this hotel, I would’ve hired you in an instant. Then I had an idea: I told Denny the CEO is coming to visit tomorrow and Denny can come back here tomorrow, so me and him can tell the CEO what was going on.
+
+Then the next day, the CEO of this hotel franchise: Mark Smothers has arrived. He was a Caucasian 54 Year Old man and he was so friendly to the staff. Walter, of course, acted brand new like Kate from Lizzie McGuire every time Lizzie’s Mom showed up (Off-Topic Example, But You Get The Point). When Mr. Smothers asked if the hotel still needed a receptionist? I replied: “Yes, and We Found The Perfect Person For The Job”. And then I introduced Denny to Mr. Smothers despite Walter’s disgust.
+
+Then Mr. Smothers asked Denny: “How Did The Management Staff Do, Boss”? Denny replied: The Assistant Manager (Me) Did A Great Job Trying To Help A Person Who Had The Best Credentials No Matter Who I Was”. Denny continued: “But Walter On The Other Hand…Failed Miserably”.
+
+When Walter tried to plead his case, Denny interrupted and said: “I Don’t Want To Hear It, I’m Sorry Walter, But…..I’m Gonna Have To Take Your Soul”. Before Walter could react to what he just said, Denny put his hand on his chest and sucked his soul out of his body until Walter was a lifeless husk. Spooked from what happened, I said: “What In The Hell Is Going On”?
+
+Mr. Smothers replied: “Don’t Worry, Everything Is Fine, You Don’t Have To Panic”. Confused, I asked Mr. Smothers: “What Are You Talking About? Are You Really The CEO? Did You Know Anything About This”? Mr. Smothers replied: “Yes, I Do and I Am The CEO of Freedom Royale, But That’s The Chairman of Freedom Royale”.
+
+Mr. Smothers continued: “You May Know Him As Denny, But He’s Really”….Denny Interrupts and said: “Ned Amnesty, At Your Service, Kind Sir”. My heart skips two beats trying to figure out how this happened? Ned explained: “When My Hotel Was Burning Because of My Rival: Jim, I Was Panicking At First After Seeing All of My Workers and Guests Crying In Panic Screams Trying To Find A Way To Escape, Until I Figured That I Should Accept This Fate”. Ned continued: “So I Told All of The Workers and Guests To Hold Hands To The Closest Person and Pray and Then The Hotel Burned Down Along With Me and The Rest”.
+
+“What Happened”? I said. Ned replied: “Then Jim Went To My Burnt Down Hotel, But Little Did He Know: My Spirit Was Alive and Kicking, So I Took Control of Jim’s Body”. Ned continued: “Now In Control of Jim’s Body: I Knew All of His Likes, Dislikes, and His Memories. So I Told Jim’s Workers To Check Out If We Left Anything At The Burnt Hotel, So My Workers Can Take Control of Their Bodies Too. So Me and The Rest of My Staff Renamed Jim’s Hotel Into The Freedom Royale Hotel”.
+
+I Asked: “Where Are They Now”? Ned replied: “They’re Currently The Board of Directors For The Freedom Royale Hotel and The Staff Under Management For This Hotel Are The Same Hotel Guests That We’re With Me During The Fire and They Took Control of The Unsatisfied Guests Who Had No Valid Reasons For Their Complaints”. 
+
+Then I asked: “So, Is The CEO A Spirit, Too”? Ned replied: “No, But Here’s The Thing, I Never Told You Jim’s Last Name”. Then Mr. Smothers said: “His Name Was Jim Smothers: One of My Ancestor. When I Heard About The History of What My Ancestors Did, The Least I Can Do Is Work At The Freedom Royale. Then When I Turned 39, Ned Revealed Who He Was When I Was Promoted To CEO”.
+
+Then I asked: “How Is Ned Able To Switch Ethnicities”? Ned replied: “I Steal The Souls of Any Manager of My Hotel Who Doesn’t Follow The Hotel’s Motto To The T”. Ned continued: “And Since You Were Willing To Do This, I’m Promoting You To Be The New Hotel Manager of This Hotel”.
+
+I was ecstatic, I was so happy to be promoted. After Ned (In Denny’s body) transformed into Walter, Ned and Mr. Smothers began to leave and Ned turned around to look at me and said: “Remember The Motto”. A week after being promoted, I hired an assistant manager and a receptionist (both of Hispanic heritage). When I heard a commotion with the new receptionist and an irate guest who said some discriminating remarks, I started thinking: “Hmm, The Hotel Maid That One of The Spirits Is Controlling Is Getting Kinda Old”….. 

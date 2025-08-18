@@ -1,4 +1,4 @@
-IF YOU’RE READING THIS, BE WARNED. THIS IS NOT FOR THE WEAK MINDED. It has been brought to my attention that many of you have questions regarding the [previous post](https://www.reddit.com/r/nosleep/comments/1ms6vy7/i_watched_tv_at_3_amthe_static_channel_had_feed/). The boy from that post is Pat. A decade ago, neighbors of Pat's family that lived in the Telechony suburb reported a bug infestation in their villa.
+If you’re reading this, be warned. This is not for the weak minded. It has been brought to my attention that many of you have questions regarding the [previous post](https://www.reddit.com/r/nosleep/comments/1ms6vy7/i_watched_tv_at_3_amthe_static_channel_had_feed/). The boy from that post is Pat. A decade ago, neighbors of Pat's family that lived in the Telechony suburb reported a bug infestation in their villa.
 
 A few days of neglect later, one of the elderlies approached their house, finding their balcony window broken. He went in, and...came out screaming. Pat's parents were still in their beds, bugs surrounding their bed. The floor was dried blood.
 
@@ -14,8 +14,7 @@ This post will contain Page 1 to 9...no more. No more.
 If you have anything on the 2012 Telechony Kidnappings, please, help those children.  
 Bring them home.
 
-\~Raes
-
+\~Raes  
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 **PAGER LOG (PAT)**
