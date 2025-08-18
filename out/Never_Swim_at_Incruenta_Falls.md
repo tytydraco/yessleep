@@ -46,7 +46,7 @@ That thin dirt road through the woods soon opened up into a small makeshift park
 
 Carson and I hopped out onto the dirt first, then shoved the front seats forward to let the guys clamber out. Next, we stripped down to our bathing suits and sprayed every inch of our bodies with bug spray. That was just protocol around here to ward away the constant plague of mosquitos and horseflies.
 
-It was a short hike to the promised land. We picked our way through the dense forest, pushing aside clumps of brambles and wisteria. I couldn't help but think it looked like a tunnel, the way the vines choked the trees and curled into each other above our heads. Bits of Spanish moss hung down from low oak boughs, prickling my skin as I trudged along. The air was thick here, peaty and sweet.
+It was a short hike to the promised land. We picked our way through the dense forest, pushing aside clumps of brambles and wisteria. It looked almost like a tunnel, the way the vines choked the trees and curled into each other above our heads. Bits of Spanish moss hung down from low oak boughs, prickling my skin as I trudged along. The air was thick here, peaty and sweet.
 
 As the rushing of the falls grew closer, a hush fell over the four of us, as if these were hallowed grounds. Looking back, I think they were.
 

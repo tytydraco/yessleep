@@ -1,4 +1,4 @@
-In 2012, I was working as the lead diagnostics technician at an automotive shop in Fremont, California. It was a typical day, and my shift started at 7 AM sharp. I parked across the street and walked into the shop to greet my boss when my phone rang. The call brought devastating news: my grandfather had just passed away in the hospital. Overwhelmed, I quickly said hi and bye to my boss and headed straight home.
+In 2012, I was working as the lead diagnostics technician at an automotive shop in Fremont. It was a typical day, and my shift started at 7 AM sharp. I parked across the street and walked into the shop to greet my boss when my phone rang. The call brought devastating news: my grandfather had just passed away in the hospital. Overwhelmed, I quickly said hi and bye to my boss and headed straight home.
 
 Days earlier, strange events began unfolding. It was a Saturday, and my dad and I were working at our house. Throughout the day, peculiar things happened. One incident involved a garage light that repeatedly turned itself on, even after we made certain it was switched off. We would leave the garage only to return and find the light inexplicably lit again.
 
