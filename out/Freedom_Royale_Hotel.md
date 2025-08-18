@@ -1,6 +1,6 @@
 Here’s an interesting tale about how I became the hotel manager for the Freedom Royale Hotel. At the time, I was the assistant manager for about a year in a half and I was taking orders from the main hotel manager: Walter Atherton. Walter was so arrogant to everyone and at times, to customers who didn’t look like they could afford to stay.
 
-I don’t know to much about the history of this hotel. All I know is that the hotel that I’m working in has been around since 1890s and the owner of this hotel was a former slave named Ned Amnesty who welcomed anyone who wants to stay and relax. Then one day, his hotel rival: Jim came to his hotel and accused him of a crime. So Jim and his workers burned down his hotel (along with Ned, his staff, and all the guests that stayed the night).
+I don’t know too much about the history of this hotel. All I know is that the hotel that I’m working in has been around since 1890s and the owner of this hotel was a former slave named Ned Amnesty who welcomed anyone who wants to stay and relax. Then one day, his hotel rival: Jim came to his hotel and accused him of a crime. So Jim and his workers burned down his hotel (along with Ned, his staff, and all the guests that stayed the night).
 
 Then days later, Jim had a change of heart and decided to reopen Freedom Royale Hotel, while leaving his other hotel in dire straits and closed his hotel down for good. And ever since then, Freedom Royale Hotel has been thriving for years due to sticking with the motto: “When You’re Here, Everyone Is Free At The Freedom Royale”.
 
