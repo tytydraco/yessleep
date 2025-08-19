@@ -42,7 +42,7 @@ She sat back in her chair. “I think I know who you’re talking about, yeah. S
 
 “No ma’am, I hardly know him. If you do see him though, would you send him my way? I’m staying at the hotel for the time being, and during the day I think I’ll be working out of their lobby until Emerson can help me get the office at the chapel… um… cleaned out.”
 
-By the time the awkwardness had abated and either party felt comfortable enough to stand and end their meal, it was dark outside. She walked me to the door, and thanked me once again for visiting. I walked along the long dirt trail back to the middle of town, my path ahead bathed in silky moonlight. 
+By the time the awkwardness had abated and either party felt comfortable enough to stand and end our meal, it was dark outside. She walked me to the door, and thanked me once again for visiting. I walked along the long dirt trail back to the middle of town, my path ahead bathed in silky moonlight. 
 
 As I walked, I heard a faint rustling in the fields a ways away. I turned to look, and saw a figure standing in the middle of the wheat. I froze; the figure wasn’t too far from where the child’s body had been found. Was it Nolan?
 
@@ -80,19 +80,19 @@ By the time Sheriff Emerson arrived, the young clerk and I had wrapped the woman
 
 “We don’t have paramedics here,” the sheriff explained. “I went ahead and called the nearest city, but they’re a forty-five minute drive out, maybe forty if they hurry. What the hell happened here?“
 
-I surveyed the scene, finally letting his shock subside and his curiosity take over.
+I surveyed the scene, finally letting my shock subside and the curiosity take over.
 
 “Looks like a truck, or something big at least, ran down the wall and ran over them both. By the state of Clark, looks like he might’ve been dragged through the rubble by the tires…”
 
 Emerson squinted, rubbing the stubble on his chin with his knobby hands. “I thought so too at first, but look. Look at the wall.”
 
-My attention once more rose to the wall, trying to make sense of whatever detail the sheriff had gleaned from its demolished beams and scattered drywall chunks. I was about to say that I didn’t understand the sheriff’s meaning, when the realization struck me: all of the debris from the wall itself was cast outside of the hotel, not inwards. I looked back up at the Emerson, who was already giving me a look that said “you see what I mean?”
+My attention once more rose to the wall, trying to make sense of whatever detail the sheriff had gleaned from its demolished beams and scattered drywall chunks. I was about to say that I didn’t understand the sheriff’s meaning, when the realization struck me: all of the debris from the wall itself was cast outside of the hotel, not inwards. I looked back up at Emerson, who was already giving me a look that said “you see what I mean?”
 
 “But that’s… that doesn’t make any sense. I can see the tire marks, there had to have been a truck!”
 
 “I know. But whatever tore up the room didn’t come from outside, it came from in here, breaking down the wall as it went.”
 
-We traced the trail of rubble and tire marks with our eyes. There was a clear “start” point inside the room, several feet from the door. They continued on, carving valleys in the piles of splintered wood and in Clark’s body, until they finally made their way outside. There, as suddenly as they’d begun inside, the marks of burnt rubber disappeared.
+We traced the trail of rubble and tire marks with our eyes. There was a clear “start” point inside the room, several feet from the door. The trail continued on, carving valleys in the piles of splintered wood and in Clark’s body, until they finally made their way outside. There, as suddenly as they’d begun inside, the marks of burnt rubber disappeared.
 
 We stepped through the shattered wall into the cool night air.
 
@@ -116,7 +116,7 @@ Somewhere off in the distance, a bird cawed out in the fields, and the pair of u
 
 Within seconds, Nolan’s large frame vanished into the swaying darkness of the fields, swallowed by the shifting walls of wheat. Only the heady rhythm of his footsteps gave any indication where he was going, fading and reappearing as the stalks bent and swayed. Emerson barreled ahead with his flashlight high, the pale beam searching erratically across the grain. I followed close behind, the brittle stalks snapping against my coat as I pushed through. Every so often, we caught a glimpse of movement ahead; always just a glance of a bobbing head or a hunched frame, fleeting before it sank back into golden shadows of the fields. Nolan was always just far enough ahead to stay out of sight.
 
-My lungs burned, each breath labored against the cold, dry air. I slowed, letting Emerson pull several yards ahead, the sheriff’s flashlight bobbing the blackness getting further and further away. The beam jumped from side to side, searching for something to anchor to.
+My lungs burned, each breath labored against the cold, dry air. I slowed, letting Emerson pull several yards ahead, the sheriff’s flashlight bobbing in the blackness getting further and further away. The beam jumped from side to side, searching for something to anchor to.
 
 As my breath returned, I took a deep breath through my nose. I almost choked on a sharp and acrid scent cutting through the smell of dust and dry stalks. I froze mid-breath, nostrils flaring. That same harsh chemical tang I had smelled the night they found the child, rising from dry soil that should smell like barley and dust. The air felt suddenly heavier, thicker, as if I were breathing through wet cloth.
 
@@ -150,7 +150,7 @@ I took another step forward. “‘Watch it happen’? What, so you didn’t kil
 
 “Because I can’t. I just can’t. If I step in, I have to leave. I wish it wasn’t that way, but it is.“
 
-I could not contain my anger any longer. With a shout, I charged Nolan, slamming into him hard enough to drive us both into the stalks. The wheat thrashed and snapped beneath us as we slammed the ground. Nolan’s hands came up fast, one locking around my shoulder, the other bracing against my chest, trying to shove me away. I swung back, clawing for leverage, my breath hot and ragged as I screamed.
+I could not contain my anger any longer. With a shout, I charged Nolan, slamming into him hard enough to drive us both into the stalks. The wheat thrashed and snapped beneath us as we slammed against the ground. Nolan’s hands came up fast, one locking around my shoulder, the other bracing against my chest, trying to shove me away. I swung back, clawing for leverage, my breath hot and ragged as I screamed.
 
 “How did you do it?! How did you kill Clark?”
 
@@ -158,7 +158,7 @@ We rolled through the dirt, each trying to get the upper hand. Nolan moved with 
 
 “Peter! Stop this! I’m not the enemy!”
 
-My knee drove into Nolan’s ribs; Nolan grunted, wrenching himself free just long enough to shove me off balance. I came right back at him, knocking the wind from Nolan’s lungs. In the dim moonlight, our shadows tangled like one shape, thrashing in the field.
+My knee drove into Nolan’s ribs; Nolan grunted, wrenching himself free just long enough to shove me off balance. I came right back at him, knocking the wind from his lungs. In the dim moonlight, our shadows tangled like one shape, thrashing in the field.
 
 Finally, with a surge of strength, Nolan hooked his boot against my hip and kicked, sending me stumbling backward into the wheat. I landed hard, the air bursting from my chest.
 
@@ -194,8 +194,8 @@ I checked into a large hotel, not far from where that sunken tractor might’ve 
 
 I asked if he could borrow the newspaper for just a moment, as the headline caught my eye. The article wrote about several unsecured propane tanks that had tumbled from a truck on a construction site the week prior, and had ruptured in the empty lot, where an old local church had recently been demolished. No one was reported injured, though the article mentioned unexplainable traces of blood and splintered wood found at the scene.
 
-I returned the paper, pocketed the room key and began my walk to the elevator. Halfway down the corridor, a sharp, familiar scent curled into my nostrils. It stopped me in his tracks. I knew the scent by name now, though all those years ago it had been only a strange, stinging note in the air. Chlorine.
+I returned the paper, pocketed the room key and began my walk to the elevator. Halfway down the corridor, a sharp, familiar scent curled into my nostrils. It stopped me in my tracks. I knew the scent by name now, though all those years ago it had been only a strange, stinging note in the air. Chlorine.
 
 Drawn by it, I followed the smell until I found its source: a glass door leading to the small indoor pool. A worker in overalls was finishing up his work, skimming the pale blue water with a long-handled net. The room was bright and sterile, echoing faintly under the hum of the overhead lights. I lingered by the doorway, even after the worker had left. 
 
-I watched, eyes fixed on the empty pool and the blinding, glittering lights it reflected. I looked on, transfixed, as something stirred beneath the water, for just a moment before the water went still once more. Several stalks of wheat bubbled to the surface.
+I watched, eyes fixed on the empty pool and the blinding, glittering lights it reflected. I looked on, transfixed, as something stirred beneath the water for just a moment before the water went still once more. Several stalks of wheat bubbled to the surface.
