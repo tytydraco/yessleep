@@ -1,0 +1,25 @@
+It was a dark and rainy night, and I couldn’t see five feet in front of me. I was probably driving too fast on those country roads through the woods, and I was finding it very hard to focus due to lack of sleep. They came out of nowhere, smacked into my windshield, and went under the car. It was over in an instant. I didn’t stop, I didn’t even slow down. To be honest, and I know you’ll think this is terrible, but I didn’t even consider it. In my mind, it was his life or mine. Why should I have my life ruined because that person was standing in the middle of the road at night? So I kept driving until I finally got home. I hosed off my car until the blood was gone, then I went inside and went to bed. I slept well.
+
+That was a year ago, and I had never driven that road again until a couple of months ago. My wife and I were returning from an appointment that we had in another city and the GPS we were using froze. Before I knew it, I was back on that road. I didn’t feel guilt or shame, but resentment. I hated to be reminded of what I had done, not because I regretted it, but because it had been such an annoying inconvenience.
+
+I wasn’t looking for the place where the accident happened, but I found it anyway. My wife pointed out the strange pyramid of stones by the side of the road. I slowed down to take a look. She asked me if we had ever been here before, I said that we hadn’t.
+
+I don’t know why, but I stopped the car. My wife didn’t ask why, we both just got out of the car to get a better look. It was a crude pile of rocks that reached to about my waist in height. I couldn’t help but shake the feeling that it was some sort of memorial for the person who died, like a cross that civilized people might put next to the site of a car accident. My wife asked again if she had ever been here before, and I told her “no”.
+
+Then, we heard rustling in the woods and what looked like people coming toward us. I started to feel afraid, more afraid than I had even been in my life. I looked to my wife, hoping to comfort her despite my own terror, but she looked completely calm. I asked her if she saw what I was seeing, and she told me “yes”.
+
+The people kept approaching, and they started looking less like people as I could make out more of their features. They were tall but hunched and gaunt, with grayish skin and no clothing. As they reached the tree line, I could make out weapons in their hands: axes and knives made of stone. There were at least twelve of them, and I froze in fear as they shambled onto the side of the road. I looked back to my wife, and her reaction had not changed.
+
+The leader of the feral people stepped forward, grabbed my hand, and used his knife to cut a gash into my palm. I winced in pain as he rubbed his fingers around in my blood, then watched in horror as he sprinkled the blood on the pyramid of stones. I choked out a question like “what are you doing,” but he only bared his teeth and snarled in response.
+
+My wife left my side and stood amongst the dozen forest people that faced me. She told me that she had been here, in the car, when I had killed one of them. But I knew that she had not been there, I had been alone. I would have remembered if she was there, and I told her so. She continued to insist, and I continued to deny. Then she told me to move the stones away from the pyramid to see what was underneath. I crouched down, rolled the rocks away, and found what lay beneath: the bones of a child. 
+
+“You killed one of their young,” she said, “and one of my young. I saw it with my own eyes. There is a price to pay. Blood for blood.”
+
+I cried out in horror as the barbarians attacked me. They beat, slashed, and stabbed me for what felt like ages. The only reason that I survived, despite their murderous intentions, was that they seemed to take pleasure in keeping me in a prolonged state of agony.
+
+I was a bloody mess when the police found me. I had been buried in stones and was unable to move, but someone must have heard me screaming for help after the feral people left me for dead. The next two months were spent slowly recovering from several surgeries in the hospital. I was barely conscious during most of that time, but I swear that I saw my wife standing over me at least once. Afterwards, I was told that this was impossible: she had been missing since the day of my attack, and nobody had seen her enter or leave the hospital.
+
+I returned home without my wife. I had to give a statement to the police about what happened, and they seemed very skeptical. I couldn’t blame them. They had searched my home, the woods, and everywhere in between, but couldn’t find her anywhere. They asked what I thought, and I told them that I thought that she probably died at those monsters’ hands.
+
+I’m not so sure if I believe that any more, though. When the police stopped coming around, I called up an old flame from high school. We went on a date yesterday and it went well enough. What has left me hopelessly confused and terrified is what she asked me this morning as she was leaving my place: “why is there a big pile of rocks next to your driveway?”

@@ -220,7 +220,7 @@ The cop decided the answer was probably yes; I was cited for the misdemeanor cri
 
 I sought psychological counseling—you tend not to believe your own eyes when something happens like what I’ve precedingly described. I thought it couldn’t hurt.
 
-After a week or so, I got a call from Earl asking if I’d seen Danny. I told him we’d gone out and I told him that I told the cops, too. And I left it at that. 
+After a week or so, I got a call from Earl asking if I’d seen Danny. I told him we’d gone out and I told him that I told the cops what we'd been up to that night, too. And I left it at that.
 
 When Earl sees me in the grocery store now, he gets a look on his face like he’s smelling shit. Then he turns and walks the other way. I wouldn’t be surprised if he wanted to kill me.
 
