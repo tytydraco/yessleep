@@ -1,0 +1,15 @@
+I had woken up at 4:40 in the morning. That night I stayed sleeping in my mom's room because I felt more comfortable. I woke up because my kittens were playing with a lot of energy in the bed and kept scratching or biting my foot. I didn't want to scold them since I didn't see the point in that, I just lay down on my back with a tired face, since I was very sleepy and my cats wouldn't let me sleep.
+
+After a few minutes without being able to sleep, I was a little stressed, but I decided to talk a little with my mom who was already getting ready to go to work. When my mother had already left, it was 5 in the morning, it was almost dawn. I checked the time on the phone and then decided to no longer care about the cats, and with a sigh, I dropped my hand with the phone on the bed and closed my eyes.
+
+I felt as if my body was separated from my head, although at that moment because of the dream I had I didn't give it any importance. I realized I could open my eyes even though my body was asleep. At that moment I had a hallucination where I grabbed my phone and Instagram opened by itself. A Roblox video appeared to me where a man who looked like a 50-year-old Spanish man was being a pedophile with a little girl, saying completely disgusting things to her.
+
+After that, I dropped my phone again and said, “Roblox is seriously not a safe game.” And out of nowhere I started to feel weird. A silence came suddenly and everything became completely silent. I began to hear Sacha meowing desperately as if something was attacking her. I wanted to turn my head to see what was happening but I couldn't. When I tried to move my head, it felt heavy, as if it were stuck to the mattress.
+
+Then a high-pitched beeping sound began to be heard, the same one you hear when you cover your ears. I started to get a little scared but then it went away and I was just confused as to what was happening as I couldn't move. The beeping became louder and louder and everything in my vision began to look grayer. I realized in that moment that, for the first time, I was aware of what was happening to me.
+
+When I tried to move my head again, a very loud and high-pitched sound stunned me and blurred my vision. It was as if it were warning me that if I moved it again, something very bad would happen to me. I wanted to test if I could scream, I could open my mouth and breathe out, so that meant I could scream. But I decided not to do it because I was already regaining my mobility.
+
+I was finally able to move and when I looked to my left, I saw that Sacha was meowing like that because one of the kittens had fallen off the bed and she was trying to get him up, but she didn't know how.
+
+Then I was afraid to go back to sleep since I was sleepy and my body was upset. But then I was able to get the courage to go back to sleep and I woke up at 9 in the morning and had my normal day.
