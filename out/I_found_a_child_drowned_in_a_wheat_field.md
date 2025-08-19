@@ -152,4 +152,4 @@ I stepped around the hole, my puzzled mind racing for any explanation. The only 
 
 As I looked over pastor John’s desk, I scanned the various documents. Many of them were obituaries, invitations to funerals from months prior. Clark had been right, it seemed death was a common happening in Penuel Crossing. I had been looking at the documents for several minutes before the picture on the desk caught my eye. The small framed photo, placed at the corner of the desk, seemed to be a photo of Pastor John, with his family. Clinging to his leg was a small toddler and at his other side was a loving wife, both of whom I recognized. I swore once more, frustrated at myself for not realizing earlier that Ellen and Micah were Pastor John’s wife and son.
 
-[link to part 2](https://www.reddit.com/r/nosleep/s/2fGci93Few)
+[link to part 2](https://www.reddit.com/r/nosleep/comments/1muhkua/i_found_a_child_drowned_in_a_wheat_field_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
