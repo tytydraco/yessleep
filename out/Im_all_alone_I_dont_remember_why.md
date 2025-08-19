@@ -49,3 +49,19 @@ Please help me. I think there's something wrong with me. I really, really would 
 Please. I don't want to be alone anymore. Please. Please help me.
 
 Please.
+
+Update: A few people suggested I go to the hospital. They didn't let me in. I tried explaining to the lady at the desk, but she, like, I don't know, stared at me like I had three heads, or something. She wouldn't admit me. At a certain point she just started... Screaming at me? It was awful. She acted like I stole something, but I just moved here! I'd not been there. She couldn't even explain why she wanted me out when security came- just that I made her uneasy, that I felt off. After a certain point, she just LIED and made up a story about me threatening her!!!
+
+I gave up. I could have told them to check the cameras, I guess. But when I was arguing with her, I swear that just under her chair I saw part of a stain.
+
+I have an awful feeling. I don't want to call the cops. I'm too scared to- what if I call them and they come to the house and decide I did something? What if I did something?
+
+I would never do anything. I know this. This isn't me trying to cover anything up, I swear to God, but I think... I.
+
+A few people mentioned the Ray Bradbury story. There Will Come Soft Rains. That there are shadows of people burned onto a home, marking it forever with the signs of the people who lived in it, who loved it, and it persists eternally in a routine without them until it burns away.
+
+There's something. The shape of people in my life, but there's never been anyone there for me. But nothing makes SENSE. Nobody is born alone! There had to be people there. So where were they! I don't remember them. Why do I remember their absence? I shouldn't be able to remember something that EARLY but for whatever reason I can't forget that I've always been alone.
+
+Oh my god I don't think I had parents. That doesn't make any sense. I had to have had parents. It's not just like. I'm reaching back in my memory, trying to drag something out of it, and no one raised me. No biological, adoptive, foster parents. It's just pain. It's just loneliness.
+
+I can't do this for much longer. Help me. Help me please.
