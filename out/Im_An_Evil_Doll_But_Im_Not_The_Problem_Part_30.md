@@ -519,3 +519,8 @@ I hope there's a next a time, but I don't have much faith there will be.
 If not, thank all of you who have stayed with us so far. You're family. 
 
 Sveta.
+
+
+Looks like Punch is back
+
+https://www.reddit.com/r/nosleep/s/bRWvSwsBz8
