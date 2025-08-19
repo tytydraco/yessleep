@@ -70,7 +70,7 @@ He reached into his pocket and pulled out a dense item wrapped thickly in severa
 
 I peeled it off, and my Nerium screeched. An involuntary yelp from my lungs caused the parasite to leap from my hands and into my mouth. It latched to my tongue with its sharp teeth, and it tore into my skin with barbed tendrils. My body convulsed as I lost my balance onto my bed. On my back, I arched up wildly as I clawed at my face in a desperate attempt to defend myself from the wretched creature. 
 
-This is not going to happen again. 
+This was not going to happen again. 
 
 With the will of my newfound life, I clenched my teeth tightly, severing the head of my lifelong illness. Guts squished out of my mouth and onto my sheets, causing me to gag. I spit the creature out and caught my breath for only a moment before getting to my feet. I needed to check on my mother. I ran down the hall and towards my parents’ room. The door was locked, and I knocked urgently. 
 

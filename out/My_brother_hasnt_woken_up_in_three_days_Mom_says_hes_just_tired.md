@@ -66,7 +66,7 @@ The air grew thick, viscous, like trying to breathe underwater. The game on the 
 
 Two figures standing behind our beds.
 
-I tried to scream, but my lungs wouldn't work. An impossible weight pressed down on my chest. Through the paralysis, I felt something touch my face, boney fingers. 
+I tried to scream, but my lungs wouldn't work. An impossible weight pressed down on my chest. Through the paralysis, I felt something touch my face, boney fingers.
 
 The hairy long fingers covered my mouth, as if they were trying to cover up my screams.
 
@@ -112,15 +112,15 @@ She stood outside our rooms at night.
 
 I could see her feet under the door, standing perfectly still for hours.
 
-She'd been collecting our hair while we slept, keeping the strands in a small wooden box that smelled like earth and decay. 
+She'd been collecting our hair while we slept, keeping the strands in a small wooden box that smelled like earth and decay.
 
-Alex hadn't been the same since that night. He slept more and more, sometimes for entire days. 
+Alex hadn't been the same since that night. He slept more and more, sometimes for entire days.
 
 Mom said he was just tired, growing boys need their rest. But his skin was getting pale, almost translucent. I could see his veins turning dark beneath it.
 
 One night, I pretended to sleep when she came in. She stood over Alex's bed for a long time, then carefully cut a few strands of his hair with tiny scissors. She wrapped the hair in tissue and put it in the box with the others. Then she turned to me.
 
-She stood there for what felt like hours. Through my barely open eyes, I could see her face changing in the moonlight, one moment my mother's familiar features, the next something ancient and terrible. 
+She stood there for what felt like hours. Through my barely open eyes, I could see her face changing in the moonlight, one moment my mother's familiar features, the next something ancient and terrible.
 
 Finally, she leaned down close to my ear.
 
@@ -128,11 +128,11 @@ Finally, she leaned down close to my ear.
 
 That was three nights ago. Alex hasn't woken up since yesterday morning. Mom says he's just tired, but I can hear him breathing in a rhythm that doesn't sound human anymore. It sounds like two sets of lungs working together.
 
-She's been taking my hair now too. I pretend I don't notice, but I feel the cold metal of the scissors against my skin while I sleep. 
+She's been taking my hair now too. I pretend I don't notice, but I feel the cold metal of the scissors against my skin while I sleep.
 
 Alex just sat up in his bed. His eyes are open, but they're not his anymore. They're red.
 
-For the first time in weeks, I smile. 
+For the first time in weeks, I smile.
 
 'You made it,' I whisper, and he grins back with teeth that are too sharp, too many.
 
@@ -142,4 +142,4 @@ Mom appears in the doorway, her shadow finally returned, but it's the wrong shap
 
 I realize I haven't been fighting this at all. I've been waiting for Alex to catch up.
 
-We're a family again.
+We're a family [again](https://www.instagram.com/the._undying).
