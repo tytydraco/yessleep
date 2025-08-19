@@ -1,6 +1,6 @@
 “In case you wake up tomorrow and think this was all a dream.” The tall sharp featured man said with a wink as he stamped my hand. The stamp left behind a black ink pentagram. I almost laughed in his face. As if I was going to have some otherworldly experience at some small goth DJ set held in the function room of Hurstmere Caves
 
-Hurstmere Caves is, as you may have guessed, a series of cave tunnels near me. The local kids go on school trips there all the time and it has a rich history. They used it as a bomb shelter in WW2 and it has a cool stage sort of area where I think Jimi Hendrix played once. Also, apparently, there are all sorts of Celtic things going on down there, strange markings and such. I took my siblings there last summer. 
+Hurstmere Caves is, as you may have guessed, a series of cave tunnels near me. The local kids go on school trips there all the time and it has a rich history. They used it as a bomb shelter in WW2 and it has a cool stage sort of area where I think Jimi Hendrix played once. Also, apparently, there are all sorts of Celtic things going on down there, strange markings and such. I took my siblings there last summer.
 
 Ryan, my friend who bullied me into helping him set up his youth club, had gone to Hurstmere caves with me. My best friend likes two things, Jesus and goth music. He also loves adventure in all its forms including accompanying me to goth clubs. He’s very open minded about that sort of stuff. But, I could tell it made him deeply uncomfortable to have a pentagram stamped on his hand. He didn’t look down at it, just shoved his hand in his pocket and stared at the gravel beneath us.
 
@@ -22,7 +22,7 @@ Ryan pushed me forward into the caves visitor centre. The little tuck shop, with
 
 As we descended into the function room the sound of Joy divisions “Love will tear us apart” filled my ears.
 
-“Aw I love this song.” Enthusiastically I grabbed Ryan and shook him by the shoulders, almost making his glasses fall off his face. He’s a massive fan of Joy Division as well so he gave me a gleeful smile. I pleaded with him to drink up so I could drag him onto the empty dance floor. 
+“Aw I love this song.” Enthusiastically I grabbed Ryan and shook him by the shoulders, almost making his glasses fall off his face. He’s a massive fan of Joy Division as well so he gave me a gleeful smile. I pleaded with him to drink up so I could drag him onto the empty dance floor.
 
 Playing the beautiful tunes was a woman entirely clad in a pleather cat suit and her platinum blonde hair in a high tight pony tail. She bopped along to the tune with us, pong tail swishing side to side. Her dramatic dark makeup made her look transcendent, like a beautiful creature rather than just another person. The function room itself had been decorated with a myriad of Halloween style decorations like fake cobwebs, battery powered tea lights and plastic skulls. It managed to look charming and atmospheric without seeming cheap. Best of all, a dozen different light machines painted the walls and ceiling in swirling bright colours and patterns. Whoever had decorated the space was clearly on a budget but had put love and care into it.
 
@@ -274,4 +274,4 @@ I ignored the smug look on the girl’s face and nodded to the police officer.
 
 “Did you know Maisie?”
 
-“Oh yeah. She was my best friend.” The girl said, lighting another cigarette. “Before your little arsehole cousin came along.”
+“Oh yeah. She was my best friend.” The girl said, lighting another cigarette. “Before your little arsehole cousin came [along.”](https://www.reddit.com/r/nosleep/comments/1mqvyjt/something_took_my_cousins_dead_body_from_under/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
