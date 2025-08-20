@@ -24,7 +24,7 @@ She patted my shoulder like those little league coaches who believe in trophies 
 
 “You know—” Maggie fished around in her handbag. It was understated, but “HERMÈS | PARIS | MADE IN FRANCE” was stamped above the twist clasp “—that peddler on the beach today. He was selling amulets—”
 
-I raised an eyebrow. “Yeah?” 
+I raised an eyebrow. “Yeah?”
 
 “He gave me this one.” She pulled a bronze coin the size of a silver dollar out of her purse. It had a hole drilled through the top of the coin and a red ribbon tied right through it. She handed it to me.
 
@@ -32,7 +32,7 @@ I raised an eyebrow. “Yeah?”
 
 Maggie shrugged. “He said it was for good luck in love. Though I can count on one hand the totems that don’t make the same claim. Love’s the eternal promise we all want to rely on. Like a lucky rabbit’s foot on a gambler’s keychain.”
 
-I looked at the coin’s relief. It showed a bearded, naked old man holding a scythe. The old man was standing inside a wheel with symbols all around it. Above the relief, there was Greek text: “Χρόνος”. Except it was upside down. I didn’t know Greek, but I’d taken enough humanities courses to know the letters weren’t facing the way they were supposed to. 
+I looked at the coin’s relief. It showed a bearded, naked old man holding a scythe. The old man was standing inside a wheel with symbols all around it. Above the relief, there was Greek text: “Χρόνος”. Except it was upside down. I didn’t know Greek, but I’d taken enough humanities courses to know the letters weren’t facing the way they were supposed to.
 
 “Why’s it in Greek and not Spanish?”
 
@@ -56,7 +56,7 @@ I hugged her. “Don’t say things like that. Even if they’re true.”
 
 I didn’t think about it then, but it was sort of strange for her to say it like that.
 
-Lots of things make more sense looking back. 
+Lots of things make more sense looking back.
 
 •
 
@@ -94,7 +94,7 @@ She sneered at me. “Everybody knows that you’re a liar,” she said. “And 
 
 The nice little old church lady shrieked like a carnivore. “You’re the one who took him,” she said, spitting at my bloodied face. She took her purse and walloped me right on the nose, splashing some of my blood on her lips and cheeks. I could see blood on her teeth, too, coloring her mad snarl red. “You lying piece of shit!” She fumbled at me with her thumbs, trying to gouge my eyes out. “Killer-cocksucker-killer!” I put my hands up to defend myself and she tried to bite my fingers. “You’re the one who took my husband. You murdering cunt!”
 
-The flight attendants and someone else from her church group rushed towards us and immediately restrained her. 
+The flight attendants and someone else from her church group rushed towards us and immediately restrained her.
 
 I switched spots with another born-again who was in a single seat across the aisle.
 
@@ -148,7 +148,7 @@ Chip frowned. “Listen, man. It’s not a suggestion. You look like hammered sh
 
 •
 
-It was a busy corner. On one end there was the dark tide of mourners—pallbearers in black suits bought off the rack, the padre with his surplice and stole, women in sensible pumps or Mary Janes, their hems below the knee; the good modesty that attends to obsequies. Across the street there was a bum with a cardboard sign reading: “NEED MONEY FOR PENIS REDUCTION SURGERY”. Children on a field trip were tethered to each other on a safety rope with two-dozen rungs, like baby sloths clinging to their mama under the rainforest canopy. 
+It was a busy corner. On one end there was the dark tide of mourners—pallbearers in black suits bought off the rack, the padre with his surplice and stole, women in sensible pumps or Mary Janes, their hems below the knee; the good modesty that attends to obsequies. Across the street there was a bum with a cardboard sign reading: “NEED MONEY FOR PENIS REDUCTION SURGERY”. Children on a field trip were tethered to each other on a safety rope with two-dozen rungs, like baby sloths clinging to their mama under the rainforest canopy.
 
 “Change!” The vagrant saving up for his urologic surgical procedure called out with the self-satisfaction of a man who can still smirk even while living in a sleeping bag on a public sidewalk.
 
@@ -162,7 +162,7 @@ I searched for the screamer and who they were screaming at. The stream of mourne
 
 People started yelling at me from the church entrance: “Piece of shit” and “murderer”, “Judas” and “abomination”; and of course, the ubiquitous “cocksucker”. They called me every name in the book.
 
-I didn’t know what the first congregant’s intention was when I saw him step out into traffic. Two more mourners followed and blocked the uptown flow. Workaday humps hollered from their box trucks. A village of cabbies started riding their horns. 
+I didn’t know what the first congregant’s intention was when I saw him step out into traffic. Two more mourners followed and blocked the uptown flow. Workaday humps hollered from their box trucks. A village of cabbies started riding their horns.
 
 The mourners stopping traffic as they crossed the street all had more people drafting behind them. A human tide of grandparenthood gray and funereal black surged angry across the street, indifferent to gridlock and pedestrian traffic offenses.
 
@@ -172,13 +172,13 @@ I turned and I ran, clutching the amulet.
 
 I think of that moment and wonder why I didn’t drop it. Maybe I didn’t know what it was yet. Or maybe it kept me from knowing so what happened would be sure to happen.
 
-My heart was machine-gunning in my chest and my lungs were on fire. I reached my sixth city block in a row of straight sprinting. 
+My heart was machine-gunning in my chest and my lungs were on fire. I reached my sixth city block in a row of straight sprinting.
 
 A box truck pulled around a loading dock wall. It was right in my path, right in my blind spot. Its rear end clipped my side. I spun. I tried to stay upright, to keep running, but the momentum carried me into a cartwheel. I lifted off my feet. I bowling-balled across the pavement, scoring my face and hands with roadrash.
 
 The tumbling heap of my body rolled to a stop. I heard near-silence with a faint ringtone beneath it, like I’d been concussed. I reached up and touched my head. It was bleeding. I didn’t know where I was busted open, where the blood came from, exactly. I just knew I was bleeding.
 
-I turned just as the first mourner caught up with me. His mirror-shiny black shoe caught me in my teeth. There was a white-black flash as my brain rattled inside my skull. 
+I turned just as the first mourner caught up with me. His mirror-shiny black shoe caught me in my teeth. There was a white-black flash as my brain rattled inside my skull.
 
 “Sto—” I started but was stopped from finishing. Another man punched me in the lip hard enough to split it—I heard one of his fingers break against my teeth. His finger crunched as he howled in pain.
 
@@ -206,7 +206,7 @@ Who the hell are you? Where the hell am I? I thought but couldn’t say with the
 
 Tall, natural ice-blonde with Scandinavian skin like heavy cream and eyes the color of glacial ice. A mini dress hugged her body like something from Hervé Léger, nipples apexed from the center of breasts immune to gravity and screaming through her bustline. She had a tennis pro’s legs. I could see the outline of ribs along her sides and felt the stupid lust that only lonely men can feel.
 
-Her voice exuded an easy superiority, the self-possession of someone who’d been beautiful from the cradle and was likely to stay a stunner almost all the way to the grave. 
+Her voice exuded an easy superiority, the self-possession of someone who’d been beautiful from the cradle and was likely to stay a stunner almost all the way to the grave.
 
 “Still a little foggy?” she said. She held up the coin that Mother Maggie gave me before we said our goodbyes at the edge of the Yucatán, a lightning bolt glimmer of gold reflected over her eyes. “Don’t worry, I’m not repoing your amulet. I just…” She lost the thread before picking it back up. “Well, I’m nostalgic, I suppose. This twinkling little disk took me on quite the rollercoaster ride. I shined you on, as I guess you might know by now. And I suppose you’ll have figured out that this isn’t a drachma. And that I didn’t barter it away from a rag-and-bone man hawking wares on the beach.”
 
@@ -220,7 +220,7 @@ Maggie saw the realization I came to, saw it in my face, saw my reaction before 
 
 She laughed with the natural cruelty of a sultress. “Yes, darling. I suppose I lied when I said we’d likely never see one another again. But forget all that, I don’t have much time. Frankly, none of us have enough time. Which is why I borrowed some of yours.”
 
-I groaned but couldn’t make any real noise. I bucked against my restraints. 
+I groaned but couldn’t make any real noise. I bucked against my restraints.
 
 Maggie glided cooly toward the IV bag with its line running into my arm. She injected something into the pouch. I fell into a dark softness.
 
@@ -228,7 +228,7 @@ Maggie glided cooly toward the IV bag with its line running into my arm. She inj
 
 She smiled. I saw the predator of her true nature lurk behind her eyes. My eyes felt hot and wet; the wet heat stung the still-healing abrasions covering my face. I realized I was crying.
 
-An emergency code alert went off. Maggie turned over the back of her chair and looked through the blinds of my room’s glass window. A flock of physicians and nurses flew across the ward. 
+An emergency code alert went off. Maggie turned over the back of her chair and looked through the blinds of my room’s glass window. A flock of physicians and nurses flew across the ward.
 
 “There goes another one turning early off the turnpike. Must’ve been hard up for the toll,” she said, turning back to face me again. An Irish waterfall of blue-gray smoke flumed from her nose to her mouth. She sucked it down and blew back out a perfect ring. “Sam…my advice? Find someone else to take your place. Get yourself a patsy and foist the amulet off on them. You know what they say, ‘Shit rolls downhill.’”
 
@@ -242,4 +242,4 @@ She held the compact mirror in front of my face. If I’d been able to, I would 
 
 From the Wikipedia entry, Chronos:
 
-“He is usually portrayed as an old callous man with a thick grey beard, personifying the destructive and stifling aspects of time.”
+“He is usually portrayed as an old callous man with a thick grey beard, personifying the destructive and stifling aspects of [time](https://www.reddit.com/user/DickinsonPublishing/).”

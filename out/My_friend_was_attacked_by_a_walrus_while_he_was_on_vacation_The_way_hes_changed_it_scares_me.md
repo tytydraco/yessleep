@@ -294,4 +294,4 @@ I asked him if it was Lala’s name and address on the envelope.
 
 *And whether pigs have wings.'*
 
-\-Lewis Carroll, “The Walrus and the Carpenter”
+\-Lewis Carroll, “The Walrus and [the Carpenter](https://www.reddit.com/user/DickinsonPublishing/)”

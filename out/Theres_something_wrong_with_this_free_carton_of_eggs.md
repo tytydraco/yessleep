@@ -232,4 +232,4 @@ A month later, there was a carton of eggs waiting on my doorstep when I got home
 
 “-Your Friends at the KCGA”
 
-Ours is a friendly town with friendly people.
+Ours is a friendly town with friendly [people](https://www.reddit.com/user/DickinsonPublishing/).
