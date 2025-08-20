@@ -1,31 +1,66 @@
-  
+This is a true story so I had to change the names of everyone.
 
-The violent red light presses against my eyelids as I’m dragged in the day like a screaming stillbirth. I look around the quad and hitch my backpack up higher and stride across campus towards the library. I still needed to study for Professor Derleth’s final and the statue had kept me up into the wee hours of the morning. I hustled forward with my head down and thought about the light, the pain and the Maiden. 
+This didn’t happen to me. It happened to my mom and the man she was with at the time, Tom. I only know about it because of her and because she wrote down notes while it was happening. I also saw some of the craziness and the way he was acting. 
 
-I opened the door to the library as it exhaled a breath of stale lepidopteran kisses into my face, and I smiled at the memories of tomorrow night. I went in and sat down at my usual spot, dragging out several books and a bloody rosary. I opened up the first book and set to studying but before I could even properly get into it I feel twin pulses of yearning battering against the top of my head. I looked across the room to see a girl in a normal school uniform with straight black hair and wide pale eyes. She had eyes only for me and licked her luscious lips lustily. She coyly lowered her eyes and bit her lip as I turned away and turned my attention back to the book. 
+It began in May of 2014, on Mother’s Day.
 
-*The Haminoptrin* *butterfly (Rhopalocera Weisz-Fraserin) is the only known insect to commit suicide. After fertilizing the eggs, the male eats the effluence of the female to spare the hatching brood as this is poisonous and would invariably be their first meal upon hatching if he did not consume it, dying in agony.*
+Tom was out and about one day, probably at the bank or something when he walked into a jewelry store he had never been to before. He said it was an impulse. He felt drawn to the store for some reason. 
 
-The girl was in front of me, her small gentle hand pushing the book down while the other grasped the shirt at her collar in a twisting grip. She stood over me, a smoldering gaze burning into my jaded heart, and her teeth biting deep into her lower lip. She continued pulling her collar open and began to unbutton the first button as she leaned down over me.
+The workers greeted him one after another, but he waved them off. Finally he pointed to a woman behind the counter and said, “Her. I want her to help me.”
 
-Her voice roiled in my ear as though it was a squirming maggot seeking to devour my diseased and infected brain. “Here,” she breathed, “and now.” She flicked electric kisses down my neck and jolted me as her perfect white teeth pierced my jugular and a flood of crimson swept through the library.
+Her name was Karen.
 
-*The female leaves and never returns to care for the abandoned children and many of them are destroyed by the evil predators. But one survives and eats and eats until it is full…*
+She walked over to help him and didn’t act like it was strange that he asked for her specifically. She also didn’t think it was strange that he randomly asked and guessed right that she was Native American. 
 
-She threw her head back and laughed as she touched the arm of the man sitting next to her. Tall and dark, he was a study in contradictions to her petite porcelain physique. She gazed into his ears and the blood boiled up into my eyes as the rage at her betrayal boiled inside me. I shook my head and chalked it up to another wicked jezebel that the Maiden had warned me against. 
+That day he bought a bracelet for his daughter, Sarah, and a turquoise necklace for my mom, Linda. Karen told him turquoise was for protection.
 
-*of hate, dreams, and laughter. Then he spun himself up in the empty skin of his fallen brethren and slept…*
+Later, when he tried to pick up another turquoise necklace of my mom’s, he dropped it immediately. He said it burned his hand.
 
-I knew I had to pass this exam, but her laughter grated on me as she writhed atop the stupid jock.
+He went back to the store often. My mom was with him for some of those visits. One day, she saw him take Karen’s hand across the counter. He broke down crying and said he didn’t know why, only that he felt so much sorrow. Karen began to cry too. They held hands, both of them crying in the middle of the store. My mom stood there like, what is going on?
 
-*the sleep of the justified. He emerges changed through the Maiden and is now a true butterfly coming through into what was always his.*
+Another time, Tom said he needed to bring Karen a turkey feather. He didn’t know why. He just said he had to. He even went right to a specific store that he’s never seen or heard of before to purchase it. She wasn’t there that day, so he left it in an envelope with her name on it.
 
-Slamming the book shut I smiled. I had finally learned my lesson. I left the bag and the books there. I had no need for them. I followed them out of the library and watched them walk slowly across campus. I kept my head down watching from under my eyelids and saw them keep a safe distance between them **LEAVE ROOM FOR THE HOLY GHOST!** as though she hadn’t been thrashing like the whore of Brooklyn just moments before. He turned off before she did and didn’t even give her the respect of a proper goodbye despite her fervent gyrations. I chose the clear winner knowing the Maiden would lead me back to her when it was time.
+One day my mom was sitting across from him at a diner and when she looked at him and saw another man’s face over his. She said it looked like a ghostly overlay.
 
-The dusk loomed as I followed him to a dorm room and then inside. He turned to me and said, “Man, you have been acting really weird lately.” I struck him in the forehead with the onyx gloriousness of the Maiden and she bathed in vermillion fervor. Screaming, I brought her down again and again on the face of this pestilent purloiner of pilfered passions. I felt someone behind me, and she whispered a warning as they stood dumbfounded in the doorway.
+“I see another face over yours,” she told him. Like she was definitely scared at this point. 
 
-Yes, our journey wasn’t complete. I turned to the young man in the door and smiled with my blood splattered smile. “It’s ok. She was so very thirsty. A thirsty thirsty gurl,” I chuckled. She flew across the room and pierced his eye as I closed the gap and dragged him in the dorm room. 
+Tom brushed it off and kept eating like he knew it was there or something. 
 
-*The new male knows better than to mate as females are death.*
+A few days later, my mom ran into Karen outside the store. They were talking casually when Karen said, “Did I ever tell you about my son? His name was Jason. He died in a motorcycle crash.” Then she showed Linda a photo of him.
 
-Gripping the Maiden tightly I cross the manicured lawn towards my destiny as the sirens grow louder. Oh yes, she will finally be all mine.
+It was the exact face she had seen over Tom’s.
+
+After that, things started to get even more crazy.
+
+Tom’s personality shifted. He became overly touchy with people. He started talking constantly, almost manic. He couldn’t sleep. He ordered food but wouldn’t eat it. He became inappropriate and sometimes angry and aggressive. Everyone noticed he wasn’t himself.
+
+My mom wrote it all down thankfully because she knew weird stuff was happening. The first note says:
+“First meeting with Karen. Immediate, uncanny ‘spiritual’ connection.”
+
+The later entries say:
+“Personality changeover. Overly touchy. 
+Aggressive.”
+“Constant conversation. No sleep. No appetite. Ordering food but not eating it.”
+
+One night my mom tried praying the Our Father when he was getting overly aggressive towards her. Tom screamed at her to stop.
+
+Another night, she read from the Bible. He flipped out, yelling at her to put it away.
+
+She wrote about that too:
+“Bible incident. Night of aggression.”
+
+This went on for months.
+
+It did end eventually.
+
+One night my mom kept reading the Bible near him while he was asleep, and when he woke up he said he felt like a weight had lifted off him.
+
+That morning, a rash appeared on his left leg. Red, swollen bumps, almost like hives on steroids. By the next day it was gone.
+
+Then it moved to his right leg. Same thing. It lasted a day, disappeared, then showed up on his right arm. The next day it was gone, and then it appeared on his left arm.
+
+After that, it spread across his torso.
+
+And then it was gone.
+
+Just like that, it was over.
