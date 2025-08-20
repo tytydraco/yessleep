@@ -24,7 +24,7 @@ Lily then told me that she was sorry for getting me into this and that I was so 
 
 Me and Lily checked to see what it was and it was just Gabel taking out the trash. Then after Gabel went inside, out of the darkness, Raziel and two other guys walked up to the gas station, armed with guns. And seeing how Raziel presented himself, I realized that Lily was running away from a sinister cult.
 
-Hysterical, Gabel was contemplating to giving up Lily to Raziel. But I told him not to worry, I’ll handle this. So I went behind the counter and grabbed the gun that was hidden underneath. Gabel then said: Are You Crazy? This Has Nothing To Do With Us. I’m Giving Her Up Right Now”.
+Hysterical, Gabel was contemplating to giving up Lily to Raziel. But I told him not to worry, I’ll handle this. So I went behind the counter and grabbed the gun that was hidden underneath. Gabel then said: “Are You Crazy? This Has Nothing To Do With Us. I’m Giving Her Up Right Now”.
 
 And then once Gabel grabbed Lily by the arm and opened the front door…. *BANG* Gabel got shot in the head and fell dead on the floor. Because it was me who pulled the trigger, I knew Raziel and his company wasn’t going to let us live, I knew once we gave her up, we was going to be dead anyway. So I made a fatal decision and shot Gabel in the head.
 
