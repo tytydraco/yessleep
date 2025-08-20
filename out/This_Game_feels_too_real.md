@@ -46,9 +46,9 @@ Grace is a common name! Yeah, and plenty of people dye their hair Auburn!" Yup, 
 
 It was a cut scene, and "Grace" was acting like a generic bimbo clutz, but it irked me since she shared her appearance with my real Grace. Then suddenly, the game glitches again this time I could make out the quick flash across "Grace's" face, it was an uncanny wide smile, that was gone in the blink of an eye. 
 
-My viewer count went down a bit to 65 people watching. Who wouldn't leave? This shit was creeping me out. As I was about to say something, another character swooped in on screen, it had a human appearance but with too long of limbs and head. It scurried across the screen, with this wet and gross sound effect, and snatched "Grace". 
+My viewer count went down a bit to 65 people watching. Who wouldn't leave? This shit was creeping me out. As I was about to say something, another character swooped in on screen, it had a human appearance but with too long limbs and a head. It scurried across the screen, with this wet and gross sound effect, and snatched "Grace". 
 
-This kind of set a bit of panic in me, I jumped as my phone rang. It was Grace's mom. What did she want from me?
+This kind of set a bit of panic in me, and I jumped as my phone rang. It was Grace's mom. What did she want from me?
 
 I paused the game and answered, "Mm, Hello? Mrs. Himori?"
 
@@ -56,6 +56,23 @@ Mrs. Himori sounded panicked, her voice light and fast, "Is Grace at your house?
 
 "What? No?" I say, I hear a hushed, "Fuck..." on the other end of the line, 
 
-"Well, Grace went to her room and I called her for dinner for almost 2 hours.
+"Well, Grace went to her room, and when I checked on her she was gone!"
 
-Yeah yeah, the game is connected to real life through demonic powers and grace is killed. The end.
+Panic began to settle in. There was no way in hell that this was a coincidence anymore, this game was somehow linked to reality, 
+
+"Oh my god... did you call the police?" I asked my heart pounding as I stared at the screen, in a moment it glitches out again but I can't see it. The chat is going wild, wondering whether or not this was some kind of sick joke on my part or if this was all real.
+
+Mrs. Himori explained that technically Grace isn't a missing person, or whatever but I have already hung up. I need to save Grace.
+
+I began doing all the things needed to, but this included fighting people I knew in real life. My friends and family. I began to get numerous calls probably from worried parents but I ignored them. My sole focus was saving Grace. 
+
+And the scenes in this god forsaken game were all places in my town, the elementary school, the park, even Grace's neighborhood.
+
+I didn't even care when the viewer count was at zero, I was like possessed, playing late into the night until I finally met the human-like being that took Grace. I but then I saw in a pixelated mess of blood and guts. 
+
+The creature looked at me, not my character but at me. Text popped up, "I want to play more with you."
+Huh? Even in this context it was confusing, play more? This was the "boss fight" and then the game shut off. At this point, I slam shut the computer and begin to cry.
+
+The aftermath of yesterday was terrible, 23 people including Grace were found dead. Their bodies were mutilated but not beyond recognition, which honestly was worse. I was called in for questioning by an officer, since all the victims were friends or related to me. I was no use, the state of shock I was in put me in a psych ward, and that is where I'm typing this.
+
+But when I fell asleep yesterday, I had a dream that just kept repeating, "Share me." I know what it means, share this game with others to play, but I feel this is the second best thing to to.
