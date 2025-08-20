@@ -82,7 +82,7 @@ Yes, it was just my messed up head again. I turned to face the cement wall.
 
 The next couple of days passed as normal as they could in this place, especially as a loaner. I even avoided my cellmate more than usual. 
 
-I was in my cell alone a few evenings ago. I stared down in to the water that had formed in the sink. Stupid thing hardly drained. I looked at what could see of my reflection. Wondering if I looked as lifeless as I felt when I noticed something.
+Then I was in my cell alone a few evenings ago. I stared down in to the water that had formed in the sink. Stupid thing hardly drained. I looked at what could see of my reflection. Wondering if I looked as lifeless as I felt when I noticed something.
 
 There was a shape behind me. Like a figure looking over my shoulder. I leaned down slightly to get a better look when I heard it.
 
@@ -106,7 +106,7 @@ One of the night guards I was familiar with was on top of me. Eyes glaring down 
 
 I then watched in terror as his eyes widened, bulging out of his head. Face morphing into that of an old man I  recognized all too well. 
 
-Blood poured from his inhuman and large eyes, nose and mouth. His horrble face twisted into a look of absolute rage. 
+Blood poured from his inhuman and large eyes, nose and mouth. His horrible face twisted into a look of absolute rage. 
 
 "I! SEE! YOU!" He screamed so loud that my ears began to ring.
 
@@ -135,7 +135,7 @@ I fought through the stiffness and pain to grab it. To type this out. To tell th
 I finally understand why he keeps saying "I see you". He doesn't want to see me anymore. Not alive at least. 
 
 I won't make it to trial. I'll die in this prison. Maybe in this very bed tonight. 
-Turning myself in wasnt enough. Accountability wasn't enough. 
+Turning myself in wasn't enough. Accountability wasn't enough. 
 
 I can only hope to find peace in death. Maybe in another time in another life. I can only hope it includes Jake somehow. 
 
