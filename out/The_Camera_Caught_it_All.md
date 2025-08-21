@@ -1,0 +1,23 @@
+I didn't have many guy friends growing up. I was always the shy and timid type so it was hard enough talking to other girls, let alone the opposite sex. There was this one guy named Jack who I got along pretty well with. We both went to the library often and read alot of the same books. I guess that makes us both nerds but it's nice sharing a hobby with someone. He had this easy going vibe that made him really easy to talk to. He didn't care when I tripped over my words or gushed for minutes on end about my latest hyperfixation. Jack accepted me for who I was without hesitation. After a few months of hanging out, Jack started inviting me to his place. We didn't do anything raunchy like get wasted or have sex like most teens would probably get up to. We mostly just killed time by watching a couple of movies and playing games. 
+
+I was sitting on Jack's bed one day when he had to excuse himself to the bathroom after eating some old Chinese food that probably expired in the fridge. I didn't noticed that he accidentally left his phone behind until a loud ding caught my attention. Normally, I would never pry into someone's business, but I was genuinely curious to find out more about Jack. He rarely ever spoke about himself and always seemed more interested in what I was doing. He'd ask me stuff like what're my favorite stores to visit,  my favorite shampoo brands, what I eat every morning. Even back then I thought his questions were a bit odd and invasive, but I was so desperate for companionship that I just went along with it. I've seen Jack unlock his phone a few times before so getting the code right was no issue. I wasn't planning of looking at anything too personal or anything. Maybe just see what apps he had downloaded or check out his YouTube search history. Anything that would give me a better clue as to who he is as a person. My finger accidentally clicked on the photo gallery icon and took me to his large collection of photos. I was going to click off but what I saw made me stop dead in my tracks. His gallery was filled to the brim with images of me. They were taken from several different angles across multiple days of the week. 
+
+There was me picking up groceries. Going to the mall. Studying in the library. Sleeping on my living room couch.
+ 
+I checked the dates of each photo and he had a picture of me for almost every single day for the past few months. The gallery went back to before we even met. Just how long had he been stalking me? Extreme nausea had come over me like a wave. I couldn't stomach what I was seeing.
+
+A message from discord popped up on the screen and stole my attention. 
+
+Killjoy88: Now that's a cutie. I wonder how much she sells for.
+
+I clicked the message and was taken to a discord channel that Jack was apparently a part of. He had recently posted a pic of me getting changed in the school's locker room. I scrolled upwards and more of those vile comments plagued my vision. 
+
+Anon24xx: Why couldn't girls be this hot  back when I was in school? You should do an upskirt shot next time.
+
+LolitaLover: I wonder if she has a younger sister. I'm willing to pay triple for a pic like that.
+
+Vouyer65:  Hey dude, you said you're gonna invite her to your place soon, right? You should set up a camera in your bedroom and see how far she's willing to go with you. Shy girls are always so easy.
+
+I was going to be sick. It took all of my willpower not to puke my guts out after reading all of that filth. How many people had Jack revealed me to and what else did they know about me? The thought of a bunch of perverts online drooling over my body sent chills down my spine. When I heard the toilet flush followed by the sound of a running faucet, my heart stopped. Jack would return to his room any second. Confronting him head on was the last thing I wanted to do, but I also didn't want him to get away with this. I grabbed his phone and ran out of the house to head to the nearest police station on my bike.
+
+It turns out that I wasn't the only victim. Jack had been stalking many other girls in our town and even took indecent photos of them to sell online. Because we were all teenagers, he was found guilty of distributing illegal material involving minors. He dropped out of high-school shortly after and Noone's heard of him since then. News sites says he gonna be rotting in jail for at least 6 years, but it doesn't feel anywhere near long enough. I'd like to say that the incident is behind me now, but I still can't escape this feeling of being watched. Everywhere I go it feels like theres someone eyeing me like a piece of meat. I wonder how long it's going to be until I can leave my house again. It's the only place where I feel safe.

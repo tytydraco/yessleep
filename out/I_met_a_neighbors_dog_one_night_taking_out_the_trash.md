@@ -20,7 +20,7 @@ I'm slowly backing away, the crickets chirping like a harmony to this entire sit
 
 The next morning, we got up, had breakfast, then walked over to our neighbor's house to describe to him the events of last night. I tell him the description of the dog and saw a tag named "Buck" on it. He stands there, bites his lower lip, then asks if we're SURE that's what we saw. I tell him I was certain. Black collar, square tag with the word "Buck" on it. 
 
-He takes us to his back yard near his metal barn, to a small wooden cross with a black dog collar hanging on it......a square tag with the word "Buck" on it. "Buck was my farm dog and best friend for 12 years.........he died last year. My wife and I never forgot him. Son, I'm not sure what you saw....but that can't have been my dog." 
+He takes us to his back yard near his metal barn, to a small wooden cross with a black dog collar hanging on it......a square tag with the word "Buck" on it. "Buck was my farm dog and best friend for 12 years.........he died last year. My wife and I will never forget him. Son, I'm not sure what you saw....but that can't have been my dog." 
 
 My heart both sank and started beating rapidly at the same time. WHAT DID I SEE LAST NIGHT?!!
 
