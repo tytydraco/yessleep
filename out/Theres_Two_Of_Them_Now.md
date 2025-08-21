@@ -1,0 +1,45 @@
+I'm writing this down both for peace of mind, as well as to see if anyone can help me or is out there having a similar experience to me. Obvious disclaimer for how outlandish this story will sound, and I expect the ridicule, but If nothing else hopefully putting this into words other than keeping it to myself will bring me some closure. 
+
+I work the night shift at a moderately sized city in the Midwest, Springfield Missouri. The name of where I work isn't important, but for the location you can imagine a town that is lively during the day and quite dead at night, especially during the weekdays. It was during one of these weekdays that I went through my usual routine of clocking off around midnight, walking through the empty parking lot to my isolated car, and driving through the empty streets on my 15-20 minute drive home. 
+
+I was stopped and watching a red light at one of my intersections, staring at it and wondering as usual why it was taking so long to turn despite me being the only person on the road, when my eyes eventually wandered down to my driver side mirror and the movement within it. I immediately recognized the shape of a human, about 20-30 feet back, initially not setting off alarm bells as I figured it was one of the many homeless people we have in the area, but the movement indicated they were heading towards my vehicle. I'm already a paranoid person as is, so stories of late night car-jackings and kidnappings began racing through my head as I made sure the doors were locked and kept the peripheral of the light in my vision, waiting and hoping it would turn green. 
+
+It became apparent soon that whatever was walking towards my vehicle was humanoid in shape, but not human. 
+
+As it steadily came closer I could make out what I would describe now as a 'grey man', without clothes and featureless except for a pair or large, almost cartoonish eyes about where a person's forehead would be, placed on an oblong almost pointed head. I had heard of people going into shock before this and imagined what it felt like, and in the moment I still couldn't be sure if that's truly what was happening or if I was having a mental episode and this was the start of my breakdown. 
+
+Fight or flight kicked in soon after this passing thought, and my eyes shot back up at the light, still red but with all sense of warning completely lost on me. I slammed my foot on the pedal and made an effort to shoot through the intersection, quickly glancing either side of my vehicle despite knowing I was still the only car here. As I passed directly through the intersection and moved onto the street ahead of me, I realized that the figure in my mirror was now running towards my car. I do not know how fast I was going at this point as my eyes continued to dart between this thing and the road ahead of me, but assuming now that I was going maybe 50 mph on this two way street, it continued to keep up with me at pace, never faltering behind or catching up. 
+
+My first instinct that had been in place this entire time was to continue to head home, but if this thing was keeping up with me I realized I could not lead it back to where I live. I was now passing through neighborhoods and small side roads that would take me to god knows where, but once I hit the next 'main' street I would quickly take a right and head downtown, I know the area and if anyone else would be out tonight that's where they would be; I need the comfort of strangers or the sight of anyone to help me get away from this or make this thing go away, that's what I told myself. 
+
+Once I hit one of the main streets I made possibly the quickest right turn of my life and hoped the car wouldn't turn over with the sudden shift of weight, ignoring whether or not I would have to deal with any oncoming traffic as the seconds I would have without this thing in my rear-view was worth the risk. As I feared though, it continued to follow soon after, rounding the corner same as I, still fixated on reaching me. What was this thing even going to do? Does it have the strength to break into my car? It clearly isn't human. Maybe this thing is animalistic, and it's like a curious dog chasing a car, once it reaches me will that satiate its curiosity? More passing thoughts I had as I grew closer to the downtown square, buildings and shopping centers growing taller and older, more dilapidated, more places to hide, tighter turns and narrow streets for me to get stopped in, slowed down; was this even a good idea? 
+
+Someone ahead, thank god, I saw a person ahead. 
+
+Homeless stray, a kid barhopping, sightseeing, I could care less, I wanted to be near something other than that. I continued to speed towards them, eventually screeching to a halt as my passenger side window met their gaze. An older man stood on the sidewalk, tattered green army style jacket, black beanie, casually smoking a cigarette as he stood still eyeing my vehicle. My mind was racing with a million thoughts; what do I even say to this guy, is he going to think I'm crazy? Is he crazy?
+
+It's gone.
+
+The figure was no longer in my mirror. My eyes lingered on an empty street that arched over a hill, illuminated with dim lights and dotted with trees. I watched for a while, giving little care to the stranger directly outside my car, waiting to see anything.
+
+No movement. 
+
+I returned my gaze to the man still stood on the sidewalk, obviously waiting for something to come of this car screeching to a halt beside him, he didn't seem to care. I didn't seem to think he would care or believe me either, and accelerated once again towards the center of town. More passing thoughts; he isn't safe, it's still out there, it was right behind you, you're a good person, be a good person. Why is it so dark?
+
+I slammed on the breaks again, wanting to tell myself now that it was the good Samaritan in me wanting to help that man, but it was fear that halted me, lampposts surrounding me now waning, gaining and losing light as if they were struggling to breathe. I looked again at the mirror, trying to locate the man that was now standing somewhere in the darkness behind me, the lights that had enveloped the hill behind me were gone and I knew at this point it was hopeless for him, whatever had been following me had now caught an innocent victim along its path, and yet I was selfishly relieved from the comfort of my vehicle knowing that I had escaped that fate. My relief was soon shattered by a low, bass filled 'gurgle' coming from the direction of the darkness. 
+
+I almost considered rolling down my window slightly to make out the sound more clearly, but my adrenaline took hold and I sped off from whatever was making that sickening noise. Whatever had become of that poor man, whatever it was doing, in my mind it occupied that thing long enough for me to use the opportunity and get home, get away from this nightmare. Leaving the downtown area didn't take long in my frantic state, and I eventually was able to convince myself through my paranoia and double take of every shadow that lined the street, that it was safe enough to make my may home. 
+
+I carefully inspected the surroundings of my apartment from my vehicle before exiting, and quickly fled from the car and ran up the stairwell to my flat, expecting to hear the sound of that thing behind me chasing me or see it appear from around a corner, though I made it inside with no issues. I sat on my bed for what must have been hours replaying the events of the night through my head and questioning if I really was sane, but at some point the adrenaline dump left my system and I ended up passing out for the night. 
+
+Which brings me to where I am now. 
+
+I wish I could say that was the end of things, but it is currently about 4:00 PM and the sun has yet to rise. There are no clouds in the sky, no birds chirping or dogs barking, no neighbors arguing next door or kids running up and down the stairwell, nobody outside commuting to and from work or heading out for a family dinner. I've been watching since I woke up at around 9:00 AM, already confused as to why there was nothing but pitch black coming from the curtains behind my window. I have tried calling family members, friends, messaging friends online, but I've heard nothing in response. 
+
+Am I still asleep? Am I sane? Is this some kind of punishment for abandoning that man? Continuous passing thoughts that drown out the silence. 
+
+The internet appears to still be working, which is how I'm posting this for anyone who happens to find and read it now, if anyone is out there, life online seems to have stopped like it has here, no messages or social media posts or forums or news articles, just static. Frozen. I tried eventually to lightly knock on some of the neighbor's doors to see if they're home, and with no luck, but now I don't dare go back outside. 
+
+I can see them through my window as I peak through the blinds now, below in the parking lot. Two of them, standing outside of my car, inspecting it like a piece of alien machinery. They know I'm nearby, they know I'm alive. 
+
+I don't know how long I can hide.
