@@ -158,4 +158,4 @@ I have, however, noticed something. My Auntie Tanya has an old leather bound boo
 
 Luv ya and wish me luck in my new post graduate plan of living as [an off grid fugitive](https://www.reddit.com/r/nosleep/comments/1mx7i0q/my_family_made_a_deal_with_the_blue_blawere_hes/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button), XXX
 
-\- Whitney Merton
+\- Whitney
