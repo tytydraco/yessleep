@@ -135,3 +135,11 @@ On a different, happier day at the falls, as the four of us skipped stones and p
 "It's when something's bloodless," Leo had answered, chucking a huge stone into the water. It sank instantly, barely leaving a splash in its wake. "Like a war with no bloodshed."
 
 Gare had laughed at this. "Sounds like every day to me," he'd said. I've always wondered what he meant by that.
+
+\_\_
+
+An update: I woke up this morning, reached for my alarm, and felt that something had been lost. There is no trace of damage at all, just a clean, smoothed over absence beginning at my wrist.
+
+My left hand is gone. 
+
+It seems that when I touched the water all those years ago, it took a part of me with it. Why now, after all this time?
