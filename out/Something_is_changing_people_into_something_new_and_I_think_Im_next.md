@@ -4,7 +4,9 @@ I won’t be me for much longer.
 
 The last person I heard say these words became something more than a man, but much less than human. I don’t want to end up like him, and I want people to know what I found before I’m gone.
 
-It’s watching me as I type this, so I know my time is short.
+It watching me as I type this.  The thick whiskers on it's eyeless face don't twitch like they should. It is sitting perfectly still near my keyboard. By the horrible smell, I can tell it's been dead for sometime.  A camera that has been shoved into it's tiny skull blinks with a tiny hint of red light.
+
+ It knows that I know. Better if I play along for now. I don't know how long it will allow me to continue.
 
 I’ve never expected or wanted much from my life. Just a job that didn’t take more than it gave, someone to hold at night, and a good cold beer before bed.
 
@@ -12,9 +14,13 @@ But I saw something that stripped my soul down to the bone and smothered any joy
 
 The changed ones.
 
-They are much quieter now, and they look more like people than they used to. It’s only getting better at making them, and soon we won’t be able to tell them from us. For a while, I thought I got away and earned the right to enjoy the scraps of a normal life left after everything that happened. 
+They are much quieter now, and they look more like people than they used to. It’s only getting better at making them, and soon we won’t be able to tell them from us.
 
-But then I saw one of them the other day, and I remembered when I first saw one of the changed ones. His name was Luke, and I was alone with him late into that hot summer night while he spoke of when he was still a man. No amount of alcohol can silence his cries that still ring in my mind. The sounds of when he finally understood that help was never coming. When the dead man told me his story.
+For a while, I thought I got away and earned the right to enjoy the scraps of a normal life left after everything that happened. But then I saw one of them the other day, and I remembered when I first saw one of the changed ones.
+
+His name was Luke, and I was alone with him late into that hot summer night while he spoke of when he was still a man. No amount of alcohol can silence his cries from the moment he realized help was never coming.
+
+The night a dead man told me his story.
 
 I’m writing this because I saw one of the changed ones a few days ago when I stopped at a convenience store to grab something quick for a late dinner. 
 
@@ -29,8 +35,6 @@ As I pulled a pizza out of a freezer, an old lady shuffled up beside me and star
 I wanted to forget what I’d seen. The creations of an inhuman mind gone insane. 
 
 I dropped the pizza, shattering it on the floor as I ran. She still had vocal cords, unlike most of them. She screamed for me to run as she chased me. If I hadn’t parked my car on the curb with the driver's door facing the store, I probably wouldn’t be writing this. 
-
-
 
 Anyway, best to start where it started.
 
@@ -86,7 +90,7 @@ I keyed up my radio.
 
 “I have a possible 131 at the Crawford farm. Requesting EMS and backup. I am heading there, expected ETA ten minutes.”
 
-This was standard operating procedure, but I knew that Claysville’s only other officer was at the other end of the county. Probably facedown, drunk as a skunk at Tater’s bar. I was speaking to no one, and I would be alone until the ambulance arrived. With how far out the Maysville hospital was, that would likely be at least an hour.
+This was standard operating procedure, but I knew that Claysville’s only other officer was at the other end of the county. Probably facedown, drunk as a skunk at Tater’s bar. I was speaking to no one, and I would be alone until the ambulance arrived. With how far out the nearest hospital was, it would likely be at least an hour.
 
 I slid on my cap and ran to my cruiser.
 
@@ -186,19 +190,17 @@ But I was curious.
 
 So, I pressed play.
 
-His name was Luke, and he first saw one of these things when he was a boy. They were much cruder then. 
-
-He knew what was behind all of this and why it was doing it. 
-
- 
-
-Somehow I’m still here.
+His name was Luke, and he first saw one of these things when he was a boy.  He knew what was behind all of this and why it was doing it. 
 
 I’ve been writing this for some time, and it has been reading everything I type with an alien indifference.  I think I might be safe for a little longer.
 
 Maybe not.
 
-But I’m going to take a walk.
+But I’m going to take a walk. Sorry to leave you like this, but I need a break. But there's so much more to tell.
+
+My phone is lighting up. Luke is calling me on Messenger, but he's now dead two times over.
+
+I know it isn't him. At least, I hope to god it isn't.
 
 Got to clear my head, and a drink might be just what I need. 
 
