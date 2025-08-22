@@ -359,3 +359,5 @@ Reginald coughed, catching his breath as he shook his head.
 Cassara kicked Reginald in the mouth, sending him rolling towards me, her eyes slightly glassy and yellowish as she lifted her fists up, both igniting in flames.
 
 “Oh and, just a heads up daddios!” Brittney laughed as Cassara started moving towards Reginald and I, “She’s not pulling her punches no [more](https://www.reddit.com/r/The_Guardian_Temple/).”
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1mxkgx5/im_a_missionary_and_theres_too_many_demons_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

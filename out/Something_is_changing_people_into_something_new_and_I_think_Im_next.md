@@ -6,7 +6,7 @@ The last person I heard say these words became something more than a man, but mu
 
 It watching me as I type this.  The thick whiskers on it's eyeless face don't twitch like they should. It is sitting perfectly still near my keyboard. By the horrible smell, I can tell it's been dead for sometime.  A camera that has been shoved into it's tiny skull blinks with a tiny hint of red light.
 
- It knows that I know. Better if I play along for now. I don't know how long it will allow me to continue.
+It knows that I know. Better if I play along for now. I don't know how long it will allow me to continue.
 
 I’ve never expected or wanted much from my life. Just a job that didn’t take more than it gave, someone to hold at night, and a good cold beer before bed.
 
@@ -120,7 +120,7 @@ It was not a man. It was not a machine. It was something else.
 
 His legs were caked with blood and shit, leading down to a pair of untied sneakers. It was when I noticed the maggots wiggling out of the sides of the underwear that I blew chunks. 
 
-The mix of smell and sight was well beyond my limit. It was worse than when Mrs. Peffer died in her trailer during one of the hottest weeks last year. 
+The mix of smell and sight was well beyond my limit. It was worse than when Mrs. Peffer died in her trailer during one of the hottest weeks of the previous year. 
 
 “Richard, I need you at the Crawford farm immediately.” I panted into my shoulder mic.
 
@@ -146,7 +146,7 @@ The man lifted an arm and slammed it down hard onto the dirt as he pulled himsel
 
 The jaw clicked as it moved, and a hissing sound came out like a death rattle that sprayed maggots onto its hands. The dark eye holes that led into brain matter looked up at me again.
 
-“Screw this!” Jake stammered as he turned and ran into the woods.
+“Sc-screw this!” Jake stammered as he turned and ran into the woods.
 
 A buzz came from the phone speaker.
 
@@ -158,7 +158,7 @@ Looking back now, I know he wasn’t hissing.
 
  He was trying to scream without vocal cords.
 
-“Please believe…” It said before yanking the cables from the back of its head.
+“Please believe…” It said before the cables were yanked from the back of his head.
 
 He fell motionless to the ground, and the light on the webcam and phone remained on. 
 
@@ -172,15 +172,15 @@ The hood of my car pointed open to the moon like a distracting finger. Most of t
 
 There was no radio. No houses for miles. I was alone until the ambulance got here. It could be hours.
 
-I waited near the body for either Jake or the ambulance to show up. The skin of my hand was beginning to feel raw as I held the gun tightly in my sweaty hand. 
+I waited near the body for either Jake to come back or the ambulance to show up. The skin of my hand was beginning to feel raw as I held the gun tightly in my sweaty hand. 
 
-I found myself jumping at every twig snap and rustle of leaves. This night was more than my mind could handle. 
+I found myself jumping at every twig snap and rustle of leaves. This night was more than I thought my mind could handle. 
 
 Biomechanical bodies, my car being stripped down, and now a growing dread that perhaps no one was coming. 
 
 Or worse, that something was.
 
-I jolted and fired a shot as a ding came from the body. The phone was lit up and displayed a smiling man hugging a massive German Shepherd on the lock screen.
+I jolted and fired a shot as another ding came from the body. The phone was lit up and displayed a smiling man hugging a massive German Shepherd on the lock screen. It was hard to tell with the amount he had decayed, but I was pretty sure this was the dead guy.
 
 The numbers in the dirt. It might be an unlock code. He wanted me to see something on his phone. 
 
@@ -196,7 +196,7 @@ I’ve been writing this for some time, and it has been reading everything I typ
 
 Maybe not.
 
-But I’m going to take a walk. Sorry to leave you like this, but I need a break. But there's so much more to tell.
+But I’m going to take a walk. Sorry to leave you like this, but I need a break. But there's so much more to tell and this has been a bit much to dig up.
 
 My phone is lighting up. Luke is calling me on Messenger, but he's now dead two times over.
 
@@ -206,4 +206,14 @@ Got to clear my head, and a drink might be just what I need. 
 
 I’ll be back later to tell you more about what dead Luke said. 
 
- 
+It just sent a voice message, one I heard it say before. It's low inhuman voice rises with each word, like notes on a demonic scale.
+
+YOU
+
+CAN
+
+BE
+
+NEW
+
+TOO
