@@ -138,8 +138,8 @@ Gare had laughed at this. "Sounds like every day to me," he'd said. I've always 
 
 \_\_
 
-An update: I woke up this morning, reached for my alarm, and felt that something had been lost. There is no trace of damage at all, just a clean, smoothed over absence beginning at my wrist.
+An update: I woke up this morning, reached for my alarm, and felt that something had been lost. There was no trace of damage at all, just a clean, smoothed over absence beginning at my wrist.
 
-My left hand is gone. 
+My left hand is gone.
 
 It seems that when I touched the water all those years ago, it took a part of me with it. Why now, after all this time?
