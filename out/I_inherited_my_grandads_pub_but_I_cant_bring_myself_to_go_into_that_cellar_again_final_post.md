@@ -24,11 +24,11 @@ Then he sat down in one of the booths and looked over at me as if he was pleased
 
 “Pint?” I asked. “On the house.”
 
-“Yes please.” He smiled. I didn't like his smile. Too toothy. 
+“Yes please.” He smiled. I didn't like his smile. Too toothy.
 
 While I watched him continue to visually take in the pub, I poured him a beer of his choice. Fosters, which instantly made me distrust the man. I placed it down on the table in front of him on a beer matt then took a seat across from him.
 
-“I suspect you know why I’m here.” He said, taking the glass in his hand. 
+“I suspect you know why I’m here.” He said, taking the glass in his hand.
 
 “It’s about that boy isn’t it?” I avoided his gaze, rubbing my thumb over a stain on the table.
 
@@ -66,11 +66,11 @@ Continuing to smile he got up from his seat. “Thank you for the beer Miss Mert
 
 “Bu-”I began. He put his hand out to stop me mid sentence.
 
-“I really must be off.” He shook my hand while smiling in a way that unnerved me, then promptly left, shutting my door behind him. I stood in the middle of the pub on the red patterned carpet utterly dumbfounded. 
+“I really must be off.” He shook my hand while smiling in a way that unnerved me, then promptly left, shutting my door behind him. I stood in the middle of the pub on the red patterned carpet utterly dumbfounded.
 
-Then my phone began to ring, the sudden sound making me jump. I took my it out of my pocket to realise it was my auntie Tanya. She never calls me. 
+Then my phone began to ring, the sudden sound making me jump. I took my it out of my pocket to realise it was my auntie Tanya. She never calls me.
 
-“Hello?” I said cheerily into the phone, pleased to hear from her. 
+“Hello?” I said cheerily into the phone, pleased to hear from her.
 
 “Sh.” She hissed. “You- you need to leave.”
 
@@ -78,9 +78,9 @@ Then my phone began to ring, the sudden sound making me jump. I took my it out o
 
 “My mum and Kevin, they’re-” She began to cry. Suddenly there was a gasp and the phone call ended.
 
-As if on queue I heard the pub door open and this time Mike appeared in the doorway. He looked dishevelled and panicked. 
+As if on queue I heard the pub door open and this time Mike appeared in the doorway. He looked dishevelled and panicked.
 
-“Come on. We’re leaving.” He instructed. 
+“Come on. We’re leaving.” He instructed.
 
 “Okay.” I nodded, grabbing my hand bag from behind the bar and following him out to the car park. I didn’t question him because well, after all we’d been through if he says we need to leave I’m going to trust him. He looked around the car park as if he was looking for someone. Then hurriedly, he climbed into the car and I climbed in next to him.
 
@@ -152,10 +152,10 @@ He just shook his head and said “Jesus Christ.” While he laughed at our situ
 
 Also I’ve realised something, I’ve titled these posts with “I can’t bring myself to go into that cellar again.” But I spent five posts wandering around down there. There’s a message there somewhere. Or maybe I’m just a fucking idiot. Clearly it’s hereditary.
 
-I think I’ve said all I needed to about this topic. Obviously I’m giving up the pub and I never intend to go back. I know I leave you with a lot of unanswered questions but I obviously need to keep a low profile for a while. Also I don’t see myself having any proper answers that I want to share for a good while. So for now goodbye lads, thanks for all your help, starting to think I should’ve just hired a druid or vudu queen like you guys recommended I should.
+I think I’ve said all I needed to about this topic. Obviously I’m giving up the pub and I never intend to go back. I know I leave you with a lot of unanswered questions but I obviously need to keep a low profile for a while. Also I don’t see myself having any proper answers that I want to share for a good while. So for now goodbye lads, thanks for all your help, starting to think I should’ve just hired a druid or Vudu queen like you guys recommended I should.
 
-I have, however, noticed something. My Auntie Tanya has an old leather bound book in her lap that she’s holding to like it’s a saucy chinese takeaway she doesn’t want to spill in the car. And on the cover of this book is a beautifully ornate letter M.
+I have, however, noticed something. My Auntie Tanya has an old leather bound book in her lap that she’s holding to like it’s a saucy Chinese takeaway she doesn’t want to spill in the car. And on the cover of this book is a beautifully ornate letter M.
 
-Luv ya and wish me luck in my new post graduate plan of living as an off grid fugitive, XXX
+Luv ya and wish me luck in my new post graduate plan of living as [an off grid fugitive](https://www.reddit.com/r/nosleep/comments/1mx7i0q/my_family_made_a_deal_with_the_blue_blawere_hes/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button), XXX
 
 \- Whitney Merton
