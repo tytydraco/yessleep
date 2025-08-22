@@ -60,4 +60,5 @@ I had every intention of leaving that night, but I was exhausted. Sometimes fear
 
 That morning, I packed and got ready to leave. I had three days left on my reservation but needless to say I wasn’t really in the mood to be by the lake. I did my last check of the cabin to make sure I hadn’t forgotten anything. It’s a ridiculous routine. I check under the bed, in the drawers, and even in the shower, in case I forgot some soap or shampoo. There was an empty carton of orange juice in the refrigerator. It wasn’t mine but I didn’t want the next tenant to think it was me, as if they would go through the trouble to find out which asshole had left trash in the refrigerator. As I walked out to the garbage can near the road I noticed the cabin across the street. The little wooden sign staked out in front of the porch had etched in it the number 3 1 4.  
 
-That was last August. Now a new August is fast approaching and I’ve made reservations.
+That was last August. Now a new August is fast approaching and I’ve made reservations. This time I've invited my stepmother. 
+
