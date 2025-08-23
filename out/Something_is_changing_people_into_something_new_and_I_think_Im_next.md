@@ -12,11 +12,11 @@ They are much quieter now, and they look more like people than they used to. It�
 
 A dead man warned me about what was coming. His name was Luke, and I was alone with him late into that hot summer night while he spoke of when he was still a man.
 
-I’m writing this because I saw another one of the changed ones a few days ago when I stopped at a convenience store to grab something quick for a late dinner. 
+I’m writing this because I saw another one of the changed ones a few days ago, when I stopped at a convenience store to grab something quick for a late dinner. 
 
 As I pulled a pizza out of a freezer, an old lady shuffled up beside me and stared blankly into the glass door. The pizza I held shook as the familiar sickly smell of rotting flesh and oily components mixed with the cold freezer air that sent whips of cold fog around us. 
 
-A soft whine of small servos whirred as she turned her head to me. Her eyes were bloodshot, and tears streaked down her face as she tried to smile. Her lips pulled back over her teeth, exposing black gums and congealed blood.
+A series of small motors whirred as she turned her head to me. Her eyes were bloodshot, and tears streaked down her face as she tried to smile. Her lips pulled back over her teeth, exposing black gums and congealed blood.
 
 “Please, kill me,” she whispered through clenched teeth.
 
