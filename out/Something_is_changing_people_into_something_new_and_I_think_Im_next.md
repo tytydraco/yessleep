@@ -1,9 +1,3 @@
- 
-
-I won’t be me for much longer.
-
-The last person I heard say these words became something more than a man, but much less than human. I don’t want to end up like him, and I want people to know what I found before I’m gone.
-
 It's watching me as I type this.  The thick whiskers on its eyeless face don't twitch like they should. It is sitting perfectly still near my keyboard. By the horrible smell, I can tell it's been dead for some time.  A camera that has been shoved into its tiny skull blinks with a tiny hint of red light.
 
 It knows that I know. Better if I play along for now. I don't know how long it will allow me to continue.
@@ -16,15 +10,11 @@ The changed ones.
 
 They are much quieter now, and they look more like people than they used to. It’s only getting better at making them, and soon we won’t be able to tell them from us.
 
-For a while, I thought I got away and earned the right to enjoy the scraps of a normal life left after everything that happened. But then I saw one of them the other day, and I remembered when I first saw one of the changed ones.
+A dead man warned me about what was coming. His name was Luke, and I was alone with him late into that hot summer night while he spoke of when he was still a man.
 
-His name was Luke, and I was alone with him late into that hot summer night while he spoke of when he was still a man. No amount of alcohol can silence his cries from the moment he realized help was never coming.
+I’m writing this because I saw another one of the changed ones a few days ago when I stopped at a convenience store to grab something quick for a late dinner. 
 
-The night a dead man told me his story.
-
-I’m writing this because I saw one of the changed ones a few days ago when I stopped at a convenience store to grab something quick for a late dinner. 
-
-As I pulled a pizza out of a freezer, an old lady shuffled up beside me and stared blankly into the glass door. Her hands swung loosely at her sides as she stood otherwise frozen in place. The pizza I held shook as the familiar sickly smell of rotting flesh and oily components mixed with the cold freezer air that sent whips of cold fog around us. 
+As I pulled a pizza out of a freezer, an old lady shuffled up beside me and stared blankly into the glass door. The pizza I held shook as the familiar sickly smell of rotting flesh and oily components mixed with the cold freezer air that sent whips of cold fog around us. 
 
  A soft whine of small servos whirred as she turned her head to me. Her eyes were bloodshot, and tears streaked down her face as she tried to smile. Her lips pulled back over her teeth, exposing black gums and congealed blood.
 
@@ -34,9 +24,11 @@ As I pulled a pizza out of a freezer, an old lady shuffled up beside me and star
 
 I wanted to forget what I’d seen. The creations of an inhuman mind gone insane. 
 
-I dropped the pizza, shattering it on the floor as I ran. She still had vocal cords, unlike most of them. She screamed for me to run as she chased me. If I hadn’t parked my car on the curb with the driver's door facing the store, I probably wouldn’t be writing this. 
+I dropped the pizza, shattering it on the floor as I ran. She still had vocal cords, unlike most of them. She screamed for me to run as she chased me. 
 
-Anyway, best to start where it started.
+If I hadn’t parked my car on the curb with the driver's door facing the store, I probably wouldn’t be writing this.
+
+Anyway, best to start where it started. 
 
 Everything changed last year when I was on night duty for the Claysville police. It was supposed to be a simple job, and it was for a while. Claysville is a very small Kentucky river town, and it has a population of just three hundred and four. 
 
@@ -52,59 +44,11 @@ He always said this on a full moon. It had gotten old, but still usually held tr
 
 My desk phone lit up and shrieked as a call came in. I reached for the handset and sighed as I readied myself for my first call of the night. Domestic disturbance, car accident, or one of Gary’s veggie patch crazies. It was past two a.m., on a Saturday, and a hot September night at that. People got wild on nights like this.
 
-“Claysville Police, this is Officer Murphy.” 
+It was a local farmer, and his voice cracked and broke as he told me that he shot something he thought was a man but wasn’t sure. 
 
-“I uh, this is Jake Towner and, uh, I need help here, officer,” The voice gagged and retched on the phone before continuing. “I think he’s dead. But he’s not a man. I don’t know what this is.”
+After the call, I slid on my cap and ran to my cruiser. I should have tried the state police before going there. Everything could have been so different.
 
-I tensed. It was fifty-fifty. He was either drunk or crazy, or… this was a legitimate dead body discovery. 
-
-“Let’s take it back a bit, sir, tell me what happened.”
-
-“I woke up just a few minutes ago to hear my chickens screaming outside, so I thought it was a possum or something. I grabbed my 12-gauge and boots to check it out. There was a man at the coop trying to get in.”
-
-Jake’s breath came across the phone in a ragged panting.
-
-“I saw his face and… his eyes…. I shot him. I think he’s dead.” His voice whimpered like a fifty-year-old child. He sounded afraid. 
-
-This had evolved into a shooting. Maybe even a homicide.
-
-“Where are you?” I asked.
-
-“Old Crawford Farm. He’s like a man, but he has machinery inside his body.” 
-
-This call had been a hard read up until this point. Just another balls-to-the-wall lunatic, I thought.  But I had to check it out. 
-
-It would be safer to assume this guy was dangerous, rather than not.
-
-“Where’s the gun now?” 
-
-“In my hand.” 
-
-“I need you to place that gun on the ground, with the barrel facing away from you. Step away from it. You’ll need to keep your hands above your head when we arrive and make no sudden movements. Do you understand?”
-
-“Yes, sir.”
-
-“We’re on our way. Wait there.”
-
-I keyed up my radio.
-
-“I have a possible 131 at the Crawford farm. Requesting EMS and backup. I am heading there, expected ETA ten minutes.”
-
-This was standard operating procedure, but I knew that Claysville’s only other officer was at the other end of the county. Probably facedown, drunk as a skunk at Tater’s bar. I was speaking to no one, and I would be alone until the ambulance arrived. With how far out the nearest hospital was, it would likely be at least an hour.
-
-I slid on my cap and ran to my cruiser.
-
-Long-reaching branches flew past the open windows of my car as I raced down a dark, winding back road. I glanced up at the full moon and shook my head while a bitter laugh escaped me. It was beaming down bright rays of lunar influence, and I wondered just how crazy it would get before the night was over.
-
-A cluster of old cars and trucks was piled up at the entrance of the long driveway that led back to the farm. It was fully blocked. I’d have to walk. The vehicles were stripped down to little more than bare frames. Only seats, glass, and empty cans remained.I tilted my head to my shoulder mic and opened the channel. 
-
-“This is Officer Murphy. I have several vehicles blocking the entrance to the farm. I’m proceeding on foot; be advised that you’ll need to do the same.”
-
-They didn’t reply. I tried again. Nothing. I started my walk to the farm and heard the faint sputter of a small weed trimmer or chainsaw screaming in the night on some distant hill. 
-
-A feeling of unease came over me as I realized that this was not a sound one typically hears at night. 
-
-The old Crawford farm had one of those houses that almost everyone knew in Claysville. It’s where the R Farm Pumpkin Fest is held every year. It felt strange to be walking toward the barn where I had played as a child during school trips. That was before I started handling druggies, speeders, and dead bodies for a living.
+I knew that Claysville’s only other officer was at the other end of the county. Probably facedown, drunk as a skunk at Tater’s bar. The old Crawford farm had one of those houses that almost everyone knew in Claysville. It’s where the R Farm Pumpkin Fest is held every year. It felt strange to be walking toward the barn where I had played as a child during school trips. That was before I started handling druggies, speeders, and dead bodies for a living.
 
 The last dying breath of summer heat floated in the air as I approached the two figures. One standing, the other lying face down in the dirt. My fingers traced the butt of my gun as I kept my eyes on who I assumed was Jake. His hands were firmly in his pockets. Exactly where they shouldn’t be.
 
@@ -121,8 +65,6 @@ It was not a man. It was not a machine. It was something else.
 His legs were caked with blood and shit, leading down to a pair of untied sneakers. It was when I noticed the maggots wiggling out of the sides of the underwear that I blew chunks. 
 
 The mix of smell and sight was well beyond my limit. It was worse than when Mrs. Peffer died in her trailer during one of the hottest weeks of the previous year. 
-
-“Richard, I need you at the Crawford farm immediately.” I panted into my shoulder mic.
 
 The phone embedded in the body dinged, and the limbs twitched once and hard, like the muscles of a science class bullfrog when you juice them up with some AC.
 
