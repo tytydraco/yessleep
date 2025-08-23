@@ -132,20 +132,19 @@ But I was curious.
 
 So, I pressed play.
 
-His name was Luke, and he first saw one of these things when he was a boy.  He knew what was behind all of this and why it was doing it. 
+His name was Luke, and he first saw one of these things when he was a boy.  He knew what was behind all of this and why it was doing it.  I can still hear his guttural shrieks as it tore his humanity from him, when it changed him into something new, as the recording kept going long after it should have ended.
 
-I’ve been writing this for some time, and it has been reading everything I type with an alien indifference. It is acting weird, it isn't in a hurry to change me yet.  It's waiting for something. I think I might be safe for a little longer. 
+I’ve been writing this for some time, and it has been reading everything I type with an alien indifference. It is acting weird, like it isn't in a hurry to change me yet.  It's waiting for something. I think I might be safe for a little longer. 
 
 Maybe not.
 
 
+But I’m going to take a walk. Sorry to leave you like this, but I need a break. There’s so much more to tell, but this has been too much to dig up at once.
 
-But I’m going to take a walk. Sorry to leave you like this, but I need a break. But there's so much more to tell and this has been a bit much to dig up.
-
-My phone is lighting up. Luke is calling me on Messenger, but he's now dead two times over.
+Luke is calling me on Messenger, even though he's now dead two times over.
 
 I know it isn't him. At least, I hope to god it isn't.
 
 Got to clear my head, and a drink might be just what I need. 
 
-I’ll post more later.
+I’ll post more later if I'm still me.

@@ -14,7 +14,7 @@ But there was nothing to see. The house was empty, no furniture, dusty, just lik
 
 A few months earlier, while eating breakfast, I got a call from a property owner who said she’d found me on Instagram. She told me she needed an experienced, fast-moving realtor to handle rental contracts for her house. And I lied, said I was that guy, even though I’d only had my license for a little over a year.
 
-Her voice was old, raspy, almost broken, like someone with throat problems. She said she lived abroad, but needed someone local to manage the property. I wouldn’t even have to look for tenants, she said. There was already a list of people interested, and they’d meet me at the house. 
+Her voice was old, raspy, almost broken, like someone with throat problems. She said she lived abroad, and needed someone local. I wouldn’t even have to look for tenants, she said. There was already a list of people interested, and they’d meet me at the house. 
 
 I wasn’t too excited. It didn’t sound like much of an opportunity until she mentioned my commission. I nearly choked on the sandwich I was eating.
 
@@ -88,7 +88,7 @@ I reached into the crack again, feeling around, and touched something soft.
 
 I pulled it out.
 
-It was an ear. Darkened, rotten, with a torn hole where the piercing had been ripped out. The third tenant.
+It was an ear. Darkened, rotten, with a torn hole where the piercing had been ripped out. 
 
 I decided to push the chair to see what was underneath it, and with a lot of effort I managed to move it a foot to the side.
 
