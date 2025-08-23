@@ -24,7 +24,7 @@ Her jaw popped and fell to the floor.  A putrid grey tongue lolled down her th
 
 I wanted to forget what I’d seen. The creations of an inhuman mind gone insane. 
 
-I dropped the pizza, shattering it on the floor as I ran. She still had vocal cords, unlike most of them. She screamed for me to run as she chased me. 
+I dropped the pizza, shattering it on the floor as I ran. She still had vocal cords, unlike most of them. Her scream was mangled without a jaw, but I think she was begging me to run as she chased me.
 
 If I hadn’t parked my car on the curb with the driver's door facing the store, I probably wouldn’t be writing this.
 

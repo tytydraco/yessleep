@@ -248,11 +248,11 @@ It happened so fast it almost didn’t feel real. Ten seconds, maybe less. And t
 
 The suit had gone still—no guidance this time. My heart pounded in my chest. I ran.
 
-Stacy struck again, claws flashing, but the Night Manager’s iron grip locked around her arms, pinning her in place. Selene and John appeared in a blur, seizing each of his legs while Stacy kept both his arms occupied. The suit surged, snaking through me, forcing my hands to move with the precision of a memory I had stolen—the one I’d traded my most precious moment to obtain.
+Stacy struck again, claws flashing, but the Night Manager’s iron grip locked around her arms, pinning her in place. Selene and Jack appeared in a blur, seizing each of his legs while Stacy kept both his arms occupied. The suit surged, snaking through me, forcing my hands to move with the precision of a memory I had stolen—the one I’d traded my most precious moment to obtain.
 
 I moved without hesitation. The dagger struck—both legs, then an arm. The Night Manager bellowed, tossing us aside like ragdolls. I slammed into the floor, Stacy cushioning my fall. She sprang back instantly, a blur of skittering limbs, keeping him locked in a desperate struggle.
 
-But then he turned, choking Selene while John and Dante fought the Pale Man elsewhere. The weight of it hit me—this fight was spiraling, and there was no room for mistakes.
+But then he turned, choking Selene while Jack and Dante fought the Pale Man elsewhere. The weight of it hit me—this fight was spiraling, and there was no room for mistakes.
 
 I slid low between them, my fingers closing around the locket at his chest. It pulsed violently, green veins beating against my palm. I yanked it free, adrenaline burning through me.
 

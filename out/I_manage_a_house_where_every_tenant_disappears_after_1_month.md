@@ -14,7 +14,7 @@ But there was nothing to see. The house was empty, no furniture, dusty, just lik
 
 A few months earlier, while eating breakfast, I got a call from a property owner who said she’d found me on Instagram. She told me she needed an experienced, fast-moving realtor to handle rental contracts for her house. And I lied, said I was that guy, even though I’d only had my license for a little over a year.
 
-Her voice was old, raspy, almost broken, like someone with throat problems. She said she lived abroad, and needed someone local. I wouldn’t even have to look for tenants, she said. There was already a list of people interested, and they’d meet me at the house. 
+Her voice was old, raspy, almost broken, like someone with throat problems. She said she lived abroad, and needed someone local. I wouldn’t even have to look for tenants, she pitched. There was already a list of people interested, and they’d meet me at the house. 
 
 I wasn’t too excited. It didn’t sound like much of an opportunity until she mentioned my commission. I nearly choked on the sandwich I was eating.
 
@@ -98,7 +98,7 @@ I froze, staring at it, heart pounding. What snapped me out of it was a laugh th
 
 A woman’s laugh, echoing from the darkness of the forest. It started low and distant, but quickly grew louder, hysterical.
 
-Then more laughter followed, all of them female, all coming closer, aimed at me. It was like a whole crowd was hiding in that forest.
+Then more laughter followed, all of them female, all coming closer, aimed at me. It was like a whole crowd was hiding in those woods.
 
 The sound grew louder and louder, until my instincts took over. I bolted to my car, started it up, and sped down the road.
 
@@ -108,7 +108,7 @@ The next day I called the couple and told them the deal was off. Made up some ex
 
 Soon after, the owner called me again. I didn’t pick up, and blocked her number.
 
-But the calls kept coming, from all sorts of different numbers. I answered one, and it was her voice:
+But the calls kept coming, from all sorts of different numbers. I answered one, and it was her voice, angry:
 
 “You broke our pact. The rent will be collected at the end of the month.”
 
