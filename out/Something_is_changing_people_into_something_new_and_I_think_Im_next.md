@@ -4,7 +4,7 @@ It knows that I know. Better if I play along for now. I don't know how long it w
 
 I’ve never expected or wanted much from my life. Just a job that didn’t take more than it gave, someone to hold at night, and a good cold beer before bed.
 
-But I saw something that stripped my soul down to the bone and smothered any joy and hope I once had for this world. Now I don’t sleep anymore. Not since I learned that something is snatching people in broad daylight and changing them. Trying to make them better, something new.
+I don’t sleep anymore. Not since I learned that something is snatching people in broad daylight and changing them. Trying to make them better, something new.
 
 The changed ones.
 
@@ -16,11 +16,11 @@ I’m writing this because I saw another one of the changed ones a few days ago 
 
 As I pulled a pizza out of a freezer, an old lady shuffled up beside me and stared blankly into the glass door. The pizza I held shook as the familiar sickly smell of rotting flesh and oily components mixed with the cold freezer air that sent whips of cold fog around us. 
 
- A soft whine of small servos whirred as she turned her head to me. Her eyes were bloodshot, and tears streaked down her face as she tried to smile. Her lips pulled back over her teeth, exposing black gums and congealed blood.
+A soft whine of small servos whirred as she turned her head to me. Her eyes were bloodshot, and tears streaked down her face as she tried to smile. Her lips pulled back over her teeth, exposing black gums and congealed blood.
 
 “Please, kill me,” she whispered through clenched teeth.
 
- Her jaw popped and fell to the floor.  A putrid grey tongue lolled down her throat, and two blinking lights flashed from the back of her throat. She was another improvement, another attempt to make us perfect. 
+Her jaw popped and fell to the floor.  A putrid grey tongue lolled down her throat, and two blinking lights flashed from the back of her throat. She was another improvement, another attempt to make us perfect. 
 
 I wanted to forget what I’d seen. The creations of an inhuman mind gone insane. 
 
@@ -28,7 +28,7 @@ I dropped the pizza, shattering it on the floor as I ran. She still had vocal co
 
 If I hadn’t parked my car on the curb with the driver's door facing the store, I probably wouldn’t be writing this.
 
-Anyway, best to start where it started. 
+Anyways, best to start where it started. 
 
 Everything changed last year when I was on night duty for the Claysville police. It was supposed to be a simple job, and it was for a while. Claysville is a very small Kentucky river town, and it has a population of just three hundred and four. 
 
@@ -40,7 +40,7 @@ My night started with the typical shift change, with Gary giving me the rundown 
 
 He always said this on a full moon. It had gotten old, but still usually held true. With it being the weekend, and the fact that Claysville had more bars and liquor stores than grocery, the night was certain to bring out a variety of crazies.  
 
- I was sitting at my desk while tossing sunflower seeds into a Styrofoam cup as the wall clock buzzed. My mind kept returning to last night’s terrible date and the sound of each seed hitting the cup grounded me to the present just enough not to spiral. I had finally gotten a date with Valerie, and when I struggled to find something to talk about, I bombed fast and hard. 
+I was sitting at my desk while tossing sunflower seeds into a Styrofoam cup as the wall clock buzzed. My mind kept returning to last night’s terrible date and the sound of each seed hitting the cup grounded me to the present just enough not to spiral. I had finally gotten a date with Valerie, and when I struggled to find something to talk about, I bombed fast and hard. 
 
 My desk phone lit up and shrieked as a call came in. I reached for the handset and sighed as I readied myself for my first call of the night. Domestic disturbance, car accident, or one of Gary’s veggie patch crazies. It was past two a.m., on a Saturday, and a hot September night at that. People got wild on nights like this.
 
@@ -58,9 +58,9 @@ He grinned nervously at me and almost tripped as I barked the order. His hands s
 
 It was not a man. It was not a machine. It was something else.
 
- He wore soiled boxers and a shredded t-shirt.  Chunks of flesh had been torn from the limbs, with just white bones barely holding sections of him together.
+He wore soiled boxers and a shredded t-shirt.  Chunks of flesh had been torn from the limbs, with just white bones barely holding sections of him together.
 
- A mess of black cables snaked from the back of his head and down to his lower back, where a phone had been shoved into a festering hole carved into his flesh. 
+A mess of black cables snaked from the back of his head and down to his lower back, where a phone had been shoved into a festering hole carved into his flesh. 
 
 His legs were caked with blood and shit, leading down to a pair of untied sneakers. It was when I noticed the maggots wiggling out of the sides of the underwear that I blew chunks. 
 
@@ -134,9 +134,11 @@ So, I pressed play.
 
 His name was Luke, and he first saw one of these things when he was a boy.  He knew what was behind all of this and why it was doing it. 
 
-I’ve been writing this for some time, and it has been reading everything I type with an alien indifference.  I think I might be safe for a little longer.
+I’ve been writing this for some time, and it has been reading everything I type with an alien indifference. It is acting weird, it isn't in a hurry to change me yet.  It's waiting for something. I think I might be safe for a little longer. 
 
 Maybe not.
+
+
 
 But I’m going to take a walk. Sorry to leave you like this, but I need a break. But there's so much more to tell and this has been a bit much to dig up.
 
