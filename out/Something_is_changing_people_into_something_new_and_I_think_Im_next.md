@@ -4,7 +4,7 @@ I won’t be me for much longer.
 
 The last person I heard say these words became something more than a man, but much less than human. I don’t want to end up like him, and I want people to know what I found before I’m gone.
 
-It watching me as I type this.  The thick whiskers on it's eyeless face don't twitch like they should. It is sitting perfectly still near my keyboard. By the horrible smell, I can tell it's been dead for sometime.  A camera that has been shoved into it's tiny skull blinks with a tiny hint of red light.
+It's watching me as I type this.  The thick whiskers on its eyeless face don't twitch like they should. It is sitting perfectly still near my keyboard. By the horrible smell, I can tell it's been dead for some time.  A camera that has been shoved into its tiny skull blinks with a tiny hint of red light.
 
 It knows that I know. Better if I play along for now. I don't know how long it will allow me to continue.
 
@@ -146,7 +146,7 @@ The man lifted an arm and slammed it down hard onto the dirt as he pulled himsel
 
 The jaw clicked as it moved, and a hissing sound came out like a death rattle that sprayed maggots onto its hands. The dark eye holes that led into brain matter looked up at me again.
 
-“Sc-screw this!” Jake stammered as he turned and ran into the woods.
+“Fu-fuck this!” Jake stammered as he turned and ran into the woods.
 
 A buzz came from the phone speaker.
 
@@ -206,7 +206,15 @@ Got to clear my head, and a drink might be just what I need. 
 
 I’ll be back later to tell you more about what dead Luke said. 
 
-It just sent a voice message, one I heard it say before. It's low inhuman voice rises with each word, like notes on a demonic scale.
+It just sent a voice message. The word's I've heard many times before.
+
+The dead rat near my keyboard stands upright, smooth as a hydraulic piston . The eyehole camera  is trained on my face as the rat's tiny top legs spread out, offering an embrace.
+
+This poor creature is just one of thousands under the control of something that doesn't understand biological organisms.
+
+But God, how it wants to understand the flesh.
+
+A low inhuman voice rises with each word in the message, like notes on a demonic scale.
 
 YOU
 
