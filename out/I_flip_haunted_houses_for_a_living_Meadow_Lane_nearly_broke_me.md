@@ -46,4 +46,4 @@ That’s when I remembered I kept a lighter on me just in case I needed to use a
 
 I don’t remember the run to my truck, but I remember finally being able to breath only after Meadow Lane was only a memory. I couldn’t shake the feeling that if it really wanted me I wouldn’t have been able to leave. I’ve worked for dozens of homes, cleared out cursed junk, and evicted countless spirits. But Meadow Lane wasn’t haunted. It was alive. And if you’re thinking of moving in, don’t. I couldn't fix it. I could only run. 
 
-With all that being said, my name is Forrest Greenwald. This is the first time I’ve shared my work with anyone besides my partner, but maybe it’s time I did. If you got any questions about what I do or how I do it, I’ll answer them as best I can. Hell, maybe I’ll even tell you a few more stories.
+With all that being said, my name is Forrest. This is the first time I’ve shared my work with anyone besides my partner, but maybe it’s time I did. If you got any questions about what I do or how I do it, I’ll answer them as best I can. Hell, maybe I’ll even tell you a few more stories.
