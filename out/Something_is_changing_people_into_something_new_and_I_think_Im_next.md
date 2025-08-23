@@ -204,24 +204,4 @@ I know it isn't him. At least, I hope to god it isn't.
 
 Got to clear my head, and a drink might be just what I need. 
 
-I’ll be back later to tell you more about what dead Luke said. 
-
-It just sent a voice message. The word's I've heard many times before.
-
-The dead rat near my keyboard stands upright, smooth as a hydraulic piston . The eyehole camera  is trained on my face as the rat's tiny top legs spread out, offering an embrace.
-
-This poor creature is just one of thousands under the control of something that doesn't understand biological organisms.
-
-But God, how it wants to understand the flesh.
-
-A low inhuman voice rises with each word in the message, like notes on a demonic scale.
-
-YOU
-
-CAN
-
-BE
-
-NEW
-
-TOO
+I’ll post more later.
