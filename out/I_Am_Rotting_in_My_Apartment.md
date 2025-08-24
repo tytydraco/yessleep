@@ -136,9 +136,9 @@ A smooth feminine voice crackled down from some hidden loudspeaker in the room, 
 
 "It has come to our attention that you breached our agreement today."
 
-"What do you mean?" I shifted in my chair uncomfortably.
+"What do you mean?" 
 
-The person behind the glass gave an exasperated sigh.
+The person behind the glass gave an impatient sigh.
 
 "When you signed with us, you agreed that no damage would come to the contents of your apartment."
 
