@@ -10,7 +10,7 @@ Of course he wasn’t really my uncle. A relative yes, but not one you’d class
 
 
 
-It wasn’t until I heard he was having trouble getting in and out of his house that I nailed down that he was my grandma’s brother. My sister rang me one night asking if I could check in on him. He’d had a Facebook account he used to post memes he didn’t understand or unwittingly share racist dog whistles about phantoms law or army vets not getting served at the super-market. But out of the blue he’d dropped her a message on what was likely a lonely evening asking her how she was. He found out quickly that she’d moved to the US after graduating university and was working as a researcher at Columbia with a handsome husband and a kid on the way. I was the second option. 
+It wasn’t until I heard he was having trouble getting in and out of his house that I nailed down that he was my grandma’s brother. My sister rang me one night asking if I could check in on him. He’d had a Facebook account he used to post memes he didn’t understand or unwittingly share racist dog whistles about phantom law or army vets not getting served at the super-market. But out of the blue he’d dropped her a message on what was likely a lonely evening asking her how she was. He found out quickly that she’d moved to the US after graduating university and was working as a researcher at Columbia with a handsome husband and a kid on the way. I was the second option. 
 
 
 
