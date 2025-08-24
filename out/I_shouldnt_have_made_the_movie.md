@@ -78,8 +78,12 @@ There’s another envelope outside the door. This wasn’t over.  It was just be
 
  I know I shouldn’t open it.  
 
-But that feeling, how alive you feel when the muses sing to you… I hadn’t felt that alive in a long time. 
+But that feeling, how alive you feel when the muses sing to you… I hadn’t felt that alive in a long time. Creativity is like a drug.  When you hit that open vein; there’s nothing like it.  
+
+And when that vein closes, it gnaws at you.  Like a hunger. 
 
 I really shouldn’t open it.  Gen used to say our appetites would be the seeds of our destruction. I’d laugh at her. 
 
 I’m not laughing now.  
+
+I am hungry though. So very hungry. 
