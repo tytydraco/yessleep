@@ -34,7 +34,7 @@ Inside, the scent was less overpowering. After leaning the mattress against the 
 
 \_\_
 
-I thought about my grey-haired mother scolding me from the couch when I told her I was leaving for the city.
+I thought about my mother scolding me from the couch when I told her I was leaving for the city.
 
 "It's not fair, Daniel," she'd said. "How can I take care of you when you're so far away?"
 
@@ -44,17 +44,15 @@ Really, she was the one who needed care more than I did. If anything, I'd felt g
 
 After unpacking, I was unbelievably tired.
 
-As soon as I hit the pillow that evening, I was out like a light.
+As soon as I hit the pillow that evening, I was out like a light. My dreams were strange, full of syringes and bright lights and masked strangers with glassy eyes.
 
-My dreams were strange, full of syringes and bright lights and masked strangers with glassy eyes.
-
-In the middle of the night, I was hit with a wave of nausea.
-
-My head throbbed. My chest felt as if it were being compressed in a vise. I stumbled to the bathroom and knelt, coughing and retching over the bowl.
+In the middle of the night, I was hit with a wave of nausea. My head throbbed. My chest felt as if it were being compressed in a vise. I stumbled to the bathroom and knelt, coughing and retching over the bowl.
 
 Something in my throat dislodged itself and slid out of me, smooth and slippery and round.
 
-It was an eye. It bobbed there in the water, spinning slowly. My first instinct was to flush it away in horror, but it was so odd, so completely unbelievable, that I found myself fishing it out with a glass from the kitchen and setting it aside on the edge of the tub.
+It was an eye.
+
+It bobbed there in the water, spinning slowly. My first instinct was to flush it away in horror, but it was so odd, so completely unbelievable, that I found myself fishing it out with a glass from the kitchen and setting it aside on the edge of the tub.
 
 I studied it for a moment. Its surface was clean and pearly white aside from a thin strand of muscle tailing from the place where it would normally attach to the socket. The iris was a beautiful shade of dark brown, almost black, with flecks of amber. Its pupil was wide and empty, staring at nothing.
 
@@ -76,7 +74,7 @@ Wordlessly, Rick surveyed the kitchen. I heard him open the fridge, which I had 
 
 By the time he returned, I'd eaten the entire pastry. Rick gave me a once-over, like he was inspecting me, too. He gave a shiny, straight-toothed grin.
 
-"You passed," he said. I laughed, though I did not know if he meant to be funny.
+"You passed," he said.
 
 Something in that smile unsettled me, but I brushed it off, mostly because I simply did not understand it at the time.
 
@@ -104,15 +102,15 @@ An eyeball.
 
 The pastry churned in my stomach, threatening to come up. I gagged. That *thing* had come from inside of me.
 
-I wanted to justify it. I combed my mind for any recent memory of somehow eating a meal containing whole animal parts. I came up short. Was this some sort of rare health condition? Logic was running thin.
+Was this a rare sort of rare health condition? I combed my mind for any sort of explanation and came up short. Logic was running thin.
 
-The fact remained: something very foreign had taken place within my own body. The human body contained a vast internal world of which I suddenly felt I knew absolutely nothing.
+The fact remained: something very foreign had taken place within my own body.
 
-The eye writhed like a tadpole. It was actually moving on its own, thrashing and rolling across the floor.
+The eye writhed like a tadpole.
 
 I panicked. I grabbed a dustpan and swept it and the glass into the trash without ceremony.
 
-I sat there for a few seconds, considering my options. The thought of it squirming in there, alive of its own accord, as too much to bear.
+I sat there for a few seconds, considering my options. The thought of it squirming in there, alive of its own accord, was too much to bear.
 
 I grabbed a wad of toilet paper and fished the eye out of the can. Through the thin paper I could feel it wriggling beneath the pads of my fingers like some kind of mutated roach.
 
@@ -138,13 +136,13 @@ A smooth feminine voice crackled down from some hidden loudspeaker in the room, 
 
 "It has come to our attention that you breached our agreement today."
 
-"What do you mean?" I shifted in my chair uncomfortably, my skin prickling from the cold.
+"What do you mean?" I shifted in my chair uncomfortably.
 
-The woman made a noise that sounded like an exasperated sigh.
+The person behind the glass gave an exasperated sigh.
 
 "When you signed with us, you agreed that no damage would come to the contents of your apartment."
 
-I was stunned. "With all due respect, I just moved in yesterday. I've barely had a chance to unpack." The voice remained silent, so I pressed further. "What damage could I have possibly done?"
+I was stunned. "With all due respect, I just moved in yesterday. I've barely had a chance to unpack." The speaker remained silent, so I pressed further. "What damage could I have possibly done?"
 
 "All contents must remain undisturbed," the voice said, emphasis on the "all." She sounded more irritated than anything. "This especially includes organic materials. Did you gloss over that paragraph within your lease?"
 
@@ -154,23 +152,27 @@ I heard a pen click, then the sound of scribbling on paper.
 
 Beneath the window, a slot creaked open. A rubber-gloved hand poked through, shoving a stack of papers onto the desk.
 
-"Please review the document," the woman said. "We operate on a three strike system here. You are on your first infraction. Two more, and we will be left with no choice but termination. I have highlighted the relevant section."
+"Please review the document," said the voice. "We operate on a three strike system here. You are on your first infraction. Two more, and we will be left with no choice but termination. I have circled the relevant section."
 
 I opened my mouth but couldn't find the words. I just took the packet and began to read.
 
-It was my lease. Each page contained my initials in the corner, as well as that of the property manager. I flicked to the highlighted page:
+It was my lease. Each page contained my initials in the corner, as well as that of the property manager. I located the circled paragraph:
 
-*Tenant must not destroy or otherwise inflict damage upon any and all contents of the apartment, including blinds, windowpanes, countertops, walls, ceilings, or floors, doors, misc accommodations, and especially organic materials. Organic materials include but are not limited to body of tenant (see: tissue, fluid, bone, hair) and additional bodily expulsions. Preservation of the apartment ecosystem is of paramount importance to the success of this community and its objective. Failure to comply will be addressed by management on a strike system. Upon the third strike, management reserves the right to terminate the offending tenant.*
+*Tenant must not destroy or otherwise inflict damage upon any and all contents of the apartment, including blinds, windowpanes, countertops, walls, ceilings, or floors, doors, misc accommodations, and especially organic materials. Organic materials include but are not limited to body of tenant (see: tissue, fluid, bone, hair) and additional bodily expulsions.*
 
-This section was new. It had to be. But there were my initials neatly printed in my handwriting. I flipped to the final page. My entire name was printed there, and my shaky signature scrawled on the line below. It wasn't right.
+*Preservation of the apartment ecosystem is of paramount importance to the success of this community and its objective. Failure to comply will be addressed by management on a strike system. Upon the third strike, management reserves the right to terminate the offending tenant.*
+
+This section was new. It had to be. But there were my initials neatly printed in my handwriting. I flipped to the final page to find my full name printed in bold and my signature scrawled on the line below.
 
 "This can't be legal," I said. "I never agreed to this."
 
-"You said that you'd say that." The manager's flat, matter-of-fact tone made my blood boil.
+"You said that you'd say that." Her flat, matter-of-fact tone made my blood boil.
 
-"Can you explain what the hell is going on before I call the police?" I said, standing so abruptly that my chair tipped over.
+"Can you explain what the hell is going on before I get a lawyer?" I said, standing so abruptly that my chair tipped over.
 
-She actually laughed at this. "That won't be possible," she said. A musical chime sounded over the speaker.
+She laughed at this. "I'm afraid that won't be possible."
+
+A musical chime sounded over the speaker.
 
 From a white, nearly invisible door to my left emerged two people in pale green hazmat suits. Thick visors shielded their faces from my view as they grappled my arms with surprising strength. I struggled, screaming in protest. I felt a piercing pain in my neck, and the world was cloaked in cotton.
 
@@ -184,7 +186,7 @@ Since that first day, I have been living in a state of total fear and isolation.
 
 I don't leave. I get my groceries delivered and take all of my appointments online.
 
-I have tried to run. Somehow, Rick always finds me before I make it through those doors and out into the sunlight. He is the sentry of this ancient building I have come to despise. He is always smiling, even as he wrestles me to the ground, even as he drags me back to that old door with the peeling paint and rusted metal unit number.
+I have tried to run. Rick always finds me before I make it through those double doors and out into the sunlight. He is the sentry of this ancient building I have come to despise. He is always smiling, even as he wrestles me to the ground, even as he drags me back to my own unit door with its peeling paint and rusted metal numbers. I don't think he's even human.
 
 I've grown accustomed to the smell of the body as it falls apart.
 
