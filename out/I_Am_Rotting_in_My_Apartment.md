@@ -84,7 +84,7 @@ In retrospect, I think it was a kind of hunger.
 
 Rick left without another word. I heard him whistling down the hall, keys jingling.
 
-My phone rang. I rushed to my desk.
+As I stood contemplating the interaction, my phone rang. I rushed to my desk.
 
 I work in tech support. I am rarely required in the office. Most of my work is done from my PC or over the phone. It's not exciting, but it pays well. Plus, I don't have to leave the house unless I want to. For a homebody like me, this was a perk.
 
@@ -102,7 +102,7 @@ There it was, staring up at me from among the shards.
 
 An eyeball.
 
-The pastry churned in my stomach, threatening to come up. I gagged. That thing had come from inside of me.
+The pastry churned in my stomach, threatening to come up. I gagged. That *thing* had come from inside of me.
 
 I wanted to justify it. I combed my mind for any recent memory of somehow eating a meal containing whole animal parts. I came up short. Was this some sort of rare health condition? Logic was running thin.
 
@@ -170,11 +170,11 @@ This section was new. It had to be. But there were my initials neatly printed in
 
 "Can you explain what the hell is going on before I call the police?" I said, standing so abruptly that my chair tipped over.
 
-She actually laughed at this. "That won't be possible," she said, and a musical chime sounded over the speaker.
+She actually laughed at this. "That won't be possible," she said. A musical chime sounded over the speaker.
 
-From a white, nearly invisible door to my left emerged two people in pale green hazmat suits with thick visors which shielded their faces from my view. They grappled my arms with surprising strength as I struggled, screaming in protest. I felt a piercing pain in my neck, and the world was cloaked in cotton. My vision grew fuzzy.
+From a white, nearly invisible door to my left emerged two people in pale green hazmat suits. Thick visors shielded their faces from my view as they grappled my arms with surprising strength. I struggled, screaming in protest. I felt a piercing pain in my neck, and the world was cloaked in cotton.
 
-Suddenly I was gliding out of the room, being lifted on some kind of dolly. I craned my head to see who was pushing me. A familiar wide grin and wiry mustache slid into view, distorted and alien in my altered state.
+Everything felt light. I was gliding out of the room, being lifted on some kind of dolly. I craned my head to see who was pushing me. A familiar wide grin and wiry mustache slid into view, distorted and alien.
 
 "Hey, champ," Rick said. "Let's get you back to your unit."
 
@@ -188,7 +188,7 @@ I have tried to run. Somehow, Rick always finds me before I make it through thos
 
 I've grown accustomed to the smell of the body as it falls apart.
 
-It's not just eyes now. Pieces of vertebrae and swatches of sinew clutter my fridge in pitchers and plastic containers. Strange butterfly-clusters of ears and fingers cling to the lamps and windows in shuddering sheets of flesh. Strips of bloody gums and teeth crawl like inchworms across my countertops.
+It's not just eyes now. Pieces of vertebrae and swatches of sinew clutter my fridge in pitchers and plastic containers. Strange butterfly-clusters of ears cling to the lamps and windows in shuddering sheets of flesh. Strips of gums and teeth crawl like inchworms across my countertops.
 
 Furthermore, something is wrong with my skin. Every night, I feel it fluttering and pulsing, as if it, too, wants to replicate exponentially,
 
@@ -196,10 +196,10 @@ to multiply,
 
 to escape.
 
-Last night, an entire hand crawled from my throat.
+I'm pretty sure I'm breaking protocol just by writing this account. If anyone finds this, know that I am alive, but I am rotting all the same.
 
-I'm pretty sure I'm breaking protocol just by writing this account. If anyone finds this, know that I am alive, but I am rotting all the same. I don't know how much longer I have.
+I don't know how much longer I have. Last night, an entire hand crawled from my throat.
 
-The apartment buzzer just rang. I must see who is coming to call upon me.
+\_\_
 
-Who am I kidding—I already know who it is.
+The apartment buzzer just rang. I already know who it is.
