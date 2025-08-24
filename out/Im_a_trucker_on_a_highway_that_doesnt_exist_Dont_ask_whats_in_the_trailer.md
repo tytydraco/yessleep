@@ -237,3 +237,5 @@ But it wasn’t.
 I’d learned something, though *what* I now knew, I wasn’t totally sure. Was the thing in the cargo bay a person? A creature? A child?
 
 Sometimes not knowing a secret can drive you mad. Sometimes knowing the secret [is worse.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/1mz659m/im_a_trucker_on_a_highway_that_doesnt_exist_i/)

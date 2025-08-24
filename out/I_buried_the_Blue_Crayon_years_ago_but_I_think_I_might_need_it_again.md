@@ -1,4 +1,4 @@
-[PART 2](https://www.reddit.com/r/nosleep/comments/1mt29nd/i_buried_the_blue_crayon_years_ago_but_i_think_i/)
+PART 1 | [PART 2](https://www.reddit.com/r/nosleep/comments/1mt29nd/i_buried_the_blue_crayon_years_ago_but_i_think_i/) | [PART 3](https://www.reddit.com/r/nosleep/comments/1mz764h/i_buried_the_blue_crayon_years_ago_but_i_think_i/)
 
 Blue used to be my favorite color, but not anymore. Not after what happened. Not after I bound that crayon in lead and buried it so many decades ago. But these times are strange and desperate, and my need is no different. Unearthing that blue crayon and using it once again may be the only option I have left. The only option I have to save her.
 
@@ -88,4 +88,4 @@ I haven’t felt this fucking weird in a long, long time.
 
 I think I need to check on Victoria and clear my head a bit.
 
-[PART 2](https://www.reddit.com/r/nosleep/comments/1mt29nd/i_buried_the_blue_crayon_years_ago_but_i_think_i/)
+PART 1 | [PART 2](https://www.reddit.com/r/nosleep/comments/1mt29nd/i_buried_the_blue_crayon_years_ago_but_i_think_i/) | [PART 3](https://www.reddit.com/r/nosleep/comments/1mz764h/i_buried_the_blue_crayon_years_ago_but_i_think_i/)
