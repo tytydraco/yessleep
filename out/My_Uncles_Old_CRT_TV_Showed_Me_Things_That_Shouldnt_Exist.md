@@ -1,4 +1,4 @@
-This all started because of that CRT TV my uncle had given me. He was a hoarder, and my family did a Intervention-type meeting with him to convince him of his bad habits. He finally gave up and agreed to throw all the junk he has accumulated over the past 10 years away. It just so happened, that he owned a brand-new CRT, and I always wanted to own one. Call me a hipster, or whatever, but I wanted to use it to play retro games, you know, to get “that” feeling.
+This all started because of that CRT TV my uncle had given me. He was a hoarder, and my family did a Intervention-type meeting with him to convince him of his bad habits. He finally gave up and agreed to throw all the junk he has accumulated over the past 10 years away. It just so happened, that he owned an old mint-condition CRT, and I always wanted to own one. Call me a hipster, or whatever, but I wanted to use it to play retro games, you know, to get “that” feeling.
 
 The very first day I brought and plugged it in it gave me a nasty static shock once I touched the ON/OFF button. Nothing to bad, but it caught me off-guard.
 
