@@ -1,5 +1,3 @@
-
-
 *The use of phones or digital communication devices is prohibited.* 
 
 *Do not use your phone for calling, texting, navigation, music, or any purpose. In cases of emergency, contact dispatch via your handheld radio.*
@@ -10,11 +8,7 @@
 
 **-Employee Handbook: Section 2.E**
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/1mlackw/im_a_trucker_on_a_highway_that_doesnt_exist_there/)
 
@@ -23,8 +17,6 @@
 [Part 3](https://www.reddit.com/r/nosleep/comments/1mrcfkc/im_a_trucker_on_a_highway_that_doesnt_exist_i/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/1mt083f/im_a_trucker_on_a_highway_that_doesnt_exist_dont/)
-
-
 
 “What’s in the trailer?”
 
@@ -36,11 +28,11 @@ I stood just outside my truck where I'd pulled over on the side of the highway t
 
 “We literally *just* had this conversation,” he said. “Like three hours ago.”
 
-“That was before I heard something inside the cargo. You tell me what’s in there right now, or I turn around and come back*.*”
+“That was before I heard something inside the cargo. You tell me what’s in there right now, or I turn around and come back.”
 
 “That eager to visit the forest again, huh?”
 
-“Hang on,” I said. “How do you know about my encounter?” 
+“Hang on,” I said. “How do you know about my encounter?”
 
 The other end of the radio fell silent.
 
@@ -82,12 +74,7 @@ I really hadn't gotten any sleep. The sun would be up in a few hours, and my bod
 
 “You’ll feel better.”
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-  
-
 
 He was right. After sleeping, I did feel better. And while that should have only annoyed me further, it was difficult to feel so since I now felt infuriatingly great.
 
@@ -125,11 +112,7 @@ No response.
 
 Nothing except the near-imperceptible shudder of the back door. Almost as if something on the other side was pressing a hand to it. Waiting to see what I’d decide.
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 It was after about six hours of driving that I realized with dawning, crippling horror of my irreversible mistake.
 
@@ -302,4 +285,3 @@ I exhaled.
 Clouds rushed in above me, and thick drops of rust-colored liquid slid down my windshield. Blood. The end.
 
 Even now, I [wasn’t nervous](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/).
-
