@@ -146,7 +146,7 @@ When I’d saved up enough money, I rented a cabin in the middle of nowhere, far
 
 And this is where I’ve been for the last few years. My skin is bleached white from lack of exposure to the sun. My hands are so pale that if I hold them up to the window they almost blend in with the clouds. 
 
-Last night I peered at myself in the mirror and saw a gaunt, un-person staring back. Inside, I’m still that small, terrified child who first saw the Masked Man, but the man in the mirror looks far older than his 28 years. He is bent, wizened and weak. His hair is prematurely thinning and his hands shake with the very effort of life.
+Last night I peered at myself in the mirror and saw a gaunt un-person staring back. Inside, I’m still that small, terrified child who first saw the Masked Man, but the man in the mirror looks far older than his 28 years. He is bent, wizened and weak. His hair is prematurely thinning and his hands shake with the very effort of life.
 
 He is tired of this existence. Even with this self-imposed imprisonment, the Masked Man still comes, still exacts his terrible price. And so he has decided that today is the last day. I watch as he reaches into the medicine cabinet to retrieve a revolver. He opens it, checks to make sure that the bullets are loaded, blows some dust off of the barrel, and closes it again.
 
@@ -154,7 +154,7 @@ He places it against his forehead and smiles a little, skeletal smile. 
 
 Finally. Finally he will be free of the Masked Man. He has waited his entire life to say those words. He’s always known that this was a way out, but he hasn’t had the courage to do it until today. 
 
-He presses his finger to the trigger, intended to pull it, when all of a sudden he’s gripped by an all-consuming terror. His eyes roll back into his head and he falls to the floor. 
+He presses his finger to the trigger, intending to pull it, when all of a sudden he’s gripped by an all-consuming terror. His eyes roll back into his head and he falls to the floor. 
 
 As his body shakes uncontrollably, his mind is in a very familiar void, all made of black. Formless and faceless, a Masked Man glides on a wave of darkness until he stands before the skeletal figure. The Masked Man raises him up and points to his scroll as the tendrils begin to wind their way into the figure’s mouth.
 

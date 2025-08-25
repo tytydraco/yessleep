@@ -1,5 +1,7 @@
 [\[Part 39\]](https://www.reddit.com/user/RandomAppalachian468/comments/1laa0bb/the_call_of_the_breach_part_39/)
 
+[\[Part 41\]](https://www.reddit.com/user/RandomAppalachian468/comments/1msf2h1/the_call_of_the_breach_part_41/)
+
 *“. . . fourteen . . . open . . . effect . . .”*
 
 Frustrated, I shook the radio and tapped against the side of my headset it was connected to, trying to clear some of the static from the garbled messages. It had been bad enough listening to the constant fuzz on our march from Black Oak to the rally point, but as we got further south it seemed a few of our transmissions began to slip through ELSAR’s jammers, enough that I was tortured by the fragments of my husband’s voice on the airwaves. On one hand, I’d nearly wept at knowing he was alive, but on the other hand I couldn’t ignore the continuous drumbeat of exploding artillery shells on the horizon, and the rattle of machine guns that had to be aimed at him. Every part of me wanted to ride straight for Chris, to help him in any way I could, to fight by his side until we could both run to safety, but I knew that wasn’t possible. He could be miles away, and if Chris were with me, he would have told me to be an officer first and his wife second.
