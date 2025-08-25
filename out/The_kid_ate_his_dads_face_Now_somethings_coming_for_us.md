@@ -326,6 +326,6 @@ It wasn’t my fault. 
 
 She made me do it. 
 
-Why did she make me do it?
+Why did she make me [do it](https://www.reddit.com/r/nosleep/comments/1mzdbfl/the_kid_ate_his_dads_face_then_he_told_my_why/)?
 
 [MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
