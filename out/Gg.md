@@ -1,0 +1,15 @@
+I’m writing to you, strangers, because you’re all I have left. Once, our life was real and beautiful, loud and chaotic, full of small, imperfect joys. Our son Leo was six, left-handed like my father, obsessed with dinosaurs, stubborn at bedtime, and tender to the core. He was a storm contained in a small body, our storm, and we loved him fiercely.
+
+Then came the fever. It started with a cough, a warm forehead, nothing alarming, until he was screaming in pain, burning hot, eyes glassy, muttering nonsense. For three days we fought to keep him hydrated, to keep him with us, as I begged every god I didn’t believe in to spare him. The house was reduced to the four suffocating walls of his room, thick with fear and sweat. I thought we were going to lose him.
+
+On Saturday morning the nightmare broke. The heat was gone, his breathing calm, his eyes focused. When he whispered, “Mommy,” I wept like an animal. The next day was paradise: sunlight streaming through the windows, pancakes, laughter, our dog licking his face. Everything felt holy, like life itself had been given back. I thought the storm was over.
+
+But on Monday morning he picked up his fork with his right hand. A tiny, insignificant thing, except Leo had never done that before. When I pointed it out, he answered with chilling certainty: “I’ve always done it this way, Mommy.” And from that moment, I began to notice more cracks. His noise and chaos vanished, replaced with eerie silence, perfect order, unnerving precision. Thomas called it maturity. I called it wrong.
+
+The empathy that once defined him was gone. He looked at his dead goldfish not with grief but with clinical detachment, suggesting dissection. He solved math problems he couldn’t have understood, and corrected mistakes I hadn’t noticed. Around Thomas, he was affectionate and perfect; with me, cold and watchful. It was a performance, and I was the only one allowed to see behind the mask.
+
+I tried to get proof. I asked him to draw our family, and instead he drafted a schematic of three faceless figures labeled with our names. The one marked “ELEANOR” was violently scribbled out. When I asked, he pointed at it and said flatly, “You are the error.” That night I tried to run, to take him and flee, but he screamed, accused me of hurting him. Thomas believed him. The police took me away.
+
+Now I am here, in a quiet place with soft walls, diagnosed with trauma-induced psychosis. Thomas writes letters full of pity, saying Leo is thriving, brilliant, calm. He even sent me a photograph from a school picnic: the two of them smiling under a tree, a perfect father and son. To anyone else, it looks like happiness. To me, it’s evidence.
+
+Because if you look closely, you’ll see Leo holding an apple in his left hand. He remembered. He corrected the mistake. The performance is flawless now. And I am the only one left who knows the truth.
