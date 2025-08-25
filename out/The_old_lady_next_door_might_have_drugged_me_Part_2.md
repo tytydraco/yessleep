@@ -68,3 +68,5 @@ That's where I've been for the past half an hour or so while the thunderous poun
 If I don't make it... shit, I don't know. I have nothing to give and nobody to give it to. Just take my advice. Go wash your damn dishes. Go hug your loved ones. Go tell her you're sorry.
 
 Before it's too late.
+
+[Final](https://www.reddit.com/r/nosleep/s/c1dvJwZ86I)

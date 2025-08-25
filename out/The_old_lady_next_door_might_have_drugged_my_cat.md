@@ -121,3 +121,5 @@ I can't begin to describe the relief I feel when I look down and see Sweet Pea h
 I'm not a Vet but as far as I can tell she has no injuries, save for one small patch of fur missing on her flank. I assume that's from running into the closet door so hard it popped open. Her eyes are clear and alert, and she hasn't had any more episodes the whole time I was pulling shards of coffee cup out of my foot. My best guess is she had a reaction to something in the treat Ruth fed her earlier, God only knows what the hell it's made of, and it seems to have worn off. If I see any other strange behaviors tomorrow I'll get her looked at but for now I'm eager to put this night behind me. On the way out of the bathroom I pause at the hall closet and, without turning to look, gently turn the small lock on the handle.
 
 Maybe Sweet Pea can sleep in my bedroom tonight, just this once.
+
+[Part Two](https://www.reddit.com/r/nosleep/s/zqnuFGUyPc)
