@@ -80,7 +80,7 @@ We ran up to him, tried to calm him down. He just went harder. Eventually his bo
 
 “There were people up there,” he said in between long, labored breaths.
 
-We glanced at each other and then asked him to explain. He took another deep breath then told us that almost immediately after he’d walked in, he ran into something that was blocking the way. But it wasn’t a wall or a random object. It was a person. A group of people, he realized, all standing perfectly still in the dark. He said he knew they were people because he could feel their skin. But now that he was thinking about it, he wasn’t sure they were actually people at all. Because the skin was cold and clammy. The texture was strange. He said he could hear them breathing, but that it was so quiet you had to be standing right in front of them to notice. He said that their breath smelled like rotting gasoline. Whatever that was supposed to be. He said that they were whispering terrible things to him. Things about him that they shouldn’t have known.
+We glanced at each other and then asked him to explain. He took another deep breath then told us that almost immediately after he’d walked in, he ran into something that was blocking the way. But it wasn’t a wall or a random object. It was a person. A group of people, he realized, all standing perfectly still in the dark. He said he knew they were people because he could feel their skin. But now that he was thinking about it, he wasn’t sure they were actually people at all. Because the skin was cold and clammy. The texture was strange. He said he could hear them breathing, but the exhales were too quick. As if they were panting. He said that their breath smelled like rotting gasoline. Whatever that was supposed to be. He said that they were whispering terrible things to him. Things about him that they shouldn’t have known.
 
 Once he’ recovered enough energy, he was smashing the wall again and we could do nothing but stand in silence as we watched him. I didn’t want to believe any of what he just said, but his fear seemed real. Something had definitely happened to him up there.
 
@@ -105,3 +105,5 @@ As I was writing this, I got a text back from James. He said that he went to the
 I’d been planning on asking him to contact the police. I was hoping that might help.
 
 But now I really don’t know what to do.
+
+UPDATE: [https://www.reddit.com/r/nosleep/comments/1mzgovv/all\_the\_doors\_and\_windows\_in\_my\_university/](https://www.reddit.com/r/nosleep/comments/1mzgovv/all_the_doors_and_windows_in_my_university/)

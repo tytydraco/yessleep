@@ -1,3 +1,5 @@
+Context: [https://www.reddit.com/r/nosleep/comments/1mydk74/all\_the\_doors\_and\_windows\_in\_my\_university/](https://www.reddit.com/r/nosleep/comments/1mydk74/all_the_doors_and_windows_in_my_university/)
+
 It’s 10 PM. We’ve been in this building for just over twelve hours.
 
 By now we’ve searched the entire place about a dozen times over, checking every corner, every hallway, every room, coming to the same conclusion every time. On the third floor, we found a maintenance room with a ladder presumably leading up to the roof.  We broke through the hatch and do you know what we found?
@@ -30,7 +32,7 @@ He rushed over there and swung open the door. Kyle was standing on a chair in th
 
 This entire time Rachel hadn’t said anything at all. The blood had drained from her skin and she was staring down at the floor. We assured her that she didn’t have to talk about it if she wasn’t comfortable.
 
-She took a deep breath and said that her exam had a polaroid photo taped to it. A photo of herself in her child bedroom, taken from inside the closet. She said that she had a boyfriend in high school named Chris. One night, they were both sitting in her room and for whatever reason they began to argue. It turned ugly and then Chris ran into her closet and shut the door.
+She took a deep breath and said that her exam had a polaroid photo taped to it. A photo of herself in her childhood bedroom, taken from inside the closet. She said that she had a boyfriend in high school named Chris. One night, they were both sitting in her room and for whatever reason they began to argue. It turned ugly and then Chris ran into her closet and shut the door.
 
 She thought that he was being immature and told him to come out. But he said nothing and just stayed in there. She then walked over and opened the door. But he wasn’t there. And her closet was tiny. There was nowhere he could’ve been hiding. But then she heard a noise coming from above. Coming from the ceiling. Sounded like somebody laughing. Not Chris’s voice. Like an elderly woman’s. She closed the door and told her dad what had happened. He called the police and they searched the entire house but they could neither find Chris nor the woman. Chris was never seen again.
 
@@ -70,7 +72,7 @@ Rachel pointed out somebody in the distance, standing on top of one of the build
 
 Then he got down all fours and began crawling towards us.
 
-It was a shocking enough visual that it kinda paralyzed us for a moment before we were able to regain our bearings. We turned, bolted back towards the tunnel. But we couldn’t find Jason. We looked around until we saw him sitting on the rails at the edge of the platform. We called out to him but he paid no attention to us. Then he jumped. Before he could even hit the water, a gigantic, pale hand shot up from the ocean, grabbed him, dragged him down. I looked at my feet, through the openings in the platform. Hovering just below the surface of the water was what looked like a human face. It was probably about a dozen feet wide. The best way I can describe the expression on its face is that of enthusiastic malice. As if it just couldn’t wait to torture us.
+It was a shocking enough visual that it kinda paralyzed us for a moment before we were able to regain our bearings. We turned, bolted back towards the tunnel. But we couldn’t find Jason. We looked around until we saw him sitting on the rails at the edge of the platform. We called out to him but he paid no attention to us. Then he jumped. Before he could even hit the water, a gigantic, pale hand shot up from the ocean, grabbed him, dragged him down. I looked at my feet, through the openings in the platform. Hovering just below the surface of the water was what looked like a human face. It was probably about a dozen feet wide. The best way I can describe the expression on its face is that of enthusiastic malice. As if it just couldn’t wait to hurt us.
 
 I looked back at Arnold and now he was close enough for us to see that his head had been twisted all the way around. We ran back into the tunnel, crashing through the drywall until we made it back inside the building.
 
