@@ -30,7 +30,7 @@ There were people from all walks of life at these funerals. There were Rangers, 
 
 A week later, I saw him again — on a television commercial for Arby's. Grinning. Perfect teeth. Same face, same voice.
 
-I froze. My stomach dropped. He’d been at the funeral. Crying politely. Offering condolences. Sitting there like a part of the family. He wasn’t a doctor. He was just like me. An actor. 
+I froze. My stomach dropped. He’d been at the funeral. Crying politely. Offering condolences. Sitting there like a part of the family. He wasn’t a doctor. He was just like me. An actor.
 
 If he had been pretending, that meant… everyone else in that sparse room could have been paid to be there as well.
 
@@ -53,8 +53,6 @@ The quiet services, the missing records, Kendry’s meticulous handling of the b
 My stomach turned. Every tear I had shed, every comforting word I had offered, every tissue I had dabbed at my eyes — it had been part of his game. Part of his sick ritual.
 
 I realized then that I had been playing my part in a killer’s theater, and that the man outside wasn’t just watching — he was orchestrating it all, enjoying it from his vantage point across the street, entirely removed from the rest of the world.
-
-I felt sick. Every tear I shed was helping someone disappear. 
 
 I quit the next morning. Told Kendry I couldn’t do it anymore. He didn’t argue. Just gave me a flat smile, like he’d been waiting for me to say it.
 

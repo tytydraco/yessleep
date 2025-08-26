@@ -1,4 +1,4 @@
-When I first saw the Masked Man it was 10:37 PM on Tuesday, April 18, 2007. I remember because my parents had allowed me to stay up an extra hour to watch my favorite TV show: Bear Time with Mr. Teddy. A few minutes after falling asleep, it became clear that this was not the dreamland I was accustomed to. There were no toys, or friends or hugs from Mom. Instead, there was Him. 
+When I first saw the Masked Man it was 10:37 PM on Tuesday, April 18, 2002. I remember because my parents had allowed me to stay up an extra hour to watch my favorite TV show: Bear Time with Mr. Teddy. A few minutes after falling asleep, it became clear that this was not the dreamland I was accustomed to. There were no toys, or friends or hugs from Mom. Instead, there was Him. 
 
 He always appeared from darkness, gliding on a wave of black, formless and faceless as dream itself. The Masked Man neither smiled nor threatened — never shouted nor heralded his own presence. 
 
