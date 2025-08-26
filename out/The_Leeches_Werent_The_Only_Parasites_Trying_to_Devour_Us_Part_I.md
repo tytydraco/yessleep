@@ -503,3 +503,5 @@ She was kneeling in the living room. Rigid. Shoulders high. Her eyes met mine, w
 That’s when I heard a gun cocking and something cold being pressed to the back of my head.
 
 “Hands up, güero.”
+
+TO BE CONTINUED ..... [Part II](https://www.reddit.com/r/nosleep/comments/1n0jg2c/the_leeches_werent_the_only_parasites_trying_to/)
