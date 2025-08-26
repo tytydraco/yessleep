@@ -82,5 +82,4 @@ We’re still sitting here. There’s been little discussion about what we just 
 
 Seems like we’re all at a loss for words.
 
-  
-Update: [https://www.reddit.com/r/nosleep/comments/1n0bqr1/all\_the\_doors\_and\_windows\_in\_my\_university/](https://www.reddit.com/r/nosleep/comments/1n0bqr1/all_the_doors_and_windows_in_my_university/)
+UPDATE 2: [https://www.reddit.com/r/nosleep/comments/1n0c7re/all\_the\_doors\_and\_windows\_in\_my\_university/](https://www.reddit.com/r/nosleep/comments/1n0c7re/all_the_doors_and_windows_in_my_university/)

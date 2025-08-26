@@ -355,3 +355,5 @@ Human footprints.
 *Bare* human footprints.
 
 Footprints that looked awfully similar to my size.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1n0cjr5/im_trapped_on_the_edge_of_an_abyss_i_finally/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
