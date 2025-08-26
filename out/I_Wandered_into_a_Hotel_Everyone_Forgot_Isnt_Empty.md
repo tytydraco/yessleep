@@ -106,17 +106,17 @@ They waved at me from the porch, calling me back. I shook my head, preferring so
 
 I decided to take a shower. Everything was… perfect. Hot and cold, just as I liked it. A moment of normalcy.
 
-Then… a subtle tremor.
+Then… something felt off.
 
-Not an earthquake — nothing violent. Just a thin, shivering vibration from the floor. *Brrrrrr… brrrrr… brrrrr…* My head spun slightly at the odd sensation.
+Not a quake. Not a sound. Just… wrong.
 
-I grabbed my towel and rushed to the window. Below, the party continued as if nothing had happened. Laughter, music, lights — everything intact.
+The dresser wasn’t where it should be. The lamp sat at a slightly different angle. Even the air felt rearranged, like the room had exhaled while I blinked. The changes were so subtle they could’ve been my memory betraying me — but deep down, I knew they weren’t.
 
-I scanned the room. Nothing had changed. The furniture, the polished floors, the walls — all in place.
+My eyes drifted to the floor plan on the wall. The map stared back at me, but it wasn’t the same as before. Corridors curled into places I didn’t remember. A door I could’ve sworn existed was gone. The whole layout seemed to breathe in quiet defiance of what I knew.
 
-But then my eyes caught the map on the wall.
+I stepped back, towel clutched in my hand, heart hammering.
 
-It wasn’t the same. The floor plan I had memorized… it had shifted. Doors and corridors appeared in places I hadn’t seen before. The layout of the hotel, however subtly, was rewriting itself while I wasn’t looking.
+Through the window, the party raged below — laughter, music, lights — all untouched, all oblivious.
 
 A chill slid down my spine.
 
