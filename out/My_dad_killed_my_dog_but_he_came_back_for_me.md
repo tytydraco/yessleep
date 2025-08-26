@@ -85,3 +85,5 @@ Sometimes I wonder if digging up that box is what made him stop. Like maybe I ca
 Other times I wonder if it wasn’t Duke at all. If it was something else that needed a body, and it took his.
 
 And if that’s true, then I don’t know where it went when it was done with him.
+
+[My sub link](https://www.reddit.com/r/Grim_stories/s/srJx085YTV)
