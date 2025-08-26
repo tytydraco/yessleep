@@ -504,4 +504,4 @@ That’s when I heard a gun cocking and something cold being pressed to the back
 
 “Hands up, güero.”
 
-TO BE CONTINUED ..... [Part II](https://www.reddit.com/r/nosleep/comments/1n0jg2c/the_leeches_werent_the_only_parasites_trying_to/)
+TO BE CONTINUED ..... 

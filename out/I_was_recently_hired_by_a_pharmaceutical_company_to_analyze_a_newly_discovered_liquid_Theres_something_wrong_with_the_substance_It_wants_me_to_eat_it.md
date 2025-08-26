@@ -19,7 +19,7 @@ Every morning, the dim red light below the camera’s lens would blink off - som
 
 *I shouldn’t do it. It’s not safe. It’s not ethical.*
 
-My focus shifted to the dab of gray oil squirming between the glass slides. I couldn't ever *see* it move: not directly, at least. Instead, I observed trapped air bubbles dilate and constrict in response to the liquid’s constant writhing, like a collage of eyeless pupils looking up through the opposite end of the microscope, examining me just as much as I was examining it. 
+My focus shifted to the dab of gray oil squirming between the glass slides. I couldn't ever *see* it move: not directly, at least. Instead, I observed trapped air bubbles dilate and constrict in response to the liquid’s constant writhing, like a collage of eyeless pupils looking up through the opposite end of the microscope, examining me just as much as I was examining them.
 
 The sight was goddamn unearthly.
 
