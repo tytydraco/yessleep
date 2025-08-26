@@ -35,7 +35,7 @@ And, most pertinent to the discussion of temptation,
 
 That last one was a more *personal* question. One I wasn’t getting paid an obscene amount of money to get to the bottom of. 
 
-I found myself lost in thought, vision split down the middle between the slide and the gleaming chrome surface of the lab’s table. When I realized I hadn't been paying attention, my available eye darted into the periphery, ocular scaffolding aching with strain, stretching the muscles to their absolute limit. I swallowed the discomfort. Didn’t want to move my head away from the microscope and make what I was doing obvious.
+I found myself lost in thought, vision split down the middle between the slide and the gleaming chrome surface of the lab table. When I realized I hadn't been paying attention, my available eye darted into the periphery, ocular scaffolding aching with strain, stretching the muscles to their absolute limit. I swallowed the discomfort. Didn’t want to move my head away from the microscope and make what I was doing obvious.
 
 I saw the camera and gasped. 
 
@@ -107,7 +107,7 @@ At that point, though, the possibly fatal ramifications couldn’t have been fur
 
 I yanked the jeans from my calves, folded them haphazardly, cradled them in my armpit and sprinted to our first-floor bathroom.
 
-*Maybe I’d finally understand why I care.*
+*Maybe I’ll finally understand why I care.*
 
 Rubber gloves squished over my hands. I ripped a few sheets from a nearby paper towel roll and placed them gently beside the sink. The precautions were unnecessary, but they made me feel less rash. I set the jeans down on the makeshift workbench with reverence and took a deep breath. As I exhaled, my hand burrowed into the pocket and pulled the material taut.
 
@@ -149,7 +149,7 @@ I lied awake for hours each night. Sleep had been scarce since I ingested the oi
 
 The clock ticked from 4:29 to 4:30AM, and it was time to begin my new morning routine. 
 
-Sunday night, I’d set my phone alarm for 4:30 AM and slip it under my pillow. When morning came, it didn't ring; it vibrated. The kids and the wife slept lightly, and our cramped city apartment had walls thinner than paper. They appreciated the lack of a proverbial air-raid siren blaring at the crack of dawn, though I’d be lying if I said the device convulsing against my head was a pleasant way to be yanked from the depths of R.E.M. sleep.
+Sunday night, I’d set my phone alarm for 4:30 AM and slip it under my pillow. When morning came, it didn't ring; it vibrated. The kids and the wife slept lightly, and our cramped city apartment had walls thinner than paper. They appreciated the lack of a proverbial air-raid siren wailing at the crack of dawn, though I’d be lying if I said the device convulsing against my head was a pleasant way to be yanked from the depths of R.E.M. sleep.
 
 Once I silenced the contemptible thing, I’d drag myself out of bed as quietly as my groggy limbs would allow. From there, I’d jump into meditation. Wearily, I might add. It was a daily activity, but I didn’t do it by choice. No, it was a company mandate. I laughed when my boss explained the requirement. Prioritizing employee *“wellness”* is big right now, I understand that, but does a chemist really *need* to meditate?
 
