@@ -66,7 +66,7 @@ I swallowed. The thought of us three, stepping further into this impossible plac
 
 As we walked toward the front lawn, expecting the lobby to appear, my eyes drifted back to the gate I had come through — still in ruins, vines clawing up the iron grills.
 
-Half-open, it hung like a silent witness to my intrusion earlier. For a fleeting moment, the wind twisted through the bars, and I swear the gate whispered directly to me, "*Leave now. You have to leave now."*
+Half-open, half-close, it hung like a silent witness to my intrusion earlier. For a fleeting moment, the wind twisted through the bars, like the gate whispered directly to me, "*Leave now. You have to leave now."*
 
 I paused, caught between the crumbling gate and the glowing porch. My foot lifted toward the ruins. *Should I leave?* The thought pulsed sharply in my chest.
 
