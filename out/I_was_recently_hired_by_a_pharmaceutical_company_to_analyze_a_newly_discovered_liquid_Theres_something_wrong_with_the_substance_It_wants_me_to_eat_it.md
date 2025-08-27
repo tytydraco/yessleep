@@ -167,7 +167,7 @@ Needless to say, I spent an hour each morning clearing my mind, precisely as ins
 
 I always resisted the meditation, but it’d become easier after ingesting the oil. More intuitive. I slipped into a state of emptiness with relatively little effort. 
 
-That said, I began to experience a massive head rush whenever I was done. Felt like my head was tense with blood, almost to the point of rupture. The sensation only lasted for a minute or so, but during that time, I felt… I don't know, detached? Gripped by a sort of metaphysical drowsiness. All the while, a bevy of strange questions floated through my bloated skull.
+That said, I began to experience a massive head rush whenever I was done. Felt like my head was tense with blood, almost to the point of rupture. The sensation only lasted for a minute or so, but during that time, I felt… I don't know, detached? Gripped by a sort of metaphysical drowsiness? It’s hard to explain. All the while, a bevy of strange questions floated through my bloated skull.
 
 *Who am I? Where am I? -* and most bizarrely - *Why am I?*
 
@@ -193,7 +193,7 @@ The stout, sweaty man grined as I enter: whether the expression was related to m
 
 *“Care for a croissant?”*
 
-He reached his grubby paw towards the box. I sat in an empty, weathered rolling chair next to him and flip open the lid. The dull gleam of the monitor wall reflected off the non-descript, shield-shaped badge tethered to his breast pocket. We shot the shit for a grueling few minutes - reviewing hockey statistics and his takes on the current geopolitical landscape - before I felt empowered to the ask the question that’d been burning a hole in my throat for weeks.
+He reached his grubby paw towards the box. I sat in an empty, weathered rolling chair next to him and flipped open the lid. The dull gleam of the monitor wall reflected off the non-descript, shield-shaped badge tethered to his breast pocket. We shot the shit for a grueling few minutes - reviewing hockey statistics and his takes on the current geopolitical landscape - before I felt empowered to the ask the question that’d been burning a hole in my throat for weeks.
 
 *“Say, Jim - I think the camera in my lab may be on the fritz. The bulb below the lens flicks off sometimes, like its rebooting or freezing or something, though I heard it might be a normal part of the video system, synchronizing the feeds for the whole compound. What do you think? Don’t want anyone questioning my work because the monitoring has interruptions…”*
 
@@ -271,7 +271,7 @@ When I opened my eyes, her smile was back. Wide. Tooth-filled. Rows and rows of 
 
 *"What the hell is wrong with you?"* I whispered. 
 
-Starting from the bulb farthest from the bedroom, the hallway lights behind her flicked off. One by one, the squares of light disappeared. A wall of impenetrable darkness steadily crept forward.
+Starting with the bulb farthest from the bedroom, the hallway lights behind her flicked off. One by one, the squares of light disappeared. A wall of impenetrable darkness steadily crept forward.
 
 *Click. Click. Click.*
 
