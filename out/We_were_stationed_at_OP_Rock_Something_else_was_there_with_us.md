@@ -83,3 +83,5 @@ That night nobody slept. We sat with rifles clutched to our chests, staring into
 I don’t know what was worse: the Taliban outside, or the things inside the mountain with us.
 
 But I do know one thing: OP Rock was never ours. It belonged to the dead. And maybe… it still does.
+
+Thank you for following along. This was Part 1 of my experience. Part 2 continues the story here: [https://youtu.be/tuh1xaVhcrk](https://youtu.be/tuh1xaVhcrk)
