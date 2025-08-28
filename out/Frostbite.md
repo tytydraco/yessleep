@@ -1,33 +1,336 @@
-Have you heard the urban legend 'Frostbite' before? I grew up in the rural, Canadian mountains and I'm not sure how known it is. I was adopted at an early age and my adoptive mother (Rosemary) used to tell me about the beast that lives at the top of the highest mountain here. She said it lives at the top because that's the coldest area and likes the lowest temperature possible. In the winter, as the weather gets colder, it supposedly travels down the mountain in search of food. No one has ever seen the beast and lived to describe its appearance... However, bodies have been found in the snow, partially devoured. The species of the beast remains a mystery. The bite marks don't appear to be any animals native to our region. 
+Work had been ramping up over that month and though the advent of a couple of new hires did balance out our two no-shows, they just weren’t pulling their weight.
 
-Rosemary seemed to enjoy scaring me by telling me that Frostbite is coming to find me and eat me. The only way I ever made her smile was when I was terrified. Every winter, I would have to check the thermostat before going outside and playing. We lived at a ski lodge and the only fun activity to do was going out, skiing by myself. There were no kids my own age living near-by. In retrospect, the isolation probably made Rosemary a little crazy, too. Going out skiing was a good way to avoid her. My adoptive father (Chris) wasn't any help against her. In fact, they both treated me like "the help" and never let me forget I'm only their adopted child, not blood-related. Chris was a wealthy, retired ski champion. They believed because they adopted me from less fortunate circumstances, I should be grateful. As I got older, I began to resent both of them.
 
-As a teenager, my fear of Frostbite faded. I started to stay out skiing later and I got pretty good at it. The problem with skiing down the mountain was that it's a long walk back uphill, with my skis in hand. On my way home, this especially cold evening, Frostbite crossed my mind again. The darker it got, the more I began to regret my decision of being out so late. Suddenly, a bright light shined towards me from behind. I quickly turned to see a jeep driving towards me. I sighed in relief. The driver rolled down the window and asked me if I knew Chris. I explained he's my adoptive father and the man offered me a lift to the lodge, before putting my ski equipment with his, on top of the jeep. It had been a while since I spoke to anyone aside from Chris and Rosemary so I tried to strike up a friendship. 
 
-The man's name was Tom said he was a former colleague of Chris'. He looked to be in his 30s and Chris was about 60 at the time and retired several years prior. It was a little odd. His radio was on and even though signal was terrible, I could hear parts of the local weather report. It said it was getting especially cold that evening. All I could think about what Frostbite and how lucky I was that Tom was taking me back home. Back at the lodge, Rosemary was standing on the front porch, smoking a cigarette as the jeep pulled up. I asked Tom to wait until the car for a minute as I explained the situation to Rosemary. Like I said, she had become a little crazy and I didn't want her to lash out in front of Tom. I apologised to her for being late. She smirked and told me she saw the thermostat. I knew what she meant. I explained who Tom was and that he was there to see Chris. Rosemary walked over to the jeep and invited Tom inside. I stayed behind to untie my ski equipment and then followed them into the lodge. 
+Almost a week by that time with only radio silence on Hon’s end. Unbelievable for a guy who frequently clocked overtime hours and had been here as long as I had.
 
-Chris was delighted to see Tom and I overheard them reminiscing about ski races they had both competed in. As I walked into the living room, Tom was admiring the many medals and trophies Chris had displayed around the room. Chris told me to make them all drinks, which I did. This gave me a chance to further eavesdrop on their conversation. It turns out Tom was a current, ski champion that never got chance to compete with Chris. Chris retired around the time Tom started to compete. As I brought them their drinks, I distinctly remember Tom saying ""Did you know I'm world champion now? Like I said, I really have no contemporary in the sport." He continued "I'm not suggesting you risk your legacy at your current age but off the books, I'm challenging you. Any mountain you like. Let the best man win." Chris replied "It's lonely at the top, huh?" As he looked at the highest mountain through one of the lodge windows. This was the only mountain Chris was hesitant to ski on, due to it being very steep and dangerous. I never dared to either. 
 
-Rosemary told me that the mountain top is the coldest area of the region, meaning it's likely where Frostbite lives... If you believe the legend, that is. "No one has ever skied down it successfully", Chris explained "But if anyone could, it would be us. I look at that mountain every day. It torments me." Tom replied "If that's the mountain you choose, let's do it." Rosemary interrupted by asking "Is this a bet? What would my husband even stand to gain if he makes it down alive and beats you?" Chris explained this wasn't about money, only reputation and love for the sport. Despite her objections, they toasted to the upcoming race and offered Tom the guest room for the night, which he accepted. The race happened the following morning. I watched them leave in the jeep from my bedroom window. No goodbyes. That was the last Rosemary and I ever saw of either man alive.
 
-Several years pass and I was now in my twenties, still living at the lodge with Rosemary. She still treated me as her servant but due to her smoking, she had become ill of health. Honestly, I was glad. It wouldn't be long until she passed away and I would inherit the lodge and my parent's wealth. It's what kept me going through all of her mistreatment. One day, as she was coughing her lungs out, she lamented to me how she wished for closure about Chris before she died. When he disappeared, a search party was organised but called-off very quickly. Like I said, the mountain is very dangerous. Searching it all was unrealistic, even for two, public figures. 
+The new guys tried, I could tell, but it wasn’t like out payloads were heavy, rather the nature of what we stored kinda rubbed people the wrong way. We stored mannequins. The human like plastic ones, wooden torso racks and even the thin colourful sports blocks.
 
-Aside from the jeep, no trace of them was ever found. Rosemary wanted to find their bodies. I suggested that only experienced skiers have a chance of making it all the way down the slope. "I've watched you ski", Rosemary said "What's stopping you from going down there yourself?" That was the closest thing to a compliment I ever got from her. I stuttered before managing to get out one word "Frostbite." She turned away from me in disgust. Later, I noticed her staring out of the same window Chris did, contemplating. She told me to find three, professional skiers in the area and invite them to the lodge, which I reluctantly did. 
 
-It was refreshing to have visitors at the lodge. They weren't exactly champions but they were the best I could find. The first two to arrive were young men (Roger and Kenny) and they just seemed happily to be getting a free, ski trip and accommodation. The final skier (Amelia) arrived and was drop dead beautiful. She looked like Rosemary did in photos of her younger days, before I was born. Amelia assumed I was hired help and threw her luggage at me. I wasn't even annoyed. A woman as beautiful as her could mistreat me as much as she likes. You can probably tell I didn't get to see many women while living in the mountains. I became immediately drawn to Amelia at first sight. While escorting her into the lodge, I then remembered what was in store for her. She recognised Chris' photos on the wall and said she's a fan of his. "Whatever happened to him?", she asked. As I hesitated to explain, the other two skiers introduced themselves to her. Good timing. I discreetly went to Rosemary's bedroom and told her all of her guests had now arrived. I summoned up the courage to ask her "Are you going to tell them about Frostbite?" She scolded me for even bringing that up. As we walked towards the living room, I noticed the thermostat. Again, it was one of the coldest days of the year. 
 
-I had a horrible feeling about Rosemary's scheme but at this point, I was in too deep to prevent it. Rosemary quickly changed her demeanour as she introduced herself. I had never seen her so gracious. She explained that Chris was elderly and mentally unwell when he got lost on the mountain. This was definitely bending the truth but it put any trepidation the guests had about the mountain at ease. The first skier to make it down the mountain wins the lodge when she dies. I was lost for words. All these years I served her and she offers my rightful inheritance to strangers. What next? Rosemary offers an additional cash prize of $50,000 to anyone who finds her husband and can prove it. I struggled to maintain my composure. Amelia bluntly asked "How can we prove we found him? We can't exactly carry an entire body down to the bottom of the mountain." Rosemary replied "His wedding ring will do." She then directs her guests to a table with an assortment of tracking devices and body cams that I bought for them. The body cam to prove they skied down the mountain and the tracking device in case they get stuck on the mountain, for whatever reason. All three skiers accepted the challenge.
+The uncanny valley does get to you early on. Even our long-time staff can occasionally still get jumpy, regardless of how much we think our minds have adjusted. 
 
-The next morning, I watched Roger, Amelia and Kenny drive away towards the mountain. Rosemary turned on the TV monitor. The screen was divided into quarters so we could watch all three body cams at the same time, with the bottom right corner being left blank. "Get me a glass of brandy, will you?", she demanded. Overcome with anger, I snapped at her. "I'm your son! How can you give away all of my inheritance!?" I expected her to hit me for my disobedience but this time, she didn't. She said "This race includes you... You want the money and lodge Chris worked all his life for? Do what he did. Go earn it." After giving it some thought and looking at the thermostat, I couldn't. I didn't have the nerve. Rosemary laughed at me and said "You better hope none of those skiers make it back here alive." I sat and watched the events unfold with her. I was keeping an eye out for any sign of Frostbite. Roger was the first to be eliminated. He went off a cliff, landed on a boulder and stopped moving. The impact sounded like bones breaking. I wanted to call the police but Rosemary wouldn't allow it. She seemed amused by the situation. Kenny was in the lead until he fell into a tree and stopped moving. Amelia was the most cautious and we watched her look around for anywhere Chris could be. Distracted, she slipped and began rolling down the slope. I was horrified. Not her. She was wailing in pain and had broken her skis. 
 
-She dragged herself into a near-by cave. There she discovered the partial remains of a corpse. As Amelia got closer, Rosemary and I made out that it was Tom. His frozen face was intact but little else. Something had been eating him... "It's Frostbite! Frostbite ate him", I exclaimed. Amelia realised this wasn't Chris and carried on through the cave. It was then she found Chris, frozen in the ice... Eating Tom's flesh from the bone. It was then I realised Frostbite wasn't a beast... It was people. People in the mountains who were desperate and had to eat each other to survive a little longer. Amelia proclaimed "I found him... But I can't make it back by myself. Someone come and get me please." She was right. Injured and without skis, there was no way she'd make it back by herself. I picked up a body cam, tracking device locator and my ski equipment and packed it into the family car. As I drove away, Rosemary continued to drink and watch the monitor. All four quarters now functioning. 
 
-As I went down the mountain, I saw the remains of Roger. His head was crushed and his brain was splattered across the boulder. It was a horrifying sight... Next, I skied towards Kenny, who was impaled by a tree below. His intestines were wrapped around the top of the tree like they were Christmas decorations. At this point, I was becoming desensitised by all the gore I had seen that day. I was thinking about Rosemary watching my body cam footage and the sick pleasure she was probably getting from all this. My locator directed me to the cave and I greeted Amelia. She looked in bad shape and didn't move much. "You saved me", she said. I was proud of myself... And I hoped Rosemary was a little proud of me, too, watching from home. Amelia said "One problem. I couldn't find Chris' ring. I looked everywhere. Is it possible he didn't bring it with him?" I wasn't sure but I figured Rosemary had seen Chris through our body cams so the ring wasn't necessary. More importantly, I realised in my haste, I hadn't really planned how to get Amelia down the rest of the mountain. Damn it!
+I’ll admit, when I first started, I was petrified, almost quitting on two occasions. Most notably when another member of staff pranked me as I tried to pick up, what I thought was a lifeless plastic shell.
 
-I made a make-shift sleigh with my skis and some of Chris' and Tom's items and began to drag Amelia out of the cave. I had to move Amelia slowly so not to injure her further. It was far from ideal but I figured Rosemary would call the authorities for help... We begged her to... Several days passed. I dragged for as long as I could each day. The hungrier and weaker I got, the more time I spent resting. We resorted to eating snow along the way. At this point, we were both starving and close to death. Amelia's face was now blue and zombie-like and she said mine was, too. We were getting close to the bottom and had to keep going. The lodge was finally in sight and I collapsed. I was unable to get up after dropping to my knees. "We're here by I can't go on", I told Amelia. She untied herself from the sleigh and miraculously carried on walking without me. I was stunned. That bitch. She was walking with a limp but she was in much better shape than me. "I guess I recovered... I'll come back for you", she promised. I didn't believe her but I strangely admired the way she used me. I was falling in love with her. 
 
-I supposed Amelia had won and inherited the lodge but in the moment, I was only concerned with surviving. After resting for a short time, I managed to drag myself up and continue to the lodge. I was too close to let myself die out there. Every step was more painful than the last. As I got to the driveway, I began to smell food. It seemed Rosemary had cooked one of her roast dinners. Gravy, roast beef, stuffing... Was I hallucinating? I felt I was arriving at the gates of heaven. I opened the door and followed the smell into the kitchen. There was nothing but empty plates... Well, there was some dried gravy leftover, which I immediately licked clean off the plates. I then drank and ate what was left in the fridge, which was very little. I was still starving. Rosemary stepped into the doorway. "Oh. You're back. I didn't prepare any food for the loser", she said. Rosemary dropped Chris' wedding ring onto the counter. "Amelia stashed it when you weren't looking. Rather amusing, isn't she? She's won the lodge and the cash price." In that moment, my anger for Rosemary hit boiling point. 
 
-It was beyond my control. I launched at her, falling down on top of her. She tried to scream but her lung issues prevented it. I tore her throat out with my teeth and ate it. Honestly, it was delicious. I couldn't stop myself. I continued eating her flesh off the bones until my hunger pains eased. "Where is Amelia?", I wondered. How would I explain this? Would she understand? I crept upstairs and found her sleeping in the guest room. She was breathing softly. I didn't wake her and crept back down. A mirror in the hallway caught my attention. My skin was blue, my eyes were bloodshot red and Rosemary's blood was dripping all down my chin. I looked like more of beast than man. I was staring into the face of Frostbite, terrified of what I had become. Suddenly, I snapped out of it. Time to clean up this mess before Amelia wakes up. With no food left in the house, I decided to trim the remaining meat off of Rosemary with a carving knife. Waste not, want not. 
+Finishing up for the evening, my eyes begged for a momentary rest, though I still needed to crest the hurdle that was an hour’s commute home.
 
-With just her skeletal remains left, I dragged her outside and buried her deep in the snow. The local authorities will chalk it up to another Frostbite killing. For good measure, I deleted all body cam footage of the ski race. No motive. As far as the authorities would be concerned, I loved my mother. She left and I haven't seen her since. These things happen. Finally, I mopped up the blood and cooked the rest of the meat myself. By that time, it was morning and good timing for breakfast. Amelia came downstairs as I was preparing the meat. She was surprised but relieved of my presence. "Sorry I left you. I told Rosemary you were out there. Where is she anyway?" I explained that Rosemary left and Amelia was now the benefactor of her estate. Her attitude immediately shifted and she remained me of Rosemary. She sat in the dining room and I served her breakfast. Medium rare steak with gravy. As she took her first bite, I stood patiently waiting for her approval. "You can stay", she said, satisfied with my cooking. I'm now living as her servant and I'm the happiest I've ever been. 
+
+
+It was winter in the north, and as usual, storms followed the cold weather. Rubbing my gloved hands together as I trudged over to my aged vehicle, it took me a good four or five tugs at the handle before the frost ladened door hinges relented.
+
+
+
+Mindlessly charting my way home, I was stopped by a pair of beaming headlights and an approaching officer. Quickly straightening my posture and rubbing my eyes, I wound down the window, putting on a well-rested persona.
+
+
+
+“Hi there bud, unfortunately this road is shut off, at least for the night. I’m going to have to ask you to turn around.”
+
+
+
+His slightly tired yet authoritative tone kept me upright in my seat.
+
+
+
+“Is the road flooded again? I thought that lake was being drained, you know? Because of that missing girl.”
+
+
+
+I hesitated after speaking, realising I may have poked at a saw spot for the department.
+
+
+
+“Look, we’re doing what we can, but it’s hard to keep up.”
+
+
+
+The fatigue in his voice implying something, most in our area, were all too familiar with.
+
+
+
+With the biting wind still cutting through us both, we said our goodbyes as I turned to take another route home. Barely minutes into my detour the soft patter of snowflakes began to lull my eyes closed.
+
+
+
+Breaking me from my apparent blackout were the skidding sounds of my own tires, spinning as they flicked up spirts of frozen dirt and slurry from the road’s banks. Pushing the line between a careening off spin into the increasingly closing foliage, I opted for a short stop.
+
+
+
+Just my luck, a gas station only a mile or so ahead, through the fog. At the time I remember being thankful seeing that frostbitten red sign, a chance to make a stop in a safer location, though the anglers light is often enticing.
+
+ 
+
+\-
+
+ 
+
+Miraculously my aged vehicle managed to fight through the snow-covered icy lane as it rumbled to a stop under the shelter of the fuel canopy.
+
+
+
+With my heating knackered and the storm striking ablaze as my vehicle scraped its undulating strip, I was locked in a vessel akin to a refrigerator, crystalising me to the torn leather seat. Scanning the glazed windows of the station, there seemed to be no movement, not assisted by the lack of any internal or external lights.
+
+
+
+Hoping and praying the station wasn’t closed, I flung my coat on and made a slippery dash for the front doors, avoiding that darker mound laying parallel to the building. I could have easily mistaken it for the onrush encircling me, but a shrill whisper piggybacked those swirling gusts.
+
+
+
+Stopping and scanning my obscured surroundings, the ominous stumps of the encircling tree line didn’t fill me with enough fear to stop my pursuit.  
+
+
+
+Locked. Great I thought, as I attempted to see if I could grab the attention of anyone who may have been residing within. Though it was hard to make out, I could see the silhouette of people inside. Oddly my repeated knocks on the front didn’t elicit even a glance as I questioned if they were just constructs of my weary mind.
+
+
+
+On the verge of giving up and just fighting through the torrent, I noticed the fire door was ajar. Maybe the power is out so the front isn’t working, that thought gave me a small amount of hope that I could escape the onrushing blizzard.
+
+
+
+Pushing the fire door open and stepping inside I was hit by the cool air and smell of burned plastic. Guessing their heaters were as busted as my own, I strode to the counter where I’d seen the two silhouettes.
+
+
+
+My pace dropped as I moved closer. The two figures I had mistaken for living, breathing people were in fact mannequins. Two plastic mannequins, one female and one male, both wearing a mixture of blue and white shirts stood motionless, locked in silent conversation.
+
+
+
+Scanning their figures, my mind instantly went to Hon and his family man dress sense. The clothes they modelled were right up his alley, even down to the striped pattern.
+
+
+
+Initially chuckling to myself at the likelihood these were from our own warehouse, a deep sigh flowed out at the thought of once again being on my own. Part of me was happy that I didn’t have to engage in meaningless polite conversation, due to my restless state, though company might have reduced my hallucinatory fatigue.
+
+
+
+Shivering as those rampant chills permeated the carried by that shrill whisper, I had two options, wait out the increasingly violent storm here, or take my chances on the road, with an already tired mind. Deciding against wrapping myself around one of the roadside trees, I searched the dark room for a fuse box.
+
+
+
+Though I was no electrician, I needed to at least lighten up my surroundings, maybe even fix their busted heating unit. With the ferocity of that maelstrom not letting up and the paper-thin walls offering little resistance, I need some semblance of warmth.  
+
+
+
+Striding away to the back, I thought I was passed that fear, but the smooth, blank, expressionless faces must have still touched a nerve. Every minor sound or addition of movement had me flicking back to the two mannequins, and each time they were stood in their same positions, devoid of movement.
+
+
+
+Obviously, that’s what they should be doing, nothing, but every time my eyes rose to meet their glossy finish, I expected them to have inched closer, plastic weeping angels.
+
+ 
+
+\-
+
+ 
+
+Swinging through the already open door, I entered the increasingly tenebrous office, guided by my already wavering phone torch. Finding the fuse box, I reached for the front panel, expecting to see some minor damage that would be quick and easy to fix. To my surprise there was nothing. Swiping for the raised side of the box my hand simply caressed the cold stone wall.
+
+
+
+Rubbing my eyes in a foe attempt to refocus, almost as if it was my weary condition distorting my surroundings, again … nothing.
+
+
+
+The flat front panel was nothing more than a competently drawn on façade.
+
+
+
+Sprouting deep within my chest a seed of fear began to grow, once buried under the layers of ice-cold ignorance, now emboldened by my overloading mind.
+
+
+
+Scanning the derelict office, faint strands of light peered in through the buckled back door as they melded with the petite cone of light my phone gleamed. In those evening rays that series of desks, office cabinets and storage racks, were illuminated, bearing their one note grey visage.  
+
+
+
+Aimlessly tracing my hands over each piece of furniture, a realisation dawned on me that only sought to feed that growth within. The room was nothing more than a half-baked facsimile, just convincing enough to draw me closer. Each carefully crafted block, nothing more than a protrusion of the aged monolith I resided in.
+
+
+
+Breaking me from my slack jawed position were a series of repeated thumps emanating from the main store area. Why that primally morbid curiosity took hold I can’t say, though some part of me wanted answers, and that was the first sign of anything animate.
+
+
+
+Bursting back through the doorway, my stupefied gaze beamed across the room, expecting to see those frozen silhouettes cracking as their joins contorted with ill intent, divorced from their manufactured design.
+
+
+
+Instead, one of those ductile figures lay, face down at the foot of its compatriot. Actually, analysing it for the first time, its plastic sheen seemed rubbery, more in line with the smooth outer layer of a balloon.
+
+
+
+Kneeling to better examine the female mannequin and ascertain the location of its tag, another thud rippled the thin glass ahead. Scanning up to its glazed finish, burst forth a tendril of fear from that internal seed.
+
+
+
+A series of frozen, crystallising handprints were plastered across that large translucent wall. Their form initially subhuman, with digits yes, but most elongated, fused at the second joint or split at the tip, slowly retracted.
+
+
+
+As I followed their conforming palm across the glass, they finally became human-esque, evolving from a primal appendage to a sophisticated one. However, their trajectory burned away any thought of the structure I resided in.
+
+
+
+Their prints arrowed for the fire door. A sharp piercing whisper crackled as it tore into my inner canal. Its disorientating call almost enough to mask its rapid crunching steps in the still twisting torrent outside.
+
+
+
+Dragging myself up and over to the heavy-set door, I slammed all my residual weight into its metallic frame. Though its hinges resisted, they quickly fell to the shear panic induced heaving my draining body mustered.
+
+
+
+As its locks clicked into place, a cascade of soft thuds ricochet off its frostbitten outer layer. They could have simply been a product of the hailstorm outside or worse a feral entity seeking passage into my newfound sanctuary from the cold.
+
+
+
+That seems far too generous of a description, for what constituted a sheet of paper, crudely likened to a building with as much torpor as my mind screamed out for.
+
+ 
+
+Stepping backwards, restless and limp, my heel connected with what I would have initially deemed a small shelf, though with my enlightenment, was nothing more than a painted slab, jutting forth from my self-induced prison.
+
+
+
+Laying there, staring up at the rough jagged light fixtures, my oscillopsia swayed their petrified form. I was on the brink. Sleep depravity would set in soon and with no safe way out, my only option was to curl up and hibernate the twisting storm.
+
+
+
+Clambering over the facedown mannequin and using the only other object not tied down as a crutch, I made my way up to my shaky feet. Peeling away those already crystallising garments, they’d have to do as a makeshift cover.
+
+
+
+With my already failing vision, I recall disposing of the all too stretchy epidermic sculptures in one of the far corners of the store area, not comprehending the blind eyes tracking my shambling movements.
+
+
+
+Just barely making it back to my chosen bed, though it was cramped, the cashier’s desk would at least cover me from three sides. Slumping under the granitic andesite arch, my vision blacked as I faded.
+
+ 
+
+\-
+
+ 
+
+Dreams are often morsels of deeply ingrained events moulded to present emotions, mine were no different. Waking, I was face down in the snow. Every joint ceased as my rigor mortis ladened extremities were unmoving ridged in their numb statuesque state.
+
+  
+Straining to lift my frozen neck, all in my line of sight was white, as the crunch of powdered snow emanated from ahead. Tearing icy blades tore into my half exposed back as the blizzard savaged my lifeless body.
+
+
+
+What I perceived as a whisper in that dream world, quickly developed into a burning breath as it stuns against my numb blue ear as it danced across the howling wind.
+
+
+
+Jolting up and into the concrete cocoon I had formed form myself, my body quickly caught me up to the situation I was still in. Though I couldn’t remember my dream fully, the feeling of being watched as I traversed that dreamscape was as vivid as the feel that now overtook my shivering body.
+
+
+
+Crawling out of my frost blanketed hiding spot, the beating of the external storm still played its ever-present ambient tune. Just moving clued me into how ling I been curled up in that packet, with the tips of each extremity vibrating a numb stinging pain in unison.
+
+
+
+Crystalising as it bellowed forth from my agape mouth a fog-like breath clouded my field of view. My breath had always been visible, but to freeze that rapidly the building may as well not even existed, exposing me to the elements without remorse.
+
+
+
+As those tiny flecks solidified and fell to the ground in a cascade of patters, my vision locked on the three pairs of eyes, peaking over my makeshift hiding spot.
+
+
+
+Scrambling to my feet as I collided with the back wall, all three mannequins stood, shoulder to shoulder as thy faced me. Their glossy finishes coated with an icy layer reflected back my panicked gaze.
+
+
+
+How had they got there? Who’d moved them? Were they alive?
+
+
+
+Questions floated around my scrambled brain, all without answer, like a test I hadn’t revised. That burning in my chest fuelled the growth as it took hold, ensnaring my limbs and rooting me to my post.
+
+
+
+If they were going to attack, when and what for? Why had I been lured into a fake building and frozen half to death?
+
+
+
+We stood, locked in our unblinking contest for what felt like an eternity, waiting for that deep routed phobia to spring to life, pouncing on my mirrored figure. However, it didn’t come.
+
+
+
+Regaining my nerve and breaking from my mental vines, I took a step to my right and away from the counter. I’d been eyeing up the door to the office in a thinly vailed attempt to flee, though it seemed that my retreat wasn’t necessary.
+
+
+
+As tethered to their cracked plastic base as they had been since the moment I entered, they were stationary. Half laughing, half on edge still, I turned towards that adjacent room. Even if I knew they weren’t animate, they’d been moved by someone, and I needed to at least put some distance between us.
+
+
+
+Recollecting where and when I’d last seen them, the minuscule advent of movement and my crystal-clear memory collapsed the vessel holding back my fear.
+
+
+
+Cindering the inside of my brain with the picture in my periphery, I fed that growth one final time. Scrambling for the office door, its head snapped to attention as it broke free of its mould.
+
+
+
+Though the frozen cogs had almost ceased their churning, the burning fear sprouting further rejuvenated my atrophied muscles, if only to flee.
+
+
+
+The shattering, cracking of its joints echoed across the shadowed store as it dropped into a scuttle. Nails scraped the ground as it hurtled at a breakneck pace in my pursuit. Though the moonlit night peaked through the translucent windows, its casted silhouette engulfed my childish form.
+
+
+
+Running for my life back to my bedroom like a child from the shadow at the foot of the stairs, my only salvation was the meagre safety that office door provided.
+
+
+
+Gripping the handle and flinging it back with my entry, I managed to dive into the room, only just unscathed.
+
+
+
+Falling as those mechanisms clogged with lactic acid in a sudden all-encompassing wave of pain and returning, ever present, restraining cold. My body jolted back in order to keep the door from caving in with that creature’s pursuit, but again, nothing.
+
+
+
+Confined to my shrinking casket, the ambient tap of the ensnaring blizzard returned as I slumped against the monolith, I willing bound myself to.
+
+ 
+
+\-
+
+ 
+
+Getting this down now is about as much as I can handle. Though the back door is exposing me to the elements at a more considerable rate, I barely have the strength to move my finger let alone crawl over to that snow propped opening.
+
+
+
+Its whispers have returned, a reminder that it is waiting for my composure to slip. When that happens, I fear that it’ll have a new puppet.
+
+
+
+My knuckles aren’t responding anymore, falling to the cold as my fingers and toes did. I can barely tell if I’m even breathing anymore, those once glassy shards cutting my insides now as numb as my expressionless face.
+
+
+
+If I’ve got any chance, I’m going to have to make a break for my car. Who knows if it’s as helpless as I am, but I can’t stay frozen to this door indefinitely.
+
+
+
+It’s probably just another trap, masterfully crafted by that creature posing as a statuesque phobia, but its not hurt me yet, even with the multitude of chances it’s had.
+
+
+
+I don’t know if my body can even stand, but I will. That seed hasn’t stratified from the cold yet, so fuelled by its ember I have to try.
+
+
+
+Maybe I won’t even make it out the door, maybe that was my body, simply a bump in the powdered snow, half way to freedom. Who knows, but that storm howls and I am cold.
