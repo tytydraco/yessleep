@@ -42,7 +42,7 @@ He handed me a business card and asked if I’d like a free cone, which I declin
 
 “I insist you try the product you’ll be selling, Sammy boy,” he said, handing me a perfectly curled cone of chocolate ice cream with white chocolate flakes on top.
 
-I wasn’t sure what was weirder: the fact that I hadn’t seen him even look away from me to make the cone, or the fact that he was handing me my favorite ice cream with my favorite toppings. I took the cone from him in bewilderment. I decided not to question it. Even though alarms were going off in my head, I took a chance. I licked the cone, and immediately the anxiety disappeared. It was like nostalgia in a cone—I was 10 again.
+I wasn’t sure what was weirder: the fact that I hadn’t seen him even look away from me to make the cone, or the fact that he was handing me my favorite ice cream with my favorite toppings. I took the cone from him in bewilderment. I decided not to question it. Even though alarms were going off in my head, I took a chance. I licked the cone, and immediately the anxiety disappeared. It was like nostalgia in a cone, I was 10 again.
 
 “Wow, Mr. Andes, this ice cream is honestly some of the best I’ve ever had!” I said between licks.
 

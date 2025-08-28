@@ -1,3 +1,7 @@
+FIND [PART II](https://www.reddit.com/r/creepypasta/comments/1n1xppo/the_leeches_werent_the_only_parasites_trying_to/) HERE!
+
+
+
 It had been exactly three weeks since I’d moved out of Claudia’s apartment and into this crumbling, half-condemned corner of Los Angeles. The kind of neighborhood people warned you about on online forums and true crime podcasts. Stray dogs howled at night. Power flickered if you dared to microwave something. The streets had more cracks than pavement, and the buildings leaned like they were whispering secrets to each other.
 
 But no matter how hostile or decayed this place felt, it was still safer than where I came from.
@@ -504,4 +508,4 @@ That’s when I heard a gun cocking and something cold being pressed to the back
 
 “Hands up, güero.”
 
-TO BE CONTINUED ..... 
+TO BE CONTINUED ..... [PART II](https://www.reddit.com/r/creepypasta/comments/1n1xppo/the_leeches_werent_the_only_parasites_trying_to/)
