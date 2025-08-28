@@ -136,7 +136,7 @@ A smooth feminine voice crackled down from some hidden loudspeaker in the room, 
 
 "It has come to our attention that you breached our agreement today."
 
-"What do you mean?" 
+"What do you mean?"
 
 The person behind the glass gave an impatient sigh.
 
@@ -204,4 +204,4 @@ I don't know how much longer I have. Last night, an entire hand crawled from my 
 
 \_\_
 
-The apartment buzzer just rang. I already know who it is.
+The apartment buzzer just rang. I already know who it [is](https://www.reddit.com/user/3_Magpies/comments/1n1wlbl/3magpies_story_masterpost/).

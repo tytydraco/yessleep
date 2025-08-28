@@ -84,4 +84,4 @@ Years later, Jane admitted to me what she and Eliza had actually seen on that fa
 
 One more detail about this recollection strikes me as bizarre. I had always been small for my age. My cousins stood about a head above me.
 
-After that day—and I swear this is true—I was the same height as them. For the first time in my childhood, we were eye to eye.
+After that day—and I swear this is true—I was the same height as them. For the first time in my childhood, we were eye to [eye](https://www.reddit.com/user/3_Magpies/comments/1n1wlbl/3magpies_story_masterpost/).
