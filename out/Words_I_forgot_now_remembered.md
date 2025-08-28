@@ -1,0 +1,19 @@
+I am so sorry. I really did try not to remember what he told me.
+
+The man came up to me one day. I was on a deserted street with only a few strangers scattered about here and there. Yet this man still crept up on me. I didn't hear his footsteps. I didn't see his shadow casted over me. All at once, I just felt his breath on my neck. It scared the shit out of me. I spun around, reaching for my pepper spray in the process, but the man grabbed my arm before I could do anything.
+
+He leaned in until his mouth closed in on my ear. He was almost kissing it. When he spoke, I shuddered and closed my eyes. I didn't want to see this man. I didn't want to think about what he was telling me. I just wanted him to be gone. Once he was done sharing his words with me, I felt his hand loosen its grip on my arm. I opened my eyes, and he was gone.
+
+I thought about what he said for the rest of the day. The next morning, though, I had forgotten what he had said. That was a good thing, I thought. I pushed the incident to the back of my mind and refused to think of the strange man. I had met enough weirdos in my life to know that thinking about them could do me no good.
+
+Things were good for awhile. I don't really know how long. Maybe it was month. Maybe it was two. The strange man had been pushed from my mind, and I don't even know if remembered what had happened that day that changed everything. I then started seeing him everywhere I went. Somedays he'd be behind a bus. Other days I'd see him in the reflection of some window. Always in these reflections, he was directly behind me, reaching out his hands as if to grapple my neck. When I turned around to confront him, he was gone. There was always a chill where he had been, though.
+
+I tried to do the right thing. I tried to go about it the right way. I went to the police, but they did nothing—the bastards. I started ignoring him. In my mind, if I didn't observe him, no harm could befall. It was a stupid notion, but I saw the others around him not give him a single glimpse. A few times, I swore I saw them pass through him. At the time, I thought surely I was out of my mind. Ghost and spirits didn't exist in my small world.
+
+I wish I could describe his face. The image of his face is etched in my mind, yet I can't think of a single word to describe it. It wasn't other worldly if that's what you're thinking. No, it was not that type of indescribable. It's something else. Something that just fucks with your head in a way that makes all the words that could describe it flee from your head.
+
+One day, I came home to my apartment and found a note that had been stuffed under the door. The note read simply, "Don't remember. He'll kill you. I really tried not to remember. I was Eve, and those words were my forbidden fruit.
+
+I went batshit. I quit my job. I stopped talking to my friends and stopped going outside in general (God bless grocery deliveries). Staying inside meant that I had less chance of remembering those damn words. But god, my brain still racked over that encounter on the street. I couldn't stop thinking about it, and eventually my mind pieced together everything. I remembered the words, and I was scared.
+
+I know death will come for me. It's inevitable and can't be stopped. I won't share the words. That would be cruel. Despite that, a part of me still wants to. I kind of want to see how many sons-of-bitches I can take down with those six words—yes, just six words. That's all it took to cause my death. All I have to say is this: if you ever encounter this strange man, scream your fucking head off. I don't care if it gets you institutionalized. Being called crazy is a hell of a lot better than being dead. Bye everybody. I knew words had power. I just didn't think they'd kill me.
