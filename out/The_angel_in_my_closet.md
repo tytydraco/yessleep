@@ -1,4 +1,4 @@
-The nightlight next to my bed casts long shadows that don’t dare stretch past the closet door and I’ll get a glimpse of her, standing beyond the threshold before I pull the covers over my head. 
+The nightlight next to my bed casts long shadows that end at the closet door and I’ll get a glimpse of her, standing beyond the threshold before I pull the covers over my head. 
 
 There’s an angel in my closet.
 
