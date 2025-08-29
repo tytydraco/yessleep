@@ -1,4 +1,3 @@
-
 Personally, I believe temptation is a fundamentally misunderstood concept. People *think* it’s a perilous state of indecision: will you give in to your baser instincts, or will you stay firm in your convictions?
 
 What a load of moralistic, melodramatic bullshit.
@@ -9,13 +8,13 @@ So, be kind to yourself. Save some energy. Embrace the reality that, sooner or l
 
 I know I did.
 
-\- - - - - 
+\- - - - -
 
 ***April 16th, 2025 - Morning***
 
 I pressed myself against the microscope, but I wasn’t looking at the sample. While one eye feigned work, the other monitored the security camera stationed at the corner of the lab. My window of opportunity was slim: ten seconds, max.
 
-Every morning, the dim red light below the camera’s lens would blink off - something about synchronizing the video feeds for the entire compound required the system to restart. That was the only time I wasn’t being watched. That was my window. 
+Every morning, the dim red light below the camera’s lens would blink off - something about synchronizing the video feeds for the entire compound required the system to restart. That was the only time I wasn’t being watched. That was my window.
 
 *I shouldn’t do it. It’s not safe. It’s not ethical.*
 
@@ -23,9 +22,9 @@ My focus shifted to the dab of gray oil squirming between the glass slides. I co
 
 The sight was goddamn unearthly.
 
-Despite studying the sample day in and day out for months, I’d found myself no closer to unlocking its secrets. Tests were inconclusive. Theories were in short supply. Guess that’s why *CLM Pharmaceuticals* shipped me and my family halfway across the globe to begin with. And yet, despite my expertise, the questions remained. 
+Despite studying the sample day in and day out for months, I’d found myself no closer to unlocking its secrets. Tests were inconclusive. Theories were in short supply. Guess that’s why *CLM Pharmaceuticals* shipped me and my family halfway across the globe to begin with. And yet, despite my expertise, the questions remained.
 
-*Why does the carbon-based, non-cellular grease move with purpose?* 
+*Why does the carbon-based, non-cellular grease move with purpose?*
 
 *Why can’t the mass spectrometer identify all the elements that lie within - i.e., what’s the unidentifiable five percent?*
 
@@ -33,11 +32,11 @@ And, most pertinent to the discussion of temptation,
 
 *Why in God’s name do I feel an insatiable compulsion to eat it?*
 
-That last one was a more *personal* question. One I wasn’t getting paid an obscene amount of money to get to the bottom of. 
+That last one was a more *personal* question. One I wasn’t getting paid an obscene amount of money to get to the bottom of.
 
 I found myself lost in thought, vision split down the middle between the slide and the gleaming chrome surface of the lab table. When I realized I hadn't been paying attention, my available eye darted into the periphery, ocular scaffolding aching with strain, stretching the muscles to their absolute limit. I swallowed the discomfort. Didn’t want to move my head away from the microscope and make what I was doing obvious.
 
-I saw the camera and gasped. 
+I saw the camera and gasped.
 
 The light was off, but critically; I didn’t *watch* it turn off. How long had the feed been dead? One tenth of a second or nine? It was impossible to know.
 
@@ -79,7 +78,7 @@ As I tried to contain my blistering anxiety, the bubbles trapped between the sli
 
 An audience of unblinking eyes, silently watching me crumble.
 
-\- - - - - 
+\- - - - -
 
 ***April 16th, 2025 - Evening***
 
@@ -89,7 +88,7 @@ Nothing yet, though.
 
 Linda and the kids were thankfully out when I careened into the driveway. I didn’t want them to see me like this. Moreover, I didn’t have the mental reserves to withstand an impromptu interrogation from my wife. Any deviation from the norm was a candidate for investigation after the affair. A homogenized version of myself was the only one that could exist unmonitored.
 
-*\*Relatively* unmonitored: that's a better way to phrase it. 
+*\*Relatively* unmonitored: that's a better way to phrase it.
 
 I paced across the chalky cobblestone pathway and threw myself against the front door without remembering to unlock it first. My shoulder throbbed as I steadied my shaking hand, inserting the key on the fourth attempt. The door swung open, and I stomped inside.
 
@@ -103,7 +102,7 @@ From the moment I’d been caught - or very nearly been caught, it was still unc
 
 At that point, though, the possibly fatal ramifications couldn’t have been further from my mind.
 
-*Maybe I’ll finally get a chance to taste it.* - I thought. 
+*Maybe I’ll finally get a chance to taste it.* \- I thought.
 
 I yanked the jeans from my calves, folded them haphazardly, cradled them in my armpit and sprinted to our first-floor bathroom.
 
@@ -123,13 +122,13 @@ Gray-tinged.
 
 Without fanfare or ceremony, the liquid squeezed itself between my closed lips and disappeared into my mouth.
 
-Immediately, my tongue scoured its surroundings - ran the length of every gumline, slinked across every tooth and over the entire canvas of my hard palate - but I tasted nothing. 
+Immediately, my tongue scoured its surroundings - ran the length of every gumline, slinked across every tooth and over the entire canvas of my hard palate - but I tasted nothing.
 
 Robotically, I pulled the glove off my right hand and dragged my fingertips over my cheek, on the same side that’d first noticed the “spittle”. There was a strip of skin inline with the corner of my mouth that felt perceptibly colder than its neighboring flesh.
 
-Guess the oil was just as eager to be eaten as I was eager to eat it. 
+Guess the oil was just as eager to be eaten as I was eager to eat it.
 
-Scaled me like a goddamned mountain. 
+Scaled me like a goddamned mountain.
 
 The muffled thumps of Linda and the kids arriving home radiated through the walls. I sighed, sliding my jeans back on. Strangely, I didn’t experience fear or panic.
 
@@ -141,13 +140,13 @@ Linda knocked on the bathroom door with a familiar, nagging urgency as the kids 
 
 *“Helen, honey, what’s going on? Why in God’s name are your keys on the floor?”*
 
-\- - - - - 
+\- - - - -
 
 ***April 24th - Early Morning***
 
 I lied awake for hours each night. Sleep had been scarce since I ingested the oil. I’d found myself consumed with worry. The exhaustion was starting to really take its toll, too: I felt myself becoming disturbingly forgetful.
 
-The clock ticked from 4:29 to 4:30AM, and it was time to begin my new morning routine. 
+The clock ticked from 4:29 to 4:30AM, and it was time to begin my new morning routine.
 
 Sunday night, I’d set my phone alarm for 4:30 AM and slip it under my pillow. When morning came, it didn't ring; it vibrated. The kids and the wife slept lightly, and our cramped city apartment had walls thinner than paper. They appreciated the lack of a proverbial air-raid siren wailing at the crack of dawn, though I’d be lying if I said the device convulsing against my head was a pleasant way to be yanked from the depths of R.E.M. sleep.
 
@@ -163,9 +162,9 @@ His body stiffened. His pupils narrowed like the focusing of a target reticle. T
 
 The smile never left his face.
 
-Needless to say, I spent an hour each morning clearing my mind, precisely as instructed. Told myself I was complying on account of how well the position paid. Didn’t want to *rock the boat* and all that. My motivation, if I’m being honest, though, was much less rational. So there I’d be, ass uncomfortably planted on the flip-side of our doormat-turned-yogamat, cross-legged and motionless, a barbershop quartet of herniated discs singing their agonizing refrain in the small of my back, impatiently waiting for my phone to buzz, indicating I was done for the morning. 
+Needless to say, I spent an hour each morning clearing my mind, precisely as instructed. Told myself I was complying on account of how well the position paid. Didn’t want to *rock the boat* and all that. My motivation, if I’m being honest, though, was much less rational. So there I’d be, ass uncomfortably planted on the flip-side of our doormat-turned-yogamat, cross-legged and motionless, a barbershop quartet of herniated discs singing their agonizing refrain in the small of my back, impatiently waiting for my phone to buzz, indicating I was done for the morning.
 
-I always resisted the meditation, but it’d become easier after ingesting the oil. More intuitive. I slipped into a state of emptiness with relatively little effort. 
+I always resisted the meditation, but it’d become easier after ingesting the oil. More intuitive. I slipped into a state of emptiness with relatively little effort.
 
 That said, I began to experience a massive head rush whenever I was done. Felt like my head was tense with blood, almost to the point of rupture. The sensation only lasted for a minute or so, but during that time, I felt… I don't know, detached? Gripped by a sort of metaphysical drowsiness? It’s hard to explain. All the while, a bevy of strange questions floated through my bloated skull.
 
@@ -177,9 +176,9 @@ Like someone was quietly closing our front door from the inside.
 
 *They don’t want me to hear them leave* \- I'd think.
 
-But I'd have no earthly idea who I thought *they* were. 
+But I'd have no earthly idea who I thought *they* were.
 
-\- - - - - 
+\- - - - -
 
 ***May 10th - Afternoon***
 
@@ -189,7 +188,7 @@ I knocked on the door of the compound’s security office. Jim’s gruff, phlegm
 
 The stout, sweaty man grined as I enter: whether the expression was related to my presence or the box of local pastries was unclear, but, ultimately, irrelevant. I’d been worming my way into his good graces for almost a month.
 
-*Today's the big day* \- I thought. 
+*Today's the big day* \- I thought.
 
 *“Care for a croissant?”*
 
@@ -217,11 +216,11 @@ I paused and searched my memories, but found nothing.
 
 God, why couldn’t I remember?
 
-*"We're always watching, my dear. Remember that."* 
+*"We're always watching, my dear. Remember that."*
 
-Jim winked at me, and I paced from his office without saying another word. 
+Jim winked at me, and I paced from his office without saying another word.
 
-\- - - - - 
+\- - - - -
 
 ***May 22nd - Evening***
 
@@ -267,15 +266,15 @@ It took everything I had to suppress the hellfire coursing through my veins. I c
 
 *“Linda, don’t you have something better to do than just…fucking…watch me? You know, like live your fucking life?”* I scowled.
 
-When I opened my eyes, her smile was back. Wide. Tooth-filled. Rows and rows of sharp pearls that seemed to extend far back in her mouth and down her throat. 
+When I opened my eyes, her smile was back. Wide. Tooth-filled. Rows and rows of sharp pearls that seemed to extend far back in her mouth and down her throat.
 
-*"What the hell is wrong with you?"* I whispered. 
+*"What the hell is wrong with you?"* I whispered.
 
 Starting with the bulb farthest from the bedroom, the hallway lights behind her flicked off. One by one, the squares of light disappeared. A wall of impenetrable darkness steadily crept forward.
 
 *Click. Click. Click.*
 
-Finally, the bulb above Linda fizzled. She didn’t move. She didn’t react. She just kept smiling - even through the darkness, I could tell she was still smiling. 
+Finally, the bulb above Linda fizzled. She didn’t move. She didn’t react. She just kept smiling - even through the darkness, I could tell she was still smiling.
 
 There was a pause. Instinctively, I pulled out the next flashcard.
 
@@ -297,7 +296,7 @@ Hands trembling, I continued to the last question in the pile.
 
 “*Why can’t the mass spectrometer identify all the elements that lie within - i.e., what’s the unidentifiable five percent?”*
 
-I didn’t know. As soon as I flipped the card, the bedroom light clicked off. 
+I didn’t know. As soon as I flipped the card, the bedroom light clicked off.
 
 A wave of silent black ink washed over me.
 
@@ -335,8 +334,12 @@ Another lie for the pile.
 
 Another temptation obliged.
 
-\- - - - - 
+\- - - - -
 
 Need to rest and gather my thoughts a bit.
 
 More [to follow.](https://www.reddit.com/r/unalloyedsainttrina/s/atlbsL9Irr)
+
+\- - - - -
+
+EDIT: [PART 2](https://www.reddit.com/r/nosleep/comments/1n2rg5h/i_was_recently_hired_by_a_pharmaceutical_company/)
