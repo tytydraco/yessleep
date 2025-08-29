@@ -148,6 +148,4 @@ My wife demanded to know what happened. She wanted to call the cops when she saw
 
 I pulled the blankets up to my chin. I closed my eyes but I didn’t try to sleep. I waited until I knew she was there. The sound of air being sucked through a film of spit. 
 
-“Come here, Angel,” I whispered. “I want to hear what you sound like. I want to see you again.” 
-
-I sat up and opened my eyes, but my room was empty. The closet door stood there firm and closed, ancient in the way it looked like a door that had never opened before and never would again. 
+I sat up and opened my eyes, but my room was empty. The closet door stood there firm and closed; ancient in the way it looked like a door that had never opened before and never would again. 
