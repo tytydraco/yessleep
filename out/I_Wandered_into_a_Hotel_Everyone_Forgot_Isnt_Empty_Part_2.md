@@ -18,7 +18,7 @@ I eased it open. Luna and Solis sat waiting. Both lifted their heads at the same
 
 The window drew me first. It wasn’t night anymore. Pale morning light seeped through, not gold, not warm—just flat gray, heavy as clouded glass.
 
-*“Are you okay?”* Luna asked, gentle, careful.  
+“Are you okay?” Luna asked, gentle, careful.  
 
 “You should be enjoying the party, not sneaking away,” Solis added, swaying slightly, as if the music was playing in his head.
 
@@ -60,11 +60,11 @@ Without warning, it froze.
 
 Like a cord pulled taut, everything stopped.
 
-Dozens of heads tilted upward.
+Everyone's heads tilted upward.
 
 Every eye locked on me.
 
-And they *smiled*.
+They *smiled*.
 
 In perfect unison.
 
