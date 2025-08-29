@@ -74,9 +74,7 @@ I stumbled backward, chest hammering so hard it shook in my ears. My mind scream
 
 I lurched toward the door, but froze. Escape wasn’t that simple. If I ran blind, the shifting halls would eat me alive.
 
-A map.
-
-I needed a map.
+*A map. I needed a map.*
 
 The thought pressed into me—not mine, not fully.
 
@@ -110,7 +108,7 @@ I have no choice but to follow the path. The hall shifted, but I didn’t stop. 
 
 I hesitated. My eyes darted around, searching for another way. Could there be a hidden door? A passage I hadn’t seen? I rapped on the walls, listened for hollow echoes. Nothing. I peered over my shoulder—maybe the space behind me had opened? Nope. Just an empty corridor where I came from.
 
-And then… it felt different. A darkness behind me slowly crept approaching me, pressing, bulging, as if chasing me. Panic clawed at me. I spun, checked the sides, tried the ceiling, kicked at the floor. Nothing budged.
+And then… it felt different. A darkness behind me slowly crept approaching me, *pressing*, *bulging*, as if ***chasing me***. Panic clawed at me. I spun, checked the sides, tried the ceiling, kicked at the floor. ***Nothing budged.***
 
 Then — a low, grinding pressure crept downward from above. Slowly. Unforgiving. I dropped to my knees, but the ceiling kept coming, inching closer, forcing me lower, pressing until I was flat on the ground.
 
@@ -180,13 +178,13 @@ And froze.
 
 The letters carved themselves out of the grime.
 
-***My name.***
+**My name.**
 
 The sight hollowed me out. My chest tightened, stomach turned. Every instinct screamed no. I staggered back, but the name stayed etched there.
 
 It wasn’t just a plate. It felt like a claim, like the room itself was whispering that it belonged to me.
 
-The air seemed to thicken. I whispered, “This isn’t real…”
+The air seemed to thicken. I whispered, *“This isn’t real…”*
 
 Silence.
 
@@ -194,4 +192,4 @@ The door creaked open behind me, inch by inch.
 
 Then — a familiar voice spoke:
 
-*“Welcome back, sir.”*
+“Welcome back, sir.”
