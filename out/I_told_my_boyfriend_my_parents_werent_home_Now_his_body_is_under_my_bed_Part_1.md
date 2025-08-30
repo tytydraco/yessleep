@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1n49b3e/i_told_my_boyfriend_my_parents_werent_home_now/)
+
 The scent of my boyfriend's corpse was overwhelming.  The cool, storm blown air moving through my open window did almost nothing to let out the sickly smell of iron-rich blood.  Drying spatterings of it on my face burned my eyes.  Smears of it were right by my fingertips, faint stains soaked through my comforter to the sheets roughly into the shape of his hands.  They led over to the edge of the abyss.  At least the booming thunder helped cover the gnawing and cracking of his bones.
 
 I suppose I should have been grateful he thought the sound of rainfall added to the romantic atmosphere of the evening.  Otherwise the only ventilation to the terrible stench would've been the small crack under my bedroom door.  Clover's shadow reached under the crack before she began pawing at the wood, whimpering lightly as the thunder rolled again and my bedframe shuddered beneath me. I mouthed that I was sorry, unable to give her any comfort.  I really should have let her out before the rain started, but at least she was safe out there.
