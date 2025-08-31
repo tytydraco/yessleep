@@ -313,7 +313,7 @@ Mother in Bakewell Hospitalized After Postpartum Episode
 
 ——Bakewell, England — Local authorities confirmed that a single mother in Bakewell was taken into care this week following a severe postpartum stress episode.
 
- Perpetrator states she became convinced her 20-month-old child was possessed. 
+ Perpetrator states she became convinced her 9-month-old child was possessed. 
 She had contacted authorities after taking the life of the infant.
 
 The woman was transported to a nearby hospital for evaluation and is receiving ongoing medical and psychiatric support.
