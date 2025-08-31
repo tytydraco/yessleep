@@ -1,4 +1,4 @@
-I’ve never been much of a somebody. Just a normal dude who works with graphics, locked away in my room most days — dark, quiet, predictable. But on weekends, when work finally loosened its grip, I’d step outside for a walk, just to remind my legs they still existed.
+I’ve never been much of a somebody. Just an ordinary human being who works with graphics, locked away in my room most days — dark, quiet, predictable. But on weekends, when work finally loosened its grip, I’d step outside for a walk, just to remind my legs they still existed.
 
 That’s when I saw it.
 
@@ -10,13 +10,17 @@ Then I heard it.
 
 A faint, rhythmic thrum. Music.
 
-At first, I thought it was in my head — exhaustion, or the wind humming through broken glass. But no. The beat grew, alive, impossible. A party? Here?
+At first, I thought it was in my head — exhaustion, or the wind humming through broken glass. But no. The beat grew, alive.
+
+Impossible.
+
+A party? Here?
 
 My chest tightened with equal parts fear and curiosity. The rational part of me whispered to turn back. But curiosity — stubborn, reckless — flared. I pressed against the gate. It groaned open, metal shrieking through the quiet.
 
 I stepped into the wild embrace of the overgrown grounds, the pulse guiding me deeper. The front of the hotel remained dark, silent except for the restless rustle of leaves. The music tugged me further, coming from somewhere hidden, where shadows stretched long and secrets lingered.
 
-And then I saw it.
+There, I saw it.
 
 A kaleidoscope of light and sound burst from a forgotten corner. People swayed and spun beneath twinkling bulbs. Laughter rang, glasses clinked — alive in a place that should have been nothing but dust.
 
@@ -28,9 +32,9 @@ Of course they were here. Why wouldn’t they be?
 
 The hotel itself was still a ruin. Windows broken, wood rotting. But the party continued as if nothing were amiss. Music throbbed, laughter echoed, and my friends seemed both comforting and wrong. Like stepping into a dream that refused to obey reason.
 
-We plunged into the revelry. The bass rattled through me, my body moving before my mind caught up. Yet beneath it, a whisper tugged at me, low and insistent: *Wrong. This is wrong.*
+We plunged into the revelry. The bass rattled through me, my body moving before my mind caught up. Yet beneath it, a whisper tugged at me, low and insistent: “*Wrong. This is wrong.”*
 
-It swelled, threading through the music, louder than the beat. My skin prickled with a desperate urge to leave, to slip out through the gate before this place swallowed me whole.
+It swelled, threading through the music, louder than the beat. My skin prickled with a desperate urge to leave, to slip out through the gate before this place *swallowed me whole.*
 
 I shifted. Solis' hand closed around mine — gentle, but unyielding. Less friendship, more restraint.
 
@@ -40,7 +44,7 @@ I followed his gaze — and froze.
 
 The hotel was still a ruin. Yet woven among the decay were flashes of something else: polished marble, unbroken windows catching light, glints of gold trim. Half rot, half splendor. My mind wavered. I knew the truth — this place was dead. And yet…
 
-It was magnificent.
+**It was magnificent.**
 
 The thought rooted itself in me, heavy and convincing. My lips moved before I could stop them.
 
@@ -66,11 +70,11 @@ I swallowed. The thought of us three, stepping further into this impossible plac
 
 As we walked toward the front lawn, expecting the lobby to appear, my eyes drifted back to the gate I had come through — still in ruins, vines clawing up the iron grills.
 
-Half-open, half-close, it hung like a silent witness to my intrusion earlier. For a fleeting moment, the wind twisted through the bars, like the gate whispered directly to me, "*Leave now. You have to leave now."*
+Half-open, half-close, it hung like a silent witness to my intrusion earlier. For a fleeting moment, the wind twisted through the bars, like the gate whispered directly to me, *"Leave now. You have to leave now."*
 
-I paused, caught between the crumbling gate and the glowing porch. My foot lifted toward the ruins. *Should I leave?* The thought pulsed sharply in my chest.
+I paused, caught between the crumbling gate and the glowing porch. My foot lifted toward the ruins. Should I leave? The thought pulsed sharply in my chest.
 
-I glanced back at Solis and Luna. They stood on the porch, smiles warm and inviting, hands lightly resting on the railing. Friendly. Reassuring. Impossible.
+I glanced back at Solis and Luna. They stood on the porch, smiles warm and inviting, hands lightly resting on the railing. Friendly. Reassuring. Inviting.
 
 And somehow, before I even decided, my steps carried me toward them.
 
@@ -78,13 +82,13 @@ We reached the porch together, the air shifting around us. I could still see the
 
 Solis gestured. Luna smiled. And together, we pushed it open.
 
-The lobby swallowed us whole.
+**The lobby swallowed us whole.**
 
 When we stepped into the lobby, staff appeared as if on cue — friendly receptionists with perfect smiles, guiding us past floors that gleamed as though freshly polished. My eyes drank in the hotel’s glory days, walls shining, lights sparkling, the space immaculate.
 
 And yet my chest tightened. My heart still saw the cracks in the walls, the faint stains, the decay lurking beneath the surface. The lobby shimmered with impossible perfection, and I couldn’t tell if it was real… or if I was just losing my mind.
 
-While I took in the lobby, Solis and Luna waved me over to the reception desk. The staff greeted us warmly, their smiles flawless, their movements precise, almost rehearsed. The receptionist explained the “$1 deluxe” as a special promotion — some excuse about a limited-time offer. My mind accepted it without hesitation. Somehow, it seemed plausible.
+While I was in the lobby, Solis and Luna waved me over to the reception desk. The staff greeted us warmly, their smiles flawless, their movements precise, almost rehearsed. The receptionist explained the “$1 deluxe” as a special promotion — some excuse about a limited-time offer. My mind accepted it without hesitation. Somehow, it seemed plausible.
 
 \---
 
@@ -120,26 +124,32 @@ Through the window, the party raged below — laughter, music, lights — all un
 
 A chill slid down my spine.
 
-Panic devoured me. Sweat slicked my skin. I threw my clothes on, rushed to the door—  
+Panic devoured me. Sweat slicked my skin. I threw my clothes on, rushed to the door—
+
 and froze.
 
 This wasn’t the hallway we’d come from.
 
-My lips refused to move, but in my head I screamed. My chest clenched, mind racing. I whipped back to the map, desperate, tracing corridors, memorizing some path—any path—back to the lobby. Then I ran.
+My lips refused to move, but in my head I screamed. My chest clenched, mind racing. I whipped back to the map, desperate, tracing corridors, memorizing some path—any path—back to the lobby. Then—
 
-The lobby. The wide doors. I shoved them open, bracing for sunlight.  
+I ran.
+
+The lobby. The wide doors. I shoved them open, bracing for sunlight.
+
 Nothing. Night had fallen.
 
-Still, I was out. I bolted toward the gate. Relief flickered—  
+Still, I was out. I bolted toward the gate. Relief flickered—
+
 then vanished.
 
 The gate was gone.
 
-I spun in circles, frantic. *It was here. I know it was here.* But the fence stretched endless. No exit. No escape.
+I spun in circles, frantic. It was here. I know it was here. But the fence stretched endless. No exit. No escape.
 
 Solis. Luna. The party.
 
-I stumbled back toward the music, breath ragged, until I found them in the crowd.  
+I stumbled back toward the music, breath ragged, until I found them in the crowd.
+
 I grabbed Luna’s shoulder, shaking. “The floor map changed! The hotel shifts!” I turned to Solis, voice cracking. “The gate is gone! The gate is gone!”
 
 The words felt insane even as I said them.
@@ -150,7 +160,7 @@ I looked again. Solis and Luna stood smiling at me, gentle, calm.
 
 “What’s wrong?” they asked, their smiles too steady.
 
-“We have to get out of here,” I whispered, heart pounding.
+*“We have to get out of here,”* I whispered, heart pounding.
 
 Solis sipped his glass, "The wine tastes good tonight".
 
@@ -162,17 +172,23 @@ Then they ventured towards the party.
 
 \---
 
-As their words echoed in my head — “the party never ends” — a shiver crawled down my spine.
+As their words echoed in my head — *“the party never ends”* — a shiver crawled down my spine.
 
 I couldn’t take it. I had to get out.
 
-The gate was gone, but the fence still stood. *I’ll jump it. I don’t care if I break my legs. I just need out.*
+The gate was gone, but the fence still stood. I’ll jump it. I don’t care if I break my legs. I just need out.
 
-I sprinted to the yard, grabbed the cold bars, and hauled myself up. My pulse roared in my ears. Almost there. Almost free.
+I sprinted to the yard, grabbed the cold bars, and hauled myself up. My pulse roared in my ears.
+
+Almost there. Almost free.
 
 I pushed off, leapt—
 
-—and landed hard, knees jolting. The ground felt real, solid. A shaky breath escaped me. Relief. *I made it. I’m out.*
+—and landed hard, knees jolting. The ground felt real, solid. A shaky breath escaped me.
+
+Relief.
+
+I made it. I’m out.
 
 But then I lifted my head.
 
