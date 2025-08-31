@@ -179,3 +179,17 @@ But then I lifted my head.
 A familiar porch. The same wide doors.
 
 The hotel.
+
+\---
+
+UPDATE:
+
+I’m still here—in this hotel. Somehow, I stumbled across an old computer tucked away in the corner of a dusty room. Against all odds, it powered on. Even more bizarre—it connects to the internet. I don’t know how, and I don’t care to understand. All that matters is I can still reach you.
+
+But listen carefully. I have one warning.
+
+If you ever find yourself in an abandoned hotel, and you hear music playing from somewhere inside… **don’t follow it.**
+
+For anyone still wondering about Solis and Luna—yes, your suspicions are correct. They’re the ones pulling the strings, controlling the time loop of day and night.
+
+Take my advice seriously—please.
