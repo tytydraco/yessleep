@@ -1,5 +1,3 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/1n2vxl9/i_wandered_into_a_hotel_everyone_forgot_isnt/)
-
 I’ve never been much of a somebody. Just a normal dude who works with graphics, locked away in my room most days — dark, quiet, predictable. But on weekends, when work finally loosened its grip, I’d step outside for a walk, just to remind my legs they still existed.
 
 That’s when I saw it.
@@ -181,4 +179,3 @@ But then I lifted my head.
 A familiar porch. The same wide doors.
 
 The hotel.
-
