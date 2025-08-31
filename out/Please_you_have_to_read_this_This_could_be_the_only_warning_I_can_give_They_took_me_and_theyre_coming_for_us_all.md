@@ -1,6 +1,6 @@
 I need to write this down while I still can. I don’t know if they’re coming back for me, or if I even have much time left before… something happens. The truth is, I’m not even sure what did happen.
 
-My name’s Henry Striker. I’m 34. I guess you could call me a YouTuber, though that’s not really true—I never posted anything. I had plans. Big ones. But after this, I don’t think I’ll ever hit upload.
+My name’s Henry. I’m 34. I guess you could call me a YouTuber, though that’s not really true—I never posted anything. I had plans. Big ones. But after this, I don’t think I’ll ever hit upload.
 
 I’ve always loved the outdoors. I grew up camping, hiking, all that Boy Scout stuff. Being out there always felt natural to me, like I belonged. So when I decided I wanted to start a channel, I figured solo camping vlogs would be perfect.
 
