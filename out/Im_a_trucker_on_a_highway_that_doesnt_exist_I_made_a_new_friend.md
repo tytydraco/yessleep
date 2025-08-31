@@ -186,7 +186,7 @@ After my experience at Tiff’s diner, I’d resolved never to shower on the roa
 
 Despite what the employee handbook says, some rules are meant to be broken.
 
-I spent a whole hour scrubbing effluvia and bits of rotted skin from my nails and hair. Even when I was done, I could smell dying carcass, but I spritzed myself with gas station air conditioner and called it good. Autumn had used the rest of my clothes on our drive to wipe herself down, so I also bought an XXL ‘I HEART Lewisville’ shirt (I’m a medium for the record. It was the only one left.)
+I spent a whole hour scrubbing effluvia and bits of rotted skin from my nails and hair. Even when I was done, I could smell dying carcass, but I spritzed myself with gas station air conditioner and called it good. Autumn had used the rest of my clothes on our drive to wipe herself down, so I also bought an XXL ‘I HEART BEER’ shirt (I’m a medium for the record. It was the only one left.)
 
 A few minutes later Autumn emerged from the shower rooms as well.
 
