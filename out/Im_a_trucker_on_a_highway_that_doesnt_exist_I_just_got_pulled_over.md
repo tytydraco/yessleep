@@ -285,3 +285,5 @@ I exhaled.
 Clouds rushed in above me, and thick drops of rust-colored liquid slid down my windshield. Blood. The end.
 
 Even now, I [wasn’t nervous](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/).
+
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1n55qbq/im_a_trucker_on_a_highway_that_doesnt_exist_i/)
