@@ -128,7 +128,7 @@ Eddy nodded.
 
 I saw Eddy’s shoulders ease slightly.
 
-“That’s good. And it ain’t ever let you see it any, what’s down there?”
+“That’s good. And it ain’t ever let you see it, what’s down there?”
 
 “Not even once.”
 
@@ -224,7 +224,7 @@ For a minute I thought she'd ignore me and keep on walking into those woods, but
 
 Mama just stood there, her face still blank, taking every harsh word they had for her without saying a single one in return.
 
-Eddy glanced over at me, and I accepted that what he'd said was right. My mother wasn't right in the head, and was only getting worse as time went by. She didn't care what anyone thought of her, only for herself and the pit she'd married. Even I couldn't reach her anymore. 
+Eddy glanced over at me, and I accepted that what he'd said was true. My mother wasn't right in the head, and was only getting worse as time went by. She didn't care what anyone thought of her, only for herself and the pit she'd married. Even I couldn't reach her anymore. 
 
 Still I tried.
 
