@@ -1,7 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1ml85bx/im_a_missionary_and_now_i_see_things_in_the/) l [Part 2](https://www.reddit.com/r/nosleep/comments/1mnuanp/im_a_missionary_and_florida_is_zombiecountry/) l [Part 3](https://www.reddit.com/r/nosleep/comments/1mraofk/im_a_missionary_and_my_friend_has_to_save_me_from/) l [Part 4](https://www.reddit.com/r/nosleep/comments/1mu3q3e/im_a_missionary_and_these_undead_arent_really/) l [Part 5](https://www.reddit.com/r/nosleep/comments/1mxkgx5/im_a_missionary_and_theres_too_many_demons_in/)
 
-
-
 Esmeralda stood there, Reginald’s blood dripping off of her bronze clad gloves, her face calm, her violet eyes were glaring into mine.
 
 I closed my eyes and tried to view her spirit.
@@ -346,8 +344,6 @@ I frowned, trying to think of what Goddess she could be mentioning, “Well… A
 
 “Yeah,” I said as we turned down the hallway, “Why didn’t she come with you?”
 
-
-
 “She said she had to protect the House of Hestia, and the other Hesties.  I get it, they’re probably even more vulnerable now than they were before,” Cassara lamented, “But even still, I didn’t tell her where I was going, in case the Empress was listening in.  Bitch is… Crafty…” Cassara’s face fell as she looked down the hallway.
 
 I turned to see a woman wearing a red flowing dress.  Over the red was a shawl of golden fabric, and a golden pin with ornate flowers holding ruby gems for the pedals.  Her face was pale, her hair long and white.
@@ -387,3 +383,5 @@ Cassara nodded.
 “Right,” Cassara said, almost dreading the next answer, “and the second bit?”
 
 “I am here, Cass,” Launa said with a heavy sigh, “To try and convince you to return home of your own free [will](https://www.reddit.com/r/The_Guardian_Temple/).”
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/1n3lf5d/im_a_missionary_and_ive_learned_more_that_i_need/)
