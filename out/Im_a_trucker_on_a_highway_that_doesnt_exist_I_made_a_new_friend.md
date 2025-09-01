@@ -32,7 +32,7 @@ Through the roar of the storm, I could make out something wailing through the ba
 
 This was it. I’d taken this job on Route 333 to flee my old life, but you can’t run from one thing without running towards another. This was the thing I’d been hurtling towards. It would be easy too. So easy to just sit there, recline back, and wait.
 
-My promise to help Tiff no longer mattered. My passion from the last few days flushed out of me as quickly as it had come, because in the end, this was the thing I truly wanted. An out\*.\* The end. A release. 
+My promise to help Tiff no longer mattered. My passion from the last few days flushed out of me as quickly as it had come, because in the end, this was the thing I truly wanted. An out. The end. A release. 
 
 I didn’t just accept it. 
 
