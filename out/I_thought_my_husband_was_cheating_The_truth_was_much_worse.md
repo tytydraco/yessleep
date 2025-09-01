@@ -632,11 +632,4 @@ I don’t know why I’m writing this here. Maybe I just need someone to tell me
 
 Because if Ethan is right, the baby growing inside me doesn’t belong to me at all.
 
-It belongs to her.
-
-
-
-
-
-
-
+It belongs to [her](https://youtu.be/LBhgIgtoJwM)
