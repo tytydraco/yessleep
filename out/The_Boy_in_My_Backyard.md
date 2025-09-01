@@ -26,7 +26,7 @@ He confirmed my suspicion by shaking his head from side to side, giving me the i
 
 I asked how he had gotten there, and he just shrugged, as if he didn’t know either. I noticed he kept staring at the door handle, as if silently begging me to open it. But I couldn’t. Just imagining how furious my mom would be if she found out made my heart race. He seemed to understand that I wouldn’t let him in, so he started moving away, heading toward the swing. There he stayed, swaying back and forth, perhaps enjoying himself.
 
-The space was tight, but I didn’t want to lose sight of him. I locked the door and ran to the bathroom, trying to buy time. When I came back, he was still there — now just sitting on the swing, looking a little sad. I felt sorry for him; maybe he just wanted a friend. At least, that’s what I told myself.
+I really need to go to the bathroom, but I didn’t want to lose sight of him. I locked the door and ran to the bathroom, trying to buy time. When I came back, he was still there — now just sitting on the swing, looking a little sad. I felt sorry for him; maybe he just wanted a friend. At least, that’s what I told myself.
 
 “Do you want me to push you?” I called from inside, but the boy didn’t respond, not even glancing at me.
 
