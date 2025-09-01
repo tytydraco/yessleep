@@ -347,3 +347,5 @@ Dust began raining like confetti from the ceiling as we moved down the stage and
 My head snapped to the chiller just in time to see the handle, knife sharpener, and stool go smashing off and skittering into the crowd of plastic. The door slammed open, and from the depths of the fridge emerged a pissed-off Depravity, her jaundiced eyes wild and feral.
 
 It seemed I underestimated just how strong her new form had made her, and now, we had nowhere to run.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1n58xc6/im_trapped_on_the_edge_of_an_abyss_my_depravity/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
