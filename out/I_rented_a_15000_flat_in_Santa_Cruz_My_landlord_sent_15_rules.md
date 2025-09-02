@@ -98,3 +98,20 @@ I am writing this now while it is quiet. I am not injured. I am not dreaming. I 
 I will follow the rules.
 
 For now.
+
+---
+
+Edit 1: For those in the comments saying get out of the house, I am a 20 year old broke student and I spent my last rupee to get here. I have to make this work. I am hoping I get time to go for auditions. If I leave, I have nowhere to go tonight
+
+Edit 2: I couldn’t sleep, so I started unpacking. The bedroom has this built-in cupboard, yellowed laminate, one shutter cracked like a vein. The bottom drawer screeched when I pulled it out, and the back panel felt soft, like it wasn’t real wood.
+
+I pressed, and the whole thing flexed. A coin popped it loose. Behind it—just a hollow gap. Too neat to be an accident. Too empty to be safe.
+
+I slid my hand in and touched fabric. Old. Damp. Wrapped around a small book.
+
+The cover is cracked leather, flaking in my palm. The corners are greasy from use. It reeks of jaggery and stale oil, like festival sweets gone sour. 
+
+It's a diary 
+
+I’m not posting what’s written in it. Not yet. 
+Will try to get some sleep 
