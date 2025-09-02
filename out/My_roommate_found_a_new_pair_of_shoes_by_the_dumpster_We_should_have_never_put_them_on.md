@@ -324,7 +324,7 @@ Beep-beep-beep.
 
 Groggy and petrified I calmed myself when I realized I was just waking up. The garbage truck upturned the dumpster, its metal arms clanging as it guzzled trash and then replaced the container, drove off. I fell out of bed. 7 a.m.
 
-Out in the living room the scene was unchanged. No Paul. He had been gone for over 12 hours.
+Out in the living room the scene was unchanged. No Paul. He had been gone for so many hours.
 
 I cooked runny oatmeal, added raisins and slurped it. Could he have drowned? Didn’t take the lifejacket, the buffoon. Real possibility. Maybe he landed in Vegas and would pop back home to regale me with some story worthy of The Hangover. Wild animal could’ve attacked him, but I struggled to imagine he wouldn’t have the time to remove a shoe. Maybe he’s just on a hike. I knew I shouldn’t have eaten that tempura. I like Paul but I knew he was quick to jealousy. Why didn’t I smooth things over? It would’ve taken five minutes max. Paul’s ego wanted, needed to be coaxed. Two days and already we’re at each other’s throats? No that can’t be it. A misunderstanding maybe. He’s just off to prove a point. Don’t fuck with the rules, Olly, he’ll tell me. Tell yourself, man. Leaving precautions behind, no phone even. God damn it.
 
