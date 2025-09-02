@@ -66,7 +66,7 @@ The old man jumped out of the seat and scurried off.
 
 I dove into the driver's seat and grabbed the steering wheel, panicking as the bus lurched once more.
 
-I fumbled and got it under control, taking all of my will and concentration to keep the massive vehicle heading straight down the lane. The man had directed us onto the freeway. Cars zoomed by on both sides. I don't believe in God, but in that moment I began to pray to something, my sweaty palms slipping on the wheel as I steered.
+I fumbled and got it under control, taking all of my will and concentration to keep the massive vehicle heading straight down the lane. The man had directed us onto the freeway. Cars zoomed by on both sides. I don't believe in God, but in that moment I began to pray to something, my sweaty palms slipping on the wheel.
 
 In the wide mirror above the windshield, I could see the back of the man's shiny bald head as he stepped to the aisle with open arms.
 
@@ -112,7 +112,7 @@ The businessman, Ed, had three daughters at home.
 
 Kim, the woman with the baby, was a forensic student at the nearby college.
 
-The rest of the passengers continued to introduce themselves, but I tuned them out as I opened the message app on my phone and began to type one-handed, glancing up intermittently to avoid swerving. 
+The rest of the passengers continued to introduce themselves, but I tuned them out as I opened the message app on my phone and began to type one-handed, glancing up intermittently to avoid swerving.
 
 I struggled with how to give our current location to emergency services aside from the general name of the freeway. I scanned the roadside for any kind of signage.
 
@@ -124,7 +124,7 @@ Behind me, one of the high schoolers, Jackson, asked a question.
 
 "Where are we going?" There was a long, measured silence. I gripped the wheel with white knuckles, waiting for the worst.
 
-"A party," said Frank. "A birthday party." For who, he didn't say. 
+"A party," said Frank. "A birthday party." For who, he didn't say.
 
 The rest stop came into view.
 
@@ -134,17 +134,17 @@ I engaged the brake with a deafening screech. A roar of panic rose as everyone w
 
 I saw something flash in my peripheral. Frank had turned the gun on me. I was cornered in the driver's seat.
 
-"If you all leave, this man dies," he said calmly. I shook my head violently, dizzy with fear. 
+"If you all leave, this man dies," he said calmly. I shook my head violently, dizzy with fear.
 
 If the group sentenced me to death, they had a chance at freedom. If they spared me, who knows where we would be headed. He was offering a literal trolley problem.
 
-I stared into Frank's weathered gaze, trying to seem braver than I was. One of his eyes was pure black, like an eight ball fracture. Somehow, I hadn't noticed that before. It seemed to be leaking a dark, viscous substance. 
+I stared into Frank's weathered gaze, trying to seem braver than I was. One of his eyes was pure black, like an eight ball fracture. Somehow, I hadn't noticed that before. It seemed to be leaking a dark, viscous substance.
 
 I noticed something else there, too. Desperation, I realized. He didn't want to kill me.
 
-I opened the doors. 
+I opened the doors.
 
-As I did, Ed, the businessman, tackled Frank from behind. 
+As I did, Ed, the businessman, tackled Frank from behind.
 
 The gun went off.
 
@@ -158,37 +158,37 @@ Ed grabbed Frank's head, shoving him to the floor. As he did, Frank's head simpl
 
 It crumpled like a rotten pumpkin, splattering more of that viscous liquid across the seats and his suit.
 
-Then, as quickly as it had disintegrated, his head reformed. Like a time lapse in reverse, Frank's skull rearranged itself, shards of bones clicking back into place through some unseen means.
+Ed screamed, scrambling back and wiping the sick contamination from his body. A steam began to rise from his skin and suit.
 
-Ed screamed, scrambling back and wiping the sick contamination from his body. A steam began to rise from his skin and suit. 
+Wherever the liquid had touched him, circles of pure, raw red were opening up on his flesh. In a matter of seconds, the tiny pockmarks turned to open sores which deepened like tunnels, until it looked as if he had been burrowed from the inside out. The air smelled rank, like turned meat searing on a grill. I was reminded of a shipment of bad pork I'd had to toss in the dumpster behind the restaurant, how the surface swelled with maggots. My stomach churned.
 
-Wherever the liquid had touched him, circles of pure, raw red were opening up on his flesh. In a matter of seconds, the tiny pockmarks turned to open sores which deepened like tunnels, until it looked as if he had been burrowed from the inside out. The air smelled rank, like turned meat searing on a grill. I was reminded of a shipment of bad pork I'd had to throw in the dumpster behind the restaurant, how the surface swelled with maggots. My stomach churned.
+As quickly as Frank's head had come apart, it began to reform. Like a time lapse in reverse, the skull and skin rearranged themselves, shards of bones clicking back into place through some unseen means.
 
-Free from his grasp, Frank went for the door mechanism, forcing them shut again with a hiss.
+No longe restrained, Frank went for the door mechanism, forcing them shut again with a hiss.
 
 I couldn't fight back. I didn't want to risk touching that walking mass of disease. He was sick in more ways than one.
 
 I crawled from the seat as Frank took the wheel again, trying to avoid touching the pools of stinking liquid now leeching from Ed's twitching body.
 
-I crawled onto a seat and lay there to catch my breath. Natalie sat across from me, her knees tucked in. I wanted to say something, to apologize for not taking her seriously that morning. I didn't have the energy to muster up more than an apologetic look. She turned away, looking out the window instead.
+I found my place on the bench and lay there to catch my breath. Natalie sat across from me, her knees tucked in. I wanted to say something, to apologize for not taking her seriously that morning. I didn't have the energy to muster up more than an apologetic look. She turned away, looking out the window. No one felt much like talking.
 
 Next to her sat two of the high-schoolers, Jackson and a girl whose name I didn't know. At the back of the bus sat an old white-haired woman with a shopping bag, who also hadn't managed to make it out before the doors shut.
 
 Five people, two bodies. One driver who I am now certain is not human, at least not anymore.
 
-The bus lurched back onto the freeway, careening towards an unknown fate. 
+The bus lurched back onto the freeway, careening towards an unknown fate.
 
 We were nothing more than its passengers.
 
 \_\_
 
-This happened two days ago. My temple is still throbbing where the bullet grazed my skin, but it's stopped bleeding. I have all but given up on emergency services coming to our aid. It's as if we've entered into some strange dimension where nothing can reach us. 
+This happened two days ago. My temple is still throbbing where the bullet grazed my skin, but it's stopped bleeding. I have all but given up on emergency services coming to our aid. It's as if we've entered into some strange dimension where nothing can reach us.
 
 Nothing but Frank.
 
-We have only ever stopped to get gas or supplies a few times. There is a decrepit, filthy toilet system in the back alcove of this bus. We discovered it on the first day. The only food on board were the old woman's groceries. They quickly ran out among the five people. Now, we divide up whatever miscellaneous scraps Frank throws our way. He doesn't want us to starve. It's like he needs us to stay alive, for whatever reason. 
+We have only ever stopped to get gas or supplies a few times. There is a decrepit, filthy toilet system in the back alcove of this bus. We discovered it on the first day. The only food on board were the old woman's groceries. They quickly ran out among the five people. Now, we divide up whatever miscellaneous scraps Frank throws our way. He doesn't want us to starve. It's like he needs us to stay alive, for whatever reason.
 
-When he leaves, the bodies watch us. Propped up in the aisle with vacant, glass stares. 
+When he leaves, the bodies watch us. Propped up in the aisle with vacant, glass stares.
 
 I have seen them blink.
 
