@@ -52,7 +52,7 @@ An odd thing I noticed while we hiked was the strange absence of other people wh
 
 “Of course I want time without a ton of other people, I just think it is strange that we haven’t seen anyone else while we have been here. I mean it IS a holiday weekend, you would think we would have passed by some other wilderness enthusiast or gun-ho parents dragging their kids along to get away from technology for once in their life.”
 
-“This is a pretty big place, we probably have passed by others but just didn’t notice them,” Andrew said as he sat his bag down on the table and stretched his arms. I smiled as he took off his shirt and stretched his taught form. I took a few steps towards him and gave him a peck before I spoke again. 
+“This is a pretty big place, we probably have passed by others but just didn’t notice them,” Andrew said as he sat his bag down on the table and stretched his arms. I smiled as he took off his shirt and stretched his taut form. I took a few steps towards him and gave him a peck before I spoke again. 
 
 “Take a picture with me.” I said leaning against him and fishing my phone from my pocket.
 
