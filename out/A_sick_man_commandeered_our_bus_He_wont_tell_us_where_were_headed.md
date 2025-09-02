@@ -198,4 +198,4 @@ I can't be sure if my messages are making it out of this hell at all. I'm bored 
 
 Just in case: it's a blue bus with silver stripes, plastered with some beauty advertisement on one side and an anti-smoking PSA on the other. Bus 6. If you see hands pressed to the glass, please set us free.
 
-We're so very far from home.
+We're so very far from [home](https://www.reddit.com/user/3_Magpies/comments/1n1wlbl/3magpies_story_masterpost/).

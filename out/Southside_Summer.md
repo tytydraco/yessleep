@@ -1,0 +1,38 @@
+
+“*and I can’t help but wonder why/*
+
+*So many young kids had to die” – 2Pac*
+
+ 
+
+Chicago winters have a reputation.  Lake effect snow and cold winds.  But the summertime?  That didn’t get the press for what it really was.  Southside summers were hotter than you can believe.  And they DID something to people.  Nobody had AC in those days.  The Chicago 90s, south of Comiskey, were wild times.  The heat… that oppressive, make you angry, kind of heat.  The kind that led to fights in the street and wild shit happening every day.  I remember one summer that little light-skinned dude Julian’s older brother threw a fucking brick at me for being on the wrong side of the street.  The motherfucker hit me too, right in the shoulder.  Got his ass back with a baseball bat that night though.
+
+It's crazy…. How young we were, doing shit like that.  Every block was like a planet in an unstable orbit.  The gravity pulled and pushed people into and out of each other’s lives. People got closer than blood, and farther than death, depending on the day and time of year.  Alliances.  Friendships.  Enemies.  Lovers. Families...  Shit changed quick, like that winter wind everyone from outside the city complains about. This reminiscing doesn’t really do shit for the story I want to tell, though.  See, one summer, when it was hot enough to melt the common sense between your ears, kids started disappearing.  A lot of kids.  Always with that faint tune of “pop goes the weasel” drifting on the stagnant summer air.  Now, thirty years later and with a daughter of my own, I heard that summertime refrain again, carried on the wind of a summer just as hot as I remembered…..
+
+ 
+
+“Yo, you got a dollar I could hold?” I shouted at Desmond.  “Yeah man, I got you” he said, pulling a handful of quarters and dimes out of his pocket.  “I appreciate you man” I told him with my hand out.  See, we were all pretty poor, but I had the misfortune of being EXTRA poor, and a stereotype too.  “How the fuck the only whiteboy I know also the brokest motherfucker?” he said, smiling a bit as he handed me some change.  “Why you always gotta make it a race thing” I shouted, smiling.  He laughed back and we started running up the block to meet the truck.  His mom, Willa, was like my mom too, after mine left.  We had learned the summer before, don’t go anywhere without each other.  We always got into shit when we were apart, so we just decided not to be apart anymore.  The truck down the road was the Good Humor ice cream truck, and on days like that, it was a blessing from God just to get a bit of frozen sugar into your belly. We talked like parodies of adults… did what we thought was grown folks shit.. but the truth of it was we were just twelve-year old kids who really wanted to hangout and eat ice cream and snacks and play Sega. 
+
+We ran up on the ice cream truck and jostled into the crowd that was forming for our turn.  We got to the front of the line and the sweat on the back of my neck seemed to turn real cold all of a sudden.  You have to understand, the neighborhood wasn’t some weird thing people think it is where everyone knew everyone.  It wasn’t like we would have known or noticed if the person selling spiderman popsicles was a different dude from day to day or summer to summer.  This particular ice cream man though…. He was strange.  Clean-shaven, but the hair on his head was patchy and dirty.  There was a smell coming from the truck.  It was like they way your hand smelled after you got done spending a pocketful of change. I don’t know how, but his fucking *smile* felt sarcastic.  And to be honest?  Not a common thing to see a white ice cream man south of Hyde Park.  I had mental images of the anglerfish we’d learned about in school last year.  Desmond looked uncomfortable, but he ordered his toasted almond ice cream bar and paid his change.  I mumbled when I spoke to him, and he raised his voice to me.  “You better speak more clearly son, I expect better from you.”
+
+I froze.  He just stared at me… smiling.  “Speak up, Allen.  Or maybe you don’t want anything from me.” 
+
+I couldn’t move.  I just kept staring, not even wondering how he had known my name.  Desmond saved me.  “Let me get another almond bar,” he said, fishing in his pocket for more coins.  “You speak for him now to, boy?” the ice cream man said, the smile dropping from his face for a moment.  “Who the fuck are you calling ‘boy’, old ass creepy mother fucker?” Desmond said, his voice rising in anger.  The ice cream man laughed, and left the window.  The truck started crawling away, and Desmond and I just watched it go in silence.  The rest of the crowd had vanished while our exchange was taking place.
+
+“Man, fuck that dude.  We got some freeze pops at home, let’s go get those” Desmond said.  He tossed the toasted almond bar on the ground.  “Hey, I’m sorry man, I don’t know that the fuck just happened” I said as I handed the money he gave me back to him.  “Nah, keep it, we’ll go to the store later and get something” he said as we started walking back to his house.  “Did you know that dude though?” he asked me.  Feeling a bit more bold as the trucks melodies faded, I replied with “All white people don’t know each other goddammit.”
+
+We laughed and walked the rest of the way home.
+
+ 
+
+I stayed over at Desmond’s house that night.  It was the usual.  My dad was working nights, and there was no one home who really cared where I was.  But Willa and Leo, they didn’t like me being home alone.  They knew my dad wasn’t just working… we all knew it, but they never said anything.  Just made me a plate at dinner every night, and gave me a place to sleep and do homework.  We were in the frontroom playing Sonic the Hedgehog, and heard Desmond’s parents talking in the kitchen.  “Clarita’s mom is still looking for her.  She didn’t come home all night.  Leo, go ask around, see if you can help find her.”  “Already on it baby” Leo said as he pulled his boots on.  “You boys come on, we bout to go handle some business.”
+
+We threw some shoes on and walked out the door and into the cold glow of the streetlights.  Leo wasn’t a large man.  He was slim and wiry.  Short.  Head shaved to the skin. But he commanded respect in a way that Desmond and I both wanted for ourselves.  He worked hard, he joked and laughed and knew everybody.  He talked to us as we walked into the night.  “I know you two heard, but little Clarita ain’t come home yet.”  We both nodded, and my cheeks flushed a bit.  Clarita was a skinny little girl that I’d always had a little crush on.  She gave me a hug once, after a school concert.  I’d never really forgotten that.  I still haven’t.  “Willa called the police already, but we can ask around see if anybody heard or saw anything.  Can’t waste no time waiting, we know that girl ain’t out being foolish.”  We both nodded, faces somber under the realization that this might actually be something bad.  We canvassed the neighborhood for blocks and blocks.  Leo talked to everybody we passed by on the street.  Nobody knew anything, but everyone said they’d keep an eye out. 
+
+Eventually, the night ended.  We didn’t make any progress, but we got a lot of promises to help look for Clarita.  This was our routine every night for an entire week.  Only one piece of information came out; the last time she was seen was by a few friends of hers at the ice cream truck the same day Desmond and I had our incident. 
+
+Seven days after she went missing, her body was found in a dumpster on 119^(th) and Halsted.  I didn’t know this until later, but her eyes and tongue and fingers were gone when she was found.  The fucking crazy thing?  That wasn’t the worst that happened that summer.
+
+ 
+
+To be continued….. 

@@ -32,7 +32,7 @@ It was the worst kind of crying too, the kind where tears come before you even k
 
 And even though it makes no sense, I panicked. I didn’t want him to see me cry. Couldn’t stand for him to see. That was the only thought in my head:
 
-*I can’t let him see.* 
+*I can’t let him see.* 
 
 So I spun around as tears fell and the lights broke open and flooded the world the way things do when you cry, and stumbled away.
 
@@ -128,7 +128,7 @@ I’ll be honest:
 
 I used her.
 
-The care that she showed me — the love she gave as freely as breathing — was something I’d literally never experienced. It was like a drug. It *was* a drug.
+The care that she showed me — the love she gave as freely as breathing — was something I’d literally never experienced. It was like a drug. It *was* a drug.
 
 I became a junkie.
 
@@ -182,7 +182,7 @@ None of that makes sense now, but it made sense to me back then.
 
 What also made sense was my fear.
 
-Maybe I *was* a bat inside, but I was more than my insides. I was my outsides, too. We all are. And I *needed* every last one of those extra letters that grew *bat* into *bastard*. I *needed* my bastard coat. What I knew — and what I could never tell her without risking her love — was that the world is safe for bastards. It isn’t safe for bats.
+Maybe I *was* a bat inside, but I was more than my insides. I was my outsides, too. We all are. And I *needed* every last one of those extra letters that grew *bat* into *bastard*. I *needed* my bastard coat. What I knew — and what I could never tell her without risking her love — was that the world is safe for bastards. It isn’t safe for bats.
 
 And more than anything, I wanted to be safe. That’s why I loved Bats so much: Because she made me feel safe.
 
@@ -282,7 +282,7 @@ I couldn’t help it. I felt at peace when I was with her. I felt loved. I felt 
 
 I wasn’t, and I *knew* I wasn’t. But I pretended. Sometimes pretending is all we get.
 
-So I pretended Bats was my family. Actually, that’s not completely true. She *was* my family, or at least the closest thing I had. But I pretended I was her family, too. And that really was pretend. Bats loved me, but she didn’t love me like family. She didn't love me best. She just loved me like she loved everyone else.
+So I pretended Bats was my family. Actually, that’s not completely true. She *was* my family, or at least the closest thing I had. But I pretended I was her family, too. And that really was pretend. Bats loved me, but she didn’t love me like family. She didn't love me best. She just loved me like she loved everyone else.
 
 But that was more than I’d ever had, and I took it without giving anything back except fake good behavior.
 
@@ -402,7 +402,7 @@ More work, a couple of magical outings with Bats sprinkled between dozens of out
 
 And like any junkie presented with an endless fix, I kept taking more from Bats than I gave.
 
-This sounds crazy too, but taking from her made me feel stronger. More stable. More *me.* Like the ground was no longer crumbling beneath my feet.
+This sounds crazy too, but taking from her made me feel stronger. More stable. More *me.* Like the ground was no longer crumbling beneath my feet.
 
 Bats, meanwhile, seemed to shrink. She diminished, somehow. And she was always so cold. Even when she came home from the club, she was no longer a furnace giving off sweat-damp heat. She was cool and clammy. Like she was sick. Or like something was eating her.
 
@@ -410,7 +410,7 @@ Knowing what I know now, I think something was.
 
 And I think that something was me.
 
-She came to the same conclusion because she woke me up one night, drunk and staggering. 
+She came to the same conclusion because she woke me up one night, drunk and staggering. 
 
 “I’m sorry I’m drunk,” she slurred. “I know you hate it, but I had to get drunk because that’s the only way I can say this to you. I don’t want to say it, but I need to. You know how that feels, don’t you? When you need to do something even though it’s the very last thing you want?”
 
@@ -436,13 +436,13 @@ For some reason, I started running.
 
 Before work, after work, all day on my days off. Sometimes I’d wake up in the middle of the night and just go out for a run. Flying blindly through the night in darkness thick and warm as syrup.
 
-I don’t even remember it. I remember that I *did* it, but don’t have any actual memories. Just a dreamy, endless impression of my feet on sunbleached concrete and ribbons of buckled asphalt and tired yellow grass in the park.
+I don’t even remember it. I remember that I *did* it, but don’t have any actual memories. Just a dreamy, endless impression of my feet on sunbleached concrete and ribbons of buckled asphalt and tired yellow grass in the park.
 
 Hour after hour, night after night, I ran. Almost like I was looking for her. I think I was. I think part of me was trying to catch her, somehow, before she got hit by that car. Hoping I could turn back time or change the future, or maybe just slide into a world where she was still alive. Maybe the very same world where crossing my parents’ threshold was a joyful homecoming instead of the latest step in our dysfunctional dance of separation and reunion.
 
 I was running through a living nightmare of my own making to chase down a dream.
 
-And one night — just as the weather began to turn, still warm but with the taste of in the air  — I woke up.
+And one night — just as the weather began to turn, still warm but with the taste of in the air  — I woke up.
 
 Reality rushed back in, brightly lit and dark-skied and irretrievably broken, and I found myself in front of Bats’ club.
 
@@ -454,7 +454,7 @@ It was the bouncer who’d turned me away before. The one who loved Bats. I expe
 
 Instead he waved me in.
 
-The inside of the club reminded me of Bats’ apartment: Dark walls draped with color and tangled webs of string lights. The cramped floor was dotted with mismatched tables. There were only two doorways: The one I’d just entered, and a wildly ornate door with a wooden sign that said *Mirror Thru Here.* At the back was a stage so tiny I couldn’t figure out how the band fit on it.
+The inside of the club reminded me of Bats’ apartment: Dark walls draped with color and tangled webs of string lights. The cramped floor was dotted with mismatched tables. There were only two doorways: The one I’d just entered, and a wildly ornate door with a wooden sign that said *Mirror Thru Here.* At the back was a stage so tiny I couldn’t figure out how the band fit on it.
 
 Their music filled the place. It wasn’t club music. I couldn’t tell you what genre it was. It was soothing and unsoothing, happy and heartbreaking, home and somewhere faraway all blended together into invisible smoke.
 
@@ -511,7 +511,7 @@ I grabbed my own chest, expecting my fingers to sink into my skin the way my bas
 
 The bouncer took my hand again. “It’s not that easy. First, we have to make absolutely sure you’re just like her.”
 
-Then he turned me around to face another, much smaller door across the room. It was half open. Darkness bled out. Etched into it were the words *Mirror Room*.
+Then he turned me around to face another, much smaller door across the room. It was half open. Darkness bled out. Etched into it were the words *Mirror Room*.
 
 Bats’ magic mirror.
 
@@ -587,7 +587,7 @@ Then he sent me on my way, with my bastard coat dragging on the ground behind me
 
 I staggered home just like Bats used to, stumbling through my apartment in a haze of shimmering sweat. I collapsed on my bed as the room spun gently.
 
-As I fell asleep, I noticed I couldn’t see my coat anymore. I could *feel* it, heavy as ever on my shoulders. But I couldn’t see it.
+As I fell asleep, I noticed I couldn’t see my coat anymore. I could *feel* it, heavy as ever on my shoulders. But I couldn’t see it.
 
 I haven’t seen it since.
 
@@ -601,4 +601,4 @@ I just woke up the next morning, standing on the edge of my moat while the groun
 
 I don't know what else to say, except I'd give a lot to go back and change it.
 
-Or at least to give her a fraction of what she gave me.
+Or at least to give her a fraction of what she [gave me.](https://www.reddit.com/r/NorthAmericanPantheon/comments/1mngy3f/story_master_list/)

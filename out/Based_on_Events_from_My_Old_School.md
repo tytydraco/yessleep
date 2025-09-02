@@ -1,0 +1,29 @@
+Even from the street, the school looked like it had stepped out of a ghost story. Brick walls framed with black-and-white timbering gave it the feel of Shakespeare’s old home, like it had been standing there for centuries, silently watching. Inside, it was always cold. The hallways smelled faintly of damp, and the heaters—antique, unreliable things—rarely worked. When they didn’t, we’d kick them until they grudgingly flickered to life.
+
+One corridor had walls painted from blue to yellow for some unknown reason, a garish splash in an otherwise solemn, echoing building. Being alone there at night, lights off, with no key card, felt like stepping into another world—one that remembered every student who had ever walked its floors.
+
+It had started life as a girls’ boarding school. Even now, carved into the stone above one of the doors, was the faded inscription: “Girls Entry.” The school had evolved over the years, letting boys in, but it felt like the ghosts of the past were still roaming the halls. Some nights, people swore they heard footsteps echoing through empty corridors, or laughter from rooms that hadn’t been used in decades.
+
+I spent my last year there navigating chaos and tension. The place wasn’t known for grades—it was known for surviving the students. Some were borderline criminals, others just… unpredictable. You learned to move like you were constantly being watched.
+
+One day, I was in the bathroom collecting toilet paper—don’t ask why—and I heard it: a knock on the stall next to me, followed by a laugh. The doors were locked, and I was the only one with the key. My heart hammered because, logically, it shouldn’t have been possible. But the laugh didn’t stop. Soft. Playful. Echoing.
+
+Then there was my IT teacher. A woman who seemed entirely incapable of teaching, she had a computer full of files that everyone whispered about but no one saw. Most days, she just sat there, silent, letting the class do whatever we wanted. Naturally, we played Cookie Clicker on the school computers, bypassing blocks with VPNs my friends had set up. But when she finally noticed, she’d come over, tell us to work, and then invent excuses when we pointed out that she hadn’t set anything.
+
+It all came to a head one day. She called me a “Stupid autistic boy.” I don’t know what snapped first—the rage, the years of absurdity, or the way the old building seemed to pulse around me—but I grabbed her laptop and smashed it on the desk. “Now maybe start teaching us something for once,” I shouted. She stammered, panicked, “Stop! All my important things are in there!” I just smiled. “Yeah. I know. That’s why I broke it.”
+
+And the year after I left… I heard something truly unsettling. One day, i bumped into former receptionist from the school while shopping, told me that two students had attacked the PE teacher with knives. It never made the news. No one outside the school would ever know. The building had absorbed every ounce of rage, fear, and violent energy, and somehow… let it loose.
+
+There were smaller, yet equally unsettling moments too. One Wednesday, two boys spent the entire second half of the day fighting. Somehow, their fight spilled out of the school, into the street—shouting, throwing stones and rocks, teachers struggling to restrain them. When my taxi arrived to take me home, I left the chaos behind. But when I returned the following week, at least four or five of the houses opposite the school were up for sale. People didn’t stay long near that place once they glimpsed its… influence.
+
+Even the journeys home could feel like extensions of the school’s chaos. One taxi driver used to speed recklessly, nearly crashing multiple times with me in the back seat. One day, I’d had enough. When he arrived to pick me up, I refused to get in. Teachers tried to persuade me, but I stood my ground. The driver got rude, yelling at me, and I responded by throwing stones at his Toyota Prius—the very stones I had collected months earlier in case of an “incident” like this. I told him not to come back. I’ve never liked those cars anyway.
+
+Sometimes, the taxis themselves seemed… different. Cars would arrive even when no one had called them, their engines growling as if aware. Once, as I sat in the backseat, the vehicle veered around corners with a life of its own, narrowly avoiding unseen obstacles—streets that had been empty seconds before now crowded with fleeting shadows. Headlights would flicker, revealing figures that vanished when you blinked. The drivers’ hands would tighten on the wheel as though they felt an unseen pressure, and I could swear the streets themselves twisted subtly, guiding the car along paths only the school could have chosen.
+
+I began to carry my stones everywhere, talismans against more than just reckless drivers. It felt like the school’s reach extended beyond its walls, a subtle manipulation, testing, watching, always present.
+
+Sometimes, late at night, former students whispered that the school didn’t just remember—it waited. Cold spots would appear in hallways. Doors would lock themselves. Lights would flicker at random. Some claimed that if you lingered in the old Girls Entry doorway, you could feel a presence, watching, judging, even breathing.
+
+By the time I left, most of the teachers were gone. The chaos I had survived would continue, but I knew I’d never look back. The building would eventually be abandoned, waiting for the curious, the foolish, the brave—or the unlucky.
+
+And if you ever go back, be careful. In that school, the past never truly leaves. Sometimes, it whispers. Sometimes, it laughs. And sometimes… it remembers you—and it feeds.
