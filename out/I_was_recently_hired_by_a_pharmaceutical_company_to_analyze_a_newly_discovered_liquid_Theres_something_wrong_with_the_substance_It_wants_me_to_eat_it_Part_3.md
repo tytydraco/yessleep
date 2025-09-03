@@ -160,7 +160,7 @@ By the next morning, someone had installed cameras around our front door.
 
 And I suppose that was also enough.
 
-Because I arrived at *CLM Pharmaceuticals* with a smile on my face the following morning.
+Because I arrived at *CLM Pharmaceuticals* with a smile on my face.
 
 \- - - - -
 
