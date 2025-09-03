@@ -74,7 +74,7 @@ I pulled Tyler aside after the kids had settled into their classrooms.
 
 “Okay, we’re away from the kids now” I whispered to him, becoming very serious. “You can be honest with me, what’s up with that kid?”
 
-Tyler chucked underneath his breath and placed a comforting hand on my shoulder. 
+Tyler chuckled underneath his breath and placed a comforting hand on my shoulder. 
 
 “Brooke, you gotta relax. Families are weird. *Kids*  are weird. I’ve learned to stop sticking my nose where it doesn’t need to be. No one’s dying. Let’s just do our jobs, okay? It’s probably just some random rich people family drama.” 
 
@@ -114,15 +114,15 @@ I mumbled curses underneath my breath and wiped off my hand on my blouse.
 
 “We need to get you to the nurse, *now.*” 
 
-Year four was a hard one for me. This was my breaking point where I realized the school was absolutely no help. Post nurse visit, Richie was discharged with a severe case of the Flu- Furiously, I rushed to the nurses to protest.
+Year Five was a hard one for me. This was my breaking point where I realized the school was absolutely no help. Post nurse visit, Richie was discharged with a severe case of the Flu- Furiously, I rushed to the nurses to protest.
 
 When I brought my unnerving news to the nurses, she simply stared at me for several seconds. The subtle smile faded from her face, and her eyes went glassy. 
 
 “It’s a classic case of the Flu.” 
  
-“Do you think I’m stupid? This is some fucked going on. Have we contacted his parents? Does he have any? Ralph, Richie, Roscoe… whoever this kid is, he’s not, you know, the way a kid is supposed to be!” I felt like the room was spinning. Was I insane? I looked at the black stain on my hand. No, this was real. 
+“Do you think I’m stupid? This is some fucked up stuff going on. Have we contacted his parents? Does he have any? Ralph, Richie, Roscoe… whoever this kid is, he’s not, you know, the way a kid is supposed to be!” I felt like the room was spinning. Was I insane? I looked at the black stain on my hand. No, this was real. 
 
-The nurse said nothing. The resting smile returned to her face and she continued on with be day as usual. 
+The nurse said nothing. The resting smile returned to her face and she continued on with her day as usual. 
 
 I was yelling at full volume now. 
 
@@ -130,10 +130,10 @@ I was yelling at full volume now.
 
 I had assumed that would work. Despite the fact that I would be losing the job I loved, i felt free that afternoon driving home from work- freer than I had in years, and freer than I would be for years to come. 
 
-The next morning I woke up in my classroom, at my desk. My class was in front of me- faces smiling and ready for the day. My immediate instinct was to stand up, bolt for the door or window, and scream for help. But, I couldn’t. It was like my body was forcing me to get up and step over to the white board. I picked up my pen and began to write the agenda for the day. I gained control of my body for a brief moment and forced my head to turn back around and gave the class. 
+The next morning I woke up in my classroom, at my desk. My class was in front of me- faces smiling and ready for the day. My immediate instinct was to stand up, bolt for the door or window, and scream for help. But, I couldn’t. It was like my body was forcing me to get up and step over to the white board. I picked up my pen and began to write the agenda for the day. I gained control of my body for a brief moment and forced my head to turn back around at the class. 
 
 
-*He* was in the corner, staring at back me. Black, beady eyes burning into my head. His legs were stretched and decomposing, and his arms were almost deconstructed. It looked fake. Like a glitch on a computer game. I thought it might have been my imagination at the time, but his foot was merging with the floor itself .That being said, none of it compared to this face. It was stiff, stretched back, and pale as a sheet of paper. The slits of his eyes peeled open permanently and his mouth hanging slightly ajar. 
+*He* was in the corner, staring back at me. Black, beady eyes burning into my head. His legs were stretched and decomposing, and his arms were almost deconstructed. It looked fake. Like a glitch on a computer game. I thought it might have been my imagination at the time, but his foot was merging with the floor itself .That being said, none of it compared to this face. It was stiff, stretched back, and pale as a sheet of paper. The slits of his eyes peeled open permanently and his mouth hanging slightly ajar. 
 
 He looked downright plastic. 
 
