@@ -76,4 +76,4 @@ But the diary says otherwise.
 
 It says:
 
-**September 2, 9:58 p.m.** \- He thinks posting this will save him. He thinks someone out there will help. But all he’s done is spread it. Every person who reads his words has already opened their own diary. They just haven’t found it [yet.](https://www.reddit.com/user/salty_Astronaut77/comments/1n0trer/new_horror_publication_giveaway_early_access_to/)
+**September 2, 9:58 p.m.** \- He thinks posting this will save him. He thinks someone out there will help. But all he’s done is spread it. Every person who reads his words has already opened their own diary. They just haven’t found it [yet.](https://www.reddit.com/u/salty_Astronaut77/s/H0bIOt4bRN)

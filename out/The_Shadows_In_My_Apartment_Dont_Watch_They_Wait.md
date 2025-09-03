@@ -70,5 +70,5 @@ Because those who live in the shadow are patient. And if you hesitate… they wi
 
 I can feel you now. Watching. Waiting. The corners are hungry. The shadows are hungry.
 
-And soon… they will have [you.](https://www.reddit.com/user/salty_Astronaut77/comments/1n0trer/new_horror_publication_giveaway_early_access_to/)
+And soon… they will have [you.](https://www.reddit.com/u/salty_Astronaut77/s/H0bIOt4bRN)
 
