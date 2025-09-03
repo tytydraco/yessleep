@@ -36,7 +36,7 @@ The police pulled me out of class a few days later. Took my phone, put me in han
 
 But the detectives… they think I did it. 
 
-Somebody tagged me in a post about what happened to me. At first I thought my followers rallied for me. But the title read*, The StoryCrypt Killer: An Analysis.* 
+Somebody tagged me in a post about what happened to me. At first I thought my followers rallied for me. But the title read, *The StoryCrypt Killer: An Analysis.*
 
 My channel got demonetized. I think the cops doxed me. I can’t leave my house. Not because of the police. Because of the clout chasers. They stand on the sidewalk,  streaming lives, pointing at my windows. 
 
