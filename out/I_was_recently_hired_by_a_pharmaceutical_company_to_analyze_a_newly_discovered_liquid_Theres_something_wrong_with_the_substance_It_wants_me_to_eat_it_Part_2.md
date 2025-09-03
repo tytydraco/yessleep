@@ -1,11 +1,11 @@
 [PART 1. ](https://www.reddit.com/r/nosleep/comments/1n0xfok/i_was_recently_hired_by_a_pharmaceutical_company/)  
 \- - - - -
 
-With temptations addressed, let's continue on to assumptions; another fundamentally misunderstood concept. The discrepancy here is relatively straightforward. 
+With temptations addressed, let's continue on to assumptions; another fundamentally misunderstood concept. The discrepancy here is relatively straightforward.
 
-Assumptions - to a certain degree - are just lies. 
+Assumptions - to a certain degree - are just lies.
 
-Not the brazen, reality-breaking kind like *Watergate* or the ancient Greek diplomat claiming *“there are no soldiers inside this giant, wooden horse,”* with a shit-eating grin painted across their face. Assumptions are quieter falsehoods. Self-directed lies of omission. We assume things to be true when we desperately *want* them to be true. Clarification carries the distinct possibility of proving the opposite of our preferred truth, so why bother? It’s a bad bet. A risk not worth taking. Better to smooth out the harsh edges of reality with a healthy dose of conjecture and just call it day. 
+Not the brazen, reality-breaking kind like *Watergate* or the ancient Greek diplomat claiming *“there are no soldiers inside this giant, wooden horse,”* with a shit-eating grin painted across their face. Assumptions are quieter falsehoods. Self-directed lies of omission. We assume things to be true when we desperately *want* them to be true. Clarification carries the distinct possibility of proving the opposite of our preferred truth, so why bother? It’s a bad bet. A risk not worth taking. Better to smooth out the harsh edges of reality with a healthy dose of conjecture and just call it day.
 
 Unconvinced?
 
@@ -29,17 +29,17 @@ The unexpected swoon of his familiar voice materializing from the void as I was 
 
 *“…need me to repeat the instructions, Helen?”*
 
-I gave the empty air a meek, hesitant nod. He relayed the instructions a second time. Still quivering a little under the influence of epinephrine, I tiptoed over to the steel double doors, and pressed the *up* arrow on the dashboard. The doors opened immediately, almost as if the carriage itself hadn’t moved an inch since I’d entered the lab three hours prior. 
+I gave the empty air a meek, hesitant nod. He relayed the instructions a second time. Still quivering a little under the influence of epinephrine, I tiptoed over to the steel double doors, and pressed the *up* arrow on the dashboard. The doors opened immediately, almost as if the carriage itself hadn’t moved an inch since I’d entered the lab three hours prior.
 
 But that couldn't be true, right?
 
-\- - - - - 
+\- - - - -
 
-**August 28th, 2025 - Morning** 
+**August 28th, 2025 - Morning**
 
-*CLM* headquarters was certainly a monument to their dominance of the industry: a decadent altar to a once boundless prosperity and an impenetrable, corporate stronghold in the most medieval sense of the word. It just wasn't apparent *when* that dominance occurred, because it clearly wasn't ongoing. 
+*CLM* headquarters was certainly a monument to their dominance of the industry: a decadent altar to a once boundless prosperity and an impenetrable, corporate stronghold in the most medieval sense of the word. It just wasn't apparent *when* that dominance occurred, because it clearly wasn't ongoing.
 
-Based on how empty the place was, that golden age seemed to have long since passed. 
+Based on how empty the place was, that golden age seemed to have long since passed.
 
 The compound’s architecture was reminiscent of a colossal, upright plunger: a domed foundation that narrowed at the center, with sleek, box-shaped offices that extended upwards floor by floor, thousands of feet into the atmosphere. All the communal spaces were within the dome, things like the cafeteria, security office, greenhouse, gymnasium, bar, nursery, library, chapel, apiary…so on and so on. The functional spaces were above. To continue with the plunger analogy, my lab was about one-fifth of the way up the handle. If it had any windows, I’d probably be able to see a faint silhouette of the city’s skyline from that height.
 
@@ -49,11 +49,11 @@ I say *non-existent* because I never saw anyone posted there, so I believed, unt
 
 Another lie for the pile, another temptation obliged - so the old saying goes.
 
-Anyway, I’d close my eyes, count to ten, and *"wait my turn"* per protocol. Why do it? Well, as mentioned, they were always watching. Security cameras littered the outside of the elevator shaft like boils on the skin of a peasant about to succumb to the black plague, haphazardly placed and too numerous to count, all angled down to monitor the lobby. Just as with the mandated meditation, I didn’t push back against protocol, even though the protocol felt patently ridiculous in practice.  
+Anyway, I’d close my eyes, count to ten, and *"wait my turn"* per protocol. Why do it? Well, as mentioned, they were always watching. Security cameras littered the outside of the elevator shaft like boils on the skin of a peasant about to succumb to the black plague, haphazardly placed and too numerous to count, all angled down to monitor the lobby. Just as with the mandated meditation, I didn’t push back against protocol, even though the protocol felt patently ridiculous in practice.
 
 On the count of ten, I’d pass the checkpoint, call the elevator, type *32* into the elevator’s digital keypad, tap my badge against the reader, and *presto -* the doors would soon open to my home away from home.
 
-This morning, however, The Executive instructed me via the previously undetected intercom to leave my post, enter the elevator, and type *272.* 
+This morning, however, The Executive instructed me via the previously undetected intercom to leave my post, enter the elevator, and type *272.*
 
 The gears and the pulleys whirred to life before I even placed my badge against the reader. Made me wonder if that step was necessary to begin with. As the machine carried me higher and higher, I tried to remember *why* that was part of my routine. Where did I learn it? Was it part of the protocol? Did I just start doing it of my own accord for some inane reason? My futile attempts at dissecting that mystery were fortunately interrupted by the shrill chiming of a digital bell. The gentle humming of the elevator motor died out. When the doors opened, he was staring right at me from directly across the room, bloodshot gray-blue eyes full and seething with either rage or excitement.
 
@@ -91,7 +91,7 @@ After some uncomfortable trial and error, I discovered a pocket of air in the ba
 
 My jaw practically hit the floor. I’d been stewing over my lustful ingestion of the oil for *months* now. I held cavalcades of half-answers to what seemed like millions of unasked questions between the folds of my brain - so much so that my head felt heavier on my shoulders - in an attempt to be prepared for this moment. The point at which I’d either have to defend my actions or lie through my teeth.
 
-I feel a bit embarrassed to say I was unprepared for this *particular* angle, but I suppose I have no one to blame but myself. 
+I feel a bit embarrassed to say I was unprepared for this *particular* angle, but I suppose I have no one to blame but myself.
 
 *“No? Not ringing a bell? Curious.”* He leafed through the packet and located another excerpt.
 
@@ -125,7 +125,7 @@ I recognize this next statement may be confusing - mostly because I haven’t go
 
 What did I have left to lose by leaving, anyway?
 
-The people I loved were long gone, and that was my fault. 
+The people I loved were long gone, and that was my fault.
 
 Might as well just fuck off into obscurity.
 
@@ -133,17 +133,17 @@ Might as well just fuck off into obscurity.
 
 A lengthy, pregnant pause followed.
 
-I really had no way of anticipating what came next. 
+I really had no way of anticipating what came next.
 
 He tried to appear stoic, but failed, discharging a tiny, capricious snicker.
 
-From there, the dam broke. 
+From there, the dam broke.
 
 He simply couldn’t hold it in anymore.
 
-The Executive erupted into violent laughter. His cheeks became flushed. Tears streamed down his face. He cackled until he’d divested every single molecule of oxygen he had to his name, and then he just began wheezing, his expression twisted into a surreal caricature of elation throughout the entire episode. I closed my eyes and placed my hands over my ears. I couldn’t absorb the brunt of it. 
+The Executive erupted into violent laughter. His cheeks became flushed. Tears streamed down his face. He cackled until he’d divested every single molecule of oxygen he had to his name, and then he just began wheezing, his expression twisted into a surreal caricature of elation throughout the entire episode. I closed my eyes and placed my hands over my ears. I couldn’t absorb the brunt of it.
 
-There's something desperately wrong with that man. 
+There's something desperately wrong with that man.
 
 Eventually, I creaked a single eyelid open. His joy-flavored seizure seemed to be calming. He flicked a tear from the bridge of his drenched nose and sent a tight fist down onto the desk like a gavel.
 
@@ -177,7 +177,7 @@ For the first and only time, his smile was absent.
 
 *“I mean,* ***we*** *wouldn’t. Not personally, not directly, but we could put the dominos in motion, and then* ***you’d*** *bring her back. Like I said, you’re our best refiner.”*
 
-My heart began to somersault. My mouth felt dry, nearly moisture-less. I begged my fingers to reach for the *down* button, but they refused to listen. I was paralyzed where I stood. 
+My heart began to somersault. My mouth felt dry, nearly moisture-less. I begged my fingers to reach for the *down* button, but they refused to listen. I was paralyzed where I stood.
 
 *“I can’t imagine that’d be pleasant from your side of things. Not one bit. That wouldn’t be the end of it, either. We would dismantle her. You'd* ***watch*** *us dismantle her. Then, you’d bring her back again. Takes talent and genetics to be able to create a Barren, but it takes practice, too. I’d be more than happy to burden you with some very, very specific practice. As much as it took to internalize your position in this hierarchy.”*
 
@@ -199,13 +199,13 @@ They shut with a heavy click.
 
 I heard him begin to laugh again as I finally, mercifully, descended.
 
-Took about a minute before I couldn't hear him any longer. 
+Took about a minute before I couldn't hear him any longer.
 
 \- - - - -
 
-With that out of the way, I suppose I can continue where I left off. 
+With that out of the way, I suppose I can continue where I left off.
 
-Here's a teaser: 
+Here's a teaser:
 
 *Why does the carbon-based, non-cellular grease move with purpose?*
 
@@ -219,6 +219,10 @@ Here's a teaser:
 
 \- - - - -
 
-Unfortunately, and against my will, 
+Unfortunately, and against my will,
 
 [more to follow.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+
+\- - - - - 
+
+EDIT: To [PART 3](https://www.reddit.com/poststats/1n71utg/)
