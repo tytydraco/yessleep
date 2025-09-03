@@ -115,3 +115,6 @@ It's a diary
 
 I’m not posting what’s written in it. Not yet. 
 Will try to get some sleep 
+
+
+Edit 3. :  I share what happens next[Part 2](https://www.reddit.com/r/nosleep/s/YxmvcwSE11)
