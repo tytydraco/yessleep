@@ -115,3 +115,5 @@ If anybody’s wondering, no I still haven’t told them about the email. There 
 But now I don’t know. I really don’t know.  And I’m not sure what to expect from here.
 
 If anything else happens, I’ll update.
+
+UPDATE: [https://www.reddit.com/r/nosleep/comments/1n5unqd/remember\_those\_creepy\_chain\_emails\_from\_the/](https://www.reddit.com/r/nosleep/comments/1n5unqd/remember_those_creepy_chain_emails_from_the/) 
