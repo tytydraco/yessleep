@@ -164,7 +164,7 @@ Wherever the liquid had touched him, circles of pure, raw red were opening up on
 
 As quickly as Frank's head had come apart, it began to reform. Like a time lapse in reverse, the skull and skin rearranged themselves, shards of bones clicking back into place through some unseen means.
 
-No longe restrained, Frank went for the door mechanism, forcing them shut again with a hiss.
+No longer restrained, Frank went for the door mechanism, forcing them shut again with a hiss.
 
 I couldn't fight back. I didn't want to risk touching that walking mass of disease. He was sick in more ways than one.
 
@@ -186,7 +186,7 @@ This happened two days ago. My temple is still throbbing where the bullet grazed
 
 Nothing but Frank.
 
-We have only ever stopped to get gas or supplies a few times. There is a decrepit, filthy toilet system in the back alcove of this bus. We discovered it on the first day. The only food on board were the old woman's groceries. They quickly ran out among the five people. Now, we divide up whatever miscellaneous scraps Frank throws our way. He doesn't want us to starve. It's like he needs us to stay alive, for whatever reason.
+We have only ever stopped to get gas or supplies a few times. There is a decrepit, filthy toilet system in the back alcove of this bus. The only food on board were the old woman's groceries. They quickly ran out among the five people. Now, we divide up whatever miscellaneous scraps Frank throws our way. He doesn't want us to starve. It's like he needs us to stay alive, for whatever reason.
 
 When he leaves, the bodies watch us. Propped up in the aisle with vacant, glass stares.
 

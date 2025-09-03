@@ -206,11 +206,13 @@ She relinquished the laptop with palpable reticence, and nervously watched as I 
 
 To my surprise, she didn’t appear to be lying.
 
-Every morning was the same. The camera posted above our doorbell recorded dawn’s arrival to our sleepy city street, isolated from the bustle of downtown. No intruders coming or going. No people at all, actually. No explanation for the *thumps* whatsoever. Something wasn’t right, though. I couldn’t put my finger on it, but I felt a tickle in the back of my skull that wouldn’t go away. So, when I was finished fast-forwarding through all fourteen recordings, I started again. 
+Every morning was the same. The camera posted above our doorbell recorded dawn’s arrival to our sleepy city street, isolated from the bustle of downtown. No intruders coming or going. No people at all, actually. No explanation for the *thumps* whatsoever. Something wasn’t right, though. I couldn’t put my finger on it, but I felt a tickle in the back of my skull that wouldn’t go away. So, when I was finished fast-forwarding through all fourteen recordings, I started again.
 
-I watched them a third time. Then a fourth and a fifth. My unease festered. What was wrong? What wasn’t I seeing?
+I watched them a third time. My unease festered. What was wrong? What wasn’t I seeing?
 
-That tickling sensation had progressed from mild discomfort to a full-on feeling of impending doom. I was on the cusp of something, teetering. To keep looking, to keep inspecting, to keep my eyes rolling across the proverbial crack in the wall - change was guarenteed. 
+There was a fourth viewing, followed by a fifth, followed by a sixth. 
+
+That tickling sensation had progressed from mild discomfort to a full-on feeling of impending doom. I was on the cusp of something, teetering. To keep looking, to keep inspecting, to keep my eyes rolling across the proverbial crack in the wall - change was guarenteed.
 
 I had a choice to make: close the laptop and try to move on, or peel away the veil.
 
@@ -218,9 +220,9 @@ In the end, I continued.
 
 What goes up, must come crashing down.
 
-My eyes went wide. A trembling finger paused the recording. 
+My eyes went wide. A trembling finger paused the recording.
 
-I rewound it and played the clip once more. 
+I rewound it and played the clip once more.
 
 It happened again. I hadn’t imagined it.
 
@@ -228,19 +230,19 @@ The camera was pointed toward the east. In the footage, the sun rose over the ho
 
 Same with the following day, and the day after that, and then, finally, as I looked deeper, the facade began to unravel.
 
-On the next day’s footage, the city block disappeared. It was there when I reviewed it before, but now, it was gone. In its place, I saw a poorly maintained asphalt street, and beyond that, an empty field. 
+On the next day’s footage, the city block disappeared. It was there when I reviewed it before, but now, it was gone. In its place, I saw a poorly maintained asphalt street, and beyond that, an empty field.
 
 I moved on to the day after that. The street was gone and there was a fence in the distance, but where chain-link *should* have been, there were panels of reflective glass.
 
 At that point, I couldn't stop myself.
 
-I'd seen too much. 
+I'd seen too much.
 
 And when I had seen enough, when the sun’s trajectory through the sky became smooth and unhampered, when the veil was fully pulled back, I saw *them* leaving my home.
 
 Naked. Gray, translucent skin. Men and women. Clumsy, arthritic-looking movement. They exited, pulled the front door closed behind them, creaked across the driveway, onto the street, and eventually, out of frame, always to the left.
 
-I slammed the laptop shut and shot up from the table. Unexpectedly, I collided with Linda. She had been silently hovering over my shoulders for God knows how long. I pushed her away with all the force I could muster. She crashed into the wall. 
+I slammed the laptop shut and shot up from the table. Unexpectedly, I collided with Linda. She had been silently hovering over my shoulders for God knows how long. I pushed her away with all the force I could muster. She crashed into the wall.
 
 From across the kitchen, I stared at her, and her face began to twist and contort.
 
@@ -274,13 +276,13 @@ No soggy squish of eviscerated tissue.
 
 The maiming was eerily silent.
 
-I felt the vehicle rise and fall without protest, 
+I felt the vehicle rise and fall without protest,
 
 like driving over unplowed snow.
 
 Eventually, I did brake, tires screeching against the asphalt. It was reflexive. On cursory examination, I had just run over my wife, although the truth of the matter was much more perverse. I placed the car in park. Wearily, I slid out to see what remained of her.
 
-I shouldn't have done that. 
+I shouldn't have done that.
 
 Her body had been trisected, wide incisions made at her knees and her rib cage. Splotches of grayish foam littered the area.
 

@@ -20,7 +20,7 @@ Standing outside on my “unless you have pizza, go away” door mat was a guy p
 
 The clothes he was wearing looked…odd, to be PC about it. He was wearing torn boots laced with wire, a jacket patched by hand, stitched together with varied pieces fabric that didn’t go together at all, and on the sleeve was an insignia which looked military in nature, half-burned away as if someone tried to erase it and only partially succeeded.
 
-He startled and stared at me as if *I* were the one causing a ruckus in the middle of the night on a Tuesday.
+He startled and stared at me as if *I* were the one causing a ruckus in the middle of the night on a Thursday.
 
 “They said I’d land in *before*,” he rasped, his voice sounding cracked and in need of hydration. “Is this before?”
 
@@ -113,3 +113,19 @@ And then part of me wants to believe that it was just the ramblings of some rand
 But I can’t stop thinking of the way the world looked when he just disappeared. And his words still ring in my ears, leaving tinges of fear and uncertainty:
 
 “You’ll know them when they come.”
+
+\----------------------------------------------------------------------------------------------------------------------------
+
+This all happened a few nights ago...and for the first couple of days, the cube was just that: a cube. Silent, still, just a weird thing taking up space on my table. 
+
+Then, late last night...it hummed. I heard it from my bedroom. It was just once, but it was enough. The sound was low, like a bass note I could literally feel in my teeth. 
+
+I slowly walked into the living room, wielding a plastic cosplay sword (you know, to do some damage if need be) but the living room was still. 
+
+I looked at the cube from a distance, but didn't touch it. I somehow felt that would result in my "answering it," which the dude explicitly instructed me *not to do*. 
+
+But as I was looking at it, I think for a split second I saw something shift across its surface. Not a reflection but almost as if...something inside were pushing outward. 
+
+Oh and that scratching sound I was hearing? Yea, it's gotten louder now. I can't tune it out no matter what I do. 
+
+I don't know what the fuck is going to happen when/if it hums again, and I'm almost sure that I definitely do not want to know...
