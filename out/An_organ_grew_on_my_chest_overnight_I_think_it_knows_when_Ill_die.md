@@ -116,6 +116,6 @@ Right then and there I knew I had to do something, I couldn't hide... whatever t
 
 I stayed there for a while, kneeling in the dirt, listening to the wind whistle through the empty bleachers. I had pulled out my phone looking through the nearest hospitals nearby that I could.. maybe seek refuge to—I was hesitant, but I was determined to take back my life, to no longer let circumstances win over.
 
-It may have felt like the game had already moved on without me, but I wasn't going to give up without a fight, whether I have to do it thing alone—to rip it out of my chest and hit with a swing to throw it as far as possible.
+It may have felt like the game had already moved on without me, but I wasn't going to give up without a fight, even if I have to do it alone—even if to rip it out of my chest and hit with a swing to throw it as far as possible was the only way out.
 
 I'm going to survive, even if I have to die trying.
