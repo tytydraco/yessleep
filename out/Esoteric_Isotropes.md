@@ -1,4 +1,4 @@
-Warning: the following story contains themes thay may upset some people including: death of a loved one, overdose, and torture. Please be advised. 
+Warning: the following story contains themes that may upset some people including: death of a loved one, overdose, and torture. Please be advised. 
 
 Prologue
 
