@@ -1,3 +1,5 @@
+Warning: the following story contains themes thay may upset some people including: death of a loved one, overdose, and torture. Please be advised. 
+
 Prologue
 
 I was never a very religious man. Hell, I wasn’t even a very good man. Most of my life was lived in direct contrast to almost every tenet of any religion. I sat there listening to the raspy breath escaping my lungs. I was never a religious man and even now in my final hours I reached out to no God, I said no prayers to fall upon absent ears. All I could think about was my life and the events that put me here. 
