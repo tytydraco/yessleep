@@ -1,12 +1,6 @@
 My name is Sameer. I was an engineering student until I wasn’t. I dropped out to chase acting, and I moved into this place because I needed my own hours. The rent is fifteen thousand a month, too cheap for Santacruz, and it came with fifteen rules from a landlord who never shows his face. I posted those [already](https://www.reddit.com/r/nosleep/s/tqpAYjWEmi).
 
-Tonight I couldn’t sleep. Every tick and hum in the flat felt like it was aimed at me. So I unpacked.
-
-The bedroom closet is old laminate, swollen and ugly from the monsoon air. The bottom drawer screamed when I pulled it and then gave way. At the back my thumb found a panel that bent inward when it shouldn’t. I pressed. It sighed and lifted, and a hollow space gaped open where there should have been wood.
-
-Something was inside.
-
-Dust bloomed in the air, bitter in my throat. The cover of the book was dark brown and cracked, the corners soft as though too many hands had worn them down.
+I opened the diary 
 
 Inside the front page a name was scrawled in block letters
 
@@ -16,7 +10,7 @@ The next page had something glued to it. A cut-out from a school ID card.
 
 A boy’s photograph. Twelve, maybe thirteen. Light blue uniform shirt, striped tie, the emblem of some school pressed into plastic. His hair was combed neatly, his eyes wide like he didn’t want to blink.
 
-I sat cross-legged on the floor, the diary heavy in my lap. The handwriting started neat, but even at a glance I could see it change. The pen dug deeper into the page as though the boy’s hand had been fighting the paper itself. I turned to the first entry and began to read
+
 
 **17 October 2017**
 
