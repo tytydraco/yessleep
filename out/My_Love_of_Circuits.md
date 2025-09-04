@@ -52,7 +52,7 @@ I sat on the chair paralysed, I tried to ask a question, but nothing released fr
 
 “Shutdown, shutdown, shutdown, shutdown” my son repeated, his voice devoid of life. His words sent a chill down my spine. Within a second, his body fell to the floor, spasming everywhere. I yelled out his name, I was greeted with his body smashing into the glass coffee table in the room. Still, he continued to spasm across the living room. And then, the unthinkable.
 
-A loud BOOM echoed across the space, his head was absent from his body, the walls painted blood with his blood. Fragments of his old teeth were stuck in my leg, like shrapnel from a grenade. I collapsed onto the floor, screaming out his name. In the centre of the room laid a metallic box with wires circulating every side, some torn, presumably from his spasm fit. I stepped closer to the metallic box, picking it up. Kenneth’s words rang across my mind.
+A loud BOOM echoed across the space, his head was absent from his body, the walls painted red with his blood. Fragments of his old teeth were stuck in my leg, like shrapnel from a grenade. I collapsed onto the floor, screaming out his name. In the centre of the room laid a metallic box with wires circulating every side, some torn, presumably from his spasm fit. I stepped closer to the metallic box, picking it up. Kenneth’s words rang across my mind.
 
 “All flesh, but a metallic machine locked up where her brain should be.” That’s what he said about Frankie. The metal box was a reminder of his words.
 
