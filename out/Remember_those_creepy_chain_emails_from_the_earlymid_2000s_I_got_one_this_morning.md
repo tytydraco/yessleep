@@ -116,4 +116,4 @@ But now I don’t know. I really don’t know.  And I’m not sure what to expe
 
 If anything else happens, I’ll update.
 
-UPDATE: [https://www.reddit.com/r/nosleep/comments/1n5unqd/remember\_those\_creepy\_chain\_emails\_from\_the/](https://www.reddit.com/r/nosleep/comments/1n5unqd/remember_those_creepy_chain_emails_from_the/) 
+UPDATE: [Remember those creepy chain emails from the early-mid 2000's? I got one this morning - UPDATE : r/nosleep](https://www.reddit.com/r/nosleep/comments/1n7574p/remember_those_creepy_chain_emails_from_the/)
