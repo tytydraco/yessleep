@@ -106,4 +106,3 @@ Collin didn't laugh with us.
 
 He just nodded, stepped back as the elevator doors opened. “I’ll swing back at four to sneak you out. Just… don’t let it *see* you.”
 
-the next part coming soon 
