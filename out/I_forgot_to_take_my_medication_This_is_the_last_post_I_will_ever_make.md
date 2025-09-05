@@ -1,0 +1,23 @@
+I’ve been sick for a long time. Ever since I was about 16, I had to take medicine. I am prescribed olanzapine, 5mg, and citalopram, 10mg. I take them before bed every night, but sometimes I forget them. This is one of those times.
+
+I woke up. I felt a strange, almost energetic feeling. I got out of bed immediately; I never do that. I felt almost wired, full of energy. It was almost overwhelming. I went downstairs, my cats greeted me at the door, and my bird was yelling and chirping like he always did when I entered the room.
+
+I made myself a coffee and opened up my laptop. I was texting with my girlfriend, it always felt good to do that in the morning. Even if the conversations were meaningless banter, it still filled me with joy. But that joy was cut short, an eerie feeling came over me.
+
+I fell asleep last night, but I did not remember taking my medication. It felt like I was sinking through the floor, I knew what was going to happen. My vision started sharpening, I could see details I normally didn’t. That energetic, wired, happy feeling turned into a state of hyperarousal. I could feel the hairs on my neck stand up. I saw spiders crawl on top of the door and my vision got so distorted all of the furniture started to move. And then, I heard it.
+
+I heard laughter behind me. Not an infectious laugh, but a deep and unsettling belly laugh that sent chills down my spine. Because I recognized that laugh, I’d recognize it anywhere. Whenever I heard someone laugh like that in public, I had a panic attack. Not again, I thought.
+
+Everything in my body told me not to, but I looked down over my shoulder, and there he was again, Pilaf. Pilaf always showed up when I would forget my pills. He was a small gnome. But instead of wearing regular gnome clothing, he wore jeans, Adidas Spezial shoes, a Stone Island jacket and a baseball cap from The North Face. He smiled at me, it didn’t look like a regular smile. It looked almost inhuman how happy he was to appear again.
+
+“Shit! Crap! Poop! Feces! Brown feces!”
+
+He never spoke in real sentences, he only used synonyms for human waste. But it was never funny to me. Pilaf handed me a note which I opened hesitantly. It just read: *It’s time.* When I looked back at him he handed me a chainsaw, last time it was just a small kitchen knife, and the time before that he gave me a pair of dull scissors. I took the chainsaw from him like something took over me. I felt this dread, this extreme fear. Yes, I knew what was going on. There were people ganging up around my house, looking for me. They wanted to kill me. I took off all of my clothes and smeared myself with peanut butter and a few other grocery store products I found in the kitchen. I started chugging coffee like a madman to give myself more energy and I slowly crept up to the door, chainsaw in hand. I opened the door slowly, I tried not making any noise. I quietly crept outside. There was no one there. Pilaf appeared behind me.
+
+“Butt nuggets! Poo! Dookie! Sewer snakes!”
+
+He handed me another note, it said: *Neighbours.* I knew where the attackers were hiding now, they snuck into the neighbours' house, murdered them and hid there. I was certain of it, something inside of me told me this was true. I looked at their door, it didn’t seem very strong. So I kicked it, I heard yelling in their living room. Were they in danger? I was worried, I kicked as hard as I could and the door finally broke open. I saw masked men on the couch. I didn’t think twice, it was me or them. I sprinted toward them and started sawing them, body parts were flying across the room and everything including myself was covered in blood. I looked away to avoid myself from vomiting even more. But curiosity got the best of me, and I looked. The masked men were gone, it was the neighbours. I tore my neighbours to pieces, I never liked them anyway. But they didn’t deserve this. I could hear sirens in the distance. People must’ve seen what happened through the windows, it was over. As the flickering blue lights approached the house, I knew that I would never be a free man again. Pilaf was nowhere to be found, he always left when the trouble came. But I knew he was watching, laughing, cackling. This is what he wanted, and oh man did he get it.
+
+I felt cold. Not the temperature of my body, but inside of my head. I didn’t care, at least they’ll remind me to take my medicine when I am locked up.
+
+I hope this story reaches someone, as I am typing this with my blood covered hands in the kitchen of my dead neighbours. 
