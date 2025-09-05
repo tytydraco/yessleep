@@ -599,7 +599,7 @@ He sighed and gave me a quick glance.
   
 
 
-We made it back to the camping area and I met up with Ben and Sean who both understandably, had a few questions, however, I didn’t have time to answer them since the rangers were shutting down the camping area and the trails and we had to leave. We packed up our things and loaded my car just as they were closing the gates.
+We made it back to the camping area and I met up with Ben and Sean who both understandably, had a few questions, however, I didn’t have time to answer them since the rangers were shutting down the area and we had to leave. We packed up our things and loaded my car just as they were closing the gates.
 
 
 
