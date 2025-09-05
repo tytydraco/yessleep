@@ -1,10 +1,10 @@
-My phone sent a shelter-in-place alert using my name. It kept updating from outside my door.
+My phone sent an amber alert using my name. It kept updating from outside my door.
 
 At 2:17 a.m. my phone ripped the room open with that Amber Alert siren.
 The status bar said T-Mobile LTE — 2:17 AM and the banner read:
 
 > EMERGENCY ALERT
-This is a shelter-in-place order.
+This is an amber alert order.
 Recipient: Danny
 Hide immediately. Do not answer the door.
 Threat level: EXTREME.
