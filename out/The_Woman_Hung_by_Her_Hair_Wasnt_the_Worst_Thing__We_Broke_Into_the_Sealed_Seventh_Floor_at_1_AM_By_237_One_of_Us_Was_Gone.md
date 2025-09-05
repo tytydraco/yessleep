@@ -106,3 +106,4 @@ Collin didn't laugh with us.
 
 He just nodded, stepped back as the elevator doors opened. “I’ll swing back at four to sneak you out. Just… don’t let it *see* you.”
 
+[the second part](https://www.reddit.com/r/nosleep/comments/1n9ewfd/something_came_out_of_the_elevator_without_a_face/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
