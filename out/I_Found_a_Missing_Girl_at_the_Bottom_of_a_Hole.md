@@ -114,7 +114,7 @@ After a while, James and Sean’s echoing calls faded away as we made our way to
 
 
 
-We found a shaded spot next to an outcropping of rocks next to the trail, took off our packs, and pulled out some snacks. We sat silently eating and listening between deafening bites of granola. 
+We found a shaded spot next to an outcropping of rocks just off of to the trail, took off our packs, and pulled out some snacks. We sat silently eating and listening between deafening bites of granola. 
 
 
 
@@ -418,7 +418,7 @@ I sat for a while longer, waiting for the sound of the cavalry rushing up the hi
 
 
 
-“Shit! Sarah! What is it?”
+“Sarah! What is it?”
 
 
 
