@@ -100,7 +100,7 @@ I stepped into the flower beds, peering in through the windows.
 
 Someone was lying on the couch, their head tilted back like they were staring up at the ceiling. For a moment that was what I thought was happening, until I saw that their chest was opened up like a patient on a surgery table. All guts and organs and blood, so much blood. 
 
-It was Mr. Wilson, in his sweater vest and brown dad shorts. 
+It was Mr. Winston, in his sweater vest and brown dad shorts. 
 
 Dead like the mailman. Dead like my mom. 
 
