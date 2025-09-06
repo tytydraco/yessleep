@@ -42,7 +42,7 @@ On the table, the old paper from the day before disappeared, replaced by a black
 
 “Don’t let anyone know the truth. If you tell them, they’ll come sooner.”
 
-“The first one wasn’t Linh. The first one was me.”
+“The first one wasn’t Sarah. The first one was me.”
 
 The last page had the same handwriting as mine, but I never wrote:
 “It’s your turn.”
