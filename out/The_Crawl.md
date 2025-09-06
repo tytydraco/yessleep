@@ -1,4 +1,4 @@
-I went to a strange summer camp as a child. I think something terrible happened there.
+I went to a strange summer camp as a child. I think something awful happened there.
 
 I'm a college grad who moved back to my hometown. Recently, I got coffee with an old friend who I'l call S, paid for with the coupon perks graciously provided by my internship with the local historic society. We've been doing this recently, meeting downtown to catch up and swap stories about our childhoods here.
 
