@@ -1,6 +1,6 @@
 I came home from a twelve-hour shift and found my husband fucking a doll.
 
-“What the fuck, Mark?” I screamed as I opened the door. I wanted to crash on my bed. Instead, my husband was on it, moving as he rode another woman. “What the fuck, Mark?” I hit the lights.
+“What the fuck, Mark?” I screamed as I opened the door. I wanted to crash on my bed. Instead, my husband was on it, moving as he rode another woman. “What the fuck, Mark?” I repeated and hit the lights.
 
 Years of marriage felt like they went down a drain. In the bright room, I saw it wasn’t a woman. A sex doll lay under him. Black hair. Hollow black eyes. A smile that didn’t belong on any face. Its legs wrapped around his waist. He looked at me with fear and shame. He took the doll’s legs with his hands and peeled them off like a lap bar at the end of a ride. *That’s right, asshole, ride’s over.* It almost came out. I bit my tongue.
 
