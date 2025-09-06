@@ -441,3 +441,5 @@ I shut my eyes, willing my roommate to leave, to give me a chance to get to my c
 “Then, I will go now. I have some things to see to. But I am very willing to listen when you return.”
 
 The outer door slammed, suddenly. I jumped, almost cried out, as all that tension suddenly bled away. I have no idea what the fuck he was talking about. He’s been gone a while now, and I’ve finished packing my stuff. I’m going to leave now, get as far as I can tonight, then I’ll give Dick a call, sort out work. Looks like Jen’s blocked me on everything. I guess I might have to go talk to my parents.
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1n9kjq3/my_roommate_has_turned_my_family_against_me_so_im/)
