@@ -104,11 +104,11 @@ Jesus, I need to clean up a bit sometime. I know it's been getting bad, I know I
 
 Crawling towards the couch on my hands and knees I think I see movement so I lean down and stick my arm under, turning my face away to reach further towards the back. As my fingers probe into dusty cobwebs and forgotten pieces of discarded food I think I hear a rustle and call out to her again.
 
-"Getting real tired of this Pea." 
+"Getting real tired of this, Pea." 
 
 She responds with a soft growling whine, somehow coming from in front of me. I turn my head and see her tense body crouched in the darkness under the coffee table. Did she sneak around behind me when I was bending down to reach under the couch?
 
-Before I can react she thunders past my face like a wooly freight train, scattering trash and stray hairs like a smoke bomb. She streaks down the hall and around the corner, yowling and hissing the whole way. I hear her collide with a door as I shoot to my feet, ignoring the searing pain in my heel to sprint after her as the sounds of her own struggle intensify. I round the corner to the sound of a dull thud that precludes a heavy silence and come to a sudden halt.
+Before I can react she thunders past my face like a woolly freight train, scattering trash and stray hairs like a smoke bomb. She streaks down the hall and around the corner, yowling and hissing the whole way. I hear her collide with a door as I shoot to my feet, ignoring the searing pain in my heel to sprint after her as the sounds of her own struggle intensify. I round the corner to the sound of a dull thud that precludes a heavy silence and come to a sudden halt.
 
 The door to the hall closet is open.
 
