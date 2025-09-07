@@ -4,7 +4,7 @@ I woke up hungover that day in my college dorm. I had drunk way too much at a ba
 
 When I checked my mailbox around noon, there was a white envelope with handwriting on it and no sender.
 
-"Happy birthday, carrot. I’m still waiting for you at the same place. Come here tomorrow at dawn, and look for my blue coat. Signed, Mom."
+"*Happy birthday, carrot. I’m still waiting for you at the same place. Come here tomorrow at dawn, and look for my blue coat. Signed, Mom.*"
 
 Reading those words sent chills all over my body.
 Since my mom vanished eight years earlier, my family had gotten dozens of fake letters and false leads. But that word, carrot, told me this one was different.
@@ -15,9 +15,9 @@ It was our inside joke. She started calling me that after I once scarfed down a 
 
 My mom disappeared on a trail near town. We used to hike it almost every Sunday as a family. It was about two miles, ending at a pond where locals liked to fish.
 
-That day, my dad was sick, so it was just me and her. We laughed and talked until I had to pee. She told me to go ahead, and stayed behind, maybe twenty feet away.
+That day, my dad was sick, so it was just me and her. We laughed and walked until I had to pee. She told me to go ahead, and stayed behind, maybe twenty feet away.
 
-Nothing seemed unusual while I was peeing, except for the sound of a branch snapping, which I brushed off as nothing. I finished, turned around to call her, and she was gone.
+Nothing seemed unusual while I was peeing in that tree, except for the sound of a branch snapping, which I brushed off as nothing. I finished, turned around to call her, and she was gone.
 
 I waited half an hour, thinking maybe she’d stepped off the trail too. Then I ran to the pond. Then I sprinted back to the parking lot, and the car was still there. Locked.
 
@@ -55,7 +55,7 @@ I followed it excitedly, to find a tree with a tight blue coat wrapped around th
 
 Tucked under it was another envelope. I pulled it out, and it had the same handwriting.
 
-"Glad you came, carrot. I’m right beneath you."
+"*Glad you came, carrot. I’m right beneath you.*"
 
 I looked down, and the ground nearby looked freshly disturbed, like it had been dug up not long ago. 
 
@@ -77,13 +77,13 @@ I whipped around, panic in my throat. Now I could hear the steps coming my way. 
 
 More snapping, closer this time. My eyes darted between trees, desperate to catch movement.
 
-Then I saw them. A figure in black, wearing a hat.
+Then I saw it. A figure in black, wearing a hat.
 
-And behind them, three more shapes. Police officers.
+And behind him, three more shapes. Police officers.
 
 ***
 
-Turned out my dad had called half the town's department, begging them to stop me. That’s what saved my life.
+Turned out my dad had called half the town's police department, begging them to stop me. That’s what saved my life.
 
 They told me the pickup I’d seen earlier probably belonged to the Pickaxe Maniac. When they searched it, they found hair, scraps of skin, even a severed finger.
 
@@ -101,4 +101,4 @@ I still don’t know what that monster wanted with me.
 
 I still don’t know how he knew about the nickname carrot.
 
-And most of all, I still don’t know where he is. He still out there.
+And most important of all, I still don’t know where he is. [He still out there.](https://www.reddit.com/u/Accomplished_Low7889/s/cGzGF91mgc)
