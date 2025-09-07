@@ -234,7 +234,7 @@ He started barreling towards me, shoulders angled like a quarterback. All I real
 
 Riley was terrified.
 
-Moreover, he could see something - *someone* \- on the sidewalk behind me. Someone who made him worry for my safety. Someone who looked dangerous. Right as it all began sinking in, there was a shift in Riley’s demeanor. In the blink of an eye, he’d stopped charging; sprinting with abandon one moment, walking gingerly the next. His panic disappeared, leaving his face unsettlingly blank. My head swiveled between the perfect sidewalk and my friend, side to side, back and forth, trying to understand what he was witnessing, and what it was doing to him. He about to pass right by me when I put my hand on his breastbone and held him there. His heart rate was slow, downright languid, but it was incredibly forceful. Each beat practically detonated inside his chest, pulses reverberating up my arm every few seconds.
+Moreover, he could see something - *someone* \- on the sidewalk behind me. Someone who made him worry for my safety. Someone who looked dangerous. Right as it all began sinking in, there was a shift in Riley’s demeanor. In the blink of an eye, he’d stopped charging; sprinting with abandon one moment, walking gingerly the next. His panic disappeared, leaving his face unsettlingly blank. My head swiveled between the perfect sidewalk and my friend, side to side, back and forth, trying to understand what he was witnessing, and what it was doing to him. He was about to pass right by me when I put my hand on his breastbone and held him there. His heart rate was slow, downright languid, but it was incredibly forceful. Each beat practically detonated inside his chest, pulses reverberating up my arm every few seconds.
 
 *“What’s…what’s happening, Riley?”* I pleaded.
 
@@ -258,7 +258,7 @@ Then I heard the last thing he ever said to me.
 
 He gripped his digital camera tightly, like it was a stone, and in one smooth motion, sent it crashing into my head.
 
-I collapsed, falling from the sidewalk onto the road, groaning, vision swimming. Sticky warmth trickled down my temple. When my eyes focused, all I could see what the night sky, moonless and grim.
+I collapsed, falling from the sidewalk onto the road, groaning, vision swimming. Sticky warmth trickled down my temple. When my eyes focused, all I could see was the night sky, moonless and grim.
 
 Riley grabbed my hands and dragged off the street, back onto the sidewalk, laying me at the foot of the anomaly, The Five-Toed Man, like an offering.
 
