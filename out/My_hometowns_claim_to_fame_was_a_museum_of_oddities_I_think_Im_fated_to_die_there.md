@@ -260,7 +260,7 @@ He gripped his digital camera tightly, like it was a stone, and in one smooth mo
 
 I collapsed, falling from the sidewalk onto the road, groaning, vision swimming. Sticky warmth trickled down my temple. When my eyes focused, all I could see was the night sky, moonless and grim.
 
-Riley grabbed my hands and dragged off the street, back onto the sidewalk, laying me at the foot of the anomaly, The Five-Toed Man, like an offering.
+Riley grabbed my hands and dragged me off the street, back onto the sidewalk, laying me at the foot of the anomaly, The Five-Toed Man, like an offering.
 
 The word *“wait”* quietly spilled from my lips, but it fell on deaf ears.
 
@@ -328,7 +328,7 @@ It was inside *Curbside Emporium* all along.
 
 Like I mentioned at the beginning, I attended my cousin’s wedding in Philadelphia a few months back. I hadn’t planned on attending. As soon as I turned eighteen, I left Pennslyvania with no intention of returning. Out of the blue, though, my cousin called me, practically begged me to attend, claiming the family missed me, so I relented.
 
-Sure didn’t feel like they missed me at the wedding, though, everyone leering in my direction with that all-too familiar look of thinly veiled disgust. Even my cousin seemed to surprised to see me, which was a little bizarre. Only got more bizarre when I thanked him for convincing me to come at the reception.
+Sure didn’t feel like they missed me at the wedding, though, everyone leering in my direction with that all-too familiar look of thinly veiled disgust. Even my cousin seemed surprised to see me, which was a little bizarre. Only got more bizarre when I thanked him for convincing me to come at the reception.
 
 He denied ever calling me in the first place.
 
