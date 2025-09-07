@@ -7,6 +7,7 @@ When I checked my mailbox around noon, there was a white envelope with handwriti
 "*Happy birthday, carrot. I’m still waiting for you at the same place. Come here tomorrow at dawn, and look for my blue coat. Signed, Mom.*"
 
 Reading those words sent chills all over my body.
+
 Since my mom vanished eight years earlier, my family had gotten dozens of fake letters and false leads. But that word, carrot, told me this one was different.
 
 It was our inside joke. She started calling me that after I once scarfed down a whole plate of carrots just so she’d let me go play at the arcade. Nobody else could have known.
@@ -29,7 +30,7 @@ Pretty soon the whole state knew about it: The kid that lost his mom. It usually
 
 Then came the TV reports, the YouTube channels, the podcasts. Theories stacked up.
 
-First, people said she left due to an affair with a coworker, a known womanizer, that had suspiciously moved out of state. Second, that she was killed by the so-called Pickaxe Maniac, a serial killer who’d murdered three women in the state a few years earlier and usually leaves the murder weapon at the spot. Third, the cops considered my dad might’ve done it for the life insurance money.
+First, people said she left due to an affair with a coworker, a known womanizer, that had suspiciously moved out of state. Second, that she was killed by the so-called Pickaxe Maniac, a serial killer who’d murdered three women in the region a few years earlier and usually leaves the murder weapon at the spot. Third, the cops considered my dad might’ve done it for the life insurance money.
 
 No proof ever surfaced, and her case faded into silence.
 
@@ -48,6 +49,7 @@ The trail was burned into my memory from all those childhood walks, even if I ha
 I walked for a few minutes and stopped at the same spot where I’d stepped off years ago to pee. Standing there again felt unreal, and not in a good way.
 
 I reached the same tree I had peed on, and froze, staring at the trunk like it owned me something. 
+
 Then I heard a crack behind me, like a branch snapping. Just like I remembered from that day. I spun around, and saw nothing unusual. Just the wind pushing leaves. 
 
 Then I noticed it. A flash of blue in the distance.
