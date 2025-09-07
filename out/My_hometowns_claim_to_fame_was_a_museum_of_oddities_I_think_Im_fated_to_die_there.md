@@ -1,6 +1,6 @@
 The town I grew up in was strange. That statement *typically* garners a fair bit of narrative intrigue when I say it in person, but peculiar childhoods seem to be alarmingly common among the contributors that skulk about this particular forum, so allow me to be more specific.
 
-My hometown was *professionally* strange. 
+My hometown was *professionally* strange.
 
 Five and a half square miles of humble farmland that doubled as a hotbed for the unexplainable and the uncanny. Strangeness was our lifeblood, the beating heart of our economy, attracting tourists from three states over with rumors of the closely kept secrets lurking within our one-of-a-kind showroom. An orphanage for the enigmatically aberrant that was simply titled:
 
@@ -8,13 +8,13 @@ Five and a half square miles of humble farmland that doubled as a hotbed for the
 
 That strangeness *used* to be the love of my life. Now, I’m starting to suspect it’ll be my tomb.
 
-But hey - it isn't all bad news. 
+But hey - it isn't all bad news.
 
 At least I’ll finally be a part of it.
 
-That is what I wanted, right? 
+That is what I wanted, right?
 
-\- - - - - 
+\- - - - -
 
 The way my parents tell the story, *Curbside Emporium* was my first true passion. Something that really put life behind my eyes. To borrow a lovingly dumb expression from my dad, the mystique of the various oddities seemingly *“bonked my consciousness into second gear”*. Makes it sound like I was an exceptionally dull toddler before that day, glazed over and fashionably disinterested, until I glimpsed *Miss Sapphire*, the world’s only sparkling blue tape worm, and then, *violà,* I was awakened.
 
@@ -30,11 +30,11 @@ As a kid, that thought never even crossed my mind. It felt like a lie too cruel 
 
 To be clear, though, she was right to be skeptical.
 
-First off, the unassuming layout and hokey decor didn’t exactly scream *scientific integrity.* It was the second tallest building in town, squeezed tightly between the fire station and our local burger joint, marked by a piece of ostentatious, neon signage that rose unnecessarily high into the air. I loved pretty much everything about *Curbside Emporium,* excluding that damn sign. It made no earthly sense. The nearest interstate was ten miles away, and the tallest building in town was the adjacent fire station: who was elevation for? Birds? Angels? Distracted, low-flying biplane pilots? Not only that, but the fluorescent green bulbs cost a small fortune and were prone to malfunction. For them all to work at once was nothing short of a miracle. The first “R” burnt out for what seemed like my entire freshman year of high school, making the sign read *“Cubside Emporium”,* which, to be perfectly frank, just sounds like a very odd, very specific porn outlet.
+First off, the unassuming layout and hokey decor didn’t exactly scream *scientific integrity.* It was the second tallest building in town, squeezed tightly between the fire station and our local burger joint, marked by a piece of ostentatious, neon signage that rose unnecessarily high into the air. I loved pretty much everything about *Curbside Emporium,* excluding that damn sign. It made no earthly sense. The nearest interstate was ten miles away, and the tallest building in town was the adjacent fire station: who was the elevation for? Birds? Angels? Distracted, low-flying biplane pilots? Not only that, but the fluorescent green bulbs cost a small fortune and were prone to malfunction. For them all to work at once was nothing short of a miracle. The first “R” burnt out for what seemed like my entire freshman year of high school, making the sign read *“Cubside Emporium”,* which, to be perfectly frank, just sounds like a very odd, very specific porn outlet.
 
 Now, I get it was meant to be symbolic; not practical. A signal to visitors that *Curbside Emporium* was clearly the crown jewel of our otherwise no-name town. Still, the building itself was in a state of perpetual disrepair. Why not siphon money from the sign towards fixing the crumbling foundation or eradicating the carpenterworm larvae that chewed up the floorboards every winter? But I digress. Disrepair didn’t dampen the magic. Not for me, anyway. Walking through those oversized double doors, those towering slabs of dark oak that divided the dullness of the real world from the brilliant shimmer of dreamlike possibility, never failed to lift my spirits.
 
-The lobby set the tone for the showroom to come, with a palpable air of mystery and an abundance of kitschy charm. Shadows flickered in the dim lighting provided by scattered, gold-plated oil lamps and a centrally hung electric candelabra, with telescoping rows of gold teeth that glowed above the swathes of eager patrons. The color scheme leaned heavily on deep reds and dull golds, which made the room look simultaneously regal and cheap. A burgundy-colored carpet that could easily hide a spilled glass of Merlot or a bloodstain within its fibers. Gold tassels on the curtain seperating the lobby from the showroom that matched the gold threads embroidered into the curtain itself. 
+The lobby set the tone for the showroom to come, with a palpable air of mystery and an abundance of kitschy charm. Shadows flickered in the dim lighting provided by scattered, gold-plated oil lamps and a centrally hung electric candelabra, with telescoping rows of gold teeth that glowed above the swathes of eager patrons. The color scheme leaned heavily on deep reds and dull golds, which made the room look simultaneously regal and cheap. A burgundy-colored carpet that could easily hide a spilled glass of Merlot or a bloodstain within its fibers. Gold tassels on the curtain seperating the lobby from the showroom that matched the gold threads embroidered into the curtain itself.
 
 Unlabeled knickknacks devoured every inch of wall-space. At first glance, the ornamentation could appear chaotic. The more you looked, however, the more it seemed to fit together like pieces to a puzzle, implying some perverse method to the madness. Feathers dangled off the rim of a dreamcatcher to fill the U-shaped emptiness framed by the antlers of a taxidermy deer's head below. The borders of scenic painting fit snugly between the legs of an antique artisan’s bench, which the owners had bolted upright, extending laterally from the wall behind where Mr. Baker operated the ticket counter.
 
@@ -52,15 +52,15 @@ And that’s just a sample.
 
 There’s the blackened bones of a man and a boy, which, presumably, fell from the sky and landed in our town back in the eighties, although no one actually witnessed a descent. No missing person reports could explain them. No commercial and or private planes were traveling overhead early that morning.
 
-A young woman, Erica, discovered the skeletons as she was walking her dog. As dawn broke, she saw them lying side by side on *Curbside Emporium’s* front lawn, holding hands, vacant sockets peering up at the unseen. Onlookers assumed they were father and son, based on the size difference, their clasped hands, and their narrow hips. 
+A young woman, Erica, discovered the skeletons as she was walking her dog. As dawn broke, she saw them lying side by side on *Curbside Emporium’s* front lawn, holding hands, vacant sockets peering up at the unseen. Onlookers assumed they were father and son, based on the size difference, their clasped hands, and their narrow hips.
 
 Once the Sheriff had been sufficiently convinced that they represented something anomalous, rather than something acutely murderous, the strange bodies were added to the collection, and since Erica was the first to lay eyes on them, Mr. Baker granted her the distinct honor of naming them. She went with the first thing that came to mind, cheerfully admitting her lack of creativity. Thus, she christened the bones *Atticus* and *Finch*, having just finished *To Kill a Mockingbird* for high school English. Of course, *Atticus* and *Jem* would have *technically* been more appropriate, given that the remains were canonically related, a father and his son, but she claimed those names didn’t *“feel right*”. No one pushed back against the decision. She found them, so the responsibility of naming them was hers and hers alone.
 
 That’s the rule. You get a plaque engraved with *your* name posted below the exhibition, too.
 
-There’s a framed black-and-white photograph showing a farmer listed simply as “*Jim”* leaning on a down-turned pitch fork planted in the ground like a flag, beside a small, circular patch of earth blurred with motion, as if spinning. He named the phenomenon *“Flush-Dirt”* on account of the soil’s toilet-like churning. Supposedly, his boot sank into it like quicksand when he stumbled upon the anamoly. Only lasted for a day or two before the ground’s physical properties spontaneously reverted to normal. 
+There’s a framed black-and-white photograph showing a farmer listed simply as “*Jim”* leaning on a down-turned pitch fork planted in the ground like a flag, beside a small, circular patch of earth blurred with motion, as if spinning. He named the phenomenon *“Flush-Dirt”* on account of the soil’s toilet-like churning. Supposedly, his boot sank into it like quicksand when he stumbled upon the anamoly. Only lasted for a day or two before the ground’s physical properties spontaneously reverted to normal.
 
-The list goes on and on: there's Phillip and his wooden flute that, for a brief time, when played, supposedly emitted noises that sounded like human speech in an unknown language, rather than its normal whistling. More than a little disturbed, Philip happily gifted the instrument to *Curbside Emporium*, but refused to play along with the tradition, offering no name for the anomaly. According to the mythos, when Mr. Baker prompted him a fourth time, unwilling to take the thing off his hands without a name, Phillip replied, *“Listen, I don’t want to!”.* From then on, the flute became known as *“Listen, I don’t want to”,* which had an oddly appropriate ring to it, given the backstory.
+There’s Phillip and his wooden flute that, for a brief time, when played, supposedly emitted noises that sounded like human speech in an unknown language, rather than its normal whistling. More than a little disturbed, Philip happily gifted the instrument to *Curbside Emporium*, but refused to play along with the tradition, offering no name for the anomaly. According to the mythos, when Mr. Baker prompted him a fourth time, unwilling to take the thing off his hands without a name, Phillip replied, *“Listen, I don’t want to!”.* From then on, the flute became known as *“Listen, I don’t want to”,* which had an oddly appropriate ring to it, given the backstory.
 
 Every bit of it was magic. Every story, every relic, every inch of that place spoke to me. So, when I was finally old enough to wander about town without supervision, my mission became clear.
 
@@ -74,7 +74,7 @@ In the end, I succeeded in achieving those goals, but only partially. I discover
 
 Not in the way I imagined it, at least.
 
-\- - - - - 
+\- - - - -
 
 When I first conceived of my so-called *expeditions*, they were not such a lonely affair. Sometimes I had more than a dozen kids following my lead - digging holes, overturning rocks, looking towards the sky for the first glimpses of more heaven-rejected bones - hoping to catch wind of an oddity. For them, though, it was a fad. Something to be discarded once a new, shinier hobby came along. Years passed, and the team shrank. The number of kids I considered friends dwindled into the single-digits. By the time I turned ten, it was just me and Riley, and he only came because I was so damn insistent. Eventually, even Riley had become fed up with the pursuit, but, unlike the others, we remained friends, despite our diverging interests.
 
@@ -142,7 +142,7 @@ An oval with three closely clustered pegs on top and two more distantly spaced p
 
 A five toed cog twisting within the belly of some divine machine.
 
-The *whoosh* of a passing trunk sundered my hypnosis, and I came crashing back to reality. 
+The *whoosh* of a passing trunk sundered my hypnosis, and I came crashing back to reality.
 
 Just seeing it wouldn’t be enough.
 
@@ -158,23 +158,23 @@ Didn’t stay for their response. Both cars were parked in the driveway. One of 
 
 As the orange glow of twilight began to dim, I sprinted to Riley’s.
 
-He was the only person I knew who owned a camera, and the only person who still had a faint, lingering interest in *Curbside Emporium*. I was confident I could convince him to lie to his parents, tell them he was sleeping at my house. 
+He was the only person I knew who owned a camera, and the only person who still had a faint, lingering interest in *Curbside Emporium*. I was confident I could convince him to lie to his parents, tell them he was sleeping at my house.
 
-With a seemingly heavy heart, he trudged from his stoop to grab his digital camera. agreeing to accompany me across town in the dead of night. 
+With a seemingly heavy heart, he trudged from his stoop to grab his digital camera. agreeing to accompany me across town in the dead of night.
 
 Because of me, he’d never return home.
 
 Because of my obsession, he’d never sleep in his own bed again.
 
-I used to feel ashamed about my involvement in his disappearance. 
+I used to feel ashamed about my involvement in his disappearance.
 
-Though, as of late, 
+Though, as of late,
 
-I don't know that I have regrets.  
+I don't know that I have regrets.
 
-Don't know that I have any regrets at all. 
+Don't know that I have any regrets at all.
 
-\- - - - - 
+\- - - - -
 
 *“A shape…made of ants?”* Riley asked, voice dripping with sarcasm.
 
@@ -232,7 +232,7 @@ A little delirious, I shrugged, chuckled, cupped my hands over my mouth, and sho
 
 He started barreling towards me, shoulders angled like a quarterback. All I really felt in that moment was disorientation. That changed once Riley was close enough that I could appreciate his expression under the sickly glow of the streetlamps. His eyes were wide. His skin had turned table-salt white. The muscles in his face looked taut, almost spastic.
 
-Riley was terrified. 
+Riley was terrified.
 
 Moreover, he could see something - *someone* \- on the sidewalk behind me. Someone who made him worry for my safety. Someone who looked dangerous. Right as it all began sinking in, there was a shift in Riley’s demeanor. In the blink of an eye, he’d stopped charging; sprinting with abandon one moment, walking gingerly the next. His panic disappeared, leaving his face unsettlingly blank. My head swiveled between the perfect sidewalk and my friend, side to side, back and forth, trying to understand what he was witnessing, and what it was doing to him. He about to pass right by me when I put my hand on his breastbone and held him there. His heart rate was slow, downright languid, but it was incredibly forceful. Each beat practically detonated inside his chest, pulses reverberating up my arm every few seconds.
 
@@ -270,7 +270,7 @@ I didn’t even feel an impact.
 
 The world just faded away.
 
-\- - - - - 
+\- - - - -
 
 When I came to, it was morning. The woman who owned our town’s pharmacy was kneeling beside me, asking what happened, asking if I was alright, her truck idling nearby. Memories of the night before trickled in painfully; a cheese grater rubbing against my concussed brain.
 
@@ -314,7 +314,7 @@ I didn’t have an answer. I didn’t have a name to give.
 
 I still don’t.
 
-So, I said nothing. 
+So, I said nothing.
 
 Riley was pronounced legally dead two years later. The town assumed he got caught up in the drug trade somehow. Kidnapped and killed because he owed the wrong person money.
 
@@ -324,7 +324,7 @@ But I think I found that better truth.
 
 It was inside *Curbside Emporium* all along.
 
-\- - - - - 
+\- - - - -
 
 Like I mentioned at the beginning, I attended my cousin’s wedding in Philadelphia a few months back. I hadn’t planned on attending. As soon as I turned eighteen, I left Pennslyvania with no intention of returning. Out of the blue, though, my cousin called me, practically begged me to attend, claiming the family missed me, so I relented.
 
@@ -342,11 +342,11 @@ Eventually, I found myself in front of *Atticus* and *Finch*, those blackened, a
 
 Don’t know how long I just stood there, eyes glazed over and catatonic.
 
-I’d never noticed the shimmer before. 
+I’d never noticed the shimmer before.
 
 It certainly couldn’t have been new.
 
-How could I never have noticed it before? 
+How could I never have noticed it before?
 
 I rubbed my eyes. Mashed them around in their sockets until their soft jelly hurt. Even slapped myself across the face once. No matter what I did, though, the shimmer didn’t change.
 
@@ -372,7 +372,7 @@ I never got my name on a plaque, but I suppose, in a way, this is better.
 
 Honestly, I’m just happy to know that I’ll be with Riley again.
 
-We’ll fall through the atmosphere, together. 
+We’ll fall through the atmosphere, together.
 
 Land in front of *Curbside Emporium*, together.
 
@@ -380,4 +380,4 @@ And maybe, if I’m lucky, if Riley’s forgiven me,
 
 We’ll look up into the sky, together,
 
-and I’ll feel that perfect [warmth again.](https://www.reddit.com/r/unalloyedsainttrina/)
+and I’ll feel that perfect [warmth again.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)

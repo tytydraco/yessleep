@@ -111,3 +111,5 @@ All it contained was this message:
 *SHE WILL DRAG YOU DOWN INTO SOMETHING WORSE THAN HELL. SOMETHING WORSE THAN YOU CAN IMAGINE.*
 
 *YOU WILL PAY.*
+
+UPDATE 2: [https://www.reddit.com/r/nosleep/comments/1nahj5n/remember\_those\_creepy\_chain\_emails\_from\_the/](https://www.reddit.com/r/nosleep/comments/1nahj5n/remember_those_creepy_chain_emails_from_the/)
