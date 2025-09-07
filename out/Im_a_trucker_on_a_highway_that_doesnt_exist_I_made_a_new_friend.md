@@ -315,3 +315,5 @@ That would get annoying quick.
 I didn’t open the trunk. Not that day. But I did stop by it before I headed out to rest my hand on the cool metal. “I’ll protect you,” I whispered. “Wherever we're going, I promise you’ll at least make it.” 
 
 The next time there was a storm, I [would drive.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
+
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1nazpkv/im_a_trucker_on_a_highway_that_doesnt_exist_the/)
