@@ -192,7 +192,7 @@ She was running beside me, holding my hand. "Come on!" Alice cried, and with her
 
 "Alice, where are we going?" I cried.
 
-"We just need to loop back around!" she replied. "Lead him this way, then slip back to your car. He doesn't actually know what you drive. He's not a cop, he doesn't have access to that stuff. He's a member of a downtown gang, but he's disguised as a cop because it's an easy way to take you in."
+"We just need to loop back around!" she replied. "Lead him this way, then slip back to your car. He's not a cop. He's a member of a downtown gang, but he's disguised as a cop because it's an easy way to take you in."
 
 My stomach clenched. "Alice..." we were starting to slow down, already halfway wound back toward the rest stop. In the distance, the man's footsteps kept going, passing us by over a hundred yards while we were now stopping behind an enormous shrub shielding us from view.
 
@@ -200,11 +200,11 @@ Now it was Alice who looked ashamed. "I'm sorry. He's a member of the same gang 
 
 I blinked at her. "A whole gang is after us now?"
 
-"Only because Cyril owed them money, and they never got paid back. They aren't good people, not in the slightest."
+"Only because Cyril owed them money, and they never got paid back. They aren't good people, not in the slightest. Amanda, I'm sorry. I hoped they hadn't caught onto us when we took care of Cyril. I didn't want you getting wrapped up in his problems. But I was wrong. They must have been tailing him."
 
 "No? Well, maybe I have an idea where we can look next time I get that itch."
 
-She smiled grimly at me. It wasn't a bad idea----but we'd have to move fast. This sounded like a pretty cheap and stupid gang. She was right; they didn't have access to a lot of real information. The dumbass had even gotten my name wrong----I was Amanda *Winboltan,* not freaking Wingleman.
+She smiled grimly at me. It wasn't a bad idea----but we'd have to move fast. This sounded like a pretty cheap and stupid gang, at least when you put them up against Alice and I. They must not have had access to a lot of real information. The dumbass had even gotten my name wrong----I was Amanda *Winboltan,* not freaking Wingleman.
 
 But if he'd found all that out, and they were trailing me enough to know I was headed here, then I knew I'd have to take some emergency time off until after Cyril's old buddies were out of the picture.
 
