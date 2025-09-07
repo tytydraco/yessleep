@@ -1,4 +1,4 @@
-[\[Part 1\]](http://www.reddit.com/r/nosleep/comments/1n8pjn4/my_roommate_is_too_normal_and_hes_scaring_me/)
+[\[Part 1\]](http://www.reddit.com/r/nosleep/comments/1n8pjn4/my_roommate_is_too_normal_and_hes_scaring_me/) [\[Finale\]](https://www.reddit.com/r/nosleep/comments/1nap2ss/my_roommate_wants_me_to_confess_well_here_it_is/)
 
 It’s been a day. Maybe two? I’m not sure anymore. As soon as I’d finished writing my last bit, I’d grabbed the laptop, thrown all my stuff in the car, and got as far as I could, as fast as I could. Some of ya’ll have said I shouldn’t fear Mike, my weird roommate.
 
