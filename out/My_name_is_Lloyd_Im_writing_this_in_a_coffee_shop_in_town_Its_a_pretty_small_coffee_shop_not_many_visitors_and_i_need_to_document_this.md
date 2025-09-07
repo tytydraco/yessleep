@@ -1,6 +1,6 @@
 It was a very cold night. I was trying to sleep. I've been looking after my mom's house for her while she's away on a business trip. It's the same house on the outskirts of town she's lived in for years. The house itself isn't bad; it's the... neighbors.
 
-I was in my bed, watching, you guessed it, more SpongeBob. You can't keep me away from that thing. I know it's childish, but that square sponge really hits it home. Anyways, I was so engrossed in SpongeBob that when I heard a "**Hello?**" in my mother's voice, it **spooked me like crazy**. Then I heard a **bark of laughter**.
+I was in my bed, watching, you guessed it, more "Yellow Square". You can't keep me away from that thing. I know it's childish, but that square sponge really hits it home. Anyways, I was so engrossed in "Yellow Square" that when I heard a "**Hello?**" in my mother's voice, it **spooked me like crazy**. Then I heard a **bark of laughter**.
 
 "**What the fuck?**"
 
