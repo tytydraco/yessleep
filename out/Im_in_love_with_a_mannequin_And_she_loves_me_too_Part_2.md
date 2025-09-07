@@ -186,7 +186,7 @@ I instantly spun around, picked Alice up (thank heavens she didn't weigh much), 
 
 "Bullshit!" I shrieked. Police did NOT just approach people out of the dark like that and claim to have been secretly tracking them. What police force operates that way? Or do I just not know what the fuck I'm talking about?
 
-I heard gunshots behind me, and that only heightened my fear and suspicions of his intentions. It also put me into a hyperactive state. I wasn't quite all there anymore. My blood was pounding, my heard was throbbing, my vision gained new, sharp focus and clarity.
+I heard gunshots behind me, and that only heightened my fear and suspicions of his intentions. It also put me into a hyperactive state. I wasn't quite all there anymore. My blood was pounding, my heart was throbbing, my vision gained new, sharp focus and clarity.
 
 She was running beside me, holding my hand. "Come on!" Alice cried, and with her I was definitely moving faster than I'd been before. "He isn't who he says he is!" Well, at least I wasn't alone in my figuring.
 
