@@ -1,4 +1,4 @@
-Hey, Sam here again. I wasn’t sure if I was going to follow up after [my previous post](https://www.reddit.com/r/nosleep/comments/1naqf5q/boil_water_advisory_in_pineridge/), but a few people reached out, and I figured I should keep folks in the loop. If nothing else, I want there to be a record of what’s happening here in Pineridge. The Board isn’t exactly volunteering information, so I guess that leaves it up to me.
+Hey, Sam here again. I wasn’t sure if I was going to follow up after my previous post, but a few people reached out, and I figured I should keep folks in the loop. If nothing else, I want there to be a record of what’s happening here in Pineridge. The Board isn’t exactly volunteering information, so I guess that leaves it up to me.
 
 So, here’s where things stand. I’ve been running tests at the plant all week, and whatever I saw before is still there. Microscopic stuff. Could be algae, could be bacteria, could be something else entirely. I’m not a biologist, just a technician following procedures, but I know enough to tell you it’s real—and it’s getting through treatment when it shouldn’t be. I spend hours checking samples, inspecting the system, and it's constantly flowing through. That alone is enough to make me uneasy.
 
@@ -14,4 +14,4 @@ So that’s the update: the problem hasn’t gone away, and nothing’s being do
 
 I’ll check in again if anything changes, and will continue to monitor the situation.
 
-– Sam
+[– Sam](https://www.reddit.com/user/Kaiwhakairo-Miti/comments/1nbvqmg/the_pineridge_contamination_all_parts/?sort=hot)

@@ -16,5 +16,4 @@ If you don’t live in Pineridge but know someone who does, please pass this alo
 
 I’ll keep doing my job and logging the numbers. Maybe this whole thing will be gone in a week and I’ll feel silly for posting. But right now, I can’t shake the feeling that something’s a little off. And when it comes to water, “a little off” is enough reason to be careful.
 
-Stay safe,  
-—Sam
+[– Sam](https://www.reddit.com/user/Kaiwhakairo-Miti/comments/1nbvqmg/the_pineridge_contamination_all_parts/?sort=hot)
