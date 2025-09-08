@@ -1,0 +1,17 @@
+**Hey, Sam here again.** I wasn’t sure if I was going to follow up after [my previous post](https://www.reddit.com/r/nosleep/comments/1naqf5q/boil_water_advisory_in_pineridge/), but a few people reached out, and I figured I should keep folks in the loop. If nothing else, I want there to be a record of what’s happening here in Pineridge. The Board isn’t exactly volunteering information, so I guess that leaves it up to me.
+
+So, here’s where things stand. I’ve been running tests at the plant all week, and whatever I saw before is still there. Microscopic stuff. Could be algae, could be bacteria, could be something else entirely. I’m not a biologist, just a technician following procedures, but I know enough to tell you it’s real—and it’s getting through treatment when it shouldn’t be. I spend hours checking samples, inspecting the system, and it's constantly flowing through. That alone is enough to make me uneasy.
+
+I’m not the only one who’s noticed. A couple of my coworkers have seen the same thing and even brought it up at meetings. They share my concern when the Board dismisses our worries, like we’re all supposed to silently nod and move on. Every time their response is the same: it’s “within acceptable limits,” it’s “not dangerous,” it’s “nothing to worry about.” You’d think if they actually cared, they’d at least test further or send samples off somewhere, just in case. Instead, it feels like they’re just brushing it under the rug or just plain lazy.
+
+And that’s what frustrates me. We’re supposed to be looking out for the people in this town. That’s our job. When you clock in at the plant, you know you’re responsible for what goes into people’s homes. But the Board doesn’t seem to see it that way. To them it’s probably all numbers, thresholds, charts. As long as something falls inside the box labeled “safe,” they stop asking questions. Never mind that people are drinking this stuff every single day.
+
+Since my last post, we’ve already had a couple of calls from locals asking if the water’s okay. One parent mentioned their kid’s been running a fever. Another guy said he and his wife have both been feeling off. I can’t say for sure it’s related. Maybe it’s the flu. Maybe it’s coincidence. But when I hear stories like that, it makes it harder to shrug off what I’m seeing at the plant. Even if the doctors I asked are right and it’s something else, this contamination can’t be doing anyone any favors.
+
+The Board doesn’t seem to care about any of this. They actually sent around a reminder this week about “spreading unnecessary concern.” Very official-sounding, all about making sure residents “receive accurate and consistent messaging.” Which is their way of saying “shut up.” So yeah, if anyone from the Board is reading this: I’m going to keep posting. If you won’t give people updates, I will.
+
+So that’s the update: the problem hasn’t gone away, and nothing’s being done about it. Same advice as before — if you live here, boil your water. If you don’t live here but know someone in Pineridge, pass this along. Worst case, you waste a little electricity. Best case, you avoid getting sick.
+
+I’ll check in again if anything changes, and will continue to monitor the situation.
+
+– Sam
