@@ -27,7 +27,7 @@ I have not read many of the books collected in the library. But I have a few fav
 
 Another book is a collection of short stories, each revolving around a strikingly beautiful and joyous woman named ███████. The tales portray seemingly ordinary moments from her life – a visit from guests, an outing to the city, a social gathering, or an encounter with her first lover. The tales have the qualities of novellas, and each ends with an unexpected twist. At the conclusion of every story, the heroine suddenly dies. The author’s name has been lost, vanished along with the book’s title page.
 
-One day, I happened to stumble upon the library. In my mind, I was reciting lines from a book titled *A Cage for a Dead Bird*. It was a poem that adorned one of its pages, written written in a language different from the one I spoke, yet somehow familiar to me. I loved how melodious it sounded in my head, and I remembered its opening clearly:
+One day, I happened to stumble upon the library. In my mind, I was reciting lines from a book titled *A Cage for a Dead Bird*. It was a poem that adorned one of its pages, written in a language different from the one I spoke, yet somehow familiar to me. I loved how melodious it sounded in my head, and I remembered its opening clearly:
 
 “Спочивай з миром, мертвий птах,  
 Клітка твоя – твоя могила.  
