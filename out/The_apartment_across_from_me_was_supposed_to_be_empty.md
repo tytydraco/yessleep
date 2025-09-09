@@ -1,0 +1,21 @@
+I was nineteen when I moved into my first off-campus apartment. It was nothing fancy, just a small one-bedroom in a quiet neighborhood near my college. The building was old, the hallways always smelled faintly of damp carpet, but the rent was cheap and I felt independent for the first time in my life.
+
+One of the first things I noticed was how thin the walls were. I could hear my neighbors arguing, or the old man downstairs coughing at night. What unsettled me most, though, was the apartment directly across from mine. The landlord told me it had been vacant for months, but sometimes, late at night, I would hear noises coming from inside. Soft footsteps, or a dragging sound like furniture being moved. I convinced myself it was just the pipes or sounds carrying from another floor.
+
+About a week later, I was up late working on a paper when I heard knocking in the hallway. I checked the time 2:43 in the morning. The knocking wasn’t on my door, it was on the one across the hall. I slowly looked through the peephole, but no one was there. What froze me was the sight of the door across from me, cracked open when I was certain it had been shut. I tried to brush it off, telling myself maybe the landlord had been in there for some reason, though it didn’t explain why it would be in the middle of the night. I left a light on and eventually fell asleep on the couch.
+
+The next night, it escalated. Around the same time, I heard noises again. This time it was coming from inside the empty apartment. Scraping, followed by what sounded like a low groan. My phone buzzed with a text message. It was from an unknown number. The message said, “Why are you awake?” I froze. I didn’t recognize the number and hadn’t shared my contact with many people at school. Before I could react, another message came through: “I can see your light on.”
+
+My heart was pounding as I shut the blinds and tried to convince myself it was some prank. But when I looked out the peephole, the hallway was empty. Both doors were shut again. The next day, I casually asked the landlord if someone had moved into the apartment across from me. He shook his head and said it was still empty. I didn’t mention the noises or the texts.
+
+That night, things got worse. Around three in the morning, I woke up to the sound of my front door handle being tested, like someone was slowly turning it back and forth. I sat frozen, gripping a lamp like it was a weapon. The handle stopped moving, and then I heard three knocks on the door across the hall. The sound was followed by a dragging noise, as if something heavy was being pulled across the floor.
+
+The next morning, I saw a note taped to the door across from me. The handwriting was jagged and uneven. It said, “You shouldn’t stay here.” From that night on, I couldn’t sleep properly. I kept a weapon close by and double-checked every lock before bed.
+
+Another night, while working on my laptop, I heard creaking across the hall again. Then came a text from the same unknown number: “You’re awake again.” Seconds later, another message arrived. “You’re looking at the door right now, aren’t you?”
+
+I forced myself to check the peephole. The hallway was empty. Both doors were shut. But then I heard a low groan, this time clearly from inside the vacant apartment. Three knocks followed, deliberate and slow. I watched as the door across the hall opened just an inch, then closed again. That was the moment I knew it wasn’t my imagination.
+
+The following night, I couldn’t bring myself to turn off the lights. Around 3 a.m., my door handle rattled again. Silence followed, and then the same three knocks came from across the hall. When I looked through the peephole, I saw the vacant apartment’s door slowly opening. A faint sound of heavy breathing carried out from the darkness inside. I stumbled back, terrified, and my phone buzzed again. The text read: “Don’t look away.” I locked myself in the bathroom and stayed there until the sun came up.
+
+When I finally gathered the courage to look again, the hallway was empty. But taped to the door across from me was another note: “You shouldn’t stay here.” I packed my things and moved out that same day. I never told the landlord or my friends exactly why I left. Even now, years later, I sometimes lie awake at night and swear I can still hear it. Three slow knocks.
