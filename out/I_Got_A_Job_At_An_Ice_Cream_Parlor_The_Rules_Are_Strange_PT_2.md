@@ -68,9 +68,13 @@ He looked at me with a sinister grin, smiling ear to ear.
 
 “I guess I just need some reassurance, to be honest,” I said.
 
-“Sammy, follow the rules to a T and nothing will happen to you. That’s my word,” he said.
+“Sammy, follow the rules to a T and nothing will happen to you. That’s my word,” he said. "Ill be there Shortly."
 
-He grabbed his coat and started for the back door. His hand froze on the doorknob, and he stood there motionless for a few seconds, statue-like. Then he let go, turned back, and looked at me.
+Mr. Andes showed up in no time at all. You could feel his presence, it was like he made the air thick. He checked the bathroom, checked the till and made his way into the back once again. He stood next to the freezer for a few seconds muttering under his breath. He turned his head to look at me.
+
+"Sammy, everything is going to be ok." He said smiling at me.
+
+That was all he said after scuttling through the shop like he did. He honestly made my skin crawl. He grabbed his coat and started for the back door. His hand froze on the doorknob, and he stood there motionless for a few seconds, statue-like. Then he let go, turned back, and looked at me.
 
 “Sammy, I forgot to mention there is one new rule tonight. But don’t worry, okay?” he said.
 
