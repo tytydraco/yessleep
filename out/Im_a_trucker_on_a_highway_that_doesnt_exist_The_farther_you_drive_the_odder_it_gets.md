@@ -208,7 +208,7 @@ No cops pulled me over. No gas-station attendants approached me with too-wide sm
 
 Weeks ago, so much silence might have unpicked the threads of my sanity. It was why I always made sure to have music downloaded. Thoughts were always worse when there was nothing loud to chase them out. 
 
-Now though? With the sobbing thing in the trunk and Autumn trapped in a town only I could access?
+Now though? With the sobbing thing in the trailer and Autumn trapped in a town only I could access?
 
 My mind was singular. I would get my cargo to its destination. I would keep it safe.
 
