@@ -66,6 +66,7 @@ We’d buried Hattie Sinclair last winter at twenty four feet. The poor girl was
 At the time, I thought we’d put enough mud down. But it turned out that Hattie had gotten a bit itchy a couple of weeks back and was now stalking cattle down by the Salt Fork. 
 
 That’s why Wyatt and I rode out so close to the double crosses. We owed Hattie’s daddy an apology.
+
 We followed the Salt Fork most of the way, every now and then sweeping the valley for anything strange. But the land was still. All that moved was the Salt Fork which trembled beneath the sun. Its ragged clay bluffs burning red like a wound. The land was silent, except a couple of crows that cawed mockingly from overhead.
 
 After a couple of hours, we found what we were looking for.
@@ -317,7 +318,8 @@ We dug in silence until the moon was the only light we had. Wyatt shouldered mos
 For a while, we just stood there and stared out across the land. The distant mountains looked like the spine of a felled giant. 
 
 “Squint hard enough and you can see the double crosses,” Wyatt said, finally breaking the silence.
-I nodded. “You don’t need to see them to know their close.”
+
+I nodded. “You don’t need to see them to know they're close.”
 
 “Yep.” Wyatt lit a cigarette and started to smoke. He offered me a drag, but I declined. “You okay?”
 
