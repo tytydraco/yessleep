@@ -1,6 +1,6 @@
 [Original Post](https://www.reddit.com/r/nosleep/comments/1jt33ad/im_trapped_on_the_edge_of_an_abyss_please_help_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-The world was mute as I drove home that day. 
+The world was mute as I drove home that day.
 
 I couldn’t hear the rumble of my tires on the road outside. I couldn’t hear the hum of the car’s AC gently fanning my numb face. I didn’t hear any cars honking or dogs barking or birds singing at all as I pulled back into our apartments and stepped out of my vehicle. My car door slammed, but I didn’t hear that either.
 
@@ -371,3 +371,5 @@ After what I’d just come to terms with back at the club, though, I had a newfo
 She looked at me in surprise, and I just smiled at her.
 
  Together, we began the rest of the trek to the hatch.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1nc8kz6/im_trapped_on_the_edge_of_an_abyss_ive_finally/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
