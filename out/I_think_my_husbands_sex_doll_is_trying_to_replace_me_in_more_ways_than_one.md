@@ -1,30 +1,31 @@
+
 I came home from a twelve-hour shift and found my husband fucking a doll.
 
-“What the fuck, Mark?” I screamed as I opened the door. I wanted to crash on my bed. Instead, my husband was on it, moving as he rode another woman. “What the fuck, Mark?” I repeated and hit the lights.
+“What the fuck, Mark?” I screamed as I opened the door. I wanted to crash on my bed after a long day at work. Instead, my husband was on it, moving as he rode another woman. “What the fuck, Mark?” I repeated and hit the lights.
 
-Years of marriage felt like they went down a drain. In the bright room, I saw it wasn’t a woman. A sex doll lay under him. Black hair. Hollow black eyes. A smile that didn’t belong on any face. Its legs wrapped around his waist. He looked at me with fear and shame. He took the doll’s legs with his hands and peeled them off like a lap bar at the end of a ride. *That’s right, asshole, ride’s over.* It almost came out. I bit my tongue.
+Years of marriage felt like they went down a drain. In the bright room, I saw it wasn’t a woman. A sex doll lay under him. Black hair. Hollow black eyes. A smile that didn’t belong on any face, it stared right at me. Its legs wrapped around his waist. He looked at me with fear and shame as he took the doll’s legs with his hands and peeled them off like a lap bar at the end of a ride. *That’s right, asshole, ride’s over.* It almost came out. I bit my tongue.
 
 He yanked his pants on.
 
 “What is that? You’re fucking a doll?” This wasn’t a toy. This was a full-size body he dragged into our bed.
 
-“Look, Danielle, I know you’re pissed,” he said, chest puffed with fake confidence. “We haven’t had time together. It’s not cheating. It’s a toy. It would never replace you.”
+“Look, Danielle, I know you’re pissed,” he said, chest puffed with fake confidence. “We haven’t had time together. It’s not cheating, it’s a toy. It would never replace you.”
 
 We went at it. My new night job paid the bills and bled us dry. We circled the same points and wore grooves in the floor. I told him he could do what he wanted on his own time, but this was unattractive and weird. He hung his head and said he would get rid of it. I didn’t trust him.
 
-He folded the doll in half. It's back bent like paper. A zipper rasped. Something heavy dragged. He took it to the bathroom closet. Doors shut. Mark came back. We lay on the same bed and did not touch.
+He folded the doll in half, Its back bent like paper. A zipper rasped. Something heavy dragged. He took it to the bathroom closet. Doors shut. Mark came back and we laid on the bed and did not touch.
 
 I wish that was the end. I wish I never saw that doll again.
 
-Time crawled. We barely spoke. He dressed for work in the morning while I sat with coffee, eyes red, steam on my face, the news on, but not listening to it. He said goodbye with no kiss, no hug. The lock clicked. Silence swallowed the room. Curiosity chewed my brain. I had respected his privacy. I didn’t ask what he ordered. I didn’t open packages. I should have tossed that big box that came two weeks ago. Unmarked. No label. No address. Mark claimed it was his. I shrugged. *Trust him,* I told myself. *Trust. Yeah, fuck trust. Trust is shredded. You can’t piece that together.*
+Time crawled. We barely spoke as he dressed for work the next morning while I sat with coffee, eyes red, steam on my face, the news on, but not listening to it. He said goodbye with no kiss, no hug. The lock clicked and silence swallowed the room. Curiosity chewed at my brain. I had always respected his privacy. I didn’t ask what he ordered. I didn’t open packages. I should have tossed that big box that came two weeks ago. Unmarked. No label. No address. Mark claimed it was his. I shrugged. *Trust him,* I told myself. *Trust. Yeah, fuck trust. Trust is shredded. You can’t piece that together.*
 
-I turned on his computer. Same four-digit code he used for everything. I wanted to know where the hell he got the doll. Email. Nothing. Search history. Nothing. Alt emails. Bank account. Nothing. Maybe he bought it in person. Maybe he used his phone. My stomach burned while I played investigator. I swore I wouldn’t cross this line. I kept going. I pictured him walking in on me. *Sorry, honey, forgot my wal— what the hell.* My heart thumped.
+I turned on his computer, the same four-digit code he used for everything. I wanted to know where the hell he got the doll. Email. Nothing. Search history. Nothing. Alt emails. Bank account. Nothing. Maybe he bought it in person. Maybe he used his phone. My stomach burned while I played investigator. I swore I wouldn’t cross this line. I kept going. I pictured him walking in on me. *Sorry, honey, forgot my wal— what the hell!* My heart thumped.
 
-A bang came from the bathroom closet. Deep. Muffled. Heavy. I shot up and listened, like a rabbit after a branch snap.
+A bang came from the bathroom closet. Deep, muffled, and heavy. I shot up and listened, like a rabbit after a branch snap.
 
 Silence.
 
-I went to the bathroom, then headed toward the closet. My hand closed on the closet knob. I turned and pushed. We still fear the dark. Primitive fear. The unknown. The mind makes shapes. A pile of clothes becomes a head. A sleeve becomes an eye. I saw the outline of a head sticking out of a black square on the floor.
+I went to the bathroom, then headed toward the closet. My hand wrapped around the closet knob. I turned and pushed. We still fear the dark, primitive fear of the unknown. The mind makes shapes. A pile of clothes becomes a head. A sleeve becomes an eye. I saw the outline of a head sticking out of a black square on the floor.
 
 I jumped back and gasped, then laughed nervously once. *Clothes. A mess. Get a grip.*
 
@@ -34,15 +35,15 @@ That fucking sex doll lay there with its head sticking out of its case. It grinn
 
 *He didn’t throw it away. Asshole.*
 
-I wasn’t touching it. I grabbed a broom and shoved. It slid on the carpet, heavy and rough. I swept it into the corner under the clothes, out of sight. I turned off the light and shut the door. Then I sat on the edge of the tub and waited for Mark to come home.
+I wasn’t going to touch that thing, I grabbed a broom and shoved. It slid on the carpet, heavy and rough. I swept it into the corner under the clothes, out of sight. I turned off the light and shut the door. Then I sat on the edge of the tub and waited for Mark to come home.
 
-*Why not just throw it out and be done with it?* said a voice in my head. I had considered that. I couldn’t care less about his reaction. But I wanted him to do it. I wanted him to be sorry, not sorry he got caught.
+*Why not just throw it out and be done with it?* said a voice in my head. I had considered that. I couldn’t care less about his reaction but I wanted him to do it. I wanted him to be sorry, not sorry he got caught.
 
-*Are you overreacting?* My mind started to race, clawing at ways to fix our marriage, any crumbling piece I could grab. Toys would have been fine. This wasn’t a toy. It had a face. Those matte black eyes. I told myself I wasn’t overreacting. He should have talked to me first. *Controlling?* That word crept in, and I threw it out.
+*Are you overreacting?* My mind started to race, clawing at ways to fix our marriage, any crumbling piece I could grab. Toys would have been fine but this wasn’t a toy. It had a face. Those matte black eyes burned into my brain. I told myself I wasn’t overreacting. He should have talked to me first. *Controlling?* That word crept in, and I threw it out.
 
 *Why not just leave?* No. Not that. *I can fix this. I can make this work.* Focus on talking, not screaming.
 
-The talking didn’t work. He came home and saw I was upset. I told him he hadn’t thrown it out. He fired back that he’d been busy. Lame excuse. That lit us up. We argued and bickered. Frustration didn’t vent; it fed the fire.
+The talking didn’t work. He came home and saw I was upset. I told him he hadn’t thrown it out. He fired back that he’d been busy. Lame excuse. That lit us up. We argued and bickered, frustration didn’t vent; it fed the fire.
 
 In the heat of it I asked, “Where the hell did you even get that thing?”
 
@@ -64,9 +65,9 @@ I raised my eyebrows and waited.
 
 “So you kept it. It wasn’t yours, and you kept it, then you fucked it?” I asked.
 
-We walked that tight rope back and forth. Part of me wanted to understand. Part of me felt Mark didn’t understand himself. He said he had been thinking of getting something similar for a while. We had no time together. In that state, I told myself at least he hadn’t cheated. I still felt angry that he hid it and lied about throwing it away. By morning, we landed on shaky middle ground. He could keep the body toy, but it had to stay secure and locked in the bathroom closet. I didn’t want to see it. We would both work at being intimate again. If that thing started to replace us, we would open a new door and deal with it.
+We walked that tight rope back and forth. Part of me wanted to understand. Part of me felt Mark didn’t understand himself. He said he had been thinking of getting something similar for a while. We had no time together. In that state, I told myself at least he hadn’t cheated. I still felt angry that he hid it and lied about throwing it away. By morning, we landed on shaky middle ground. He could keep the body toy, but it had to stay secure and locked in the bathroom closet. I didn’t want to see it. We would both work at being intimate again. If that thing started to replace me, we would open a new door and deal with it.
 
-*Baby steps,* I told myself. Hard steps. A relationship costs. You decide what you will give up and how far you will bend. I loved Mark. I wanted this to work.
+*Baby steps,* I told myself. Hard steps. A relationship costs. You decide what you will give up and how far you will bend. I loved Mark and I wanted this to work.
 
 The next morning, I woke up next to an empty bed. We both had the day off, but after last night I expected a quiet, ashamed kind of day. Then classical music drifted from the kitchen and pumpkin waffles hissed on the griddle. Mark could cook. It took me back to the first night I stayed over in his college dorm. I got dressed and went to the bathroom. As I washed my hands I saw a long black hair on the counter, hiding in plain sight. Not mine. I have brown hair. Mark’s is black, but not this long. My eyes went to the closet that connects to our bathroom.
 
@@ -86,19 +87,19 @@ Mark got up to use the bathroom, then came back. The door clicked. I flinched.
 
 I dozed on his shoulder. Sip here, big gulp there. The TV fell to black between commercials, then snapped back. The weak lamp put a yellow pool in the room. Each time the picture returned it flashed my eyes. I drifted toward sleep. A commercial cut to black again. For a split second that felt like forever, the screen showed the open door behind us.
 
-A body stood there. Almost door-frame tall. The face blurred, but I felt a frown on it, a look like disgust, maybe jealousy; it stared straight at me. It's pale silicone skin, eyes flaring. Goosebumps climbed my skin. I shivered. The TV came back and filled the room with light. I twisted around. The bedroom door hung ajar. Empty hall.
+A body stood there. Almost door-frame tall. The face blurred, but I felt a frown on it, a look like disgust, maybe jealousy; it stared straight at me. It's pale silicone skin, eyes flaring. Goosebumps climbed my skin. I shivered. The TV came back and filled the room with light. I twisted around. The bedroom door hung ajar. Empty.
 
 Mark watched me. “Babe, you okay?”
 
 “Yeah. Thought I heard something,” I said, and let it pass.
 
-That night, we made love for the first time in a long time. I’ll spare the details. It was good. Mark passed out. I lay awake and watched his chest rise and fall. Maybe we were healing. I slipped out to the bathroom. As I washed my hands, I saw the closet light was on.
+That night, we made love for the first time in a long time. I’ll spare the details. It was good. Mark passed out, and I lay awake, watching his chest rise and fall. Maybe we were healing. I slipped out to the bathroom. As I washed my hands, I saw the closet light was on.
 
 *Strange, but fine,* I told myself. The light switch sits inside. I reached for the door and stopped. No line of light leaked from the side. Only a bar of it glowed under the door, like something stood flush against the jamb.
 
 I ran back and shook Mark awake. Words tumbled out. He didn’t argue. We walked to the bathroom together. The light still burned, and this time a thin slice showed at the edge. Nothing blocked it now. He set his hand on the knob and turned it slowly.
 
-Nothing. Empty closet. Same as ever. He didn’t judge me. I tried to reason through it, but comfort never came back to the house.
+Nothing. Empty closet. Same as ever. He didn’t judge me as I tried to reason through it, but comfort never came back to the house.
 
 Over the next weeks, Mark and I got better, but that night stuck to me. The house felt watched, worse when I was alone. Late on my laptop or in front of the TV I felt eyes on my neck. Sweat beaded. Goosebumps rose. I snapped around and saw nothing. Piles of clothes shaped themselves into a head peeking out, angry and hiding. I shook it off. I never settled.
 
@@ -112,7 +113,7 @@ It got worse when I found the footprints.
 
 White, powdery half-moons crossed the floor. I came home alone while Mark worked the late shift. I stared and felt stupid for standing there. I should have shut the door and called the cops. I didn’t. Something held me. Not curiosity. Something I can’t name, like a hand on my back.
 
-I followed the tracks. Halfway down the hall, I knew where they led. Straight to the bathroom closet. They ended at the door. My hand found the knob and froze. Fear, yes, but something else. My mind jumped to the first time I saw that ratchet doll, how it looked at me. I pictured an eye pressed to the crack while I slid the lock. In my head, it ran for the closet, flapping like a bad puppet, and slammed the door.
+I followed the tracks. Halfway down the hall, I knew where they led. Straight to the bathroom closet. They ended at the door. My hand found the knob and froze. Fear, yes, but something else. My mind jumped to the first time I saw that ratchet doll, how it looked at me. I pictured an eye pressed to the peephole while I slid the lock to the front door. In my head, it ran for the closet, flapping like a bad puppet, and slammed the door.
 
 I shook it off and pushed. The door stopped on something solid. I pushed harder. It would not move.
 
@@ -170,9 +171,9 @@ We heard the closet door open. Footsteps made plopping sounds against the tiles 
 
 It stood in the doorway and looked at us, like it weighed us. None of us moved. Then it sank low and set its hands on the floor. It came on all fours. It lunged. The weight hit the bed and pinned me. The mouth opened inches from mine. Hair hung like oil. The mouth widened, wider than a mouth should.
 
-A crack. The weight slid off. Mark stood with a stool in his hands. I threw the covers over the doll. It thrashed like a child trying to claw its way out. It screamed. Not human. A raw scrape, a mad noise that wanted to sound human and missed.
+With a loud crack, the weight slid off. Mark stood with a stool in his hands. I threw the covers over the doll. It thrashed like a child trying to claw its way out. It screamed. Not human. A raw scrape, a mad noise that wanted to sound human and missed.
 
-I grabbed the candle and threw it. Flame caught. The scream rose and broke and turned into rage and pain. It tore the covers free. We stood and watched. In that moment, it looked human. It rolled side to side, hunting for a way to put itself out. I thought of *stop, drop, and rol*l from school. *Too late*. Hair burned away. The room was filled with the smell of burnt rubber. Smoke thickened. The alarm shrieked. We ran for the door.
+I grabbed the candle and threw it. Flame caught. The scream rose and broke and turned into rage and pain. It tore the covers free. We stood and watched. In that moment, it looked human. It rolled side to side, hunting for a way to put itself out. I thought of *stop, drop, and roll* from school. *Too late*. Hair burned away. The room was filled with the smell of burnt rubber. Smoke thickened. The alarm shrieked. We ran for the door.
 
 I looked back once. The same scowl. The same look of disgust. A stripe of jealousy in it. It reached for me with one hand and tried to crawl. It failed. One last heave, like a breath. It stopped.
 
@@ -180,9 +181,9 @@ Mark pulled me, and we ran. Sirens grew in the distance and came for us.
 
 We told them it was an accident. We were experimenting with a doll when a candle caught fire. Awkward, but it covered the truth. They found the thing right where we left it, melted and ruined. The fire crew did solid work. The fire never spread past our bedroom. 
 
-We moved to another state. Bigger house. In time, we had a baby. The baby took our time and wore us out in a good way. We were tired and happy.
+We moved to another state, to a bigger house. In time, we had a baby. The baby took our time and wore us out in a good way. We were tired and happy.
 
-The doorbell rang during a nap. The shushing from the Google speaker hummed in her room. I checked the peephole and saw nothing. I opened the door. A big box sat on the mat. No label. No mark. My mind snapped back to that first box. Curiosity rose like a bad reflex. My hand went to the tape. I started to lift the flap.
+The doorbell rang during a nap. The shushing from the Google speaker hummed in her room. I checked the peephole and saw nothing. I opened the door. A big box sat on the mat. No label. No mark. My mind snapped back to that first box. Something like a lure that caught my curiosity, rose like a bad reflex. My hand went to the tape. I started to lift the flap.
 
 My daughter cried and jolted me. *What am I doing,* I thought. I stared at the box and felt disgusted. I dragged it to our dumpster and dropped it in.
 
