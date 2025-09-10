@@ -104,7 +104,7 @@ Still, I knew the word he meant to say. I wasn’t a baby.
 
 *Kill*. 
 
-*“Excuse the awkward transparency, folks. I haven’t treated a child in some time. Used to, sure, but pediatrics has been a little too painful since…well, that’s neither here nor there. Allow me to skip ahead to the bottom line: despite what the other doc said, the teratoma will reemerge after a time, and it should be removed. Not because it’s malignant, but more because I imagine letting it grow too large would be…distressing. For your boy's sake, I'm glad your husband got my card and gave me a call. I've been informed that money is tight. Don’t fixate too much on financing. I didn’t get into medicine to bankrupt anyone. We’ll do an income-based payment plan. Save any questions you have for my lovely assistant, Daphne. God knows I couldn’t answer them.”*
+*“Excuse the awkward transparency, folks. I haven’t treated a child in some time. Used to, sure, but pediatrics has been a little too painful since…well, that’s neither here nor there. Allow me to skip ahead to the bottom line: despite what the other doc said, the teratoma will reemerge after a time, and it should be removed. Not because it’s malignant, but more because I imagine letting it grow too large would be…distressing. For your boy's sake, I'm glad your husband got my card and gave me a call. I've been informed that money is tight. Don’t fixate too much on the financing. I didn’t get into medicine to bankrupt anyone. We’ll do an income-based payment plan. Save any questions you have for my lovely assistant, Daphne. God knows I couldn’t answer them.”*
 
 We followed Hawthorn through his vacant mansion and out to the rear patio. There was an older woman facing away from us at a small, circular, cast-iron table, absentmindedly stirring a cup of black tea with a miniature spoon. In its prime, I imagine their backyard was truly a sight to behold. Its current state, however, was one of utter disrepair. 
 
@@ -120,7 +120,7 @@ And those eyes never left me. Not for a moment.
 
 Not even when she was specifically addressing my mom.
 
-*“Daphne - could you explain the payment plan to these kind folks?”* Hawthorn remarked as he turned to walk back inside, snapping the screen door shut. Through the transparent glass, his eyes lingered on me as well, but his expression was different than his wife's - wistful but muted.
+*“Daphne - could you explain the payment plan to these kind folks?”* Hawthorn remarked as he turned to walk back inside, snapping the screen door shut. Through the transparent glass, his eyes lingered on me as well, but his expression was different than his wife's - wistful, but muted.
 
 In a choice that would only feel logical to a kid, I pretended to sleep. Closed my eyes, curled up, and became still. Released a few over-enunciated snores to really sell it, too. Hoped that'd make them finally stop watching me. 
 
