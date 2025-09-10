@@ -1,4 +1,4 @@
-'Time.'
+'Love.'
 
 They say it's the purest form of giving without expecting anything in return. To be unconditional, understanding, and patient. Love can be the sweetest thing of all, but it can also be the most dangerous weapon in the world.
 

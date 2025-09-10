@@ -254,6 +254,7 @@ The girl. Not Hattie, the Indian. A bloodied bundle in the hay and dirt. Legs an
 I grabbed at Wyatt’s collar and brought him eye-level. Rage rising in me like a burning flame. 
 
 “There was only one!” I spat into his gormless face.
+
 “But-bu—”
 
 I shook my head. “Another Indian kid.”
