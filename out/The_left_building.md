@@ -14,7 +14,7 @@ I didn’t know why the energy around it always felt off until I heard the stori
 It had been built long ago, on swampy ground, with serious infrastructure problems.
 It wasn’t even straight. Or maybe it had been, once. Over time, it tilted slightly to the left, and everyone in town knew it.
 Few people still live there. Definitely not on the top two floors. Twelve apartments stood empty.
-I always asked: why? Why does no one live there?
+I always asked: “Why? Why does no one live there?”
 When I looked up, I saw blackened marks, traces of fire, like the building was crying. 
 
 The story was that many had died. Children, too.
@@ -51,12 +51,18 @@ Everything went hazy. Like a bad dream you can’t wake up from.
 My legs weakened. My heart pounded in my ears. My breath came short.
 I tried to scream, but only a dry whisper came out.
 Then I heard it, a dark, steady male voice:
+
 “Forward. Forward.”
+
 I felt an unnatural force push me toward the balcony.
 The railing was gone. Only concrete remained between me and the fall .
 I realized quickly, it wanted me to jump.
-I whispered, trembling, “Backwards... backwards…”
-“Forward. Forward,” the entity repeated.
+I whispered, trembling, 
+
+“Backwards... backwards…”
+
+“Forward. Forward”. The entity repeated.
+
 Suddenly, a massive cabinet beside me tilted, then crashed to the floor, blocking the path forward to the balcony.
 In the rising dust, I saw faint, clean traces of tiny children’s palms.
 I finally could scream a deep, raw, uncontrollable sound from somewhere inside me, and ran, taking the stairs four, five at a time, not daring to look back.
