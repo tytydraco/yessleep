@@ -8,15 +8,15 @@ The noise isn't letting up, but I try to drown it with my pen, write this so it 
 
 \*\*\*
 
-*So me and Rocky, a boy whom I thought was my pal, we were sitting on a cracked-up wall. In front of us there was this decrepit church. Made out of bleached-out stone that's almost white, sort of grayed and gross, and the roof is a mellow red. It's got a cross tower sticking up in the sky. And a big old tree covered in deep purple moss, looming over it, its thick branches hanging down.* 
+*So me and Rocky, a boy whom I thought was my pal, we were sitting on a cracked-up wall. In front of us there was this decrepit church. Made out of bleached-out stone that's almost white, sort of grayed and gross, and the roof is a mellow red. It's got a cross tower sticking up in the sky. And a big old tree covered in deep purple moss, looming over it, its thick branches hanging down.*
 
-*The clouds were so low they've turned the world a dingy gray, but at least it wasn't raining. Mid-September and still warm.* 
+*The clouds were so low they've turned the world a dingy gray, but at least it wasn't raining. Mid-September and still warm.*
 
 *There was a cemetery behind us on the hill. We couldn't see no tombs from where we were sitting, they're down below. But a few meters away, at the entrance of the cemetery, there was that statue, some crusty white stone angel thing, with long strands of hair and no pupils in its eyes, looking up at the sky.*
 
 *"That angel gives me the heebie-jeebies", I told Rocky.*
 
-*But he wasn't paying any attention to me. Rocky was busy jamming his finger into his nose, then pulling out globs of nasty shit, rolling them up into little balls and flingin them onto the dirt path that runs between cemetery and church.*
+*But he wasn't paying any attention to me. Rocky was busy jamming his finger into his nose, then pulling out globs of nasty shit, rolling them up into little balls and flingin them onto the dirt path that ran between cemetery and church.*
 
 *I had these morbid thoughts. An urge to give him a push, making his body roll down that steep hill.*
 
@@ -32,7 +32,7 @@ The noise isn't letting up, but I try to drown it with my pen, write this so it 
 
 \*\*\*
 
-Ah, you bastard! there's banging again. Sounds like a jungle up there, a wild beast ritual or maybe a herd of elephants? Is she having a party now?
+Ah, you bastard! there's that banging again. Sounds like a jungle up there, a wild beast ritual or maybe a herd of elephants? Is she having a party now?
 
 In a fury of rage, I tear out of my place and make for the stairs.
 
@@ -44,7 +44,7 @@ She's standing there at her doorway, cute in that robe. Her long golden hair spi
 
 "You... eh... you gotta keep the noise down," I spit out while peeking inside at her empty living room. It's eerily still.
 
-"What noise?" she asks. Her gaze is steady, clear. But there's something in it. Too wide, too blank, like pupils etched away. 
+"What noise?" she asks. Her gaze is steady, clear. But there's something in it. Too wide, too blank, like pupils etched away.
 
 She genuinely doesn't seem to get why I'm upset. "Haven’t heard anything".
 
@@ -68,11 +68,8 @@ I take my work, reread it. A mess of half-arsed attempts at creating something. 
 
 I try to centre myself. Sit back in my chair, close my eyes... and bang! The pounding again.
 
-Up I jump, roaring at the walls, the ceiling, "Rocky? Is that you, you bastard?" 
+Up I jump, roaring at the walls, the ceiling, "Rocky? Is that you, you bastard?"
 
-Tears streaming down my face. "Swear I didn't mean to shove you off that wall, pal." 
+Tears streaming down my face. "Swear I didn't mean to shove you off that wall, pal."
 
 Sobbing now, full-on blubbering. "I swear," I whimper, my voice cracking, but the noise just gets louder, right through my skull.
-
-
-
