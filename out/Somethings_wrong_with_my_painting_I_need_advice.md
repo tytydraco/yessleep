@@ -1,4 +1,4 @@
-Hi. My (fake) name is Charles (29, M). I’ve been an oil painter since I was a small child. I got my BA in Fine Arts after attending Goldsmiths University for 4 full-time years, then received a Master of Arts in Teaching after attending the School of Visual Arts for 2 years. I’ve been working as a high school art teacher for the past four years whilst creating my own work at home, specifically during the summertime. Some of my paintings have been in museums, but I’ve yet to find a gallery to showcase my current series as of writing this. 
+Hi. My name is Charles (29, M). I’ve been an oil painter since I was a small child. I got my BA in Fine Arts after attending Goldsmiths University for 4 full-time years, then received a Master of Arts in Teaching after attending the School of Visual Arts for 2 years. I’ve been working as a high school art teacher for the past four years whilst creating my own work at home, specifically during the summertime. Some of my paintings have been in museums, but I’ve yet to find a gallery to showcase my current series as of writing this. 
 
 All this is to say that I’ve been a professional artist my whole life, and this weird crap has never happened to me before. It started right before I had a studio visit today, where a few representatives from different galleries came and toured the pieces I’m working on. It was supposed to be a great opportunity. However, there was a problem with the main painting.
 
@@ -16,9 +16,6 @@ I don’t know what the hell could’ve happened. I hadn’t taken any photos of
 
 I didn’t end up cancelling the studio visit. It was too late, and too much hung on the chance of a gallery exhibiting my work. One by one, representatives came to survey *Dionysus’ Grief*. One by one, they walked around the room, stopping at each painting, tilting their heads at the incomplete ones (the series was due to be finished in five months), and standing in awe at the largest, most magnificent painting. The wrong painting.
 
-
-
 It looks the exact same. The *exact* same. But I know it can’t be the same painting, because it’s missing the rip my girlfriend Leah made with her nails, and the little splatters of blood in the bottom left corner, and of course the large spot of gore she annoyingly made in the middle. I’d left the ruined painting as it was- there’s no way it could be salvaged. So how was it standing in front of me, perfect and clean? Reddit, please help me. I don’t know what happened to the original painting and how- or who- replaced it. There’s also the annoying little detail of how Leah came to the studio visit and served all the representatives tea, healthy as a horse, despite her being dumped into the Thames last night. I’ve killed her four times now, but she just keeps coming back. What a bitch. The point is, Reddit artists, I need you to explain what the hell is going on. I feel like I’m going crazy. How has my painting been replaced, and who’s the culprit?!
 
 Any help would be appreciated. Cheers.
-
