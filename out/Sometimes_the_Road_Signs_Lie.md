@@ -455,3 +455,5 @@ I couldn’t be certain, but I thought I heard something scurry away in the dirt
 He walked around the house and I heard the door knob shake.  Was he checking the lock?  Then he returned.  “I think it’s best if we call it a night.  Ruthy’ll be up early to make y’all breakfast, but feel free to sleep in as late as you’d like.  In the morning we’ll take the truck down to the road and I’ll jump it for you and you’ll be on your way.”
 
 I took another gulp of tea, trying to get the mug down at least halfway, and agreed.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/ZOkXRuBPXG)
