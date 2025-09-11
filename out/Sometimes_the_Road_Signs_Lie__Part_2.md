@@ -151,3 +151,5 @@ I took the box and thanked him, doubting that we’d ever use them, but feeling 
 I looked up at him and frowned, searching his face for the joke that wasn’t there, nodded uneasily, then said goodbye.
 
 Arthur stood in the middle of the dirt road, waving broadly at us from the rearview mirror as his silhouette disappeared into the dust kicked up by our tires.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1nedzz6/sometimes_the_road_signs_lie_part_3_final_update/)
