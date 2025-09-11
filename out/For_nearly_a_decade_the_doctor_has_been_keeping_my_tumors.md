@@ -38,7 +38,7 @@ I remember the way my mom would whisper the word *“oncologist”* whenever she
 
 Like something bad would happen if the *oncologist* heard her talking about them.
 
-And I sure as shit remember the visible relief that washed over her when the *oncologist* called with the biopsy results. She practically collapsed onto the kitchen floor, a mannequin whose strings were being systematically cut, top to bottom.
+And I sure as shit remember the visible relief that washed over her when the *oncologist* called with the biopsy results. She practically collapsed onto the kitchen floor, a marionette whose strings were being systematically cut, top to bottom.
 
 In comparison, Dad stayed rigid, his sun-bleached arms crossed, his wrinkled brow furrowed, even after Mom put a hand up to the receiver, swung her head over, and relayed that magic word.
 

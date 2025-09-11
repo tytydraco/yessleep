@@ -10,7 +10,7 @@ She responded with heavy breath and a strained voice. "Hey, honey. I don't mean 
 
 I sighed and hid my groan. I know better than to let my mom hear any kind of disdain when she asks me to help her. That's how I get a 45-minute-long guilt trip. So, sacrificing my current pleasure, I told my mom with an overacted enthusiasm, "Yeah, of course I can. When do you want me over?"
 
-Of course, I was there within 20 minutes, helping my mom lift these maybe 50-pound boxes max.
+Of course, I was there within 20 minutes, helping my mom lift these, maybe 50-pound boxes max.
 
 While we were going through, I grabbed an old shoebox with a piece of duct tape and writing on it:
 
@@ -40,9 +40,9 @@ About an hour later, my dad got home from Clint's. Stepping through the door wit
 
 Before I spoke, my mom called from the kitchen.
 
-"Don't be teasing him, Arnold! He helped me move the boxes you were supposed to a week ago!"
+"Don't be teasing him, Arnold! He helped me move the boxes you were supposed to take a week ago!"
 
-My dad met my eyes and spun his index finger in tandem with his eyes next to his head before gesturing me to follow him into the smoking room on the side of the house. A man cave of sorts, filled with hard liquor and enough cigars to burn a hole in the ozone layer the size of Mount Logan.
+My dad met my eyes and spun his index finger in tandem with his eyes next to his head before gesturing me to follow him into the smoking room on the side of the house. A man cave of sorts, filled with hard liquor and enough cigars to burn a hole in the ozone layer, the size of Mount Logan.
 
 He sat down, gesturing me to sit in the La-Z-Boy adjacent to his, and he lit up a cigar.
 
@@ -58,7 +58,7 @@ My father is many things. An ex-soldier and longtime cop. I've never seen him fl
 
 I paused at his question.
 
-"I told you, it was in this old box. Are you ok? Is something the matter, Dad?"
+"I told you it was in this old box. Are you ok? Is something the matter, Dad?"
 
 I watched, puzzled, as my father shook his head and put out his practically fresh cigar before putting a hand on his now noticeably sweat-soaked forehead.
 
@@ -140,6 +140,6 @@ I still wish she was right...
 
 I'll post this part for now. Not sure when the next will come. I've been taking quite a few painkillers, and my hand is barely functional. If anyone cares—if anyone values the lives of their own, of their CHILDREN—please read this.
 
-Please tell as many people as you can.
+Please tell as many people as you can. And if anyone has any questions. Anything that you want to know that could help, please ask. I'll answer to the best of my abilities.
 
 Forget the Last Level...
