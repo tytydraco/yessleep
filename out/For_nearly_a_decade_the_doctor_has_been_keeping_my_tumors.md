@@ -290,7 +290,7 @@ Without saying a word, Daphne filled the empty beaker with saline. Hawthorn twis
 
 Six and a half marbles later, their profane alchemy was, evidently, ready for use.
 
-For whatever it’s worth, a high-pitched shriek erupted from the seventh marble when they severed it with a butcher’s knife.
+For whatever it’s worth, a high-pitched shriek exploded from the seventh marble when they severed it with a butcher’s knife.
 
 I wish I had just closed my eyes.
 
