@@ -1,3 +1,5 @@
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1n9kjq3/my_roommate_has_turned_my_family_against_me_so_im/)  [\[Finale\]](https://www.reddit.com/r/nosleep/comments/1nap2ss/my_roommate_wants_me_to_confess_well_here_it_is/)
+
 It’s hard to know where to begin with something like this. “Start at the beginning”, well yeah, no shit, that’s obvious.
 
 But how do you know where the beginning is? Life isn’t neat; it isn’t broken down into little plots with defined starts and ends. It’s one big mess of choices and coincidences that merge and weave together to make what is normally a very boring story.
