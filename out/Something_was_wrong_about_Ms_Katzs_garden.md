@@ -10,7 +10,7 @@ The door was thick wood that looked like it weighed a ton. The brass gargoyle do
 
 The backyard gate slammed shut and I noticed that the old woman was wiping dirt off of her hands; she must have been gardening. “Hello to you as well! I just moved in next door.” I said, trying to be friendly.
 
-“Welcome to Belmont Avenue, my name is Catrina Katz, just call me Katz deary.” She opened her eyes and continued smiling, but I was taken aback again. Her eyes were yellow. Very yellow. They looked like sickly saucers of spoiled milk. My apprehension turned to empathy for Ms.Katz - yellow eyes can mean liver problems, something my own grandmother had struggled with it for years.
+“Welcome to the neighborhood, my name is Catrina Katz, just call me Katz deary.” She opened her eyes and continued smiling, but I was taken aback again. Her eyes were yellow. Very yellow. They looked like sickly saucers of spoiled milk. My apprehension turned to empathy for Ms.Katz - yellow eyes can mean liver problems, something my own grandmother had struggled with it for years.
 
 “I just wanted to say hello, I am going to go get back to unpacking, you should come over for dinner sometime! Nice meeting you,” I said.
 
@@ -20,7 +20,7 @@ That night I slept poorly, the house was dead quiet, the only noise was the air 
 
 I am a very light sleeper, so that’s why I woke up when a strange noise started permeating through the edges of my sleepy consciousness.
 
-There was a sound so quiet that a normal person would have slept through it*.* I lay covered in my bed, sensitive ears straining to discern what the noise was. It sounded like someone was digging in mud.
+There was a sound so quiet that a normal person would have slept through it. I lay covered in my bed, sensitive ears straining to discern what the noise was. It sounded like someone was digging in mud.
 
 I sat up, trying to quiet my breathing so I could hear where it was coming from, but my wooden floors made the sound reverberate from all directions in my room. I could not work up the courage to get out bed and investigate, something told me I should just lay down and put on some white noise to ignore it.
 
@@ -80,7 +80,7 @@ The operator asked in a calm voice,
 
 The operator was clearly used to these kinds of calls, “Ok slow down sir. What is the address?”
 
-“414 Belmont Avenue. Please hurry! Please!” I stammered out as fast as I could,
+“- redacted address-. Please hurry! Please!” I stammered out as fast as I could,
 
 “What is her name sir?”
 
