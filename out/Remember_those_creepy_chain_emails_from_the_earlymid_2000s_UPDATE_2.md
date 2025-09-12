@@ -87,3 +87,5 @@ I should’ve paid more attention, been more careful. I shouldn’t have opened 
 *THE NEXT TIME YOU FALL ASLEEP, SHE WILL BE STANDING OVER YOU.*
 
 *SHE WILL TAKE YOU. NO ESCAPE. NO ESCAPE. NO ESCAPE.*
+
+UPDATE: [https://www.reddit.com/r/nosleep/comments/1netui5/remember\_those\_creepy\_chain\_emails\_from\_the/](https://www.reddit.com/r/nosleep/comments/1netui5/remember_those_creepy_chain_emails_from_the/)
