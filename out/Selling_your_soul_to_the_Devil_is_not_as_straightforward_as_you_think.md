@@ -220,7 +220,7 @@ On the field, Emma scored a goal. She looked over at me and waved, her face brig
 
 "But you're engineering the problems."
 
-"Am I? I didn't give you cancer, Marcus. I didn't made you eat those donuts. I'm merely offering to cure it. I didn't make your wife suspicious—your own actions did that. I offered to fix it. Every step of the way, you've had choices. You've simply chosen the path that led you here."
+"Am I? I didn't give you cancer, Marcus. I didn't make you eat those donuts. I'm merely offering to cure it. I didn't make your wife suspicious—your own actions did that. I offered to fix it. Every step of the way, you've had choices. You've simply chosen the path that led you here."
 
 He was right, and that was the most horrifying part. Every decision had been mine. Every signature on every contract had been voluntary. I had sold myself piece by piece.
 
