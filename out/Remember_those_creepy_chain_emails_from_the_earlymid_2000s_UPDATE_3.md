@@ -96,7 +96,7 @@ He asked me if I was familiar with honeypots. In a cybersecurity context.
 
 I told him that I might’ve read an article about it once. But that he should probably fill in the blanks.
 
-He told me that in the simplest of terms, they were traps meant to lure in hackers. Something that seems real. A system worth invading. But ultimately nothing but smoke and mirrors. An isolated, heavily monitored system.
+He told me that in the simplest of terms, they were traps meant to lure in hackers. Something that seems real. Something worth invading. But ultimately nothing but smoke and mirrors. An isolated, heavily monitored system.
 
 He asked me to imagine that I was a thief roaming around a neighbourhood for somewhere to rob. Then I spot a large, expensive-looking house with all of its lights off. I sneak into the backyard and find the back door unlocked. And then I enter.
 
