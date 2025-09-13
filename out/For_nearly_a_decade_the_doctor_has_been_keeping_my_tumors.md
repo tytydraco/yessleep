@@ -190,7 +190,7 @@ I wasn’t thrilled. Didn’t exactly see myself getting laid on my childhood ma
 
 Honestly, things have been going well. Remarkably, transcendently well.
 
-Quiet wellness is a goddamned curse, however. A harbinger portending changes to come. Lulls you into a false of security, only to rip the rug out from under your feet with sadistic glee.
+Quiet wellness is a goddamned curse, however. A harbinger portending changes to come. Lulls you into a false sense of security, only to rip the rug out from under your feet with sadistic glee.
 
 Yesterday, around midnight, I woke up to use the bathroom.
 
