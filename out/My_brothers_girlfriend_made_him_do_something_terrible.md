@@ -4,7 +4,7 @@ That was until I met her.
 
 He was in his last year of high school, while I was two years older, already attending the local college. I met her first, before my parents, when he asked me to grab coffee near the school. The second I saw her, I knew something didn’t fit. 
 
-She was stunning, popular, rich and way out of his league. I could not understand what she was doing with my brother, an awkward kid son of a retired police officer. 
+She was stunning, popular, rich and way out of his league. I could not understand what she was doing with my brother, an awkward kid, son of a retired police officer. 
 
 From the first time I saw them together, I noticed his posture: submissive, adoring. And hers: confident, in control, like she knew exactly the power she held. 
 
