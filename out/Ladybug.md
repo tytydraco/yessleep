@@ -111,13 +111,13 @@ Everything went silent.
 Everyone stared at her then back at me in shock, disgust and judgement.
 
 I stepped back, slowly. Then ran.
-And I ran. Through hallways. Through the gates. Through the town. Through the people .
+And ran. Through hallways. Through the gates. Through the town. Through the people .
 I ran until my lungs had no air and my legs gave out.
 
 I collapsed in the woods, screaming. Clawing my fingers in my face.
 Begging God to take me instead.
 
-I had killed the high school sweetheart. Everyone will hate me.
+I had killed the high school sweetheart. That’s social suicide. Everyone will hate me.
 Kyle would hate me.
 I’d spend the rest of my life in a cell.
 
