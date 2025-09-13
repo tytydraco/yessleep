@@ -127,7 +127,7 @@ I kept saying “Sorry” for things my family didn’t understand.
 I went up in my room and my cat curled beside me.
 I cried myself into unconsciousness.
 
-I woke up because something was crawling on me.
+I woke up because a bug was crawling on me.
 Something wet and rough pressed under my back.
 
 I opened my eyes.
