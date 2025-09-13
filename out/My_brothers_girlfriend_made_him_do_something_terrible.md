@@ -33,7 +33,7 @@ I went into his room and found stacks of letters he hadn’t sent yet. They stil
 One of them froze me:
 “*I will find the courage to save you. My love is capable of anything.*”
 
-My stomach dropped, and instinctively I went straight to the attic where my dad kept his old service revolver from when he was on the police force. The cabinet was empty.
+My stomach dropped, and instinctively I went straight to the attic where my dad kept his old service handgun from when he was on the police force. The cabinet was empty.
 
 I panicked but didn’t want to alarm my parents, so I told them I was meeting a friend and drove toward the neighborhood where I knew she lived.
 
