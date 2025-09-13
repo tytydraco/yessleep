@@ -94,8 +94,8 @@ In the hallway, she cornered me. She held my arms, making me unable to move.
 
 “I saw you with him,” she yelled. “Meet him again, and I’ll destroy you.”
 
-Before I could react, she yanked my hair so hard my neck twisted. Then, in front of everyone, she spat her gum in my face.
-Her friends laughed, and rage exploded in me.
+Before I could react, she pulled my hair so hard my neck twisted. Then, in front of everyone, she spat her gum in my face.
+Her friends laughed, and rage took over me.
 
 I try to push her off me, even if she was heavy.
 
