@@ -67,7 +67,7 @@ But your teacher brings you back, sits you down at your desk, and you just look 
 
 Knowing you’ve lost.
 
-I’d lost a long time ago. Before Mike moved in, before, I left home, before I buried Antoine, before the first time I’d stolen the exact gun clasped in my hands, before I’d bought the heroin for my girlfriend.
+I’d lost a long time ago. Before Mike moved in, before, I left home, before I buried Peter, before the first time I’d stolen the exact gun clasped in my hands, before I’d bought the heroin for my girlfriend.
 
 I had lost, and Mike had won.
 
