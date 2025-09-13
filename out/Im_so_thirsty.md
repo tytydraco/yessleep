@@ -1,5 +1,3 @@
-“I'm so thirsty”
-
 The words echoed around in my head. 
 
 I stood staring at the water tumbling from the tap. I'd been standing for what felt like hours, just watching it, going over and over the events of a few nights ago. I’d only seen that homeless man twice, but each time was vividly ingrained in my memory. Both times had been unnerving, but the second time… that was downright unhinged.
