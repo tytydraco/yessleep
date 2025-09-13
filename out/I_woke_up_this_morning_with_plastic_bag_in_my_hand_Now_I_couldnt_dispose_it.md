@@ -8,14 +8,13 @@ I did not know how it got there. Maybe someone slipped it into my hand as a pran
 
 Curiosity gnawed at me. I told myself I would only take a quick peek, then move on.
 
-But the moment I looked inside, a chill shot through me.
-I cannot tell you what I saw. Not because I do not want to, but because you might judge me.
+But the moment I looked inside, a chill shot through me. I cannot tell you what I saw. Not because I do not want to, but because you might judge me.
 
 So I thought, maybe I could just leave it somewhere. Dump it by the roadside and let the utility crew deal with it. Problem solved. Or so I told myself.
 
 I searched for an isolated spot, the perfect place to abandon my burden. My shoes left faint smears where the drops hit the pavement. I did not want it. I wanted it gone.
 
-I tucked it behind a bush, out of sight. Hidden.
+I tried to bury it. I pushed it into the dirt, tucked it behind a bush where no one would look. Out of sight, yes—but not gone. Hidden.
 
 But just as I turned to leave, a man appeared. His eyes locked on the plastic bag with disgust.
 
@@ -31,14 +30,12 @@ His face twisted as he peeked inside. Then he lurched forward and vomited.
 
 I panicked.
 
-Instinct took over. I snatched the plastic bag and bolted. Drops of blood spattered the ground behind me, marking every step. My heart pounded as if the sound itself were an alarm, screaming my guilt across the street. I did not look back. I did not want to hear another word from him, or see the disgust etched on his face.
+Instinct took over. I dug frantically into the soil, ripping the bag free and bolted. Drops of blood spattered the ground behind me, marking every step. My heart pounded as if the sound itself were an alarm, screaming my guilt across the street. I did not look back. I did not want to hear another word from him, or see the disgust etched on his face.
 
-All I knew was I had to get away, the bag swinging at my side, binding me to it in ways I couldn’t untangle.
-What’s inside the bag? I won’t tell.
+All I knew was I had to get away, the bag swinging at my side, binding me to it in ways I couldn’t untangle. What’s inside the bag? I won’t tell.
 
 Not yet. Not anyone.
 
-***
 Good thing I ran. If I had stayed, his voice would have drawn a crowd and I would have been trapped.
 
 I kept moving, faster, until the street swallowed me whole. The bag swung at my side, light yet impossibly heavy. I thought I saw droplets falling from its corner, dark stains hitting the pavement, but when I turned to check, the street behind me was clean.
@@ -53,8 +50,7 @@ Somewhere deep inside, I knew this wasn’t something I could simply discard. It
 
 I needed help. Someone I could trust.
 
-So I went to my friends. I told them what I could, though not everything. I begged them to help me get rid of it, begged them to take it from me, if only for a moment.
-Their eyes shifted as I spoke. Some glanced at my hand, at the plastic glistening in the light, as if they saw what was seeping through. Others avoided looking at me entirely.
+So I went to my friends. I told them what I could, though not everything. I begged them to help me get rid of it, begged them to take it from me, if only for a moment. Their eyes shifted as I spoke. Some glanced at my hand, at the plastic glistening in the light, as if they saw what was seeping through. Others avoided looking at me entirely.
 
 No one answered.
 
@@ -68,8 +64,7 @@ I went to his place. The gate loomed in front of me, tall and closed. I stepped 
 
 The gate creaked open. He appeared with a wide smile, arms outstretched. He pulled me into a hug, warm and unguarded. He was genuinely happy to see me.
 
-For a moment, I almost believed the bag was gone.
-As he hugged me, the plastic bag brushed against him. A faint smear of red marked his shirt where it touched. He pulled back, eyes narrowing.
+For a moment, I almost believed the bag was gone. As he hugged me, the plastic bag brushed against him. A faint smear of red marked his shirt where it touched. He pulled back, eyes narrowing.
 
 “What’s that?” he asked.
 
@@ -87,10 +82,7 @@ He leaned out, scanning the street to his left, then to his right, as if making 
 
 Before I could answer, he slipped back inside, and the gate clanged shut between us. The sound echoed in the empty street, final and absolute.
 
-What’s inside the bag that makes them recoil, that turns friends into strangers? I won’t tell.
-Not yet. Not anyone.
-
-***
+What’s inside the bag that makes them recoil, that turns friends into strangers? I won’t tell. Not yet. Not anyone.
 
 I stood there, head down and cried. Not loud, not wailing, just a slow collapse I couldn’t stop. The gate was closed, the street empty, and the bag still hung heavy at my side. Their silence had been bad enough. His refusal cut deeper.
 
@@ -108,8 +100,7 @@ No one said a word. But I felt it. The thought hanging in the air like a shadow.
 
 Then a woman appeared at her gate. Her eyes were wide and hard, filled with a rage I couldn’t name. She shouted, “Stay away from us and take that filth somewhere else!”
 
-A handful of dung clung to her fingers, a few stray droplets flicking toward me. They didn’t hit me, but I could feel her accusation as if it were a tangible force.
-Her gaze didn’t waver. She didn’t see me as a person anymore. The thing inside the plastic bag made real, guilty in her eyes.
+A handful of dung clung to her fingers, a few stray droplets flicking toward me. They didn’t hit me, but I could feel her accusation as if it were a tangible force. Her gaze didn’t waver. She didn’t see me as a person anymore. The thing inside the plastic bag made real, guilty in her eyes.
 
 I ran. The street stretched endlessly, shadows whispering their verdict. The weight of their judgment pressed into me harder than the bag itself, gnawing at my gut, twisting my chest. Every step was a confession I hadn’t made. Every heartbeat reminded me that I was misunderstood, hunted by my own guilt and by their imagined truth.
 
@@ -117,10 +108,8 @@ How can I explain that I didn’t commit this crime? No one wants to hear me. No
 
 Fresh droplets of blood still fell from the plastic bag. I watched them, a mix of disgust, hatred, and hopelessness tightening in my chest.
 
-What’s inside the bag? I’m sorry. I can’t let you know.
-Not yet. Not anyone.
+What’s inside the bag? I’m sorry. I can’t let you know. Not yet. Not anyone.
 
-***
 I kept walking, letting my feet drag me forward, praying they would carry me to someone I could still trust.
 
 Then I reached a corner. My chest tightened. I broke into a near-run, almost excited, almost afraid, as if the turn itself might hold an answer.
@@ -133,8 +122,7 @@ Something about him pulled at me. He looked familiar, not just to my eyes but to
 
 I moved toward him, slow steps, hesitant, afraid that even this moment might betray me.
 
-“Excuse me,” I whispered, my voice almost breaking.
-The elderly man turned his head with deliberate care, his eyes meeting mine. For a heartbeat, the world fell silent.
+“Excuse me,” I whispered, my voice almost breaking. The elderly man turned his head with deliberate care, his eyes meeting mine. For a heartbeat, the world fell silent.
 
 And then it hit me. Recognition. Relief flooding through my chest.
 
@@ -150,8 +138,7 @@ My hand trembled as I lifted the bag for him to see. The plastic crinkled, strea
 
 Grandpa’s eyes rested on me, gentle, filled with compassion that cut deeper than anger ever could.
 
-“I’m sorry,” he said softly. “I can’t help you with that.”
-The words shattered me. My chest caved in, my throat burned. My last thread of hope snapped, and I felt hollow. I wanted to scream, to tear the air apart, but all I could do was collapse to my knees, sobs breaking loose like a dam.
+“I’m sorry,” he said softly. “I can’t help you with that.” The words shattered me. My chest caved in, my throat burned. My last thread of hope snapped, and I felt hollow. I wanted to scream, to tear the air apart, but all I could do was collapse to my knees, sobs breaking loose like a dam.
 
 The bag thudded to the ground beside me, leaking steadily, each drop marking my defeat.
 
@@ -160,8 +147,6 @@ Grandpa didn’t flinch. He just stood there, watching me with that same calm, u
 Then, after what felt like forever, his voice came again, quiet but steady.
 
 “But I know someone who can help you.”
-
-***
 
 For a moment, relief washed over me. A spark of hope.
 
@@ -181,8 +166,7 @@ Their smiles faltered. They glanced at each other, confusion flickering between 
 
 “This is where they’ll reject me,” I thought.
 
-My hand trembled as I raised the plastic bag, blood dripping steadily from its corner. I kept my head low.
-“Because of this,” I whispered, bracing myself for the sting of their rejection.
+My hand trembled as I raised the plastic bag, blood dripping steadily from its corner. I kept my head low. “Because of this,” I whispered, bracing myself for the sting of their rejection.
 
 Silence stretched, heavy and suffocating.
 
@@ -191,8 +175,6 @@ I didn’t need to wait for their words. I already knew. I’d been through this
 Then, softly but firmly, a voice cut through.
 
 “Come inside.”
-
-***
 
 I stepped inside. For a moment, it felt like someone was finally ready to listen. Or maybe I was fooling myself, walking straight into another silence, another rejection dressed as kindness.
 
@@ -215,8 +197,6 @@ Then one of them finally spoke.
 My head raised with hope.
 
 “We know a place.” the couple said.
-
-***
 
 We carried our tools. Shovels, mostly. The kind meant for digging, for burying.
 
@@ -242,18 +222,13 @@ My stomach dropped. The fear that had followed me all this way surged again. I w
 
 The words hung in the air, strangely comforting. For once, I wasn’t alone.
 
-The passerby’s gaze flicked to the hole, then to me, then to the bag. My breath locked in my chest, waiting for the judgment, the accusation, the shout that always came.
-Instead, he only nodded.
+The passerby’s gaze flicked to the hole, then to me, then to the bag. My breath locked in my chest, waiting for the judgment, the accusation, the shout that always came. Instead, he only nodded.
 
-“Alright. Just take care out here. Those tools are sharp.”
-And then he walked on, unbothered, his footsteps fading into the road’s hum.
+“Alright. Just take care out here. Those tools are sharp.” And then he walked on, unbothered, his footsteps fading into the road’s hum.
 
 I stood there stunned, shovel trembling in my hands. I couldn’t believe what I had just witnessed. No disgust. No suspicion. Just… normal.
 
-It wasn’t me he trusted—it was them. The couple. Their presence made the bag invisible, made me invisible. For the first time, I felt the shield of someone else’s trust.
-But we weren’t done. Together, we continued to dig deeper…
-
-***
+It wasn’t me he trusted—it was them. The couple. Their presence made the bag invisible, made me invisible. For the first time, I felt the shield of someone else’s trust. But we weren’t done. Together, we continued to dig deeper…
 
 We kept digging, the shovels biting deeper into the earth until the hole sank six feet down. When I finally stood at its edge and looked in, it felt bottomless, like it could swallow everything I carried inside me.
 
