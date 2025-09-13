@@ -22,7 +22,7 @@ I only got involved again when my dad begged me to come home one weekend. He sai
 
 So I drove him around, pretending I needed to run errands, just to talk. At first he stayed silent, but then he broke down crying.
 
-He told me her parents hated him. They were arrogant, wouldn’t even let her introduce him to them. Worse, she showed him bruises on her arms and legs, claiming her father, a former Navy officer and alcoholic, beat her to keep her away from boys like him. He was terrified she would eventually give in to her father’s pressure and break up with him. 
+He told me her parents hated him. They were arrogant, wouldn’t even let her introduce him to them. Worse, she showed him bruises on her arms and legs, claiming her father, an alcoholic, beat her to keep her away from boys like him. He was terrified she would eventually give in to her father’s pressure and break up. 
 
 It was painful to watch him sob, saying he could not live without her. I tried to calm him down, told him that young love burns out fast, that soon they would both move on. But he wouldn’t hear me. He went silent again, and I thought it would fade with time like it had with me once.
 
