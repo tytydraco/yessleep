@@ -336,6 +336,8 @@ My knees are killing me tonight. Back to the old pain like the last few days nev
 
 I should be grateful.
 
+That was two months ago.
+
 But I keep thinking about the silver wires. The way they pulsed. The way they connected me to everything.
 
 What if I wasn't hallucinating.
