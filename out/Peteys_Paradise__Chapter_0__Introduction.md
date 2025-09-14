@@ -40,7 +40,7 @@ She returned late that night, looking tired. Apparently, the experience was too 
 
 Entry was free, you just needed a ticket and to answer the questions before the morning. You also had to agree to their sort of NDA privacy agreement, which was only a few paragraphs. The town’s population *had* stuck to the rules of this; don’t disclose your individual experience to not spoil it for others. 
 
-You could, however, say which characters you had seen. We were fascinated by this so much that this spawned fan made trading cards and an ever changing escape room.
+You could, however, say which characters you had seen. We were fascinated by this so much that this spawned fan made trading cards - One card had no character but a weird rhyme scratched on it: ‘From grief they weave the rides we leave.’ I thought it was just creepy marketing. We also had  an ever changing escape room.
 
 Some would take their cards to try to get the characters to sign them, but often found they experienced new characters instead.
 
@@ -105,3 +105,7 @@ Oh, my name is Frank, by the way.
 When I was 18, it was my turn. 
 
 I got my ticket. 
+
+
+Edited for a small clue - check the cards!
+

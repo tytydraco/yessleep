@@ -26,7 +26,7 @@ Ben and Sean were already a few campsites down from ours and calling out to the 
 
 “Brown haired, blue-eyed, eight-year-old girl named Sarah.” Came a voice from behind us.
 
-I turned to see a college-aged guy walking towards us ahead of another guy and a girl who were around the same age and wearing packs.
+I turned to see a college-aged guy walking towards us ahead of another guy and a girl who were around the same age -- each of them wearing expensive looking packs.
 
 “Any idea which way she went?” Sean asked.
 
@@ -46,9 +46,9 @@ The shouts had tapered off as people began to gather around a park ranger at the
 
 We glanced at each other as we moved past the heartbreaking scene. The expressions on each of our faces were of sorrow-tinted determination.
 
-James, Kristen, and Paul were the names of our new companions. They were each outdoorsy types like we were and were just as well-equipped.We met at the trailhead just outside of the camp area and gathered around the large wooden map, and formulated a plan.
+James, Kristen, and Paul were the names of our new companions. They were each outdoorsy types like we were and were just as well-equipped.We met at the trailhead just outside of the camp area, gathered around the large wooden map, and formulated a plan.
 
-There were several offshooting trails which snaked through the valley; “Main Street” was the eight-mile circular trail which returned to the trailhead and connected to the Ouachita Trail at the top, “Baker’s Falls” was a cutback trail which led to a waterfall four miles from the trailhead, and “Vista Trail” lead up the mountain five mile to the North.
+There were several offshooting trails which snaked through the valley; “Main Street” was the eight-mile circular trail which returned to the trailhead and connected to the Ouachita Trail at the top, “Baker’s Falls” was a cutback trail which led to a waterfall four miles from the trailhead, and “Vista Trail” lead up the mountain five miles to the North.
 
 We decided that it would be best to split into groups of two in order to hit each trail while staying as safe as possible. Paul and Kristen volunteered to take the Vista Trail, Sean and James decided to take Baker’s Falls, leaving Ben and I to take Main Street. It was agreed that we would meet at the trailhead in seven hours, giving us time to be thorough with our searches and be back before nightfall. We knew cell service would be spotty if not altogether nonexistent, but we exchanged numbers on the off chance we needed to contact each other and ensured we each had the ranger’s station’s number.
 

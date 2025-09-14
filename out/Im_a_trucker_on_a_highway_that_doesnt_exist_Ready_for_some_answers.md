@@ -288,7 +288,7 @@ Everything he’d explained…it raised so many more questions, but there was a 
 
 “To be fair, you haven’t even read the employee manual.”
 
-“I’ve read *most* of it!” I calmed myself. “It isn’t though, is it?”
+“I’ve read *most* of it!” I calmed myself. “It isn’t in it though, right?”
 
 “Nah.”
 
