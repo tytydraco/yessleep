@@ -1,10 +1,12 @@
 Last year, my friends and I decided to do a three-day hike on the Ouachita Trail. Ben, Sean, and I had done multi-day hikes together on different parts of the roughly 210-mile trail before and were hoping to knock out another section before the summer was over. The section we decided to hike this time had a public camping area at the base of the trailhead that led to the Ouachita Trail proper, which we had decided to take advantage of.
 
-We had parked Ben’s car at the ranger station near our endpoint and carpooled in mine to the camp. When we arrived, the sun had started to set but the place was bustling. Kids were riding bikes around the footpath and families were sitting around grills, enjoying the scenery. Places like this weren’t really my cup of tea; I preferred more secluded, quiet areas to set up camp, but something about the communal atmosphere gave rise to a sense of nostalgia for the times my family took me camping at places like this.
+We had parked Ben’s car at the ranger station near our endpoint and carpooled in mine to the camp. When we arrived, the sun had started to set but the place was bustling. Kids were riding bikes around the footpath and families were sitting around grills, enjoying the scenery. 
+
+Places like this weren’t really my cup of tea; I preferred more secluded, quiet areas to set up camp, but something about the communal atmosphere gave rise to a sense of nostalgia for the times my family took me camping at places like this.
 
 By the time we set up our tents, night had fallen, and the crackling of dozens of campfires filled the air. We ate a quick supper of roasted hot dogs and a few beers before heading to bed.
 
-That next morning, I awoke to distant shouts echoing through the campsite. I sat up onto my elbows and listened, trying to make out what was being said. Before I could determine what was being yelled, I was startled by a quick slapping at the front of my tent. Worming my way out of my sleeping bag, I unzipped my tent flap and poked my head outside. Shivering at the cold morning air, I saw Ben and Sean in front of their tents, pulling on their hiking boots.
+That next morning, I awoke to distant shouts echoing through the campsite. I sat up onto my elbows and listened, trying to make out what was being said. Before I could determine what the voices were yelling, I was startled by a quick slapping at the front of my tent. Worming my way out of my sleeping bag, I unzipped my tent flap and poked my head outside. Shivering at the cold morning air, I saw Ben and Sean in front of their tents, pulling on their hiking boots.
 
 “Get your clothes on, man.” Ben said as he saw me.
 
