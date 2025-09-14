@@ -279,3 +279,5 @@ I slammed my foot into his chest. 
 He and his chair crashed to the floor. I fell on him, pinned him down, and wrapped my hand around his mouth, pressing down with pounds of force. Wide, fearful eyes stared up. For once they weren’t mine.
 
 “You’re right,” I said. “We haven’t spoken in so long. Let’s have a chat, [shall we?](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)”
+
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1ngx170/im_a_trucker_on_a_highway_that_doesnt_exist_ready/)
