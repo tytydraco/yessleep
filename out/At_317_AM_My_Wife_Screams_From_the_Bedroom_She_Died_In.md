@@ -70,4 +70,4 @@ I don’t sleep anymore. But every night, I lie in bed and stare at the door. An
 
 She doesn’t blink. And behind her… the teeth are smiling. They’re almost through. I think tomorrow she’ll step inside. I think tomorrow they all will. And when they do… I’ll be waiting.
 
-Because I still love her. Even now. Even if she’s the end of [everything](https://www.reddit.com/u/salty_Astronaut77/s/H0bIOt4bRN ).
+Because I still love her. Even now. Even if she’s the end of [everything](https://www.reddit.com/u/salty_Astronaut77/s/H0bIOt4bRN).
