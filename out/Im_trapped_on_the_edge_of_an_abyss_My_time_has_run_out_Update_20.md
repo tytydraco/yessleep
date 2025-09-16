@@ -196,7 +196,7 @@ Layers and instances.
 
 Whether it was like the golf cart below me that had been recharged by the radius of the vending machine anomaly, or if Il-Belliegħa had accidentally breathed new life into it when it ran by, I didn’t care. What mattered was that my car was still chugging, and that was all I needed.
 
-I shifted the thing to drive, then put the petal to the floor, squealing off down the street toward the road that would lead me to June.
+I shifted the thing to drive, then put the pedal to the floor, squealing off down the street toward the road that would lead me to June.
 
 My knuckles were white on the wheel as I was pressed back against the seat, driving at speeds that I’d never traveled in my life. I skidded up onto the sidewalk as I rounded the corner, jostling myself in my seat and hitting my head on the ceiling. It did little to faze me as I cut it back down onto the road, then headed straight for the cliff side.
 
