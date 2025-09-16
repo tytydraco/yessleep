@@ -1,3 +1,8 @@
+———————-
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1nibcok/when_the_angels_ended_the_world_the_demons_took/)  
+———————-
+
 Currently, I'm writing this in an abandoned store, with my search group somewhere outside. I'm not sure if they've left me behind, or are still looking, but I'm not really sure they'll find me in time.
 
 I'm currently bleeding. Got a metal rod stuck in my gut, and now I'm keeping the wound covered to avoid death by blood loss, but I'm still hoping to get this out for anybody to find.
