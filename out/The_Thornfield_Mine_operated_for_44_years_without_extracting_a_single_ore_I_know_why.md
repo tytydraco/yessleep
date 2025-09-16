@@ -70,7 +70,7 @@ As we walked on, the air felt heavier. I started developing a headache, nothing 
 
 “Hey, take a breath Amanda, look at me.” I reached for her but she pushed my arm away. “What the -” I stumbled back. I let Lisa take her by the arm and calm her down. I wasn’t the best at pep talks. 
 
-“Amanda’s losing it Tommy” I shouted ahead as I walked back to the mine cars but as I turned the corner, he wasn’t anywhere to be found. I called his name, but only heard my own echo's reply. The idiot had gone ahead without waiting. Luckily Amanda had made her way back, and we continued forward. 
+“Amanda’s losing it Tommy” I shouted ahead  but as I turned the corner back to the mine cars, he wasn’t anywhere to be found. I called his name, but only heard my own echo's reply. The idiot had gone ahead without waiting. Luckily Amanda had made her way back, and we continued forward. 
 
 “Tommy!” We each took turns calling out to Tommy but there was no response. All we heard were our own echoes. But there was something off. They came back too fast, and sometimes in someone else's voice. 
 
@@ -78,19 +78,23 @@ I was getting worried, he might have hit a pocket of dead air. Luckily, we’d b
 
 I prayed that Tommy was wearing his. A few minutes later, my prayer was answered.
 
-His rescuer, logbook and hard hat lay on the ground. This didn’t make any sense. Why would he drop his gear, he’s in-charge of safety. “Fuck, Amanda - we need might need to start making our way back. We might need to call for help.”I turned around to hear what Amanda was saying, and she was standing talking to the wall. “Amanda”. I grabbed her by the shoulder and spun her round, “Who are you talking to?”.
+His rescuer, logbook and hard hat lay on the ground. This didn’t make any sense. Why would he drop his gear, he’s in-charge of safety.
+
+“Fuck, Amanda - we need might need to start making our way back. We might need to call for help.”
+
+I turned around to hear what she was saying, and founder stood talking to the wall. “Amanda”. I grabbed her by the shoulder and spun her round, “Who are you talking to?”.
 
 She looked at me, smiled. “My grandfather, silly.” I stepped back, this fucking routine operation was going sideways. I put my rebreather on, there had to be something in the air. Lisa recommended I let Amanda rest, and try to look for Tommy. I grabbed his rebreather, and forged ahead. 
 
 I walked what felt like a few minutes, marking junctions, planting flags.  I didn’t have long, and this was life or death. I turned the corner, and saw Amanda sitting down, her back resting against the wall. 
 
-That didn’t make any sense, I’d walked ahead, not around. I took a deep breath, taking in more oxygen. It was probably an effect from whatever I’d inhaled down here. “Amanda, I’ll be back, I just need to look for Tommy”She raised her head, her confused eyes meeting mine. “Who’s Tommy?”.
+That didn’t make any sense, I’d walked ahead, not around. I took a deep breath, taking in more oxygen. It was probably an effect from whatever I’d inhaled down here. “Amanda, I’ll be back, I just need to look for Tommy”
+
+She raised her head, her confused eyes meeting mine. “Who’s Tommy?”.
 
 I shook my head, and forged on. 
 
-After a few more minutes, it started to get warmer. After a few metres, I’d drank what was left of my water. The heat was making every step I took feel like it took every ounce of my remaining strength. 
-
-The further ahead I walked, the harder it was getting. Lisa suggested it might be smart to drop some gear, lighten the load. I agreed.
+After a few minutes, I could feel the temperature starting to rise. I drained what little was left of my water. The further ahead I walked, the harder it became in the heat. Lisa suggested it might be smart to drop some of my gear. I agreed.
 
 I found Tommy, or a  piece of him. His hand was poking out of one of the walls. It wasn’t that the rock had crushed him. It was like his hand had always been there, like he’d always been there. It was like the rock had formed around him. His finger twitched.
 
