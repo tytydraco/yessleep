@@ -20,11 +20,7 @@ So I set it up - it was a nice telescope, and I’d hoped so, as it had put me b
 
 I knew he had to be out there somewhere.  Always was.
 
-
-
 \-
-
-
 
 “Mike, grab milk if you go out later.”  I heard her pouring what was definitely expired curds down the drain.  “And butter, if you could.”
 
@@ -60,15 +56,9 @@ At this point, he was maybe three blocks away, standing in someone’s backyard.
 
 But I had a different plan for *this* day, while Meghan was busy.  I headed downstairs and got into my car.  I turned the ignition.
 
-
-
 I drove to the gun store.
 
-
-
 \-
-
-
 
 “What’s the range again?”
 
@@ -94,11 +84,7 @@ When I left, purchase in hand, I didn’t head home.  I knew full well this thi
 
 I practiced with the scope.  Then I looked around; I ought to be able to spot him with bare eyes in this open place.  And sure enough, there he was, just a few hills over.  Watching.
 
-
-
 *Time to see if you bleed.*
-
-
 
 But first, I pulled out my phone and streamed a video to my Facebook of it, just to make sure I had evidence that I wasn’t insane… and to test a theory.  I’d made videos of it before.  I’d even posted a few of them.  And I’d noticed a pattern: immediately after those posts, it started taking steps much more frequently.  I’d run a few trials, and I’d promptly taken the videos down just to be safe.
 
@@ -138,15 +124,9 @@ That was somehow more terrifying than anything I’d seen yet.  What did it mea
 
 Whatever.
 
-
-
 I pulled the trigger.
 
-
-
 \-
-
-
 
 “911, what’s your emergency?”
 
@@ -184,11 +164,7 @@ I pulled the trigger.
 
 *Click*.
 
-
-
 \-
-
-
 
 Hours passed.  I spent them staring from that telescope in my apartment, waiting to see if it would reappear.  So far, so good - it was a clean shot, shattering its face almost beyond recognition.  I actually had approached it, and it hadn’t disappeared!  Whatever that thing was, it was nightmarish seeing it up close.  I shuddered and tried not to think about it, but I couldn’t purge it.
 
@@ -196,19 +172,11 @@ Half of its head blown off, but it had found that horrible smile again.  Someho
 
 My phone rang - unknown number.  I answered.
 
-
-
 Heavy breathing.
-
-
 
 “Hello?” I asked.
 
-
-
 “Hellooooooooooooooooooooooo-”  It croaked, and dragged, intense, nauseating.  My head ached.
-
-
 
 I hung up immediately.  *The hell was that?*
 
@@ -238,11 +206,7 @@ As soon as he hung up, I went straight to that telescope.
 
 *Please be gone.  Please be gone.*
 
-
-
 \-
-
-
 
 “Hey hon, did you manage to go to the store?”  The front door closed with a slam.
 
@@ -302,11 +266,7 @@ I looked back out over the crippling darkness of the streets below.
 
 “Alright.  That’s fair.”
 
-
-
 \-
-
-
 
 She drove.  I kept my binoculars out, just on the off chance I spotted something.
 
@@ -314,11 +274,9 @@ She drove.  I kept my binoculars out, just on the off chance I spotted somethin
 
 “It’s not a psychotic episode.  I swear.  That was just work stress, this is different.”
 
-“Okay, but you’re really worrying me.  I believe you, but you must have some idea who this person is and what they want from you?  Like, are we in danger?  Why did you feel the need to buy a gun?”  
+“Okay, but you’re really worrying me.  I believe you, but you must have some idea who this person is and what they want from you?  Like, are we in danger?  Why did you feel the need to buy a gun?”
 
-
-Something gray lurked just off the road.  We passed it at nearly sixty.  
-
+Something gray lurked just off the road.  We passed it at nearly sixty.
 
 “*Shh*… hold on, I think I see something.  One moment.”  I rolled down the car window.  “Slow down and pull over.  I need to make sure.”
 
@@ -338,19 +296,11 @@ But she refused.  “We’re not going anywhere until we talk.”
 
 *Not this again…*
 
-
-
 And then, there it was.  Standing right across the street, barely visible in a field of alfalfa, practically within spitting distance.  Just a silhouette in the quiet black, but I knew it was *him*.
-
-
 
 I knew.
 
-
-
 It took a single step.
-
-
 
 “Oh *shit*, he’s here.  Drive drive drive!”
 
@@ -362,13 +312,7 @@ Meghan complied, but said nothing after that, aside from casting me the occasion
 
 *How did it take a step?*  I didn’t have any videos up.  *What even was it?  Why did it react to social media upboops?*  And that phone call I had gotten…
 
-  
-
-
 *Hellooooooooooooooooooooooo-*
-
-  
-
 
 Oh god, fuck this.  Fuck this so hard.  There had to be a pattern to it.  Something.  *Anything*.
 
@@ -382,11 +326,7 @@ Her expression changed, calmer now.  “Okay.  I mean.”  She let it go.  �
 
 So I did.
 
-
-
 \-
-
-
 
 “This is officer \[REDACTED\].”
 
@@ -422,31 +362,19 @@ I hung up.
 
 "I know!"
 
-She stopped the car, then turned it around.  “Trust but verify.  Let’s go check right now.”  
-
+She stopped the car, then turned it around.  “Trust but verify.  Let’s go check right now.”
 
 And that was when she saw it.
 
-
-
 \-
 
-
-
 I had never heard her scream like that before.  Hands over her mouth, she gasped and choked as that… that creature… that *thing…* stood mere feet from us, blocking the road.  In the headlights, I could see it clear as day, half its head still blown out from that .308 round.  But that terrible smile remained.
-
-  
-
 
 “*Helloooooooooooooooooooooooooooooooooooooo-*”
 
 Oh, that groan.
 
-  
 "-oooooooooooo o o o o o o o. o. o.  o.   o.     o"
-
-  
-
 
 “Run it over!”  I shrieked.  “Meg, run it over!”
 
@@ -458,16 +386,11 @@ And I could see in her eyes, in the creases of her face, in her unblinking expre
 
 She wasn't moving.  Meg wasn't moving.  She just stared at that monster, lip trembling, and it stared back.
 
-  
 "Hellooooooooooooooooo o o o  o. o.  o.   o.    o."
 
-It grined so wide.  I could see two tiny little eyes, almost lost in those huge black sockets.
-
-
+It grinned so wide.  I could see two tiny little eyes, almost lost in those huge black sockets.
 
 "Meghan, fucking *do something!*"
-
-
 
 So she did.  Foot to the gas, pedal to the metal.  I was proud of her, proud as possible as I nearly pissed myself.  *It’s just going to disappear again.*
 
@@ -511,15 +434,9 @@ As I loaded the gun, I wondered: *I have no videos up.  How is it moving?*  I 
 
 I aimed through the floor of the car, at the spot where the sound was loudest.
 
-
-
 “Love, cover your ears.”
 
-
-
 \-
-
-
 
 *I built a house made of flesh.*
 
@@ -532,8 +449,6 @@ I was wrong.
 But I was fortunate, at least.  Meghan always stood by my side, even after the accident, and my subsequent breakdown, and the realization that I had spent half my life and acquired so much debt pursuing a career I was unfit for.  I’d always been squeamish.  If my father hadn’t been a successful surgeon himself, always pushing me in that direction, I probably wouldn’t have.  And-
 
 “Mike?”
-
-
 
 I snapped out of my fugue.
 
@@ -565,33 +480,18 @@ My email had been compromised.  I should have set up a backup email.  I still 
 
 “Mike?”
 
-
-
 “I think…”
 
 “Please talk to me.”  She was in tears.  “Mike please.  Are you ok?  Are we ok?”
-
-
 
 I didn’t know what to say.
 
 So I spoke the truth:
 
-
-
 “I think we’re fucked.”
-
-
 
 And from the still open trunk behind me, I heard a dry, terrifying, otherworldly croak:
 
-  
-
-
 “*Helloooooooooooooooooooooo o o  o. o.   o.    o.*”
 
-
-
-  
 [ADSB](https://www.reddit.com/r/adarksobright/)
-
