@@ -26,15 +26,15 @@ It started just like any other job. “How far did the old records say it went d
 
 The first 150m went without a hitch. The ground sloped gently downwards, we marked the passages, collected rock samples and  drew the map. The last 50m was where we should have turned around and left. I wish we had.
 
-“Robert, do you see this?” Amanda shone her headlight across the walls. The veins of the ore ran parallel into the darkness. I should probably explain - mineral veins, including copper, normally form within the cracks and fractures of rock. 
+“Robert, do you see this?” Amanda shone her headlight across the walls. The veins of the ore ran parallel into the darkness. I should probably explain - mineral veins, including copper, normally form within the cracks and fractures of rock.
 
 They can form in sets of parallel fractures, but it normally comes with variations and imperfections. Simply put, they follow the stress patterns in rocks, which are rarely uniform. 
 
-“Woah, this is an insane amount of deposit. It goes all the way down” Tommy whistled. “That 10% is looking pretty great.” 
+“Woah, this is an insane amount of deposit. It goes all the way down” Tommy whistled. “That 10% is looking pretty great.”
 
 “But why haven’t they mined it?” Amanda carried on ahead. Lisa marked another arrow towards the exit as we turned right. 
 
-“They probably wanted to follow the veins to the mother lode, maybe they did.” I shone the flashlight which began to flicker down the shaft. 
+“They probably wanted to follow the veins to the mother lode, maybe they did.” I shone the flashlight which began to flicker down the shaft.
 
 “Time to rope up and follow the ore.”
 
@@ -114,10 +114,14 @@ I woke up outside the mine, and I’m not proud to say, in a puddle of my own pi
 
 I grabbed Lisa and drove us back to our motel as fast as I could. I’ve tried calling for help, but the reception isn’t great here. There’s no one at the front desk, and I have a feeling I might not survive the night. 
 
-I’ve spent the last 30 minutes typing up what I remember. I’ve been thinking about why they never removed any ore. Over 4 decades, and not a single ore mined. And I have a theory...
+I’ve spent the last 30 minutes typing up what I remember and I’ve been thinking about why they never removed any ore.
 
-Do you want to know why?
+Over 4 decades, not a single ore mined or even recorded. And I have a theory.
 
-They were never mining in the first place, they were feeding it. But there’s something else that’s bugging me...
+They were never mining in the first place, they were feeding something.
 
-I’ve looked over the prep we did for this job, and *there was never anyone named Lisa on the team…*
+And after recalling the events of today, I've checked and rechecked the prep we did for this job.
+
+Each time, I've arrived at the same conclusion.
+
+*There was never anyone named Lisa on the team…*
