@@ -176,7 +176,7 @@ He recognized me, even though we had never been friends back at school. He knew 
 
 "He gave my full name, my address, the date I moved in, my mom's name, my dad's, my sister's… He knew my phone number, my dog's name, my email password. Everything. He knew everything, and as he was talking to me, his voice was so… I don't know how to describe it. As if he had stopped being a child, as if he had suddenly changed."
 
-I watched him, all tense. But Dorr was not a man; my worst nightmares had come true. He was something that was only pretending to be him; his parents too. They weren't human.
+I watched him, all tense. But Dorr was not a human; my worst nightmares had come true. He was something that was only pretending to be him; his parents too. They weren't human beings.
 
 "And one more thing…" he added. "When he finished listing it all off, he told me that 'if I ever lay a hand on him, he would change into the most terrifying thing I would ever see.' As he said it, please believe me I'm telling the truth, his eyes…" — here he started to gasp, completely overcome with panic. — "His eyes…" — he continued with difficulty. — "They pierced right through me."
 
