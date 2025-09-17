@@ -68,7 +68,7 @@ The doors blew inwards. We rushed in.
 
 Clear.
 
-I flank left, Williamson right. Both rooms are clear.
+I go left, Williamson right. Both rooms are clear.
 
 “Back is clear. No guards here” Martinez came in through the ear piece.
 
@@ -86,7 +86,7 @@ Waited, opened, aimed. 
 
 Clear.
 
-Nothing but darkness., even the rats were hiding. 
+Nothing but darkness, even the rats were hiding. 
 
 We descended down the stairs. The tunnel below had been carved recently - tool marks still fresh on the earth, pickaxes and shovels abandoned against the walls.
 
@@ -98,7 +98,9 @@ We inched ahead slowly as the ground tilted downwards. Water seeped through the 
 
 “Hold, switch off your night-vision ” Martinez pointed two fingers ahead. “Got a visual on targets, two o’clock, 20 metres”
 
-Through the green wash of my night vision, I saw it - a bright white bloom of light.“Fucking amateurs” Chen whispered.
+Through the green wash of my night vision, I saw it - a bright white bloom of light.
+
+“Fucking amateurs” Chen whispered.
 
 My eyes slowly adjusted back to the darkness as we made our way forward. “Permission to take out targets, oh great warrior” Martinez took aim.
 
@@ -336,11 +338,13 @@ I don't remember when Lisa started living here. She was here when I got back, th
 
 They say the amnesia is part of the trauma.
 
-There's even one of my old squad from Kandahar. She's in the background, out of focus.
+There's even one of my old squad from Kandahar. She's in the background, out of focus. I never served with a woman in Kandahar
 
-She says I've been sleepwalking. Every morning she washes the dirt from under my nails, tends to the scratches. She hums while she works. That same tune the children sang, but she stops when I stare too long.
+She says I've been sleepwalking. Every morning she washes the dirt from under my nails, tends to the scratches.
 
-And sometimes, when I come to, I can see them. Through the corner of my eye, in my shadow.
+She hums while she works. The same tune the children sang, but she stops when I stare too long.
+
+And sometimes, I can see them. Through the corner of my eye, in my shadow.
 
 Thornberry, Chen, Martinez, Williamson.
 
