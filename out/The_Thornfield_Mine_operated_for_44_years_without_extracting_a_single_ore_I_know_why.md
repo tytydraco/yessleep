@@ -128,4 +128,4 @@ And after recalling the events of today, I've checked and rechecked the prep we 
 
 Each time, I've arrived at the same conclusion.
 
-*There was never anyone named Lisa on the team…*
+*There was never anyone named Lisa on the* [team…](https://www.reddit.com/user/sovereignweaver/comments/1njo347/the_duat_corporation_files/)

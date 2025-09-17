@@ -446,3 +446,8 @@ If anyone has an experience in negotiating with lunatics, let me know.
 Till then, i hope to talk to all of you again. 
 
 Punch.
+
+
+Looks like we survived another week
+
+https://www.reddit.com/r/nosleep/s/Q2VzwEmZOx
