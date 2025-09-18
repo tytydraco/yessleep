@@ -168,3 +168,5 @@ I’ll let that be the last lesson, before signing off and leaving you with this
  If you have any other questions, leave them here, I guess. I’m sure Sam or myself with get to them at some point. 
 
 Above all, stay safe, try not to give up. We don’t need more of them around here. 
+
+EDIT - Sam just informed me that he’ll be posting his follow up in minute. I’ll link to it here once he’s actually got it up. 
