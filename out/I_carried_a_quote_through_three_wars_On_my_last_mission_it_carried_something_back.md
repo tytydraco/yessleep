@@ -34,7 +34,7 @@ Martinez took a sip from his canteen. “Some local fuck and his cronies who thi
 
 “Six months? That’s a fast come up” Williamson spat his tobacco into his empty canteen.
 
-“They've been hitting Duat's logging crews for protection money, so they want him out of the picture.” I logged in and pulled up the aerial view on the tablet. 
+“They've been hitting Duat's mining crews for protection money, so they want him out of the picture.” I logged in and pulled up the aerial view on the tablet. 
 
 “Weapons free once we breach. No collateral if possible, but priority is completion. If we get split up, the extraction point is 3 clicks to the east. If you’re not there by 4am, you’re getting left behind.” I pocketed the tablet and turned on the night vision. 
 
