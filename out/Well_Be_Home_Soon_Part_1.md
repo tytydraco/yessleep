@@ -26,7 +26,7 @@ He winked. “I’ll tell you, one day, Cara, but right now, I think your brothe
 
 Jodi had loaded himself with as many duffle bags and weekend supplies as he could carry and then grabbed a few more. He was trembling, but managed to carry everything into the cabin. We were planning to stay for a week, to hike the surrounding forest, tube in the river, and get away from the world. It was Jodi and my last week of summer vacation before returning to school. He would be starting ninth grade and I would be going into seventh.
 
-The cabin was huge and old and way, way out, as my dad would say. There were no neighbors anywhere that we could see and, while there was a dirt utility road for access, the place was completely surrounded by dense, Western Maryland woods. It had no internet or cell reception, not even electricity. The only way to contact the outside world was a satellite phone that mom bought the day before the trip.
+The cabin was huge and old and way, way out, as my dad would say. There were no neighbors anywhere that we could see and, while there was a dirt utility road for access, the place was completely surrounded by dense, Western Maryland woods. It had no internet or cell reception The only way to contact the outside world was a satellite phone that mom bought the day before the trip.
 
 I could see hills all around us and the blue ripple of mountains lifting up the horizon. The weather was hot but cooler under the shade of the trees. A breeze carried over forest sounds; chirps and crickets and the occasional back-and-forth of birds singing to each other. I helped Uncle Roy find a few more nightcrawlers for his jar and couldn’t remember the last time it felt so good just being outside.
 

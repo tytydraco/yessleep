@@ -48,7 +48,7 @@ For both of us it turned out to be a pleasant escape. For me, from the endless f
 
 We spent whole classes daydreaming about the voice, and every break trading theories. The truth is, over time we started to believe it could actually be God.
 
-That voice just had this pull and calm that you can’t really explain to anyone who hasn’t heard it. I could listen to it for fours.
+That voice just had this pull and calm that you can’t really explain to anyone who hasn’t heard it. I could listen to it for hours.
 
 But all that was before it turned... let’s say, *aggressive*.
 
@@ -58,17 +58,16 @@ One day Tommy showed up at school with this serious look. He sat through class q
 
 At break he told me he’d left the device at home and would give it to me the next day. I asked why he seemed so weird.
 
-“He said my name,” he expaid, staring at nothing like he was in a trance. “The voice said my name and said I was special. That I was a blessing against the unjust.”
+“He said my name,” he explained, staring at nothing like he was in a trance. “The voice said my name and said I was special. That I was a blessing against the unjust.”
 
-Tommy was still a few lessons ahead of me in what the voice taught, but it had already started talking to me about what it called the 'unjust'. In my last session, it said: 
+Tommy was still a few lessons ahead of me in what the voice taught, but it had already started talking to me about what it called the 'unjust'. In my last session, it said:
 
-*To the unjust there remains only the blessing of the light.* 
-
+*To the unjust there remains only the blessing of the light.*  
 *The good must not merely walk away from them but face them.*
 
 It sounded abstract, and I still had no idea what it meant.
 
-“We were chosen,” Tommy finally said, grabbing my shoulders. "He's giving us a path to him." 
+“We were chosen,” Tommy finally said, grabbing my shoulders. "He's giving us a path to him."
 
 He didn’t come to school the next day, or for the rest of that week. I called, texted, nothing. I wondered how many lessons he had gotten through by then.
 
@@ -76,11 +75,12 @@ I didn’t hear from him until the following Monday morning. I was half asleep f
 
 Inside it was the device and a scrap of paper with a handwritten note.
 
-*"hey mark*   
-*please don't come to school today*   
-*trust me please and remember we were chosen. tommy"*
+*"hey mark*  
+*please don't come to school today*  
+*trust me please and remember we were chosen*  
+*tommy"*
 
-I didn’t get it, and tried calling Tommy again with no answer. Still, I felt I could not ignore his warning. 
+I didn’t get it, and tried calling Tommy again with no answer. Still, I felt I could not ignore his warning.
 
 I tucked the thing in my pocket and walked to a local park so my parents wouldn’t know I was skipping class, not that they would care much.
 
@@ -88,28 +88,26 @@ I tucked the thing in my pocket and walked to a local park so my parents wouldn�
 
 It's been two months since the horrible things Tommy did that day.
 
-That morning he came to school very early, while the teachers were drinking coffee and preparing for classes. 
+That morning he came to school very early, while the teachers were drinking coffee and preparing for classes.
 
 Armed with his dad’s handgun, he opened fire, killing four of them. He emptied an entire magazine into Ms. Robinson.
 
-Then Tommy ended his own life. 
+Then Tommy ended his own life.
 
 The cops, the news, and the whole town still haven't figured out why. People guessed mental health, bullying, politics, all that stuff. The truth is something I keep to myself: I know it was the voice.
 
 I haven't shown anyone his note.
 
-And I still have it with me. The device. 
+And I still have it with me. The device.
 
-Although I didn’t have the courage to use it for a few weeks, I actually missed the peace it gave me. I only tried it again last night. 
+Although I didn’t have the courage to use it for a few weeks, I actually missed the peace it gave me. I only tried it again last night.
 
 But the voice I heard from it wasn't the one I was used to. It was another one. *Tommy's voice*.
 
 What he said must have lasted a little over a minute, but I'm sure it was him, because he called my name.
 
-*Mark, we were chosen.*
-
-*The unjust were brought to the light by my hand.*
-
+*Mark, we were chosen.*  
+*The unjust were brought to the light by my hand.*  
 *And you must come meet me too.*
 
 Before he finished I ripped the device from my ear and threw it across the room, decided I was hallucinating.
@@ -118,18 +116,13 @@ After a few seconds, I regretted it and went to get it. Could it really be my fr
 
 I slowly put the device on again, and soon the voice returned. Not Tommy's. The other one.
 
-And his last "lesson" still haunts me, because I know what it wants from me, and I'm afraid that if I keep listening to it, I'll believe him. 
+And the last "lesson" still haunts me, because I know what it wants from me, and I'm afraid that if I keep listening to it, I'll believe him.
 
 \*\*\*
 
-*You are a blessed being, Mark.*
-
-*Born and raised to be light.*
-
-*Your father and mother fell to the path of the unjust.*
-
-*And it's your duty to do the right thing for them, just like your brother Thomas did.*
-
-*You are special.*
-
-*Bring them to the light.*
+*You are a blessed being, Mark.*  
+*Born and raised to be light.*  
+*Your father and mother fell to the path of the unjust.*  
+*And it's your duty to do the right thing for them, just like your brother Thomas did.*  
+*You are special.*  
+[*Bring them to the light*](https://www.reddit.com/u/Accomplished_Low7889/s/Uw4ETAaXQ7)*.*
