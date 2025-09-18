@@ -170,3 +170,4 @@ I’ll let that be the last lesson, before signing off and leaving you with this
 Above all, stay safe, try not to give up. We don’t need more of them around here. 
 
 EDIT - Sam just informed me that he’ll be posting his follow up in minute. I’ll link to it here once he’s actually got it up. 
+Here it is: [I Tried Investigating the Town of McDougal Before it Vanished. Now I’m Trapped Here](https://www.reddit.com/r/nosleep/s/8uxbuXu44M)
