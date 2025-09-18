@@ -1,0 +1,32 @@
+Forgive me for any spelling mistakes. 
+
+ My best friend stood over me, wielding a machete. I knew what he was going to do, we had come into this alleyway to smoke a joint without our neighbors noticing and telling our parents. But instead of Jordan pulling out a joint he pulled out a machete. He stood over me, with his machete in hand, uprose his arms and down went the machete, right in my stomach. “owwww” I screamed several times desperate until my voice went quiet. Jordan stomped on my neck as I screamed, probably attributing to me losing my voice. “Shut up” Jordan said in a loud but shaky voice.
+
+“I shouldn’t have trusted Jordan" I thought in my last moments, I thought about how he would force me to watch gore knowing I had a weak stomach. Or how he’d be glued to his screen researching killers, specifically serial killers. And how he’d confided in me that when he was younger, maybe 13 or so, he’d kill squirrels and cats with his dads machete. 
+
+I felt a sharp pain in my chest, and suddenly I  was back to being stabbed with a machete. I realized I had to fight if I wanted to live. I kicked Jordan’s knee and he screamed in pain but the adrenaline had already been pumping through his veins so he recovered quickly. I kicked again harder with both legs this time, adrenaline had kicked in. Jordan fell down after my kicks but got up immediately. He was furious and uprose his arm with the machete. He hesitated, looking at my face, I was trying to scream for help but nothing came out. Suddenly  down went his arm he stabbed the machete into me. Right in my neck. I blacked out. 
+
+I woke up to the sound of the song toxic by Britney Spears playing at a low volume. I was in the backseat of my moms Honda, my mom looked back at me “oh you're up” she said in an excited tone, “we're almost home, only an hour to go” she said. “Oh okay” I said in a tired voice. I looked out the window, it was dark but the sun was just peaking over the horizon. “What time is it” I asked. “It’s 8:30 in the evening” she said. “Ok, um I’m still tired so I’m probably gonna go back to sleep.” I slept the rest of the ride home. When we got back to my house I went inside and had a cup of honey vanilla chamomile tea. “Our trip to Colorado was really fun but I’m glad to be back in New York” I said to my mom. “Me too” she replied. “I’m going to bed now, goodnight” I said in a tired tone. “Gooodnight” she replied. 
+
+The next day I did my usual. Wake up at 11am, throw on a pair of jeans two sizes too big for me and a tee shirt, and have a bowl of cereal, you know the normal things 15 year olds do on a summer morning. “I'm gonna hang out with Jordan today mom.” “Okay, that's fine” she responded. I texted Jordan “yo wanna hang.” “Yeah sure, when?” He sent back. “Is 1 a good time?” “Yeah.” I went over to the living room and slumped over on the couch and turned on a rerun of a Yankees game. I watched that for an hour and then realized it was time to go hang out with Jordan. Jordan lived close so I just hopped on my bike and cruised across the street to his house.
+
+“Yo, what’s up man” Jordan yelled from across the street. I rolled up to Jordan and dapped him up. “What’s up bro, what do you want to do today?” I asked. “There’s this abandoned warehouse like a mile away in the woods, we should check it out” he said excitedly. “Oh shit man definitely.” I said as a mischievous grin grew on my face. “Alright let’s go then” Jordan said while he stepped over his shiny purple bike. As we rode we chatted about what we were gonna do this week and what I did in Colorado. We spent a couple hours at the warehouse then I came over to Jordan’s house and  we chilled and played Call of duty till 1am in the morning when I finally went home.
+
+The next few days we did pretty much the same thing. We rode around town, hung out at each other's house’s, and caused mischief. 
+
+On Friday,seven days after I got home from Colorado. I woke up late, threw on some joggers and a tank top, and ate some cereal, like usual. I called up Jordan and decided we’d hang out at three today. In the meantime I decided to play my guitar and listen to music in my room. when the my alarm went off I got up and turned my music off and headed over to Jordan’s house on my bike.
+
+“Hey man” I called out to Jordan who was waiting in his yard. “What’s up” he yelled. I rode across the street and up to the curb. “What do you want ti do today” I asked. “I got some good weed in my bag you want to go in the alley and smoke?” He said. “Oh hell yeah man” I said excitedly. We walked over into the alleyway and set our bikes down. I sat down on an old stack of palates. When suddenly a wave of Deja vu hit me. I remembered everything down to a tee. I didn’t quite believe myself until I saw pull a machete out of his backpack. “What the hell man!” I yelled. “Shut up” he yelled back.
+Lunging forward putting the machete up to my neck.”shut up” he said again in an intimidating tone. I said nothing. 
+
+He stepped back and ordered me to get on the ground. I knew what he was gonna do. I remembered this moment. So I didn’t comply. I turned around and sprinted out of the alleyway. I just had to get a block away so I could run into a restaurant which I knew had cameras. But that would be hard because Jordan does track. He's a runner. There’s no way me, a stoner bum could outrun a track star. Luckily I had adrenaline rushing through my veins so I was at least two times faster, but still not fast enough. “I have to hide” I whispered to myself as I ran. I ducked into a different alleyway praying Jordan didn’t see me.
+
+I ran out of the other side of the alleyway. And over into a restaurant. 
+
+“Help me” I yelled. “My best friend just tried to kill me! Call 911” luckily they took me seriously and called 911.
+
+The cops showed up and questioned me. “Where were you when he tried to kill you?” “umm in the alleyway across the street” I pointed over in the direction of the alleyway we were in. They prattled on for hours until they finally called my mom and she showed up to the restaurant. She took me home and that night I couldn’t sleep.
+
+There’s an investigation going on and Jordan’s in custody because in the alleyway we were in there was a camera we didn’t know about. 
+
+That all happened yesterday and I’m writing this to get it off my chest. I woke up today in my house and I’m hoping that I’m out of the time loop. As long of now I don’t know how many times that week looped but I’m still trying to figure that out. 
