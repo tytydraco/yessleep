@@ -40,6 +40,6 @@ I heard a sound, like someone clicking their tongue on the roof of their mouth, 
 
 In an instant, I remembered what the noise reminded me of: Suits with long protruding ventilation filters, people going into situations that they know they won’t come back from, as the suits neared the epicenter of the atrocity the frantic clicking became louder and louder, replacing any other emotions beside fear. A chill ran down my spine and a cold realization filled my head with clarity.
 
-It was a Geiger Counter.
+It sounded like a Geiger Counter.
 
-Someone, please help me, I think it's getting close. 
+Someone, please help me, I think it's getting close.
