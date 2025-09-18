@@ -1,3 +1,5 @@
+Took 3 days to write this. I challenge you guys to read the whole thing. I hope you enjoy this somewhat short horror story. 
+
 The obnoxious sound of Jack’s alarm clock jolted him awake. Slow and sluggish in an attempt to roll himself out of bed, he noticed from his bedroom window that it was raining. A sense of subtle joy overtook him, for he loved the rain.
 
 He couldn’t come to a conclusion for the love of rain, but he felt it on days like this. Jack made his way downstairs to grab a cup of coffee and see his parents, who had left for their week’s vacation to Sicily, Italy. “Oh, yeah,” he thought to himself, forgetting they left around 5 a.m. for their 8 a.m. flight this morning. Jack didn’t work and had no obligations in the home for the most part. 
