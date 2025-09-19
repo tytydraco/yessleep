@@ -88,7 +88,7 @@ It was all amazing, well, until I reached for the mysterious herb bought at a sm
 
 “Yes, I am sure.” I answered, trying to assure her, even though, with my ADHD brain, I had no way to remember how the herb looked already almost 3 months ago… “Besides, the herb is dried, how could it catch mold?”. 
 
-“Okay, okay, try it if you wish, but it will not go near my month!” was her final exclamation. 
+“Okay, okay, try it if you wish, but it will not go near my mouth!” was her final exclamation. 
 
 \*\*\*
 
@@ -124,5 +124,5 @@ I was awakened from my haze by loud knocking on my door. Even though I did not w
 
 They rushed right past me towards the mother scoby in the kitchen. And just as I did, only seconds before, they also started feeding on the slimy substance like wild animals. My insatiable hunger gave me no choice, but to join them. To be honest, I was in no way battling it. I was ecstatically feeding on the cold substance that brought the warmest feeling to my core. I think, for a moment, I even forgot about Alex. But soon she reminded herself to me in the most horrifying way possible. 
 
-As I was tearing more and more from the delicious substance, I finally stumbled upon smoking tough, something that should not be there. As I got a portion of my senses back, I realised it was a hand, scrubbed clean of meat. Only the shiny white of a bone stayed. Well, I wished that was the case. On one of the fingers, there was a silver promise ring, I gave to Alex.
+As I was tearing more and more from the delicious substance, I finally stumbled upon something tough, something that should not be there. As I got a portion of my senses back, I realised it was a hand, scrubbed clean of meat. Only the shiny white of a bone stayed. Well, I wished that was the case. On one of the fingers, there was a silver promise ring I gave to Alex.
 
