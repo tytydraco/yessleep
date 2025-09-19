@@ -4,7 +4,7 @@ Allow me to explain myself:
 
 I am an archaeologist of some renown. I graduated from Oxford more than fifteen years ago, and in my career I have been fortunate to work on some of the oldest sites ever discovered in human history. I was part of the expedition in Turkey that uncovered an underground city millennia older than the pyramids.
 
-I was there in the Amazon when we uncovered ruins that prove Mesopotamian civilisation to stretch further back into the past than we thought. I helped uncover a cache of fossilised hominid bone fragments in the savannahs of Africa that changed our understanding of human evolution.
+I was there in the Amazon when we uncovered ruins that prove South American civilisation to stretch further back into the past than we thought. I helped uncover a cache of fossilised hominid bone fragments in the savannahs of Africa that changed our understanding of human evolution.
 
 So believe me when I say, the findings of my current expedition have the potential to rewrite the very history of intelligent life on earth.
 
