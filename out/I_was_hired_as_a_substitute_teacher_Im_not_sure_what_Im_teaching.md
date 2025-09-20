@@ -130,6 +130,8 @@ Like nothing had ever happened.
 
 Just then, then bell rang. I looked at the clock. Somehow it was 2:45.  Dismissal time.  
 
+Two and a half hours had just… disappeared. 
+
 I watched as these children, who had just moments ago been … something else … as they stood up and ran out the door.  
 
 I felt lucky to be alive. Grabbed the envelope. Ran up the stairs. 
