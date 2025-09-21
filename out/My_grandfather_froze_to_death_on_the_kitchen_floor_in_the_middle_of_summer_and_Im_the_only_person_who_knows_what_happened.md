@@ -162,8 +162,6 @@ Grandpa's voice broke completely.
 
 "He never came back. Found out later his mother had to take him to the emergency room that night because he wouldn't stop shaking. The doctor said it was a panic attack, but I knew better. Mary had broken something inside him that never got fixed."
 
-The frost had covered every surface in the garage now, turning our breath into clouds and making the metal tools ring like bells when the expanding ice shifted them.
-
 "That was the kind of person Mary was," Grandpa whispered. "Someone who could destroy an innocent man for entertainment and sleep soundly that night."
 
 I asked him why he was telling me this, what Mary had to do with the cold spots and whispers that followed us through the house.
