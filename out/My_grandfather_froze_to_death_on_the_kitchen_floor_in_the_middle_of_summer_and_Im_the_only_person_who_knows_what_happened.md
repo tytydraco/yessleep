@@ -142,7 +142,7 @@ His voice got quieter, more distant, like he was seeing something I couldn't.
 
 "Mary had a talent for finding people's weaknesses and pressing on them until they broke. New employees, part-timers who couldn't afford to quit, anyone she thought was beneath her. But what she did to Tommy was the day I knew she was something beyond cruel. Beyond human, maybe."
 
-"The Tuesday she destroyed Tommy was like watching a predator hunt. Tommy worked maintenance, had some kind of developmental delay that made him talk slowly and repeat himself sometimes. Sweet kid, maybe twenty-five, lived with his mother and needed that job more than anything. A customer complained about water on the floor near produce - standard stuff, happens every day."
+"The Tuesday she destroyed Tommy was like watching a predator hunt. Tommy worked maintenance, had some kind of mental problem that made him talk slowly and repeat himself sometimes. Sweet kid, maybe twenty-five, lived with his mother and needed that job more than anything. A customer complained about water on the floor near produce - standard stuff, happens every day."
 
 Grandpa's breath came out in visible puffs now, and frost began forming on the workbench where his hands rested.
 
