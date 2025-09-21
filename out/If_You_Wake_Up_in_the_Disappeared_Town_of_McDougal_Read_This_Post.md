@@ -63,7 +63,7 @@ Midnight. Sam was asleep, or at least he better have been. I’d given him my ro
 
 Anything beyond that was only vague shapes. The candlelight was just bright enough to reveal their presence, but did not extend deep enough into the darkness to expose their details. A large circular disc denoted the kitchen table, and a few rectangular blocks were the only indication I had of our refrigerator, cupboards, dishwasher, and sink. That is to say nothing of the small gap behind me, leading to a small hallway that, though I knew led to the bathroom, laundry room, and bedroom, appeared to be nothing more than a deep wall of blackness. The thick dark caused my chest to feel heavier as I observed it, and I felt my grip on the rifle tighten. 
 
-I did my best to keep my mind from wandering or succumbing to fear, instead keeping close attention to any noise I heard around the house, and outside. Every so often I would look at the watch given to me by mother before I left home, noting the time so I’d be ready for each event. 
+I did my best to keep my mind from wandering or succumbing to fear, instead keeping close attention to any noise I heard around the house, and outside. Every so often I would look at the watch given to me by my mother before I left home, noting the time so I’d be ready for each event. 
 
 12:52 AM was when things truly started. While we had mostly boarded up the window overlooking our front yard, there were still small slits between the boards of wood that we could use to peek out if necessary. Unfortunately, this also meant things from outside could look in once they got close enough.
 
@@ -89,7 +89,7 @@ Taking a deep breath, I sat up from the couch and made my way to the door, check
 
 If you must deal with a Repeater, try to learn exactly what their routine is, and mimic it to the best of your ability. Think of it as an acting exercise, try not to mess up, and be ready. 
 
-Carefully stepping by the front door, I checked by the nightstand beside for the flashlight I kept there. Sure enough, there was a bright red, chunky plastic flashlight I used specially for events like tonight. Steeling myself, I slung the rifle behind my shoulder, just out of sight, and took the small twisting metal on the door knob in my hand. After a soft twist, I heard the barely discernible clicking of metal as the door unlocked. 
+Carefully stepping by the front door, I checked by the nightstand beside it for the flashlight I kept there. Sure enough, there was a bright red, chunky plastic flashlight I used specially for events like tonight. Steeling myself, I slung the rifle behind my shoulder, just out of sight, and took the small twisting metal on the door knob in my hand. After a soft twist, I heard the barely discernible clicking of metal as the door unlocked. 
 
 “Stay calm. You know what to say, what to do.” I said aloud to myself. Swinging the door open, I gently stepped outside into the cool night air, chirping crickets and cicadas quickly filling my ears as I took in the near pitch blackness of the treeline underneath the starless, cloudy night sky. I counted the seconds as I gripped the strap on my rifle tightly. 
 
@@ -155,7 +155,7 @@ A second CRACK and BANG left my ears ringing, and my head felt like it was almos
 
 Even knowing what he was, I felt a twinge of guilt welling up in my stomach as a wave of exhaustion swept over me. This was twice now I had killed him, I realized. Thoughts of him somehow getting better and returning to himself flooded my mind for an instant before falling away, replaced by the sight of his lifeless body. 
 
-“I… I’m sorry…” Was all I could say as I lowered the rifle, my hearing slowly retuning to me as I took a step back. 
+“I… I’m sorry…” Was all I could say as I lowered the rifle, my hearing slowly retutning to me as I took a step back. 
 
 “Damien?! Damien what happened, are you alright?!” I heard the panicked voice of my friend shout. 
 
