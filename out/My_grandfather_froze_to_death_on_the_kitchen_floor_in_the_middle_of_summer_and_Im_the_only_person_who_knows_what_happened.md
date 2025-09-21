@@ -290,7 +290,7 @@ Near midnight, his voice changed. Became resigned.
 
 "I deserve this. But please, leave my family alone. They don't know what I did," he said with a tired, dejected voice.
 
-By one in the morning, the house felt like a walk-in freezer despite the roaring furnace. Ice covered every surface I could see, turning our home into a winter landscape. The whispers had stopped, replaced by something worse: the sound of someone breathing slowly in the darkness, each exhalation bringing more cold.
+By one in the morning, the house felt like a walk-in freezer.  Ice covered every surface I could see, turning our home into a winter landscape. The whispers had stopped, replaced by something worse: the sound of someone breathing slowly in the darkness, each exhalation bringing more cold.
 
 "Theo," he said, with all the warmth and affection he could muster, "Go to bed.  You can't help me, I'm ready. I'm tired, and this is nothing you, or anyone should ever have to see."
 
