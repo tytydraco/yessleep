@@ -1,52 +1,93 @@
-A few months ago i was taking the usual walk around the lake of my town, which takes around 2 hours and leads also through some really nice neighborhoods aswell. I was listening to my classical music, drifting away in my thoughts and i was starting to relax after a long day while passing a house where something was drawing my attention. 
+Most of my childhood memories are fuzzy, like old photos that got left out in the sun. But this one, this one’s sharp as a razor, lodged in me like a splinter that won’t budge. It was the summer of ’95 in a small Oklahoma town, the kind where the heat clung to your skin like damp cloth. Our house was a furnace, no air conditioning, just a rattling fan that pushed warm air around. At night, the cicadas screamed outside, and the greasy scent of hot asphalt seeped through open windows.
 
-In the yard of this house there was a big mirror leaning onto a tree with the sign "free to take" taped onto it's front.
+Ricky, my best friend, lived three blocks over. His mom, Karla, was the town’s open secret, jars of herbs lined her shelves, candles burned to stubs, tarot cards scattered like leaves. She called it witchcraft; others called it nonsense. I thought it was magnetic. She never hid it, leaning into the whispers with a sly smile.
 
-It was a really pretty mirror with the frame encased in black leather, in absolute flawless condition. I was looking at it and was asking myself why anybody would ever wanna get rid of that beautiful mirror and continued with my walk. 
+That afternoon, Ricky and I roamed town to escape our stifling houses. We ended up at a garage sale, a sad sprawl of cardboard boxes and warped VHS tapes. That’s where I saw it, the mirror. It was taller than me, frame all gray and beat-up. The glass was weird too, the edges looked like smoke had gotten stuck inside it.  I traced my fingers along the surface: no dust, no grit, just a faint chill that didn’t belong in July.
 
-But i could not get the mirror out of my head anymore. It would fit just perfectly into my apartment; the style, the shape and the size were just perfect and were calling for me that i should take it home!
+“Five bucks,” the old woman running the sale muttered, barely looking up.
 
-So, after around half an hour later i turned around, i was now even jogging back to this house, and thank goodness, the mirror was still there! I picked it up and dragged the surprisingly heavy thing back home, where i even had the perfect spot for it on hand: right in my living room across the couch between two white dressers topped out with smooth and elegant, dark-brown walnut wood. 
+I paid, thinking Karla might use it for scrying, her cloudy crystal ball was a dud, she’d admitted. Dragging it home, sweat soaked my shirt, the mirror heavier than it looked. I meant to take it to her, but I never did.
 
-I was really happy and could not believe my luck. I was searching exactly for something like that as decoration!
+That night, I propped it against a chair in my room, planning to haul it over tomorrow. The air smelled of dust and sweat as I sat on my bed, fanning myself with a dog-eared Sports Illustrated. I glanced at the mirror and froze.
 
-But after a while strange things were happening, now when i think of it afterwards... in the first few weeks i was always unconsciously looking at the mirror when i was passing it. Every single time. It was on the side of my living room, never directly in my path, but i always turned my head into it's direction and looked straight into the mirror when i was passing by.
+My hair wasn’t mine.
 
-Then, at some evenings, i was even sitting down in front of the mirror and just staring into it. 1, 2 or 3 minutes at first, which became often 5 or even 10 minutes or even more after a while. It was just such a pretty mirror and i could not stop looking into it, it had some draw to it that i could not explain and it let me drift off deeply into my thoughts and inner self.
+I’d always had pale blond hair, so light kids called it “baby blond.” In the glass, it was copper red, like rust, like dried blood. Not a trick of the lamp’s yellow glow. Not a sunburn tint. Red, vivid, wrong.
 
-But something was changing; inside of me, but also the energy/vibes of my apartment. It felt off, which I could not tell at first. 
+I stood, mattress springs creaking. My reflection stayed seated, staring. Heart pounding, I leaned closer. The air near the mirror was cold, like a draft from nowhere. My reflection smiled, but not like me. Too wide. Like it was hungry for something.
 
-One day my best friend was visiting me and he also had his dog with him. A beautiful, black and very friendly Labrador. She was very kind and wholesome and never started any trouble with any other dogs or humans; and she loved to cuddle, too! But at this day when she was entering my living room, she started to get afraid and tucked her tail away. 
+I stumbled back, knees hitting the bed. The reflection tilted its head, watching me like a coyote sizing up prey. My neck prickled, sweat turning icy. I grabbed a blanket and threw it over the mirror, heart hammering as I crawled under my sheets.
 
-When she passed the mirror, she suddenly started to growl at it. I never ever have heard her growling before, it really set my best friend and myself off. My best friend then asked where i got this mirror from, because he never saw it before and I told him that I found it for free on the street in another neighborhood. 
+That was the first night.
 
-He said he did not like it and it felt off to him, aswell as the whole story. Such things usually only happen in horror movies and i should never ever have touched the mirror, rather bringing it home into my apartment!
+The next morning, the blanket was folded neatly on the chair. The mirror stood uncovered, glass gleaming. I checked my hair in the bathroom mirror, still blond, thank God. But when I returned, the reflection’s hair was red again, and its eyes were darker, bruised like it hadn’t slept in years.
 
-And somehow he was right, i now also felt that something was off about this mirror and i got really cautious/afraid of it. I never looked at it again when passing it and i also never sat in front of it again, aswell.
+I told myself it was the heat, dehydration, anything. I dragged the mirror to the garage, wedging it behind old paint cans. By evening, it was back in my room, leaning against the chair.
 
-Suddenly a few days later i started to get nightmares. People, or rather "Entities" were talking to me, following me around in my dreams. Often they were people from my past, my deceased Grandma or people from school or even my Ma and Aunt. But they were never truly like the real person i know/knew. Often i also did not see them directly in my dreams and they were just talking to me from behind, but i knew they were there and were watching over me.
+I didn’t tell anyone. Not Mom, not Ricky. Who’d believe a kid saying his mirror was wrong?
 
-When this voice/person was my Grandma in my dreams, i was especially happy, because i missed her so much. She died in 2020 cause of cancer and it was a pretty agonizing way for her to go. In my dreams I could talk to her and she always asked how i was doing. To see her again or even to hold her in my arms again was a very emotional experience. But something was a bit off; her face was always a bit blurry and she often would not answer my questions or talk to me incomprehensible or in changing tones.
+The reflection grew bolder. Sometimes it was me, but sharper, cheekbones too pronounced, smile too wide. Other times, it showed more.
 
-After a while I realized that these were just dreams and one night, when i told my Grandma that this is just a dream and that she had died a few years ago and she was not real and just a memory anymore, things became uncomfortable.
+One night, I woke to silence, the cicadas gone quiet. The hallway clock ticked like a hammer. In the mirror, Ricky lay at my reflection’s feet, a rope tight around his neck, lips blue, eyes glassy. His body swayed, as if freshly cut down. My reflection sat there cross-legged, tapping its knee like it was waiting for me to notice. Then it smiled, like it was showing off a prize.
 
-She got really angry and screamed at me and the location, a previous apartment where i lived in my childhood with my Mum and my Grandma together, turned all of a sudden dark/cold and this dreamworld was cracking apart.
+“No,” I whispered, voice cracking. “No, no, no…”
 
-I was shaken by fear and suddenly somebody was calling my name louder and louder until i woke up in panic, drenched in sweat and shivering to the bone. I went up to go to the bathroom and at this night i felt very paranoid and like something was watching me. That was a really scary experience. 
+The reflection grinned wider, eyes glinting.
 
-It was awful, and now i was sure that i have indeed brought something else into my life when I was picking up that mirror and that i have to get rid of it ASAP! 
+Two days later, Karla found Ricky hanging from the clothesline pole in their backyard. The cops called it an accident. I knew better. The mirror had shown me.
 
-The next day I went to the mirror to pick it up when i was seeing everywhere black dust on the floor below of it. I was wiping my hand across the black leather frame and my whole hand was covered in this black dust, which had an awful smell of sulphur or burnt wood. When i picked it up a few weeks ago, this dust was definitely not there. No idea where this dust was coming from, so i went to the bathroom to get a wet towel to clean it up, before I threw the whole thing out.
+Looking back, I should’ve told someone, but who the hell would believe me?
 
-But when I was entering the bathroom, suddenly there was this loud bump followed by a shattering noise ... the mirror tipped over and fell onto the floor, shattering into a dozen or so large, long and shimmering shards.
+That morning, dirt caked my sneakers, the same red clay as Ricky’s yard. My palms ached, faint rope burns circling them. I scrubbed until my skin bled.
 
-That was it; i picked up the frame and threw it into a container at the back of my house. But when picking up the last shards, one of them lacerated the back of my thumb and turned it open into a 2 inch long, gaping cut. I put a towel around of it and threw the shards in the trash bins outside, afterwards I tended to the cut with disinfectant and had to call my doctor, who sent me to the hospital for stitching up the finger.
-What a mess. 
+I went to Karla, desperate. Her house smelled of sage and wax, her eyes swollen from crying.
 
-6 months are now past since i threw out the mirror and since i got the cut on my thumb. It took more than a month to heal and now i have a huge scar there as permanent memory for the rest of my life. Aswell as all the other horrible dreams/memories, aswell.
+“Did Ricky ever say anything about a mirror?” I asked.
 
-I really hope this mirror got shredded apart and nobody else had to deal with it anymore. The cute and friendly Dog of my best friend was also visiting me again and she was not afraid and did not growl at anything in my apartment anymore. And i also never had any nightmares of my family/friends or deceased Grandma anymore, thankfully. 
+She shook her head. Then her gaze lingered on me. “Chris… your hair. It looks darker.”
 
-Never pick up any random furniture that you find for free in the streets. Who knows the backstory of this item.
+I touched my scalp, heart dropping. In her bathroom mirror, my blond was intact, but at the roots, the color bled red. I laughed it off, muttered something about lighting, and fled.
 
-You could maybe bring something else into your home with it, too.
+The visions came faster. In the mirror I saw Karla, skin burned up, smoke rolling through the room. She wasn’t moving.  My uncle crushed beneath his own truck, blood pooling in the dirt.
+
+I’d wake with ash under my nails, the stink of smoke on my shirt. Or grease staining my hands, motor oil under my fingernails. A week later, Karla’s house burned. Days after that, my uncle’s truck rolled over him. Both times, the mirror showed me first.
+
+I tried smashing it. Took Dad’s hammer, swung until sparks flew. The hammerhead cracked. The mirror didn’t.
+
+I tied myself to the bed at night. In the mornings, the knots were undone, my clothes filthy with ash or dirt. A neighbor told police they’d seen me wandering near Ricky’s yard. I swore I hadn’t. My mother stirred soup one evening, giving me that look only moms have.
+
+“You’re not yourself lately, Chris.”
+
+Her voice was soft, but it made me want to scream. I stared at her hands, steady on the spoon. In the mirror that night, those same hands were slick with blood.
+
+I dug into the mirror’s past. The library’s microfilm turned up a clipping: a 1920s cult, members vanishing after “rituals with a cursed glass.” The photo showed my mirror; frame carved with symbols that seemed to shift if I stared too long.
+
+“Careful with old stories, kid,” the librarian said.
+
+Two days later, her obituary ran. Heart attack, they said. The mirror had shown me her first, clutching her chest while my reflection laughed.
+
+I stopped eating. Food rotted on my plate. I scratched my arms raw. My nose bled constantly, sheets stained, rusty brown. The hum of the mirror grew louder, like a tuning fork inside my skull.
+
+My hair was fully copper red now. My eyes, dark as coal. My skin, pale as bone. My reflection no longer smiled, it stared, patient, waiting.
+
+The night came when the whole world went still. No cicadas. No wind. Just the mirror humming.
+
+The glass showed Mom in the kitchen, nightgown soaked red, throat carved open like a second smile. My reflection stood behind her, knife dripping onto the tile.
+
+I locked my door, tied myself tight. But when I woke, I was in the kitchen, knife in hand, Mom’s body sprawled at my feet. Exactly as I’d seen.
+
+I don’t remember leaving my room.
+
+Sirens wailed. The neighbor had called about screams.
+
+Police burst in, guns drawn. “Drop it, Chris!”
+
+I dropped the knife, gagging, but when I looked in the cruiser’s window, it wasn’t me staring back. It was the red-haired thing, smiling, while my real face pounded on the glass from the other side.
+
+They called it a psychotic break.  Now that I really think about it, maybe I’m glad I didn’t tell anyone.
+
+They put me in here after that.  A place for people who “lose touch with reality”.   The halls reek of bleach, the walls too white. They’ve taken away all my reflective surfaces, but I still catch glimpses in a spoon or a windowpane. Always the red hair. Always the smile.
+
+Last week, I heard the mirror was sold at an evidence auction. Someone’s got it now, leaning against a chair in some new bedroom.
+
+Whoever bought that mirror… they’ll see me. And just maybe…they’ll be dumb enough to let me out.

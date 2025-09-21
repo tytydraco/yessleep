@@ -2,11 +2,11 @@ My grandfather froze to death on the kitchen floor in the middle of summer, and 
 
 My mom found him early on the morning of July 15th, stretched out between the refrigerator and the breakfast table like he'd been reaching for something. His skin was blue-white, ice crystals still clinging to his eyelashes when Mom screamed from the doorway. The thermometer on the kitchen wall read eighty two degrees.
 
-I'm Theo Vance. Seventeen, part-time sandwich artist at Subway, full-time disappointment to my parents' college fund expectations. Normal kid from normal Midwestern stock, the kind who knows the difference between a blizzard watch and a blizzard warning, who can drive in snow before I can parallel park. I play JV basketball badly and work the closing shift three nights a week, biking home past empty storefronts and gas stations that close at ten.
+I'm Theo. Seventeen, part-time sandwich artist at Subway, full-time disappointment to my parents' college fund expectations. Normal kid from normal Midwestern stock, the kind who knows the difference between a blizzard watch and a blizzard warning, who can drive in snow before I can parallel park. I play JV basketball badly and work the closing shift three nights a week, biking home past empty storefronts and gas stations that close at ten.
 
 Nothing about my life prepared me for finding my grandfather's body that morning, or for understanding what had happened.
 
-My Grandpa, Isaac Vance, had lived with us for four years, ever since Grandma died and Dad decided the old man shouldn't be rattling around their farmhouse alone. Grandpa was seventy-four, with arthritis in his hands and a habit of falling asleep in his recliner with the TV remote balanced on his chest. He'd worked twenty years managing the local IGA before retiring, knew everyone in town, remembered their kids' names and which checkout girls gave the best customer service. He was practical, steady, unremarkable in every way that mattered.
+My Grandpa, Isaac, had lived with us for four years, ever since Grandma died and Dad decided the old man shouldn't be rattling around their farmhouse alone. Grandpa was seventy-four, with arthritis in his hands and a habit of falling asleep in his recliner with the TV remote balanced on his chest. He'd worked twenty years managing the local IGA before retiring, knew everyone in town, remembered their kids' names and which checkout girls gave the best customer service. He was practical, steady, unremarkable in every way that mattered.
 
 He was also dead in our kitchen, ice cold in eighty-degree weather.
 
@@ -18,7 +18,7 @@ Dad asked the obvious question. "How does someone freeze to death when it's eigh
 
 Dr. Willits adjusted his glasses and delivered the answer that would satisfy the insurance company, the death certificate, and everyone except me. "Sometimes the body's regulatory system fails catastrophically. Medication interactions, undiagnosed conditions, stroke affecting the hypothalamus. The body can literally lose the ability to maintain core temperature."
 
-Mom mentioned the frost she'd seen around the body, but Dr. Phillips dismissed it as condensation from the air conditioning. I didn't correct him, even though our AC had been off for three days.
+Mom mentioned the frost she'd seen around the body, but Dr. Willits dismissed it as condensation from the air conditioning. I didn't correct him, even though our AC had been off for three days.
 
 The funeral was on Thursday. Half the town showed up, filing past the casket to pay respects to a man who'd bagged their groceries and remembered their faces for two decades. They spoke about his kindness, his reliability, how he'd given their teenagers first jobs and second chances.
 
@@ -27,8 +27,6 @@ None of them knew about the temperature of his skin when they found him, or the 
 I saw my grandfather's final expression, frozen on his face in the moment death took him. He wore no peaceful look like most people would imagine. His eyes were wide, staring at the ceiling, and his mouth was open like he'd been trying to say something important.
 
 He looked terrified.
-
-
 
 Strange things started happening two months ago.
 
@@ -134,7 +132,7 @@ I'd never heard him mention anyone named Mary before, but something in his voice
 
 He paused, his hands working against each other in his lap.
 
-"And then there was Mary Rosebrook."
+"And then there was Mary."
 
 The temperature in the garage dropped ten degrees when he said her name.
 
@@ -142,7 +140,7 @@ The temperature in the garage dropped ten degrees when he said her name.
 
 His voice got quieter, more distant, like he was seeing something I couldn't.
 
-"Mary had a talent for finding people's weaknesses and pressing on them until they broke. New employees, part-timers who couldn't afford to quit, anyone she thought was beneath her. But what she did to Tommy Henriksen was the day I knew she was something beyond cruel. Beyond human, maybe."
+"Mary had a talent for finding people's weaknesses and pressing on them until they broke. New employees, part-timers who couldn't afford to quit, anyone she thought was beneath her. But what she did to Tommy was the day I knew she was something beyond cruel. Beyond human, maybe."
 
 "The Tuesday she destroyed Tommy was like watching a predator hunt. Tommy worked maintenance, had some kind of developmental delay that made him talk slowly and repeat himself sometimes. Sweet kid, maybe twenty-five, lived with his mother and needed that job more than anything. A customer complained about water on the floor near produce - standard stuff, happens every day."
 
@@ -166,9 +164,9 @@ Grandpa's voice broke completely.
 
 The frost had covered every surface in the garage now, turning our breath into clouds and making the metal tools ring like bells when the expanding ice shifted them.
 
-"That was the kind of person Mary Rosebrook was," Grandpa whispered. "Someone who could destroy an innocent man for entertainment and sleep soundly that night."
+"That was the kind of person Mary was," Grandpa whispered. "Someone who could destroy an innocent man for entertainment and sleep soundly that night."
 
-I asked him why he was telling me this, what Mary Rosebrook had to do with the cold spots and whispers that followed us through the house.
+I asked him why he was telling me this, what Mary had to do with the cold spots and whispers that followed us through the house.
 
 His hands stopped moving. When he looked at me, his eyes were wet and desperate.
 
@@ -284,7 +282,7 @@ The temperature plummeted. My breath came out in thick clouds, and ice began for
 
 "No," Grandpa said, shaking his head. "Sorry isn't enough. I know that now."
 
-The conversation continued for hours, Grandpa responding to accusations I could only partially hear, accepting blame for a decision that had haunted him for twenty-seven years. Sometimes I caught fragments of her voice on the wind: "...left me to die..." "...so cold..." 
+The conversation continued for hours, Grandpa responding to accusations I could only partially hear, accepting blame for a decision that had haunted him for twenty-seven years. Sometimes I caught fragments of her voice on the wind: "...left me to die..." "...so cold..."
 
 Near midnight, his voice changed. Became resigned.
 
@@ -298,7 +296,7 @@ By one in the morning, the house felt like a walk-in freezer despite the roaring
 
 I went to bed knowing I'd never see my grandfather alive again, but unable to do anything except watch it happen.
 
-Mary Rosebrook had finally gotten her revenge, and she'd made sure my grandfather experienced every moment of the cold that killed her. The only difference was that she'd died alone in a field, while he died surrounded by the warmth of a family who loved him.
+Mary had finally gotten her revenge, and she'd made sure my grandfather experienced every moment of the cold that killed her. The only difference was that she'd died alone in a field, while he died surrounded by the warmth of a family who loved him.
 
 It wasn't mercy. It was just a different kind of cruelty.
 
@@ -306,4 +304,4 @@ Three weeks later, I sent my college applications exclusively to schools in Flor
 
 The frost disappeared from our house the day we buried Grandpa, but sometimes, on the colder nights, I still hear whispers in the wind. They're fainter now, more distant, like someone calling from very far away.
 
-I think Mary Rosebrook is walking again, looking for the next person who left someone to die in the cold.
+I think Mary is walking again, looking for the next person who left someone to die in the cold.
