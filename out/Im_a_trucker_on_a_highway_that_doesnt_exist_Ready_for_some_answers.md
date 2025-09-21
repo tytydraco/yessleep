@@ -399,3 +399,5 @@ Randall and I held our breath as the thing outside once again shifted.
 “I hate you,” I said.
 
 “I assure you, the[ feeling’s mutual.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)”
+
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1nmy3y5/im_a_trucker_on_a_highway_that_doesnt_exist_there/)
