@@ -160,7 +160,7 @@ Years later, after my last encounter with the phantoms, my siblings had moved ou
 
 As his footsteps had gone to the living room, I sigh. Surely I didn't feel anything odd. But that emptiness wasn't gonna last long. I got bored and went to the pet store near me. When I arrived there was a strange man. He was just standing there in the shade, just... watching me. I felt my heart stop. Slowly the same feeling I had when those shapes were nearby. Then like nothing short, the feeling quickly subsided. The man only stood there looking quite harmless at first although I couldn't see his face clearly. I decided to just walk to the entrance of the pet store, side eyeing him. He waved at me, keeping quiet. His expression didn't change. I entered the store.
 
-"Hello again Laurence!" It was the store manager Mia. "Where to buy more fish?"
+"Hello again Laurence!" It was the store manager Mia. "Here to buy more fish?"
 
 "Maybe," I said back. "Mostly just browsing and admiring this lovely store."
 
@@ -365,3 +365,6 @@ But Stone didn't listen. He started the motorboat and looked at Jeremy. The Kill
 We had kept our gazes towards each other, not wanting to move. I heard a familiar voice and turned to see it was my Dad and Stepmom. I pat Bridget's hand and ran to my parents, hugging them. I was hurting severely physically but boy was I glad to see my family  again. And was even happier that I was released from the psych ward.
 
 Bridget and I never talked again but we left on a good note. And as I have written this, I am alive and happy and feeling safe knowing that Jeremy will never hurt anyone else ever again now that He was imprisoned to the very bottom of the lake, forever in those depths. Left to become one with that cursed former town. And now that I have recovered, I was excited to tell everyone the story. My story.
+
+
+Edit: I have posted this story before but I didn't finish it and didn't have the time to post the full version. This one is the final.
