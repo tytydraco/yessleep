@@ -50,11 +50,11 @@ For the entire next week, he lived his life on high alert. He said that he wasn�
 
 But nothing did happen. At least not that week. Life went on as normal. By the time that the second week rolled around, he was starting to relax. He still couldn’t stop himself from looking over his shoulder, but he was more willing to accept that it had just been a one-off incident. He had been dealing with something dangerous and abnormal, but he was free from it now. He’d escaped it.
 
-But then one morning he got the email. From an address that shouldn’t have been possible. He said that the dread he’d felt while reading it was something you had to feel in order to understand. The email by itself would’ve been ridiculous but given what had happened, this just about drove him to a breakdown.
+But then he got the email. He said that the dread he’d felt while reading it was something you had to experience in order to understand. The email by itself would’ve been ridiculous but given what had happened, this just about drove him to a breakdown.
 
 I brought up the line about the sewer. How the person in the story had supposedly dragged her into one. Based on his account of things, that hadn’t happened.
 
-I didn’t mean to make it sound as if I thought he were lying about that part. But I did. At this point, I didn’t feel like I could trust the guy. He sounded earnest enough, but I’d gone through too much to accept that.
+I didn’t mean to make it sound as if I thought he were lying about that part. But I did. At this point, I didn’t feel like I could trust the guy. He sounded earnest enough, but I’d gone through too much to fully accept what he was telling me. 
 
 He just told me that the woman was lying. He’d never tried dragging her into a sewer. There hadn’t even been a manhole nearby. I asked him what reason it would have to try and frame him for something like that. What was the point? He told me didn’t know but that it didn’t matter. Clearly it was trying to fuck with him. Mess with his head.
 
