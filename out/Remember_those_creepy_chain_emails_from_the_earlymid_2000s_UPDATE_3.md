@@ -141,3 +141,5 @@ I spent a long time in there just pacing around, intermittently splashing my fac
 As I was dry heaving into one of the toilets, I could feel my phone vibrating in my pocket. I took it out.
 
 It was Jackson calling me.
+
+UPDATE: [https://www.reddit.com/r/nosleep/comments/1nnc838/remember\_those\_creepy\_chain\_emails\_from\_the/](https://www.reddit.com/r/nosleep/comments/1nnc838/remember_those_creepy_chain_emails_from_the/)
