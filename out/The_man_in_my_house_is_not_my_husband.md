@@ -32,8 +32,6 @@ Thanks in advance!
 
 —B
 
- 
-
 **Update #1**
 
 So before I begin, I just want to say a huge thank you to everybody who replied to my last post. It’s so nice to know I’m not losing my mind! Also, to the woman who said I was being ‘insensitive’ posting about my husband’s ordeal—kindly blow it out your ass.
@@ -57,8 +55,6 @@ Anyway, that’s all for now. Will update again once I get a chance.
 Thanks again!
 
 —B
-
-
 
 **Update #2**
 
@@ -92,8 +88,6 @@ Will update as soon as I can.
 
 —B
 
-
-
 **Update #3**
 
 Okay, first things first, I think I may owe all of you an apology.  
@@ -112,13 +106,9 @@ Anyway, thanks for all your comments (and for putting up with my worrywart routi
 
 —B
 
- 
+ **Update #4**
 
-**Update #4**
-
- 
-
-I don’t know where to begin. So much has happened since I last posted, and I’m still struggling to make sense of it all.
+ I don’t know where to begin. So much has happened since I last posted, and I’m still struggling to make sense of it all.
 
 I got a call from Mr. Hanley, Don’s boss, yesterday evening.
 
