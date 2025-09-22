@@ -108,7 +108,7 @@ I mean, I was eight, for Christ’s sake.
 
 We were at the beach, just her and me. I don’t remember the car ride. I don’t recall walking along the boardwalk or setting up our umbrella in the sand.
 
-I just remember anger. Vicious, white-hot anger.
+I just remember anger. Vicious, seething, white-hot anger.
 
 I sat on our towel, stewing, rage marinating in its own venomous juices. She was ignoring me, reading a book, sipping dark liquor from a silver flask. Or maybe she was trying to start a conversation; maybe I was the one ignoring her. Maybe the flask is a detail I added after the fact, something to make me feel better about my part in her disappearance. It’s all so hazy.
 
@@ -144,7 +144,7 @@ Something to seal the deal.
 
 I didn’t have much of myself to give, but before too long, I had an idea.
 
-I reached into my mouth and pinched one of my upper canines. It was a baby tooth. A part of myself that was due to fall from me any day now. I twisted and yanked on the canine until its thready connections broke. Without hesitation, I laid the chunk of bloodstained enamel onto the tongue.
+I reached into my mouth and pinched one of my upper canines. It was a baby tooth. A part of myself that was due to fall from me any day now. I twisted and yanked on the canine until its thready connections broke. Without hesitation, I laid the chunk of bloodstained enamel onto the tongue. Like the crack of a whip, the salivating tendril and its prize receded, flying back into the hungry blackness of its maw. The sound of it chewing on my tooth, grounding it into a fine dust, was unbearable. 
 
 Suddenly, movement in my peripheral vision pulled my attention away from the gull.
 
@@ -164,9 +164,7 @@ This was all so long ago.
 
 Fearing the damage that might be done if I don’t stay put, I haven’t moved a fourth time.
 
-Over the last few months, they’ve returned most of her to me. 
-
-Unsure of what else to do, I've decided to give Mom a true burial. 
+Over the last few months, they’ve returned most of her to me. Unsure of what else to do, I've decided to give Mom a true burial. 
 
 Her piecemeal body looms below the dirt in my backyard.
 
@@ -174,7 +172,7 @@ As I type this, I can hear her through my closed bedroom window.
 
 She isn’t speaking, per se.
 
-The sound is higher. Shrill, guttural, full of spite.
+The sound is higher. Shrill, guttural, dripping with spite and confusion.
 
 A caw of sorts. 
 
@@ -190,8 +188,8 @@ From the false safety of my bed, I’ll hear her lumber up the stairs, down the 
 
 Mom will want to know why I did that to her, why I agreed to its deal.
 
-I think she’ll be curious about why I was so, so angry.
+I think she’ll be curious about why I was so, so angry as well. 
 
-And when she realizes I don’t have anything to tell her, when she really understands that I don’t have an explanation to give,
+And when she realizes I don’t have anything to tell her, when she truly understands that I don’t have an explanation to give,
 
 I think I’ll be in really, really [big trouble.](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
