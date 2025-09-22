@@ -1,8 +1,6 @@
-[(Part 1 here)](https://www.reddit.com/r/nosleep/s/vmd5SV5DnO)
-
 It’s inside me. I’m sure of it now.
 
-Time feels like it’s peeling away in layers, same as skin after a burn—soft, pink, and wrong underneath. I left the gas station ten minutes ago, or maybe twenty. I don’t know why. The gas station, well-lit and busy, was safe. Or at least it felt safe. My plan was to drive to the ER. But something pulled me back to that house. Like a barbed hook buried behind my sternum, tugging me back to where it all started.
+Time feels like it’s peeling away in layers, same as skin after a burn—soft, pink, and wrong underneath. I left the gas station ten minutes ago, or maybe twenty. I don’t know why. The gas station, well-lit and busy, was safe. Or at least it felt safe. My plan was to drive to the ER. But something pulled me back to that house. Like a barbed hook buried behind my sternum, tugging me back to [where it all started](https://www.reddit.com/r/nosleep/s/vmd5SV5DnO).
 
 My hands gripped the wheel as I drove, but they didn't feel like my hands anymore. *They didn’t feel like hands.*
 

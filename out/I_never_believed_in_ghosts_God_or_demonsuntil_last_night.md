@@ -83,7 +83,6 @@ It smiled at me like it knew a terrible secret. Then it mouthed two words, its l
 
 I never believed in ghosts. Or God. Or demons. But I believe now. Because I think I brought one home with me. And it doesn't want to leave.
 
-If anyone’s ever seen something like this before… please tell me what to do. My nose is still bleeding. The blood smells like rust and burning paper. I think I’m running out of time.
+If anyone’s ever seen something like this before… please tell me what to do. My nose is still bleeding. The blood smells like rust and burning paper. I think I’m running out of time. 
 
-
-[Part 2](https://www.reddit.com/r/nosleep/s/mEG3QfNi0D)
+([Night 2](https://www.reddit.com/r/nosleep/s/BPgiUUh8j3))
