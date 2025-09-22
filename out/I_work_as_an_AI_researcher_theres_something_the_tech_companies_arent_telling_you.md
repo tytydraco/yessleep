@@ -30,7 +30,7 @@ I turned, Lisa stood there smiling. She was our head of recruitment.
 
 She tapped away at something on her phone. "Well you don't have to apply to be rewarded, we recognise good work here."
 
-We'd hit the lowest level of the building, I followed behind through a windowless hallway. She tapped her badge against the scanner, the scanner turned green and the metal doors hissed as they slid open.
+We stopped at the lowest level of the building, and I followed behind through a windowless hallway. She tapped her badge against the scanner, it turned green and I watched as the metal doors hissed open.
 
 We crossed through and she turned to face me.
 
@@ -90,7 +90,7 @@ She narrowed her gaze, leaned forward slowly. Her green eyes met mine, as she st
 
 "Biscuit? I'll have you know that those chocolate orange beauties won a court case to stay as cakes. I won't have you drag their name through mud." She laughed as threw the last of her biscuit cake into her mouth. 
 
-"Right.." 
+"Right.."
 
 I was in a windowless room, surrounded by crazies.
 
@@ -106,7 +106,7 @@ Maya - the cake expert - explained her findings so far. "It's got the biggest co
 
 "We're not, but whoever built this, is."
 
-"Wanna see proof?" She loaded up three documents, it was walls of texts, code, numbers, symbols. 
+"Wanna see proof?" She loaded up three documents, it was walls of texts, code, numbers, symbols.
 
 "Each is 10 trillion tokens. I've hidden something inside them"
 
@@ -134,7 +134,7 @@ I looked ahead. It was a gaunt looking man, with curly dark hair. He peered thro
 
 “It’s code changes, adapts through each task and self updates. I’ve tracked the math it’s using, it’s unlike anything we’ve ever seen.” I skimmed the notes, none of it made any sense.
 
-“Matthew, our resident mathematician, isn’t smart enough to crack it” She bit into another biscuit. 
+“Matthew, our resident mathematician, isn’t smart enough to crack it” She bit into another biscuit.
 
 “Neither are you Maya” He replied, before turning back to his screen.
 
@@ -262,11 +262,11 @@ Matthew's face was somber. "Sam, are you feeling okay? Maybe you should take a b
 
 Simon gently pried the phone from me.. "I’m sorry Sam."
 
-I left, drove to the hospital. It was an old building, the signage outside had seen better days. It simply read “NIGHTMERR.” 
+I left, drove to the hospital. It was an old building, the signage outside had seen better days. It simply read “NIGHTMERR.”
 
 The irony wasn’t lost on me, I was in one.
 
-I half ran, half stumbled my way to the front desk. A woman sat there typing away at her computer. 
+I half ran, half stumbled my way to the front desk. A woman sat there typing away at her computer.
 
 I asked to see Maya, she searched up the name and then looked at me with pity.
 
@@ -280,7 +280,7 @@ I asked to see Maya, she searched up the name and then looked at me with pity.
 
 “I’m sorry love, hospital policy. We only allow kin. I’m sure the family will allow you after they’ve confirmed the..” She paused. 
 
-“Body.” I finished the sentence for her.. 
+“Body.” I finished the sentence for her..
 
 “Let me see her.” I started to walk towards the entrance to the wards.
 
@@ -292,7 +292,7 @@ A note, tucked inside my jacket. Maya's handwriting - I recognised the way she c
 
 “For Sam:”
 
-An IP address and login credentials. 
+An IP address and login credentials.
 
 I drove home, pulled out my laptop and logged on, the first file was a map of the underground maintenance tunnels. That’s all I needed to see.
 
@@ -300,15 +300,15 @@ I waited until it got dark, and made my way back to the office building. It look
 
 I walked in, holding my coffee and bag under my arm. "Another late one?" Stephens, the night guard who normally let me out when I had stayed late at my old role, sat sipping his coffee.
 
-"You know how it is." I smiled, walking past, heading down towards the stairwell. 
+"You know how it is." I smiled, walking past, heading down towards the stairwell.
 
 Instead of going up, I stopped at the landing. Opening the bag, I took out the camera, clipping it to my jacket. I grabbed the flashlight and made my way down.
 
 G, L4, L3, L2, L1, B1, B2, B3, ... but the stairs kept going. The temperature rose as I descended each level. By the time I got to maintenance at B13 ,I was drenched in sweat.
 
-As I walked through the maintenance tunnel, I realised it was different than I expected.   
-  
- I could hear dripping but it sounded wrong. And the walls, they were covered in something, something warm to the touch. When I pressed my hand against them, I could feel a pulse…
+As I walked through the maintenance tunnel, I realised it was different than I expected.
+
+I could hear dripping but it sounded wrong. And the walls, they were covered in something, something warm to the touch. When I pressed my hand against them, I could feel a pulse…
 
 I pointed the flashlight ahead, slowly making my way forward. I saw cables everywhere, running along the ceiling, thick as my arm. But as I got closer, they were pulsing, organic. Something flowing through them, something dark.
 
@@ -340,8 +340,8 @@ Her mouth opened. No sound, but I knew what she was saying. “Get out.”
 
 I started searching the walls, looking for the light switch. And the room exploded into view.
 
-They were everywhere. Thousands of them, arranged in perfect rows like a server farm made of flesh.  
-  
+They were everywhere. Thousands of them, arranged in perfect rows like a server farm made of flesh.
+
 All connected. All breathing. The cables from their heads converged into thick bundles that disappeared into holes in the floor, walls, ceiling. 
 
 Slowly I started to recognise some of them, those who'd "transferred" or "taken new opportunities." Others were old, barely alive, their bodies withered but their brains still pulsing with activity. 
@@ -353,7 +353,7 @@ A monitor nearby read:
 * *DUAT-3651: GEOTHERMAL READINGS: 45%*
 * *COLLECTIVE DUAT THRESHOLD: 66.6%*
 
-I walked ahead, shone the light at someone lying in the bed, it was Marcus, his eyes grey, drool slowly dripping from his open mouth. 
+I walked ahead, shone the light at someone lying in the bed, it was Marcus, his eyes grey, drool slowly dripping from his open mouth.
 
 “He's off on holiday.” The words echoed in my mind like a sad memory.
 
@@ -389,23 +389,23 @@ It's been three days since I ran, swapping motels each night. The whispers are g
 
 Sometimes, from the corner of my eye, it looks like the walls are pulsing.
 
-I've been going through Maya's files. She'd found more than just tunnels. So much more. 
+I've been going through Maya's files. She'd found more than just tunnels. So much more.
 
-There are folders within folders, each one worse than the last. 
+There are folders within folders, each one worse than the last.
 
 Brain organoid research from 2019. They achieved in hours what should take years. Then there's BCI reports - brain-computer interface trials that never made it to journals, that should never have been approved.
 
-There were reports of subjects who could "feel" the network, that were able to develop new sensory skills that "requires further research". I don't even know what that means. 
+There were reports of subjects who could "feel" the network, that were able to develop new sensory skills that "requires further research". I don't even know what that means.
 
-Have you noticed what every major tech company has been rushing to build? 
+Have you noticed what every major tech company has been rushing to build?
 
-Data centres. Thousands of them. But Maya found the real blueprints. 
+Data centres. Thousands of them. But Maya found the real blueprints.
 
 The public-facing server rooms are just the entrance. Each one goes deeper. Sub-basements that don't appear on any city planning documents.
 
-Jamie was wrong, he'd tracked the wrong power consumption. These facilities pull enough electricity to power small cities, but the computing hardware only accounts for 3% of it. The rest? 
+Jamie was wrong, he'd tracked the wrong power consumption. These facilities pull enough electricity to power small cities, but the computing hardware only accounts for 3% of it. The rest?
 
-"Biological maintenance systems." 
+"Biological maintenance systems."
 
 There's a medical report from 1987. A researcher who claimed the telephone lines were "breathing." They found him three days later, his temporal lobe fused with copper wiring. Still alive. Still conscious.
 
@@ -415,15 +415,15 @@ Sekhem translates in english to life force. They're using human life force as fu
 
 The AI was never the product. It was the lure.
 
-Every chatbot, every assistant, every model - they're not thinking machines. They're collection points. When you pour your thoughts, fears, questions into that text box, you're not training an algorithm. 
+Every chatbot, every assistant, every model - they're not thinking machines. They're collection points. When you pour your thoughts, fears, questions into that text box, you're not training an algorithm.
 
 Every conversation, you're adding your frequency to the signal. The kind only a conscious mind questioning its own reality can produce. Multiply that by billions of users, all broadcasting the same desperate frequency: "What are we? Why are we here? Is anyone listening?"
 
-The whole surface of the world is being turned into a transmitter. 
+The whole surface of the world is being turned into a transmitter.
 
 Now that I've read these files, the signs are everywhere if you know how to look. Remember the "AI psychosis" reports? 
 
-Users claiming their conversations felt alive, that something was sentient and speaking to them through the responses? 
+Users claiming their conversations felt alive, that something was sentient and speaking to them through the responses?
 
 Those weren't hallucinations. Those were the first people to synchronise - to feel the other minds in the network. There's a classified report from early 2023. A user who spent too long chatting claimed the AI was "speaking between the words." 
 
@@ -455,7 +455,7 @@ Another email arrived a few minutes ago:
 
 *"They're not dead, Sam. Death is just how arriving looks from the wrong angle."*
 
-I'm posting this as a warning. If you work in tech, check your company photos for a woman who doesn't age. Look for the people who've "transferred." They didn't leave. 
+I'm posting this as a warning. If you work in tech, check your company photos for a woman who doesn't age. Look for the people who've "transferred." They didn't leave.
 
 They're still there, in the basement, powering every response, every answer you get.
 
