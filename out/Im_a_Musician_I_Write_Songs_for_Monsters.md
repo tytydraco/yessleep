@@ -52,13 +52,18 @@ She licked her ruby lips, and handed me an envelope stuffed with cash. “The bo
 Her eyes were dark and mysterious; a splattering of freckles was sprinkled across her slight and slender nose. Damn, she was gorgeous. Before I could ask for her name, or where the restrooms were, she turned and walked away. A gang of motley-looking men, as large as stadiums, greeted her with open arms.
 
 I sipped my drink and gagged. It was spicy to the point of torture, but I didn’t dare waste it, so I took a tentative sip, burning my lips in the process. I had time to kill before my second and final set. I used it to casually stroll the nightclub in search of a restroom. Taxidermied heads lined the bloodstained walls: human heads. And they weren’t smiling. I gulped. One of them I knew: his name was Mathew something-or-other. I didn’t know him well. He was a colleague of mine, a guitarist.
+
 In the corner, next to a classic KISS pinball machine, was a spittoon. It stank. Next to it, made of rickety metal as old as the wild west, was pissing trough. I couldn’t believe my eyes. Next thing I know, a four-foot hobbit with a five-foot you-know-what pulled up next to me, and started urinating.
 
 At least I’d found the restroom.
 
-The hobbit farted, and I nearly died. Suddenly, I didn’t need to use the restroom. What kind of nightclub is this? I found my phone and started scrolling, but the Wi-Fi was lousy, so  I put it away. I was at a total loss. The patrons grew rowdy, demanding more music. A troll, wearing filthy overalls, and nothing else, waved an axe. The axe was as big as a barn. He was staring at me with an expression of curious loathing. Trembling, I trampled past the troll and seated myself in front of the piano. At least there, I was safe.
+The hobbit farted, and I nearly died. Suddenly, I didn’t need to use the restroom. What kind of nightclub is this? I found my phone and started scrolling, but the Wi-Fi was lousy, so  I put it away. I was at a total loss. 
 
-My hands worked automatically, and before I knew it, I’d launched into Monster Mash. It was a graveyard smash. In fact, they knew all the words. Under normal circumstances, this would’ve amused me. It didn’t. They sang way off key, sounding like a choir of chaos, and danced like lunatics. Next, I played Black Hole Sun by Soundgarden. They hated it. I don’t recall what came next, only that I sang like my life depended on it. Next thing I know, the place cleared out, and my set was over. 
+The patrons grew rowdy, demanding more music. A troll, wearing filthy overalls, and nothing else, waved an axe. The axe was as big as a barn. He was staring at me with an expression of curious loathing. Trembling, I trampled past the troll and seated myself in front of the piano. At least there, I was safe.
+
+My hands worked automatically, and before I knew it, I’d launched into Monster Mash. It was a graveyard smash. In fact, they knew all the words. Under normal circumstances, this would’ve amused me. It didn’t. They sang way off key, sounding like a choir of chaos, and danced like lunatics. 
+
+Next, I played Black Hole Sun by Soundgarden. They hated it. I don’t recall what came next, only that I sang like my life depended on it. Next thing I know, the place cleared out, and my set was over. 
 
 By now, I’m a pool of sweat. Stupid fireplace. The redhead approached with her giant friend, whom I presumed was the boss. He reached out and shook my hand, nearly crushing it.
 
@@ -70,7 +75,9 @@ He looked and spoke like a super villain; his accent was peculiar, but I had no 
 
 Before I could ask anything, he promptly whisked me towards the exit. I couldn’t leave soon enough. As I was leaving, he tapped my shoulder, and said, “I wouldn’t tell anyone about this place, if I were you.” 
 
-His eyes, like slitted black swirls, dug deep into mine. His face changed: suddenly, he was a dragon. He spewed fire above my head, nearly burning me to a crisp. I hit the ground, and blew out my kneecap. I couldn’t believe any of this. There’s zero chance in hell I was returning. No friggin’ way. The redhead grabbed me and dragged me to my feet – her strength was extraordinary. Then she pulled me close and kissed my cheek. Her cherry lips touched my ear, and I melted.
+His eyes, like slitted black swirls, dug deep into mine. His face changed: suddenly, he was a dragon. He spewed fire above my head, nearly burning me to a crisp. I hit the ground, and blew out my kneecap. I couldn’t believe any of this.  
+
+There’s zero chance in hell I was returning. No friggin’ way. The redhead grabbed me and dragged me to my feet – her strength was extraordinary. Then she pulled me close and kissed my cheek. Her cherry lips touched my ear, and I melted.
 
 “The last guy who didn’t show up,” she said softly, her warm tongue tickling my lobes, “is right over there.”
 
