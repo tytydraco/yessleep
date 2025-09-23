@@ -22,7 +22,7 @@ The first one I recognized immediately: the faceless girl from before. The other
 
 “You got that baby good,” Bozo said as we walked, each of his steps punctuated by a faint squeak.
 
-“Yeah, but you could’ve just finished him off. The Muskelmann clan is ridiculously durable. You could’ve punched him right in the face and he’d be fine,” Hana added, her voice echoing straight into my skull.
+“Yeah, but you could’ve just finished him off. The Muskelmann tribe is ridiculously durable. You could’ve punched him right in the face and he’d be fine,” Hana added, her voice echoing straight into my skull.
 
 I didn’t answer. Honestly? I was pretty sure I couldn’t have beaten him. Günter was a monster in every sense of the word, and I had no experience with fighting people like him.
 
@@ -34,11 +34,11 @@ We reached the medical room soon after. My mother was already waiting at the doo
 
 The room inside was definitely not a normal medical room. Sure, there were some familiar things (beds, cabinets, the faint smell of antiseptic), but the rest looked like a nightmare from a museum. Nonhuman body parts floated in cloudy jars, some twitching slightly as if still alive. Anatomical drawings covered the walls, but instead of humans, they showed centaurs, dragons, and stranger beings I couldn’t even begin to recognize.
 
-“Claude? You in here?” Mom called out.
+“Claude? You in here?” Mom called out. Judging by the name I read on the certificates on the wall, this wasn't his real name. Later, Mom explained that nobody uses their real names there for safety, and it's also a superstition.
 
 A tall figure stepped in through a side door. He wore green scrubs, plus a cap and a mask.
 
-“Oh, he lost his first fight?” Claude asked, voice muffled by the mask.
+“Oh, he lost his first fight?” Claude asked, voice muffled by the mask. 
 
 “No, but he needs a check,” Mom answered.
 
@@ -84,7 +84,7 @@ Mom pointed me back toward the arena. “Go on. Marge said everyone has to stick
 
 I walked off, not sure what Marge had in mind, but at least now I’d get a chance to watch the others.
 
-I witnessed some interesting fights. I won’t describe all of them, but I will delve into the details of three cases that I found particularly interesting.
+I witnessed some interesting fights. I won’t describe all of them, but I will delve into the details of three cases that I found particularly interesting. For the record: I only use nicknames and stage names to refer to the fighters.
 
 The first one was between a boy called Armstrong and Bozo the clown boy from earlier.
 
