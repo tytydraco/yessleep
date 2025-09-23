@@ -194,7 +194,7 @@ Before anything else, I collected the gun, diary, and my phone and weighed my op
 
 I rested my head on the floor and let the ringing go on. And before the pain got too much to bear, I was knocked out. 
 
-The last thing I saw was my “sister” ran in the room. 
+The last thing I saw was my “sister” running into the room. 
 
 “Selina!”
 
@@ -237,13 +237,3 @@ The stool. It was never there before. It was certainly not there all day yesterd
 And another thing: it felt warm. Like someone had just been sitting there for a while. 
 
 (Part 2 soon?)
-
-  
-
-
-  
-
-
-  
-
-
