@@ -85,4 +85,4 @@ I never believed in ghosts. Or God. Or demons. But I believe now. Because I thin
 
 If anyone’s ever seen something like this before… please tell me what to do. My nose is still bleeding. The blood smells like rust and burning paper. I think I’m running out of time. 
 
-([Night 2](https://www.reddit.com/r/nosleep/s/BPgiUUh8j3))
+I can’t shake the feeling that my reflection is waiting for me to go back home, and that I’ll be gone [tomorrow](https://www.reddit.com/r/nosleep/s/w2y3Mp6XLR). 
