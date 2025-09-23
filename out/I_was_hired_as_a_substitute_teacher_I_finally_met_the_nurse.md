@@ -33,9 +33,9 @@ Today, when I reached the bottom, that feeling of swimming through the darkness 
 The list of rules. Glancing at it, there was a change.
 
 * The nurse will take them out sometimes. When they come back, do not make eye contact for fifteen minutes.
-* Do not try and help them BEFORE or after their nurses visits.
+* Do not try and help them after their nurses visits.
 
-Odd. The word BEFORE had been added in, above the line, in pen. As if to correct an oversight.
+Odd. These two had been underlined.
 
 \*\*\*
 
@@ -47,31 +47,37 @@ After recess, the kids ran back into the room. Seemingly normal. They sat down, 
 
 When I'm writing on the chalkboard, with the kids in my peripheral,  I can see the hobbit - door, but my back's to their entrance.
 
-I was going over subtraction and remainders, when the hair on my arms stood on end. The air was charged, like the moments before a lightning strike. The children were utterly still. Unnatural.
+I was going over subtraction and remainders, when the hair on my arms stood on end. The air felt charged, like the moments before a lightning strike. The children were utterly still. Not a single movement.
 
 Turning, I saw her. The nurse. Tall. Almost perfect features. But when you looked at them, the features seemed to swim. Like an AI rendering of a human, where the image is constantly being generated.
 
-Even now I can't generate a picture of her in my head. The whispers came back, not directly, but around the edges of my consciousness.
+Even now I can't conjure a picture of her in my head. 
 
-The children, in unison, watched as a girl in the third row stood and started walking forward. Her face was blank, emotionless. Her body relaxed.
+With her entrance, the whispers came back, not directly, but around the edges of my consciousness.
 
-But her eyes. Her eyes seemed to scream for help. Tears welled at the corners. I wanted to grab her. Hug her. Keep her safe.
+The children, in unison, turned their heads and watched a young, dark haired girl in the third row stand and walk forward. Her face blank, emotionless. Her body relaxed.
 
-The other children's heads followed her, in unison, feeling the fear for her, with her, all as one.
+But her eyes. Her eyes seemed to scream for help. Tears welled at the corners. I wanted to grab her. Hug her. Protect her. Keep her safe.
 
-Suddenly, I desperately wished I knew her name. It was temporary, I had told myself. Don't get attached. So I made a conscious decision not to learn their names, besides Johnny (Who I tried to forget). I made up my mind to earn my money, then leave behind this place and whatever evil lived within it's walls. .
+The other children's heads followed her path, in unison, feeling the fear for her, with her, all as one.
+
+Suddenly, I desperately wished I knew her name. It was temporary, I had told myself. Don't get attached. So I had made a conscious decision not to learn their names, besides Johnny (Who I tried to forget). I made up my mind to earn my money, then leave behind this place and whatever evil lurked within it's walls. .
 
 But watching this child walk, frightened, towards this grotesque creature...
 
-I couldn't help myself. My mouth opened....and the nurse's head snapped towards me. The charge in the room grew to an overwhelming crescendo. I felt the pressure of my brain against my scull, the fluid in my eyes bulging. I could feel an artery, deep in my scull, starting to expand. The weak link in some biological chain, strained to the limit.
+I couldn't help myself. My mouth opened in protest (to say what, I have no clue)...
 
-Then the children turned, as one towards the nurse. The whispers grew in intensity. There was a terse standoff happening, something way beyond my ability to grasp, with my life in the balance. Whatever darkness they had within, the darkness that almost consumed me, they were turning  on her.
+Like a striking viper, the nurse's head snapped towards me. The charge in the room grew to an overwhelming crescendo. She seemed to grow closer, larger as I felt the pressure of my brain swelling against my scull, the fluid in my eyes bulging. An artery, deep in my head, began to expand, balloon outwards. The weak link in some biological chain, straining to the limit.
 
-Then the girl reached the nurse. Despite her fear she reached up, took the nurses hand.
+Then the children turned, as one,  towards the nurse. The whispers grew in intensity. There was a terse standoff happening, something way beyond my ability to grasp, with my life hanging in the balance. Whatever darkness they had within, the darkness that had almost consumed me, they were now turning this darkness on her.
 
-The nurse held her gaze on me, pressure building, for a long moment. I was on the edge of consciousness, barely holding on. Then, abruptly, it stopped.
+A look of confusion crossed the nurse's face. Then the girl reached the nurse. Despite her fear she reached up, took the nurses hand.
+
+The nurse held her gaze on me, internal pressure building, for a long moment. I was on the edge of consciousness, barely holding on, waiting for death. Then, abruptly, it stopped.
 
 I collapsed into my chair, mind swimming. The little girl looked back at me, and the last thing I really remember is the concern in her eyes. Concern. For me.
+
+And the enmity on the nurse's face.
 
 \*\*\*
 
@@ -93,17 +99,17 @@ Loretta looked up "Hazard pay".
 
 She looked at me, amused. "From the children, yes."
 
-Her eyes sparkled with mirth. Come into my parlor, said the spider to the fly. I kept expecting her face to shift, like the nurse. 
+Her eyes sparkled with mirth. Come into my parlor, said the spider to the fly. I kept expecting her face to shift, like the nurse.
 
-"They like you, though." She smiled, flirtatious. Seductive. Human.  How I ached for the touch of another human. 
+"They like you, though." She smiled, flirtatious. Seductive. Human.  I could feel her hand on my shoulder from earlier, and ached for that touch. Any human connection. 
 
-Walking outside, the evening breeze held a sharpness of fall. A deep, cleansing breath deep into my lungs.  It dawned me that twice in the past week I had nearly died. Within those walls.  In retrospect, this was my last real chance to leave, consequence free.
+Walking outside, the evening breeze carried a faint sharpness of fall. I took a deep, cleansing breath deep into my lungs.  It dawned me that twice in the past week I had nearly died. Within those walls.  In retrospect, this was my last real chance to leave, consequence free. To avoid everything that came after. 
 
 Any normal person would have walked away right then and there.
 
-Just one more week, I told myself, and I'll go. Thirty five hundred dollars, plus the thousand from today... that would set me up for a few months. Plus, Loretta was quite attractive.
+Just one more week, I told myself, and I'll go. Thirty five hundred dollars, plus the thousand from today... that would set me up for a few months. Plus, Loretta.
 
-The leaves rustled, whispering their approval. One more week. Whispering at the edges of my consciousness. Not just the leaves. Stay a little longer.
+The leaves rustled, whispering their approval. One more week. Whispering at the edges of my consciousness. Not just the leaves. Stay a little longer, they said. The whispers.  
 
 I shivered against the cold, against their presence. Against the nurse. Against Loretta. Deep down, my bones cried out for a drink.
 
