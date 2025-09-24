@@ -1,6 +1,6 @@
 The first time I saw a member of the Anurá tribe was on the banks of the Itaquaí River.
 
-The guide had stopped the boat so I could use the bushes, and while I was doing that, I noticed a face painted in bright red staring at me from the trees. It almost knocked me off my feet.
+The guide had stopped the boat so I could use the bushes, and while I was doing that, a face painted in bright red stared at me from the trees. It almost knocked me off my feet.
 
 The figure soon came closer and I saw it was an Indigenous man. He wore a necklace made of seeds, his body covered in urucum patterns, a bow and arrows in one arm, and the day’s catch in the other.
 
@@ -24,25 +24,25 @@ And in fact my life did change, but not in the way I imagined.
 
 We followed the man for half an hour through the dense forest, surrounded by a swarm of mosquitoes. I used the time to go over best practices with the guide, who was also an academic.
 
-He studied isolated tribes in the Javari Valley for two decades, and recently had met this group known for their unique health, the Anurá. They lived mainly on fish and cassava flour but, according to him, had the most impressive longevity he had ever seen. 
+He studied isolated tribes in the Javari Valley for two decades, and recently had met the Anurá. They lived mainly on fish and cassava flour but had the most impressive longevity he had ever seen. 
 
 The tribe had a little over forty members, including five who were believed to be in their nineties, something almost unheard of among Indigenous communities. The younger members were tall, lean, and strong, with teeth white as clouds. There had never been a recorded infant or childbirth death, and the last illness in the community had occurred more than a year ago.
 
 For personal reasons, the guide decided to spend a few months among them to investigate the source of their unusual health, that's when he wrote the article. 
 
-He told me all this between his coughing fits that had been getting worse since we left Manaus. I figured he was searching for a cure for himself, though from the sound of that cough, it seemed hopeless.
+He told me all this between his coughing fits that had been getting worse since we left Manaus. I figured he was searching for a health himself, though from the sound of that cough, it seemed hopeless.
 
 “And you? Any problems?” he asked with a joking tone. “Maybe it’s time to get healthy.”
 
 I laughed, pointed at my thick glasses, and said my eyes could be better. 
 
-Soon we arrived at an open field of packed earth where the village stood. Some of the people were gathered there. The men watched us in silence, bows in hand, while the women held children painted with dark markings.
+Soon we arrived at an open field of packed earth where the village stood. Some people were gathered there. The men watched us in silence, bows in hand, while the women held children painted with dark markings.
 
 The man who had led us made a sign for us to stay put and walked over to the group, exchanging a few quick words. Soon after, an older man approached, wearing a large headdress of red and black feathers. I figured he was the chief.
 
-He spoke with the guide, who gave him a backpack filled with items bought in Manaus. The chief seemed slightly annoyed and looked me up and down, just as I looked at him. Judging by his hair, he had to be over fifty, yet his lean, muscular body seemed like it was taken out of a bodybuilding competition.
+He spoke with the guide, who gave him a backpack filled with items bought in the city. The chief seemed slightly annoyed and looked me up and down, just as I looked at him. Judging by his hair, he had to be over fifty, yet his lean, muscular body seemed like it was taken out of a bodybuilding competition.
 
-After the exchange, the chief seemed to accept me, and we were led into the village. It was small, made up of five thatched houses with hammocks hanging inside. In the center there was a fire, and next to it stood a large object I could not identify. The chief brought us closer, and I saw it was a dark wooden structure, rectangular, about three meters tall and one wide. 
+After the exchange, the chief seemed to accept me, and we were led into the village. It was small, made up of five thatched houses with hammocks hanging inside. In the center there was a fire, and next to it stood a large object I could not identify. The chief brought us closer, and I saw it was a dark wooden structure, rectangular, about 8 feet tall and 3 wide. 
 
 Carved into it were strange symbols, with drawings of teeth running along all its edges. The structure was fixed into the ground like a tree, and at its base lay fruits, roots, manioc, fish, and even a live deer tied by a vine. Everything was marked with something that looked like black ink, and I noticed the fish carried earlier by the man were there too.
 
