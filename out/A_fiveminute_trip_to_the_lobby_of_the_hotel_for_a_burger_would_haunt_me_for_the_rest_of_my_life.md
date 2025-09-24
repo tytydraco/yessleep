@@ -2,7 +2,7 @@ In September of 2014, my daughter was kidnapped the night before her first birth
 
 A five-minute trip to the lobby of the hotel for a burger would haunt me for the rest of my life.  
   
-My wife and I were traveling to visit her friends and family in the Chicago area, a trip we made at least once a year since we met in college to visit her relatives.  
+My wife and I were traveling to visit her friends and family in the Chicago area, a trip we made at least once a year since we met right after college to visit her relatives.  
   
 That year, we decided to take on the twelve-hour drive from our home in Charlotte because we feared our daughter wouldn’t handle the flight very well, and this allowed us to lug all of the baby gear with us. We crammed a Pack ‘N Play, booster seat, kids’ bath, toys, tons of diapers, and a small bag with some clothes for us into our sedan and hit the road.
 
