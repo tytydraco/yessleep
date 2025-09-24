@@ -1,5 +1,7 @@
 [\[Part 40\]](https://www.reddit.com/user/RandomAppalachian468/comments/1lxlf24/the_call_of_the_breach_part_40/)
 
+[\[Part 42\]](https://www.reddit.com/user/RandomAppalachian468/comments/1nm7f2g/the_call_of_the_breach_part_42/)
+
 Crouched in the trenches with my platoon, I shivered against the cold wind and tried to slow my breathing.
 
 *Mother of God, that’s a lot of armor.*

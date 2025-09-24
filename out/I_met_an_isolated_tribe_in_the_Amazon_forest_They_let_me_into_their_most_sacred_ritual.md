@@ -30,7 +30,7 @@ The tribe had a little over forty members, including five who were believed to b
 
 For personal reasons, the guide decided to spend a few months among them to investigate the source of their unusual health, that's when he wrote the article. 
 
-He told me all this between his coughing fits that had been getting worse since we left Manaus. I figured he was searching for a health himself, though from the sound of that cough, it seemed hopeless.
+He told me all this between his coughing fits that had been getting worse since we left Manaus. I figured he was searching for health himself, though from the sound of that cough, it seemed hopeless.
 
 “And you? Any problems?” he asked with a joking tone. “Maybe it’s time to get healthy.”
 
@@ -56,7 +56,7 @@ During the rest of the day I watched the men of the tribe hunting peccary, weavi
 
 I wrote everything down in my notebook in a kind of ecstasy, and kept asking the guide about his theory for the health of these people. It had to be genetic, I concluded, returning to the argument he had made in his article. But he shook his head and said no, he no longer believed that. Now he was convinced the secret lay in their diet, and above all in a herb that only grew in that region, called *Bede Dobo*, widely used by the Anurá in their rituals as a drink.
 
-“I drank it once,” he told me. “And I believe it’s the reason I’m still alive. Lung cancer has tried to take me more than once.”
+“I drank it once,” he told me. “And I believe it’s the reason I’m still alive. Lung cancer has tried to take me a few times.”
 
 “So they’ll offer us some tonight?” I asked, curious, and still processing the fact that I now knew what he had.
 
@@ -106,9 +106,9 @@ The sound was unbearable. The animal shrieked once and was silenced by those hug
 
 I ran into the forest with all the strength I had, my legs barely under me. Behind me, I heard the guide running and screaming. “Come back!”
 
-Branches whipped my face as I stumbled forward, blind in the darkness. Then he caught up, slammed into me, clawing at my arms, screaming and crying. And there, in the middle of the black forest, we began to fight.
+Branches whipped my face as I stumbled forward, blind in the darkness. Then he caught up, slammed into me, clawing at my arms, screaming and crying.
 
-It was a desperate struggle for survival. We rolled on the ground, biting, scratching, locked together like animals. My glasses shattered and slipped from my face, and through the whole fight I could still hear the footsteps of that thing coming closer, heavy and thunderous.
+We rolled on the ground, biting, scratching, locked together like animals. My glasses shattered and slipped from my face, and through the whole fight I could still hear the footsteps of that thing coming closer, heavy and thunderous.
 
 I managed to break free when his coughing fit returned in full force. I stood and left him on the ground, now marked with the same black ink that had been on his hand and on my forehead. For a moment I didn’t even realize what I had done.
 

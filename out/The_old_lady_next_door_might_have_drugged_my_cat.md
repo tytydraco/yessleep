@@ -74,7 +74,7 @@ It was getting pretty late by that point so I filled up Sweet Pea's bowl, only b
 
 I haven't seen Sweet Pea all night since I caught Ruth feeding her homemade treats.
 
-Suddenly, a blood curdling scream echoes through the wall, followed by several impacts of smashing glass. I it up motionless in bed for long seconds, struggling to listen for any signs of life over the maddening scrabbling coming from my kitchen. My heart races a mile a minute as I slowly climb out of bed, taking a step towards the wall I shared with Darla. I almost jump clear out of my skin when a crashing sound rings out from my kitchen.
+Suddenly, a blood curdling scream echoes through the wall, followed by several impacts of smashing glass. I sit up motionless in bed for long seconds, struggling to listen for any signs of life over the maddening scrabbling coming from my kitchen. My heart races a mile a minute as I slowly climb out of bed, taking a step towards the wall I shared with Darla. I almost jump clear out of my skin when a crashing sound rings out from my kitchen.
 
 Sweet Pea must have knocked over a mug.
 
