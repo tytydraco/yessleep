@@ -62,7 +62,7 @@ I don’t know how to start this post, so I’m just going to come right out and
 
 *Something is wrong with my husband.*
 
-I followed him last night—one of Don’s great sleepwalking adventures. I’d gotten up to go to the bathroom and was just heading back to bed when I’d noticed Don’s bedroom door standing ajar (we sleep in separate rooms on account of Don’s sleep apnoea). I found him stood in the kitchen by the sink, once more with his back to me. For the longest moment I thought he had to be looking out the window at something—a raccoon, perhaps—but then I’d caught a glimpse of his reflection in the window and realized what he’d *actually* been doing, which was, Don had been talking to himself.
+I followed him last night—one of Don’s great sleepwalking adventures. I’d gotten up to go to the bathroom and was just heading back to bed when I’d noticed Don’s bedroom door standing ajar (we sleep in separate rooms on account of Don’s sleep apnea). I found him stood in the kitchen by the sink, once more with his back to me. For the longest moment I thought he had to be looking out the window at something—a raccoon, perhaps—but then I’d caught a glimpse of his reflection in the window and realized what he’d *actually* been doing, which was, Don had been talking to himself.
 
 Only… that’s not quite right.
 
