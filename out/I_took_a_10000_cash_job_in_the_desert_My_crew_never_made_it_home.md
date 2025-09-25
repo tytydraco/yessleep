@@ -18,7 +18,7 @@ Holy shit, man, if I could go back in time and slap some sense into that kid... 
 
 So I'm living this hand-to-mouth existence, right? Doing landscaping one day, helping someone move the next, whatever kept me in gas money and munchies. But the work was drying up faster than spit on a sidewalk in July, and I was getting desperate. That's when my dealer - let's call him Miguel - told me he knew a guy who knew a guy who had some work. Under-the-table stuff, good money, no questions asked.
 
-"It's like manual labor, vato," Miguel said, passing me this gnarly joint that tasted like it was rolled in old socks. "But it pays cash, and it pays good."
+"It's like manual labor, vato," Miguel said, passing me this gnarly joint. "But it pays cash, and it pays good."
 
 I was blazed enough to think this sounded legit, so I said, "Sure, hook me up."
 
@@ -385,10 +385,3 @@ I never went back to New Mexico. Never will.
 It's a hard lesson to learn, but some jobs don't pay enough, no matter what the money looks like up front.
 
 And some things should definitely stay buried.
-
-  
-  
-
-
-  
-  
