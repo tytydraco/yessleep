@@ -86,7 +86,7 @@ I climbed up the rest of the steps, trying to recall the inside of her house fro
 
 I glanced over my shoulder toward my own house. Bailey was still barking her head off, which was unnerving, but the sight of Alice keeping an eye on me gave me some peace of mind. It was just a house, I told myself. Just a normal house with my own neighbor inside of it. 
 
-Taking a deep breath, I stood at the threshold of the door, shocked at how, despite my closeness, the inside of the house remained pitch-black. I thrust a hand inside and it disappeared like I'd dipped it into oil. As I groped around for the lightswitch, my fingers brushed against something solid. Something fleshy. I jerked my hand back, certain that I'd just touched a person. 
+Taking a deep breath, I stood at the threshold, shocked at how, despite my closeness, the inside of the house remained pitch-black. I thrust a hand inside and it disappeared like I'd dipped it into oil. As I groped around for the lightswitch, my fingers brushed against something solid. Something fleshy. I jerked my hand back, certain that I'd just touched a person. 
 
 "Isabelle?" I asked the darkness, and then, from inches away, came the sound of laughter. The laugh was deep, gravelly, and mocking, and it did not resemble my neighbor's voice in the slightest. Before I could react, I heard the quick, pitter-patter of footsteps against wood. It grew quieter and quieter, and I realized that it was the sound of someone running *away* from me. After a few seconds, I thought I heard a door open and shut in the distance. The back door, perhaps? 
 
