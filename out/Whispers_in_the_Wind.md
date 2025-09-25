@@ -1,35 +1,77 @@
-The air was hot, still, and oppressively humid. A mountain range of towering dark clouds loomed on the horizon, but only wisps of moisture floated overhead. Floridian summer. He grabbed his pack from the back of the car. All accounts said that it was only a couple of miles to the spring. Five minutes out of the air conditioning, and his entire body was already coated in a sheen of sweat. He took a long drink from his water bottle and set out. 
+We have all heard the wind, but how closely have you listened?
 
-The trail was a thin gash of sandy soil through the thick underbrush. Longleaf pines stood tall and proud, their twisted branches offering a small island of shade. Their scaly red-brown bark shined in the unyielding sunlight. He stopped. The forest was deathly silent. Not a single bird sang, or creature scuttled through the underbrush. A cool breeze floated through the trees, and the pines whispered softly. The breeze was better than a kiss. He drank another drink of water. 
+My name’s Cole. A stonemason, like my father. He carved skyscrapers out of granite. I’m more down-to-earth. I crafted gravestones.
 
-He approached a small sign. The bleached wood proclaimed: Forbidden Spring- 1 mile. The narrow path led into a thick hammock. Gnarled scrub oaks stretched into the air, curving like the bodies of snakes. Thick clumps of Palmetto lined the pathway, and tendrils of moss hung limply from the branches of the trees.The shade was welcome, but the dense canopy made the lingering wetness feel even closer. The path became even more narrow, the fronds of the Palmetto brushing over his wet skin. After a few more minutes, he had to walk sideways, edging along as he was buffeted front and back by the encroaching plants. Sweat poured from every inch of his body, and he finally felt the bite of the sun on his face again. 
+Retired now, I’ve become a grave rubber. No, not *robber*. I search old cemeteries for interesting headstones and make chalk rubbings on paper. Some beautiful, some bizarre, I sell them online to other “tombstone tourists,” who frame them as art.
 
-He had reached a clearing. The path opened into a large swath of dirt and tall grass. Flowers and  pock marked protrusions of limestone sprouted at the edges of the wide ring, and at the center: a tree. It was a monstrous live oak. The trunk was as thick as a mobile home, and its lowest branches swooped up into the air before descending to kiss the ground. A thick carpet of ferns and lichen clung to the ancient branches. Clumps of Spanish Moss, as thick and as long as a person hung from the sturdy younger branches. He approached the tree with mouth agape, staring at this wise and powerful being. The bark of the tree was as black as the depths of a cave. He reached out his hand and touched it. Despite its deep grooves, the bark felt smooth. 
+A few weeks ago, I was working the overgrown burial ground of a tumbledown church, trying to get done before an approaching storm hit, when it started. 
 
-*It felt like skin.* 
+The wind... called to me. 
 
-He wrenched his hand off of the trunk, and his head swam as he staggered away. His legs became as weak as a newborn deer. He flailed, his head spinning violently, and crumpled onto the  earth. 
+A soft female voice whispered in the wind: *“Help me...”*
 
-He opened his eyes and looked around. A breeze rippled through the great tree. The moss swayed lazily, and the leaves rustled, no louder than a shared secret. He turned his head. A woman walked into the clearing, her face as calm as swamp water. She was as naked as an animal, and she was beautiful. Her hair, a rusty red, cascaded down to her feet. Her skin, tan and  glistening with a film of moisture. She helped him from the ground and looked into his eyes. Her eyes were luminescent, the color of sunshine falling on new leaves in spring. Her gaze was unflinching. She kissed him on the mouth, and stroked her fingers through his hair. She kissed his neck, and pulled him close so he could feel her breasts press against him. She undid his pants, pulling out his already bulging erection. She whispered in his ear. It was the sound of wind drifting through the forest, the soft whisper of leaves and pine needles. Yet he knew what she said all the same. 
+What? Surely, I was mistaken. But then, the wind picked up... and the voice rose too: *“Please... help me...”*
 
-*Be mineeeee* 
+I looked at the inscription on the drawing paper taped to the headstone: *Felled By Flu. 1919*. Back then, the influenza epidemic took more Americans than five wars, many buried unknown.
 
-Beneath  the fever of his desire, he could hear a voice deep in his mind telling him no. Warning him not to do it. She placed his hands on her breasts, and let him feel the soft skin and her hard nipples. The small voice forgotten, he slid himself inside her as he kissed her again. Pulled her closer to him as his pleasure mounted. The great moment of release, and she looked into his eyes and smiled. 
+As I listened, it seemed she was saying: *“I... have... a... name. Pleassse... help.”*
 
-He awoke at the base of the great tree. He stood. The tree's bark was light brown. He stroked the tree's trunk and felt its coarse ridges and mountains. 
+“What... what do you want?” I asked, though I couldn’t believe any of this was real.
 
-“Is that strange?” He couldn't help but think so.
+*“I want my... name,”* was her wind-whispered reply.
 
-“I'm hot” he thought. “I need to get to the spring and cool off”. 
+I’m not a fanciful man, nor a drunkard. This was not a dream. I asked a question to the air and the air answered. 
 
-He walked to the opposite side of the clearing and picked up the trail again. The dappled shade of the massive tree yielded to the relentless sun of the pine scrub. The sun bore down on him without mercy. Sweat ran off of him in rivers, and he dragged his feet through the thick sand underfoot. The silence of the forest was only disturbed by his shuddering breathing. He walked. Bushes began to flick and stab at him, but they were dulled by the onslaught of the persistent heat. He looked around to observe that he had walked off the trail into the undergrowth. He reached for his water bottle, mumbling and wiping his brow. His fingers felt stiff and refused his insistence to open the bottle. It slid from his fingers and fell into the baking sand. 
+“Are you here... in this grave?” I asked. 
 
-The sweat poured like a summer thunderstorm. The spring was the only thing that mattered now. His body felt stiff and weak. He tried to swipe the stinging sweat from his eyes, but could not lift his arms to relieve himself. His left leg dragged through the lashing undergrowth. His spine became rigid all at once, and he lost balance and fell. 
+*“Yessss...”* She sighed as the wind quickened. Thunder rumbled in the distance, an autumn storm coming fast.
 
-The sand scorched his skin. He looked at his arm. The skin was hard and mottled, scales of rusty red with deep trenches between them. He passed out. 
+“Who are you?” I called.
 
-When he awoke, he could not see. He screamed with all his power, but no sound came from the void of silence. He commanded every cell in his body to move, but he could not even quiver. 
+*“Addie...”* came the reply, *“Addie... Sssimpson”*
 
-A cool breeze wafted over him. It felt as sweet as the caress of a lover, a cold drink on a scorching day. Leaves and needles rustled. And he heard it: 
+“Addie Simpson...  what do you want?” I yelled over a crash of thunder and lightning.
 
-“Now you are mineeee”
+Addie pleaded: *“My name... tell them my name...”*
+
+I ran for my truck as the storm clouds broke, and rain pelted down. I headed for the University’s library, thirty miles away, my mind spinning faster than my wheels. 
+
+With the help of a research librarian, I finally uncovered a mention of Addie in a 1919 newspaper notice.
+
+“Adelaide Simpson, 17, of Farmington, has gone missing. If you have any information, contact Sheriff Barton.”
+
+I drove home that night knowing what I needed to do.
+
+I opened my workshop. First time since the day I carved my wife’s stone. 
+
+I had saved a nice piece of marble – deep green with golden-green veining – to use for my own remembrance someday. I set to work through the night, shaping, refining, delicately engraving, polishing to a mirror-glaze.
+
+At dawn, I fell asleep, exhausted, still holding a chisel. My sleep brought me dreams, visions of what this Addie Simpson might have been like, setting off to find her place in the world.
+
+Saying: *“Pardon me, sir. I am new to town (cough) and in hopes of a job...”*
+
+Or... my dream turning darker, I wondered if she had been preyed upon by some man. With able-bodied men off fighting World War I, women had more opportunities... and more exposure to wicked men remaining.
+
+Crying: *“No... sir! Leave me be! No... noooo...”*
+
+Nooo! I woke sweating, infected by curiosity and terrible suspicion. 
+
+I hauled the stone to Addie’s grave and set it firmly in place. It gleamed in the gold of the setting sun. For the first time in a long time, I smiled. It felt good to be a Memorial Mason again, crafting remembrances of people lost that tell generations to come, “I was here. I was loved.”
+
+As I turned away, a gust of wind softly whispered, “thank you,” and then faded to a long, satisfied sigh. But I wasn’t quite done yet. Addie had told me another name and asked for one more favor.
+
+In the iron-fenced enclosure nearest the church’s ruins, I found the ornate monument marking the remains of Sheriff Hubert Barton – the corrupt monster who did her in and left her in the woods.
+
+It was easy to chip his name off, leaving just an ugly stone scar.
+
+Problem is, these days, when I go out into old graveyards to take rubbings, I can barely hear myself think. All those dead people, asking for help. 
+
+*“Find my sister!”*
+
+*“Who stole my wedding ring?”*
+
+*“I’m alive. Dig me up!”*
+
+I am seriously considering changing my hobby to woodworking.
+
+ 

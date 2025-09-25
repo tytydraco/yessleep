@@ -97,7 +97,7 @@ As she said this, the doors down the corridor opened slowly. I hadn't even notic
 
 I ran to the door faster than I ever had before, afraid that it might close again and trap me in this hell. 
 
-As soon as I felt the fresh air, I laughed. Then I cried. I fell to the dirty floor and cried even harder. 
+As soon as I felt the fresh air, I laughed. Then I cried. My knees hit the floor once more and through teary-eyes I saw the dirt and filth under my legs. Never in my life had I been more happy to see just how dirty the floor was. 
 
 I sat there for a long time until I realized the train had left, along with my work bag. But I didn't care. I was alive. I pulled out my phone, which magically worked again, and checked the time. It was 3:34. It was as if nothing had ever happened.   
 
