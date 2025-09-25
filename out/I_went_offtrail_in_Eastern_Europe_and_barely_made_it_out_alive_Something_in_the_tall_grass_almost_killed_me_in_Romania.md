@@ -122,7 +122,7 @@ The weird thing was how quiet everything had gotten. No more rustling in the gra
 
 Then I realized what was actually happening. It didn't need to hunt me anymore. The venom would do the work for it. All the thing had to do was follow at a distance and wait for the poison to drop me. Then it could feed at its leisure.
 
-The thought made me push harder, even though my leg was starting to look like something out of a medical textbook. The swelling had gotten so bad that I'd had to cut my pant leg open with my utility knife. The discoloration had spread past my knee, creeping up my thigh in these twisted, vein-like patterns that looked almost awful.
+The thought made me push harder, even though my leg was starting to look like something out of a medical textbook. The swelling had gotten so bad that I'd had to cut my pant leg open with my utility knife. The discoloration had spread past my knee, creeping up my thigh in these twisted, vein-like patterns that looked awful.
 
 I was following what looked like an animal trail, hoping it would lead to higher ground where I could get my bearings, when the grass opened up into this shallow depression. Maybe fifteen feet across, carved into the earth like a giant's footprint.
 
@@ -144,7 +144,7 @@ I gripped my hiking pole tighter and started moving again, twice as fast as befo
 
 An hour later, I forced myself to stop. My body was shutting down whether I liked it or not. I found a patch of slightly higher ground where I could see maybe fifty yards in each direction and collapsed against my pack.
 
-The GPS said I still had six five to the nearest buildings marked on the map. A farm, probably, maybe a small village. Five miles normally wouldn't even register as a real hike, but with my leg the way it was, it might as well have been a hundred.
+The GPS said I still had five miles to the nearest buildings marked on the map. A farm, probably, maybe a small village. Five miles normally wouldn't even register as a real hike, but with my leg the way it was, it might as well have been a hundred.
 
 I made myself eat half a protein bar and drink some water, even though my stomach was cramping up. Dehydration would kill me faster than the venom if I weren't careful. The irony wasn't lost on me - here I was, following basic wilderness survival protocols while something actively tried to digest me from the inside out.
 
@@ -158,7 +158,7 @@ But this was different. Those other times, I knew what I was dealing with. Snake
 
 I caught myself starting to roll up my pant leg to check the wound and stopped. I didn't want to know. Whatever was happening down there, looking at it wasn't going to help anything. All it would do was freak me out more, maybe make me panic when I needed to stay focused.
 
-Four miles. That was the only number that mattered now.
+Five miles. That was the only number that mattered now.
 
 I shouldered my pack, adjusted my grip on the hiking pole, and started moving again. One step at a time, like always. Just like every other mountain I'd ever climbed, every trail I'd ever finished.
 
