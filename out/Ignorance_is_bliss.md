@@ -1,5 +1,3 @@
-TW: blood, implied sexual content
-
 
 
 I was staying in an old hostel where I had been let a room for a few days. I had gone out and had just returned to find two girls supervising a group of workers moving in an extra bed and other things into the room. I protested at someone having entered the room without my permission. 

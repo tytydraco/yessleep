@@ -46,7 +46,7 @@ After the exchange, the chief seemed to accept me, and we were led into the vill
 
 Carved into it were strange symbols, with drawings of teeth running along all its edges. The structure was fixed into the ground like a tree, and at its base lay fruits, roots, manioc, fish, and even a live deer tied by a vine. Everything was marked with something that looked like black ink, and I noticed the fish carried earlier by the man were there too.
 
-I asked the guide what it meant, and he explained that the Anurá worshiped a forest spirit that appeared in the form of a jaguar, and they made offerings to it. 
+I asked the guide what it meant, and he explained that the Anurá worshiped a forest spirit that appeared in the form of a jaguar, and they made offerings to it.
 
 “Tonight is the full moon, and they'll have a ritual for this deity,” he said, caught in another fit of coughing. “Wait until then and you’ll get it.”
 
@@ -132,4 +132,4 @@ In the end they let me go, maybe thinking I had already been through enough. And
 
 Through the window I could see the details of the trees, the water, and the clouds in the sky. Even without my glasses.
 
-My vision was healed in that ritual, and the *guide became my offering*.
+My vision was healed in that ritual, and the guide [*became my offering*](https://www.reddit.com/user/Accomplished_Low7889/).
