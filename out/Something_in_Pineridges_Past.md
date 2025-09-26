@@ -1,0 +1,19 @@
+I’ve been trying to understand it. To make sense of what I saw beneath the plant, I started digging into its history. Old records, newspaper clippings, town archives—anything I could get my hands on. Most of it seemed ordinary: dates of construction, maintenance logs, budgets.
+
+But then I found hints that didn’t fit. The land itself—where the wells, mills, and now the plant stand—had been owned by a man named Elias Hartwell, a preacher in the late 1800s. Accounts of him are scattered and vague: he led gatherings under the banner of something called the *Nurturers of Unity*. Nothing explains exactly what that meant—some speak of devotion to water, to wells, to the life beneath the land. Others mention “keepers of the flow” and rituals carried out quietly, almost in awe. They are described as serene, pacifist, tending to the land with meticulous care. A few records note that individuals occasionally vanished, but the tone is understated, almost accepting—as if departures were expected, part of the practice rather than punishment. The details are unclear, but the sense of quiet reverence, of devotion to something greater than themselves, is undeniable.
+
+I should have stopped there. But I couldn’t. The more I read, the more I remembered. The **sanctum beneath the plant**, the symbols carved into the stone… those symbols of heads, each with a spiral in the forehead. Kneeling mats, water-stains shaped like hands—someone, or something, had been worshipping in the sanctum for longer than anyone alive could remember. Occasionally, as I go through old records or sift through notes, I think I hear faint whispers at the edge of my hearing—words I can’t make out, soft enough that I could almost convince myself it’s just my imagination. But the sense of being observed lingers.
+
+And her. I can’t stop thinking about her. She isn’t just a creature. She’s a node. A conduit. Her body, enormous and bulbous, translucent in some areas, pulsated in a way I can still feel in my chest. Tendrils waved in the air, sensing me, testing me. The eggs, the fluid, the pipes and cables running like veins into the plant itself—everything connected, feeding, contaminating. I remember the pulse more than the horror itself. It was… unnerving, but not unbearable.
+
+I wake up with a mild itch at the back of my head, sometimes a slight dull pressure at the base of my skull. Nothing sharp, nothing that would stop me from working, just a constant reminder that I'm never really alone. *That I'm a host to something else.*
+
+My dreams have started to feel… layered. I drift through a plane of faces—countless eyes, ears, and mouths—stretching into infinity, each slightly wrong, never fully hostile. Symbols twist and fold, spirals within spirals, and water flows endlessly over them, carrying the pulse I remember beneath the plant. I wake unsettled, but not terrified, the sensation lingering quietly in my veins.
+
+The town feels subtly different. People move through their days as they always have, but there’s a slight stiffness behind their eyes, a faint sluggishness in their motions. Conversations feel clipped, almost automatic. I notice it more than I should, and I feel it too—a faint pressure, a whispering nudge in the back of my skull, like something is stirring just beneath the surface.
+
+I’ve decided I won’t stop. I need to understand the Nurturers of Unity—their rituals, their devotion, and how it connects to the plant and the being below it. Every record, every symbol, every pulse of the water could hold a clue. I don’t know where it will lead, or if I’ll remain entirely myself in the process, but I can’t turn away. The work is mine now.
+
+If anyone reads this: avoid the plant. Avoid the water. Avoid the sanctum. Whatever is down there isn’t just alive. It’s watching. Listening. And it has been for longer than any of us.
+
+[\- Sam](https://www.reddit.com/user/Kaiwhakairo-Miti/comments/1nbvqmg/the_pineridge_contamination_all_parts/)
