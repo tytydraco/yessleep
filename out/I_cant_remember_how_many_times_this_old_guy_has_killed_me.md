@@ -380,7 +380,7 @@ I didn’t feel the glass or my head going through the windshield.
 
 I woke up lying in a patch of grass, surprisingly pain free, and more importantly: alive. The same could not be said for Misha. If the knife hadn’t done him in, the tree certainly did. It’d crushed the entire front driver side. The corpse behind the wheel was nothing more than a mangled lump of flesh and viscera interspersed with glass shards and the warped remains of the frame and engine. 
 
-It was over. Actually over. Misha was dead. Thousands of years of experiences were gone in a split second and the world was better for it. 
+It's over. Actually over. Misha is dead. Thousands of years of experiences were gone in a split second and the world is better for it. 
 
 I know it’s probably weird that I’m writing about this on reddit of all places, which is fair. But I really don’t think anyone else would give me the time of day. The police didn’t. Well, they didn’t until the car crash was reported. Misha’s house was full of his crimes. Particularly his basement full of corpses, of the unfortunate souls who’d come before me and didn’t have my curse. 
 
@@ -389,4 +389,3 @@ Because that’s what it is—a curse. Not a blessing, not a gift, not anything 
 I have a chance to start over. They considered putting me into foster care but one of the detectives applied to foster me instead. She was one of the first people I’d talked to about everything I knew. She’s also very nice and her eyes are a dark brown, like chocolate or tree bark.
 
 This is the end of my ability being used for other people. I won’t post again. Good bye.
-
