@@ -48,9 +48,13 @@ Silence as I pulled up into the parking lot.
 
 I hung up. That chapter was over, I knew it in my marrow. Some things, once removed, can never be put back. Despite all the kings horses and all the kings men, all Humpty could be was a tragic warning for the next thrill seeker up on that wall.
 
-*Whoosh.* Click.
+*Whoosh.* 
 
-The door settled into place.
+Another turn of the cycle. 
+
+Click. 
+
+The door settled into place. The slight pressure against my ears as I descended the stairs. 
 
 I was early, so sat in my desk reviewing my lesson plan. Hadn't even flirted with Lorraine. All I could see was that little girl's face. Her dark curls, her soft eyes. The concern she had for me as she walked away with the nurse.
 
