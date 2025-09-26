@@ -102,7 +102,11 @@ I was writing on the chalkboard when it started.  A faint whispering, like the r
 
 My hand froze on the chalkboard.  I tried to turn but I was stuck.  
 
-The whispering grew.  Like bees, angry, humming.  The lights dimmed, taking on a late evening glow.  
+The whispering grew.  Like bees, angry, humming.  
+
+Swarming. 
+
+The lights dimmed, taking on a late evening glow.  
 
 Heart hammering, I summoned all my will and moved my head about a quarter of an inch. 
 
