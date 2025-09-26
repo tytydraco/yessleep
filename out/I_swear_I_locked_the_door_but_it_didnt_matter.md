@@ -1,3 +1,5 @@
+Part 1
+
 It had been a long Friday. One of those days where your legs feel like lead and your brain’s running on fumes, but you can’t really complain because everyone else looks just as dead on their feet. We’d been slammed since noon—storm or no storm.
 
 Honestly, I thought the rain would keep people home. The weather station was blasting warnings all afternoon: flash floods, tornado watches, thunderstorms rolling in heavy. But if there’s one thing I’ve learned, it’s that a cheap Friday the 13th tattoo will make people wade through hell and high water. Literally, in this case.
@@ -84,8 +86,6 @@ I smiled back, but the expression felt more automatic than genuine, and as I hig
 
 All I knew was that it had been a long day, and I just wanted it to be over.
 
-
-
 The hallway buzzed faintly with the sound of the last machine shutting off as I stepped in. Two artists were still around—Steven, who was standing and handing his client a little aftercare card, the other, Joe, was still in his chair, zipping his iPad into his backpack.
 
 I hovered a moment, not wanting to push my luck, but the thought of that girl still waiting in the lobby put an air bubble in my chest that I could barely breathe through. Finally, I cleared my throat. “Hey, um… would either of you be up for one more? Just a quick flash piece?”
@@ -129,8 +129,6 @@ Her demeanor was still uncanny, but lighter somehow, like being asked by Joe mad
 Joe nodded, reassuring as always. “Of course. No problem.” He grabbed the clipboard from the counter and held it out to her. “Go ahead and follow me back. We’ll get your paperwork started.”
 
 Joe and the girl disappeared down the hallway, and I shrugged to myself, left alone in the lobby again. My body ached from the long day, so I stretched, rolling my neck until it cracked. There were still things to finish before I could leave, and I needed to get as much done before this migraine took me out.
-
-
 
 Room by room, I tied up the day—slipping new trash bags into bins, pushing all the client chairs neatly against the walls, resetting the shop so it would feel fresh when everyone dragged themselves back in tomorrow. I gathered the mountain of paperwork and carefully organized it into separate stacks for each artist. By the time I had everything tucked under my arm and made my way to the filing cabinets in the back, Joe was just finishing up with the girl.
 
@@ -313,4 +311,3 @@ My fingers splay against the hardwood, every nerve in my body screaming. That’
 Then the officer leans closer. His words cut through everything, sharp and merciless:
 
 “Now—put your hands behind your back.”
-
