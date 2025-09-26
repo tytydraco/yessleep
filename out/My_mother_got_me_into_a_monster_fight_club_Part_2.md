@@ -38,7 +38,7 @@ The room inside was definitely not a normal medical room. Sure, there were some 
 
 A tall figure stepped in through a side door. He wore green scrubs, plus a cap and a mask.
 
-“Oh, he lost his first fight?” Claude asked, voice muffled by the mask. 
+“Oh, he lost his first fight?” Claude asked, voice muffled by the mask.
 
 “No, but he needs a check,” Mom answered.
 
@@ -148,7 +148,7 @@ Armstrong was carried away on a stretcher. Bozo also had to visit the medical ro
 
 The second match I want to describe was a few fights later. It was between Hana (the faceless girl) and a girl with antlers growing from her head.
 
-“Next up: Horror Hana versus Stagora!” Marge announced them.
+“Next up: Hana versus Stagora!” Marge announced them.
 
 Hana walked in first. She moved with eerie calm, like she didn’t need to see.
 
@@ -184,7 +184,7 @@ Hana simply let go, her Oni face still grinning as she walked away, leaving Stag
 
 \[The third one I’d like to describe was one of the last few fights, but before I continue, I think I should make a quick **content warning.** I have to warn you guys that the following segment contains >!mathematics.!< Viewer discretion is advised.\]
 
-“Alright, folks, next up: Eldritch Euler versus Flint!” Marge announced, gesturing for them to enter the ring.
+“Alright, folks, next up: Euler versus Flint!” Marge announced, gesturing for them to enter the ring.
 
 The upside-down face boy stepped into the arena first, his inverted grin stretching unnervingly where his forehead should have been. Opposite him, Flint stomped in: a broad, burly kid with a jaw like carved stone.
 
@@ -226,7 +226,7 @@ Flint lay sprawled, groaning, his stone armor fractured, and his arms were stick
 
 The bell rang. Euler wiped the inverted grin across his forehead with his arm, the bloody smear making his upside-down face even more grotesque.
 
-“Winner: Eldritch Euler!” Marge announced as Flint was carried away on a stretcher.
+“Winner: Euler!” Marge announced as Flint was carried away on a stretcher.
 
 \*\*\*
 
@@ -308,7 +308,7 @@ I stared at the clock. A little past midnight. So technically, I’d had a coupl
 
 She knocked on the door, and a scrawny blonde man opened it. His pale skin and jittery grin didn’t exactly scream “trustworthy.”
 
-"Oh, Carol, nice to see you. You came to watch the show?" he asked, voice thin and excited.
+"Oh, Creepy, nice to see you. You came to watch the show?" he asked, voice thin and excited.
 
 "No," she shook her head. "You still accept outsiders for fights, or do you only use your own fighters these days?"
 
@@ -370,7 +370,7 @@ I locked eyes with the towering beast. Its stitched lids didn’t blink, but I s
 
 "Ever tested this beauty against anyone?" Mom asked.
 
-"Only other animals. Teddy’s a bit much for amateurs." Jim smirked at me. "But I doubt Creepy Carol’s son will have any problem."
+"Only other animals. Teddy’s a bit much for amateurs." Jim smirked at me. "But I doubt Creepy’s son will have any problem."
 
 "What?" Mom snorted. "You call him Teddy?"
 
