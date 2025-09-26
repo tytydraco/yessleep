@@ -18,9 +18,11 @@ Until the day that something jolts us out of it. Something shocking, breaking th
 
 But I'm getting ahead of myself. The last time we spoke, I believe, was the day the little girl was taken. By that... thing. Tuesday, I believe.
 
-My thinking is getting clearer but my memory is hazier. A cognitive myopia. Mental nearsightedness. Even that. I use these fancy words. But I can't remember my ex wife's face clearly.
+My thinking is getting clearer but my memory grows hazier. A cognitive myopia. Mental nearsightedness. Even that. I use these fancy words. But I can't remember my ex wife's face clearly.
 
-I hadn't slept well, after the nurse took her. Tossing and turning. Every time I drifted off, I felt that vein, in the back of my head. Deep within. Pulsing. Throbbing. They say that after someone loses a limb, they still have the sensation of that limb being there. Phantom limbs, it’s called. That was occurring in the back of my head- the memory of a sensation, still firing the electrical charges across the neuronal synapses.  Consciousness is such an odd thing. We rarely notice it, until it goes wrong.
+I hadn't slept well, after the nurse took her. A brush with death can have that effect. 
+
+Tossing and turning. Every time I drifted off, I felt that vein, in the back of my head. Deep within. Pulsing. Throbbing. They say that after someone loses a limb, they still have the sensation of that limb being there. Phantom limbs, it’s called. That was occurring in the back of my head- the memory of a sensation, still firing the electrical charges across the neuronal synapses.  Consciousness is such an odd thing. We rarely notice it, until it goes wrong.
 
 I must've fallen asleep, because I woke up to my phone ringing. It was my ex wife and her lawyer, wanting to finalize some elements of the divorce. When I tried to see her face... it was blurry. In my mind. This was a woman I had known since we were fourteen. She is - was - family. Not in the I married her sense but in the...
 
