@@ -62,12 +62,6 @@ A collection of words that perplexed me. Hear what? There were no bats, critters
 
 *pitter patter*
 
-*pitter patter*
-
-*pitter patter*
-
-*pitter patter*
-
 Consonant, unstopping within my own head. No source of the noise to be found, for it was in our own heads. Everyone heard it. The worst part being that we all knew what it meant, what the drumming translated to.
 
 “Get out .”
