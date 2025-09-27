@@ -134,6 +134,4 @@ If any of it's real, then we're all...
 
 No. I can't. I won't.
 
-I'm done.
-
-I'm done with all of it.
+[I'm done.](https://www.reddit.com/r/nosleep/comments/1nh8q53/there_was_a_strange_beetle_hidden_in_the_desk_of/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
