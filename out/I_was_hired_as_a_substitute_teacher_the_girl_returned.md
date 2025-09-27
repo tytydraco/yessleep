@@ -189,6 +189,6 @@ The strangest part lay below that, where the missing since date was printed.
 
 September 23, 1992.
 
-The bile began to rise. 
+I tasted bile in the back of my throat. 
 
 *Whoosh*. Click.
