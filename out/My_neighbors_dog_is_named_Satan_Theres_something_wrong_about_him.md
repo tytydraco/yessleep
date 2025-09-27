@@ -101,4 +101,4 @@ Like the way he limps just like the old lady did. Or the way he sometimes wrinkl
 
 Maybe I’m losing it from the lack of sleep. But I swear to God, when I look into his eyes, I see someone begging for help.
 
-It’s the same look I saw in the neighbor’s burning eyes when I burst through her door. 
+It’s the same look I saw in the neighbor’s burning eyes when I [burst through her door.](https://www.reddit.com/u/Accomplished_Low7889/s/iA2TC80nax). 
