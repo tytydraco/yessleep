@@ -267,3 +267,5 @@ Why would Route 333 have cared to warn me off unless there was something to warn
 The road tried to stop me from helping Tiff because there was, in fact, a way to do so, and I was close.
 
  It [was afraid](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/).
+
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1nswm42/im_a_trucker_on_a_highway_that_doesnt_exist_i/)
