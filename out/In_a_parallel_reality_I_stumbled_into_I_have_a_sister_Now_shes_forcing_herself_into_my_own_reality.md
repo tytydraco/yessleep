@@ -1,3 +1,7 @@
+[**Part 2**](https://www.reddit.com/r/nosleep/comments/1nsly0r/in_a_parallel_reality_i_stumbled_into_i_have_a/)
+
+**Part 1**
+
 Keeping a diary was something I’ve always done when I was a kid. Maybe the hobby started when my mother gave me my first diary and I was bored at that time. It was solid magenta with a large clasp that kept it closed even when I stuffed it with random drawings I made. At some point, Mom realized the diary and some art supplies kept me occupied and out of trouble when she went out to work her second job at nights. So, she made it a tradition to give me a new diary as a present for my birthdays. And it became my mission to fill them up with entries before the next celebration. The tradition lasted until she passed away just before I graduated high school. But I revived the tradition when I was a sophomore in college, using the money she left for me. 
 
 I’m sorry. You might think I’m jabbering about something trivial. But my diaries and how I started to routinely and unceasingly write in them has a reason behind them. And it’s also the reason why I’ve chosen to write my last entries here on this website. 
@@ -235,5 +239,3 @@ But that relief was gone when another thing was misplaced, or more appropriately
 The stool. It was never there before. It was certainly not there all day yesterday. But I, frozen in fear, saw that it was right where Casey placed them when she talked to me. 
 
 And another thing: it felt warm. Like someone had just been sitting there for a while. 
-
-(Part 2 soon?)
