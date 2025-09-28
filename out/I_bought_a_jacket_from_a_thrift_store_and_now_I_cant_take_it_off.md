@@ -24,7 +24,7 @@ Shit—
 
 I think the jacket just got a little tighter. Brad was sleeping next to me last night and he isn't here now. I tried calling him— I'm just gonna get to the point—
 
-So later that night, I wanted to show Brad the jacket. I told him I had a surprise for him. He became curious. I hopped off the bed and told him to close his eyes "Hands over your eyes, please." I said. 
+So later that night, I wanted to show Brad the jacket. I told him I had a surprise for him. He became curious. I hopped off the bed and told him to close his eyes "Hands over your eyes, please." I said.
 
 I went into my closet and slipped on the jacket. It felt different now. Heavier. Like a weight pressing down on my shoulders, constricting around my ribs. I walked to the foot of the bed. Something felt off about how I was moving, like I wasn't entirely in control. "You can open them."
 
@@ -97,3 +97,5 @@ Peaceful.
 Painless.
 
 Sleeeeeeeeeeeee—
+
+[Read Part 2 Here](https://www.reddit.com/r/nosleep/comments/1nsrue5/im_an_er_nurse_and_after_last_night_i_have_proof/)
