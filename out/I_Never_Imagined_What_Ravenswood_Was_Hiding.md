@@ -1,0 +1,26 @@
+The old mansion at Ravenswood had always been a place of whispers and shadows. Its towering spires and cracked windows seemed to beckon the curious and the brave, but those who ventured within rarely spoke of what they found. I was one of the few who dared to spend the last night there, and though I survived, the horrors I encountered still haunt me to this day.
+
+It was a stormy evening when my friends and I arrived at Ravenswood. The wind howled through the broken panes, and the rain lashed against the walls as if trying to tear the house apart. The air was thick with the scent of decay and dampness, and the floorboards creaked ominously beneath our feet. We had heard the stories, of course—the tales of a family who had vanished without a trace, of strange noises and ghostly apparitions. But we were young and foolish, convinced that we could uncover the truth behind the legends.
+
+We decided to explore the house room by room, starting with the grand hall. The chandelier above us swayed gently, casting eerie shadows on the walls. Dust motes danced in the dim light, and I couldn’t shake the feeling that we were being watched. My friends joked and laughed nervously, trying to mask their fear, but I could see the unease in their eyes.
+
+As we moved deeper into the mansion, the atmosphere grew more oppressive. We found ourselves in a dimly lit library, filled with ancient books and cobwebs. The shelves seemed to lean inwards, as if trying to trap us. I reached out to touch a book, and as my fingers brushed the spine, I felt a chill run down my spine. The book fell open to a page with a single sentence written in blood-red ink: “Beware the night.” I tried to laugh it off, but the words seemed to echo in my mind.
+
+The next room was even worse. It was a nursery, with a crib in the center and faded wallpaper peeling off the walls. Toys lay scattered across the floor, as if abandoned in haste. I could almost hear the cries of a baby, though I knew it was just my imagination playing tricks on me. But then, I heard it—a faint, high-pitched wail that seemed to come from nowhere and everywhere at once. My friends exchanged terrified glances, and we knew we had to leave.
+
+But the house had other plans. The door slammed shut behind us, and we were trapped. Panic set in as we tried to find another way out, but every door we opened led to more darkness and more horrors. We found ourselves in a long, narrow hallway, with portraits lining the walls. The faces in the paintings seemed to follow us, their eyes filled with malice. I could feel their gazes boring into my back, and I knew we were not alone.
+
+Then, the worst part began. The walls started to close in on us, as if the house itself was alive and trying to crush us. We ran, stumbling and tripping over the uneven floorboards. The air grew hotter and thicker, and I could feel the sweat trickling down my face. My friends were shouting, their voices blending into a chorus of terror. I could hear footsteps behind us, heavy and relentless, like something was chasing us through the darkness.
+
+We burst into a room at the end of the hallway, slamming the door shut behind us. It was a bedroom, with a large bed in the center. The sheets were twisted and stained, and I could see a figure lying beneath them. At first, I thought it was just a pile of clothes, but then the figure moved. It was a woman, her face pale and twisted in agony. She reached out to us, her fingers clawing at the air. “Help me,” she whispered, her voice barely audible. “They won’t let me go.”
+
+I wanted to help her, but I knew we had to escape. We pushed past her, but as we reached the door, it opened on its own. The thing that stood there was unlike anything I had ever seen. It was tall and gaunt, with skin that hung off its bones like tattered rags. Its eyes were hollow pits of darkness, and it reached out to us with skeletal fingers. We screamed and ran, but it was already too late.
+
+We found ourselves back in the grand hall, with the chandelier swaying violently above us. The wind had picked up, and the rain was pouring in through the broken windows. The house seemed to be collapsing around us, and I knew we had to get out. But as we reached the front door, it slammed shut, trapping us inside. The thing from the hallway was there, standing in front of us, its eyes glowing with an unnatural light.
+
+In that moment, I knew we were lost. The house had claimed us, and there was no escape. We huddled together, our screams lost in the howling wind. The last thing I remember is the thing reaching out to us, its fingers cold and unyielding. And then, everything went black.
+
+I don’t know how long I lay there, but when I woke up, I was outside the mansion. My friends were gone, and I was alone. The house was still standing, but it felt different, as if it had finally gotten what it wanted. I never went back, and I never spoke of what happened that night. But the horrors of Ravenswood will never leave me, and I know that the house is still waiting, hungry for more souls to claim. 
+
+For those who want to hear the full terror of that night in Ravenswood, I recorded a narration with chilling sounds: [Listen to the story](https://youtu.be/FOj6lfrXRU0)
+
