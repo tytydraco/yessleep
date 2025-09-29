@@ -36,4 +36,4 @@ It all started with that damned earthquake, I know that now, before, I might hav
 
 “You’ve been staring at nothing in particular and your eyes are glassy, they have this distant quality to them.” She remarked. The thoughts of these past events have been distracting me greatly, and I am going to put an end to it! I’ve finally decided, with a lot of courage and commitment, that I’m gonna find out what the bloody hell happened to Matt…
 
-A link to part 2 will show up here when it is released: [https://www.reddit.com/r/nosleep/comments/1ntca27/something\_happened\_to\_my\_childhood\_mate\_matt\_and/](https://www.reddit.com/r/nosleep/comments/1ntca27/something_happened_to_my_childhood_mate_matt_and/)
+A link to part 2 will show up here when it is released: 
