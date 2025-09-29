@@ -327,3 +327,5 @@ I didn’t disturb her. I didn’t break her peace. Instead, I just held her as 
 I shut my eyes tight to squeeze the tears free, then wrapped my arms tighter, hoping to still feel something there. My arms passed clean through the light, dispelling it into a haze that surrounded me before I felt my lungs tighten.
 
 I took a deep, labored breath, the light moved into me, then, just like that, June was gone, the only remaining things being the clothes she was wearing in a pile of black sand.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1nt3mvh/im_trapped_on_the_edge_of_an_abyss_but_i_think_im/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
