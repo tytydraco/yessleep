@@ -30,7 +30,7 @@ Maybe that’s just me. I had no family or friends in California. I rarely watch
 
 *Whoops.*
 
-\*\*\*
+**\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
 
 Over the next week, Randall and I settled into a tentative sort of…*truce,* shall we say?
 
