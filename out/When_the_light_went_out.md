@@ -1,0 +1,67 @@
+Previous part https://www.reddit.com/r/nosleep/s/kiPjZ3nsJY
+
+What do you do when the power goes out? Do you light candles? Get out your flashlights and dig into the ice cream before it starts to melt?  
+
+What about when you're the last person on earth? When you know for an absolute fact that no one is coming to turn the lights back on. What would you do then? 
+
+ 
+
+It had been a little over a full day since my encounter with the thing that looked like a man. My arm still seeped blood from the bite wound when I stretched but it showed no signs of infection. “Small victories” I thought. I had majorly slowed down on drinking for the time being, only needing a small drink from time to time just to keep the shakes away. I told myself I would have no more blacked out nights, at least not with that thing creeping about. 
+
+It was around 7:30 in the evening and I had just thrown a pizza in the oven. I flopped down on the couch just as Indy was preparing to use the staff of Ra to reveal the location of the ark. I had eased some of my crippling depression by diving back into some of my favorite movies. 
+
+Thunder rumbled loudly as the dark clouds that had been forming in the east rolled in. I had the thought as the storm approached, with no more news channels covering the weather, how will I know if I need to head for the cellar? (Not that I had a cellar. We always used our neighbors.) I mean, I live in central Oklahoma, we have pretty severe tornadoes all the time. 
+
+My eyes caught a flash of movement from between the partially open curtains. I snatched up the remote and turned off the tv before grabbing my rifle and jumping to my feet. I crouched low and made my way to the front room window, my heart pounding like a drum. I carefully pulled open the curtain and scanned the surrounding area. Aside from a stiff breeze blowing the branches of the solitary oak on my front lawn, there was no movement. I pushed the curtain back into place and went to check the back window. Still, I saw nothing. Maybe the solitude and the paranoia were getting to me. I sighed, “Jumping at shadows” I told myself. 
+
+I flinched back as a lightning flash lit up the sky, nearly as bright as full daylight, and the house shook under the force of the thunderclap. In the same moment all of the lights in the house went out.  
+
+“Well, fuck.” I breathed. I know I should have been prepared for this; it was going to happen eventually. But as usual, I found myself up shit creek without a paddle. I glanced at the freezer; all of my perishable food would be thawing soon. Then to the oven, the electric oven. I was not only without a paddle, my damn boat was sinking too. 
+
+As I sat there in the dim candlelight, eating my half-frozen pizza, I debated what I should do now. I could survive if I had enough nonperishable foods. I knew there would be plenty at the stores, not like there was a high demand right now. I had some candles and could get more but it was already early fall, I wasn't sure how I would stay warm through the winter.  
+
+I had just decided that I would head to the hardware store in the morning and grab a couple generators and electric heaters, when my eyes happened to catch something at the back window. There were two, dim, shining lights at the window. I stated at them for a moment chewing my cold food, they looked like... “Shit!” I leapt up and grabbed my rifle. They were eyes, reflecting the candlelight. Something was peeking in my window. 
+
+As I got to my feet the eyes darted back into the darkness. But I wasn't going to let it get away. I grabbed my flashlight and a roll of duct tape. As quickly as I could I wrapped the tape around and around, fixing the flashlight to the rifle barrel.  
+
+Flicking off the safety, I carefully pulled open the back door and shined my light out into the yard. I couldn't see anything, I couldn't hear anything. So, I cautiously stepped out through the back door, scanning side to side, my finger on the trigger. Thunder boomed overhead as the first raindrops started to fall. As I searched for the big man, (I was sure it was him) I noticed something odd, there was a coppery smell in the air, and it seemed to be growing stronger. That was when I saw it. Scattered among the clear raindrops, there was something else. I held out my hand and watched in fear and confusion as several of the drops that filled my palm were thick and dark red. “Blood.” I thought, “It's raining blood.”  
+
+My eyes shot up as I heard a stick snap just ahead of me. I raised my rifle, shining the light through the growing curtain of red rain. My light couldn't reach the tree line from my back porch, but what I saw froze me in my tracks. There were eyes, more than a dozen sets, shining from within the woods. My heart was pounding as I began to slowly back towards the door.  
+
+Suddenly there was a scuffling sound from behind me, I whipped around to see an old woman in a nightgown crawling down my roof towards me. My knees felt weak at the sight of the hatred on her blood coated face but there was no time to hesitate. I raised the rifle and fired just as she leapt at me from the roof top. The round ripped through her chest but didn't slow her descent. She plowed into me, knocking me to the ground. As I struggled to get her off of me I could her a rush of movement from the things in the trees. With a rush of adrenaline, I threw the old woman's limp body off and dashed through the door, slamming it closed behind me.  
+
+I slid the deadbolt into place just as the feral people began pounding against the door, I braced my shoulder against it and screamed in fear and anger. They howled and grunted but somehow the door held and they eventually lost interest. 
+
+ I stepped over to the window and peaked out. There were fourteen of them. Apart from walking around on all fours and the animal look in their eyes, they were just people, men and women. From elderly to young adult, I didn't see any children though, I was grateful for that. I don't think I could have shot a kid, even if it was one of those things.  
+
+As I watched, the feral people began to gather around the old woman I had shot. I felt a pang of guilt when I saw her try to get up and fall, she was still alive. As she squirmed in pain, the others reached out for her. I imagined they would band together and carry her away, maybe try to nurse her back to health. But that wasn't what happened. I watched in horror as they all pounced on the wounded woman and began to eat her while she was still alive. I slumped to the floor and held my rifle tight to my chest as the old woman wailed and screamed. 
+
+ After an agonizingly long time, the wailing stopped. Replaced by the sound of wet chewing and the snap of bones. Thunder boomed overhead again, it was almost loud enough to drown out the sounds of the horrific feast taking place just outside my door... almost. Eventually, shock and exhaustion caught up with me, and I fell asleep, slumped against the door.  
+
+ A while later, I shot awake at the sound of breaking glass. I looked around the room but saw nothing. I was in the darkened back bedroom, still leaned against the back door. Candlelight flickered in the front room, casting moving shadows throughout the house. I held my breath and listened. For a moment there was silence, the feast had ended, and the rain had softened to a drizzle. Then I heard it, the sound of hushed movement. Soft steps on hardwood floor accompanied by the pitter patter of water or blood dripping onto the floor. 
+
+I carefully got to my feet and crept to the bedroom doorway, looking out into the house. It was him, the big man in the gray suit. He was drenched in blood, and his forehead was split and bruised from where I had hit him with the cast iron skillet. He was staring at the candle and hadn't noticed me yet. My heart pounded as I raised the rifle and placed the sights right between his eyes. I pulled the trigger... but nothing happened. I glanced down at the gun feeling betrayed by it. Only to realize that in my panic I had forgotten to work the lever, ejecting the spent casing and chambering a fresh round.  
+
+When I looked back up at the feral man, a jolt of fear shot through me. He was gone. Had he heard the misfire? Had he seen me? My heart jackhammered in my chest as I crept back into the room. I wanted to work the lever, to chamber a round but what if he hadn't heard me, he would certainly hear that. Fear paralyzed me with indecision. Then I heard more movement, there was another one inside. As quietly as I could I got down in the floor and crawled under the bed. I could hear them coming closer, sniffing and grunting to each other. I tried to control my breathing as one of them stepped through the bedroom doorway. I watched as the man thing crawled around sniffing the floor where I had been.   
+
+I held my rifle, as it sniffed its way towards the bed, praying I was quick enough to chamber a round and fire before it found me. All at once there came a crash from the front room.  the feral stopped its tracking of me and made its way back to where the commotion was.  
+
+I let out a small sigh of relief and peaked out from under the bed as the candlelight seemed to grow brighter. The two ferals began grunting and huffing, as if in a panic. Then I heard the sound of more glass breaking and grunts and huffs were gone. I crawled out from under the bed and looked in horror at the front room. Flames crawled up the side of the couch and across the floor as my shag rug went up like a bonfire. 
+
+“No! No! No!” I breathed as I ran into the room and began stomping at the flames. But it was no good. The fire was already getting out of control. I turned as I heard a snarl. The big feral was just outside the broken front window. I chambered a round and fired but the bastard was already moving, leaping through the window at me. I stepped back and worked the lever again, but he wouldn't hold still long enough for me to get a shot. I moved to keep the rug fire between us. We circled for a moment but then he leapt across the flames at me. I ducked to the side as he skidded across the hardwood floor and into the back bedroom. I jumped up and pulled the bedroom door shut, trapping him inside, at least for the moment.  
+
+I looked back at my house the flames had begun to catch on the walls, there was no way I'd be able to put it out, not now. I had to get out of there. I grabbed my keys off the hook and ran out the door as I left my house to burn. Luckily there were no more ferals nearby, though I could hear them coming. I leapt into my truck and floored it through the neighborhood. I watched in the rearview as the home Jen and I had lived in together went up in a blaze. My only consolation was that maybe the big feral would burn up with it. 
+
+ 
+
+I had to pull over when I was only few miles out of town. My hands were shaking so bad I couldn't keep the wheel straight and I was beginning to hyperventilate. It was gone; everything was gone. My home, my food, water, clothes, spare ammo for the rifle. I had lost everything. I know it can all be replaced, now more easily than ever. But it wasn't about that. With everyone I knew now gone, with all that I had lost, those little things in our house had reminded me of all of the best times in my life. All of our photo albums, Jens clothes, all of the little everyday things that you never even consider until they are gone. They were all just ash on the wind. 
+
+God, I needed a drink. I glanced over at the rifle on the seat next to me, “or maybe just a shot.” I tried to laugh through the tears at my own grim joke, but I just couldn't find any humor in it. I glanced at the rifle again, it's dark promise of release hung heave in the air, as heavy as the coppery stench from the rain. What was I fighting for anyway? Why go on living like this? What was the point? I either live a long, lonely life and die alone of either sickness, exposure or starvation. Or maybe I would be ripped to shreds and eaten by those things. I had three rounds left. Either nowhere near enough, or two more than I needed... Bad thoughts to be having, alone in the dark.  
+
+After a long while, I stepped out of the truck. Grasping the rifle with trembling hands. I knelt down on the dark blood coated pavement and placed the rifle barrel under my chin. I took great care to position it correctly; I didn't want to screw this up. I reached down, flicking off the safety and placing my finger across the trigger.  
+
+One little squeeze, that's all it would take. A micro flex of my finger and all of my worries would be gone. I could do it... I could do it...  
+
+I gritted my teeth and... Why couldn't I do it? It would be so easy, but I just couldn't. I slumped back against the side of my truck, the gun clattering to the ground. I sat there, breathing hard, sobbing for... I'm not sure how long.  
+
+I had chosen life, whatever that meant now. So, with great reluctance, I climbed to my feet, picked up my rifle and climbed into my truck. I removed my phone from my pocket and looked at the screen saver, at her smiling face. For some reason, in that dark moment, I smiled back. With my choice made, for now at least, I set off to find my new home.  
