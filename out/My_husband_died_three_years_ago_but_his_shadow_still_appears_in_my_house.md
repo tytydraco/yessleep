@@ -78,4 +78,4 @@ I rushed to cut the rope, but it was too late. So I called 911, grabbed my thing
 
 Mom was happy to see me but confused by the terror on my face. Two days have passed and I’ve barely eaten a thing.
 
-She must be wondering why I can’t find any words to explain what happened, and especially why every night I refuse to turn on any light in the house. 
+She must be wondering why I can’t find any words to explain what happened, and especially why every night I refuse to turn on any [light in the house.](https://www.reddit.com/u/Accomplished_Low7889/s/M2gfM4b1Qm). 

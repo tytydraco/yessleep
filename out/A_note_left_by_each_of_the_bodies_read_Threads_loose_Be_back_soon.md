@@ -50,7 +50,7 @@ I eased into that deathtrap of a chair. For a moment, he just stared at me, elbo
 
 The detective tore three sheets from a nearby file.
 
-*“Here’s the rub, Vivian: as far as we can tell, these victims never interacted with each other; not in any meaningful way, and yet, they all left one of these behind in their wake.”*
+*“Here’s the rub, Vivian: as far as we can tell, these victims never interacted with each other - not in any meaningful way - and yet, they all left one of these behind in their wake.”*
 
 He handed me three black-and-white photographs, each centered on three differently shaped scraps of paper, each featuring the same five words:
 
@@ -98,7 +98,7 @@ My pulse quickened. I felt the hard, gritty friction of grinding teeth and the b
 
 *“Sir - Detective Ambrose - with all due respect, I’ve worked hand-in-hand with your department for decades. It hasn’t always been a perfectly amicable relationship, but not once has a detective outright refused to give me pertinent information.”*
 
-***“That’s out of your scope, Vivian.*****”** He repeated himself, but much louder, over-enunciating each syllable, giving the statement an almost concussive quality - a series of rapid punches aimed at my torso. Despite the shouting, that impish smirk never left his face. He bellowed straight through the smile like it wasn’t even there.
+***“That’s out of your scope, Vivian.*****”** He repeated, but much louder, over-enunciating each syllable, giving the statement an almost concussive quality - a series of rapid punches aimed at my torso. Despite the shouting, that impish smirk never left his face. He bellowed straight through the smile like it wasn’t even there.
 
 The outburst left me slack-jawed. My head swiveled, peering down the hall, looking for someone to act as an impromptu referee for this bizarre interaction, to no avail. Ambrose’s office was in the station’s sublevel. Foot traffic was minimal.
 
@@ -109,6 +109,8 @@ When I looked back, he was *waving* at me. A stiff and exaggerated *bon voyage* 
 My blood cooled. My rage wilted. I jogged off without responding, manila folder of documents tightly in hand. Knowing I had some work to sink my teeth into when I got home was the sole saving grace of the whole damn ordeal.
 
 I paced towards the elevator. My eyes kept darting over my shoulder, half expecting to catch Ambrose in hot pursuit. He never was. Instead, I saw an elderly woman with thick bottle-cap glasses and a warm grin exiting one of the other offices. She implored me to hold the elevator as she shuffled rigidly across the sublevel’s tile flooring, so I stuck my hand over the sensor. The woman entered, thanked me, and we were finally on our way.
+
+- - - - -
 
 As I flung my car door shut, I wanted nothing more than to brush it off. Unfortunately, mental rumination is my god given talent. If dwelling were a sport, I’d be an Olympian. If perseveration could be monetized, I would have retired in the 80s a billionaire.
 
@@ -248,7 +250,7 @@ A quiet, lawless tapping. A thousand fingernails clicking against marble - manic
 
 Up, across, down.
 
-The anarchic noise got louder. A riot filled my ears, no room for anything else. The sound was like a chest-high wave of centipedes was advancing towards me, tethered hides futilely knocking into each other as they desperately tried to untangle themselves, tapping, tapping, tapping.
+The anarchic noise got louder. A riot filled my ears, no room for anything else. The sound was like a chest-high wave of centipedes advancing towards me, tethered hides futilely knocking into each other as they desperately tried to untangle themselves, tapping, tapping, tapping.
 
 Up, across, down.
 
