@@ -128,8 +128,6 @@ Two hours in, he made the observation that should have sent us back.
 
 "What do you mean?"
 
-"What do you mean?"
-
 "No bats. No bugs. Nothing." His light swept the ceiling and walls. "Every cave should have bats at least. Spiders, crickets, something. But look—nothing."
 
 I stopped and looked. He was right. The place was sterile. No cobwebs, no droppings, no life. Even the puddles were clear and still, with none of the algae you’d expect.
