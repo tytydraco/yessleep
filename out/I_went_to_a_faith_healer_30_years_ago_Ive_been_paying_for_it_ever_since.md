@@ -704,4 +704,4 @@ And just like that, I was onstage.
 
 
 
-\[Part 2\](https://www.reddit.com/user/Dopabeane/comments/1krawid/fuck\_hipaa\_my\_new\_patient\_is\_my\_priest\_2/)
+[Part 2](https://www.reddit.com/user/Dopabeane/comments/1krawid/fuck\_hipaa\_my\_new\_patient\_is\_my\_priest\_2)
