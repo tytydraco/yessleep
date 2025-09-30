@@ -52,7 +52,7 @@ And all of that was just getting them off. Slipping into June’s clothes was a 
 
 I prayed that it was all going to be worth the effort.
 
-With limbs like Jell-O, I grasped the wall and wobbled to my feet, pulling the key from my mouth and tearing the chain loose. On my broken leg, June had an extra pocket on her calf, so I reached over and slipped the key inside. It was too chunky to fit in my boot, or hide in my mouth. If June patted me down, hopefully the mushy limb would be enough of a deterrent.
+With limbs like Jell-O, I grasped the wall and wobbled to my feet, pulling the key from my mouth and tearing the chain loose. On my broken leg, June had an extra pocket on her calf, so I reached over and slipped the key inside. It was too chunky to fit in my boot, or hide in my mouth. If Ann patted me down, hopefully the mushy limb would be enough of a deterrent.
 
 Before I left the area, I took one last look at the pile of black sand, then at my dead man’s jacket on the ground that I’d worn since the first day I’d arrived. The one that a monster so graciously gifted me with from its previous victim. I hoped that there was some sort of symbolism in me leaving it behind.
 

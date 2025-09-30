@@ -86,7 +86,7 @@ It was a Catholic hospice. Most of the nurses were nuns, and the administrator w
 
 Finally, the nurse called us back.
 
-She made us wait in the hall while she gave us the most depressing rundown I’ve ever heard: \*He’s out of it because of painkillers. He won’t be awake for long. His skin integrity is failing, so he’s bleeding a lot, so you’re not allowed to touch him. Even if he asks, even if he cries, you’re not allowed to touch him.\*
+She made us wait in the hall while she gave us the most depressing rundown I’ve ever heard: *He’s out of it because of painkillers. He won’t be awake for long. His skin integrity is failing, so he’s bleeding a lot, so you’re not allowed to touch him. Even if he asks, even if he cries, you’re not allowed to touch him.*
 
 When we finally got to see him, my mom burst into tears and I came close.
 
@@ -118,7 +118,7 @@ It had no meaning at all.
 
 None.
 
-\*That’s\* why none of this — not my family’s change of heart, not our reunion, not even my brother dying before my eyes — felt real to me. Why I felt like it wasn’t part of my life or my story:
+*That’s* why none of this — not my family’s change of heart, not our reunion, not even my brother dying before my eyes — felt real to me. Why I felt like it wasn’t part of my life or my story:
 
 Because it had no point.
 
@@ -128,7 +128,7 @@ So why didn’t we?
 
 Why did we abandon Matt in the first place? Why did we vanish him? Why did we make sure we lost him?
 
-\*What had been the point?\*
+*What had been the point?*
 
 All those years — that entire lifetime — were gone. Matt’s life was over. The lost time could never be found, our relationship could never be repaired, our abandonment could be undone or overcome or fixed.
 
@@ -254,7 +254,7 @@ Right up until CJ got swept up in Reverend More’s congregation.
 
 But I’ll get to that.
 
-Once Reese vouched for me, the people who trusted her learned to trust me too. The more they trusted me, the more \*Reese\* trusted me. It was a positive feedback loop that fostered a genuine friendship.
+Once Reese vouched for me, the people who trusted her learned to trust me too. The more they trusted me, the more *Reese* trusted me. It was a positive feedback loop that fostered a genuine friendship.
 
 As that friendship blossomed, she began to confide in me.
 
@@ -262,7 +262,7 @@ Everything she told me was tragic, made all the more so by the matter-of-fact wa
 
 Talk about pointlessness.
 
-Reese actually \*did\* talk about pointlessness a lot. She was consumed with the concept of it, just like me. She said \*I’m pointless\* even more often than I thought it.
+Reese actually *did* talk about pointlessness a lot. She was consumed with the concept of it, just like me. She said *I’m pointless* even more often than I thought it.
 
 “That’s not true,” I said one day. “You’ve got CJ.”
 
@@ -314,7 +314,7 @@ We were working side by side with people from all kinds of programs. We’re tal
 
 But not all of them.
 
-You have to understand that marginalized people are targets. Socially, politically, religiously, economically, even personally — everyone wants something from the marginalized individual, even if that something is as simple as \*Go away\*. Thankfully, none of the outreach places wanted that.
+You have to understand that marginalized people are targets. Socially, politically, religiously, economically, even personally — everyone wants something from the marginalized individual, even if that something is as simple as *Go away*. Thankfully, none of the outreach places wanted that.
 
 Unfortunately, a lot of them wanted much more.
 
@@ -360,13 +360,13 @@ From what I could tell, these rings of light represented the worshippers’ ailm
 
 Once she wove a ring, she presented it to Reverend More, who made a huge production of blessing it before throwing it into a ceramic trash can etched with bizarre symbols.
 
-The crowd loved it. They loved her. They loved \*him\*. I’ve never seen anyone or anything — not any other preacher, not a musician, not a celebrity, not God himself — inspire half the adoration as Reverend More.
+The crowd loved it. They loved her. They loved *him*. I’ve never seen anyone or anything — not any other preacher, not a musician, not a celebrity, not God himself — inspire half the adoration as Reverend More.
 
-But something about him felt incredibly wrong to me. I’ve never seen or felt anything that unsettled my spirit so thoroughly. I felt not only frightened but \*corrupt\* just by being close to him.
+But something about him felt incredibly wrong to me. I’ve never seen or felt anything that unsettled my spirit so thoroughly. I felt not only frightened but *corrupt* just by being close to him.
 
 But as far as I could tell, I was the only one.
 
-Like I said, people adored Reverend More, especially the people I worked with. \*My\* people. I didn’t understand it. It had taken me months to earn their trust, and for good reason. Like I said, charities are rife with wolves, and anyone with half a brain will treat you like a wolf until you prove you’re a lamb.
+Like I said, people adored Reverend More, especially the people I worked with. *My* people. I didn’t understand it. It had taken me months to earn their trust, and for good reason. Like I said, charities are rife with wolves, and anyone with half a brain will treat you like a wolf until you prove you’re a lamb.
 
 I was jealous that no one applied that same standard to Reverend More. Jealous, and bitter too.
 
@@ -386,7 +386,7 @@ Reverend More’s pretty healer.
 
 “Chellie,” Reese said. “Pardon me, darling, but where the fuck have you been?”
 
-I choked on my burger. \*This\* was Chellie? \*Reverend More’s assistant\* was Reese’s girlfriend? Reese’s \*girlfriend? Reese’s\* girlfriend?
+I choked on my burger. *This* was Chellie? *Reverend More’s assistant* was Reese’s girlfriend? Reese’s *girlfriend? Reese’s* girlfriend?
 
 Chellie tossed a ziplock bag at Reese — more of those cookies, from what I could see — then plopped down on the grass between us. “Don’t be a jerk. CJ misses you. So do I.”
 
@@ -498,7 +498,7 @@ I couldn’t quite meet her eyes. “Still, I’m sorry.”
 
 I took a seat.
 
-“Now listen. Someday, probably soon — based on tonight, \*very\* soon — Chellie’s going to ask you to help me.”
+“Now listen. Someday, probably soon — based on tonight, *very* soon — Chellie’s going to ask you to help me.”
 
 “I’ll always help you, Reese. You know that.”
 
@@ -532,7 +532,7 @@ She cut off.
 
 “And?” I prompted.
 
-She smiled. “Now you’re going to think \*I’m\* crazy.”
+She smiled. “Now you’re going to think *I’m* crazy.”
 
 “You probably are. I bet it’s why the two of you are a match.”
 
@@ -554,11 +554,11 @@ Her face darkened so abruptly I got chills.
 
 “She’s a miracle worker. She heals people.”
 
-“So she’s \*actually\* a faith healer? Like at More’s church?”
+“So she’s *actually* a faith healer? Like at More’s church?”
 
 “No. Whatever Reverend More has her doing in that church is fake.”
 
-“Okay, but…if she \*can\* heal people, then why would the church-healing be fake?”
+“Okay, but…if she *can* heal people, then why would the church-healing be fake?”
 
 “Because I’ve seen her heal people, and I know for a fact that it hurts her.”
 
@@ -580,9 +580,9 @@ She heaved a sigh, then ate another cookie. “Kind of. There’s a little more 
 
 “If she does,” I said.
 
-“\*If\* she does. And i\*f\* she does, you tell her no. No matter what. I don't want help from her, I don’t want help from fake demons or real ones, and I don’t want help from Reverend More.”
+“*If* she does. And *if* she does, you tell her no. No matter what. I don't want help from her, I don’t want help from fake demons or real ones, and I don’t want help from Reverend More.”
 
-That conversation should have done something to diminish my feelings for Chellie, but it just ramped them up. For her \*and\* for Reese.
+That conversation should have done something to diminish my feelings for Chellie, but it just ramped them up. For her *and* for Reese.
 
 And in some ways, I didn’t think Chellie was all that crazy.
 
@@ -608,7 +608,7 @@ Without her, Reese faded fast. We’re not talking months or even weeks. We’re
 
 It was my worst nightmare come true, and I didn’t know what to do.
 
-I was terrified, heartbroken, and above all jealous. It’s sick, but true. I was \*jealous\* that I wasn’t enough for Reese. That she didn’t love me enough or even like me enough to consider, just for a second, that I could make her life worth living.
+I was terrified, heartbroken, and above all jealous. It’s sick, but true. I was *jealous* that I wasn’t enough for Reese. That she didn’t love me enough or even like me enough to consider, just for a second, that I could make her life worth living.
 
 And I guess she was right. I couldn’t do that for her. Only Chellie could.
 
@@ -674,13 +674,13 @@ They went even more feral when Reverend More started inviting worshippers onstag
 
 Chellie laid hands on them one by one. Every time, light rose from their bodies like steam and coalesced into rings that Reverend More blessed before tossing away.
 
-But \*why\*?
+But *why*?
 
 If a ring of light had visibly healed Eeyore, then the light was the source of the healing.
 
-So why was he pulling light \*out\* of people instead of putting it \*in\*?
+So why was he pulling light *out* of people instead of putting it *in*?
 
-And why didn’t anyone seem to \*notice\*?
+And why didn’t anyone seem to *notice*?
 
 Reverend More must have called fifty people to that stage, maybe more. Enough that I lost count. Enough that even I got swept away in the wild joy of the congregation. It felt like I was in a dream. Like nothing was real, and never had been.
 

@@ -1,3 +1,7 @@
+*NSFW* : Discussion of suicide.
+
+- - - - -
+
 Three deaths.
 
 One after the other, each separated by exactly one week’s time, and the circumstances were bafflingly similar. Nearly identical, actually.
