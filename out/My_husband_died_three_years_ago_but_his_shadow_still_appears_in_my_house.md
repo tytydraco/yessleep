@@ -60,7 +60,7 @@ Adam’s expression shifted from doubt to pity. I don’t know if he believed th
 
 I hesitated but agreed. My closest family lived three hundred miles away and there was no way I was sleeping in my house.
 
-He was very kind. We ordered Chinese and watched a movie on opposite ends of the couch. I wondered if this was what normal couples were like.
+He was very kind and respectful. We ordered Chinese and watched a movie on opposite ends of the couch. I wondered if this was what normal couples were like.
 
 Later I said good night and went straight to my room where exhaustion hit me and I practically passed out on the bed.
 
