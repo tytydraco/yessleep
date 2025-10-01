@@ -98,13 +98,13 @@ My friends were already waiting by the bike racks, kicking at gravel, huddled in
 
 Ricky smirked. “At least you guys just got punished. My dad gave me the sermon. Hour-long lecture about responsibility, about being a man, about ‘honor.’ I’d rather he just beat me and get it over with.”
 
-I shrugged, forcing my voice to sound casual. “Yeah. Same here. My old man… you know.”
+I shrugged, forcing my voice to sound casual. “Yeah. Same here. My old man… You know.”
 
 They did know. I never had to explain. The subject dropped, like it always did.
 
 The day rolled on in the dull rhythm of Blackwood High. Math, history, English — all taught in classrooms that smelled faintly of chalk and seawater. The paint on the walls peeled like sunburnt skin. The clocks ticked louder than the teachers spoke.
 
-Tommy got caught doodling rocket ships again and had to stay after class. Vince nearly started a fight with a sophomore over a bent quarter for the soda machine. Ricky fell asleep in study hall, head tipped back, mouth open like he’d given up on pretending. And me? I laughed at their jokes. I nodded along. I tried to be present.
+Tommy got caught doodling rocket ships again and had to stay after class. Vince nearly started a fight with a sophomore over a bent quarter for the soda machine. Ricky fell asleep in the study hall, head tipped back, mouth open like he’d given up on pretending. And me? I laughed at their jokes. I nodded along. I tried to be present.
 
 But underneath it all, something was gnawing at the back of my mind.
 
@@ -150,11 +150,11 @@ The voice wasn’t louder this time. It was clearer.
 
 And I knew, with the certainty of a nightmare you can’t shake, that I wasn’t leaving the library until I found it.
 
-The library looked different at night. During the day, it was a sad, aging building — yellowed windows, a leaky roof, the kind of place teachers forced you to visit for book reports. But now, in the wash of moonlight, it seemed older, almost ancient, like it had been here long before the town itself.
+The library looked different at night. During the day it was a sad, aging building — yellowed windows, a leaky roof, the kind of place teachers forced you to visit for book reports. But now, in the wash of moonlight, it seemed older, almost ancient, like it had been here long before the town itself.
 
 Shadows stretched across the carpet, long and warped. The air was damp, thick with the scent of salt and rot, as though the sea had crept in and settled among the shelves.
 
-My shoes crunched over broken glass as I moved, every sound too loud, bouncing off the high ceiling. I didn’t dare breathe too heavily. My cuts stung with every step, warm blood soaking through my shirt.
+My shoes crunched over broken glass as I moved, every sound too loud, bouncing off the high ceiling. I didn’t dare breathe too heavy. My cuts stung with every step, warm blood soaking through my shirt.
 
 And underneath it all, the whisper.
 
@@ -188,7 +188,7 @@ My chest tightened. The whisper surged, flooding my head until it was all I coul
 
 bottom row… bottom row… bottom row…
 
-I knelt, my knees popping against the thin carpet. The bottom shelf sat half in shadow, the wood warped and soft from water damage. Most of the books there looked ruined — swollen, mold-eaten, their pages fused together.
+I knelt, my knees popping against the thin carpet. The bottom shelf sat half in shadow, the wood warped and soft from water damage. Most of the books there looked ruined — swollen, mold-eaten, their pages fused.
 
 But one… one was different.
 
@@ -261,3 +261,113 @@ OPEN IT.
 The sound wasn’t outside. It was inside. Rattling through my skull, pressing against my teeth, vibrating down my spine.
 
 I froze, paralyzed between terror and inevitability, staring at the unmarked cover, knowing that once I did, there would be no going back.
+
+My thumb slipped under the cover, and for a heartbeat I swore the leather pulsed — not like dead hide, but like something still living. Still breathing. I almost tore my hand back, but the whisper hooked into me, pulling me down.
+
+*Open it.*
+
+The cover peeled back with a faint, wet crackle, like skin tearing from scabs.
+
+The first page was blank. Yellowed, spotted with mold. I turned another. Blank again. My breath came short. Ten, twelve pages in — still empty.
+
+Then the ink appeared.
+
+Thin, black strokes spidered across the page in lines and curves too sharp, too fluid. They weren’t words, not in any language I knew. Not English, not Spanish, not even the Latin phrases priests sometimes muttered when they visited our school. These shapes bent in ways that made my eyes water. Some jagged as broken bones. Others coiled like worms gnawing through the paper itself.
+
+I couldn’t read it, but I *understood* something all the same.
+
+And that’s when the room shifted.
+
+The air grew heavy, thick with pressure, like the deep ocean had folded itself around me. My ears popped. My vision warped, colors leeching until only black and white remained. My stomach clenched, a rope twisting my guts tighter and tighter.
+
+Then the nausea hit.
+
+My throat filled with rot. I gagged, slammed to my hands and knees, and vomited violently. What came up was thin, yellow sludge, steaming as it hit the carpet. It reeked of sulfur, a rancid egg-stink that clawed at my sinuses and made my eyes burn.
+
+I kept retching long after my stomach emptied, each heave wracking my chest, until finally I collapsed, face sinking into the foul puddle.
+
+The moment my cheek touched it, the darkness rushed in.
+
+When I woke, I was in my bed.
+
+Sunlight pressed against the curtains, pale and thin. My sheets clung damp to my skin. For a moment I thought I had dreamed it, that I’d never left my house, never opened the book.
+
+Then I felt the weight in my hand.
+
+I looked down.
+
+The book lay against my chest, my fingers locked in a death-grip around its spine. The leather was slick and clammy, colder than the air. My knuckles ached as I pried them loose, one by one, until the thing thudded onto the sheets beside me.
+
+But that wasn’t the worst part.
+
+Across the fabric of my shirt, smeared over my chest and stomach, were black marks. Symbols. The same jagged curves and crooked hooks from the book’s pages, written in ink that hadn’t been there the night before. They shimmered faintly, as though wet, and when I leaned close, I could smell the same sulfur stink rising from them.
+
+I tore the shirt off and hurled it across the room. It landed in a heap, but the marks didn’t fade. They seemed to pulse faintly in the sunlight, like embers that refused to die.
+
+I pressed a hand to my bare chest. The skin underneath was hot, raw, as if the symbols had burned straight through the cloth into me.
+
+The book sat perfectly still beside me, its cover blank, its spine unmarked.
+
+But I knew — with a certainty that hollowed me out — that it had branded me. That whatever had whispered from its pages had seeped through my eyes, my veins, my bones.
+
+And though the house was empty, though the morning air was still, I swear I could feel it.
+
+Something breathing.
+
+Not around me.
+
+*Inside me.*
+
+The next day stretched on like a dream folded wrong. Every hallway, every classroom, every locker-lined corridor felt thicker, heavier, as if the air itself had weight. I could feel it pressing down on my shoulders, tightening around my ribs.
+
+The staring began immediately, subtle at first. I’d glance up from my notebook or lift my eyes in the hall, and nothing seemed unusual. A friend passing, a teacher at the board, a classmate laughing at a joke — normal. But the moment I looked away, the weight of awareness returned.
+
+Eyes. Always eyes. Watching me when I wasn’t looking.
+
+I could sense them in my peripheral vision, tracing me like invisible hands, waiting for me to turn my back. It didn’t matter where I was — the cafeteria, the gym hallway, even the stairwell. The sensation was omnipresent.
+
+By lunch, my skin itched with awareness. I sat with Vince, Tommy, and Ricky, trying to focus on fries that tasted like chalk, pretending the buzzing in my skull wasn’t there. Their chatter felt distant, as if the world around me had become a thin film separating me from reality.
+
+I laughed at a joke Vince made, but the sound didn’t match his mouth moving. I shook my head, trying to clear it.
+
+Then I noticed something.
+
+In the reflection of the metal water fountain near the gym, something moved behind me. I froze mid-step, throat tight. The warped silver surface showed… a face. Not Vince, not Tommy. Not human. Black eyes that filled the face, impossibly wide, with long gray hair spilling over shoulders too thin, and a smile stretched far beyond what any human mouth could hold. It was meant to be welcoming — warm — but every corner of it screamed wrong.
+
+I snapped my attention around.
+
+Vince was there, leaning lazily against the locker. Just Vince.
+
+“Whoa, man! You okay?” he said, voice tight with concern. “You look… pale.”
+
+I swallowed hard, fumbling for words. “Yeah. Fine. Just… tired, I guess.”
+
+He didn’t look convinced. “You’re shaking. Seriously, something’s wrong.”
+
+I forced a smile, messy and broken. “I’m fine. Really.”
+
+But the world wasn’t fine.
+
+Everywhere I went that afternoon, it was the same. The weight on my shoulders, the prickle at the back of my neck, the invisible stare. Even when friends were beside me, I felt the pull of unknown eyes digging into my back.
+
+And then I heard it.
+
+Not from anyone. Not from anywhere outside me.
+
+*Nephilim.*
+
+The word vibrated through my bones. I couldn’t localize it — not the room, not the lockers, not the ceiling. Just *inside*. The sound was impossible, resonant, like metal twisting under a black tide.
+
+I gasped, my stomach tightening, and my vision blurred. For a heartbeat, the hallways stretched, the walls bending, lockers twisting, the faces around me elongating, hollowing, eyes widening beyond humanity. Even Vince, walking beside me, seemed to flicker, as if his skin was a thin mask over something older, something wrong.
+
+I gripped the water fountain, letting the cold metal anchor me. My head spun. The word whispered again, not with sound, but with weight. *Nephilim.*
+
+I blinked, and the world snapped back. The lockers were straight, the faces normal, Vince was laughing at some joke Tommy made, entirely oblivious to the terror pressing against my mind.
+
+But I knew it hadn’t gone.
+
+I knew it would follow.
+
+All the eyes, all the watching, all the wrongness — it had a name now. *Nephilim.*
+
+And I understood, deep in a way I was not ready to understand, that I could not hide from it.
