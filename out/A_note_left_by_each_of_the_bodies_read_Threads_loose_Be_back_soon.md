@@ -507,3 +507,6 @@ The woman retrieved her cell phone, dialed, and placed it against her ear.
 I considered grabbing my lanyard and waving my ID in front of her face. Before I could, however, she said something that crushed me completely.
 
 *“Because, honey, that room is a* [*storage closet.”*](https://www.reddit.com/r/unalloyedsainttrina/comments/1j88zl3/welcome_to_a_very_chaotic_horror_subredditupdated/)
+
+- - - - -
+More to follow.

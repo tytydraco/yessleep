@@ -10,7 +10,7 @@ But lately, keeping quiet feels heavier than telling it. I’ve carried it long 
 
 ///
 
-“I feel like we should’ve packed warmer clothes. It’s freezing out here,” I muttered, wishing I had a jacket to wrap tight around me.
+[“I feel like we should’ve packed warmer clothes. It’s freezing out here,” I muttered, wishing I had a jacket to wrap tight around me.]()
 
 Just minutes ago, the weather had been sunny and pleasant. Then, without warning, a fog rolled in. Thick, heavy and swallowing the landscape whole. The temperature plummeted so fast it was like we’d stepped into another season. A fine mist clung to everything, beading on our hair, our clothes, the metal rail we perched on. The warmth was gone, replaced by a creeping cold that seemed to seep straight into my bones.
 
@@ -54,15 +54,15 @@ And with that, we set off down the tracks, into the fog, heading toward the town
 
 We kept walking for another twenty minutes, half of it in silence, half of it filled with the kind of useless bullshit we found entertaining.
 
-Grace and I had been friends for a few years. I still remember the first time I met her. We initially met in a film class at university during one of those mandatory group projects they assign. I remember Grace sitting across from me, her hair neatly pulled back, her dark fingers thoughtfully tapping her notebook. She considered every one of my thoughts with an intense focus that made me lose my train of thought. I've never been good at making friends and was at a total loss for words, but Grace always had a confident answer ready; she seemed to know what to say.
+Grace and I had been friends for a few years. I still remember the first time I met her. We initially met in a film class at university during one of those mandatory group projects they assign. We both picked the class as a random elective to add credits to our degrees. I was getting my bachelor’s in music at the time, and Grace was getting her master’s in psychology. I remember Grace sitting across from me, her hair neatly pulled back, her dark fingers thoughtfully tapping her notebook. She considered every one of my thoughts with an intense focus that made me lose my train of thought. I've never been good at making friends and was at a total loss for words, but Grace always had a confident answer ready; she seemed to know what to say.
 
 That first day, I asked her what her favourite movie was. It was supposed to be an icebreaker, but she didn’t answer right away. She tilted her head, like the question was more complicated than I’d meant it to be.
 
-“I don’t know, dude, that’s a hard question. Like, how could I even begin? All art is a conversation, and to say a film is better than another is to ignore that conversation entirely. Like how Michael Haneke’s *Funny Games* is a clear response to the 80s slasher craze, or how *Vertigo* twists the whole detective-thriller formula back on itself, y’know?”
+“I don’t know, dude, that’s a hard question. Like, how could I even begin? All art is a conversation, and to say a film is better than another is to ignore that conversation entirely. Like how Michael Haneke’s *Funny Games* is a clear response to the 80s slasher craze, or how *Vertigo* twists the whole detective-thriller formula, y’know?”
 
 I just stared at her for a second, dumbfounded. She’d always been smarter than me, or at least knew how to sound like it.
 
-She shrugged, as if aware she’d lost me. “But if I had to pick? Alejandro Jodorowsky’s *The Holy Mountain.*” A small smile tugged at her lips, half-proud, half-daring me to call her pretentious. “How about you?”
+She shrugged, as if aware she’d lost me. “But if I had to pick? Alejandro Jodorowsky’s *The Holy Mountain.*” A small smile tugged at her lips, daring me to call her pretentious. “How about you?”
 
 I cleared my throat, suddenly aware of how average I sounded next to her. “Uh… probably *Spider-Man 2.*”
 
@@ -158,7 +158,7 @@ The man jumped slightly, clearly startled. He looked up, his eyes wide behind hi
 
 "Who the hell are you guys?" he asked, his voice a tight coil of anger and confusion. "What are you doing here? Customers aren't supposed to be back here."
 
-We just stared at him, unable to form a coherent response. The sheer normalcy of the man was more unsettling than some faceless figure I’d conjured in my mind. He wore a simple button-up shirt and khakis, and the desk was littered with pens and half-empty coffee mugs. The only thing out of place was… us.
+We just stared at him, unable to form a coherent response. The sheer normalcy of the man was more unsettling than some faceless figure I’d conjured in my mind. He wore a simple button-up shirt and khakis, and the desk was littered with pens and half-empty coffee mugs. The only thing out of place was us.
 
 "We… uh… we just followed the stairs," Grace finally managed to stammer, her voice a reedy whisper.
 
@@ -274,7 +274,7 @@ Grace and I looked at each other for a few seconds, utter bewilderment and confu
 
 Before realising the mistake I had just made, Betty was already spouting off about the town history and how there used not to be a hotel, but now there is, and who owns it. In that verbal diarrhea, we did manage to hear the name.
 
-“…Friendly Pines Motel,” I repeated slowly, as if saying it aloud would help it make sense.
+“…**Friendly Pines Motel**,” I repeated slowly, as if saying it aloud would help it make sense.
 
 “Yes! That’s the one,” Betty said, nodding like she’d just handed us the map to paradise. “Very nice. Can’t miss it. Just down Main Street, past the church, turn left at the bank, you’ll see the sign, bright green, says ‘Friendly Pines’ in big, cheerful letters. Don’t worry, dear, you’ll be fine.”
 
@@ -334,11 +334,9 @@ Finally, Mr DuPont stopped in front of a door marked with a brass plaque that si
 
 “This is….” I started to say before being interrupted by, “I know, it’s a lot to take in.” Mr DuPont said, beaming with pride. “The best part is, it’s only $100 a night!” Grace gave me a quick look before asking, “Is there a possibility we could get two single beds in here?”
 
-DuPont looked at us very blankly and said, “No,” before quickly getting back in character. “Well, I’ll leave you to two settle in, I’ll just take your card, and I’ll charge you after your stay comes to an end.”
+DuPont looked at us very blankly and said, “No,” before quickly getting back in character. “Well, I’ll leave you two to settle in, I’ll just take your card, and I’ll charge you after your stay comes to an end.”
 
 That worked out conveniently for us.
-
- 
 
 Grace sat heavily on the sagging bed, which creaked ominously under her weight. She pulled her hair free from its tie, letting it fall around her face as she rubbed her temples "Marc, this is so fucked."
 
