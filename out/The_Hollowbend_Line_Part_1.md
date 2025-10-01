@@ -18,7 +18,7 @@ Just minutes ago, the weather had been sunny and pleasant. Then, without warning
 
 Grace shook her head slowly, unfazed. “Doubt it. These tracks haven’t seen a train in decades. The town they used to connect to was abandoned sometime in the ’90s. My dad said the whole place just sort of… died.”
 
-She fished a cigarette from the crumpled pack in her pocket and lit it with a practised flick. For a second, the lighter’s flame carved her face in sharp relief, highlighting her cheekbones, the slope of her nose, before it vanished again into the gloom. The ember glowed faintly at the tip as she drew in a breath, then dulled as she exhaled a soft stream of smoke that mingled with the mist.
+She fished a cigarette from the crumpled pack in her pocket and lit it with a practised flick. For a second, the lighter’s flame carved her face in sharp relief, highlighting her cheekbones, the slope of her nose, before it vanished again into the gloom. The warmth of the fire blends in with the natural caramel of her skin. The ember glowed faintly at the tip as she drew in a breath, then dulled as she exhaled a soft stream of smoke that mingled with the mist.
 
 I glanced around, trying to find some kind of landmark, something familiar. All I saw was fog. A faint hiss of drizzle met the gravel at our feet, and somewhere in the distance came a hollow echo, too far away to name, too close to ignore.
 
@@ -28,7 +28,7 @@ We sat in silence, the quiet stretching until it felt heavier than the fog itsel
 
 “I told you.” She exhaled another ribbon of smoke, her words drifting along with it. “My parents grew up there. They left just before things went bad. I just wanted to see my parents’ hometown.”
 
-I frowned. “Yeah, but why bring **me**?”
+I frowned. “Yeah, but why bring me?”
 
 “Because all my other friends are interstate. You’re the closest.” She said it flatly, firmly, like there was nothing more to explain.
 
@@ -54,7 +54,7 @@ And with that, we set off down the tracks, into the fog, heading toward the town
 
 We kept walking for another twenty minutes, half of it in silence, half of it filled with the kind of useless bullshit we found entertaining.
 
-Grace and I had been friends for a few years. I still remember the first time I met her. We initially met in a film class at university during one of those forced group projects they make you do. I don’t even remember what the project was about, but I remember the conversations we had. I’d never really been great at making friends, so I was at a loss for words, but she always seemed to know what to say, always had an answer ready.
+Grace and I had been friends for a few years. I still remember the first time I met her. We initially met in a film class at university during one of those mandatory group projects they assign. I remember Grace sitting across from me, her hair neatly pulled back, her dark fingers thoughtfully tapping her notebook. She considered every one of my thoughts with an intense focus that made me lose my train of thought. I've never been good at making friends and was at a total loss for words, but Grace always had a confident answer ready; she seemed to know what to say.
 
 That first day, I asked her what her favourite movie was. It was supposed to be an icebreaker, but she didn’t answer right away. She tilted her head, like the question was more complicated than I’d meant it to be.
 
@@ -62,15 +62,13 @@ That first day, I asked her what her favourite movie was. It was supposed to be 
 
 I just stared at her for a second, dumbfounded. She’d always been smarter than me, or at least knew how to sound like it.
 
-She shrugged, as if aware she’d lost me. “But if I had to pick? *The Holy Mountain.*” A small smile tugged at her lips, half-proud, half-daring me to call her pretentious. “How about you?”
+She shrugged, as if aware she’d lost me. “But if I had to pick? Alejandro Jodorowsky’s *The Holy Mountain.*” A small smile tugged at her lips, half-proud, half-daring me to call her pretentious. “How about you?”
 
 I cleared my throat, suddenly aware of how average I sounded next to her. “Uh… probably *Spider-Man 2.*”
 
-Her grin broke wide, and just like that, we’d talked for hours.
+Her grin broke wide, “*Spider-Man 2?”* she said in a cheeky tone, and just like that, we’d talked for hours.
 
-
-
-I found myself glancing sideways at her, that same grin flickering in my memory. Grace always had a way of making things bigger than they seemed. She
+Back in the fog, I found myself glancing sideways at her, that same grin flickering in my memory. Grace always had a way of making things bigger than they seemed. She
 
 “What do you think, uh, what’s the town called?” I stumbled
 
@@ -112,7 +110,11 @@ We edged toward the back. Each step stirred the silence, our shoes crunching on 
 
 Together, we rammed into the door with our shoulders, which tore the door off the wall.
 
+ 
+
 “What the fuck?”
+
+ 
 
 The manager’s office wasn’t an office at all. The room was bare. no desk, no shelves, not even dust. Just a single structure in the centre: three walls, a low roof, and a stairwell that descended into darkness.
 
@@ -121,6 +123,8 @@ The office was as large as the entire shopfront we’d just walked through. From
 Grace stepped forward, her voice hushed, almost reverent. “This… this isn’t possible.”
 
 I swallowed hard, staring at the stairwell. Grace took a step forward.
+
+ 
 
 “We shouldn’t-” I started, but she cut me off with a single look.
 
@@ -170,7 +174,7 @@ My stomach dropped. I turned to Grace, who looked pale, her face a mixture of di
 
 She cleared her throat. “Sir… what year is it?”
 
-He stared at her, a look of complete bewilderment on his face. "It's **1992**. October. Are you two alright? You seem a little out of sorts. Is the heat getting to you?"
+He stared at her, a look of complete bewilderment on his face. "It's 1992. October. Are you two alright? You seem a little out of sorts. Is the heat getting to you?"
 
 A cold, internal dread settled in the pit of my stomach. "No, we're fine, just a bit unsettled. We'll leave you in peace," I said, gently pushing Grace toward the door.
 
@@ -336,7 +340,7 @@ That worked out conveniently for us.
 
  
 
-Grace sat heavily on the sagging bed, which creaked ominously under her weight. "Marc, this is so fucked."
+Grace sat heavily on the sagging bed, which creaked ominously under her weight. She pulled her hair free from its tie, letting it fall around her face as she rubbed her temples "Marc, this is so fucked."
 
 "I know." I slumped into the armchair, which was even more uncomfortable than it looked. The springs had given up years ago. "How do we get back?"
 
@@ -358,4 +362,4 @@ I glanced at the uncomfortable armchair. "I'll take the chair. I've slept in wor
 
 "I'm sure. Besides," she said, settling onto one side of the bed, "if we're stuck in 1992 forever, we might as well get comfortable."
 
-I took the other side, both of us staying fully clothed and keeping to our respective edges of the sagging mattress.  
+I took the other side, both of us staying fully clothed and keeping to our respective edges of the sagging mattress.
