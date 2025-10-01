@@ -19,7 +19,7 @@ Guys, I don't know what's going on. Please help me make sense of this. I feel li
 
 Edit:
 
-Someone asked about the title. Those are lyrics from the last line of the last verse in the song. Lyrics below, with missing lyrics included.
+Someone asked about the title of this post. Those are lyrics from the last line of the last verse in the song. Lyrics below, with missing lyrics included.
 
 Hey Pretty (2001 Remix) by Poe
 
@@ -71,6 +71,6 @@ missing lyrics 1:
 "extremely expensive leather pants mind you"
 
 missing lyrics 2:  
-"until as our tones shifted, and our consonants spun and squealed, rattled faster, hesitated, raced harder, syllables soon melting with groans, or moans finding purchase in new words, or old words, or made up words until we gathered up our heat and refused to release it, enjoy too much the dark language we had suddenly stumbled upon, craved to, carved to, not a communication really, but a channeling of our rumored desires, hers for all I know gone to black forests and wolves, mine banging back to a familiar form, that great revenant mystery I still can only hear the shape of, which in spite of our separate lusts and individual cries still continued to drive us deeper into stranger tones, our mutual desire to keep gripping the burn fueled by sound, hers screeching, mine - I didn't hear mine - only hers, probably counterpointing mine, a high pitched cry, then a whisper dropping unexpectedly to practically a bark, a grunt, whatever, no sense anymore, and suddenly no curves either, just the straight away."
+"until as our tones shifted, and our consonants spun and squealed, rattled faster, hesitated, raced harder, syllables soon melting with groans, or moans finding purchase in new words, or old words, or made up words until we gathered up our heat and refused to release it, enjoy too much the dark language we had suddenly stumbled upon, craved to, carved to, not a communication really, but a channeling of our rumored desires, hers for all I know gone to black forests and wolves, mine banging back to a familiar form, that great revenant mystery I still can only hear the shape of, which in spite of our separate lusts and individual cries still continued to drive us deeper into stranger tones, our mutual desire to keep gripping the burn fueled by sound, hers screeching, mine - I didn't hear mine - only hers, probably counterpointing mine, a high pitched cry, then a whisper dropping unexpectedly to practically a bark, a grunt, whatever, no sense anymore, and suddenly no more curves either, just the straight away."
 
 Well, those are the missing lyrics that seemingly vanished from any song version I can find. But what's more eerie is that this version in my memory portrays a sense of increased urgency or anxiety when it gets to that part of the song. So now, these lyrics being gone just makes the memory of that version that much stranger.
