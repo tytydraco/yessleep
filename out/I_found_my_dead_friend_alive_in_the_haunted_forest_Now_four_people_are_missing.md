@@ -4,7 +4,7 @@ I am at the police station right now, we drove here in a missing persons SUV. I 
 
 Five people I met online recently decided to help me investigate the haunted forest, as my friend Claudia had been abducted by mysterious cloaked figures there only two years prior.
 
-After agreeing on a time, Josh picked us all up in his SUV. He picked up Liam, Andy, the couple Jack and Katie, and myself this morning. We drove to Cannock Chase and got there by 7 p.m. They had brought equipment I didn’t even think of.
+After agreeing on a time, Jack picked us all up in his SUV. He picked up Liam, Andy, Josh, his girlfriend Katie, and myself this morning. We drove to Cannock Chase and got there by 7 p.m. They had brought equipment I didn’t even think of.
 
 We got to the car park and began to head up to the bridge, following the path. I made sure everyone had their phones on them, as well as other supplies.
 
@@ -80,7 +80,7 @@ My heart sank. My chest and stomach tightened so much I thought I was going to h
 
 I ran back to the car where Josh was. I was so glad to see him there; part of me thought he would be gone too. He was trying to get a signal on his phone.
 
-I screamed at him to open the car. Josh barely started the car, the ignition kept turning over. 
+I screamed at him to open the car. Jack had left the keys inside. Josh barely started the car, the ignition kept turning over. 
 
 As the headlight beamed into the trees ahead, a single cloaked figure peeked at us from behind a tree. As horrified as we were, we just wanted to get out the forest. 
 
@@ -92,6 +92,6 @@ Now I’m waiting at the police station to talk with someone again. I just gave 
 
 I also discovered something that is making me want to go back to my room and never come out again.
 
-When we met with police officers at the lay-by we were parked at. We stood outside Jack’s car, talking to police who arrived near the scene. When I asked police officers to track the GPS of their phones, the police officers asked me to try to call them first.
+When we met with police officers at the lay-by we were parked at,  I asked police officers to track the GPS of their phones. The police officers asked me to try to call them first.
 
 When I did, we could hear faint ringing from the car. The police officers checked all over the car and found four phones in the back of the car. The phones belonged to Liam, Andy, Jack, and Katie. 
