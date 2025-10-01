@@ -285,4 +285,8 @@ The window curtains flowed gently as the wind blew air into the room, the bright
   
 As my eyes registered the wet patch on the carpet, right at the foot of my bed, I felt my stomach lurch from the inside; if it weren't for the comforting brush and pats on my small back, I would've lost control once more.  
   
-I've never felt genuine fear before, to the point of being unsafe within my own skin, but in that moment I wanted nothing more than to be anyone else but myself—to claw out of my own body and *hide where nothing and nobody could find me.*  
+I've never felt genuine fear before, to the point of being unsafe within my own skin, but in that moment I wanted nothing more than to be anyone else but myself—to claw out of my own body and *hide where nothing and nobody could find me.* 
+
+- - -
+
+End of Part One
