@@ -174,7 +174,7 @@ We stumbled out into the street, lungs dragging in the sharp night air. It had b
 
 The streets were still crowded, but quieter than before. People drifted in slow, deliberate patterns, sweeping porches, walking dogs, leaning in close to share unheard jokes. Their mouths moved, but their voices never carried. It was as if the night itself swallowed every sound whole.
 
-Grace’s face was pale and tight, her jaw working as if chewing words she couldn’t bring herself to spit out. “That man…” she muttered. “He knew them. He *knew them*, Marc. But the way he said it… I don’t even—” She cut herself off with a sharp shake of her head.
+Grace’s face was pale and tight, her jaw working as if chewing words she couldn’t bring herself to spit out. “That man…” she muttered. “He knew them. He *knew them*, Marc. But the way he said it… I don’t even...” She cut herself off with a sharp shake of her head.
 
 I glanced back at the skyline, my chest tightening. “Grace… shouldn’t it still be early afternoon? We weren’t in there *that* long.”
 
