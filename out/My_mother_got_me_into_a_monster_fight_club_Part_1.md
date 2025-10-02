@@ -4,7 +4,7 @@ One of the guys I train with sent me here. He swears he once saw Bigfoot stealin
 
 For the record: my life was never exactly “normal.” I’ll explain that. But things only started to spiral out of control about two weeks ago.
 
-Call me Max. Obviously, it’s not my real name. I'm 19 years old, and live in Budapest, Hungary. I’ve been training in martial arts as long as I can remember. My earliest memory is sitting cross-legged on the carpet, watching an old kung fu movie, the kind where the fighters had techniques that looked more like superpowers than something you could learn. I guess that stuck with me.
+Call me Max. Obviously, it’s not my real name. I'm 19 years old, and live in Hungary. I’ve been training in martial arts as long as I can remember. My earliest memory is sitting cross-legged on the carpet, watching an old kung fu movie, the kind where the fighters had techniques that looked more like superpowers than something you could learn. I guess that stuck with me.
 
 My mom runs an MMA gym, so when I asked to train, she didn’t hesitate to sign me up. She never pushed  (asked more than once if I wanted to try something else), but I already knew this was mine. Fighting fascinated me more than anything.
 
@@ -68,7 +68,7 @@ I wanted to believe her. Meeting other people like me sounded… right. But one 
 
 I felt nothing special. I looked down at my arm and found a small needle mark. Someone had injected me with something, probably that’s how I was knocked out. The wound pulsed, but it was the sort of dull ache I’d learned to ignore.
 
-The door opened and a middle-aged woman in MMA gear stepped in, hands on her hips. “Hey, Carol. Your son awake yet?”
+The door opened and a middle-aged woman in MMA gear stepped in, hands on her hips. “Hey, Creepy. Your son awake yet?”
 
 “He’s up,” Mom said.
 
@@ -80,17 +80,17 @@ The door opened and a middle-aged woman in MMA gear stepped in, hands on her hip
 
 I stood slowly. The dizziness was gone. Only the prick on my arm throbbed.
 
-“Um… why did she call you Carol?”
+“Um… why did she call you Creepy?”
 
-Mom shrugged. “That’s my stage name.”
+Mom shrugged. “That’s my nickname.”
 
-“Stage name? Here?”
+“Nickname? Like a stage name? Here?”
 
-“Yeah. Creepy Carol.” She grinned like the name was a badge of honor.
+“Yeah.” She grinned like the name was a badge of honor.
 
 Of course, she had a past I hadn’t been told about. She never said she was special, but I always felt a strange vibe from her.
 
-“And Creepy Carol was your best idea?”
+“And Creepy was your best idea?”
 
 “Not even close,” she said. “But when the audience gives you a nickname, it sticks.”
 
@@ -100,7 +100,7 @@ We left the locker room and walked down a long corridor. Ahead, where I expected
 
 The woman from before was already there, surrounded by a cluster of boys and girls who looked about my age. Mom stayed back by the entrance and motioned for me to join them.
 
-“Alright, almost everyone’s here,” the woman called, eyeing the small crowd. “For those who just arrived: I’m Large Marge, and I look after the newbies. We’ll start soon, but we’re waiting on one more person. Give it a few minutes.”
+“Alright, almost everyone’s here,” the woman called, eyeing the small crowd. “For those who just arrived: I’m Marge, and I look after the newbies. We’ll start soon, but we’re waiting on one more person. Give it a few minutes.”
 
 When she finished, the group dispersed into low chatter; for a moment, it felt like a school event and not a den of freaks. Then I actually looked at the others.
 
@@ -152,7 +152,7 @@ Mom couldn’t resist. “Max!” she shouted from the seats. “If you lose you
 
 Laughter rolled through the crowd. My face burned. She’s pulled that routine at other competitions, too. Her sense of humor could kill at a dad-joke convention.
 
-“Wait.” The Amazon’s voice thundered in a thick German accent as she pointed at Mom. “Is that… Creepy Carol?”
+“Wait.” The Amazon’s voice thundered in a thick German accent as she pointed at Mom. “Is that… Creepy?”
 
 “Yeah, that’s her,” Marge confirmed. Then she gestured at me. “Her son’s competing.”
 
@@ -160,7 +160,7 @@ The woman’s eyes locked onto me like I’d just been volunteered as her snack.
 
 “Not yet. I'll choose them randomly,” Marge said.
 
-“Then I choose Creepy Carol’s boy.”
+“Then I choose Creepy’s boy.”
 
 “Of course,” Marge nodded.
 
@@ -170,11 +170,11 @@ Mom shot back instantly, “Aren’t you a little old for him, Überfrau?”
 
 The arena hushed.
 
-“The first match,” Marge declared, “is Goo-Goo Günter versus Max!” She beckoned me forward.
+“The first match,” Marge declared, “is Günter versus Max!” She beckoned me forward.
 
 “That's not his name,” the giantess corrected.
 
-“I know, but it's hard to pronounce that weird name you gave him,” Marge answered with a shrug. 
+“I know, but it's hard to pronounce that weird name you gave him,” Marge answered with a shrug.
 
 (I will also refer to him as Günter.)
 
@@ -250,9 +250,9 @@ I lay there, chest heaving, every bone vibrating with pain, staring at the pacif
 
 I had survived. Barely.
 
-•
+\*\*\*
 
-Okay, it was obvious that I survived it; otherwise, I wouldn't be here, telling this story. 
+Okay, it was obvious that I survived it; otherwise, I wouldn't be here, telling this story.
 
 Anyway, I’ll continue, but I don't want to make the first post too long.
 
