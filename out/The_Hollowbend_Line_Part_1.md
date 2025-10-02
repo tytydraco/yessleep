@@ -10,7 +10,7 @@ But lately, keeping quiet feels heavier than telling it. I’ve carried it long 
 
 ///
 
-[“I feel like we should’ve packed warmer clothes. It’s freezing out here,” I muttered, wishing I had a jacket to wrap tight around me.]()
+“I feel like we should’ve packed warmer clothes. It’s freezing out here,” I muttered, wishing I had a jacket to wrap tight around me.
 
 Just minutes ago, the weather had been sunny and pleasant. Then, without warning, a fog rolled in. Thick, heavy and swallowing the landscape whole. The temperature plummeted so fast it was like we’d stepped into another season. A fine mist clung to everything, beading on our hair, our clothes, the metal rail we perched on. The warmth was gone, replaced by a creeping cold that seemed to seep straight into my bones.
 
@@ -361,3 +361,5 @@ I glanced at the uncomfortable armchair. "I'll take the chair. I've slept in wor
 "I'm sure. Besides," she said, settling onto one side of the bed, "if we're stuck in 1992 forever, we might as well get comfortable."
 
 I took the other side, both of us staying fully clothed and keeping to our respective edges of the sagging mattress.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1nw58nk/the_hollowbend_line_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
