@@ -92,7 +92,7 @@ I started joking around with Pedro and Xavier, trying to lighten the mood, but K
 
 "Stow that shit and stay focused," she snapped. "This is serious business. People have died out here for being careless."
 
-Something in her tone made my blood run cold despite the heat. This wasn't just about moving some rocks or digging holes. This was something else entirely.
+Something in her tone caught my attention. This wasn't just about moving some rocks or digging holes. 
 
 And I was about to find out what.
 
@@ -131,8 +131,6 @@ We headed into the lava tube, our headlamps cutting through absolute darkness. T
 We dug for two hours in that sweltering underground oven, taking turns with the shovels and chugging water like our lives depended on it. Which, looking back, they probably did. Pedro was the first to hit something solid.
 
 "Got something," he called out, scraping sand away with his hands. "Big something."
-
-What we uncovered made my blood run cold despite the heat.
 
 It was a sarcophagus. Stone, about six feet long, two feet wide, a foot or so deep. But it wasn't like any Spanish artifact I'd ever seen in museums or textbooks. This thing was... weird. The stone was some kind of dark volcanic rock, almost black, covered in carvings that hurt to look at. Not Spanish writing or crosses or anything Christian. These were symbols that seemed to twist and writhe in the light of our headlamps, geometric patterns that made your eyes water if you stared too long.
 

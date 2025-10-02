@@ -4,7 +4,7 @@ I'm Andrew, and yeah, I was trying to find myself, as corny as that sounds. Klam
 
 The point is, I wasn't some tourist with brand-new gear and zero experience. I knew my stuff. Could set up camp in a whiteout, navigate by stars, identify edible plants, the whole deal.
 
-But the steppes of eastern Europe? That was the only place I've ever been legitimately afraid I was going to die. Not hypothermia, not dehydration, not getting lost. Something else entirely.
+But the steppes of eastern Europe? That was the only place I've ever been legitimately afraid I was going to die. Not hypothermia, not dehydration, not getting lost. Something inhuman.
 
 Something that made me understand why some places have warnings that go way deeper than "stay on marked trails."
 
