@@ -62,7 +62,7 @@ That first day, I asked her what her favourite movie was. It was supposed to be 
 
 I just stared at her for a second, dumbfounded. She’d always been smarter than me, or at least knew how to sound like it.
 
-She shrugged, as if aware she’d lost me. “But if I had to pick? Alejandro Jodorowsky’s *The Holy Mountain.*” A small smile tugged at her lips, daring me to call her pretentious. “How about you?”
+She shrugged, as if aware she’d lost me. “But if I had to pick? Alejandro Jodorowsky’s *Santa Sangre.*” A small smile tugged at her lips, daring me to call her pretentious. “How about you?”
 
 I cleared my throat, suddenly aware of how average I sounded next to her. “Uh… probably *Spider-Man 2.*”
 

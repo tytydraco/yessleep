@@ -166,7 +166,7 @@ Holloway smiled, but it was a cold, humourless expression. He looked back at the
 
 With that same smile, Holloway took a step back and, with a subtle bow, retrieved the empty black dress from the chair, smoothing its fabric with painful devotion.
 
-"Go ask about the Davises at the motel," he said, turning away, his voice now formal and final. "They always seemed to have checked in at the same time as you." He began to sway, leading his lifeless partner back into the slow, endless orbit of the dance floor.
+"Go ask about the Davises at the motel," he said, turning away, his voice now formal and final. "They always seem to check in at the same time as you." He began to sway, leading his lifeless partner back into the slow, endless orbit of the dance floor.
 
 I grabbed Grace and motioned her to the door. We fled The Encore, leaving the unsettling music and the dark, knowing gaze of Mr Holloway behind us.
 
