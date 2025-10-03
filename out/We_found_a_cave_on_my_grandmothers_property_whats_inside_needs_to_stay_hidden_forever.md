@@ -90,7 +90,7 @@ We shuffled for five minutes along the wall, trying not to trip. When daylight f
 
 "Yeah. We need real lights and rope. Explore it properly."
 
-I nodded, though something about the cave felt wrong. Maybe it was the darkness, or the way our voices echoed.
+I nodded, though something about the cave felt off. Maybe it was the darkness, or the way our voices echoed.
 
 "Tomorrow," Chester said. "We’ll come back with supplies."
 
@@ -128,7 +128,7 @@ Two hours in, he made the observation that should have sent us back.
 
 "What do you mean?"
 
-"No bats. No bugs. Nothing." His light swept the ceiling and walls. "Every cave should have bats at least. Spiders, crickets, something. But look—nothing."
+"No bats. No bugs. Nothing." His light swept the ceiling and walls. "Every cave should have bats at least. Spiders, crickets, something. But look, nothing."
 
 I stopped and looked. He was right. The place was sterile. No cobwebs, no droppings, no life. Even the puddles were clear and still, with none of the algae you’d expect.
 
@@ -280,7 +280,7 @@ Launching took longer than we expected. The rocky shore wasn’t ideal, and we h
 
 "It’s just water. Worst case, we get wet."
 
-But it wasn’t just water, and we both knew it. The lake felt wrong. No lapping at the shore, no movement at all. Even when disturbed, the ripples died too fast, as if the water was heavier than it looked.
+But it wasn’t just the water, and we both knew it. The lake was unnaturally still. No lapping at the shore, no movement at all. Even when disturbed, the ripples died too fast, as if the water was heavier than it looked.
 
 Chester climbed in first with a flashlight. The raft barely dented the surface, as if it floated on something solid.
 
