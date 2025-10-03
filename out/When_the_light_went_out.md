@@ -65,3 +65,5 @@ One little squeeze, that's all it would take. A micro flex of my finger and a
 I gritted my teeth and... Why couldn't I do it? It would be so easy, but I just couldn't. I slumped back against the side of my truck, the gun clattering to the ground. I sat there, breathing hard, sobbing for... I'm not sure how long.  
 
 I had chosen life, whatever that meant now. So, with great reluctance, I climbed to my feet, picked up my rifle and climbed into my truck. I removed my phone from my pocket and looked at the screen saver, at her smiling face. For some reason, in that dark moment, I smiled back. With my choice made, for now at least, I set off to find my new home.  
+
+Next part https://www.reddit.com/r/nosleep/s/dIHJXvGBgb
