@@ -1,0 +1,29 @@
+So, to really understand this situation I think you need to understand the mental state one enters when you're falling asleep. You know how you're still aware enough to perceive things that happen around you but not really enough to react to them or think about them more than half-baked thoughts that don't make a lot of sense?
+
+That's the state I was in when most of this started happening.
+
+So, I live with my wife and daughter. She lives downstairs and we both sleep in a room upstairs. Our room is the first after the stairs. In the years that we've lived here I've come to recognize the sounds of my wife and daughter coming up the stairs individually, naturally they sound different.
+
+The strange thing is, at some point I feel like I started to hear a different set of feet come up the stairs. My wife sleeps in the same bed as me so it couldn't be her, and my daughter doesn't really have trouble sleeping or anything that I'm aware of so I don't think its her.
+
+Its kind of hard to communicate over text how much of a non-issue this seemed to be. See, it happened when I was in that falling asleep state I mentioned earlier. I'd hear it but I wasn't completely awake so I wouldn't really think about it. I would hear it, then I would have some vague thought along the lines of "who was that?" followed by falling asleep.
+
+However, if I knew what I found out recently I'd probably wake up as soon as I heard it.
+
+This went on for I think a couple days. My memories of the incidents were pretty hazy and dream-like, I'm pretty sure after those first couple nights I mostly dismissed it as a dream. I didn't really think about it during the day. Maybe a couple fleeting thoughts at work or at home before my mind went somewhere else. Now that I've really been able to think about it, I really feel like I was dismissing something I really should've taken more seriously. But again I can't stress enough the time of night it happened hindered my ability to really think about it much.
+
+After about a week one of my coworkers off-handedly brought up some dream they had and it reminded me of what was going on at night, and that was the first time I started to really consider what was actually happening. The fact that at that point it had been going on so long and consistently by then also probably started to tip me off that it was more than just a weird dream.
+
+I laid out the situation in my head; around the same time every night I hear somebody come up the stairs when I seriously doubt it could be anybody in the house. I wasn't...worried, exactly. More just curious. I thought about it off and on for the rest of the day at work. When I got home my wife and daughter were already there. I asked both if they'd gotten up and done anything last night and neither said they did.
+
+I considered the possibilities and none of them really worried me. I seriously doubted there was an intruder somehow breaking into the house with no other evidence who was doing nothing besides go up the stairs in the middle of the night. This made me a lot less worried that I probably should've been. But yeah I thought about what to do for the rest of the day. I briefly jokingly thought about that guy in the Bible that put flour or whatever down to catch somebody's footprints, then had a similar thought about installing a tripwire.
+
+I came to the conclusion if it was really happening I could just record it. I have an old phone that still works I don't use anymore that still works but I don't use because it doesn't connect to modern cell towers or something, so I figured I'd just open the audio recording app and let it run over night. I didn't want to use my current phone since I use it as an alarm clock and I didn't want to forget it or anything. This actually ended up giving me some really important insight.
+
+I woke up and had completely forgotten about the whole thing. I remembered I had the recorder running on my way to work but realized I'd be late if I went back for it. I briefly wondered how long that thing could run. I didn't think it could like, use enough memory to crash the phone or something but it was still weird to think about.
+
+When I got home after greeting my family the first thing I did was go upstairs and get listen to the recording. It had, in fact, recorded all night and the entire time I was it work. I skipped between long periods of silence looking for the sounds from last night. And I did in fact find the sound of somebody walking up the stairs late at night. Nothing else. No sounds of whoever it was going through anything or doing anything that made much of a noise.
+
+See, this is where the fact that I used my old phone becomes important. Since it wasn't my current phone I forgot it and left it running like I'd mentioned, it was recording right until the moment I went upstairs to get it. In skipping around the recording I accidentally let it play for a few seconds that it captured before I got it. Everybody in the house has a slightly distinct sound when they come up the stairs, I'm sure you've noticed the same thing if you've been around the same people moving through the same part of a building repeatedly.
+
+This, of course, included me. I've just never heard it because I was obviously in the stairway whenever I made that noise. This recording was just the first time I'd ever heard it, despite my wife and daughter hearing it countless times. All something I'd not sure I'd ever really thought about before. And this is the part that makes me really concerned, and realize I should've been worried about whatever's going on enough to set up a camera or something instead of just record it like a minor oddity; the sound of me coming up the stairs to get the phone was identical to the sound I'd been hearing in the night.
