@@ -1,5 +1,5 @@
-[(Part 1)](https://www.reddit.com/r/nosleep/comments/1nu3c92/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  
-  
+[(Part 1)](https://www.reddit.com/r/nosleep/comments/1nu3c92/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 I woke up in darkness, unsure where I was. My body felt stiff, my chest tightening with each breath, like something was constricting me.
 
 A coarse blanket weighed over me, suffocating in its own way. Even my arms felt heavy, pinned down by strings anchored into my veins.
@@ -63,8 +63,6 @@ With nothing else to do between physical therapy and doctor's visits, I decided 
 Since I woke up, it took me almost another week of writing, but I’m finally all caught up. I know that seems slow, but between piecing together my memories, and then painfully writing them down, I think I did okay. And just in time too. I’m finally getting released today. Joshua is picking me up in my car. He gave Moira my address so she could leave my car there. She didn’t know what else to do with it after driving me to the hospital that day, the day I spent so long trying to recall. 
 
 The next thing I write should be from the comfort of my own home. I should feel relieved, but I can’t shake this strange, lingering feeling. Like there’s something I’m forgetting, but I can't quite place my finger on it.
-
-
 
 My first night back was worse than anything I’ve ever experienced. Not even the creepy old lady at the hospital can compare to what happened last night.
 
@@ -143,3 +141,7 @@ Slowly, I pulled myself back onto the chair. I was lightheaded, on the verge of 
 At least now the dripping has stopped.
 
 I can't bear to sit here and write another word. Not after what I just saw. I think I’ll message Joshua to come over, I can't be alone right now.
+
+
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1nxyhsq/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
