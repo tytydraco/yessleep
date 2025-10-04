@@ -17,3 +17,5 @@ I fled the house and never returned. The locals, hearing my story, only shook th
 Now, when I look in ordinary mirrors, I always check if the movements match. And sometimes, in the quietest nights, I hear footsteps. Not from outside, but within me.
 
 Question for others: Have you ever encountered something that made you question whether fear comes from the outside world or from within yourself? What was it, and how did it change your perspective?
+
+If you liked the story, you can [listen](https://youtu.be/9xSdtLpGNLI?si=RcalX-IaSFA6xyNL) to it
