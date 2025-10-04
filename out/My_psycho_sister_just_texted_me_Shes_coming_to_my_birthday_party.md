@@ -50,19 +50,19 @@ Which makes sense. She lives 300 miles away and is part of a past I’ve gone ou
 
 I also text my husband again, double-checking that this isn’t some kind of surprise he planned for today or anything like that. He denies it and gets annoyed at how persistent I’m being.
 
-He doesn’t get what it was like for me. Always behind Anna, with her obsessive, controlling personality. We were just a year apart, and especially in high school, she made it her mission to turn my life into hell. I was the artsy, socially awkward kid. She was the textbook mean girl. Popular. Gorgeous. Cruel.
+He doesn’t get what it was like for me. Always behind Anna, with her obsessive, controlling personality. Especially in high school, she made it her mission to turn my life into hell. I was the artsy, socially awkward kid. She was the textbook mean girl: Popular, gorgeous, cruel.
 
 I had no idea what to expect from her now, and I needed some kind of clue. Calling my parents was out of the question, but then I remembered Greg. He used to be our neighbor, and one of the very few friends I had back then. I still had him on Facebook.
 
-I sent him a DM, and he quickly replied with his phone number. I called, and he was happy to hear from me. He started telling me about his life. Back in those days, he was probably the only openly gay kid at our school, and he went through a lot. We bonded over being outsiders.
+I sent him a DM, and he quickly replied with his phone number. I called, and he was happy to hear from me and catch up. Back then, he was the only openly gay kid at our school, and he went through a lot. We bonded over being outsiders.
 
-He still lived in the same house, inherited from his parents. I asked him what he knew about my sister, and I could tell from his tone right away.
+He still lived in the same house, inherited from his parents. I asked him what he knew about my sister, and his tone changed right away.
 
-"You don’t know?" he said, sounding hesitant. "She moved back into your parents’ house. Right next door. I’ve seen her on the street a couple times. She looked thin and kind of rough after rehab. Not like the queen bee from senior year anymore."
+"You don’t know?" he sounded hesitant. "She moved back into your parents’ house. Right next door. I’ve seen her on the street a couple times. She looked thin and kind of rough after rehab. Not like the queen bee from senior year anymore."
 
-"What do you mean?" I asked, confused. "And what about her husband? That famous lawyer?"
+"What do you mean?" I asked, confused. "And what about her husband? That lawyer?"
 
-Anna had married one of the most powerful attorneys in the state a few years back in a wedding so big it even made the papers. My parents, always the suck-ups, were proud beyond words. I wasn’t invited.
+Anna had married one of the most powerful attorneys in the state a few years back in a wedding so big it even made the papers. My parents, always the suck-ups, were proud beyond words.
 
 “They split a few months ago. Not on good terms, from what I heard. Rumor is he was cheating left and right. And poor Anna got way too unstable, hooked on meds just trying to cope with it.”
 
