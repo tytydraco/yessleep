@@ -154,7 +154,7 @@ I could be misremembering this part, but I swear in that moment the faintest mem
 
 I reached out and laid my hand on hers, her cold fingers soaking up my warmth. “It's not all bad; that story has somewhat of a happy ending. Let's just say Joshua made sure those kids stopped picking on me. They were older, but he was bigger. He has always looked out for me like that. I don't know where I would be without him, but one thing is for sure; if it wasn't for him, I would have never met you.”
 
-For a second, I could have sworn Moira’s cheeks flushed a pale shade of pink. As you may have noticed I’m not very good at picking up hints, but at that moment it felt so natural. I leaned in and kissed her. Her lips were cold and tentative at first, but after a second she leaned into me and the kiss deepened. It tasted sweet and made my lips tingle, in the same way a shot her whisky did. It was blissful, numbing, intoxicating.
+For a second, I could have sworn Moira’s cheeks flushed a pale shade of pink. As you may have noticed I’m not very good at picking up hints, but at that moment it felt so natural. I leaned in and kissed her. Her lips were cold and tentative at first, but after a second she leaned into me and the kiss deepened. It tasted sweet and made my lips tingle, in the same way a shot of her whisky did. It was blissful, numbing, intoxicating.
 
 After almost getting lost in the moment, I remembered there was more I needed to tell her. I slowly pulled back. It felt like separating the moon from the earth, my body was the restless tide and she was the moon drawing me in. It was just like she said back at the waterfall, I’m the clay and she’s the artist. 
 
