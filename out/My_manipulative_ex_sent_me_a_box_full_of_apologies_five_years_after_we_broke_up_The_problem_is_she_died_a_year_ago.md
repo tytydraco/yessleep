@@ -24,7 +24,7 @@ I unfolded the paper. On it, in that same, sharp, elegant cursive, was a single 
 
 “I’m sorry for making you feel small at that dinner party with your friends.”
 
-I stared at the note, my mind reeling. The dinner party. It had been seven years ago. A small gathering at my apartment. She had spent the entire night subtly, skillfully, undermining me in front of my oldest friends, making me the butt of a dozen “gentle” jokes that left me feeling like an idiot. I had almost forgotten about it. But the apology… it was so specific. So verbatim to the conversation we’d had in the car on the way home, where I had used those exact words: “You made me feel small.”
+I stared at the note, my mind reeling. The dinner party. It had been seven years ago. A small gathering at a friend's apartment. She had spent the entire night subtly, skillfully, undermining me in front of my oldest friends, making me the butt of a dozen “gentle” jokes that left me feeling like an idiot. I had almost forgotten about it. But the apology… it was so specific. So verbatim to the conversation we’d had in the car on the way home, where I had used those exact words: “You made me feel small.”
 
 I spent the rest of the day in a daze, the note folded in my pocket, a strange, hot coal against my leg. When I got home from work, I went straight to the bookshelf.
 
