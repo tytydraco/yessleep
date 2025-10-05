@@ -44,11 +44,11 @@ But I was drunk.
 
 While all of us were sitting outside watching fireworks later, I noticed Bolin missing and asked Wade where he went. Bolin had gone up to his room early. Since he hadn’t come back, Lakisha and I assumed Rosa was in there with him and that her lingerie stunt had worked. In fact Lakisha and I were whispering about it all evening (quietly, so as not to make any of the boys jealous).
 
-In the morning, when Bolin came down, we asked him about last night, all smirks. He looked clueless. Then someone asked where Rosa was and he was still clueless. But what about his suitcase? Hadn’t he opened it? He said someone had shoved all his clothes into the closet in a pile. He wasn’t sure why, he assumed he was being pranked or something and hadn’t seen his suitcase.
+In the morning, when Bolin came down, Lakisha and I asked him about last night, all smirks. He looked clueless. Then Lakisha asked where Rosa was and he was still clueless. But what about his suitcase? Hadn’t he opened it? He said someone had shoved all his clothes into the closet in a pile. He wasn’t sure why, he assumed he was being pranked or something and hadn’t seen his suitcase.
 
 “So you never opened it?” asked Lakisha.
 
-Dread bloomed in my belly. *Oh God*, I thought. *Oh God Oh God*. Lakisha was telling him how we’d taken his clothes out and Rosa had hidden inside hoping to surprise him in her lingerie and Bolin blushed and said he was gay. Gay? But his coming out to us hardly even registered because *where was Rosa?* Nobody knew.
+Dread bloomed in my belly. *Oh God*, I thought. *Oh God Oh God*. Lakisha was telling him how we’d taken his clothes out and Rosa had hidden inside hoping to surprise him in her lingerie and Bolin blushed and said he was gay. Gay? But his coming out to us hardly even registered because *where was Rosa?* None of us knew. We quickly went to wake everyone else up, hoping someone had seen her last night.
 
 *Oh God oh God oh God I checked. Didn’t I check? I swear I checked*.
 
