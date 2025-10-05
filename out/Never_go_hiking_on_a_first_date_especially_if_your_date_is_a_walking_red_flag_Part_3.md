@@ -195,3 +195,6 @@ Now that I’m alone in the house again, I’m starting to think she can’t com
 However, now there appears to be a source: a massive, round, moldy stain on the ceiling right in the middle of the dining room. I finally threw out the shriveled flowers and put the empty vase on the table, hoping to contain the mess. I don't know why, but I feel as if that table has some personal significance to me. More significant than Moira’s flowers.
 
 I need something tangible and rational to explain away my paranoia. I have to go up there. I need to find the source of the dripping.
+
+  
+[Part 4](https://www.reddit.com/r/nosleep/comments/1nyyxne/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
