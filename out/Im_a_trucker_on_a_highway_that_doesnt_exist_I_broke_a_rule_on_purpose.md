@@ -4,8 +4,6 @@
 
 **-Employee Handbook: Section 4.C**
 
-
-
 **\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/1mlackw/im_a_trucker_on_a_highway_that_doesnt_exist_there/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1mmsi7t/im_a_trucker_on_a_highway_that_doesnt_exist_you/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1mrcfkc/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1mt083f/im_a_trucker_on_a_highway_that_doesnt_exist_dont/) | [Part 5](https://www.reddit.com/r/nosleep/comments/1mz659m/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 6](https://www.reddit.com/r/nosleep/comments/1n55qbq/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 7](https://www.reddit.com/r/nosleep/comments/1nazpkv/im_a_trucker_on_a_highway_that_doesnt_exist_the/) | [Part 8](https://www.reddit.com/r/nosleep/comments/1ngx170/im_a_trucker_on_a_highway_that_doesnt_exist_ready/) |[ Part 9](https://www.reddit.com/r/nosleep/comments/1nmy3y5/im_a_trucker_on_a_highway_that_doesnt_exist_there/)
@@ -38,7 +36,7 @@ We didn’t stop hating each other. I didn’t stop glaring at him when I would 
 
 *Relationship goals.*
 
-It was a clear sign of how desperately management needed me that there was no retaliation for my confrontation. I’d literally assaulted my manager, broken his nose, and confirmed multiple times, point blank, that *I had no regrets―*and nothing. No punishment. No suspension. Not so much as a warning.
+It was a clear sign of how desperately management needed me that there was no retaliation for my confrontation. I’d literally assaulted my manager, broken his nose, and confirmed multiple times, point blank, that \*I had no regrets―\*and nothing. No punishment. No suspension. Not so much as a warning.
 
 …Though I never did get that second raise I was offered. Guess you can’t trust what people promise you at knifepoint. 
 
@@ -120,11 +118,7 @@ He did.
 
 I went to visit Autumn.
 
-
-
 **\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
-
-
 
 The town she’d stayed in was much the same as I remembered from three weeks previous. A bustling farmer’s market was in full-swing at a nearby park. Vendors and fruit stands filled the grassy area, and parents clutched to the hands of their squirming children. Main Street featured instrument shops and stores lined with vintage records.
 
@@ -154,11 +148,7 @@ A third shriek.
 
 It was all the encouragement I needed to hurl myself down the side street toward her.
 
-
-
 **\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
-
-
 
 But first.
 
@@ -168,11 +158,7 @@ Let’s pause.
 
 She didn’t explain this all to me until much later that day, but before we proceed, there's some things you should know about Autumn. 
 
-
-
 **\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
-
-
 
 She did try college. Really, she did. The structure of it all just wasn’t for her. She tried hair school next (big mistake), then electrician work, then eventually, when she’d begun and dropped out of training for half a dozen different trades, she responded to an online advert for a nearby trucking company. It was more out of curiosity than anything. Surely, they couldn’t *actually* pay as much as they purported to.
 
@@ -240,7 +226,7 @@ She waited another.
 
 She stopped waiting.
 
-The sprout died, this time for real. Seeds can survive so much. It’s only when they open into plants they become fragile, vulnerable things. When Autumn woke in the mornings, in the seconds before she remembered where she was, she would reach for her keys. She would remember then that her vehicle was gone, crushed. She could no longer drive. She could no longer do…well, anything*.*
+The sprout died, this time for real. Seeds can survive so much. It’s only when they open into plants they become fragile, vulnerable things. When Autumn woke in the mornings, in the seconds before she remembered where she was, she would reach for her keys. She would remember then that her vehicle was gone, crushed. She could no longer drive. She could no longer do…well, anything\*.\*
 
 *I’m back*, a voice told her one day from a forbidden alleyway. *Me. Brendon.*
 
@@ -256,11 +242,7 @@ There *had* been a point to driving after all. It had been a futile, empty purpo
 
 And she’d gone.
 
-
-
 **\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
-
-
 
 At the time, I didn't know any of that. All I knew was that Autumn was screaming. 
 
@@ -394,11 +376,7 @@ I coughed and clutched my chest. *A couple broken ribs for sure.* 
 
 I raised my hand at the shrieking creatures. “Thanks for the help.”
 
-
-
 **\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_**
-
-
 
 At first, they’d tried to trick her into leaving. That’s what Autumn told me. She wouldn’t though. She told them to do whatever terrible things they would to her. They’d decided to use her as bait instead.
 
@@ -440,3 +418,4 @@ For a while, we just sat in silence.
 
 “So they could have the answer. They might know how to get[ you out](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/).”
 
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1nyvwua/im_a_trucker_on_a_highway_that_doesnt_exist/)
