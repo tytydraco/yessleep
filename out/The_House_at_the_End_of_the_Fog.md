@@ -1,3 +1,5 @@
+[(Next)](https://www.reddit.com/r/nosleep/s/Wf7LThwOHu)
+
 I should’ve turned back the second I saw the fog rolling over the treeline.
 
 It wasn’t natural—at least not the kind of fog you’d expect on a damp autumn evening. This was thicker, heavier, like wet wool dragged across the road. It moved with purpose, curling low to the ground, swallowing the ditches and fence posts one by one until it felt like I was driving through a tunnel of smoke.
