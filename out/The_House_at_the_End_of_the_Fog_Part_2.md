@@ -1,5 +1,8 @@
 [(First)](https://www.reddit.com/r/nosleep/comments/1nx8572/the_house_at_the_end_of_the_fog)
 
+[(Next)](https://www.reddit.com/r/nosleep/s/YNcE6S8KwD)
+
+
 The scream tore my throat raw, but the fog swallowed it whole.
 
 Nothing echoed. Nothing carried.

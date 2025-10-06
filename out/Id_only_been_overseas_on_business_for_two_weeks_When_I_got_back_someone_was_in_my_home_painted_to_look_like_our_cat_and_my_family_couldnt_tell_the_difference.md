@@ -432,7 +432,7 @@ Most of the trip home from Dan’s was silent. I was too nervous to hold a conve
 
 As we were pulling off the interstate, he broke that silence, but not in the way I was expecting.
 
-*“You haven’t…taken anything, right? Still on the wagon?”* he asked.
+*“Hey, you haven’t…taken anything, right? Still on the wagon, so to speak?”* he asked.
 
 Automatically, I responded:
 
@@ -466,7 +466,7 @@ I considered pulling over by our town’s welcome sign, but he waved for me to k
 
 *“Sorry - “* he sputtered. *“Allergies really have been a bitch this year.”*
 
-The fit abruptly disappeared. When I looked over, he didn't seem concerned, and his breathing was steady, so I just kept going.  
+The fit abruptly dissipated. When I looked over, he didn't seem concerned, and his breathing was steady, so I just kept going.  
 
 A minute later, we pulled into my driveway.
 
@@ -554,11 +554,11 @@ My heart buckled. My mind fractured.
 
 Identically, my brother sprung to his feet, grabbed his plate, and dumped it in front of *them*.
 
-*“Might as well give Rajah the leftovers! Pets have to be fed, and we don’t want Ike to be the one to feed them, right? No, of course not. We want the best for our prodigy. We want them to grow. We want to thrive. Right? Right?”*
+*“Might as well give Rajah the leftovers! Pets have to be fed, and we don’t want Ike to be the one to feed them, right? No, of course not. We want the best for our prodigy. We want them to grow. We them want to thrive. Right? Right?”*
 
 The intruder hastily gathered the tribute into their arms, gravy smearing an impromptu Rorschach test along their trunk, and then began galloping past the table. At some point, Ike had gotten up and was standing by the screen door, creaking it open so they could careen into the backyard without losing an ounce of momentum.
 
-For months, this had been the routine. 
+For months, this must have been the routine. 
 
 Looking at Ike, I found myself at a crossroads.
 
