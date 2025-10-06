@@ -228,7 +228,7 @@ and
 
 *“For the love of God, Juli, you and Ike aren’t safe!”*.
 
-All she did in response was avert her gaze.
+All she did in response was avert her eyes.
 
 My pleas were falling on deaf ears, and the only thing those outbursts were earning me was a longer sentence at *Falling Leaves Behavioral Health Hospital*.
 
