@@ -538,7 +538,7 @@ The frenzied stampede of a starving animal.
 
 As the masked intruder charged into the room, Juli walked over to his dinner bowl and dumped the entire meal into it, pieces haphazardly ricocheting onto the side of a cabinet and the surrounding floor.
 
-Suddenly, I realized I hadn’t seen her eat *anything* substantial since I left for that trip months prior. A few slices of toast with her coffee the morning, but nothing more.
+Suddenly, I realized I hadn’t seen her eat *anything* substantial since I left for that trip months prior. A few slices of toast with her coffee in the morning, but nothing more.
 
 Dan pivoted to face *them* as they entered.
 
