@@ -509,3 +509,8 @@ And that's where we will leave things this week. What Ashton is telling us is gi
 Till then, keep watching the shadows. 
 
 Punch.
+
+
+Ashton's past
+
+https://www.reddit.com/r/nosleep/s/KUaM6V5dTQ
