@@ -1,0 +1,19 @@
+I was on a camping trip in North Carolina with my dad and a few friends. When we were driving to the campsite off the highway on a mountainous dirt trail next to a lake, we faintly (but clearly) saw two nuclear reactor cooling towers and we knew it was exactly that because there’s nothing shaped like that occuring in nature and it was very unique. We were in a remote spot, and across the lake it was covered by mountains so we could only make out the distinct funnels but it had no smoke coming out. At the time, we shrugged it off as just some nuclear power plant, maybe not being used at the moment, and continued with our trip almost forgetting about it. Everyone else saw it too.
+
+The entire weekend slowly became weirder and weirder, with strange occurences happening, especially late at night, throughout the weekend. Take, for instance, Friday night. Late when we were around our fire, there was this humming noise that persisted for about a minute. We know for certain it wasn’t natural by any means, but we couldn’t place a finger on what it could be. On Saturday, it was surprisingly normal and we had a fun day out fishing and hiking on nearby trails. Then, at dusk, we noticed the water’s surface was weird. That’s the only way I can describe it honestly. The waves were still constantly moving in patterns like they shouldn’t at that hour. There was no wind anymore, and the sun was almost down past the horizon. One of my buddies threw a rock into the water but it didn’t react like it should’ve. Some other things happened that night that are pretty unexplainable. My dad is ex-military and I very rarely see him scared, but he was very firm about leaving ASAP. We got there Friday afternoon but we had to cut the trip short on Sunday morning as it was just getting really strange.
+
+As we left, it was a foggy morning and it was hard to get a picture of the funnels across the lake, but we could see they were still there, looming over the mountains. I tried to get my friends to go check it out, but they declined since we were freaked out about it. I thought about calling the cops or some kind of service number but they probably would think I was crazy.
+
+The part that’s really shocking though, is when got back we looked on every map we could find, Apple Maps, Google Maps, Google Earth, even old maps we had in the car, there was not even a trace of it on anything. This was really unusual and I knew distinctly where exactly it was.
+
+My friends maybe suggested it was some sort of cloud that reflected weird lighting from the sun and environment and that’s just what we had to go with, but deep down I know that isn’t true.
+
+We’re from Florida, so North Carolina is too far to go back up there for several hours just to find a ghost power plant. 
+
+Eventually, I had a work assignment up near there so I decided that I’d take a quick detour to go over there again. I drove on the same exact trail towards the campsite, and saw no power plant. Not even a trace. I looked all around and there was not a single funnel anywhere. I found this to be really weird, and I continued driving towards the campsite. It was blocked off, the gate was locked shut halfway to the campsite near the lake. This was really strange because I can’t even remember a gate being there when we went.
+
+My curiosity took over and I decided to go around the mountain across the lake to where we originally saw it, and there was absolutely no trace of anything. Nothing added up and the sun was starting to set, so I left and went to ask some locals at a diner about it. Some of them have lived in the area for their entire lives, yet have never seen or even know what I’m talking about.
+
+I know for a fact it wasn’t some sort of weird misremembering because our entire group saw it twice, and we were with a pretty sizeable group of people every single one attests to seeing it. 
+
+We’ve never gone back to that area, and I don’t think we ever will.
