@@ -510,7 +510,7 @@ A little too high. A little too far left.
 
 Over and over and over again.
 
-*“Juli, this turkey is something else,”* he muttered
+*“Juli, this roast is something else,”* he muttered.
 
 Abruptly, my wife released her grip, utensils clattering against the plate.
 
