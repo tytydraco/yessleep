@@ -470,12 +470,6 @@ The fit abruptly dissipated. When I looked over, he didn't seem concerned, and h
 
 A minute later, we pulled into my driveway.
 
-He asked one last question as we walked up to the stoop, the final glimmers of orange twilight fading away above our heads.
-
-*“Oh! Almost forgot - what the hell was that picture you sent me? Shit was cursed. Nearly fell out of my chair when it popped up,”* he chuckled.
-
-I pretended not to hear him and opened the front door.
-
 \- - - - -
 
 Hours passed before dinner was ready.
