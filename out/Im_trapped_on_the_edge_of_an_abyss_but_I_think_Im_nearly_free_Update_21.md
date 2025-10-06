@@ -379,3 +379,5 @@ I tossed one last look back at the door as I went, eyeing the keypad. There may 
 One of the perks of her thinking I was June was that Hensley had the original master keycard.
 
 Ann hadn’t bothered to pat me down for that key either.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1nz2x03/im_trapped_on_the_edge_of_an_abyss_maybe_it_was/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
