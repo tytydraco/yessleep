@@ -328,7 +328,7 @@ He was sitting straight up, shoulders tensed to hell and back, eyes rolled into 
 
 His screams grew fainter.
 
-After a few seconds, he fell back limply onto his pillow, almost as if he’d passed out from within a dream. Only then did the wails completely die out.
+After a few seconds, he fell back limply onto his pillow, almost as if he’d passed out from within a dream. Only then did the wails completely die.
 
 Then, the house was utterly silent. Juli had stopped too.
 
@@ -440,7 +440,7 @@ Automatically, I responded:
 
 Even with just my peripheral vision, I could tell he was giving me *that* look. A pitying condescension that always felt like a splash of acid gnawing at my skin. The type of look that used to reliably throw me into a rage at a moment’s notice.
 
-I swallowed and rolled my shoulders. Focused my attention on the heat from the setting sun cascading through the windshield, rather than the resentment sizzling in my veins.
+I swallowed and rolled my shoulders. Focused my attention on the heat from the setting sun cascading through the windshield, rather than the resentment bubbling in my veins.
 
 *“Things at home have been better,”* I sighed.
 
@@ -510,9 +510,7 @@ A little too high. A little too far left.
 
 Over and over and over again.
 
-*“Juli, this turkey is something else,”* he muttered.
-
-Something was desperately wrong.
+*“Juli, this turkey is something else,”* he muttered
 
 Abruptly, my wife released her grip, utensils clattering against the plate.
 
@@ -524,7 +522,7 @@ Juli sprang from her chair.
 
 She balled her hand into a fist, brought it close to her face, and began knocking on her forehead.
 
-The resulting sound had an unnaturally pervasive resonance, like hot water running through a loose copper pipe, metal expanding and colliding against a nearby wall.
+The resulting sound had an unnaturally pervasive resonance, like hot water running through a loose copper pipe, metal expanding and colliding against an adjacent wall.
 
 *Knock.*
 
@@ -536,7 +534,7 @@ A series of wild thuds emanated from the foyer; a bevy of hands and feet and kne
 
 The frenzied stampede of a starving animal.
 
-As the masked intruder charged into the room, Juli walked over to his dinner bowl and dumped the entire meal into it, pieces haphazardly ricocheting onto the side of a cabinet and the surrounding floor.
+As the masked intruder charged into the room, Juli walked over to his dinner bowl and dumped her entire meal into it, pieces haphazardly ricocheting onto the side of a cabinet and the surrounding floor.
 
 Suddenly, I realized I hadn’t seen her eat *anything* substantial since I left for that trip months prior. A few slices of toast with her coffee in the morning, but nothing more.
 
@@ -602,7 +600,7 @@ Multiple identical, high-pitched yowls, overlaid with each other. Sounded *exact
 
 I never considered what happened to the *real* him until that moment.
 
-If that is truly our original house cat, deep in the hole.
+If that truly is our original house cat, lurking deep in the hole.
 
 That’s not all, though.
 
