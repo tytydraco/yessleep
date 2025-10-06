@@ -340,7 +340,7 @@ One that I didn’t like, but seemed to be my best way out.
 
 I reached the end of the shelf just in time for June to enter the room, then I clasped my palm over my mouth to muffle my breathing.
 
-I didn’t think June would hear me over her own labored growls as she looked around, but I couldn’t be too careful. I needed her not to find me until she was closer. Slowly, she began stalking up the main aisle, her knuckles scraping the floor as she dragged along. She peered up and down each corridor, looking to find me, and as she drew closer, I peeked around the corner down my neighboring lane.
+I didn’t think Hope would hear me over her own labored growls as she looked around, but I couldn’t be too careful. I needed her not to find me until she was closer. Slowly, she began stalking up the main aisle, her knuckles scraping the floor as she dragged along. She peered up and down each corridor, looking to find me, and as she drew closer, I peeked around the corner down my neighboring lane.
 
 I saw her come fully into view, and when she looked the other way, I stepped fully out.
 
