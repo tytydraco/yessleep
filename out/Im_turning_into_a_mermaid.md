@@ -190,7 +190,7 @@ I sipped some tasteless motel tea while Mrs. Amphitrite steeled herself to expla
 
 “How would I pee and poop with a tail?” The question had come to me like an epiphany.
 
-“Oh, he’s thought of that”, she responded eagerly, as if she were exciting news. “He installs a tube from the orifices to the cloaca. Fish have one too - it’s a little vent at the bottom of the tail.”
+“Oh, he’s thought of that”, she responded eagerly, as if she were delivering exciting news. “He installs a tube from the orifices to the cloaca. Fish have one too - it’s a little vent at the bottom of the tail.”
 
 “Oh. Okay.”
 
@@ -226,7 +226,7 @@ I suspect that when she sobers up, she’ll make up her mind and drive me back t
 
 I found a phone in her pocket. I could have used it to call 911. Maybe the healthiest part of her mind left the phone there so I could save myself. Instead, I used it to type this post. 
 
-I’ve been doing some thinking. I’m not so sure I want to go back to my life without legs. I mean, I was miserable before. How miserable could I possibly be as a half-body? I couldn’t even wait tables anymore. 
+I’ve been doing some thinking. I’m not so sure I want to go back to my life without legs. I mean, I was miserable before. How miserable could I possibly be as a half-body? I wouldn’t even be able to wait tables anymore. 
 
 Maybe I could live out my last few months as a mermaid. It would be brief, it would end painfully, but it would also be bloody cool. 
 
