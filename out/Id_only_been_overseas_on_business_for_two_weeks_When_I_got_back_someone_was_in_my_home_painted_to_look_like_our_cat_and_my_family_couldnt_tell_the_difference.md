@@ -1,10 +1,10 @@
 *“Hey! Get the* ***fuck*** *off my son!”* I barked, storming towards our couch, suitcase falling from my grasp somewhere along the way.
 
-Juli planted a firm hand on my chest as I tried to pass her and asked what *my* problem was. 
+Juli planted a firm hand on my chest as I tried to pass her, asking what *my* problem was.
 
-She insisted that I must be exhausted from the flight, that I wasn’t thinking straight, but I could feel the subtext. 
+She insisted that I must be exhausted from the flight, that I wasn’t thinking straight, but I could feel the subtext.
 
-The insinuation was as plain as day. 
+The insinuation was as plain as day.
 
 She thought I was ass-over-tits drunk - or worse - right in front of our son, something I’d promised never to be guilty of again.
 
@@ -24,7 +24,7 @@ Wordlessly, I ripped Juli’s hand away and rushed past her.
 
 *“Dad?! Dad, what’s the matter? It’s just Rajah, Dad!”*
 
-Tears began flooding. It hurt to make Ike upset, yes, but that hurt was nothing compared to the fear I felt, the raw, blistering confusion of it all. It was the gentle sparks of a firecracker versus the roiling fireball of a ballistic missile. 
+Tears began flooding. It hurt to make Ike upset, yes, but that hurt was nothing compared to the fear I felt, the raw, blistering confusion of it all. It was the gentle sparks of a firecracker versus the roiling fireball of a ballistic missile.
 
 No contest.
 
@@ -46,23 +46,23 @@ Ike whimpered. My wife raked his beach blonde hair, silent, wide-eyed.
 
 Ike transitioned into full-on hysteria.
 
-And, very much like a cat, the intruder appeared perfectly indifferent to our mounting duress. 
+And, very much like a cat, the intruder appeared perfectly indifferent to our mounting duress.
 
 They stopped faux-licking their palm and stretched wide, shifting their stomach towards me, unafraid, unbothered, unprotected.
 
 I stared at them, disbelief running dizzy laps around the base of my skull.
 
-They were around five feet tall, mask included, which was circular, stout, flattened at the top, triple the size of a human skull, and circumferentially smooth. The shape reminded me of the box I used to store drum cymbals. 
+They were around five feet tall, mask included, which was circular, stout, flattened at the top, triple the size of a human skull, and circumferentially smooth. The shape reminded me of the box I used to store my extra drum cymbals.
 
-Our calico’s likeness had been painted across the mask. Her light green eyes. The black splotch surrounding her nose. The ragged edges of her left ear. To fit the mask’s bizarre dimensions, however, all those familiar features were slightly distorted.
+Our calico’s likeness had been meticulously painted across the mask. Her emerald green eyes, the black splotch surrounding her light pink nose, the ragged edges of her left ear: it was all there and accounted for. To fit the mask’s bizarre dimensions, however, those familiar features needed to be distorted.
 
-Everything was a little *too* wide and a little *too* big. 
+Everything was a little *too* wide and a little *too* big.
 
-It was the same with their gaunt, emaciated body. 
+It was the same with their gaunt, emaciated body.
 
-They’d faithfully and meticulously translated the markings of her fur onto their skin, stretching the pattern to fit over their lanky proportions. 
+They’d faithfully translated the markings of her fur onto their skin, stretching the pattern to fit over their ghoulish proportions.
 
-A patch of white over their sunken, craterous abdomen. 
+A patch of white over their sunken, craterous abdomen.
 
 Speckles of soft orange along their forearms, extremities which had cords of tendon revoltingly visible because of the way their thin skin wrapped tightly around their fatless frame.
 
@@ -74,9 +74,9 @@ My rage boiled over.
 
 I descended, ready to cave their chest in with my bare hands.
 
-*“****Marvin - Jesus Christ, it’s just a cat. Get a hold of yourself!”*** Juli blared.
+\*“\****Marvin - Jesus Christ, it’s just a cat. Get a hold of yourself!”*** Juli blared.
 
-My fist halted inches from their breastbone. 
+My fist halted inches from their breastbone.
 
 They didn’t flinch.
 
@@ -86,7 +86,7 @@ I creaked upright so I could see my wife’s eyes.
 
 Ike was beyond hysterics at that point, shrieking, inconsolable, face pressed hard into her pant leg.
 
-Juli didn’t answer. 
+Juli didn’t answer.
 
 She pulled Ike away, into another room, urgently muttering to the 9-1-1 dispatcher.
 
@@ -116,7 +116,7 @@ How could I?
 
 It was just a cat, after all.
 
-\- - - - - 
+\- - - - -
 
 The police graciously escorted me to the emergency room.
 
@@ -142,7 +142,7 @@ Next stop: *Falling Leaves Behavioral Health Hospital*
 
 The first time wasn’t too bad. My fellow captives were tolerable, and the docs were nice enough. Smart, too. They eventually had me believing I was suffering under an *“isolated delusion precipitated by extreme stress”*. Their words, not mine.
 
-Initially, I rejected the theory. 
+Initially, I rejected the theory.
 
 The more I considered it, though, the more it seemed to click into place.
 
@@ -150,7 +150,7 @@ Undeniably, work had been taxing, and no one else saw Rajah as I did. Occam’s 
 
 Just me.
 
-\- - - - - 
+\- - - - -
 
 Five days later, I was discharged.
 
@@ -160,7 +160,7 @@ I was the last to enter when we got home.
 
 My feet felt thickly calcified to our stone stoop. It took Juli holding my hand to get me inside, practically yanking me over the threshold.
 
-The door swung shut behind me. 
+The door swung shut behind me.
 
 Electricity sizzled up the curves of my neck as I scanned my surroundings. Juli ran her thumb delicately across my palm. The massage was tender and affectionate, but I sensed a similar electricity hissing along her skin. She was nervous too, and in retrospect, she had every right to be.
 
@@ -174,9 +174,9 @@ A quiet, inscrutable message.
 
 A painful reminder.
 
-*Knock.* 
+*Knock.*
 
-*Knock.* 
+*Knock.*
 
 *Knock.*
 
@@ -196,7 +196,7 @@ The lead psychiatrist at *“Falling Leaves”* informed me I went absolutely ba
 
 Much longer.
 
-I don’t recall going ballistic, though. 
+I don’t recall going ballistic, though.
 
 I have no memory of what transpired between seeing *them* again and the point at which I arrived at the psychiatric hospital.
 
@@ -212,7 +212,7 @@ A part of me is still there, watching, helpless.
 
 *Knock.*
 
-\- - - - - 
+\- - - - -
 
 Juli still visited me over the following three months, but only weekly, and she wasn’t bringing Ike with her. Not only that, but judging by the way her cheekbones had begun progressively sharpening, she wasn’t eating. The stress of it all was getting to her, and that fact killed me.
 
@@ -232,11 +232,11 @@ All she did in response was avert her gaze.
 
 My pleas were falling on deaf ears, and the only thing those outbursts were earning me was a longer sentence at *Falling Leaves Behavioral Health Hospital*.
 
-It was a tough pill to swallow, but I realized that feigning recovery from my *“delusion”* was the most logical step forward. 
+It was a tough pill to swallow, but I realized that feigning recovery from my *“delusion”* was the most logical step forward.
 
-So, that’s what I did. 
+So, that’s what I did.
 
-Slowly but surely, I “*recovered”*. Even endorsed during a group therapy session that I’d been covertly indulging in some designer, PCP-like drugs. Drugs that wouldn’t come up on a routine test, but certainly could send a mind through the proverbial garbage disposal. 
+Slowly but surely, I “*recovered”*. Even endorsed during a group therapy session that I’d been covertly indulging in some designer, PCP-like drugs. Drugs that wouldn’t come up on a routine test, but certainly could send a mind through the proverbial garbage disposal.
 
 The psychiatrist seemed to buy it - hook, line and sinker.
 
@@ -258,13 +258,13 @@ As I suppressed a gag, I felt the silky touch of Juli’s hand on my shoulder.
 
 I nodded, still rubbing; the dead eyes of their painted mask pointed at me.
 
-Juli walked away. As soon as she was out of earshot, I stood up and retracted my hand, which was now coated in a fine, gray, odorless dust. 
+Juli walked away. As soon as she was out of earshot, I stood up and retracted my hand, which was now coated in a fine, gray, odorless dust.
 
 Something was different about *them*.
 
 Their abdomen seemed fuller than before.
 
-\- - - - - 
+\- - - - -
 
 The solution to this mess, as I imagined it, appeared relatively straightforward.
 
@@ -294,7 +294,7 @@ Ike told me he loved me.
 
 Juli reminded me to feed Rajah. Three times.
 
-She might have her suspicions in the morning, and I figured she’d be distraught to find *“Rajah”* missing, but I’d cross that bridge when I came to it. 
+She might have her suspicions in the morning, and I figured she’d be distraught to find *“Rajah”* missing, but I’d cross that bridge when I came to it.
 
 As I drew Ike’s bedroom door closed, there *they* were.
 
@@ -304,7 +304,7 @@ That moment was the first pleasurable one I’d experienced since the whole damn
 
 They were making it easy for me.
 
-I tiptoed across the carpet, gaze ripe with beautiful violence, and when I was close enough, I knelt down and straddled the intruder. 
+I tiptoed across the carpet, gaze ripe with beautiful violence, and when I was close enough, I knelt down and straddled the intruder.
 
 They writhed, attempting to get out from under me.
 
@@ -332,7 +332,7 @@ After a few seconds, he fell back limply onto his pillow, almost as if he’d pa
 
 Then, the house was utterly silent. Juli had stopped too.
 
-Whatever I did *them,* it seemed to translate to my family. They were connected. Tethered.
+Whatever I did to *them,* it seemed to translate to my family. They were connected. Tethered.
 
 I turned around, nearly toppling back onto Ike from the shock of what I saw.
 
@@ -350,7 +350,7 @@ The message was obvious. They didn’t need a voice for me to understand.
 
 *“Checkmate.”*
 
-\- - - - - 
+\- - - - -
 
 The next morning, as I stewed over a mug of lukewarm coffee at the kitchen table, Juli approached me holding her pillowcase.
 
@@ -370,7 +370,7 @@ After years of snorting cocaine, my sense of smell was effectively nonexistent. 
 
 Juli didn’t know that, though. I was used to lying about it, too embarrassed to reveal the lengths to which I’d ravaged my body at the altar of *feeling good*.
 
-My eyes darted to the pantry. 
+My eyes darted to the pantry.
 
 There was a muffled tapping coming from the inside. The clack of my wife’s heels echoed as she moved to open the door.
 
@@ -392,9 +392,9 @@ I glared at the intruder. They had everyone else fooled, and I couldn’t seem t
 
 Suddenly, I had an idea.
 
-What if something in my blood was allowing me to see through the illusion? 
+What if something in my blood was allowing me to see through the illusion?
 
-Could I be genetically immune? 
+Could I be genetically immune?
 
 I pulled my phone from my pocket, walked up to *them*, and snapped a quick picture.
 
@@ -426,7 +426,7 @@ Relief washed over me.
 
 I peered down at *them* and smiled wide, baring my teeth.
 
-\- - - - - 
+\- - - - -
 
 Most of the trip home from Dan’s was silent. I was too nervous to hold a conversation, manically tapping on the steering wheel, thoughts spinning.
 
@@ -450,13 +450,13 @@ I lost my job?
 
 I was in a psychiatric hospital for months?
 
-There’s a demon eunuch dressed as my house cat, and only I can tell? 
+There’s a demon eunuch dressed as my house cat, and only I can tell?
 
 No.
 
 He’d think I’d gone off the deep end.
 
-Once he saw it for himself, then I’d be able to spill my guts. Once he understood, then we could strategize. 
+Once he saw it for himself, then I’d be able to spill my guts. Once he understood, then we could strategize.
 
 *“I’m sure it’s not as bad as you - “*
 
@@ -466,7 +466,7 @@ I considered pulling over by our town’s welcome sign, but he waved for me to k
 
 *“Sorry - “* he sputtered. *“Allergies really have been a bitch this year.”*
 
-The fit abruptly dissipated. When I looked over, he didn't seem concerned, and his breathing was steady, so I just kept going.  
+The fit abruptly dissipated. When I looked over, he didn't seem concerned, and his breathing was steady, so I just kept going.
 
 A minute later, we pulled into my driveway.
 
@@ -476,11 +476,11 @@ He asked one last question as we walked up to the stoop, the final glimmers of o
 
 I pretended not to hear him and opened the front door.
 
-\- - - - - 
+\- - - - -
 
-Hours passed before dinner was ready. 
+Hours passed before dinner was ready.
 
-We chatted, gave Dan copious updates about Ike, and even had time to play a few games of backgammon while the roast cooked. He continued to cough, but the fits were smaller, more contained. Honestly, he didn't even seem to notice them. 
+We chatted, gave Dan copious updates about Ike, and even had time to play a few games of backgammon while the roast cooked. He continued to cough, but the fits were smaller, more contained. Honestly, he didn't even seem to notice them.
 
 All the while, *“Rajah”* never showed their face. Dread crawled over my skin like termites through wood, but I kept my cool.
 
@@ -500,13 +500,13 @@ She was holding her utensils upright - a fork in one hand, a knife in the other 
 
 The only part of her that budged was her lips.
 
-*“Why wouldn’t I be?”* 
+*“Why wouldn’t I be?”*
 
 Stomach twisting into agonizing knots, I turned to Dan.
 
-He was swiping at the meal, but every time, his fork missed. 
+He was swiping at the meal, but every time, his fork missed.
 
-A little too high. A little too far left. 
+A little too high. A little too far left.
 
 Over and over and over again.
 
@@ -524,7 +524,7 @@ Juli sprang from her chair.
 
 She balled her hand into a fist, brought it close to her face, and began knocking on her forehead.
 
-The resulting sound had an unnaturally pervasive resonance, like hot water running through a loose copper pipe, metal expanding and colliding against a nearby wall. 
+The resulting sound had an unnaturally pervasive resonance, like hot water running through a loose copper pipe, metal expanding and colliding against a nearby wall.
 
 *Knock.*
 
@@ -558,7 +558,7 @@ Identically, my brother sprung to his feet, grabbed his plate, and dumped it in 
 
 The intruder hastily gathered the tribute into their arms, gravy smearing an impromptu Rorschach test along their trunk, and then began galloping past the table. At some point, Ike had gotten up and was standing by the screen door, creaking it open so they could careen into the backyard without losing an ounce of momentum.
 
-For months, this must have been the routine. 
+For months, this must have been the routine.
 
 Looking at Ike, I found myself at a crossroads.
 
@@ -582,7 +582,7 @@ Blood thrumming, heart burning,
 
 I shot up and followed *them* into the moonless night.
 
-\- - - - - 
+\- - - - -
 
 It’s currently 11 PM.
 
@@ -616,7 +616,7 @@ It’s not just happening to my family.
 
 I think the whole town is infested.
 
-\- - - - - 
+\- - - - -
 
 Not sure what to do next.
 
@@ -626,7 +626,7 @@ It’s unclear, but I’ll figure it out.
 
 I’m publishing this in case something happens to me.
 
-Juli, if you’re reading this, 
+Juli, if you’re reading this,
 
 I’m not crazy.
 
