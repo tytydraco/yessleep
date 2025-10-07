@@ -2,6 +2,8 @@
 
 [(Previous)](https://www.reddit.com/r/nosleep/s/jhMqpTTq5i)
 
+[(Next)](https://www.reddit.com/r/nosleep/s/b2lRQc8Uyq)
+
   
 The word slithered into my ear, warm as breath: You.
 
