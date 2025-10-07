@@ -74,7 +74,7 @@ I semi-shouted as I stood there. I heard the sort of crack a soda can makes when
 
 My eyes darted to the coffee table I had found and left it on but it was nowhere to be seen. My confusion compiled as I struggled to think of when I had moved it. I had gotten up to go pee maybe twice since I got home and one of those times was before I read the book and sat myself in front of the TV. I don’t remember ever moving it or touching it after my initial finding.
 
-“Uhh. It was on the table, it had the poem about the baron? And the pictur-”
+“Uhh. It was on the table, it had the poem about the Barron? And the pictur-”
 
 I was cut off by the sound of loud stomping as he re-entered the living room swiftly and sternly. His eyes immediately locked on the table for moments before matching mine. 
 
