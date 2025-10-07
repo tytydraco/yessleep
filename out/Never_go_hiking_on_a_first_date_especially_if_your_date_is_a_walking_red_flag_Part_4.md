@@ -14,7 +14,7 @@ Something near the entrance caught my eye, I almost mistook it for a wine-staine
 
 It looked like a pile of dirty laundry, but it wasn't clothes. It was skin, an unmistakable pile of skin. It was lying there like a fleshy rotten egg yolk in the middle of a puddle of white ooze. I couldn't bring myself to come near it, but I swear I saw something familiar. A birthmark of an unfinished butterfly.
 
-A sudden sense of dread filled me. The neckbrace held my head down like a deer grazing, and I can only describe the feeling I had as a deer picking up a sign of bloodlust before getting pounced on by a lion. I had to get out, but more importantly, I had to see what was around me. The doctors warned me of the consequences of removing the neck brace too early but at that point, it felt like life or death.
+A sudden sense of dread filled me. The neck brace held my head down like a deer grazing, and I can only describe the feeling I had as a deer picking up a sign of bloodlust before getting pounced on by a lion. I had to get out, but more importantly, I had to see what was around me. The doctors warned me of the consequences of removing the neck brace too early but at that point, it felt like life or death.
 
 My hands fumbled at the straps, tearing at the fastenings with frantic urgency. The brace came loose, and the weight of my own head crashed down like a bowling ball. A blinding pain shot through my neck, sending a wave of nausea rolling over me. My vision swam, but I didn’t care, I had to see for myself. My plan had the opposite effect. As soon as I removed the brace I could feel my vision fading, but that only sharpened my hearing.
 
@@ -189,3 +189,7 @@ Joshua’s body slid off the bed, my hand still gripping his limp fingers. I tri
 I spent the whole day typing this out with my free hand, my laptop carefully perched on my nightstand. I can’t shake the feeling that Moira will come for me next, but then again, I’m not sure if it will be her or the memory loss that gets to me first. My memories feel like drops of water in the palm of my hand. Every moment of my past feels fleeting; I have to hold on to something, anything, even if it’s just this journal.
 
 I’m fighting through my exhaustion just to get this written down. I don't know if I’ll wake up tomorrow or if this will be my last coherent thought, but as long as I’m alive, I’ll keep writing. I can't rely on my own memory anymore.
+
+
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1o0qjpp/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

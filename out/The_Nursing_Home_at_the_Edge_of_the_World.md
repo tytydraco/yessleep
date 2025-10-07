@@ -1,316 +1,191 @@
+[Part 1](https://www.reddit.com/r/creepcast/s/CDO8f2yD6R)  [Part 2](https://www.reddit.com/r/nosleep/s/wO46kWK8th)
 
+His hair was wispy and thin, pressed flat atop his wet head. His stomach bloated out almost as far as he was tall, a purple and red spiderweb emanating up towards his narrow chest. His hands and feet hung down limply, motionless and blue. His entire body was so small that it was as if the universe itself was trying to hide him from us. Within my mother's arms was the most beautiful baby boy in the world, and we called him Johnny. 
 
-The pancakes were the perfect shade of golden. They were fluffy but dense enough to hold up to the maple syrup. The syrup ran down the side of the stack, the rounded edges almost voluptuous. On top was a picturesque, half-melted pat of butter. The plate sat on a tray next to another containing eggs with yolks as yellow as the sun and bacon that smelled like a freshly made campfire. On this tray was the most beautiful breakfast in the world.
+Johnny was born over four months early, at the weight of one pound and four ounces. The first night was a living hell, not knowing why he was born so early or if he would be able to survive. The nurses and doctors worked all night, and then the night after that, non-stop to stabilize his vitals. Their eyes sunken and baggy, they looked exhausted, but none more so than my mother. 
 
+After a week they said he was out of the danger period, the worst had hopefully passed. It would be a long time before he could be brought home, but within the NICU, he would continue to develop and grow into a strong baby boy. And grow he did.  Two months later he had grown to almost four pounds, a much healthier weight to maintain organs and muscle tissue. But as his body grew, not all of his organs grew with him.
 
+Johnny, at four pounds, still had the same size lungs he did when he weighed just over one pound. He fought for every breath, but he did fight. With the assistance of the machines in the hospital, they helped maintain and stabilize his body as he kept growing. 
 
-The day I got accepted into college, my mom cooked me that breakfast: a tall stack of pancakes, two over-easy eggs, and a helping of bacon she had smoked herself in her husband's smoker just the week before. I had no idea what all the excitement was about when she woke me up. It turns out she opened my acceptance letter while I was asleep. I couldn't be mad; I was too excited, even in my half-awake state. 
+He quickly became the favorite of the nurses in the care unit. My mom even made jokes about how much of a ladies man he was already, being so loved and doted on. The doctor told me they had never seen a premature infant be so perceptive and reactive to the world around him. He told me Johnny always seemed to breathe a little easier when I was in the room, like he could sense big brother was there.
 
+Four months after his birth, he was eleven pounds, his arms and legs appearing well filled out. Visually, he looked like a perfectly healthy baby boy. His lungs still hadn't grown. The machines needed to keep him alive now dwarfed his tiny body, the sunlight of the window unable to reach him past them all. 
 
+Another month after that, the doctors pulled my mother and her husband aside for a talk. His body had been growing well, except for his lungs, up until that point, but they had discovered a problem. His lungs, already small as they were, showed signs of shrinkage. Even with the machines his body began to show signs of oxygen-deprived blood cells and brain tissue. The doctor believed there was nothing that could be done for him; my brother's fight was over. 
 
-She was a high school dropout, having me when she was seventeen years old. When I got into college, she was able to live vicariously through me. She wanted me to tell her all about my classes, the dorms, and my teachers, everything from annoying roommates to cute girls in my class. When I was younger, and more naive, I found it irritating that she had such an investment in my personal life. 
+My mother had a difficult decision to make, but she made her choice. A few days later, in a room full of family, the doctor turned off Johnny's life support at my mother's request. She held him in her arms the whole time, singing a soft, broken lullaby to him, until eventually his cooing stopped. As I stepped out of the last resident's room, I wondered what Johnny would say to his big brother if he were still alive to see me take their lives.
 
+Would he understand why I made that decision? Or perhaps he would disagree with it, trying harder to find a way to keep everyone alive. Or maybe he wouldn’t have stayed here with Mom at all. Maybe it's just because I only knew him as a baby, but I like to think he would have been a better person than I. But between killing them and letting them die, I'm not sure which a better person would have chosen anyway. 
 
+Six of them were in their beds, most of whom were still asleep from the night prior. I used a pillow to suffocate them. It was the most peaceful way I could think of, aside from wasting the remainder of our medicine on overdosing them. A few of them fought back at first, but most didn't. Why most of them didn't struggle and others did, I don't know. Truth be told, I never got to know any of them as much as I should have. 
 
-As annoying as I thought those questions were, I didn't realize just how much they meant to me until she lost her voice. There I stood, years later, standing with a plate of roughly chopped pancakes in front of my mom in her room. In my pocket was her insulin pen, which I had already calculated so she could enjoy breakfast. I set the plate down on her table next to her bed and poured some sugar-free syrup on top, two packets, just how she liked it. 
+I cried for them, too, every single one. After I was sure they were gone, I stepped out of the room and took a breather to dry my tears and reapply my smile. I didn't want their last sight of a friendly face to be one of guilt and pain; they didn't deserve that. After those six were done, the only one left was the chubby, old man with the beard in the wheelchair, but when I found him in the hallway I saw he had died in his sleep. He still looked like he could wake up any moment, but from the paleness of his skin and its frigid temperature, I believe he had been dead for a few days already. If I had done a better job I might have noticed.
 
+Once everyone was laid to rest I took some time to calm myself down. I took a long, hot shower in one of the vacant rooms. I didn't look dirty, but I felt filthy. Every other minute, I popped my head out to make sure I was still alone in the room. It wasn't the first time in the last few days I felt like a scared, stressed-out little kid. 
 
+After that, I made sure my mom ate some food and drank some water, and watched another movie with her. This time, I played one of her favorites, an older movie from when she was younger. Just like always, she fell asleep about halfway through, and I took that as my cue to leave. I made my way back to the staircase leading up to the third floor. 
 
-“I cut it up for you, Mom. It should go down easy, but I can blend it if you need me to.”
+I learned where the light switches were and, just in case, I brought a flashlight to help me. I had also come up with a plan. The monster up above walked right by me and didn't turn to look at me; it only reacted when I made some kind of noise. Even with her face pressed against the glass, it felt like she wasn't really looking at me; I just happened to be standing in front of her. I could only assume that she was blind, or at least close enough to it. 
 
+It would be risky and slow going, but if I moved in time with the stereo system turning on and off, I should be able to get around well enough. Her being blind also means that I should be safe to turn the lights on, too. As long as I could overcome my fear enough to check a few rooms for morphine, I thought I'd be okay. 
 
+Eventually, my body moved on its own while my mind drifted, and I found myself in front of the third-story door once again. The short, three-foot space between the door and the first step felt like a sterile, stretching hallway. I crept cautiously up to it, one hand holding the flashlight. After a brief moment's pause, I quietly opened the door and focused on the silence that met me there.
 
-“Mmurrnngg…” She managed to open her mouth just barely wide enough for me to place a piece of pancake inside.
+Nothing. No horrifying noise, no shambling monster just within view, no invisible hands wrapping around my neck to pull me in. Just the stench of death, and an oppressive absence of sound. 
 
+Once more, I saw a few feet of light leading through the room containing the entrance to the stairs and elevator. Just past that was absolute pitch blackness, leading into the three hallways branching from the center nurses' desk. 
 
+I waited patiently for the music to return, every hopeful second contorting and stretching to be longer than the last. Somehow, despite my waiting, when the music finally turned on, it still made me jump. My hand twitched and clicked on the flashlight. It's bright light extended fifteen feet out before running into a wall, excess light spilling out to form rough, unfocused edges to the beam.
 
-She couldn't open it wide enough for a fork, so I used the other end of the sponge swab to poke the pieces like a toothpick. Every few bites, I soaked the small sponge end in her thickened water and stuck it in her mouth so she could drink it. Then I made sure to clean up any drool or spilled water from the sloped edge of her mouth.
+I moved it around a little before I took any steps. In front of me I saw a few empty wheelchairs, a mobile work station, and the first body. It lay flat on the ground face up, most of the flesh of its body gone, seeped into the floor underneath. Long gray hair lay on the ground, separate from their head, and bits of bone poked out of what remained of its grey, spoiled skin. A few feet out on all sides, a deep, rotted brown stained the floor. 
 
+I tried to remain in the same position, unmoving, despite feeling the imaginary eyes of the corpse on me. It was an attempt to gauge the length of the music; If I was to move safely through this floor I couldn't just walk aimlessly. By my count, about ninety seconds passed before the music turned off again, and I was met with total stillness. Ninety more seconds passed, and the music turned back on. 
 
+1…2…3…
 
-It was a long process, so I always made sure to feed my mom after the other residents. Out of all the folks left in this nursing home, she was one of only three who had trouble feeding themselves. It's probably wrong of me to admit it, but for the other two, I just blended the food so I could get to my mom a little bit faster. 
+Counting in my head again, I moved out towards the nurse's desk. If they were in the same place as downstairs, then that's where the light switches would be. I swept the light back and forth around me frantically, but still I didn't see anything move. Fumbling with my hands, I found the panel of switches and one by one began to flip them.
 
+32…33…34…
 
+None of them did anything. The floor was still encased in darkness, but I did have another idea. I tried not to waste time and moved past the desk and down the first hallway. At the end of each hallway was a window that I could use to illuminate it; I just needed to open the blinds. But as I shined the light down the hallways to make sure nothing was moving, my eyes caught the sight of something strange. 
 
-This was around noon the day after my incident, more of a brunch than a breakfast. I didn’t think about it much yesterday because I was busy taking care of the people living here, but I began to realize I might be in serious trouble. My head still hurt from hitting it, that weird blaring horn, the smell of burning toast, hallucinating the strange music turning into prayer, and the total loss of my faculties for at least eight hours. I’m not sure what could have caused my stroke, but I need to find out.
+71…72…73…
 
+Blocking the entry to the first door was a wheelchair, containing an older, skinny lady. Her threadlike hair was grey, her skin as thin as paper, and her eyes were wide open. She looked at me, and almost on instinct, I stepped to the side, but her eyes didn’t follow me. She, too, was blind up here. It was Mrs. Dawson, and if I needed to get in that room, I would need to move her. 
 
+The music turned off once more, a hint of feedback burping through the speakers as it did. I was so preoccupied by her that I had forgotten to finish my count. I stood perfectly still, straining my eyes and light on the woman and my ears on the floor behind me. Still nothing, no sound of movement or teeth clacking. Mrs. Dawson's eyes were staring straight ahead of her, like a dog. Thankfully, she didn’t move an inch. I’m not sure if my pounding heart could have taken it if she chose to get up. After another ninety seconds, our macabre one-sided staring contest came to an end, the sudden music forcing a blink out of me. When my eyes opened, she was still there, staring into nothing.
 
-I thought it would be easy; this was a nursing home, after all. Back when there were real nurses here, they would have people come apprentice from med school all the time, so there were bound to be a few medical books for me to look through. Most of the apprenticeships got sent to the third floor, but all of their lockers where they would store things would be on the first.
+1…2…3…
 
+I took a step around her, further down the hallway. This wasn’t Mrs. Dawson. I knew that it couldn’t be. I saw her body down the elevator shaft. This was either some incredulous projection of my imagination, or somehow, she was related to what happened three months ago. Locked inside this building, I had next to no knowledge of the state of the world outside, beyond what I saw happen through the windows as I chained up the doors, and listened to the radio. All I know is that I’m one of the lucky ones.
 
+22…23…24…
 
-After I had changed all the diapers, emptied catheter bags, cooked everyone food, and given everyone their medicine last night (this morning?) I changed out of my uniform. I signed back in as a guest and looked for any info, but nothing turned up. I did find a few books, but none of them had any real medical info in them. I tried the computer, but unsurprisingly, almost every website was down; any websites that weren’t had the emergency broadcast taking up most of the page. I'm surprised I could even find a place to post my journal.
+I took long, striding steps, trying to make good time. I reached the end of the hallway before I could count to thirty, and grasped at the string for the blinds with a desperation I didn’t know I had in me. I pulled it down hard and yanked it to the side, and immediately the hallway was bathed in a crusty yellow light. Even if the bedrooms would still be dark, the hallway was at least dimly lit. The light reached further than I thought, just past the edge of the hallway and barely into the center of the floor with the nurse’s desk. With my count still maintained in my head, I wasted no time and reached for the handle of the closest room to where I stood. 
 
+The door opened smoothly, but the wall of scent was coarse as it greeted my nose. It was putrid, the scent of decay wafting up my nose and almost drawing a tear down my cheek. My eyes skipped between Mrs. Dawson and inside the room, but neither offered any fresh information. Mrs. Dawson remained immobile, and inside the room remained pitch black. I twisted my hand to shine the flashlight inside and was greeted with a bouquet of rot.
 
+57…58…59…
 
-All of my free time before I had to be a nurse again was spent trying to find any info instead of sleep, but no luck. Around nine this morning, I went back into the storage room, stripped down bare, and changed back into a dull blue nurse outfit, this time fitting a little snugly. I cooked up some crappy pancakes with some dry pancake mix, making sure to pay attention to how each resident liked their food and their dietary restrictions. I had run out of ingredients for real pancakes a month ago, and just last week, I used the last of the frozen breakfast sausages and bacon. It wasn’t much, I thought, but it would have to do.
+The light shone past a closet and bathroom door and directly onto a bed. On the bed was another corpse, deep into the stages of decomposition. I could count individual rib bones protruding up from the blanket lying on top of the body. The head wasn’t much more than a skull, any flesh long gone and soaked into the mattress underneath, paper mache skin stuck to the skull like a kid's art project. The body was jet black, the previously white sheets and blanket on top stained a deep, dark brown. Extending out from the body were tubes leading to a machine on the floor, the same kind of machine that my mother had.
 
+I walked around the other side of the bed, using my free hand to plug my nose. To my dismay, I saw that the machine was just as run down and broken as the body. The main chamber meant to hold the morphine was broken, the vial inside empty and useless to me. I wondered, for a moment, what this person's story was. What kind of life did they live before their family abandoned them here? If their family abandoned them here, I wondered, or if there was no one left to rescue them. If they were just another ancient relic that the nursing home collected.
 
+79…80…81…
 
-After everyone was fed, including my mom, I put the uniform away again and signed back in as a guest once more. This time, despite how much I dreaded it, I would search the third floor for any answers. 
+I turned around, angry at myself for wasting time thinking about the person in that room, and made it back to the doorway. I stepped back into the hallway, the anxiety in my head amplified with every second I counted. As my count grew closer and closer to its ultimum, I stepped into the hallway and immediately took a step back into the room. I reached my hand out to grab the door, eager to slam it shut and barricade myself in, but I was too slow.
 
+88…89…90…
 
+The man's deep baritone singing ceased, the buzz of the speakers not far behind. Left in the music's wake, at the end of the hallway, was the sound of something heavy dragging, followed by a sharp clacking.
 
-This isn’t something I like to admit willingly, and if you are out there reading this, I hope you don’t think less of me for it, but I am only one man. Thirty people were living on the third floor, I saw maybe seven or eight get taken by their families when everyone evacuated. The rest stayed up there, and like I mentioned in yesterday's log, I’ve only been up there two or three times. None of those were in the last few months. I left them up there alone to die. I am only one man, and I can only take care of so many people. I’m not sure if it makes me a bad person. I try not to think about it; that isn’t for me to decide anyway.
+Skrrrt….click…clack….
 
+At the end of the hallway I saw my mother, and she was creeping her way closer to me. I stood in the doorway, the sound of her moving in front of me, and the stench of the body behind me. Both sides felt like rancid bulwarks, preventing me from moving in any direction. 
 
+1…2…3…
 
-Every step I took up towards the third floor injected a new memory into my mind. With one step, I thought of the old man I used to play chess with in the room beside my mom, and with the next, I thought of the kind older attendant who used to bring food from her home for my mom to enjoy. Another step reminded me of the annoying janitor who used to walk in without knocking, interrupting the movies my mom and I would watch to take out her trash. 
+She crept closer, step by step, drag by drag. I had no way of knowing if she was coming towards me specifically or if she was searching for something else entirely. I just knew that she was coming down this hallway. 
 
+12…13…14…
 
+Closer she crept, and I watched her the whole time. I saw her drag her long leg past Mrs. Dawson and to the next door in the hallway. She moved slowly, each step taking her a few seconds. I felt petrified, afraid that any step of mine would make some kind of noise to break the silence of the third floor. I stood still in the doorway, patiently hoping that the music would start before I needed to act.
 
-As I got to the door of the third floor, I paused for a moment to get lost in my sentimentality. That pause was why I heard it. A hefty, drawn-out sound came from just beyond the door my hand hovered over the handle of. The sound of something heavy being dragged. I strained my ears, thinking I must be imagining things. Horrible as it felt to think of it, *no one* on the third floor could be alive. There wasn’t any food, and if someone had been going down to the kitchen for some, I would have seen them by now. That’s not even considering the fact that everyone who was left up here wasn’t capable of living without help; they were either in hospice or not far from it. 
+23…24…25…
 
+The details of my mother's face drew closer and closer, shambling down the hallway. She seemed ignorant of anything around her, walking into one wall just to adjust her direction to walk into another.
 
+39…40…41…
 
-I steeled my resolve and wrapped my hand around the handle. It turned smoothly and silently, but before I opened the door, I heard it once more. In the empty void of the stairway, away from the music, I heard the sound of something being dragged a few feet from the door, then this time the sound of something clacking together. 
+She was just a few feet away now, and I had to decide whether to move or not. I chose to push my luck. I swung the door almost shut, its hinges thankfully making no sound. I kept it a few inches open, both to avoid the clicking sound of it shutting and to keep a crevice of sight leading into the hallway.
 
+It was near-perfect timing, as not two seconds later, the opening was darkened by the moving mass. I felt a pressure on the door I held, gentle at first but growing stronger. The sound of her teeth gnashing felt like it was inside my ears. I pushed back on the door, using my foot as a doorstop in an effort to make her go away. 
 
+66…67…68…
 
-*Sskrrrr…Click click…*
+The pressure built further for a few seconds, then all at once it eased off. I almost accidentally slammed the door shut, just narrowly holding it back. I listened to her take a few steps away from the door, hit the wall on the other side, and then begin to make her way back down the hallway. She was gone, for now. 
 
+Eventually, the music turned back on, but I still didn't move. I remained behind the door, taking deep and gasping breaths to calm myself down. I waited for another cycle, hearing the thing move further away. Once the music started once more, I worked my way into the door across the hall.
 
+It was empty, of both morphine and people. So I tried the room after that, then the next room again. One by one, at a snail's pace, I searched every single room I could get into. Some of the rooms were locked, but there was no way I was going to look for any keys; I just ignored them.
 
-There was nothing up here, it was all in my head, I thought. I was imagining things, and I needed to look for information on how to help myself. I waited a moment longer, and when I didn’t hear it again, I moved my arm before my brain could tell me otherwise. The hinges of the door were well-greased and as silent as death itself. A retched sweet and sour smell only familiar to me through the rooms containing decaying bodies downstairs sat heavy in the air. Past the door was a wall of absolute darkness; the entire third floor was pitch black. 
+It was slow going, every few minutes having to wait for a cycle or two inside a room as my mother dragged past. It took roughly an hour before I had most of the floor cleared, including the staff room. And yet, no morphine for my mother. There was only one room I had yet to check, and it was the one Mrs. Dawson was sat directly in front of. 
 
+Within my very bones, I felt every part of my body scream at me to just go back downstairs. My body told me with absolute certainty that there was nothing beyond that door worth dying for, and in my mind, I knew it to be true.
 
+What was worth dying for was on the floor beneath this one. For her, I would move Mrs. Dawson. So I made my way over to her, maintaining my count as I did. 
 
-Well, not the entire floor was dark, I suppose. The sterile white light coming from the fluorescent bulbs in the stairway managed to light the room the stairs and elevator were in, as well as a few feet past the open doorway into the main hallway. Just a couple feet past that doorway was a veritable event horizon. Standing there, I realized for the first time that I never even bothered to learn where the light switches are in the hallways, only the bedrooms. 
+55…56…57…
 
+I crossed the nurse's desk, and already I could see her staring at me. I couldn't rip my eyes away from hers as I walked past and around her. I couldn't read what it was she was thinking, if whatever this was even could think. 
 
+71…72…73…
 
-I was scared, honestly. I don’t consider myself a particularly brave man, but likewise, I've never been one to get scared too easily either. But standing at the precipice of a void that I knew for certain contained at least twenty corpses set every hair on my body standing straight up. When the music started I damn near lept out of my own skin.
+I positioned myself behind her and gripped the handles of her wheelchair. She didn't budge. I kept my count in my head, waiting for the music to end and then start once more. Unlike when I took that step into the hallway yesterday, it took me a moment to realize my mistake.
 
+After the music ended, I waited in the silence, counting and listening closely. As my count approached ninety, I gripped the handles a little bit tighter and readied myself to move. The music didn't start. 
 
+A startlingly loud pop and static cracked through the speakers, then a gentle, quiet hum. After a few seconds, the hum ceased, too. I waited, white knuckled, for three more minutes. The music didn't return. But I did hear something, the sound of something being dragged, then the clacking of teeth. I needed to move.
 
-I hadn’t even realized it, but the music I was so used to, that odd foreign tune, wasn’t playing on the third floor when I opened the door. There was no sound at all; the only thing I could hear was my own heartbeat. But, in what I assumed was some system malfunction, the music started randomly, and was loud, much louder than downstairs. Too loud, to be frank, but just like in the rest of this building, I had no idea how to turn it off. The speakers had no buttons, and I never found a stereo system connected to them.
+My grip stayed tight, and I felt the skin on the back of my neck begin to itch with anxiety. I couldn't see around the corner the sound came from, but within the wilted light, I could see the tip of her shadow. With every drag of her leg, the shadow came closer. 
 
+My mind was torn between standing still, hoping she wouldn't come my direction, and just moving the wheelchair anyway. I thought of just ripping it off like a Band-Aid, shoving it hard, and running into the room.
 
+What if the door’s locked?
 
-It was hard, that first step. Every instinct in my body told me to leave this floor alone, my mind conjuring every manner of horrific demon lying in wait for me. But it was all in my head; that’s what I told myself. So I took that first step, the thud of my foot drowned out by the booming music. I thought nothing on this floor could be worse than whatever it was I went through last night, and I took a few more. 
+A horrible thought, one I wish my mind hadn't conjured. Slowly, I unfurled one hand from the wheelchair and raised it to the door handle. I could hear my bones creaking as my arm moved. They sounded as loud as firecrackers to my ears, but thankfully, I didn't hear any rapid movement. 
 
+I gripped the handle and took a shaky, quiet breath. The handle moved, and the door wasn't locked. Unfortunately, as if by some cruel divine joke, that handle was the creakiest, loudest door handle I've ever heard. 
 
+Immediately, I heard a powerful stomp, and the shadow shot forward and around the corner. Once more, I saw my mother, her bottom jaw hanging close to her sternum. The sight of her gaping maw paralyzed me for a moment, but the impossibly loud smashing noise as she slammed it shut set my body ablaze. I barely had time to recognize her milky white eyes when my body moved on its own. 
 
-I made it to the second doorway, the one at the edge of the room containing the stairs and elevator. I was trying to decide where I wanted to go to try and find a light switch when the music turned back off. The air hung heavy, and without thinking about it, I held my breath. After a few bated seconds, I began to realize I was being stupid, just being a childish coward. I thought I was alone on this floor, but by some sort of miracle, those few seconds I waited might have saved my life. Just before I took my next step, I heard that same noise as before again. 
+I shoved Mrs. Dawson forward as hard as I could. She shot out and slammed into the creature with a fleshy thud. The seat of the wheelchair collided with her upper knee, and it buckled. I didn't wait to watch the amalgam of flying limbs and metal. I rushed to open the door and get myself through as fast as I could. Something swished past my head as I entered, and when I looked back to close the door, I saw the crooked hand, the one at the end of the two elbows, embedded in the wall next to me. 
 
+With a hard slam, I shut the door and took a moment to collect myself. I began to fully grasp how stupid I was in that moment. There was no way I could think of to leave this room safely. Even IF there was what I needed in this room, the second I turned that door handle to leave, it would be right back on me. It would be borderline impossible for me to get back to the elevator room alive.
 
+I had all but given up on the morphine at that point, but still, I took a look behind me at the room. It was pitch black, and I had dropped my flashlight getting in. So I fumbled my way towards the curtains and opened them up, blinding myself just as my eyes adjusted to the dark. A bright pink, purple, and gold light flowed into the room. I had been up here so long that it was already sunset. 
 
-*Ssskkrrr…Click click clack…*
+The room was mostly empty, save for two things. A bed, with some lump under the covers, and just beside it a machine, one just like my mom's. Inside the machine was a clearly labeled vial of morphine, full and intact. A tube leading off from the machine led under the covers. The brief feeling of relief was overshadowed after only a few seconds when I saw the lump move. 
 
+It shifted, just a little bit. But it did move, I know I didn't imagine it. The lump also produced a noise, which sounded to me like soft, gentle breathing. I didn’t really know what else there was for me to do, so I pulled the covers back. They slid softly and smoothly apart, like they had been recently washed. Lying on the mattress, with a tube connected to a needle inserted into its arm, was a small baby.
 
+It had wispy, thin hair plastered atop its head, and its stomach was bloated out almost as far as the baby was tall. A red and purple spider web spread over his torso, practically erupting from his belly button and towards his chest. His eyes were closed, seemingly dreaming a peaceful dream. If it weren’t for the baby's steady breathing, I wouldn't even know it was alive. Somehow, in this random room on the third floor of a random nursing home, there was this baby that looked exactly like my brother.
 
-The sound of something being dragged, then the sound of something clicking and clacking together. This time, I was sure I hadn’t imagined it, and it came from only a few feet away, just barely out of sight in the darkness. 
+Except he was different. My brother was dead, there was no bringing him back, as painful as it was to see him again. But no amount of rational thinking would make this any easier; it took all my willpower not to scoop him into my arms as soon as I saw him. I wanted to hold him, keep him warm, and bring him downstairs. If my mother saw him, maybe she could die happy. But this wasn’t Johnny, it was impossible. I walked over to the machine by him and popped open the plastic window to release the vial of morphine inside. After quickly taking the syringe leading to the IV tube out of the vial, I dropped it into my pocket. 
 
+Johnny made a soft cooing noise, and I thought I could physically feel my heart rip just a little. I stood there for what was probably five minutes, thinking. I still didn’t have a plan on how to get out, so I figured sticking around for just a little bit longer couldn’t hurt. And, while I was there, maybe I could hold my brother just one more time. 
 
+I reached out to his arm and gently applied pressure with one hand and removed the syringe with the other. His face shifted with some discomfort, but only for a flash before it went back to total serenity. I grabbed him from underneath, making sure to support his head in the crook of my elbow. He looked exactly the same as he did four years ago, as he fell asleep for the last time in my mother's arms. Even his smell was the same as I lifted him. A few seconds passed, and slowly, almost imperceptibly, he began to open his eyes. I watched with hushed breathing, waiting to see what he would do after he opened them. 
 
-I was still holding my breath, now acutely aware that I would need to gasp for air soon, but terrified to make a move. *Someone* was up here, or maybe *something* was. The silence was oppressive, not a feeling I was accustomed to anymore. 
+After a while, his eyes were fully opened, but something about them was wrong. His eyes were not the caramel brown that I knew, but instead a milky, swirling white. They looked exactly like the eyes of both the things pretending to be people on this floor. Then Johnny opened his mouth, just as slowly as he had opened his eyes. Wider and wider it opened, and I stood there stunned all the while. Just like what I had seen yesterday, the top of his head moved just as far up and back as his bottom jaw moved down. I felt it press into my arm, and his head rolled back, but his neck didn’t follow. In horror, I watched as my little brother turned his own throat inside out, as if he unrolled his head onto his neck. The tallest point on his body now his uvula, as it stuck straight up like a vile antenna. Then he began to scream. 
 
+It was a scream deeper than his body should have been able to produce, and right away, I dropped him. His little body slammed into the floor with a fleshy thud. The door leading into this room shuddered as a heavy slam pounded into it. This is it, I thought, I was going to die here. The thought didn’t last long, though, as it was overtaken by an incredible pain. It felt like someone was pressing a hot iron into my gray matter and cooking it. My legs buckled out from underneath me, and my vision began to swirl. I think I might have hit my head when I fell, I can’t remember exactly. The most present thing in my memory was the smell.
 
+It smelled like rotting meat, like someone had left a steak in the sun for a week and decided to microwave it. My body tried to gag, but as I felt the bile rising from my stomach, I tried to open my mouth and found that I couldn’t. When I went to move my jaw, one of my pinkies moved. I felt the acid from my stomach burn my throat, and it began to build pressure behind my teeth. I tried to open my mouth for release again and found one of my eyelids shut instead. I heard a slight drip of my vomit hitting the floor, and I realized it was leaking out of one side of my mouth. I just couldn’t feel it due to how numb my cheek was. I was having another stroke.
 
-*Skrrt..click…clack…click…*
+My body tried to force in a breath, and some of my bile sucked its way back down my throat, and I began to choke. The door was slammed into again, and I remember being confused, as if I didn’t know why it was happening. I lay on the floor next to my brother, choking on my vomit, convulsing. Somehow, I managed, through great effort, to roll onto my side. The dam finally broke, and my mouth was forced open by a great pressure. It could have been a drop of bile, it could have been a gallon. Either way, it felt like I wrung myself dry in that room, like every meal I had ever eaten wound up on that floor, but still I smelled it. That rotting, foul stench. It didn’t just smell like bad meat, it smelled as if the very flesh under my nose was rotting.
 
+The floor underneath me felt like a raft on the ocean, shifting and moving underneath me. I tried to move myself up, but my body wouldn’t listen; I couldn’t even try to think clearly if I wanted to. The first stroke I suffered, the space around me became foreign and incomprehensible. This time, even if a little warped, I could understand where I was. I just couldn’t for the life of me grasp why I was there. It was like my mind was a fresh newborn, and I had to relearn how to move in a body that didn’t work. Before, I could try to move a limb, even if it didn’t work. This time, I didn’t know where my limbs were, or what they were. My arms might as well have belonged to a stranger. 
 
+To anyone who may be reading this, I’m sorry, I really am, but I don’t know how I got out. Back on the floor of that room upstairs, with the door being broken down by some monster, I lost consciousness. All I know is that somehow, some way, I woke up once more in my mother's room. I was sitting in the chair I always sit in, and in my arms was the freakish recreation of my brother, Johnny. 
 
-The sound was just off to my right, maybe three or four feet at the most. But as the dragging sound came, so too did what was making it, just barely into the light coming from the stairway. A lumbering, disproportionate, and malformed shape came into the light, something that I thought *must* have been a figment of my imagination, but one I never could have imagined willfully.
+His eyes were still open, appearing like one massive cataract. His mouth wasn’t agape, thankfully. My body was sore, just like the other day. Every joint I had felt stiff, and when I moved, it felt like they ground like stones.  From my mother's window I could see that it was pitch black outside. It might not have been as long as last time, but at least a few hours had passed. I looked at my mother and could feel the weight of the morphine still in my pants pocket. 
 
+At first glance, she looked asleep, but as my heart sank into my stomach, I could see that she was already long gone. Decorating her chin were chunks of dried sludge and caked-on food, all of it seeping out of the bottom slope of her mouth. Dribbling from her nose was brown, dried bile. Some time when I was away, she had thrown up, and couldn’t open her mouth wide enough to release it. In my absence, she had choked on her own vomit. In between her pursed lips was a chunk of food plugging her mouth, and I recognized it immediately; it was a bite-sized piece of a pancake, cut slightly too big.
 
+My heart felt empty, it still does even as I write this. I didn't cry, I felt more numb than anything else. I knew she didn’t have long left, it was obvious to my whole family, and that was before the end of the world. I had just hoped I would have a few more weeks, at least. Now I was alone, the only people left, if you could call them that, were me and the two monsters upstairs, as well as my brother in my arms. I looked down at him once more, and in my numbness, I still felt a feeling of protectiveness creep in. This wasn’t my little brother, but he at least looked like him, and maybe that meant something. I stood up and placed him on my mother's lap. 
 
-The figure was humanoid but not human-looking. It had two legs, one normal, but one horribly long and disfigured, the thigh just as long as the other entire leg. Instead of two feet on the ground, it walked with one foot and one knee on the ground, the remainder of its long leg dragging on the floor behind it as it lumbered forward. One of its arms had no elbow, its upper and lower arm fused into one, with a curled claw-like hand at the end. Its other arm had two elbows facing opposite directions, its hand reaching a few inches above the floor. Its mouth twitched open and shut, or rather *her* mouth twitched open and shut, teeth gnashing. She was the spitting image of my mother. 
+Immediately, he crawled off and landed with a thud on the floor. If it bothered him, he didn’t show it as he crawled towards the door. I walked over and opened it, and he crawled right on through. Like he was on a mission, he crawled straight towards the elevator room. I followed, my morbid curiosity looking for anything to distract me from my mother. I pushed open the door to the staircase for him, and up he crawled. I stood at the bottom watching him for a while, wondering if it was worth following him. I noticed then that one of my legs struggled a bit more than the other, but I followed it up and opened the door to the third floor for him. In he went, as soon as the door opened wide enough for him to squeeze his little body through. I shut the door and decided that I didn’t need to know where he would crawl next, and headed back downstairs. 
 
+My mind tried to dwell on anything but my mother, like how hard that thing had worked to get back to the third floor for some reason, or how empty the whole building felt now that everyone was dead. The only sound to keep me company was the music, or at least what I used to think was music. I can hear it now, just as clearly as I did the first time. I wasn’t imagining it, it is the Lord's prayer. It played on loop, with a man's deep voice speaking the prayer the entire time, to the tune of a gentle guitar and piano in the background.
 
+I didn’t sleep that night, I was too busy packing. I packed medicine, what little we had; I packed food, what bits were left; and I packed water, as many bottles as I could fit in my bag. After that, I knelt by my mother's bed and cried my soul out. The light of the dawn crept through the windows by the time I was both packed and mentally recovered. I went downstairs, making sure I was signed into the guest book one final time, and wrote all of this down. I plan on leaving this place, if you couldn’t tell. A death sentence, probably, but that’s all I’d get here anyway. I might as well try to survive before I die.
 
-*Sskkerrt…Click click…*
+I took one more day to go room by room, person by person, and cross-reference them to the listings I have in the offices on the first floor. I learned all the names of the people whose lives I took, and made sure to memorize all seven of them. Just in case, I wrote them down and slipped the paper into my pocket, right next to the vial of morphine still sitting there. After that, I walked to the front doors of the building and removed the chains I had placed three months ago. I opened the door, and against my better judgment, I took a peek outside.
 
+The streets were entirely barren, and dead silent. The closest building was about one thousand feet away, and on its roof, I could see at least a dozen figures standing there. It was too far to see any details, but each one looked like a resident I had met here in the nursing home. A few of them even looked like my mother. I closed the door and went back inside, and got some more rest. It’s nighttime as I write this, and tomorrow morning I’ll be leaving this God-forsaken place. 
 
+I don’t know how long I’ll survive out there, maybe hours, maybe days. If, somehow, this makes it on one of the websites still working, I’m sure I don’t need to explain what’s out there waiting for me. You probably know what happened to the world better than I do, anyway. So before I go, I’ll leave you with this message. 
 
-She shifted forward, moving parallel to the doorway I stood inside. Just like my mother, one side of her face was pulled back tight, her other side drooped down and hanging a quarter inch open. She was wearing a dirty blue hospital gown, the bottom coming down to just above her good knee. Pink flowers on it were just barely visible as she stood on the edge of the light. 
-
-
-
-Just as soon as she lurched into my sight, she took another step with her good leg, taking herself once more out of the light. The last sight I saw of her was her foot dragging after her into the darkness.
-
-
-
-*Sskrrett…Click Clack…*
-
-
-
-Just as the pain in my chest began to scrape at my mind, the loud music started once more. It startled me and drew a sharp, surprised gasp of air in. I took a few more, managing to catch my breath. I decided standing there that as soon as I could find the motivation to move my feet, I would go back downstairs and promptly learn where the light switches were. With my eyes held as wide open as I could, I took a step backward, refusing to turn my back on the abyss of the third floor. I saw no movement; the only sound I could hear was the loud music. 
-
-
-
-Almost in reverse of getting here onto the floor, getting back out seemed to require the same willpower. That first step was hard, every instinct in my body telling me that if I moved, whatever's there would see me, my mind conjuring every which manner that creature could lurch out and kill me. But after the first step, I took another, then a third, and after the fourth, I was in front of the stairway door again.
-
-
-
-I quietly fumbled behind myself for the handle and managed to turn it smoothly without looking. I opened it, and once more, the loud music stopped.
-
-
-
-*Sskkkrrrt…. Click….clack…*
-
-
-
-The sound came from further away into the dark, close to where I imagined the nurse's desk was. I sighed a short breath of relief and stepped through the doorway. The clap of my footsteps reverberated within the stairway, the sound spilling out past the doorway I held open. I didn't think of it when I took the step, but as soon as my foot landed I knew I had made a mistake. The sound of the dragging came again behind me, this time in rapid succession, and headed straight towards me. 
-
-
-
-I leapt through the door, slamming it shut behind me and falling flat on my butt, my breath became rapid and haggard. My hands slapped on the ground as I tried to scramble onto my feet, but the noise was overshadowed by the sound coming through the closed door. Whatever slow lumbering the figure had before turned into an awkward sprint, the clicking of the teeth drowned out but heavy, rapid footsteps. 
-
-
-
-*Sskkkrrt, skrrt, skrrt…thud…thud, skrrt…….BOOOOMM*
-
-
-
-A brief moment of silence was broken by the door rattling on its hinges as the hulking figure slammed itself against it. Pressed clear against the glass doorlight was my mother's face. I waited for it to come through, for it to kill me, but the handle didn't move, nor did it slam against the door again. She, it, whatever, just stayed pressed against the door. 
-
-
-
-The glass fogged up from its breath, the dampened, quiet sound of teeth gnashing the only sound I could hear besides my pounding heart. I shakily rose to my feet, unable to take my eyes away as I took a closer look at the face. Right down to the crow's feet beside her eyes, from her dark brown hair to the scar on her nose, this was my mother. I watched her like she was an animal in a cage, waiting to see what she would do next. 
-
-
-
-*Click…click….clack…click*
-
-
-
-She clacked her jaw up and down, each time opening her mouth a little bit wider. I noticed something strange about how she was doing it, too. I even opened my own mouth to check, and just as I thought, only my bottom jaw moved. The top of my mom's head moved just as much as her bottom jaw, tilting back as she opened it until eventually, the top of her head lay perpendicular to her neck. Her bottom jaw reached past the center of her throat. The red flesh inside her throat bulged out, sticking an inch or so above her yellow teeth.
-
-
-
-The glass in front of her began to fog up fiercely, like she was breathing a great big breath onto it, or maybe it was more like she was screaming. I didn't hear anything, but I felt it deep in my body. My bones shook, my knees turned to jelly, and just behind my eyes, I felt the rumbling of an intense migraine. I stepped backward, down the first step of the stairway with a shaky leg. I heard no sound, but the feeling was identical to the time in the employee lounge yesterday, to that terrible horn I heard. After just a few seconds the initial rumbling of a migraine turned into what I could only describe as skull-splitting. 
-
-
-
-I clamped my hands on my ears as my legs gave out underneath me. I tumbled down the flight of stairs, rolling onto the platform halfway between the second and third floors. Her face was out of sight, but I could still feel it on that glass door. Somehow, I could almost smell its rancid breath in the room. I crawled further, desperate to gain more distance between us, and crested over the first step of the next flight. I tumbled down that too, any pain in my body drowned out by the overwhelming agony in my head. 
-
-
-
-The door leading back to the second floor was right in front of me, looking blurry as my eyes began to water. I tried to call out for help, even though I knew no one could come; I could barely manage a whimper, much less a scream. My voice came out strained and painful, my throat feeling dry and sickly. I thought I would die on that floor, my skull would split open and spill my thoughts out onto the tiles, and my memories would seep into the grout. 
-
-
-
-The pain persisted, but by some will of God, I managed to rise onto my feet. I hunched over, one hand on my head, one managing to fumble the handle and make my way through back onto the second floor. Like a child under their blanket I felt safer here, as if whatever cruel entity was above me couldn't touch me here. Greeted by the sound of the music I strangely felt a little better already, even if only a little.
-
-
-
-I crumpled down, resting against the door to the stairs. I felt like I was in desperate need of something, but I wasn't sure what. Maybe water for my dry throat, maybe some of the medicine to ease my pain, or maybe I just wanted to go watch a movie with my mother; to pretend nothing about our lives had changed. 
-
-
-
-I needed a moment to collect my thoughts, to piece back together my mind. I shut my eyes and began to think, trying to imagine what to do next, running through all my problems in my head. 
-
-
-
-The medicine for the residents was running out, and I couldn't get more. Morphine for my mom only had maybe a day or two left at most, if she used it sparingly. No fresh food was left, just dry goods sparse in nutrients, and sauce packets most residents couldn't eat anyway. I didn't know how much longer the electricity and water would stay on, and it was only another month until it started getting cold outside. I was in over my head, and to top it off, something was wrong with me, something that could be possibly deadly. If I died, what use would trying to help the residents be anyway? They’d be alone without me.
-
-
-
-If you’re somehow reading this, this is going to sound insane to you; whether what I saw upstairs was all in my head or not honestly doesn't matter, horrifying as it was. I was already overwhelmed; anything on top of it just felt like pouring more water into an already overflowing cup. As long as it kept to its own floor, that is. 
-
-
-
-Sitting on the cold tiles, the visage of my mother's warped open maw clear in my head, I thought up a horrible idea. Try as hard as I may, I didn't stay just for the other residents. I didn't ignore my family's wishes to go with them for the other residents. I'm not already, as I write this, considering going back to the third floor for the other residents. I stayed here to be with my mom. If I killed the remaining eight people in this building, that would fix some of my problems.
-
-
-
-Not all of them, I’ll admit, but an unfortunate reality is that they all were destined to die from the very beginning. I’ve just postponed their fate, and if it means postponing my mother's just a little bit more, then it’s an option I need to consider. It would be a hard task; everyone here is so friendly and kind, but maybe it’s all the more reason not to try to prolong their life. Maybe it would be better for them to die by my hands, happy and with a friend, than to waste away on their own, alone and afraid. 
-
-
-
-This would leave the remaining food and medicine just for me and my mom, turning two weeks of supplies to possibly two months. The water and electricity were outside of my control, so I tried not to worry about that. That left the morphine for my mom. Her body was in constant pain, and every day the doses she needed to numb it grew larger. But there is a place I know with absolute certainty had more: the hospice section of the third floor. The question is, am I willing to go back for her?
-
-
-
-I’m not sure how long I was thinking of all this, but I’m sure I was on the floor for a long time. With my eyes shut, palms pressed firmly to my eyes, my headache eventually began to dim. I didn’t hear any noise from the stairway that could imply whatever was above me tried to get down. Whether I decided to take the lives of the residents here or not, I still had work to do. So I opened my eyes, and they were greeted by an ocean of greys, greens, and white. I was looking directly into another pair of eyes, hovering just a few inches from my face. 
-
-
-
-I don’t know how, or for how long, but Mrs. Dawson had crept up in front of me, knelt down on two knees, and lowered her face down in front of mine to watch me. Her lips were slightly parted and moving rapidly, like she was mouthing words but not making noise. 
-
-
-
-“Mrs…Dawson? Are you okay? Do you nee-”
-
-
-
-“Hallowed be thy name.” She interjected. It came out hushed and fast, almost incomprehensible. “Thy kingdom come, Thy will be done…” She pressed her face even closer, her cold forehead touching mine. Her skin was so cool and dry it felt as if she was wearing a mask made of paper mache.
-
-
-
-“It’s dangerous here, ma’am,” I said, but my voice was quiet and meek. The elevator shaft to my side was still just a few feet away, but with her face pressed against mine, the distance felt like mere inches. Slowly, Mrs. Dawson raised both of her hands up to my face, grasping it on either side.
-
-
-
-“...On earth as it is in heaven.” She whispered, her voice coming from deep in her chest, like all of the air in her lungs escaped her as she said it. “Johnny is up there, you just didn’t see him.” 
-
-
-
-At the mention of the name Johnny, the tips of my fingers began to tingle and grow numb, and I felt a dull ringing in my ears. I raised my hands to grip her wrists firmly, my brow beginning to furrow.
-
-
-
-“Get the hell off me,” I responded coldly, “Before I move you.” 
-
-
-
-Her fingernails dug into my skin, and she pressed her face even closer to mine, her mouth barely an inch away. She ignored my demand and resumed her prayer. 
-
-
-
-“Give us this day our daily bread!” Mrs. Dawson spoke louder, her eyes more lucid than I had ever seen them before. “ And forgive us our trespasses, as we forgive those who trespass against us!” 
-
-
-
-I squeezed my hands hard around her wrists, more desperate to get her off of me than I was to not hurt her. Her face contorted in pain, and her mouth opened wide as if she was about to scream, but no sound came. Instead, as I got myself up onto one knee, she stretched her mouth as wide as she could open it and exhaled as much breath as she could hold in her lungs. Her breath came out hot, and reeked of fake maple syrup.
-
-
-
-I moved her hands away from my face, anger beginning to boil in my gut. Her arms shook as she tried to fight me, but her frail frame had long lost its strength. I got my other foot underneath me and began to stand. Mrs. Dawson kept her face level with mine, raising it as I stood up. Despite my warning, she continued to yell at me. 
-
-
-
-“And lead us not into temptation!” Spit flew from her mouth as she shouted, bespeckling my face. I shoved her to the side as hard as I could, frantically trying to get her away from me. She landed on the ground hard; an audible crack could be heard as her feeble body smacked against the tiles.
-
-
-
-She took a moment to try and suck in a breath, to regain her voice, and as she did she leaned her body on one of her shaky arms. With her other she dragged herself backwards, away from me and directly towards the elevator shaft. I balled up my fists in anger, but I didn't speak.
-
-
-
-I didn't say a word. I stood there, staring at her attempting to put distance between us. She moved at a snails pace, her arms carrying her a few inches at a time. I had plenty of time to stop her, I could have lifted her up and carried her away. She couldn't have weight more than 90 pounds. I made no effort; instead I watched her draw closer to the drop, trying to catch her breath before she eventually found her voice once more. 
-
-
-
-“But deliver us-” her voice cut as she fell down the open elevator shaft. She didn't scream as she fell; there was a brief moment of silence followed by a sickening thud and a wet crunch. The impact sounded like hitting a wet, dead tree with a hammer. 
-
-
-
-It felt like time had stopped as I stood there, unmoving. After the sound of her hitting the bottom, a small and almost gentle noise rose from the floor beneath. Mrs. Dawson had survived the drop, and she began to cry. My legs carried me against my will and took me to the inky mess leading below. 
-
-
-
-A faint glimmer of light from above wafted down the elevator shaft, where I could see her silhouette lying at the bottom. Her body was twisted and contorted into a macabre ballerina's pose, both her legs intertwined and limp. One arm rested over her head, and the other lay on her stomach. At the sight of me, she raised that arm shakily and spoke to me again.
-
-
-
-“Please, dear, won't you help me?” She said, almost too quietly for me to hear. “I can still hear him crying… I don't think he ever stopped…” I turned my back on her and left the room, too weak to watch her die.
-
-
-
-My anger stopped me from acting, but now it was too late for my regret to help her. Looking at her dying, I wasn't even angry anymore; I just felt sad. So I did the same thing I used to do when I was a kid, when everything felt too important to do, all together, and all at the same time. Instead of trying to do everything, I chose to do nothing. 
-
-
-
-I spent the rest of the day ignoring all my responsibilities and shutting myself in my mother's room. I read her a few chapters of a book, we watched a movie, and eventually I leaned my head on her arm and drifted off for an early night's rest. 
-
-
-
-I'm not sure why Mrs. Dawson mentioned Johnny. For all I know, my mind had finally snapped, and I imagined the whole thing. Maybe I just watched an innocent woman die, or perhaps the visage of my mother I saw wasn't the only thing up there. I wouldn't have believed it if she hadn't mentioned him by name, but perhaps my little brother is up there, too. 
-
-
-
-I'm writing this the next morning, bright and early. Today, I plan on killing the remaining seven residents, and after some brief preparations, I'll be returning to the third floor once more. 
-
+I am writing this from somewhere in Connecticut. It’s a small town, hard to find if you aren’t looking for it. On the hill at the back end of town is a nursing home, and if you find yourself looking for shelter, it will offer none. There is no food here, there is no life here, and there is no God here. It might as well be a nursing home at the edge of the world.
