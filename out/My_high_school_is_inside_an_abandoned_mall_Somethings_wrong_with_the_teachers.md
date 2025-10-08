@@ -1,4 +1,4 @@
-**Part I |** [Part II](https://www.reddit.com/r/nosleep/comments/1nvnfcr/dead_malls_make_bad_schools_my_nightmares_wont/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) **|** **Part III (coming soon)**
+**Part I |** [Part II](https://www.reddit.com/r/nosleep/comments/1nvnfcr/dead_malls_make_bad_schools_my_nightmares_wont/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) **|** [Part III](https://www.reddit.com/r/nosleep/comments/1o1p0o6/they_told_us_no_one_ever_came_back_from_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 Beneath the grand glass atrium of the former Eastbrook Mall, slippery tile floors gleamed under neon signs that flickered "Cola-Co Classroom" and "Tech-tots Academy" in bright bursts. The inconsistent lapping of air-conditioned chill stabbed at my neck, ripping away the nostalgic warmth I had felt moments earlier.
 
@@ -110,4 +110,4 @@ Adrenaline carried me to the dorms. I reached for my badge, but my lanyard was g
 
 "You coming?"
 
-**Part I |** [Part II](https://www.reddit.com/r/nosleep/comments/1nvnfcr/dead_malls_make_bad_schools_my_nightmares_wont/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) **|** **Part III (coming soon)**
+**Part I |** [Part II](https://www.reddit.com/r/nosleep/comments/1nvnfcr/dead_malls_make_bad_schools_my_nightmares_wont/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) **|** [**Part III**](https://www.reddit.com/r/nosleep/comments/1o1p0o6/they_told_us_no_one_ever_came_back_from_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1ntw42d/my_high_school_is_inside_an_abandoned_mall/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) **|** **Part II** **|** **Part III (coming soon)**
+[Part I](https://www.reddit.com/r/nosleep/comments/1ntw42d/my_high_school_is_inside_an_abandoned_mall/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) **|** **Part II** **|** [Part III](https://www.reddit.com/r/nosleep/comments/1o1p0o6/they_told_us_no_one_ever_came_back_from_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I followed Ernie, watching as he replaced the tile behind us. We crawled through a maze of wires and pipes, dimly lit by his tablet. The sound of the mob faded. Soon, blinking arcade machines replaced the noise. Ernie reached an intentionally placed brick and tapped it rhythmically against a red pipe.
 
@@ -148,6 +148,6 @@ Ernie’s lips parted as if to speak further, but the third announcement erupted
 
 The mall’s silence after the echo faded was unbearable, as if the building leaned closer, waiting.
 
-I wanted to run, but my legs betrayed me. The carousel song was playing again, faint but unmistakable, winding through the ducts. Each note seemed to tug me forward, pulling me toward the Principal’s Office like I was already mounted on its endless ride. 
+I wanted to run, but my legs betrayed me. The carousel song was playing again, faint but unmistakable, winding through the ducts. Each note seemed to tug me forward, pulling me toward the Principal’s Office like I was already mounted on its endless ride.
 
-[Part I](https://www.reddit.com/r/nosleep/comments/1ntw42d/my_high_school_is_inside_an_abandoned_mall/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) **|** **Part II** **|** **Part III (coming soon)**
+[Part I](https://www.reddit.com/r/nosleep/comments/1ntw42d/my_high_school_is_inside_an_abandoned_mall/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) **|** **Part II** **|** [Part III](https://www.reddit.com/r/nosleep/comments/1o1p0o6/they_told_us_no_one_ever_came_back_from_the/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
