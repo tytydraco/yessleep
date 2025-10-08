@@ -105,3 +105,36 @@ One hand on the breaker. Something long in the other.
 He turned his head just enough for me to hear him whisper, almost kindly,
 
 *“Don’t lose, Mommy.”*
+
+Something in me snapped.
+
+“Stop it!” I screamed, my voice echoing off the concrete. “This isn’t funny! You hear me? It’s not a game!”
+
+He didn’t flinch. A creeping smile on the side of his face.
+Then the light flickered and the torch went out.
+
+When it came back on a moment later, he was gone.
+
+I searched the basement, every corner. Jumping at every shadow but he wasn’t there.
+He wasn't anywhere 
+His room upstairs empty too. 
+
+Just his drawings scattered across the floor.
+Little stick figures, each one crossed out in red.
+
+That was 1 night ago.
+
+I haven’t slept since.
+
+I keep thinking about the hamster. 
+
+How it was still breathing the first time.
+
+How it wasn’t the second.
+
+It’s safe to say I lost that game.
+
+And I can’t stop wondering what happen after losing that one.
+
+Because sooner or later, the lights will go out again.
+And I think when they do… he’ll be waiting.
