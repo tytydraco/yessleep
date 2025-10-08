@@ -2,6 +2,8 @@
 
 [Previous: ](https://www.reddit.com/r/nosleep/comments/1nvlo97/im_a_contract_worker_for_a_secret_corporation/)
 
+[Next:](https://www.reddit.com/r/nosleep/comments/1o1hsdf/im_a_contract_worker_for_a_secret_corporation/)
+
 After I had the brief talk with the copycat, I went back to Harp to make sure she was alright. She had had some time to think about our relationship. She wanted to remain friends if possible. I didn’t have the heart to tell her about the thoughts brewing inside my head. I thanked her and promised we would talk again soon, well aware that I was ready to break that promise.  
 
 I headed back to Evie’s place. Her cut wasn’t as bad as it looked after she cleaned it up. I still fussed over her feeling guilty; she’ll now have a scar cutting through her eyebrow. She claimed it would make her look cool and that she wouldn't worry.   
