@@ -1,3 +1,5 @@
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1o0ztay/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
 It all started just after I moved back to my old house. I had been going through a messy divorce, and unfortunately, the whole painful process had forced me to go back to the only other home I knew and the only other place I could afford.
 
 I moved back into my parents' old house, though they no longer lived there. The place had been rented out since they had moved away. Ultimately, they did not have the heart to sell it. I suppose it had worked out. Since I was being forced to come home, they were able to set me up there with almost no rent and a general agreement to look after the old place.
@@ -42,7 +44,7 @@ It read,
 
 “If you see this, turn around! Grabbers are ahead. One step forward, two steps back, the grabbers will get you if they attack. I will help you if you help me, so up then down, down and away you'll be.
 
-Stay safe - Sherie”
+Stay safe - Sherrie”
 
 I was confused by the message. Who was Sherrie? And what was a Grabber? I considered the odd writing and was about to blow it off when I heard something. There was a soft dragging sound, echoing down from the stairs above.
 
@@ -80,8 +82,8 @@ It read,
 
 “If you are seeing this, I couldn't find my way back. I rented the place for a while, but I found the steps. I need to see where they lead. I don’t know if this is a dream or reality, but in case it’s real and I don’t come back, send help. - Sherrie”
 
-It was the same person who signed the message on the stairs. Same name, same chalk. How had they left a note in my room and in my house? They said they had stayed here and gotten lost on the stairs. 
+It was the same person who signed the message on the stairs. Same name, same chalk. How had they left a note in my room and in my house? They said they had stayed here and gotten lost on the stairs.
 
-With dawning horror, I considered the implications of the writing and how it was there in my room while I was awake. I began to realize that everything I had experienced that night was real. The endless stairs, the shadow figures stalking the spiraling steps. As well as someone named Sherrie, trapped in that labyrinthian staircase with whatever those Grabber things were. 
+With dawning horror, I considered the implications of the writing and how it was there in my room while I was awake. I began to realize that everything I had experienced that night was real. The endless stairs, the shadow figures stalking the spiraling steps. As well as someone named Sherrie, trapped in that labyrinthian staircase with whatever those Grabber things were.
 
-I had no idea what to do next, but I knew I had to do something. I had taken my first step into a madness inducing spiral and wherever it led, or who it led to, would have to wait for another night. 
+I had no idea what to do next, but I knew I had to do something. I had taken my first step into a madness inducing spiral and wherever it led, or who it led to, would have to wait for another night.
