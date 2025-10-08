@@ -29,5 +29,21 @@ If things get any worse I'm afraid it won't be only myself that becomes the vict
 I'll update one last time before I... Do whatever needs to be done.
 
 Update: Oct 7th, 7:51 p.m
-I can't take it back, and I can't take it anymore. Something horrifying was unleashed in that place. Whatever was down there, in that dark corridor below the shack, that was found in a desolate location that doesn't seem to exist to anyone else.
+I can't take it back, and I can't take it anymore. Something horrifying was unleashed from that place. Whatever was down there, in that dark corridor below the shack, that was found in a desolate location that doesn't seem to exist to anyone else, aside from myself and my best friend, whom was dead as fuck. 
+
+It made me tear up, thinking of Jacob still sitting in that chair, cold and lifeless. And the same thing that drove him to madness and eventually his death is now becoming my living nightmare. My fate.
+
+The fact is something takes control of me at times, as it has before. The difference is I have memories of these moments that come in fragments. 
+
+The pure malice I've felt in just a few seconds of these points of lucidity while still in this state... I can't describe. I feel as if I'm close to the worst possible point of no return, meaning harm to others or myself. I have to end this while I'm coherent enough to do so.
+
+More and more frequently I've been having blackouts, finding deep lacerations in symbols I've recognized in flashes during what can only be described as glimpses of the walls of hell
+
+I've been lucky enough to be able to document this shit storm via my phone, as it's my only outlet. That, and this platform. Who'd believe me otherwise? I'm pretty confident it's still too farfetched to pretty much anyone.
+
+I don't know if I even love anything anymore. I feel like a non-existent, yet still tormented being trapped within the walls of existence. Nothing makes sense. The face is everywhere. The distorted demonic replica of the face I was used to seeing every day. 
+
+It enjoys my pain, it laughs at my torment. And it wants me to do horrible things... I can't let that happen. 
+
+I'll post soon, if I can
 
