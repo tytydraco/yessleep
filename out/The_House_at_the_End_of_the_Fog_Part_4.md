@@ -2,6 +2,8 @@
 
 [(Previous)](https://www.reddit.com/r/nosleep/s/YNcE6S8KwD)
 
+[(Next)](https://www.reddit.com/r/nosleep/s/1u3Oe65AYC)
+
 
 The scream that tore out of Emily’s throat—or what wore her face—still rang in my skull as I stumbled blind through the dark. My hands scraped walls slick with rot, my boots catching on warped boards.
 
