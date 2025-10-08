@@ -1,16 +1,16 @@
-*WARNING: This is kind of humiliating for me to post. However, the situation has gotten so out of hand, that I feel some level of sacrifice must be had to hopefully bring forth some kind of resolve. So here goes.*
+*WARNING: This is kind of humiliating for me to post. However, the situation has gotten so out of hand, that I feel some level of sacrifice must be had to bring forth a solution. So here goes.*
 
 I've always struggled with pornography. Not in any sort of crazy way, but usually succumbing to it once a day. Which, to me, always felt unhealthy. Fairly early on it stopped feeling like any sort of genuine sexual release. More like a habit that had to be fed; a routine which manufactured a sort of second wind at the mid-point of each day.
 
 I've never been a particularly kinky guy. Sure I'll occasionally venture outside the basic categories, but generally I'm just watching a guy + gal get down to business. I almost always skip the foreplay; straight to the action. I keep it quick, out of preference.
 
-Anyways, my problem all all sort of began with a new trend I came across on my go-to site (very likely the same as yours). These fake 'Snapchat' style videos. I'll always remember that first thumbnail. A curvy white girl with a yellow Kånken backpack bent over her dorm-room desk.
+Anyways, my problem all sort of began with a new trend I came across on my go-to site (very likely the same as yours). These fake 'Snapchat' style videos. I'll always remember that first thumbnail. A curvy white girl with a yellow Kånken backpack bent over her dorm-room desk.
 
 **"COLLEGE GIRLS DO ANYTHING ON SNAP- VOL 1"**
 
-Vertical videos, seemingly filmed within the Snapchat app, of some college bro recording himself banging gorgeous, typically faceless, women. There'd always be some quippy Snapchat style caption plastered over the bottom like "can't believe I'm fucking my teach" or "your girl's getting quite the workout bro" ... you get the idea.
+Vertical videos, seemingly filmed within the Snapchat app, of some frat bro recording himself banging gorgeous, typically faceless, women. There'd always be some quippy Snapchat style caption plastered over the bottom like "can't believe I'm fucking my teach" or "your girl's getting quite the workout bro" ... you get the idea.
 
-Despite their efforts to come off as amateur, real-life encounters, it was fairly clear they were fake. The lighting & camera quality was always too good, and some of the camera angles would clearly require an additional appendage from our 'protagonist'. That said, in the heat of the moment, it wasn't hard to believe; and so for the next few weeks, I plugged through the series. 
+Despite their efforts to come off as amateur, real-life encounters, it was fairly clear they were fake. The lighting & camera quality was always too good, and some of the camera angles would clearly require an additional appendage from our 'protagonist'. That said, in the heat of the moment, it wasn't hard to believe; and so for the next few weeks, I plugged through the series.
 
 To clarify: despite my above criticisms, I really *loved* these videos. I'm a college dropout. So I think it allowed me to fill some imaginary void of what a sex-fueled college experience could have been like.
 
@@ -20,11 +20,11 @@ Until... Volume 9.
 
 I had just gotten home from Planet Fitness (don't make fun of me), and I was ready to unwind for the day. Took a shower, laid out on my bed, and prepared for my afternoon ritual.
 
-I'm a little bit OCD, so when I couldn't find Volume 9 of COLLEGE GIRLS DO ANYTHING ON SNAP, I was a bit irritated. It's not like there was an ongoing story or anything. I just prefer order, even in the more shameful, secret, parts of my life. I returned to Volume 8 and noticed the watermark over the bottom right hand of the video. It read: SnapCamz.com. 
+I'm a little bit OCD, so when I couldn't find Volume 9 of COLLEGE GIRLS DO ANYTHING ON SNAP, I was a bit irritated. It's not like there was an ongoing story or anything. I just prefer order, even in the more shameful, secret, parts of my life. I returned to Volume 8 and noticed the watermark over the bottom right hand of the video. It read: SnapCamz.com.
 
-I punched it into my search bar and the website populated. It seemed so... empty. Like it wasn't complete. No search bar, no navigation menu. Only a single carousel of videos in the center of the page. No thumbnails yet; it seemed to have a sluggish time loading. I sat impatiently. The suspense was killing me. 
+I punched it into my search bar and the website populated. It seemed so... empty. Like it wasn't complete. No search bar, no navigation menu. Only a single carousel of videos in the center of the page. No thumbnails yet; it seemed to have a sluggish time loading. I sat impatiently. The suspense was killing me.
 
-Suddenly, a flurry of pop-ups and spam began to infect the landing page. I began closing them rapidly. I was starting to reconsider if this whole expedition was really worth it. However, with each pop-up closed, a little more of the carousel's newly generated thumbnails were revealed, giving me hope that I'd find what I was looking for after all. 
+Suddenly, a flurry of pop-ups and spam began to infect the landing page. I began closing them rapidly. I was starting to reconsider if this whole expedition was really worth it. However, with each pop-up closed, a little more of the carousel's newly generated thumbnails were revealed, giving me hope that I'd find what I was looking for after all.
 
 Tap. Scroll. Vol 1, 2, 3, 4 ... Tap. Scroll. Vol 5, 6, 7, 8 ... Bam. There it was.
 
@@ -34,14 +34,14 @@ I dramatically lifted my finger and tapped the video, only to come to the frustr
 
 **FUCKING-A!**
 
-I had never had to make an account on a site like this before, I really felt like I was hitting a new low. I quickly punched in a username and password I'd never remember. I hated the idea of any kind of digital footprint on a site like this... Whatever, I'd delete the account after this video, I saw Vol. 10 and on were on my typical site. This was just a one time thing.
+I had never had to make an account on a site like this before, I really felt like I was hitting a new low. I quickly punched in a username and password I'd never remember. I hated the idea of my digital footprint on a site like this... Whatever, I'd delete the account after this video, I saw Vol. 10 and onward were available on my typical site. This would just be a one time thing.
 
 Their terms & conditions may as well been *War & Peace;* it was so long.  
 Scroll. Scroll. Accept. Date. Birth. Sign. Click. Done.
 
 *aannndd* finally. I hit play.
 
-The video started up. A young girl, probably early 20's, beautiful perfect skin, short bob-cut brunette hair with glistening hazel eyes sat on the edge of a dorm room bed (also a little thick in all the right places, my favorite). I took some relief that all this effort at least led to a winner. However, it was a bit strange that you could see her face, as that was a first for this series. Additionally, there was no 'Snapchat caption' on this video which I thought took away from the illusion that I came to love about this series. Oh well, I had entered my date of fucking birth to get here , I wasn't about to click off now.
+The video started up. A young girl, probably early 20's, beautiful perfect skin, short bob-cut brunette hair with glistening hazel eyes sat on the edge of a dorm room bed (a little thick in all the right places too, my favorite). I took some relief that all this effort at least led to a winner. However, it was a bit strange that you could see her face, as that was a first for this series. Additionally, there was no 'Snapchat caption' on this video which I thought took away from the illusion that I came to love about this series. Oh well, I had entered my date of fucking birth to get here , I wasn't about to click off now.
 
 I began my routine as she did hers.
 
@@ -72,9 +72,9 @@ It almost seemed like the video was lagging, as certain frames would slow down a
 But, that wasn't even the strange part.
 
 During these warps in time, her face appeared to twist in ways that seemed... inhuman.  
-I assumed it was a glitch, so I just closed my eyes again. 
+I assumed it was a glitch, so I just closed my eyes again.
 
-I had shit to do today, and needed to just put a bow on this. 
+I had shit to do today, and needed to just put a bow on this.
 
 I knew I was close, I could finish without the visual.
 
@@ -82,7 +82,7 @@ I knew I was close, I could finish without the visual.
 
 My eyes forced open on impulse. If the video had been buffering, it had now slowed to a crawl. Each frame ticked onward ominously, her face slowly inching closer and closer to the camera. I remember feeling a weightlessness like I was floating. That didn't last.
 
-In no more than a second, the girl's face morphed effortlessly into a **hellish flash of pure evil**. 
+In no more than a second, the girl's face morphed effortlessly into a **hellish flash of pure evil**.
 
 That face has been burned into my fucking mind ever since.
 
@@ -94,9 +94,9 @@ The video froze on this image and, without warning, a sharp high pitched tone ra
 
 I dropped my phone to the ground, pulled my underwear up, and waddled to the opposite side of my bedroom. I stared at my phone from across the room. Just sitting there, ringing, face down on the floor, until it stopped.
 
-To be as vulnerable as you are, at the edge of climaxing... and then to instantaneously freefall into the throes of absolute terror is something I would never wish upon my worst enemy. 
+To be as vulnerable as you are, at the edge of climaxing... and then to instantaneously freefall into the throes of absolute terror is something I would never wish upon my worst enemy.
 
-Yet there I was, heart beating out of my chest, jeans wrapped around my ankles.   
+Yet there I was, heart beating out of my chest, jeans wrapped around my ankles.  
 (also the early pains of blue balls 😖)
 
 I decided then and there: I was done with pornography.
@@ -123,9 +123,9 @@ This was fun. I could feel myself getting close now.
 
 That all too familiar shriek of my name sent shivers down my spine.
 
-My eyes tried to open like before... but this time they couldn't. 
+My eyes tried to open like before... but this time they couldn't.
 
-It was like, I was really there now, in Ruby's bedroom. 
+It was like, I was really there now, in Ruby's bedroom.
 
 As if I swam so deep into the pool of my fantasy that I could no longer locate the surface.
 
@@ -169,7 +169,7 @@ I became so sharply attuned to the sound.
 
 Drip. Drip. Drip.
 
-I didn't know it then, but I was experiencing a level of anxiety I had never experienced before. 
+I didn't know it then, but I was experiencing a level of anxiety I had never experienced before.
 
 I held my hand up to my jaw, to stop my teeth from chattering.
 
@@ -199,7 +199,7 @@ Proud to report: I haven't came in *16 months...*
 
 ...and to be honest with you, I feel a **lot** better!
 
-The beginning was fucking hard, but over time, the urge became less and less. Of course I get the urge every now and then, but the fear of what could happen *if I did* always makes it an easy idea to turn down.  Admittedly during this time I had to block the real Ruby out of my life completely. Deleted her number, blocked her on all socials, even skipped my 10 year high school reunion 😅 
+The beginning was fucking hard, but over time, the urge became less and less. Of course I get the urge every now and then, but the fear of what could happen *if I did* always makes it an easy idea to turn down.  Admittedly during this time I had to block the real Ruby out of my life completely. Deleted her number, blocked her on all socials, even skipped my 10 year high school reunion 😅
 
 I just don't think I could muster the strength to see her face again.
 
@@ -207,7 +207,7 @@ On the flipside, my relationship with Natasha began to significantly improve. We
 
 So yah. All is well right?
 
-Sort of. 
+Sort of.
 
 Natasha and I got married 3 months ago. She wants kids; so do I.
 
@@ -225,4 +225,4 @@ If anyone here has any advice or questions, I'm all ears.
 
 I'm not posting here to whine into the void. I am in search of a solution.
 
-Thank you for reading.
+[Thank you for reading.](https://linktr.ee/shadowturtleinc)
