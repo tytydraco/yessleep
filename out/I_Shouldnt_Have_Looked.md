@@ -28,3 +28,6 @@ If things get any worse I'm afraid it won't be only myself that becomes the vict
 
 I'll update one last time before I... Do whatever needs to be done.
 
+Update: Oct 7th, 7:51 p.m
+I can't take it back, and I can't take it anymore. Something horrifying was unleashed in that place. Whatever was down there, in that dark corridor below the shack, that was found in a desolate location that doesn't seem to exist to anyone else.
+
