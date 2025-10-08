@@ -45,5 +45,5 @@ I don't know if I even love anything anymore. I feel like a non-existent, yet st
 
 It enjoys my pain, it laughs at my torment. And it wants me to do horrible things... I can't let that happen. 
 
-I'll post soon, if I can
+I'll post soon, if I can. If nothing else I want someone to read this. I'm almost to the wretched structure with a door, and a hatch that leads to the beginning of it all
 
