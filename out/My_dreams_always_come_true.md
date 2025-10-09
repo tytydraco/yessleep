@@ -1,59 +1,200 @@
-I mean this in a literal sense. My family are all clairvoyants. We see the future through our dreams. It started when my grandmother started seeing my mother's pregnancies through dreams, then my mother predicted mine, and I can also see big events in my dreams. I'm 20 and have been like this since I was 12, all of my dreams predict something, or I simply do not dream. That's why my most recent dream confused me so much.
+I hate myself for it. I watch what happens in my dream occur, and I can’t do anything about it.
 
-*"Baby?" I heard my fiance call to me from the other side of the theater lobby. But how is that possible, he's standing right next to me? I hear his voice again.*
+Many times I have dreamed about people dying — and I have to watch it happen.  
+I pray to dear God that I don’t dream every night before going to sleep, but I get ignored every time.
 
-*"Sweetheart, it's me, turn around."* 
+There have been some nights when I don’t dream,  
+but then I dream **twice** the next time I sleep.  
+And those dreams are always about people passing away.
 
-*I turn around and see no one there. My fiance standing next to me looks at me.*
+I try not to sleep when that happens.  
+Once I tried keeping myself awake by drinking an almost lethal amount of Red Bull.  
+I dreamed **five times** the next time I slept after that.
 
-"*Honey are you alright?" I nod. We enter the screening room and I see my fiance at the end of the aisle. I looked next to me and saw him there, too. What? Why are there two of him? I hold his arm tightly and walk toward the other one.*
+I have watched people getting murdered in front of my eyes.  
+I have watched animals dying in front of my eyes.  
+I have watched people I love dying in front of my eyes.
 
-"Ariana, are you okay?" my fiance asked as he shook me awake.
+Just because I dreamed.
 
-"I'm fine." I lied. "Just a strange dream is all." Brad didn't know that I could see the future. 
+I blame myself and hold a knife pointed at my throat,  
+just to drop it and start blaming myself again.
 
-"Oh okay, don't forget we're going to the movies for date night tonight. Your mom is watching Ally, right?" I simply nodded as my stomach dropped. What's going to happen at the movies?
+It is currently 1 in the morning,  
+and I am once again scared to sleep.
 
-&#x200B;
+One part of my brain wishes not to dream,  
+but the other part begs to dream.  
+I know what will happen if I don’t.
 
-&#x200B;
+I am sitting in my chair with my whole body shaking.  
+I must lie on the bed and close my eyes.
 
-My stomach has been in knots all day, and it only worsened as we walked into the theater. I clung to Brad's side the whole walk to the concession stand. Then, like I was reliving the dream again, I heard his voice call out to me. This time I didn't hesitate and I turned around the first time, once again only to see nothing and no one there. My blood ran cold as I felt someone breathing down my back.
+I cannot do it.  
+I can’t, but I—
 
-"You broke the rules, girl," the voice said. The same voice as Brad. I felt a sharp pain down my back. 
+>
 
-*Fuck, we need to leave,* I thought as I clutched Brad's hand tighter. I have to let this play out exactly like my dream. No matter how terrified I am to approach that thing pretending to be my fiance. We walked into the screening room just like we did in my dream, and there he was. The fake Brad. I clutched the real Brad's hand and started walking to the fake one. 
+I get up, lie down on the bed, and put pillows all around me.  
+I sleep with a knife.  
+In a case, obviously, so I don’t cut myself while sleeping.
 
-The Brad I was holding onto started slowing down, and when I turned around, he was frozen in fear. I turned back to the fake Brad as his face began to distort, revealing a snake-like tongue and razor sharp teeth. I pulled on the real Brad's hand as I started backing away. 
+It’s a sharp knife.  
+The brand claims it is sharp enough to cut through a rope in just one light swing.  
+I never tested it though.  
+I keep ropes away from me.  
+I get bad thoughts.
 
-"We need to run, now," I whispered.
+>
 
-"You fools," the fake Brad, that doesn't even resemble him anymore, cackled. "You think you can escape me? I'll follow you into your dreams, again and again. You can't cheat death himself!"
+I close my eyes and I am suddenly lost in thought.  
+I think about the time I used to have normal dreams.  
+Happy dreams — sometimes sad.
 
-Now I knew we were even more fucked than I thought we were before. Something awakened it, and now we're dealing with the devil. We ducked behind a row of seats and started making our way to the other exit, the devil not yet following.
+>
 
-"How did this happen?!" Brad whisper-yelled at me.
+I think about when it started.  
+These dreams.  
+Always negative.  
+Never positive.
 
-"I don't know! My mom studies witchcraft but- oh no there it is. My mom accidentally summoned Satan."
+I can’t remember anything as always.  
+I think about nothing for a while.  
+I am thinking about something but I feel like I am not.  
+I am not.  
+I—
 
-"Come out, mortals, I just need your souls- To bring back to the one who summoned me," Satan roared.
+I forgot to tell you.  
+These dreams of mine. Are. Always. **Lucid.**
 
-"WAIT!" I yelled as I popped up from behind the seat. "I know who summoned you, you don't need our souls to find her."
+I know I am dreaming right now as one of my fingers is missing.  
+An extremely common way to differentiate between reality and dreams —  
+just see if y—
 
-"Ari what the fuck are you doing?? She has our daughter!" Brad said.
+>
 
-"I know, I have a plan," I responded before looking Satan in the eyes. "I will take you to the one who summoned you if you let us and my daughter go."
+I feel dead.  
+My eyes lock on my finger.  
+My index finger.
 
-"Think of the location, and we'll be there." Satan told me. I gripped Brad's hand as I envisioned my mother's living room.
+It’s not missing.  
+It’s not missing.  
+It’s not missing—  
+it’s not there.
 
-With a flash and two seconds, we were there. I went to my mother's room and picked up my sleeping baby.
+>
 
-"Are we free to go now?" I asked. Before he could answer, a golden spike was driven through his chest. As Satan's now lifeless body slumped to the ground, I looked at my mother, who was holding the spike.
+My mouth is too dry to scream.  
+My legs are shaking on their own and I am unconsciously biting my tongue.
 
-"You're safe now, all the fallen angels have returned to paradise and Satan is dead," my mom said as she dropped the spike. "Gold and Holy water. Grandma's spellbooks were never wrong."
+My index finger has been cut off.  
+No. No. **NO.**
 
-Brad stared at us, slackjawed. "What. The. Fuck. Did you just stab SATAN?"
+It doesn’t take me any more time to realize.  
+This dream is not about someone else.  
+It’s about **me.**
 
-"I think she also killed him, but Ally is safe." Now my whole family is safe.
+I cannot move.  
+I have my knife with me.  
+It is already taken out of its case.
 
-Brad and Ally will never have to worry about being harmed again.
+I look around in the void but see my watch.  
+The time is **2:55 in the morning.**
+
+The pain of fear beats the pain of my finger.  
+Eventually, I start feeling both.
+
+I cut my tongue hard.  
+Blood fills my mouth and wets it.  
+I scream. I scream—  
+no voice comes out.
+
+I cannot speak.  
+I wish the dream is about me accidentally cutting off my finger with my knife.  
+Yes. Great.  
+It is my left hand anyway.  
+It doesn’t matter at all be—
+
+A knife.  
+Its sharp edge pointed at the top of my head.
+
+I close my eyes.  
+A person breathes heavily.
+
+I’m gonna wake up any second now.  
+Any seco—
+
+But that means something bad happens.  
+Something bad.  
+Very, very bad.
+
+I feel the knife lift—  
+but I feel the pain in my throat.
+
+I wake up.  
+I am extremely sweaty.  
+My clock says it is **2:55 in the morning.**
+
+I get out of my bed.  
+I know what is about to happen.
+
+I look at my finger.  
+It is not there.
+
+I don’t try to scream,  
+but I eventually do.
+
+The try doesn’t do anything,  
+but I still had to try.
+
+Me screaming would startle the person who is about to take my life.  
+Everything goes according to what happened in my dream.
+
+Me biting my tongue,  
+blood being filled in my mouth.  
+My head hurts.
+
+I am thinking what I thought in my dream — and this — at the same time.
+
+Knife on the top of my head.  
+I close my eyes as in my dream.
+
+Same heavy breathing.  
+I realize that’s **me.**
+
+I am too scared.  
+I might die from fear.
+
+I don’t think about waking up.  
+This is reality.  
+I know it.
+
+The knife lifts up.  
+It’s going to come down with force any second now.
+
+It is going to kill me.  
+I am about to die.
+
+Is that a good thing?  
+I will never have dreams again.
+
+No more people will die.  
+No more animals will die.  
+No more accidents will happen.
+
+Because of **me.**
+
+I fall on the ground.  
+My knife in my throat.
+
+I think for five seconds more —  
+enough to realize the situation.
+
+My hand went ahead.
+
+I think if everything was a coincidence the whole time,  
+or real.
+
+**I see the long hand of the clock move backwards and forward.**
+
+>(**twice**)
