@@ -16,7 +16,7 @@ The thing got closer and closer, its shadow spilling onto the building, its body
 
 I remember feeling like my parents were mad at me for drawing on the walls with crayons, that same mixture of fear and shame and unavoidable knowing, but a million times worse. Like the universe stood before me and loathed every cell in my body for existing.
 
-The thing lowered its head. When its eye reached balcony level, my reflection shone back at me, and I just knew I was going to die. I was going to die, forever, and whatever happened after, this thing was going to be there, hating me the whole while.
+The thing lowered its head. When its eye reached balcony level, my reflection shone back at me, and I just knew I was going to die. I was going to die, and whatever happened after, this thing was going to be there, hating me the whole while.
 
 The protrusions on its head writhed, flexing in my direction. One wormed its way down quicker than the rest, destroying a chunk of the balcony, then grabbing me and lifting me up by the legs. It hurt in a way I still wince at every other day if I let it, like being touched by the sun but colder than winter. I clung to the intact part of the railing, finally screaming my head off, my limbs straining against the thing's impossible pull.
 
