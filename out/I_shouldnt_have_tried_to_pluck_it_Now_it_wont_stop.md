@@ -68,7 +68,7 @@ I don't know what happens next.
 
 But I can feel myself spreading. Growing. Reaching through pipes and wires, through cracks in concrete, following power lines and water mains, finding other bodies, other holes, other places to emerge.
 
-If you find a hair growing somewhere wrong, somewhere lonely — don't touch it.
+If you find a hair growing somewhere wrong, somewhere lonely ... don't touch it!
 
 Because it's not growing from you.
 
