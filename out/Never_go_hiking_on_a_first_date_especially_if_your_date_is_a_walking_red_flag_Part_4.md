@@ -1,6 +1,5 @@
 *For context on how I got here, please go read:* [*Part 1*](https://www.reddit.com/r/nosleep/comments/1nu3c92/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) *|* [*Part 2*](https://www.reddit.com/r/nosleep/comments/1nvjc9v/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) *|* [Part 3](https://www.reddit.com/r/nosleep/comments/1nxyhsq/never_go_hiking_on_a_first_date_especially_if/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-As some of you in the comments of my last post has pointed out; maybe Moira is a shapeshifter, or maybe she is protecting me from this entity inside my house... or perhaps both could be true. I hope this part will bring you the answers you seek.
 
 Against my better judgment, I decided to go up into my attic. The dripping stain on my dining room ceiling was all the evidence I needed to convince me that it wasn’t just inside my head. Maybe if the cause of the dripping was really just a leaky pipe, it would confirm that my paranoia had blown this situation way out of proportion.
 
