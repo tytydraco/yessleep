@@ -8,7 +8,7 @@ but then I dream **twice** the next time I sleep.
 And those dreams are always about people passing away.
 
 I try not to sleep when that happens.  
-Once I tried keeping myself awake by drinking an almost lethal amount of Red Bull.  
+Once I tried keeping myself awake by drinking an almost lethal amount of coffee.  
 I dreamed **five times** the next time I slept after that.
 
 I have watched people getting murdered in front of my eyes.  
@@ -124,9 +124,9 @@ A person breathes heavily.
 I’m gonna wake up any second now.  
 Any seco—
 
-But that means something bad happens.  
-Something bad.  
-Very, very bad.
+But that means something bad will happen.
+
+If my dream ends right now, it will mean that.. I am dead.
 
 I feel the knife lift—  
 but I feel the pain in my throat.
@@ -185,12 +185,10 @@ No more accidents will happen.
 Because of **me.**
 
 I fall on the ground.  
-My knife in my throat.
+My knife passed through.
 
 I think for five seconds more —  
 enough to realize the situation.
-
-My hand went ahead.
 
 I think if everything was a coincidence the whole time,  
 or real.
