@@ -34,7 +34,7 @@ Week five my eyes looked different. Bloodshot maybe, except not red. Pink. And t
 
 I tried to skip a day. Didn't drink from the bottle one morning just to see what would happen. By 10am my arms were itching so bad I wanted to claw them open. Not the skin, inside, like the muscle itself was trying to get out. No amount of stretching helped. I caved and drank the whole bottle. The itch stopped immediately. Got to the gym and demolished arms. 21s on barbell curls with 95 pounds. My biceps felt like they were going to split the skin.
 
-This morning I woke up and my nipples were wet.
+I woke up and my nipples were wet. At first I thought gyno, which happens when you mess with hormones. I'd seen it before, guys who cycle without proper AI get bitch tits. But this wasn't soft tissue. When I pressed on my pecs they felt full. Dense. Almost like they were swollen with fluid.
 
 Not sweat. This was thick, pink, and it smelled exactly like what was in the bottle. I touched it and my fingers came away sticky. I squeezed my pec experimentally and more came out, a steady drip, and the sensation was ..... fuck, I don't even know how to describe it.
 
