@@ -5,9 +5,8 @@
 [PART 3](https://www.reddit.com/r/nosleep/comments/1nw7z92/i_write_songs_for_monsters_part_3/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 
-“You know who you’re speaking with, don't ya?”  
+“You know who you’re speaking with, right?" 
 
- 
 I didn’t. But I also didn’t trust the sound of his voice; it was too mechanical, too inhuman.   
 
  

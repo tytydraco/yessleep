@@ -79,3 +79,5 @@ It’s been forty-five minutes and hell (or angry snails) hasn’t come raining 
 Someone suggested pouring salt on them, or at least outside my house, and I figure I am not really above anything. To be fair they don’t seem to care about the salt in the doorway, but I will try to sneak some downstairs.  I’ve had these really intrusive thoughts of waking up to snails climbing on my eyeballs, and I really need to sleep.
 
 I think that’s what I’ll do. I’ll text Henning, and then I’ll sleep. I am so tired. 
+
+\[[update](https://www.reddit.com/r/nosleep/comments/1o37uyo/i_am_a_banisher_when_i_woke_up_i_wasnt_alone/)\]
