@@ -248,7 +248,7 @@ She cocked her head, “What am I doing?”
 
 Heather’s eyes fell on me as she said that, and suddenly guilt weighed heavy in my stomach. I sensed she was being genuine, so I shouldn’t have felt bad if I wanted to leave, but it wasn’t that.
 
-Like I said, Heather was ride or die—she’d followed me into more places than I could count, and all of it was for nothing. Now, here we were with something that actually had potential—something I’d looked for my entire life—and I was running from its literal call to adventure.
+Heather was ride or die—she’d followed me into more places than I could count, and all of it was for nothing. Now, here we were with something that actually had potential—something I’d looked for my entire life—and I was running from its literal call to adventure.
 
 What kind of friend would I have been if I’d made Heather go at it alone?
 
