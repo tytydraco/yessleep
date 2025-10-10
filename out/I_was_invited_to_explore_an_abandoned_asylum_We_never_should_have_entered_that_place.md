@@ -10,15 +10,15 @@ We met after work so he could drive us to this building.  
 
 I nodded as I half listened. I hadn’t even been able to find the name online. They must have done a great deal of scrubbing to erase this place so well.   
 
-Since I wasn’t paying much attention and focused more on my phone during the drive, I didn’t know where we ended up. The road slowly became surrounded by trees, then turned into a dirty pathway I wasn’t certain we should be driving along. This building was really out of the way.   
+Since I wasn’t paying much attention and focused more on my phone during the drive, I didn’t know where we ended up. The road slowly became surrounded by trees, then turned into a dirty pathway I wasn’t certain we should be driving along. This building was really out of the way.   
 
-The trees finally parted, and I could see a massive building on top of a hill that Brain’s car struggled against. Some other cars were already waiting for us. A full moon shone between clouds, and a slight breeze caused colored leaves to drift across the unkempt lawn. The white paint peeled off the front of the stone walls, and most of the dark windows were broken. This place looked like it came straight out of a bad horror movie. At least I would be getting my Halloween fill this season.  
+The trees finally parted, and I could see a massive building on top of a hill that Brian’s car struggled against. Some other cars were already waiting for us. A full moon shone between clouds, and a slight breeze caused colored leaves to drift across the unkempt lawn. The white paint peeled off the front of the stone walls, and most of the dark windows were broken. This place looked like it came straight out of a bad horror movie. At least I would be getting my Halloween fill this season.  
 
 We parked with the other two cars, and Brian started to introduce everyone. There would be seven people in total.   
 
 Kayla, a girl he’s known since high school, waved when we walked over. Ryan worked with Brian at their last job. He didn’t appear overly excited about the entire idea. I got the sense he was somehow bribed to be here. Liam and his sister arrived next in the same car. They were both tall, and within seconds of meeting them, I got the impression they could be friends with anyone. The last person arrived a few minutes after them, saying how they almost got lost.  
 
-“Ok, good, we’re all here. Everyone wearing proper footwear? There are a lot of rusty nails and broken glass inside. How about flashlights?” Brain started looking over the group.  
+“Ok, good, we’re all here. Everyone wearing proper footwear? There are a lot of rusty nails and broken glass inside. How about flashlights?” Brian started looking over the group.  
 
 Most of us had our cellphones for flashlights. He didn’t want us using up our batteries, so he handed out small pen lights as well as some walkie-talkies. I was impressed by all of this. Even though I was only working with him for a short time, I didn’t have a very high opinion of his work ethic. When he was motivated, it seemed like he thought things through.  
 
@@ -44,7 +44,7 @@ I don’t know why he sounded a little stressed over my question. I ignored it
 
 For the next few minutes, we did just that. I realized that most of these people knew Brian, but this was the first time they were meeting each other. I wasn’t the odd person out in this group.   
 
-“Everyone ready?” Brain asked and got a positive response.  
+“Everyone ready?” Brian asked and got a positive response.  
 
 A cold wind blew, almost ushering our group inside. An odd feeling came into my stomach as I suddenly wanted to turn back and go home. I shook my head, refusing to back out now. Besides, Brian was my ride. Lifting the handheld camera, I followed behind the group, unaware of what waited for us inside,  
 
@@ -56,7 +56,7 @@ The lobby was massive with cracked tiles. It opened to a large set of wooden sta
 
 “Yeah, you would think it would be a huge local legend or something.” Another person chimed in.  
 
-“Which side do you want to start with?” Brain asked, ignoring the previous questions.  
+“Which side do you want to start with?” Brian asked, ignoring the previous questions.  
 
 “Right.”  
 
@@ -64,11 +64,11 @@ The lobby was massive with cracked tiles. It opened to a large set of wooden sta
 
 Two sets of voices came at the same time. After a quick game of rock, paper, scissors, it was decided we would go left. From the looks of things, the rooms for the staff were on the right and the patients were on the left. Any treatment rooms were in the basement, and the common areas were on the first floor. It would be impossible for us to look at the entire building in one night.   
 
-“Let’s look at the left side and then go to the basement for the good stuff.” Brain said, and we all agreed.  
+“Let’s look at the left side and then go to the basement for the good stuff.” Brian said, and we all agreed.  
 
 We made our way upstairs, the group chattering away, ruining the atmosphere. It wasn’t overly upset over that. Sure, I did want a spooky night out, but after nearly an hour of recording banter and silly antics of the group, I found myself preferring this kind of night over what I expected.  
 
-Each room we peeked into was more or less the same. Ruined beds with some personal items left behind. It looked like everyone just got up and left. Each item is slowly being overtaken by the elements.  
+Each room we peeked into was more or less the same. Ruined beds with some personal items left behind. It looked like everyone just got up and left. Each item is slowly being overtaken by the elements.  
 
 “Weird how there isn’t any graffiti,” I commented as we walked down a hallway.  
 
@@ -106,7 +106,7 @@ They all appeared confused. Liam slowly nodded and glanced down at his phone. Th
 
 He took hold of his sister’s hand, ready to drag her out if needed.  
 
-“Why? Because you can’t count? It was always the six of us, right?” Brain said.  
+“Why? Because you can’t count? It was always the six of us, right?” Brian said.  
 
 I narrowed my eyes at him. For some odd reason, it sounded like he was trying to convince us. Was this a prank they were playing on the new guy? No. I remember adding seven contacts to my phone. It hadn’t left my pocket. Someone couldn't delete it. And everyone here wasn’t friends with each other. Only Brian.  
 
@@ -196,13 +196,13 @@ Liam nodded, glad that we had some sort of plan. I have no idea how long we move
 
 “It’s a cellphone number.” She pointed out.  
 
-Someone had recently written a number in the dust on the dresser. Had brain been here? I checked my phone and saw it wasn’t a number on my contacts list. Was it from someone we were missing? Before I could enter, an overpowering smell came into the room. Our backs had been turned to the bed. We moved too late. A hand came down, gripping Liam's shoulder so hard it made him crumble to the ground.  
+Someone had recently written a number in the dust on the dresser. Had Brian been here? I checked my phone and saw it wasn’t a number on my contacts list. Was it from someone we were missing? Before I could enter, an overpowering smell came into the room. Our backs had been turned to the bed. We moved too late. A hand came down, gripping Liam's shoulder so hard it made him crumble to the ground.  
 
 The creature was a thin creature with charred flesh sticking to its frame. Kayla screamed as a burned patch started to spread along Liam’s shoulder, melting away part of his shirt. My body froze as I met the creatures' eyes. My entire soul was suddenly filled with so much sorrow I couldn’t move. I couldn’t think. Tears sting my eyes, and I was positive we would have died there if it weren’t for the third person in the room.  
 
 Kayla found a broken piece of a wooden chair in the corner. She grabbed the thickest part and swung it like a bat. It shattered on the creature's skull, snapping the head back so far that I thought it would come off. It screamed and then disappeared into the floor, leaving its attacker panting with a broken piece of wood in her hands.  
 
-I went to see how Liam was. It took a minute before he was able to stand up; the burn was not as bad as it could have been.  
+I went to see how Liam was. It took a minute before he was able to stand up; the burn was not as bad as it could have been.  
 
 “Thanks...” We told Kayla a little bit in shock over her outburst.  
 
@@ -224,7 +224,7 @@ A hand took hold of the back of my shirt. I found myself falling as the floor ga
 
 I must have been knocked out. I felt a warm hand on my cheek and a voice asking if I was alright. Opening my eyes, I saw we were in an empty room with a ceiling so high I couldn’t see the top. It felt more like a pit than a room.   
 
-Sitting up, I say Kayla, sitting next to me. Some scratches and bruises, but she was alright. Liam wasn’t doing as well. The burn on his shoulder spread. He sat against the wall, barely able to keep his eyes open. Another person was in the room with us. Brain was on his back, blood on his forehead, eyes closed as he clutched the camera as if his life depended on it.  
+Sitting up, I say Kayla, sitting next to me. Some scratches and bruises, but she was alright. Liam wasn’t doing as well. The burn on his shoulder spread. He sat against the wall, barely able to keep his eyes open. Another person was in the room with us. Brian was on his back, blood on his forehead, eyes closed as he clutched the camera as if his life depended on it.  
 
 A large steel door took up most of the left wall. I could hear inhuman yowling from the other side as it got closer.  
 
@@ -256,7 +256,7 @@ I gave her a raised eyebrow but didn’t say anything. She’d been through 
 
 He gasped, clutching his sore side. He spotted the camera he’d let go of and then scrambled for it. Hake reached it first, the heels coming down, smashing it to pieces.  
 
-“You bitch!” Brain yelled, ready to attack her.  
+“You bitch!” Brian yelled, ready to attack her.  
 
 A strong leg came out, knocking him senseless. I sat, not wanting to get in between any of this. From the looks of things, these two had met before.   
 
@@ -280,7 +280,7 @@ My heart started to race. We could get out of here. I just needed to deal with t
 
 “Boring!” She hissed, turning her nose up to my offer.  
 
-I looked over at Liam, knowing he didn’t have a lot of time left. Even if there weren’t monsters at the door ready to break it down, he needed help fast.   
+I looked over at Liam, knowing he didn’t have a lot of time left. Even if there weren’t monsters at the door ready to break it down, he needed help fast.   
 
 “There were seven of us...” I started, and Jake glanced over, almost interested. “I don’t remember the seventh. But I know Ryan’s name and that Liam was here with his sister. Are they still alive?” I asked, hoping for answers.  
 
@@ -296,7 +296,7 @@ The creatures who chased us weren’t monsters. Just someone who had been hurt
 
 “I’m reconsidering your offer. You cannot help them here. You’ll only be dragging them into their pain. The only way to help is to make the public aware of the abuse people suffered in these systems. To do that, you need to get out. Now, what are you going to offer me to make it worth my time?”  
 
-She stood tall, hands on her hips, with a smug look on her face. She held all the cards, and I needed to figure out what she wanted.  
+She stood tall, hands on her hips, with a smug look on her face. She held all the cards, and I needed to figure out what she wanted.  
 
 “You can do whatever you want with me,” I said, and got a nasty look as a response. I then pointed a finger over to Brian. “And you can have him.” I finally said.  
 
@@ -369,3 +369,5 @@ With that last comment, she tossed a set of keys into my lap that belonged to Br
 “Thank you.” I told her again, and she stuck her tongue out as if I said something disgusting.  
 
 I still had her cell phone number, so we could figure out the pancake day and how many she wanted. I might be stuck delivering breakfast to this weirdo for a long while. And I was perfectly alright with that.   
+
+ 
