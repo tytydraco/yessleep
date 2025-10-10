@@ -62,8 +62,7 @@ A whisper brushed against my ear — too soft to understand, too close to ignore
 
 That’s when I knew.
 This house wasn’t copying ours.
-It was worshipping it.
-Or us.
+It was becoming ours. Becoming us.
 
 I stumbled out, heart hammering, found my cousin — the one who’d come with me — and told him we needed to leave, now. He didn’t question it. We gathered whoever would listen, ignoring the calm, smiling faces that told us it was “peaceful” here, that it “felt right.”
 
