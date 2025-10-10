@@ -56,7 +56,7 @@ Lester chuckled; it was a heartless laugh. Already, I was suspicious. Monsters, 
 
  
 
-“I run the music biz,” he repeated himself. “Most of it, anyhow. But with the emergence of IA, I could lose everything. I need another hit song. Fast.”   
+“I run the music biz,” he repeated himself. “Most of it, anyhow. But with the emergence of AI, I could lose everything. I need another hit song. Fast.”   
 
  
 
@@ -272,7 +272,7 @@ I loped downstairs and snatched it.
 
  
 
-Once home, I plopped onto my bed, trembling. Everywhere, I hurt. How did I get myself in the mess? But I knew the answer. The Readhead. She was to blame. Whoever she was. I closed my eyes and succumbed to nightmares.   
+Once home, I plopped onto my bed, trembling. Everywhere, I hurt. How did I get myself in the mess? But I knew the answer. The Redhead. She was to blame. Whoever she was. I closed my eyes and succumbed to nightmares.   
 
  
 
