@@ -103,9 +103,9 @@ One eye was milky white. The other turned toward me.
 
 I froze.
 
-The face, gray and slack and barely human, was Adam’s.
+The face, gray and slack, was Adam’s.
 
 For a few seconds he just stared, his mouth twitching, trying to form words.
 And then they came.
 
-“*Kill me. Kill me.*”
+“*Kill me. [Kill me](https://www.reddit.com/u/Accomplished_Low7889/s/xAPoxArSge).*”
