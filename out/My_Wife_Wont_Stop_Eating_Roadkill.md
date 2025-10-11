@@ -46,7 +46,7 @@ I woke up that morning and looked at my phone. It was 5:15 a.m. I had woken up e
 
 There was also an Amber Alert. My neighbor, a single mother, had reported her kid missing. The dad was a real deadbeat and the prime suspect.
 
-After I got a taxi back from the hospital, I decided to clean everything up straight away. I came home home to see crows gathered on our rooftop.
+After I got a taxi back from the hospital, I decided to clean everything up straight away. I came home to see crows gathered on our rooftop.
 
  I scrubbed the blood out of the carpet with white vinegar and put what was left of the raccoon in a trash bag. I put it in the trash can outside. 
 
