@@ -60,7 +60,7 @@ It repeated again and again.
 
 ***
 
-I went home and couldn’t sleep. Something was very wrong inside that place, but I didn’t know what.
+I went home and couldn’t sleep. Something was very wrong inside that place.
 
 The name of the previous guard, Adam something, stuck in my mind. So I decided to look him up. It didn’t take long before I found a Facebook profile that matched: same city, same line of work, private security.
 
