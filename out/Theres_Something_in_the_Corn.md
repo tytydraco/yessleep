@@ -6,7 +6,7 @@ Honestly, I debated for a long time whether or not I would revisit these memorie
 
 I’ve seen things; and I’m ready to talk about them.
 
-It started when my husband  Eliott and I found ourselves moving back to my family’s farm to take care of our dad after he had a stroke that left him unable to take care of himself for a few months. Mom had been shipped away to a mental hospital two years ago–the alien conspiracy theories finally cracked her–so Dad was all by himself on fifty acres of land out in the middle of good, old-fashioned, midwest nowhere. 
+It started when my husband  Eliott and I found ourselves moving back to my family’s farm to take care of my dad after he had a stroke that left him unable to take care of himself for a few months. Mom had been shipped away to a mental hospital two years ago–the alien conspiracy theories finally cracked her–so Dad was all by himself on fifty acres of land out in the middle of good, old-fashioned, midwest nowhere. 
 
 Now, I call this a farm, but if you're picturing giant, industrial-sized barns full of cows, and massive, shiny equipment caring for endless fields of crops and hayfields…stop it. Ninety percent of the land was woods with just enough land carved out for a two-storey farm house, a tiny barn for a handful of chickens, a couple goats, and an ancient sway-backed horse, and the cornfield that took up more land than the house and barn put together. Corn was the only thing he sold from that farm–deer bait for hunters–and when Mom was still around they would turn the field into a maze for the neighborhood kids. 
 
