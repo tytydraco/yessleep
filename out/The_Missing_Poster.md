@@ -4,6 +4,7 @@ I’ve been a police officer for ten years. A few weeks ago, I found my niece’
 I started my shift just like any other, with a cup of coffee.
 Ten years on the job, caffeine’s basically part of the uniform.
 
+
 Get to work.
 Throw on my uniform.
 Grab the keys to my sector car.
