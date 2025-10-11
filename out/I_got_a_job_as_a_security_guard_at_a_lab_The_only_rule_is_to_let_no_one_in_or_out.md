@@ -2,9 +2,9 @@ I was anxious about my first day on the job. I didn’t want to screw things up 
 
 Dr. Mary had hired me for a simple position with good pay. I’d be the night security guard for her private lab.
 
-It was located just outside town, in an area full of abandoned buildings, the kind of place where you’d expect no one to ask questions. I figured she valued discretion.
+It was located just outside town, in an area full of abandoned buildings, the kind of place where you’d expect no one to ask questions.
 
-I arrived at 7 p.m. sharp, and she was expecting me in front of the door. 
+I arrived at 7 p.m. sharp, and she was waiting in front of the door. 
 
 “The rules are simple,” she said, her tone strict. “And I suggest you write them down, because we’ve had issues with the previous guard. No one enters the lab unless I’m here. And no one leaves either.”
 
@@ -24,9 +24,7 @@ Before leaving, she told me that room was the most important one. I wasn’t all
 
 The first few hours of my shift passed quietly. I watched the exterior cameras, checking the empty streets outside, trying to figure out why she was so strict. But there was nothing unusual. That neighborhood was practically dead, and the only vehicle I saw all night was a garbage truck.
 
-Once I relaxed, I spent the rest of my shift playing some stupid phone game, just like I used to do in my last job.
-
-It wasn’t until around four in the morning that something strange happened.
+Once I relaxed, I spent the rest of my shift playing some stupid phone game. It wasn’t until around four in the morning that something strange happened.
 
 I left the security room to grab a snack from the break room, but as I crossed the main hall, right in front of the experiment chamber door, I heard a sound.
 
