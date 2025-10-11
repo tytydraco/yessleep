@@ -141,3 +141,5 @@ I turned around in the dark because this took a lot of time to write and I had t
 Halfway up the nightstand, right where I had scooped him up this morning. Unbothered. Same shell color, same little blotch on the side, now a little smudged into the yellow and black pattern.
 
 I don’t know whether I should be angry, relieved or terrified at this point. Honestly, I just feel defeated. I am only certain of one thing as of right now: That the fucker came back, and that he somehow knew *to put himself where I would definitely see him.*
+
+\[ [first](https://www.reddit.com/r/nosleep/comments/1o1hfpi/i_am_a_banisher_and_the_snails_followed_me_home_i/) \] \[ [update](https://www.reddit.com/r/nosleep/comments/1o42adf/i_am_no_longer_a_banisher_i_decided_to_become_a/) \]
