@@ -98,7 +98,7 @@ No sound came out. Just his mouth shaping words over and over, like he was recit
 
 I took a deep breath and leaned in. Wrapping my hands with a deathly grip around his sleeves. Then I heard it. 
 
-*My name****.***
+*My name*.
 
 Faint. A gurgling. Being spoken through him, not from him. 
 
