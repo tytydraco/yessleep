@@ -80,7 +80,7 @@ So we closed the door behind us, returning to our own rooms to continue cramming
 
 The knocking stopped. I open my door with a *creak*. I wasn’t sure if I was relieved or even more terrified to learn that nobody was standing outside. I scanned the kitchen, the couch we used as our proverbial hotbox. And then came another *knock*. Then, two *knocks*. I whipped around, confused. What the hell was happening? Where was it coming from? I was about to give up when I noticed something. It appeared to be the tip of a finger, a thumb, right behind the kitchen island. 
 
-“Jesus.” I scampered toward the island, dug out my phone to use as a spotlight, not exactly sure what I was expecting. *It was Tommy*. Insy-bitsy roaches scoured his nude, now catatonic body, weaving in and out of every one of his orfices. His eyes, his nose, his mouth—even his anus. I couldn’t help what I did next. I mean, could you blame me? I turned and retched, hot vomit scorching my nostrils raw. 
+“Jesus.” I scampered toward the island, dug out my phone to use as a spotlight, not exactly sure what I was expecting. *It was Tommy*. Insy-bitsy roaches scoured his nude, now catatonic body, weaving in and out of every one of his orfices. His eyes, his nose, his mouth—even his anus. I couldn’t help what I did next. I mean, could you blame me? I turned and retched, hot vomit scorching my nostrils raw. It splatters my soiled shoes. 
 
 I crashed down to my knees. "Tommy... Oh my God. Oh my God."
 
@@ -120,8 +120,10 @@ Even stranger, there used to be a boy named Ezra Reeds, who lived in the buildin
 
 “That’s right,” my mother said in her same quiet, mousy voice. “I just… can’t bear to think. What if it had been you instead?”
 
-After finally finishing that smarting conversation with my parents, I switched off the lights. Set the figurine on my bedside table. For a minute or two, I tried to decompress. Think straight for the first time this  semester. Perhaps even my entire life. The image of Tommy’s body was burned into my brain. The roaches, his near lightless, sea-glass eyes. My eyes fluttered a little as the weight of the day began to set in on me. 
+After finally finishing that smarting conversation with my parents, I switched off the lights. Set the figurine on my bedside table. For a minute or two, I tried to decompress. Think straight for the first time this  semester. Perhaps even my entire life. The image of Tommy’s body was burned into my brain. The roaches, his near lightless, sea-glass eyes. My own eyes fluttered a little as the weight of the day began to set in on me. 
 
 Which is when I heard the whistling… 
 
 It was raspier than usual, almost melding into what I can only describe as laughter. Despite every cell in my body reeling in protest, I rolled over in the hotel bed. And I glimpse an AC duct above, one  even smaller than the one in my apartment. Two, big yellow orbs peered down through the grating. The eyes of a Fiend. 
+
+I’ll keep everyone posted. 
