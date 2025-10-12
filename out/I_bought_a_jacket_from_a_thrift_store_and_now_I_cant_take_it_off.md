@@ -88,14 +88,14 @@ I just dialed 911 and my phone connected to the thrift store instead! The lady w
 
 I hung up and called 911 again and called the thrift store again! Someone help me!
 
-The jacket just got tighter around me. It's hugging me. Someone please—
+The jacket just got tighter around me. It's hugging me. Someone please.
 
-It feels heavy. I feel heavy. Like drowning. I feel warm.
+It feels heavy. I feel heavy. Like drowning. I feel warm. Peaceful. Painless. Sleeeeeee--
 
-Peaceful.
+I just cut the sleeve off and the jacket loosened. I think I can cut the whole thing off.
 
-Painless.
+I got it off!
 
-Sleeeeeeeeeeeee—
+I keep seeing the Old Man. He's following me.
 
-[Read Part 2 Here](https://www.reddit.com/r/nosleep/comments/1nsrue5/im_an_er_nurse_and_after_last_night_i_have_proof/)
+He's telling me to put the jacket back on. The weirdest part is that I want to. I feel like I have to. If you don't hear from me again, it's probably because the jacket is back on.

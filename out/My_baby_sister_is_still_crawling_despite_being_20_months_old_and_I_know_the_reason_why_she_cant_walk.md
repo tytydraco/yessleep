@@ -64,7 +64,7 @@ After dinner, Claire played quietly on the living room rug. A frog doll had join
 
 Something about it made my chest tighten. I told myself she was just repeating what she had learned, a harmless mimicry. But the pattern in her voice felt deliberate. As if she was teaching the dolls.
 
-A few nights later, I woke up in the middle of the night. I had to use the bathroom.
+Few days later, I woke up in the middle of the night. I had to use the bathroom.
 
 I was heading right when I noticed the nursery door open. In the darkness, the toys littered on the floor were visible, but the door blocked me from seeing her bed.
 
