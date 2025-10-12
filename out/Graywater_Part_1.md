@@ -283,7 +283,7 @@ We checked all five local bars. Every trace of life had completely left the town
 
 “Jay, this place, for whatever reason, is a complete ghost town. I-I really think we need to leave.” I didn’t skip a beat in replying.
 
-“I’m going. You’re welcome to go back to the car and wait. I completely understand if this is too much for you. 
+“I’m going. You’re welcome to go back to the car and wait. I completely understand if this is too much for you.”
 
 We started walking back to the directory, cutting across the park to save time. The soft dead grass crunched lightly beneath my shoes. We passed completely abandoned cars slightly parked on the sidewalk. Open balcony doors of second floor apartments with curtains blowing in the breeze. The trees drooped and their leaves had started to fall ever so softly to the ground.
 
