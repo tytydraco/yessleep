@@ -6,8 +6,6 @@
 
 **-Employee Handbook: Section 12.A**
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/1mlackw/im_a_trucker_on_a_highway_that_doesnt_exist_there/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1mmsi7t/im_a_trucker_on_a_highway_that_doesnt_exist_you/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1mrcfkc/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1mt083f/im_a_trucker_on_a_highway_that_doesnt_exist_dont/) | [Part 5](https://www.reddit.com/r/nosleep/comments/1mz659m/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 6](https://www.reddit.com/r/nosleep/comments/1n55qbq/im_a_trucker_on_a_highway_that_doesnt_exist_i/) | [Part 7](https://www.reddit.com/r/nosleep/comments/1nazpkv/im_a_trucker_on_a_highway_that_doesnt_exist_the/) | [Part 8](https://www.reddit.com/r/nosleep/comments/1ngx170/im_a_trucker_on_a_highway_that_doesnt_exist_ready/) |[ Part 9](https://www.reddit.com/r/nosleep/comments/1nmy3y5/im_a_trucker_on_a_highway_that_doesnt_exist_there/) | [Part 10](https://www.reddit.com/r/nosleep/comments/1nswm42/im_a_trucker_on_a_highway_that_doesnt_exist_i/)
@@ -92,11 +90,7 @@ Weeks later, when Chris’ voice finally rang out on the general channel, I was 
 
 “It happened,” he said. “I lane-locked.”
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 The rest of us arrived over the next few hours. Our schedules had overlapped that day. We’d planned a game of poker that would never happen now. One by one, we maneuvered our rigs onto the shoulder of the redwood section and got out.
 
@@ -202,11 +196,7 @@ We all waited in silence, letting him cry it out. It was uncomfortable―Chris h
 
 Only later, back at dispatch, before I turned in my keys, did I radio Autumn. “Enough waiting. It’s time.”
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 Never pick up a hitchhiker. Absolutely never. Not under any circumstance.
 
@@ -226,7 +216,7 @@ In the end, I chose a heavily pregnant woman at the far reaches of town. It was 
 
 I smiled. “‘Course.”
 
-Like Myra, she acted normal at first. She chatted about her children―fictional, I assumed―and how hard it was to give up smoking after getting pregnant each time. I *uh huh*\-ed and *oh really-*ed at all the correct parts.
+Like Myra, she acted normal at first. She chatted about her children―fictional, I assumed―and how hard it was to give up smoking after getting pregnant each time. I *uh huh*\-ed and \*oh really-\*ed at all the correct parts.
 
 “Such a good listener.” The woman patted my arm.
 
@@ -334,7 +324,7 @@ A rip appeared in the skin. A talon rose out of the split.
 
 The tear widened. Droplets of rot-scented, black ichor slid off the bulging stomach.
 
-*“*Not the seats again,” I said.
+\*“\*Not the seats again,” I said.
 
 Another noise apart from the hitchhiker's screeching. It was quiet at first, gurgled and muffled. As the stomach opened, and two sets of claws emerged, it grew louder: *giggling.*
 
@@ -416,11 +406,7 @@ I coughed. “Okay. Well. That was…”
 
 “Yep.”
 
-
-
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-
 
 We drove another five minutes before finally rolling to a stop. The whole drive, Autumn stayed silent.
 
@@ -445,3 +431,5 @@ She held her hand to her mouth and cried silently.
 We’d done it. We’d finally figured out the secret of lane-locking. The others could leave.
 
 [Autumn couldn’t.](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/)
+
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1o4unlr/im_a_trucker_on_a_highway_that_doesnt_exist_some/)

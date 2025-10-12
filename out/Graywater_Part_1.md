@@ -60,8 +60,9 @@ We sat in silence for a brief moment.
 
 “I know.” Ryan's face was stone. “I already packed a bag….But Jay,"  
 
-“Ryan, I can do this part on my own. You really don’t have to get involved.”
-The look Ryan gave me could have stopped a clock. “Let me finish…This is the last fucking time I do this. We go get him, and then I’m done. I mean it.” Each word dropped like a stone into still water.
+“Ryan, I can do this part on my own. You really don’t have to get involved.” The look Ryan gave me could have stopped a clock. 
+
+“Let me finish…This is the last fucking time I do this. We go get him, and then I’m done. I mean it.” Each word dropped like a stone into still water.
 
 “Thank you, Ryan.”
 
