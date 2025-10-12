@@ -12,7 +12,7 @@ My hand stilled on the mouse. At first, I almost smiled. It was clearly posted b
 
 This random comment could have remained as interesting. If it had stopped there.
 
-Soon, I got two, maybe three emil notifications every day. They always directed a blog page.
+Soon, I got two, maybe three email notifications every day. They always directed a blog page.
 
 Always a comment.
 
