@@ -1,5 +1,3 @@
-It doesn’t know how to take care of me
-
 My name is Joshua. I’m 43 years old. I used to live in rural Oregon, but approximately three months ago, I went missing.
 I need the world to know what happened to me. I’m not sure how coherent or polished this will be, since I don’t have much time. I’ll just edit as I go.
 To all of my loved ones who may be reading this, I suggest you stop here. I don’t want you to worry about me. But mostly, I don’t want these to be your final memories of me.

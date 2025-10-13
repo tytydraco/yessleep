@@ -13,8 +13,8 @@ The parents, Margaret and David, live a little outside of town in this big, old 
 Margaret greeted me at the door with this polite-but-distant smile. She appeared to be in her mid-thirties, but the gray strands streaking her brown hair made her look older. Plus her eyes aged her - she looked tired - like she hadn’t slept in days. David was a little older, with short black hair and glasses. They both looked strict, not the type of casual parents I was expecting. Ones I could chat and laugh with. David didn’t waste time on small talk - he led me straight into the kitchen, sat me down at the table, and slid over a sheet of paper with three rules written on it. He went over them out loud, like a teacher making sure a student understands.
 
 1. The basement door stays closed. Don’t open it, don’t touch it, don’t go near it.
-2. Our son must be asleep by 9:00 p.m. sharp. No exceptions. 
-3. If Jamie talks about the man in the basement, ignore it.  
+2. Our son must be asleep by 9:00 p.m. sharp. No exceptions.
+3. If Jamie talks about the man in the basement, ignore it.
 
 He said it in this calm, flat tone - like he’d rehearsed it a hundred times before. Margaret just stood behind him, nodding along, her arms crossed tightly over her chest.
 
@@ -64,7 +64,7 @@ It was coming from the basement door.
 
 At first, I thought maybe the parents had come home early and gone in through the back. But no - it wasn’t outside. It was inside. A hollow knock, like knuckles rapping against wood.
 
-The hairs on the back of my neck stood up. I sat there frozen, heart hammering. I summoned up some courage and called out “Hello?” and waited with bated breath in the deafening silence. 
+The hairs on the back of my neck stood up. I sat there frozen, heart hammering. I summoned up some courage and called out “Hello?” and waited with bated breath in the deafening silence.
 
 No answer.
 
@@ -89,3 +89,5 @@ Maybe I’m letting my brain run wild in a creepy house.
 But honestly? I’m scared to go back this Friday.
 
 Tell me I’m being a loser. Convince me. Please.
+
+Part 2 - [https://www.reddit.com/r/nosleep/comments/1o5slx4/babysitting\_rule\_dont\_mention\_the\_man\_in\_the/](https://www.reddit.com/r/nosleep/comments/1o5slx4/babysitting_rule_dont_mention_the_man_in_the/)
