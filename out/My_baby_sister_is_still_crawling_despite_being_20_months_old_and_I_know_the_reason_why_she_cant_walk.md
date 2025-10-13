@@ -6,7 +6,7 @@ But Claire, healthy and happy, never even attempted to stand, even though she wa
 
 Ever since Claire was 14 months old, mom had tried to coax her into standing. She would sit in front of Claire, smile, and encourage her over and over again. Claire had only giggled and focused on the toy in her hand every time. As days flew by without any more progress, mom tried the hospital and signed up for a program in the child development center. It didn't work either.
 
-Saturday was an another day at the spiritual community program for Claire.
+Saturday was another day at the spiritual community program for Claire.
 
 I had noticed mom had bags under her eyes as she carried Claire to the car. Few days ago, mom told me they were learning how to *breathe* at that program, and I can tell mom was going to snap if this goes on without avail.
 
@@ -14,7 +14,7 @@ I was looking at my phone when mom called me. She asked me to check if the nurse
 
 Claire's room is upstairs, across from mine. I aimed at my bed, chucked my phone, and walked straight into the nursery.
 
-The windows were open. I didn't hesitate on closing them, and I was starting to get out when my feet got stuck in one of Claire's toys. I instinctively looked down. But soon, I noticed something else than a stuff crocodile on my feet.
+The windows were open. I didn't hesitate on closing them, and I was starting to get out when my feet got stuck in one of Claire's toys. I instinctively looked down. But soon, I noticed something other than a stuffed crocodile on my foot.
 
 There were faint red-brown stains on the floor. Not vivid enough to catch attention, but *there* when you knew to look. And they stretched across the room.
 
@@ -32,7 +32,7 @@ The house seemed a lot bigger, the hallway taller as I stepped into my room. I p
 
 The rain had started falling just a few minutes after I closed the window. I rushed out to pass mom an umbrella. She was annoyed about today's session. And I forgot about the stains.
 
-I only remembered it at the evening, when I was playing with Claire.
+I only remembered it in the evening, when I was playing with Claire.
 
 Claire had a princess doll in her fist and she moved it across the air. But then, as if she was struck, she made a face before gently lowering the doll to the ground.
 
@@ -50,7 +50,7 @@ I pulled the doll away from Claire's reach, and started to make it take little s
 
 "No! Like me!"
 
-Claire's cheeks was getting redder, and I realized I made a mistake. Too late. She burst into tears, and mom rushed into the living room, scooping up Claire in her arms while shooting me a look.
+Claire's cheeks were getting redder, and I realized I made a mistake. Too late. She burst into tears, and mom rushed into the living room, scooping up Claire in her arms while shooting me a look.
 
 "Mom, there are stains on the nursery floor." I informed her, leaning against the sofa. "If Claire drags her dolls on the ground like this, all of her toys will be covered in them soon."
 
@@ -72,7 +72,7 @@ Voices were coming from the room. Inaudible from where I was standing. But I cou
 
 Was it mom? Even though I gave myself the most logical answer, I knew better. It can't be mom. Mom won't talk to Claire in the middle of the night.
 
-I couldn't even swallow as I took a step, then another. The voices didn't stop. My feet stilled just few feets away from entering the room.
+I couldn't even swallow as I took a step, then another. The voices didn't stop. My feet stilled just a few feet away from entering the room.
 
 That's when I was able to see it.
 
