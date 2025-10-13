@@ -236,7 +236,7 @@ Finally, we stumbled upon our destination. I looked up at the sign hanging above
 
 Inside, the  smell hit immediately—fried everything mixed with stale beer, the scent of a place that had been dying slowly for years. One older man sat at the bar, beer half-empty and probably flat. A bowl of peanuts beside him. Shells scattered around his chair like evidence.Two other men occupy a booth on the far side. Silent.
 "I'll ask around in here if you wanna hit the bathrooms."
-I nodded. A bright red arrow-shaped sign hangs next to the bar: *RESTROOMS THIS WAY* in a font that looks like it's trying too hard to be fun.
+I nodded. A bright red arrow-shaped sign hangs next to the bar: *RESTROOMS THIS WAY* in a font that looked like it was trying too hard to be fun.
 
 
 The hinges on the door squeaked as I pushed in the door. The state of this restroom was far beyond questionable. The walls were rusted orange. Darker streaks—almost red—pointed down toward the floor tiles like arrows showing the way to hell. The floor tiles are worse. Cracks seeped through every single one, spreading like veins under sick skin. The bar was definitely of the dive variety, but this was still an extremely jarring jump in quality. I really didn’t want to be in there, in fact I didn’t want to be in this hellhole at all. But Luke needed me.
