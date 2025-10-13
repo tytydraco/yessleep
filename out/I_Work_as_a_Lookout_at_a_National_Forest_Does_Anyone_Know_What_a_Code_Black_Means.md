@@ -24,7 +24,7 @@ Ground squirrels - or Grounders - was the nickname Harry made up for anyone not 
 
 “Guys, these two-way radios are for emergencies,” Gwen said, her voice sounding more exasperated than usual. She was another Sandy set up in Tower 5, about twenty miles northwest of me. She had “gifted kid” vibes - which made sense, as she had been one - and was easily annoyed with the rest of us, but everyone loved her. Deep down, she loved us, too.
 
-But, like, really deep down. “Call John Hammond, we found insects in ancient amber” deep.
+But, like, really deep down. “Call the Jurassic Park owner, we found insects in ancient amber” deep.
 
 “Gwennnnnnnnny,” Harry said, dragging out her name. “You promised not to play school marm today. Jorge is gone for the week! Let’s enjoy a boss-free day.”
 
@@ -176,7 +176,7 @@ The song suddenly stopped, and a calm, almost robotic voice started to speak. Gw
 
 “Number station, as in, ‘secret messages to spies?’ number stations?”
 
-“ Spies or government officials? Maybe? I’m just guessing. It could be someone’s idea of a weird prank. Maybe it’s the fire and rescue teams just messing with us?”
+“Spies or government officials? Maybe? I’m just guessing. It could be someone’s idea of a weird prank. Maybe it’s the fire and rescue teams just messing with us?”
 
 “I dated a guy in fire and rescue,” Gwen said, “they don’t have an ounce of sense of humor shared among them. I think this is legit, and I think it’s bad. Sounds like a warning, and I don’t think it’s a coincidence it came after this thing showed up and landed.”
 
@@ -212,7 +212,9 @@ Our conversation was cut short when we both heard a low rumble and felt a slow r
 
 As I made a mental note to look up if this area had ever had a recorded earthquake, I noticed the trees about a mile out violently snap back and forth in a concentric circle, like someone had dropped a pebble in water. The ring of shaking trees quickly spread out, and I felt the concussive wave before I heard it.
 
-Again, the tower shuddered from the blast. The northern window shattered, and bits of glass came flying inward. I ducked under the desk with the cabin two-way to avoid swiss cheesing my body. Once the blast passed, I shot up and turned to the southern window. You could physically see the concussive wave working its way through the trees toward the campsites.
+Again, the tower shuddered from the blast. The northern window shattered, and bits of glass came flying inward. I ducked under the desk with the cabin two-way to avoid swiss cheesing my body, but several of the shards caught my arm. I winced in pain as the glass bit into my flesh. Not wanting to bleed out, I ripped off the sleeve of my shirt and did my best to staunch the bleeding.
+
+Once the blast passed, I shot up and turned to the southern window. You could physically see the concussive wave working its way through the trees toward the campsites.
 
 “Gwen, you okay?”
 
@@ -258,7 +260,7 @@ The cabin’s two-way speaker came back to life. More clicking, but this was del
 
 “Oh shit,” I said, diving under the desk. At speeds I didn’t think possible, the craft whooshed over the tower, making it rattle to the foundations. Harry was going nuts over my two-way, rambling about something, but I didn’t pay it any attention. Instead, I ran out onto my catwalk to see where this craft had gone to….if that was still even possible. As fast as it was traveling, it might be halfway around the world by now.
 
-As soon as I pushed open the door to the catwalk, the air around me felt heavy. It even made my moments slow like Neil Armstrong walking on the moon. I wondered if hopping would make me move quicker.
+As soon as I pushed open the door to the catwalk, the air around me felt heavy. It even made my moments slow like astronauts walking on the moon. I wondered if hopping would make me move quicker.
 
 I glanced up, and everything in my vision was wavy like when you see gas fumes in the daylight. There was nothing above me that I could see, but I knew it was there. That meant it would have to stop on a dime to be here. Nothing I knew could do that.
 
@@ -304,7 +306,7 @@ It came and went like a mid-afternoon storm. I wasn’t sure what the smoke or f
 
 He didn’t finish, but we both knew what he meant. I’d thought nothing but that since she stopped responding. “Yeah, yeah. Go, go. Be safe, Harry.”
 
-“You know me - safety is my middle name. Harry Rupert Safety ‘Big Dong’ Hill,” he said, trying to add levity to a tense situation. I gave Harry shit, but that was his true value. He cared about our well-being. I appreciated the attempt, but we were both too scattered to laugh. “Grounder one, out.”
+“You know me - safety is my middle name. That and big dong,” he said, trying to add levity to a tense situation. I gave Harry shit, but that was his true value. He cared about our well-being. I appreciated the attempt, but we were both too scattered to laugh. “Grounder one, out.”
 
 I walked back out to the catwalk and stared out at the approaching fog. It was so thick that as it slowly advanced, the trees would just disappear from view. I thought about Gwen, and my guts twisted into pretzels. I had been concerned that the tower collapsed earlier, but now that seemed quaint. Was she still alive? Had whatever the Code Black warning entailed harmed her? 
 
