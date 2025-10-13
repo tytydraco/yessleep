@@ -1,5 +1,7 @@
 [\[Part 38\]](https://www.reddit.com/user/RandomAppalachian468/comments/1ksjynf/the_call_of_the_breach_part_38/)
 
+[\[Part 40\]](https://www.reddit.com/user/RandomAppalachian468/comments/1lxlf24/the_call_of_the_breach_part_40/)
+
 Snow crunched under my boots, but I couldn’t feel the ground beneath my feet, every toe having gone numb seven miles back. Gray clouds hung thick in the early morning sky, and a light curtain of snowflakes fluttered down in a dreary haze. Icy wind nipped at my face, and whatever skin couldn’t hide under my upturned uniform collar stung from the constant attack. My knees, hips, and ankles throbbed from mile after mile of frigid terrain covered throughout the night, every muscle stretched to a breaking point. Even counting my first escape from Black Oak, I’d run more than ever before in my life, and the only thing that kept the pain from growing worse was the incessant cold.
 
 *Snap.*
