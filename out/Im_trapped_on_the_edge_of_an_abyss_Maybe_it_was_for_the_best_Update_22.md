@@ -401,3 +401,5 @@ The journey wasn’t over, and it could still have a bad ending.
 What a gentle ending that would have been instead. Lying there with my goodness and just drifting off. I couldn’t, though. I had to scrape myself from the floor. The other side of that coin was still out there trying to take my life, and I couldn’t let her do that.
 
 It was time to finally end this.
+
+[Next Update](https://www.reddit.com/r/nosleep/comments/1o53pox/im_trapped_on_the_edge_of_an_abyss_but_today/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
