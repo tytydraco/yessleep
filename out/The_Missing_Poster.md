@@ -259,3 +259,6 @@ A missing poster.
 Same format. Same bold letters.
 
 Each one a different photo of my niece.
+
+**[Part 2](https://www.reddit.com/r/nosleep/s/hl2PxubGmw)**
+
