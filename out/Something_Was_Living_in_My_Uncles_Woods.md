@@ -60,10 +60,10 @@ Gary fired through the wall before I could move. The breathing stopped.
 
 When the storm cleared the next morning, we packed up and left. Gary didn’t say a word on the drive to town. He just handed me a folded piece of paper with one line written on it:
 
->
+“Don’t ever whistle back.”
 
 I tried to go back last year, to visit him. But his cabin was gone — burned down to the foundation. Sheriff said it was lightning.
 
 They never found Gary’s body.
 
-Sometimes, late at night, I still play that recording. I tell myself it’s just wind. But right before it ends, I swear I can hear someone whisper my name.I’m not sure how to start this without sounding crazy, but I need to get it off my chest before I start convincing myself it never happened.
+Sometimes, late at night, I still play that recording. I tell myself it’s just wind. But right before it ends, I swear I can hear someone whisper my name.
