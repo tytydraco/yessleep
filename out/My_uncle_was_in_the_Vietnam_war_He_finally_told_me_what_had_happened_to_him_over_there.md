@@ -1,6 +1,6 @@
 My uncle Trent died last week. Official cause of death was cirrhosis. He had been 75 years old.
 
-Quite frankly, he made it much longer than any of us had been expecting. I know how callous that sounds, but what it is what it is. Guy never put down the bottle.
+Quite frankly, he made it much longer than any of us had been expecting. I know how callous that sounds, but it is what it is. Guy never put down the bottle.
 
 I had been really young at the time, but from what my dad had told me, Trent had been a perfectly happy guy up until the day he left for Vietnam. He’d had a lot of friends, had been popular with women, maintained good relationships with family, had a degree in civil engineering.
 
