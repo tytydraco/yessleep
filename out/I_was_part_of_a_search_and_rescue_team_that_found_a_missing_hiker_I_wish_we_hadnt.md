@@ -3,7 +3,7 @@ First — all names in this account have been changed. I won’t be giving mine,
 Second — and this part is important — do *not* come looking for me.  
 I’m not lost. I don’t need to be found.  I’m serious. I don’t care who you are — law enforcement, search and rescue, curious hiker, journalist — stay away from these woods. consider it a warning, not a breadcrumb trail.
 
-I’ve been a volunteer with Search and Rescue for about five years now. In that time, I’ve had the honor of finding four lost souls—most of them just people who wandered off-trail and got turned around in the woods. But this case was different.
+I’ve been a volunteer with Search and Rescue for about five years now. In that time, I’ve had the honour of finding four lost souls—most of them just people who wandered off-trail and got turned around in the woods. But this case was different.
 
 The missing person, Kevin, was fourteen years old. He’d gone hiking with his father three weeks ago—a four-day trip through the backcountry. When they didn’t return after six days, his mother reported them missing.
 
@@ -11,7 +11,7 @@ It only took two days to find their camp—or what was left of it. The tent was 
 
 We’d been combing these woods ever since, and every day that passed made it harder to believe we’d find either of them alive.
 
-Today had been no different. We’d been hiking since 7 am, our legs burning, eyes scanning everywhere for a hint of movement. My partner, Charles, chewed absently on a protein bar as we went, crumbs falling into the brush. By the time the sun began to dip past the treeline, it was close to 3 p.m., and still no sign of the boy.
+Today had been no different. We’d been hiking since 7 am, our legs burning, eyes scanning everywhere for a hint of movement. My partner, Charles, chewed absently on a protein bar as we went, crumbs falling into the brush. By the time the sun began to dip past the treeline, it was close to 5 p.m., and still no sign of the boy.
 
 “I really don’t think we’re going to find this kid,” mumbled Charles, his voice muffled by the protein bar still in his mouth. “And if we do, it’ll be a corpse.”
 
@@ -101,7 +101,7 @@ The boy was starting into space, eyes unfocused.
 
 “Holy crap,” I muttered, my voice barely more than a whisper. “That’s… that’s a brutal bite. A bear?”
 
-Kevin shrugged, his small shoulders trembling. “I didn’t see it. My dad knocked it off me… told me to run… so I ran. I ran… and ran… until I tripped on something. Then I was alone.” His voice cracked, and I could see tears streaking the grime on his face.
+Kevin shrugged, his small shoulders trembling. “I didn’t see it. My dad knocked it off me… told me to run… so I ran. I ran… and ran… until I tripped on something. Then I was alone in the dark.” His voice cracked, and I could see tears streaking the grime on his face.
 
 I put a hand on his back, trying to ground him. “It’s okay, Kevin. We’re getting you home.”
 
@@ -168,7 +168,7 @@ Kevin’s body shuddered once more, his chest heaving with ragged, unnatural bre
 
 Saliva and blood dripped from the new, canine mouth now extended a good six inches from Kevin’s human one, the brow of the thing slowly becoming visible. The hounds maw was snarling as it emerged with each heave. His entire body convulsed with every inhale, ribs straining with the effort.
 
-Charles and I pressed ourselves against the hut’s wall, cowering like a pair of tiny rabbits trapped by a predator. I held my knife tightly with trembling hands, Charles wielded the fire poker with one hand, and the flare gun in the other—both of us, eyes wide with horror. Kevin was blocking the only exit. We were trapped.
+Charles and I pressed ourselves against the cabins wall, cowering like a pair of tiny rabbits trapped by a predator. I held my knife tightly with trembling hands, Charles wielded the fire poker with one hand, and the flare gun in the other—both of us, eyes wide with horror. Kevin was blocking the only exit. We were trapped.
 
 I couldn’t move, my legs nailed to the floor. Kevin’s eyes had rolled back into nothing but milky whites, and yet tears still streaked down his cheeks, dripping into the gore below.
 
@@ -180,13 +180,13 @@ Charles and I pressed ourselves flat against the far wall, every muscle frozen, 
 
 Then it turned to face us, and time turned to ooze.
 
-The creature before me was a grotesque fusion of human and predator, every detail twisted into something nightmarish. Its face was elongated and wolf-like, jagged fangs coated in dark congealed blood. Feral amber eyes sat deep in its skull, radiating a cold, calculating awareness. Coarse black hair sprouted unevenly across its scalp and face, framing the gaping maw with matted clumps, and its thin, cracked, purple skin stretched taut over high cheekbones. The nose was that of a wolf, nostrils flaring as it sniffed the air, a bright red tongue came out to wet it.
+The creature before me was a grotesque fusion of human and predator, every detail twisted into something nightmarish. Its face was elongated and wolf-like, jagged fangs coated in dark congealed blood. Feral amber eyes sat deep in its skull, radiating a cold, calculating awareness. Coarse black hair sprouted unevenly across its scalp and face, framing the gaping maw with matted clumps, and its thin, cracked, purple skin stretched taut over high cheekbones. The nose was that of a wolf, and a bright red tongue came out to wet it.
 
 Its torso was emaciated yet unnaturally muscular, sinews flexing under its purple-grey, bruised skin. Dark, wiry hair ran down its spine, curling around the shoulders and arms. The arms themselves were grotesquely long, with hands that ended in elongated fingers tipped with blackened, hooked claws, its knuckles protruded like small, jagged boulders beneath the thin skin.
 
 Its legs mirrored the arms in their monstrous distortion: thin yet strong. The feet were nightmarish hybrids—high arches, thick leathery soles, elongated toes, each tipped with wicked, curved claws that had scraped and gouged the floor. Veins pulsed beneath the stretched, almost reptilian-like skin, and tufts of coarse hair sprouted along the ankles and shins, connecting to powerful, twisted thighs that seemed ready to spring at any moment.
 
-Yellow eyes fixed on us, nostrils flaring as it sniffed the stagnant air of the hut, every motion unnervingly predatory. My heart hammered in my chest, each beat deafening in the tense silence. Its upper lip curled back, exposing jagged, yellowed teeth that gleamed in the dim light of the flashlights. A low, guttural snarl rumbled from deep in its throat, a sound both animal and disturbingly human.
+Yellow eyes fixed on us, nostrils flaring as it sniffed the stagnant air of the cabin, every motion unnervingly predatory. My heart hammered in my chest, each beat deafening in the tense silence. Its upper lip curled back, exposing jagged, yellowed teeth that gleamed in the dim light of the flashlights. A low, guttural snarl rumbled from deep in its throat, a sound both animal and disturbingly human.
 
 Then it lunged.
 
@@ -198,7 +198,7 @@ Before he could recover, the beast struck with lightning speed. One of its enorm
 
 I forced myself upright, every movement sending jagged pain through my ribs—no doubt some were cracked. My eyes locked onto a nearby object: the flare gun, barely a foot away. Salvation, my only chance. Slowly, agonizingly, I inched toward it.
 
-Through my peripheral vision I saw it twist in my direction, drawn to fresh movement, its wet breathing echoing through the hut as it fixed on me. My hands closed around the flare gun just as it pounced. Its jaws snapped toward me, aiming for my neck, dripping with blood. Instinct took over—I threw my arm up to protect my throat.
+Through my peripheral vision I saw it twist in my direction, drawn to fresh movement, its wet breathing echoing through the room as it fixed on me. My hands closed around the flare gun just as it pounced. Its jaws snapped toward me, aiming for my neck, dripping with blood. Instinct took over—I threw my arm up to protect my throat.
 
 The creature’s teeth clamped down on my forearm with bone-crushing force. I felt a sharp crack echo through my arm as pain exploded up my shoulder. Panic surged, but there was no time to think—only to act.
 
