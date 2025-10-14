@@ -1,5 +1,7 @@
 [\[Part 41\]](https://www.reddit.com/user/RandomAppalachian468/comments/1msf2h1/the_call_of_the_breach_part_41/)
 
+[\[Part 43\]](https://www.reddit.com/user/RandomAppalachian468/comments/1o668ky/the_call_of_the_breach_part_43/)
+
 Even with my eyes shut, the flash was blinding.
 
 A bright white burst tore across the landscape, the shockwave rattled my bones, and clouds of debris flew over our little section of trench as Jamie and I cowered at the bottom. I pressed my hands to both ears, turned my face to the mud to protect my eyes, and screamed with a voice I couldn’t hear above the explosions.
@@ -156,7 +158,7 @@ Tears brimmed in my eyes, but I gripped the wooden plunger to yank it upward int
 
 *Goodbye, my love.*
 
-With a strangled sob, I shoved the handle down with a metallic *zip* of little winding gears*.*
+With a strangled sob, I shoved the handle down with a metallic *zip* of little winding gears\*.\*
 
 *Ba-room.*
 
