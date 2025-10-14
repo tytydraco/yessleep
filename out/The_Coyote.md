@@ -198,7 +198,7 @@ When I got home, I sprinted inside and locked every door. I cooped myself up in 
 
 That was three weeks ago. They said they’d investigate it, but—so far—I haven’t seen anything in the news regarding that forest.
 
-In the three weeks since it happened, I’ve had nightmares every night. In them, that coyote would slink through into my bedroom through the open door. It’d crawl into my bed. I never do find out what happens to me in the dream, though, because I always wake up before it can do anything.
+In the three weeks since it happened, I’ve had nightmares every night. In them, that coyote would slink through into my bedroom using the open door. It’d crawl into my bed. I never do find out what happens to me in the dream, though, because I always wake up before it can do anything.
 
 With the lack of any developments and the fact that I didn’t spend nearly enough time in the woods to find anything out, I  came away from that with all but one question; why? Why did that creature hurt people? Why did it torment me? And most importantly…
 
