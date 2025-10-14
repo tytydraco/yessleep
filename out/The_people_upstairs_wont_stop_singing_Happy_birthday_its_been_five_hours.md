@@ -96,6 +96,6 @@ They refused to tell me what had happened to the elderly couple. They barely mum
 
 I'm going through a really hard time now, trying to move all my stuff without having to go to that place too often. I can't sell it or rent it out - maybe to some true crime fanatic. I moved in with my parents, but I asked them to add extra locks to their doors and windows and security cameras everywhere. They assumed I was paranoid and suffering from PTSD.
 
-I let them believe that. However, I'd watched the security footage of that night, showing the outside of my door. The birthday boy I'd spoken through hadn't gone back upstairs. He just crawled to the window and jumped out.
+I let them believe that. However, I'd watched the security footage of that night, showing the outside of my door. The birthday boy I'd spoken to hadn't gone back upstairs. He just crawled to the window and jumped out.
 
-I don't know where he is now. I hope it goes both [ways.](https://www.reddit.com/user/EmmaWatsonButDumber/) 
+I don't know where he is now. I hope it goes both [ways.](https://www.reddit.com/user/EmmaWatsonButDumber/)
