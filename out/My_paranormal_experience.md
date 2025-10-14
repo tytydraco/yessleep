@@ -1,0 +1,25 @@
+Hi everyone, this is my first time posting on Reedit, so I'm sorry if anything doesn't comply with the site's rules or how it works. Also, I'm Spanish so my English isn't very good.
+
+During my adolescence I was not raised by my mother, my parents were divorced and she lived 900km away. Every summer I would visit her and spend a whole month with her and her partner. Normally they were moving to another town or area of ​​the city, and that year I arrived right in the middle of moving. The first day I went to the new apartment, almost everything was already there. I went with my mother and her dog. She believes in all things paranormal and instilled this in me since I was little, although I always avoid thinking about such things.
+
+As soon as we arrived at the apartment my mother said "Take the dog for a walk around the house". The dog entered every room except for a small bathroom. Not only did she not enter, but she peed on the door. I didn't say anything to my mother, since she would interpret it as some paranormal thing and I didn't want to think about those things. 
+
+We were already living normally there, and two days later, since it was vacation, I stayed up late watching TV. I went to sleep around 2 a.m. My room was right next to the entrance of the house. The bed was right up against the wall, and above it was a window with a curtain. Just as I was about to fall asleep, I heard someone running their fingers along the curtain, slowly, gently.
+
+At that moment, I sat him up and turned on the light. "It's the fan," I thought. I turned it off and went back to bed. The same thing happened. Just as I was starting to fall asleep, I felt as if someone was running their fingers along the curtain. I got up and went to my mother's side. I told her, "I'm not going to sleep, I'm not going to sleep." I couldn't sleep at night for a week. I stayed up watching TV and slept in the afternoons.
+
+My worried mother told me: "This can't go on like this, I'm going to call E." "Who is that?" "My friend, the medium."My mother told me she was a coworker and saw dead people. She also read tarot cards and assured me that her children had inherited her gift. When the medium came home, she guessed, without opening the bedroom doors, who each room belonged to. When she got to the small bathroom, she stood still in front of the door, opened it, and looked the place up and down.
+
+After that, we sat down in the living room and he said the following: "Okay, there are two things here. Two years ago someone committed suicide. It started in the bathroom and ended in the master bedroom (my mother's). I don't know if it's suicide, but it's a very sad death. And you (he said pointing at me) have been haunted by a spirit for months. He started talking about things that were happening. "You wake up at 4 a.m. for no reason, you feel watched sometimes..."
+
+He then told me several remedies I could do to prevent the entity from continuing to haunt me. Then he described him: he was a man in his thirties, wearing a black suit. He wasn't bad, but he hadn't been good in life, and he was quite attractive. "When you wake up one of those nights, at 4 a.m., you have to talk to him. Tell him you're sorry, but you don't know him, and to please leave you alone."
+
+He also explained why he was following me. "As a child, you were blond and very handsome. All the mothers would come up to you and say, 'What a handsome boy!' But that was really envy. Envy is an energy, and you've grown accustomed to absorbing energy. You're what's called a white light child."
+
+Days passed, and I still couldn't sleep. One afternoon, my friends came over, and I told them the whole story to get things off my chest. One of them suggested setting up a recording phone in the bathroom. I don't know why I agreed. We left it for about 10 minutes. When I picked up the phone and listened to the audio, I couldn't hear anything at first, but around minute 4, I started to hear something like someone breathing loudly on the phone. It scared me so much that I deleted it immediately.
+
+That night my sister told me to "Bring the mattress from your room to mine" because I seemed scared. That night I woke up at 4 a.m. I woke up hearing a very loud whistle, like an old-fashioned ten-foot whistle. When I woke up, I sat up and felt as if the room was vibrating. I don't know how to explain it. I remembered what the medium told me and I did. I tried to "talk" to the entity. After a while, I began to hear a whistling sound in the hallway. I don't remember the melody, but it felt like a mockery. And I swear I saw someone's shadow walking up and down the hall. I pulled the sheets all the way up and fell asleep after a while.
+
+To this day, I've never had another experience like this again. I rarely tell this story because I feel I'm attracting it by telling it. To this day, I think I was influenced by my mother. At 13, the mind is very weak...
+
+I would like to know your opinion.
