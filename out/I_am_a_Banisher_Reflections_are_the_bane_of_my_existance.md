@@ -110,7 +110,7 @@ The kettle gleamed, polished to perfection. I reached my hand out and stroked it
 
 Every instinct in me wanted to leave. I still couldn’t *feel* anything off except for the entire situation being creepy, though, so I continued. Unsure. If there *was* a neighbour, then it at least needed to be ruled out. People can do some real odd things.
 
-The bed was also perfectly made, two pillows in crocheted pillowcases, karate-chopped at the tops to make them bend ever so slightly. One side of the bed was a little creased, a cardigan —*the* cardigan*—* neatly laid out on top.
+The bed was also perfectly made, two pillows in crocheted pillowcases, karate-chopped at the tops to make them bend ever so slightly. One side of the bed was a little creased, a cardigan —*the* cardigan\*—\* neatly laid out on top.
 
 “Alright,” I muttered, mostly to break the silence. “Copycat interior design demon or whatever. Cool. Coolcoolcool.”
 
@@ -164,4 +164,4 @@ I’ll do another collection round tonight, just to be sure. I think it might be
 
 I am scared.
 
-\[ [first](https://www.reddit.com/r/nosleep/comments/1o1hfpi/i_am_a_banisher_and_the_snails_followed_me_home_i/) \]
+\[ [first](https://www.reddit.com/r/nosleep/comments/1o1hfpi/i_am_a_banisher_and_the_snails_followed_me_home_i/) \] \[ [update](https://www.reddit.com/r/nosleep/comments/1o7hm4a/i_am_a_banisher_the_snails_didnt_start_flying_but/) \]
