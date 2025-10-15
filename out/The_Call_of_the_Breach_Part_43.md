@@ -1,5 +1,7 @@
 [\[Part 42\]](https://www.reddit.com/user/RandomAppalachian468/comments/1nm7f2g/the_call_of_the_breach_part_42/)
 
+[\[Part 44\]](https://www.reddit.com/user/RandomAppalachian468/comments/1o78mj9/the_call_of_the_breach_part_44/)
+
 Petrified, I stared up at her from the ground, mind whirling in desperation. Our men fought each other no more than sixty yards away, but I knew none of them would hear us over the chaos of battle. No, here in this small corner of the ruined hilltop, Crow and I were effectively alone, and no one was coming to save me.
 
 She grinned in a malicious way that remined me of the Puppets, wide, unforgiving, without remorse. Crow didn’t bother reaching for her rifle, or the handgun at her side, and instead angled her head to gaze at my bleeding ankle with satisfaction. “Hurts, doesn’t it?”
