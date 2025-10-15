@@ -91,9 +91,9 @@ While Charles was calling dispatch to relay the good news, I sat with Kevin and 
 
 “What happened to you at the camp?”
 
-The boy was starting into space, eyes unfocused.
+The boy was staring into space, eyes unfocused.
 
-“I don’t know, it happened, it was dark, and everything happened so fast. Something pulled me out of the tent at night and bit me.”
+“I don’t know, it was dark, and everything happened so fast. Something pulled me out of the tent at night and bit me.”
 
 “bit you?” I said, eyebrows raised, “where?”
 
