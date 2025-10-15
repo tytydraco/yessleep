@@ -1,9 +1,6 @@
-Let me first preface this story with the fact that the ensuing names of people and places are fake stand-ins for their real counterparts. Please, please, under no circumstances try to find the real places or get in contact with the real things. You would only be putting their lives at risk.
+Let me first preface this story with the fact that the ensuing names of people and places are fake stand-ins for their real counterparts. Please, please, under no circumstances try to find the real places or get in contact with the real people. You would only be putting their lives at risk.
 
  I won’t drag out the preamble, all I’ll say is I was young, and I did a lot of stupid and reckless things that I will now, never be able to recover from. This is not your typical mystery story where the good guys solve the mystery, catch the bad guys, and everybody goes home in the end. You may think that information is redundant, but I deeply wish I had heard that warning myself, and you’ll soon see why.
-
-  
-
 
 I started high school in 2019, at this point I was still pretty overweight and coming off of my socially awkward faze in middle school. Needless to say, I didn’t have many friends. Now, having said this, while I was bullied pretty severely in middle school for being a bit of a loser, I had learned from this experience that people generally won’t make fun of you if you make yourself easy to ignore. In the end this did work, and I wasn’t really considered a loser back in high school, though the byproduct of this is that I really wasn’t considered much of anything. People didn’t know who I was. This made it so that I felt like I was experiencing high school and the students within, the supposed “prime of our lives”, from a third person perspective despite being a part of it myself.
 
