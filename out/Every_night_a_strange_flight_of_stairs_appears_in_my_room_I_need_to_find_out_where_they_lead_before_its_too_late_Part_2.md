@@ -1,4 +1,4 @@
-[Part 1.](https://www.reddit.com/r/nosleep/comments/1nxfhfg/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 1.](https://www.reddit.com/r/nosleep/comments/1nxfhfg/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 3.](https://www.reddit.com/r/nosleep/comments/1o723e2/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I was too shaken by my experience to go back to sleep. Instead, I decided to stay up and do some research. I found myself checking out all of the normal, paranoid things someone who thinks they have seen another dimension might look up. After hours of internet rabbit holes and theory overload, I decided to head outside and sleep in my car for a few hours. I had given up trying to make it to work that day, so I called in sick. I figured I needed to spend my day looking into anything that would help me understand what I had witnessed last night.
 
@@ -20,7 +20,7 @@ I called and was prompted to leave a message at first, but as I was trying to fi
 
 I started thinking back and I did vaguely remember a Sherrie in junior high. I remember having a crush on her, but her family had moved away at some point and I was always too shy to say anything. I wondered when she had come back and why she had been staying at my parents house alone.
 
-Then I considered the disturbing implications of her being trapped in that strange stairwell with those creeping horrors. 
+Then I considered the disturbing implications of her being trapped in that strange stairwell with those creeping horrors.
 
 “Sweetie...are you still there?” My mother's voice brought me back to the present and I responded apologetically,
 
@@ -82,7 +82,7 @@ My body ached as I hurtled down the stairs at speed. The motion above me increas
 
 I smelled that odd salt water scent even stronger as I rushed down the steps. I remembered the message Sherrie had sent. Sounds on the wall heral the surfs call. There was water down there and maybe if I could get further down, I would be safe.
 
-I kept running madly down the steps until there was a rush of air and a huge figure leapt down several steps and crashed into a heap in front of me. It quickly recovered and stood up to its full height. 
+I kept running madly down the steps until there was a rush of air and a huge figure leapt down several steps and crashed into a heap in front of me. It quickly recovered and stood up to its full height.
 
 Transfixed in horror I slowly backed away and into the walls, pressing myself flat against it.
 
@@ -104,7 +104,7 @@ I forced my terrified body to shift slowly against the wall and inch by inch dow
 
 For a moment I considered reaching for the knife I had brought, but another look at the size of the thing made me reconsider the idea.
 
-I managed to take several quiet steps away from the blind creature. It turned around and I froze. Now it was moving back towards me along the wall. I had to move, so I quietly slipped closer to the center near the edge of the spiral steps. 
+I managed to take several quiet steps away from the blind creature. It turned around and I froze. Now it was moving back towards me along the wall. I had to move, so I quietly slipped closer to the center near the edge of the spiral steps.
 
 Making it to the edge of the spiral, I looked down and saw the area below was flooded about twenty feet further down. I kept creeping further away from the blind monstrosity, but I tripped over a broken step and cut my heel on a sharp edge.
 
