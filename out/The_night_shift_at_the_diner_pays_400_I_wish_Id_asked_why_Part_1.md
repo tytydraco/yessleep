@@ -164,7 +164,7 @@ But fate had other plans. 
 
 A few minutes before four, a new vampire walked in through the door. It was impossible to deny what he was while he was flashing those canines. 
 
-“I thought this place would be closed tonight. I would’ve come earlier if I knew it wasn’t.” He said, a smug expression on his face. Then his eyes landed on me. “Well, well, well. What do we have here? A last-minute snack? Linda has more tricks up her sleeve than I imagined. 
+“I thought this place would be closed tonight. I would’ve come earlier if I knew it wasn’t.” He said, a smug expression on his face. Then his eyes landed on me. “Well, well, well. What do we have here? A last-minute snack? Linda has more tricks up her sleeve than I imagined.
 
 He took a step forward, but from the kitchen doorway came a low, warning growl. Suddenly, Roger grabbed me by the shoulder and shoved me into the kitchen.
 
@@ -294,4 +294,4 @@ I’m writing this as a warning for every single one of you out there. 
 
 If you ever find yourself in a town in the middle of nowhere, do not go to the diner. 
 
-And definitely don’t make promises you can’t keep. 
+And definitely [don’t make promises you can’t keep.](https://www.reddit.com/r/nosleep/comments/1o7aeii/the_night_shift_at_the_diner_is_definitely_cursed/) 
