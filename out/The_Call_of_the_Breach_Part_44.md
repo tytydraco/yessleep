@@ -1,5 +1,7 @@
 [\[Part 43\]](https://www.reddit.com/user/RandomAppalachian468/comments/1o668ky/the_call_of_the_breach_part_43/)
 
+[\[Final\]](https://www.reddit.com/user/RandomAppalachian468/comments/1o866a7/the_call_of_the_breach_final/)
+
 From the concealment of the snow-laden pines, I watched as the slate gray helicopters descended from the clouds, and three of them settled down on the other side of the small valley. The fourth remained in the air high overhead, circling in long, slow loops, its doors open to reveal both a machine gunner and a sniper with their weapons at the ready. Two of the landed birds disgorged teams of ELSAR regulars to secure the area, while the third waited behind them, its rotors slowed to a patient idle. Koranti was no fool; if in fact he was down there, he wouldn’t emerge until I did.
 
 *Trust but verify, as Chris would have said. Then again, he would never have let ELSAR get this close to me, not after last time. Dear God, I miss him.*
