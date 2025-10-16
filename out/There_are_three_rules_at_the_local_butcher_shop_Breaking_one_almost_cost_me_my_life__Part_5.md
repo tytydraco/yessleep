@@ -8,8 +8,6 @@
 
 \*Brief mention of self-harm\*
 
-
-
 The darkness curled around me. The buzzing, yellow lights above became my only respite from pure blackness. After George left, the cooler seemed to squeeze tighter, shrinking around me with every breath. The hum of the refrigeration unit grew louder, overtaking all other noise like the droning of insects feasting on rotten flesh. Every move I tried to make was met with pain. My wrists burned from struggling against the restraints, my skin now raw and slick with blood. My breath came in shallow gasps, the cold gnawing at my lungs. I could feel the foul stench of the cooler seeping into my bones, slowly becoming a part of me.
 
 I knew I didn’t have much time. Maybe only minutes at best. My mind raced, chasing a finish line that was always just out of reach. My thoughts quickly drifted to John. I was the one who put him in the crosshairs of a psychopath. I couldn’t just lie there and die. I had to find a way to free myself and search for him.
@@ -135,3 +133,5 @@ My only request is that, if and when I die, somebody please show this to my aunt
 I can’t bear the thought of seeing her face, knowing that her only child is dead. I just don’t have the heart to do it.
 
 But maybe, in these words, as fragile and faltering as they are, she’ll find what I never could. Hopefully, she finds the courage to forgive and the strength to carry on, even when the truth cuts deeper than the lie ever did.
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1o7w4gx/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

@@ -1,6 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1o3k74e/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-That first day was one of the most awkward situations I’ve ever been in, with the next couple of days being much of the same. He didn’t explain much. He moved like a machine, every cut precise and calculated. I started with trimming the fat off rib-eye steaks, following his silent instruction as best I could. Once I had mastered steak trimming, he let me butcher my first full carcass… a large pig. It had already been gutted and was hanging from a hook at the back of cooler number one. 
+That first day was one of the most awkward situations I’ve ever been in, with the next couple of days being much of the same. He didn’t explain much. He moved like a machine, every cut precise and calculated. I started with trimming the fat off rib-eye steaks, following his silent instruction as best I could. Once I had mastered steak trimming, he let me butcher my first full carcass… a large pig. It had already been gutted and was hanging from a hook at the back of cooler number one.
 
 He had seven total walk-in coolers, each labeled with the type of meat they contained. Coolers one and two contained pork, while coolers three through five had beef. I didn’t know what the last two contained. They were tucked in the back of the building behind plastic strip curtains with no labels on them. I didn’t ask about them. I figured if he wanted me to know what was in there, he would tell me.
 
@@ -195,3 +195,11 @@ He was silent for a moment as if contemplating the right thing to say. He gave m
 His tone was firm, but there was something in his words that didn’t sit right with me.
 
 I nodded but wasn’t convinced. As I moved toward the coolers to finish up and clock out for the night, I couldn’t help but glance at the back of the shop. The shadows gathered like they were hiding something, concealing secrets that weren’t meant to be found. Those thuds weren’t in my imagination. They were real. Little did I know I was getting closer to something I wasn’t ready to face.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1o59a2g/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1o6555u/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1o70pr6/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1o7w4gx/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

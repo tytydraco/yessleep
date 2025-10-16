@@ -96,3 +96,9 @@ I stood there for a moment, still too scared to move, pondering what to do next.
 I watched as he dragged it to his car. He opened his trunk and, with a deep grunt, heaved it in. The weight of it falling into the trunk shook the car violently up and down before it came to a rest. I slunk down in my seat as I watched on. He wiped his hands on his work apron before looking around a couple of times in each direction. He untied the straps of his apron and removed it, tossing it in as well. He slammed the trunk closed and drove out of the parking lot and onto Crenshaw Street.
 
 I followed him, staying just far enough behind not to raise suspicion. I had to know what he was hiding, and I would soon find out what.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1o6555u/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1o70pr6/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1o7w4gx/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

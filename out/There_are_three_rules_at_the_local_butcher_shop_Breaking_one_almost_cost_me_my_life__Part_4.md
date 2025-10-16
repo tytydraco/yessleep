@@ -2,8 +2,7 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/1o4emwi/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/1o59a2g/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  
-
+[Part 3](https://www.reddit.com/r/nosleep/comments/1o59a2g/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I followed George closely, never letting him leave my sight. Aside from a few trucks, the roads were empty at that time, so I had to be careful not to spook him. We had driven maybe twenty minutes out of town when I saw him start slowing down, like he was looking for something. He had just reached an old, run-down intersection when he suddenly turned off the highway and onto a dirt road. It led down into a clearing that was surrounded by a grove of trees. I noticed a pull-off on the side of the highway, just far enough away from the turn-off that I could still see him and not be seen myself. I pulled over, cut my lights, and sat for a moment, keeping my eyes trained on his movement. Once his tires hit the dirt road, he turned his lights out as well. His car was now only being illuminated by moonlight.
 
@@ -148,3 +147,7 @@ As George’s words swirled around my mind, I started to shake. Tears fell freel
 I closed my eyes tight, trying to regain my will to live. I opened my eyes with renewed tenacity. I did not want George to get the satisfaction from me dying in this shit hole. I told myself that I was going to get out of here or die trying.
 
 The choices were simple. Escape or become a permanent part of Redhill Meats.
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1o70pr6/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1o7w4gx/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

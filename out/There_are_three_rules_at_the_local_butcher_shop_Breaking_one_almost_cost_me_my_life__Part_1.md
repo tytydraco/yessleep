@@ -1,4 +1,4 @@
-I don't really know how else to say this, so I might as well just get to the point. I used to work at the local butcher shop for a man named George. If I didn’t know any better, I’d say he was sent from hell itself for one mission... to be a butcher. The longer I worked there, the further I fell into his trap. The rules for the job were unlike any I’d ever had before. They were strange… almost paranoid, though I never questioned them. Not until the night I broke one. That’s when everything changed. 
+I don't really know how else to say this, so I might as well just get to the point. I used to work at the local butcher shop for a man named George. If I didn’t know any better, I’d say he was sent from hell itself for one mission... to be a butcher. The longer I worked there, the further I fell into his trap. The rules for the job were unlike any I’d ever had before. They were strange… almost paranoid, though I never questioned them. Not until the night I broke one. That’s when everything changed.
 
 I took the job to make some extra money, but now I’m in too deep. Things have happened that cannot be reversed. He cannot and will not stop unless someone makes him. With how things have gone in this whole fucked up saga, I fear that I will have to be the one to do it. I never thought I would ever be put in a situation like this, and yet, here I am.
 
@@ -135,3 +135,13 @@ After he told me the third rule, the intensity in his eyes seemed to dissolve as
 “Simple, right?”
 
 I nodded, trying to hide the chill crawling up my spine. No matter how uncomfortable it felt, I wanted to prove to myself that I could do it. I was working at the butcher shop now. I would have to perform and follow his rules, whether I liked it or not.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1o4emwi/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1o59a2g/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1o6555u/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1o70pr6/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1o7w4gx/there_are_three_rules_at_the_local_butcher_shop/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
