@@ -72,6 +72,4 @@ Three words were written on the back.
 She is perfect.
 
 
-
-
-
+[Part 3](https://www.reddit.com/r/nosleep/s/xPhK05GggS)
