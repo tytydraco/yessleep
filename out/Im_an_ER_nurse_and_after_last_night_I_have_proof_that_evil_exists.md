@@ -1,8 +1,6 @@
-*(This is part 2 of "I bought a jacket from a thrift store and now I can't take it off")* [Read Part 1 Here](https://www.reddit.com/r/nosleep/comments/1ngz84e/i_bought_a_jacket_from_a_thrift_store_and_now_i/)
+Last night when this woman came into the ER of Riverside General, I didn’t think it was anything out of the ordinary. People show up bloody and incoherent all the time. But this woman, Emma, was different.
 
-When Emma Reid came into the ER of Riverside General, I didn’t think it was anything out of the ordinary. People show up bloody and incoherent all the time. But Emma was different.
-
-She was wearing a green military jacket, the lining slashed to ribbons as if she’d attacked it with a kitchen knife. She’d fractured three ribs and gouged her arms raw, but the damn thing was still on her — clinging like it had been sewn into her skin. 
+She was wearing a green military jacket, the lining slashed to ribbons as if she’d attacked it with a kitchen knife. She’d fractured three ribs and gouged her arms raw, but the damn thing was still on her, clinging like it had been sewn into her skin. 
 
 I’ve been a nurse for fourteen years. I’ve seen addicts rip out IVs and men twice my size foam at the mouth, but what Emma said shook me to my core. 
 
@@ -16,11 +14,11 @@ One of the family members was still conscious, a man named Perry. We were trying
 
 No one but me, Perry and the other medical professionals in the room that morning know that he asked me that. And Perry died 30 seconds after I lied and told him she was going to make it. 
 
-So when Emma Reid asked me that same question, yeah, it chilled me to the bone. How could she have known? How did she even know my name? I haven’t been able to shake it since. 
+So when Emma asked me that same question, yeah, it chilled me to the bone. How could she have known? How did she even know my name? I haven’t been able to shake it since. 
 
 So once we got Emma sedated and placed her in restraints, I went to the waiting room to let her boyfriend, Ryan, know that Emma was stable. All he asked me was “is the jacket off?” It was, and told him as much. We had put it in a hazardous waste bag.
 
-Which is why it was so much weirder when I went back to her room and the jacket was on the chair next to her. I couldn’t imagine anyone I work with would do that, it didn’t make any sense. That’s when I noticed Emma’s eyes were open, like she was staring into my soul. “Tell me what happened to Kathy, James”, her voice gruff again. “How do you know about that?” I asked her. Her eyes closed and she fell back asleep. 
+Which is why it was so much weirder when I went back to her room and the jacket was on the chair next to her. Its sleeve brushed my arm as I stepped closer, sticky with dried blood. I couldn’t imagine any of the hospital staff would put a bloodied jacket back in the room, it didn’t make any sense. That’s when I noticed Emma’s eyes were open, like she was staring into my soul. “Tell me what happened to Kathy, James”, her voice gruff again. “How do you know about that?” I asked her. Her eyes closed and she fell back asleep. 
 
 I moved through the halls asking anyone and everyone on staff who had put the jacket back in Emma’s room, but no one seemed to know what I was talking about. It got to the point where I started getting strange looks. One of my colleagues asked if I was feeling okay. I wasn’t, I’m still not. 
 
@@ -50,7 +48,7 @@ There was no fucking way I was going over there.
 
 The Child whispered again, “We need to hide, Grandpa’s acting weird.” I was terrified, both by what he said but also the thought of moving toward the closet.
 
- I came to this house for answers though. So I went over to the closet, I stopped right in front of it. I couldn't see past the clothes, they prevented me from seeing anything beyond them. 
+I came to this house for answers though. So I went over to the closet, I stopped right in front of it. I couldn't see past the clothes, they prevented me from seeing anything beyond them. 
 
 I could either leave or wonder forever what I would find out. So I parted the hanging fabrics and crawled inside. 
 
@@ -70,7 +68,7 @@ He backed himself further into the closet, hiding as best he could. His bedroom 
 
 “Joshua?” An Old Man’s voice called out. I heard a rifle being cocked. I couldn’t see him anymore but I could hear his footsteps.
 
-It felt like forever but must have only been a few seconds when he moved back into my line of sight. He turned slowly toward the closet. “Joshua, are you in there?” He walked over to us methodically, I could heart my heartbeat, thumping like a freight train.
+It felt like forever but must have only been a few seconds when he moved back into my line of sight. He turned slowly toward the closet. “Joshua, are you in there?” He walked over to us methodically, I could hear my heartbeat, thumping like a freight train.
 
 I looked to the little boy whose eyes were shut tight.
 
@@ -78,11 +76,15 @@ I looked back out to the room and the old man was settled right in front of the 
 
 He snatched up his dentures and popped them back into his mouth because I could understand what he said next, “close your eyes”.
 
-I looked over to the boy who was now gone then I looked back to the closet and the old man was standing in front of me, the clothes slid out of the way, the barrel of a rifle pointed at my face. It was a split second, but I’m almost positive he was wearing the same green jacket Emma Reid had tried to slash off of herself. Then just like that, he fired the gun, I saw the spark of the barrel and heard the crack of the chamber right before I closed my eyes tight. 
+I looked over to the boy, he was gone. When I turned back, the old man was standing right in front of me. The hanging clothes slid aside on their own, and the barrel of a rifle leveled with my face.
 
-I was still screaming when I opened my eyes back up. The old man no longer in front of me. The little boy gone. The terror I had just experienced suddenly didn’t exist. It was like it never happened. 
+It was a split second, but I swear he was wearing the same green jacket Emma had tried to slash off herself. Then just like that, he fired the gun, I saw the spark of the barrel and heard the crack of the chamber right before I closed my eyes tight. I felt something hot and sharp tear across my cheek.
 
-But it did happen. It was proof that something beyond our world existed. And that jacket has something to do with it. 
+I was still screaming when I opened my eyes back up. The room was suddenly empty, the old man was gone. The silence was so complete it felt unreal. For a moment, I thought maybe it hadn’t happened.
+
+Then I felt it: a warm trickle sliding down my face. I touched my cheek. My fingertips came away red. Blood. My blood.
+
+This was proof. Proof that something beyond our world existed. And that jacket has something to do with it. 
 
 I left and I didn’t drive home. I went back to the ER. I walked the halls to the storage room where the I last saw the jacket. But the jacket was gone. The bag it was in, empty. It must have moved I thought, it must have gone back to Emma’s room.
 
@@ -92,7 +94,7 @@ Emma’s eyes snapped open. “Where am I?” she said. The look in her eye was 
 
 Then all the lights in the ER went out. It was suddenly pitch black. The noise of panic began to swell into the room from outside. 
 
-Then I smelled smoke. Cigar smoke. It was strong. The red glow of a lit cigar appeared. The red embers shed just enough light for me to make out the face of the old man, where Emma had been.
+Then I smelled smoke. Cigar smoke. It was strong. So strong that I began coughing, choking on it. The red glow of a lit cigar appeared. Its embers shed just enough light for me to make out the face of the old man, where Emma had just been.
 
 The lights came back on and it was Emma again. The innocent look in her eyes gone. It was like she was looking into my soul. 
 
@@ -102,4 +104,4 @@ I didn’t even say anything. I couldn’t. I was too tempted. I would have let 
 
 So here I am. Sitting behind the steering wheel of my car in the ER parking lot. I don’t know what to do next. Do I go inside and let Emma out? Should I go find Ryan? I don’t know what to do. 
 
-If you don’t hear from me again, it means something awful has happened. And if that’s the case, let the police know that James Kilrea the ER nurse from Riverside General is probably dead — or worse. 
+If you don’t hear from me again, it means something awful has happened. And if that’s the case, let the police know that James, the ER nurse from Riverside General is probably dead — or worse. 
