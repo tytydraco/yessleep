@@ -132,3 +132,5 @@ But his words kept replaying in my head.
 “You’ll listen to exactly what I say.”
 
 It wasn’t the threat that scared me, it was the certainty. He said it like he’d already won.
+
+[PART 4](https://www.reddit.com/r/nosleep/s/BGY0OeHrO1)
