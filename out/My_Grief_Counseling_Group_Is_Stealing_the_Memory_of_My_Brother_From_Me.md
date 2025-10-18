@@ -1,6 +1,3 @@
-
-I’m typing this in the dark. My hands won’t stop shaking.
-
 I know this is going to sound insane, but I swear I’m not paranoid — please, just listen.
 
 I wasn’t going to post again. Not because I didn’t want to, but because I hoped the first session was just a weird coincidence.
