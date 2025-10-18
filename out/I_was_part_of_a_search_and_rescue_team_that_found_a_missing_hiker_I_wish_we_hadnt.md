@@ -158,11 +158,11 @@ The vomit stopped, but the sounds didn’t. Now it was a hideous, wrenching dry 
 
 With each ragged dry heave, something pressed further out of Kevin’s toothless mouth, forcing its way into the open. Then, with a rush of dread, I realized what I was seeing: the nose and muzzle of a wolf. He gagged and retched, his chest convulsing as more of it slid free, slick with blood and mucus, glistening under the lantern light in wet, black flashes.
 
-At the same time, his frail frame began to swell. The vomit-soaked clothes clung for only a moment before seams split and fabric tore, the sound sharp and wet as Kevin’s expanding body burst free from its restraints. The air filled with the thunder of snapping bones, cracks echoing through the room. While coarse, bristling hairs sprouted in patches across his once hairless back and arms, curling in thick tufts until his once-wasted frame was shrouded in a wiry coat.
+At the same time, his frail frame began to swell. The vomit-soaked clothes clung for only a moment before seams split and fabric tore, the sound sharp and wet as Kevin’s expanding body burst free from its restraints. While coarse, bristling hairs sprouted in patches across his once hairless back and arms, curling in thick tufts until his once-wasted frame was shrouded in a wiry coat.
 
 His skin changed from pale to an unnatural shade of mottled purple, veins bulging like black cords beneath the surface. His fingers spasmed, curling and stretching as the bones lengthened, the nails splitting, thickening, and hardening into curved talons that scraped grooves into the wood beneath him.
 
-Charles shouted something, but the sound barely registered. The boy’s body no longer looked frail, no longer human—every convulsion brought him closer to something else, something that belonged out in the silent woods we’d been walking through.
+Charles shouted something, but the sound barely registered over the thunder of snapping bones, cracks echoing through the room. The boy’s body no longer looked frail, no longer human—every convulsion brought him closer to something else, something that belonged out in the silent woods we’d been walking through.
 
 Kevin’s body shuddered once more, his chest heaving with ragged, unnatural breaths, each one rattling like wind through broken glass. The thing that had forced itself from his mouth—the wet, snarling muzzle of a beast—hung there, trembling as if tasting the air. His original, human jaws remained split unnaturally wide, the angles impossible for any person, the flesh around his lips stretched white and splitting. He looked at me for a moment, pleading confused horror in those big brown eyes.
 
