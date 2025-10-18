@@ -1,3 +1,9 @@
+This is the only page on my phone that works. I think it’s connected to them somehow.
+
+I thought I was getting my money’s worth. Turns out the pizza never ends — and neither does the meal.
+
+I can’t stop replaying how it began.
+
 What's your favorite pizza topping? Mine’s sausage. I’m not sure what kind of meat they put in it, but it's heavenly — savory, bold, with that hint of spice that lingers after you’ve swallowed.
 
 We went in Ben’s car. No point in using quadruple the gas. Even though I live furthest away, they had to pick me up — it was my birthday.
@@ -6,7 +12,7 @@ The entrance is in a back alley on the shady side of town. No signs. No lights. 
 
 I saw this place on Insta. Romeo’s Pizza. Great reviews. A delicious menu and all-you-can-eat pizza.
 
-I hadn't eaten since breakfast, so I was definitely going to get my money’s worth.
+I haven’t eaten since breakfast, so I’m definitely going to get my money’s worth.
 
 After we walked in the unimpressive, narrow door, the interior was strikingly large for such a shitty entrance. It reminded me of a 50s-style diner, but it wasn’t trying hard. Just basic furniture — red metal tables and white walls.
 
@@ -24,7 +30,7 @@ Just three doors: the entrance, the labeled bathroom, and presumably the kitchen
 
 Scott laughed. “Don’t be a bitch, Vanessa. It’s Mitch's birthday — let's loosen up, have some drinks, some pizza, and celebrate.”
 
-As much as I appreciated Ben standing up for me, I didn’t really care. He’s always too busy partying and with other friends. Plus I had an odd feeling.
+As much as I appreciated Scott standing up for me, I didn’t really care. He’s always too busy partying and with other friends. Plus I had an odd feeling.
 
 This place was empty, and I mean empty. Not even a few people hiding in the back.
 
@@ -78,7 +84,7 @@ The crust was that perfect golden — crispy but not too crispy, not floppy — 
 
 The lights made the beauty of the pizza emanate.
 
-I grew impatient as the savory aroma reached my stomach and it gargled.
+I grew impatient as the delightful aroma reached my stomach and it gargled.
 
 “Okay, guys, just wait,” said Vanessa, holding her phone.
 
@@ -90,9 +96,9 @@ I wasn't sure if she was talking to us or her followers. As ridiculous as she wa
 
 Almost — unnatural.
 
-\-
 
-**Section II**
+
+**Update II**
 
 The pizza was even better than I expected. Imagine your favorite pizza place and crank the flavor dial up by 20. It was as if I unlocked a new sense of taste — a part of the brain that made me a super taster.
 
@@ -142,9 +148,9 @@ Suddenly the face disappeared, the screen switching to a message.
 
 “Please — stay and eat until you are full.”
 
-\-
 
-**Section III**
+
+**Update III**
 
 I never knew how long it took for someone to starve.
 
@@ -230,9 +236,9 @@ We quietly watched as they took the bodies.
 
 I lost two friends that day.
 
-\-
 
-**Finale**
+
+**Update IV**
 
 The next year or so was actually pretty good.
 
@@ -262,7 +268,7 @@ I don’t wanna have a heart attack, but it’s too good to stop.
 
 I think about them sometimes — my friends, my family, my dog.
 
-I scratch the paint on the doors until it flakes under my nails. I write things down, but they don’t always make sense.
+I write these posts, but they don’t always make sense.
 
 It helps, I think.
 
