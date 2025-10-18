@@ -9,9 +9,9 @@ The missing person, Kevin, was fourteen years old. He’d gone hiking with his f
 
 It only took two days to find their camp—or what was left of it. The tent was shredded, blood everywhere, bits of hair and bone scattered among the leaves. We found the dad not too far from camp, both arms, one leg, and face were gone, they appear to have been chewed off. Stomach ripped open with swarms of tiny white maggots feeding on his insides, but no sign of the child.
 
-We’d been combing these woods ever since, and every day that passed made it harder to believe we’d find either of them alive.
+We’d been combing these woods ever since, and every day that passed made it harder to believe we’d find the boy alive.
 
-Today had been no different. We’d been hiking since 7 am, our legs burning, eyes scanning everywhere for a hint of movement. My partner, Charles, chewed absently on a protein bar as we went, crumbs falling into the brush. By the time the sun began to dip past the treeline, it was close to 5 p.m., and still no sign of the boy.
+Today had been no different. We’d been hiking since 7 am, our legs burning, eyes scanning everywhere for a hint of movement. My search partner, Charles, chewed absently on a protein bar as we went, crumbs falling into the brush. By the time the sun began to dip past the treeline, it was close to 5 p.m., and still no sign of the boy.
 
 “I really don’t think we’re going to find this kid,” mumbled Charles, his voice muffled by the protein bar still in his mouth. “And if we do, it’ll be a corpse.”
 
@@ -35,9 +35,9 @@ He clicked it off and slipped it back into his pocket with a groan and shook his
 
 “Let’s look for another hour or so, then head back,” I told him. “Maybe we’ll get lucky.”
 
-I liked Charles—don’t get me wrong—but his constant complaining was starting to grate on me. He was a big guy, about six-foot-three, broad shoulders and thick arms. Definitely handy if we ran into a bear. Still, even though I’d been doing search and rescue for three years longer than him, somehow *he* was the one who was assigned the satellite phone.
+I liked Charles—don’t get me wrong—but his constant complaining was starting to grate on me. He was a big guy, about six-foot-three, broad shoulders and thick arms. Definitely handy if we ran into a bear. Him and I had gone out in search and rescue missions before, he was a good guy. Still, even though I’d been doing this for three years longer than him, somehow *he* was the one who was assigned the satellite phone.
 
-The next hour passed in tense silence, the only sound was soft birdsong drifting down from above, the crunch of boots on dead leaves and the occasional hiss of wind through the woods. Every so often, Charles would check his compass or glance at the GPS, but the signal kept flickering out.
+The next hour passed in tense silence, the only sound was soft birdsong drifting down from above, the crunch of boots on dead leaves and the occasional hiss of wind through the woods. Every so often, Charles would check his compass or glance at the GPS.
 
 “Let’s stop for a bit,” he finally said, lowering his pack onto a fallen log. “My legs are about to give out.”
 
@@ -97,11 +97,11 @@ The boy was staring into space, eyes unfocused.
 
 “bit you?” I said, eyebrows raised, “where?”
 
-“Kevin pulled down his shirt, reveling the wound. The bite was massive, flesh along his shoulder had been torn open in a jagged crescent.  The skin around it was bruised with the edges already swollen and slick with dried blood. You could clearly see where upper and lower jaws had clamped down — punctures spaced far apart, each one big enough to fit a thumb inside, and it stank faintly of rot and iron . Despite the horrific brutality of it, the bite looked old, like it had happened years ago.
+Kevin pulled down his shirt, reveling the wound. The bite was massive, flesh along his shoulder had been torn open in a jagged crescent.  The skin around it was bruised with the edges already swollen and slick with dried blood. You could clearly see where upper and lower jaws had clamped down — punctures spaced far apart, each one big enough to fit a thumb inside, and it stank faintly of rot and iron . Despite the horrific brutality of it, the bite looked old, like it had happened years ago.
 
 “Holy crap,” I muttered, my voice barely more than a whisper. “That’s… that’s a brutal bite. A bear?”
 
-Kevin shrugged, his small shoulders trembling. “I didn’t see it. My dad knocked it off me… told me to run… so I ran. I ran… and ran… until I tripped on something. Then I was alone in the dark.” His voice cracked, and I could see tears streaking the grime on his face.
+Kevin shrugged, his small shoulders trembling. “I didn’t see it, it was pitch black out. My dad knocked it off me… told me to run… so I ran. I ran… and ran… until I tripped on something. Then I was all alone in the dark.” His voice cracked, and I could see tears streaking the grime on his face.
 
 I put a hand on his back, trying to ground him. “It’s okay, Kevin. We’re getting you home.”
 
@@ -129,7 +129,7 @@ The boy managed a weak, toothless grin, and I could see the exhaustion in his ey
 
  As we moved through the woods, I couldn’t help but notice something unsettling: the forest was completely silent. Normally, the trails were alive with the chirping of birds, and the rustle of small animals in the underbrush, but with Kevin in tow, the world seemed to hold its breath—silent, watchful, as if forest itself was wary of him.
 
-After what felt like an eternity of trudging through mud and tangled roots, we finally came to a small clearing and spotted the cabin. The wood was gray and rotting, warped from years of neglect, and the roof sagged unevenly. Moss crept up the walls, and vines snaked through cracks in the timber. The windows were filthy, letting in thin slivers of fading light illuminated the inside.
+After what felt like an eternity of trudging through mud and tangled roots, we finally came to a small clearing and spotted the cabin. The wood was gray and rotting, warped from years of neglect, and the roof sagged unevenly. Moss crept up the walls, and vines snaked through cracks in the timber. The windows were filthy, letting in thin slivers of fading light.
 
 The porch groaned under our weight as we stepped onto it, loose boards threatening to snap. A faint smell of damp wood and mildew wafted out as we opened the door, and the inside was barely larger than a single room. Dust motes swirled in the air, and cobwebs hung from the low ceiling. A single, rickety table leaned precariously in the corner, and an old stove stood cold against one wall, a fire poker resting against it, both rusted and unused for decades. It wasn’t much, but it would do for a night—if it didn’t fall apart around us first.
 
