@@ -160,9 +160,9 @@ When I inhale, the room expands. When I exhale, it answers back.
 
 Underneath it all—quiet, patient, loving—the rhythm continues.  
 
-*Snap. *
+*Snap.*
 
-*Scrape. *
+*Scrape.*
 
 *Thud.*
 
