@@ -1,35 +1,59 @@
+I seen it for the first time on the day the lights went out inside my apartment.
+Not only the bulbs..but the light. The warm. That hum that brings a house to life.
 
+He sat at the edge of my bed.
+That dog, if one could call it a dog.
+Its fur resembled that of shadows, breathing and thick, curling as if it were smoke. It’s Eyes like dead stars. When the dog moved, there was no sound at all, just the faint rattle of chains produced as they dragged behind it.
 
-I’ve been avoiding this Black Dog for as long as I can remember . It was a sunny spring day the day my wonderful Aunt passed away . I was in a state of grief , shock , total disbelief.
+I tried chasing it away.
+It didn’t snarl, it didn’t bark.
+It’s head tilted and it followed me as I walked away.
 
-As I was walking home I noticed this black dog following me . I’ve never been a one for animals, I owned a goldfish once ..but that ended badly . The poor bugger was killed by Dewberry bubble bath . 
-I thought cleaning it out would’ve been a good idea ….Well as you can imagine it wasn’t ( RIP Rocky)..
+After that, I’d catch glimpses of it everywhere. Following behind me on the sidewalk, in the train windows reflection, crouching down in the corner of my bedroom. At times it whispered. At times it would sigh.
 
-Anyway back to the story . Every day I would see this dog aimlessly following me . Sometimes out the corner of my eye , Sometimes at the shops , Never too close but never too far either .
+It would call me by my name.
 
-Life went on and i went about my life . I got married , Had a daughter . Life was good .. until it wasn’t .
+“You’ve brought me here.”
 
-I spiralled , Not in the sense of drinking or drugs ( Absolutely not ) . I felt like my mind was broken . I could feel every emotion my friends could feel .. A real empath ya know !
+Nights had become much longer. When I slept, it would crawl onto my chest, crushing me until I woke up gasping for air. I’d desperately shield my chest, feeling the creatures claws ripping into my ribs, trying to completely dig them out. 
 
-I had terrible lows … The kind of lows where you’re on a run away train and you can’t get off…. Some days I wanted to jump out of my skin . I noticed on the darker days this dog was always by my side , Never in full view but just enough to know he was there. 
+Nobody else could see it.
+My mother told me I had appeared more tired. My boss suggested I take a break for a while. My friends phone calls had stopped. The dog grew large. It started eating more. My own food. My relationships, my finances, My time…My reflection…
 
-It was comforting I suppose. 
+When I did smile, it grinned back at me with way too many teeth for one mouth.
 
-I have a great marriage, a beautiful daughter whom we adore . We also lost a baby 5 years ago . A piece of my heart broke that day ( We had big plans for you little one ). However we’re blessed with our one and only daughter . 
+At one point I attempted to lock it outside.
+I shut all my doors, all the windows, and every single light. I still heard its breathing from inside the walls. Scratching … waiting.
 
-She makes me happy every day . If only I could bottle the happiness she feels. She knows love and we give her it tenfold !! 
+It was never outside, always inside.
 
-If only I could feel normal … If someone offered me 1 million pounds or to feel like my old self … I would take the latter in a heart beat. 
+The last night had arrived quietly . The air was heavy, as if the world was holding its breath. By the window I sat, accompanied  with a bottle and a note I hadn’t finished. The dog stay put beside me, resting its head on my knee as if it cared. Its eyes were no longer cruel…but tired. Like my own
 
-As I trudged through life , I lost family and friends along the way to suicide , cancer, Covid…. I felt pain for every single one , I carried that grief and i tried to move on , I really did .
+“If you leave ,” it said in a hushed tone, “I leave too.”
 
+For a brief second, I almost felt sorrow for it. This monster that had faithfully followed me seemingly forever. I realized then.. the thing wasn’t following me. It was me.
 
-The Dog started getting closer , Enough that I could see the side of his head , Just enough to catch a glimpse of this beautiful black dog . I never really noticed how pretty he was before . 
+Every bite, every chain, every shadow left behind had all come from my own hands. My heart. My voice. I felt this way for years.
 
-His mane was jet black and it had the most amazing eyes full of wonder .
+I peered down at the thing trembling. It glanced back at me. Maybe if I had stopped breathing… it would stop breathing also.
 
-It’s been following me for years and i finally saw him today, all of him , all of that pain , all of that grief . It suddenly dawned on me ..
+The night felt like forever.
+The bottle was now empty. The note remained blank. I struggled to find the words, not for anybody else, not even for me. Just the raindrops hitting the window and the soothing hum of the refrigerator is what filled the apartment.
 
-That dog is me …
+At my feet, the dog curled, waiting.. watching. I reached down and ran my fingers through its dark fur. All I felt was cold. More soft than expected. For the first time, rather than it feeling like fear, It felt understanding.
 
-That dog is depression .
+“I’m tired,” I whispered. 
+
+The dogs head lifted and it pressed its muzzle against my hand, and breathed out slow. A sigh. It felt like forgiveness.
+
+Outside, dawn crept through the blinds, gray and faint.I did not move. Didn’t shed tears. Just sat, allowing the light to touch us both.
+
+And for a split moment, I thought to myself that maybe the sun would be enough.
+Maybe I’d try again. Maybe I’d breathe again. Maybe I’d live
+
+But the dog stayed close to me.
+And I stayed closer to it.
+
+When the light fully penetrated the room, only one of us opened our eyes. 
+
+The day was new… a new beginning… a new journey… a new light for me. I felt something I haven’t felt in a long time, and all was quiet
