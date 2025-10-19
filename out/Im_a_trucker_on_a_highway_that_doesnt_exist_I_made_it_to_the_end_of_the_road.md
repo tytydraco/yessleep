@@ -301,3 +301,5 @@ In front of us, the highway I’d learned to recognize from my last few months, 
 Route 333 didn't need to kill us to keep us here.
 
 It could [simply end](https://www.reddit.com/r/lucasGandola/comments/1lklmnq/welcome/).
+
+[Keep reading](https://www.reddit.com/r/nosleep/comments/1oax4ca/im_a_trucker_on_a_highway_that_doesnt_exist_finale/)

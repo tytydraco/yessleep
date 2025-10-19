@@ -1,3 +1,5 @@
+[(Next)](https://www.reddit.com/r/nosleep/s/20nvDZswIj)
+
 I guess the best place to start is the beginning. Back when I was thirteen, I lived on my computer. I’m not exaggerating—while other kids were sneaking out to drink cheap vodka or hook up in the backseats of their parents’ cars, I was hunched over a glowing monitor, half-blind from staring too long at message boards and multiplayer lobbies.
  
 It was lonely, sure. But loneliness is easier when you convince yourself everyone else is living in a world you’ll never belong to. Online, I could pretend. I could be wittier, braver, smarter—hell, even taller. No one could see how awkward I was, how greasy my hair got, how my voice cracked like a broken radio signal when I spoke.
