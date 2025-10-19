@@ -87,4 +87,4 @@ The memories.
 I don’t go out without goggles anymore.
 And I move from place to place… so they can’t find me.
 
-It's midnight, And I typed all this **"Lavitating"**
+It's midnight, And I typed all this **"Levitating"**
