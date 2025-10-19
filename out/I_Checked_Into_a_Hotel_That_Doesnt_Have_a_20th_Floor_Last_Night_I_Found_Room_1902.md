@@ -124,5 +124,3 @@ the number **1902** flickered.
 Just long enough for me to see it.
 
 Just long enough for me to know it’s still waiting.
-
-<<<<THE END OF PART 1>>>>
