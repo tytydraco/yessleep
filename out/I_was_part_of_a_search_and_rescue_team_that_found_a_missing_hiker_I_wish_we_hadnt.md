@@ -156,7 +156,7 @@ And then the convulsions hit. His arms snapped tight against his chest, then fla
 
 The vomit stopped, but the sounds didn’t. Now it was a hideous, wrenching dry heave, each one like his body was trying to tear itself apart from the inside. A horrible rasping cough tore up with it, dry and ragged, scraping the air raw as his body seized and bucked on the blood-slick floor.
 
-With each ragged dry heave, something pressed further out of Kevin’s toothless mouth, forcing its way into the open. Then, with a rush of dread, I realized what I was seeing: the nose and muzzle of a wolf. He gagged and retched, his chest convulsing as more of it slid free, slick with blood and mucus, glistening under the lantern light in wet, black flashes.
+With each ragged dry heave, something pressed further out of Kevin’s toothless mouth, forcing its way into the open. Then, with a rush of dread, I realized what I was seeing: the nose and muzzle of a wolf. He gagged and retched, his chest convulsing as more of it slid free, slick with blood and mucus, glistening under the dim  light in wet, black flashes.
 
 At the same time, his frail frame began to swell. The vomit-soaked clothes clung for only a moment before seams split and fabric tore, the sound sharp and wet as Kevin’s expanding body burst free from its restraints. While coarse, bristling hairs sprouted in patches across his once hairless back and arms, curling in thick tufts until his once-wasted frame was shrouded in a wiry coat.
 
@@ -176,11 +176,11 @@ It reached with its new hands and gripped Kevin’s human upper and lower jaws. 
 
 It stood there with its head bowed, supporting itself on its knuckles like a primate, breathing slowly. Deep and steady.
 
-Charles and I pressed ourselves flat against the far wall, every muscle frozen, terror etched deep into our faces. I prayed, desperately, that it would leave through the door, vanish into the black woods outside, joining whatever other horrors roamed the night.
+Charles and I pressed ourselves flat against the far wall, every muscle frozen, terror etched deep into our faces. I prayed, desperately, that it would leave through the door, vanish into the black woods outside, joining whatever other horrors roamed the nigh. Then it lifted its head to face us. 
 
-Then it turned to face us, and time turned to ooze.
+Time turned to ooze.
 
-The creature before me was a grotesque fusion of human and predator, every detail twisted into something nightmarish. Its face was elongated and wolf-like, jagged fangs coated in dark congealed blood. Feral amber eyes sat deep in its skull, radiating a cold, calculating awareness. Coarse black hair sprouted unevenly across its scalp and face, framing the gaping maw with matted clumps, and its thin, cracked, purple skin stretched taut over high cheekbones. The nose was that of a wolf, and a bright red tongue came out to wet it.
+The creature before me was a grotesque fusion of human and predator, every detail twisted into something nightmarish. Its face was elongated and wolf-like, jagged fangs coated in dark congealed blood. Feral amber eyes sat deep in its skull, radiating a cold, calculating awareness. Coarse black hair sprouted unevenly across its scalp and face, framing the gaping maw with matted clumps, and its thin, cracked, purple skin stretched taut over high cheekbones. A bright red tongue came out to wet its muzzle.
 
 Its torso was emaciated yet unnaturally muscular, sinews flexing under its purple-grey, bruised skin. Dark, wiry hair ran down its spine, curling around the shoulders and arms. The arms themselves were grotesquely long, with hands that ended in elongated fingers tipped with blackened, hooked claws, its knuckles protruded like small, jagged boulders beneath the thin skin.
 
