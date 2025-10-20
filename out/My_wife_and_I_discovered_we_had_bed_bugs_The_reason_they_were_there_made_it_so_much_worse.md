@@ -86,13 +86,9 @@ By 11:15 AM, the tech was finished.
 
 “Y’all should be good now.” He gathered his gear. “Just slowly start to unpack. The bugs should be dead within a few weeks.”
 
-“Won’t they continue feeding on us?” My wife asked.
-
-“Yes, but as they crawl over the fungus to reach you, it’ll suffocate them. It’s the fastest way to get out of this mess.”
-
 ***
 
-Within weeks, the bites had stopped. My wife and I could sleep peacefully again. Life was normal. At least, it seemed that way.
+Within a month, the bites had stopped. My wife and I could sleep peacefully again. Life was normal, so it seemed.
 
 About six months into our newfound freedom, I received a call.
 
