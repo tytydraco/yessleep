@@ -113,15 +113,15 @@ Natalie seemed to ponder this a moment, a look of confusion glazing over her tau
 
  She blinked a few more times before speaking again. Her voice sounding strained as it crackled deep in her throat  “... I don’t like it here Tyler” 
 
-A moment of silence drifted between us before a crazed look flashed in her eyes, her slender hand coming to grab at my arm that was now dangling just slightly over the lip of the box. Her hands were ice cold as they curled around my exposed flesh “I want this to be over!” she wailed, her grip tightening as she did so “I’ve been here for fucking ages! I want it to stop.. Please god make it stop…” 
+A moment of silence drifted between us before a crazed look flashed in her eyes, her slender hand coming to grab at my arm that was now dangling just slightly over the lip of the box. Her hands were ice cold as they curled around my exposed flesh “I want this to be over!” she wailed, her grip tightening as she did so “I’ve been here for fucking weeks! I want it to stop.. Please god make it stop…” 
 
-Her unsteady hold had me almost teething over the edge of the unstable cardboard, the shock of what she had just said sent jolts of burning hot terror down to my very core “I saw you at work yesterday" I muttered. 
+Her unsteady hold had me almost teething over the edge of the unstable cardboard, the shock of what she had just said sent jolts of burning hot terror down to my very core “I saw you at work a few days ago" I muttered. 
 
 We both stewed in the silence that followed for an indescribable amount of time, both staring into each other's eyes in some kind of unspoken horror that we now shared. I lightly tugged on her arm in a silent question to see if she wanted to get out of the box she had been stuck in for however fucking long it had been. 
 
 She nodded her head and pulled her shaky legs underneath herself, coming to an unsteady stance. Using the knife I had stashed away in my pocket in case things had gotten hairy, I cut away the side of the box and gently hoisted Natalie away from the pallet until she was situated next to me. 
 
-“How long have you been here? And how the fuck did you end up in that?” 
+“How are you here? And how the fuck did you end up in that?” 
 
 She shook her head, dislodging a few stray tears “I don’t know… I showed up to work one day and then I never left. No one ever came. Until you” 
 
