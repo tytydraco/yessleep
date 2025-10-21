@@ -224,7 +224,7 @@ I stared at Dad’s roots. The cascade of golden tendrils had just begun to cong
 
 *“You can’t bar me from seeing our father just because* ***you*** *don’t want me to. Guardianship doesn’t mean you get to make the rules. Legally, it’s my right.”*
 
-I bent over, inspecting the contact point between my father and the wood fifty-feet below him, only half-listening to Milo. A frothy, milk-colored puddle of ooze was starting to develop. I’d witnessed the same phenomenon in the hallway upstairs, but it was much more florid in comparison. The ooze was thicker, with swirls of light pink and a scent like fermenting beer.
+I bent over, inspecting the contact point between my father and the wood fifty-feet below him, only half-listening to Milo. A frothy, milk-colored puddle of ooze was starting to develop. I’d witnessed the same phenomenon in the hallway upstairs, but it was much more florid in comparison - *that* ooze was thicker, with swirls of light pink and a scent like fermenting beer.
 
 *“Listen - I’m not saying you* ***can’t*** *come, I’m saying you* ***shouldn’t*** *come.”*
 
@@ -270,7 +270,7 @@ I hung up.
 
 Reluctantly, I called Milo back a few days later and apologized. Not because I actually felt guilty.
 
-I just really didn’t want the police showing up unannounced for a wellness check.
+I just *really* didn’t want the police showing up unannounced for a wellness check.
 
 He seemed to accept the explanation that Dad was *looking sicker,* and I didn’t want anything stressing him out.
 
@@ -316,9 +316,9 @@ This allowed them to change direction.
 
 Instead of crystalizing straight ahead - further into the foyer - they veered ninety degrees clockwise, carrying leaves to the rightmost corner of his golden tangle and dropping them there. Then, slowly, day by day, they grew towards the cellar. In anticipation, I cleared a path. Propped the door open with a stack of records.
 
-That said, I think they would’ve curled under the frame if I hadn’t opened it.
+That said, I think they would’ve curled under the frame perfectly fine if I hadn’t propped it open. 
 
-But I just wanted to figure out how I could help. 
+But I was desperate to figure out how I could help. 
 
 \- - - - -
 
@@ -386,7 +386,7 @@ With a deep breath, I walked forward, and opened the door a crack.
 
 *“Jesus! There you are - you know how many times I’ve called you?”* he bellowed.
 
-*“I know, I know, we can talk about this later, some another time - “*
+*“I know, I know, we can talk about this later, some other time - “*
 
 Milo was barely listening. He was angling his head, craning his neck and standing on his tiptoes, trying to get a look inside while I tried to block his view with my body.
 
@@ -428,7 +428,7 @@ Milo flew in through the door, his capture accented by breathless screams and th
 
 I looked, but only for a moment.
 
-His calves were adorned with hundreds of fibers, bright gold progressively reddening as warm plasma leaked from his skewered muscles.
+His calves were adorned with hundreds of fibers, bright gold barbs progressively reddening as warm plasma leaked from his skewered muscles.
 
 That wasn’t what caused me to close my eyes, though. 
 
@@ -492,7 +492,7 @@ I traced the roots down the cellar stairs. The floor is unfinished: just cold, h
 
 Dad implanted himself there.
 
-He dug through the soil, blooming overnight.
+He dug through the soil, blooming in my backyard overnight.
 
 I walked outside this evening and stood under the tree. 
 
@@ -526,7 +526,7 @@ Lie or not, I have to believe it's still a miracle.
 
 And as I type this, I have a horrible, heavenly feeling,
 
-That me, Dad, and Milo,
+That me, Dad, and even Milo,
 
 are going to be together
 
