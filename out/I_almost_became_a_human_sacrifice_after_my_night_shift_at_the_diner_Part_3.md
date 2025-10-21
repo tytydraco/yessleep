@@ -1,4 +1,4 @@
-[Previous post](https://www.reddit.com/r/nosleep/comments/1o7aeii/the_night_shift_at_the_diner_is_definitely_cursed/)
+[Previous part](https://www.reddit.com/r/nosleep/comments/1o7aeii/the_night_shift_at_the_diner_is_definitely_cursed/).   [All parts](https://www.reddit.com/user/Practical-Way8041/comments/1ocdy74/the_seven_realms_diner_series/). 
 
 Have I already mentioned how much I hate this town?
 
@@ -6,7 +6,7 @@ If not, let me do it right now:
 
 I hate this town. A lot. 
 
-And it’s not arbitrary. [Not at all.](https://www.reddit.com/user/Practical-Way8041/comments/1ocdy74/the_seven_realms_diner_series/)
+And it’s not arbitrary. Not at all.
 
 Look, I can excuse crazy vampires. I can excuse monsters living in the walls. But I draw the line at ritual human sacrifice. Especially when it involves me. 
 
@@ -67,9 +67,7 @@ I didn’t need to be told twice. I bolted to my room and locked it, unsure how 
 By then, I only had three clear things in my mind:
 
 1. Only humans can touch iron.
-
 2. The iron rod had to have been stolen by a human
-
 3. A human had to have killed the boy in the other room.  
 
 What I didn’t know was who exactly did it, since according to at least four people, I was the only human in town. 
@@ -494,7 +492,7 @@ I was about to do something either incredibly stupid, or completely genius. 
 
 “I will,” I said with fake confidence. “But first, answer this: what happens if I walk away and leave you stuck in here?”
 
-“Stop playing games,” he growled.  
+“Stop playing games,” he growled. 
 
 “I will as soon as you answer,” I smiled sweetly as my heart tried to come out of my chest. 
 
@@ -555,3 +553,5 @@ One last thing, now that I know what it stands for and I believe that it may be 
 The seven realms diner. 
 
 Because I have a feeling that this has just begun.
+
+[All parts](https://www.reddit.com/user/Practical-Way8041/comments/1ocdy74/the_seven_realms_diner_series/)
