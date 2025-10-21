@@ -64,7 +64,7 @@ His other hand grabbed my shirt collar and violently pulled my head down.
 
 I felt wet heat as he put cracked lips against my ear and rasped. A deep, steady scrape of his vocal cords, barely audible, though, like the wind dragging the tip of a tree branch against a rusty gutter while you’re trying to fall asleep, it sounded like an omen.
 
-One by one, I calmly peeled his skeletal fingers from my collar. His hands feel to his sides lifelessly. 
+One by one, I calmly peeled his skeletal fingers from my collar. His hands fell to his sides lifelessly. 
 
 He resumed his usual afternoon activity - silently staring out the window - and I retreated to the safety of my own recliner.
 
@@ -88,7 +88,7 @@ He’d eat of his own accord. He cleaned himself when necessary. He knew when to
 
 But he still wasn’t speaking, and he never let go of that leaf.
 
-Then, about a week after his resurrection, he locked himself in my second-floor guest bedroom.
+Then, about a week after his impromptu resurrection, he locked himself in my second-floor guest bedroom.
 
 A wrinkle in his upward trajectory, sure, but I reasoned that once I knew *why*, it'd all click back into place. 
 
@@ -232,7 +232,7 @@ I bent over, inspecting the contact point between my father and the wood fifty-f
 
 Instinctively, I pulled a tissue from a nearby end-table and dabbed at the slime.
 
-The roots spasmed violently. A few lurched towards me. A myriad of slim, golden threads exploded perpendicularly from those roots, lashing the back of my hand. Stung like hellfire. A cluster of tiny crimson pinpoints appeared, dripping blood.
+The roots spasmed. A few lurched towards me, and a myriad of slim, golden threads exploded perpendicularly from those roots, lashing the back of my hand. Stung like hellfire. A cluster of tiny crimson pinpoints appeared at the base of my thumb, dripping blood.
 
 The door to the guest bedroom shook on its hinges.
 
@@ -372,7 +372,7 @@ I heard someone pounding on the front door.
 
 \- - - - -
 
-*“It’s Milo. I want to see that Dad’s OK with my own two eyes. Open the door or I’m calling the police.”*
+*“It’s Milo. I want to see that Dad’s OK with my own two eyes. Open the goddamn door or I’m calling the police.”*
 
 I paced around the foyer, hand gripping my forehead, mind racing. 
 
@@ -462,7 +462,7 @@ Not that he isn’t still growing.
 
 It’s more that the crinkling is inaudible over the sound of Milo talking.
 
-Like the fractured cockroach, he’s been reborn in that room.
+Like the fractured cockroach, he’s been reborn.
 
 And he’s spent the last week repeating the words he said before he died, on an endless loop, in a random order, with irregular inflections and volumes.
 
@@ -470,7 +470,7 @@ Screams and shouts, wails and whispers; on, and on, and on.
 
 *“It’s Milo. I want to see that Dad’s OK with my own two eyes…”*
 
-*“Open the door or I’m calling the police…”*
+*“Open the goddamn door or I’m calling the police…”*
 
 *“Jesus! There you are - you know how many times I’ve called you…”*
 
