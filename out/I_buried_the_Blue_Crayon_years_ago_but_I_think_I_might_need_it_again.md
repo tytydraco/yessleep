@@ -1,56 +1,57 @@
-[PART 1](https://www.reddit.com/r/nosleep/comments/1mnhtx9/i_buried_the_blue_crayon_years_ago_but_i_think_i/) | PART 2 | [PART 3](https://www.reddit.com/r/nosleep/comments/1mz764h/i_buried_the_blue_crayon_years_ago_but_i_think_i/)
+[PART I](https://www.reddit.com/r/nosleep/comments/1mnhtx9/i_buried_the_blue_crayon_years_ago_but_i_think_i/) | [PART 2 ](https://www.reddit.com/r/nosleep/comments/1mt29nd/i_buried_the_blue_crayon_years_ago_but_i_think_i/)| PART 3
 
-There is no dreadful wish quite like the blue mystery that was the crayon I drew with and wielded as a kid. Though sometimes, …I swore it looked black.
+When a blue mark is made, a heart becomes a spade. And with any good spade, you dig and you dig deep. For it was down in an earthy hole that I would bury my Blue Crayon, my piece of impossible wax, with its lead cast wrapped in duct tape like a mummified coffin. I remember standing over my hole, surprised at how far I’d dug, for I had plunged my dad’s shovel through layers of red and gray clay—what we called our Texas gumbo. And it was there that I made for that crayon the most perfect grave.
 
-That’s been in my mind ever since I last posted about this. I didn’t realize that telling y’all how the Blue Crayon was made would make me feel so mixed up and fogged, like an inside-out brain within an inside-out heart. Indigo deep and ever true.
+But burying my Darkest Blue was yet days away, for in my foolishness, I still had more damage to do. More darkness to bring to life.
+
+You see, on the night that I drew Bradley’s picture and gave a wicked presence to his closet, I didn’t sleep well at all. There was tossing and turning. There was sitting up and hugging my knees, wearing my crown of sweat in the dark. There was the memory of the crayon’s aroma—acrid and earthy—when I pressed it and let its color. It was like I could smell that cloying fragrance even as I twisted in and out of my knife-narrow sleep. Somewhere in that liminal space, I thought I saw blue flesh over taut muscles on a gaunt form moving around my bed. Its face was a blurred horror that my mind rejected, but its eyes I knew, for they were like blue stains in an infinite dark. Only that dark was my wounded mind.
+
+Throughout the night, I thought I heard something deep and reaching, something like a rhythmic rumbling, low and distant. Listening to it was also like feeling it, for I both felt and heard its dark pulse through the walls around me. Maybe even through time. And I think I heard a boy’s muffled scream echoing across that penetrating pulse.
+
+When I got up in the morning, I couldn’t find my blue jelly bean anywhere. And even stranger, the Blue Crayon was out of its pouch and resting on a blank sheaf of paper. I already felt sick to my stomach, but seeing that dark crayon made me vomit right then in a terrible mess. I finished in the bathroom and found my blue jelly bean there by the toothpaste. When I went to pocket it, it turned black and broke into two pieces, which left me feeling vulnerable and abandoned.
+
+Despite my feelings, I scooped up the pieces and put one in each pocket. Vomit or no, school couldn’t be avoided. And honestly, I was too afraid in that moment to be home alone. Despite having made my drawing of Bradley and his blue-dark closet, I was honestly surprised when I didn’t see him on the way to school. In fact, he was absent that day. As the hours ticked by, I found my eyes straying to his vacant desk. His empty chair did not bring me satisfaction. Stealing glances at it throughout the day only gave me a deep and growing fear that I had done something very wrong, something irreversible, something for which I could never be forgiven.
+
+When Ms. Jones barked at me to pay attention, I felt stunned and disjointed, like I only partly understood where I was and how I had gotten there. I waited until she turned to the chalkboard before reaching into my pockets and removing the two pieces of broken black jelly bean. I held my hands high and released them, letting the pieces fall to my desk, as if in an act of ceremony. There was no thought in this action. There was only the instinct to do so—perhaps from some terrible place.
+
+Instead of bouncing and flying far, the pieces moved like something heavier, rolling and tumbling along the open pages of my math workbook, before coming to rest at the central seam. One immediately sprang to life as a housefly and the other as a scuttling roach. And when the kids around me started gasping, and one of them screamed, I found myself grinning even though joy was the last thing that I felt.
+
+I’ll never forget the way that Ms. Jones looked when she wheeled around from the board, her piece of chalk in hand, mid-writing pose. It was clear that she didn’t know what was going on—but her eyes told me that she suspected me at the center of it.
+
+“Danny, bring me your conduct card!”
+
+“What for?”
+
+My tone was dead and immediate, and I remember thinking that my voice didn’t quite sound like me, or even really *feel* like me. Those two words and their defiant question had simply come out of me like an unrestrained belch.
+
+The class fell silent, and the fly and roach went as motionless as the printed problems on my open page. For they were smart little pieces of dark, easy to forget. Easier even to unsee.
+
+Ms. Jones and I glared at one another, and time seemed to take its own breath between us.
+
+You see, no one challenged teachers in those days. Not in elementary. Not in the late 80s, at least not where I grew up. And certainly not in the way I had done *then*. Honestly, I think my defiance had even surprised Ms. Jones. Half a moment was all it took to see that she had been triggered on a whole new level, for her face betrayed her with its rapid reddening.
+
+“It’s one mark for disrupting the class and another for being insubordinate. We can easily make it three if you want to keep me waiting?”
+
+I removed the bold yellow paper with its maroon print from my trapper keeper and met her at her desk.
+
+“Give me as many marks as you are willing to receive,” I said. Only this time, I spoke with my own voice and with my own intention.
+
+In that moment, I felt emboldened by the words that had come out of me before. And I felt encouraged by her abuse of power. The injustice of it all triggered a rage within me that seemed to erase my previous dread.
+
+When we locked eyes, I pictured the Blue Crayon in my mind, as if it was a thing I could brandish like a weapon on some low telepathic level. And there I saw it gleaming on a window sill, where its inky darkness held the moon’s shine like an eel lying in wait. Inanimate as it was, it felt to me as a thing long lurking in our minds, dwelling at the invisible tunnels that connect them to each other. If she could see it, if she could *feel* it, I hoped that my Darkest Blue could stagger her. I hoped that a single fleeting glimpse of it in her mind might take something out of her, some piece of fire or spirit forever stolen. But instead, she only seemed more flustered.
+
+When she tore the paper from my hands and asked me what my question was supposed to mean, I touched her hand. It was gentle and deliberate and swift. And in that moment, I could smell her sweat bleeding through her antiperspirant. When I didn’t answer, she cleared her throat, gave me two marks, and sent me back to my desk without further word.
+
+As I sat down, I felt for the first time triumphant, like I had *beaten* her somehow. The whole class must have felt it, or felt *something*, because the kids were quiet and subdued for the rest of the day. And so was Ms. Jones.
+
+Little could I know, my sense of victory was merely another illusion of the Blue Crayon and its power and perhaps that of its maker.
 
 *Don’t think about Blue Simon, Danny. Don’t remember Blue Simon.*
 
-But all is well within the dream, except for Vic, ‘cause she can’t scream.
+But you and I both know it’s too late for that.
 
-You see, Victoria can’t talk any more. At least, not as well as she used to. Seems the same degenerative disease her mama suffered from has seen fit to take up root in her. Though, it’s arrived decades earlier than expected. Soon, the doc says that Vic will have trouble breathing.  
+It may not be too late for Vic, though. Not if I can do something good with my Darkest Blue instead of something terrible. There is more to tell about what I did to Ms. Jones and what happened to Bradley, but even now I feel the earth calling to me in that place where I buried it.
 
-In my helplessness, I’ve given my mind to wander a dark road of late, sleepless and ever pondering. Before I even realized the Pandora’s Box of memories I was opening in my inner well, I couldn’t help but wonder one thing:
+And that temptation feels stronger now than ever.
 
-*What if I were to draw Vic in ordinary crayon, and then give her a blue mouth? Or maybe blue lungs.*
-
-What if this piece of terrible wax could be used to give blue blessings instead of blue curses? After all, it’s one thing to know that I’ll never hear her sing again. It’s another to accept that, pretty soon, she and I will have shared our last spoken conversation—at least our last one with any clarity.
-
-I know.  You probably think I’m crazy. And that’s fine. You’re not even wrong in that.
-
-But you should at least understand what the Blue Crayon can do. You should at least know how I used it so long ago, before realizing that it did far more harm to me than Bradley or Ms. Jones ever had—or even ever could. You should know *why* I sealed the Blue Crayon within the very lead it was cast, and then buried it beneath the bluebonnets. And there it sleeps, like a thing just waiting to be found and used again. Or so I’ve recently imagined.
-
-I’ll never forget the afternoon that I made the crayon with Simon there in his uncanny home within that tall fence. The one with the overgrown Iris Industries sign. I remember his instructions, which were as inviting as they were haunting. And all the while, he stared into me with those blue-strange eyes.
-
-“Draw no new images with your deep piece of wax. Never draw a thing anew, boy, for regret it you shall. Instead, make the image of your Bradley or of your Ms. Jones with other crayons made by the machines of men. It is when you alter those drawings with your Deepest Blue, the wax of thine soul, that you will change their lives forever… in any way that should serve to please you. For your sovereign hand deserves a sovereign knife, and together have we forged one.”
-
-I don’t remember leaving Blue Simon’s house. I just remember being back in the field behind my apartments, adjusting my backpack and heading home. I could tell by the sun that I had been there for hours. But that didn’t stop Bradley from surprising me when he rode up out of nowhere on his bike. I don’t know if he had been waiting for me all that time, or if it was just part of some terrible coincidence. When he drew his water gun and began dousing me, I found myself drenched and stinking of piss.
-
-Even in the retelling, I know it’s difficult to believe. Especially in this day and age. But the time I grew up in was so different, so cruel, so hateful. And much of it ran completely unchecked, from kids and adults alike. It’s like there was a pervasive antagonizing energy that manifested itself in the most physical ways. Who knows what shit they’d been putting in our food and in our fumes back then, to say little of having to take most breaths through a haze of second-hand smoke nearly any time you were indoors or riding in a car.
-
-And, in that moment, I just saw red. There was no fear. There was no sadness. There was only rage. For a twinkling, I saw a glimmer of fear in Bradley’s eyes. It didn’t matter that he was nearly twice my size. When I lunged at him, he sped away on his bike—though he waited until he was a distance away before he started laughing.
-
-There were no tears in my eyes. No feeling sorry for myself. There was only the volcano within me, smoldering and ready to burst. I marched home in such a rage-filled trance that the rest of the walk seemed to pass in an instant. Before I knew it, I was under the shower head considering all of the ways I might draw and color Bradley.  And, with a curling half-smile, I thought of what *gift* I might give him with my dark new crayon. In the rising curtains of steam, I found myself well-pleased with an idea. After all, Bradley needed a *friend*. Someone to keep him company at night.
-
-When I found myself at the dinner table, surrounded by my colors and my big art pad, my stepbrothers were in the living room watching *Growing Pains.* Dad wasn’t home yet, *thank god.* My stepmom was making meatloaf in the kitchen, being awfully quiet and keeping her back turned all the while. It was weird, for sure, but I paid her no mind. The important thing was that they were all distracted when I began to draw Bradley in his bed with the covers all the way up to his chin.
-
-And I did have the blue jelly bean in my pocket—just in case.
-
-As for my drawing in crayon, I was sure to emphasize Bradley’s large bushy eyebrows and his crooked two bottom teeth. It was his eyes that I intentionally bulged and made far larger than they should have been. After all, in that moment, I wanted them to be eyes full of fear.
-
-I didn’t know how his bedroom looked, but for some reason, it was easy enough to imagine. So I drew the vague shapes of objects and furniture as my instincts told me to suggest them. It was his bed that I put facing his open closet, with the door yawning open. Instead of drawing a void of darkness there with my black color, I picked up my Blue Crayon, removing it from its lead cast for the first time.
-
-Touching it was like a cool kiss, and I shivered in a quick flush that was rather pleasant. All along my spine, strange feelings leapt and danced across my flesh, like I had become part of some greater antenna. For the briefest moment, I hesitated with my Blue Crayon just over the picture.
-
-Forging the color and removing it from its cast for the first time was one thing. But actually pressing the Blue Crayon to paper and leaving the first mark was another action entirely. The sturdy paper with my drawing in crayon had become a threshold. And leaving my ***blue mark*** would be crossing it.
-
-I was so young then. But even I understood that much.
-
-The first thing I did was color in the darkness there in that closet with my impossible blue. And there, the wax flaked and burned in its whispering cool shadow. When its color was let, there arose a faint aroma, sweet and earthy, like some kind of anise or fennel. From my rhythmic movements, a great void was born, deep and layered, and teeming with terrifying possibility. It was there in my good work that I saw fit to leave two lightly shaded areas that would give the impression of the blue-dark having its own eyes.
-
-When I took a few moments to study what I had done, I felt nauseated and afraid. Afraid to keep looking  
-at it, and equally fearful of what it might do to me if I tried to destroy it. What you may not fully understand yet is that I had done the unthinkable. 
-
-I had made a closet that could stare back from the dark.
-
-[PART 1](https://www.reddit.com/r/nosleep/comments/1mnhtx9/i_buried_the_blue_crayon_years_ago_but_i_think_i/) | PART 2 | [PART 3](https://www.reddit.com/r/nosleep/comments/1mz764h/i_buried_the_blue_crayon_years_ago_but_i_think_i/)
+[PART I](https://www.reddit.com/r/nosleep/comments/1mnhtx9/i_buried_the_blue_crayon_years_ago_but_i_think_i/) | [PART 2 ](https://www.reddit.com/r/nosleep/comments/1mt29nd/i_buried_the_blue_crayon_years_ago_but_i_think_i/)| PART 3
