@@ -2,7 +2,7 @@ When I was about five or six my dad disappeared. My mom always said he died, but
 
 Today, almost 15 years later, I received a journal in my mailbox. Mom put it in there, told me someone had dropped it off at the old house and it was for me. She didn’t say from who, because she didn’t know. Just said it was on the front porch with my name on it. 
 
-Now, what I read was a truly fucked up story about my father. None of which I think is true. Maybe it’s some prank from one of the kids next door- I don’t know. I’d let mom look at it, but I don’t want her reading this… I can’t fit it all in here, so I’ll have to add the rest later. Any thoughts on what this could be about would be really helpful, thanks. 
+Now, what I read was a demented story about my father. None of which I think is true. Maybe it’s some prank from one of the kids next door- I don’t know. I’d let mom look at it, but I don’t want her reading this… I can’t fit it all in here, so I’ll have to add the rest later. Any thoughts on what this could be about would be really helpful, thanks. 
 
 “The brutal chill of the night reminded me of my naivety. Days turned into weeks, and all that I had left was a scant pile of food. I’d blown through a month’s worth of rations with ease.
 
