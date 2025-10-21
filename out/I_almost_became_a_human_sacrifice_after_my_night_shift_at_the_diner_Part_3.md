@@ -1,4 +1,4 @@
-[Previous part](https://www.reddit.com/r/nosleep/comments/1o7aeii/the_night_shift_at_the_diner_is_definitely_cursed/).   [All parts](https://www.reddit.com/user/Practical-Way8041/comments/1ocdy74/the_seven_realms_diner_series/). 
+[Previous part](https://www.reddit.com/r/nosleep/comments/1o7aeii/the_night_shift_at_the_diner_is_definitely_cursed/).   [All parts](https://www.reddit.com/user/Practical-Way8041/comments/1ocdy74/the_seven_realms_diner_series/).
 
 Have I already mentioned how much I hate this town?
 
@@ -553,5 +553,3 @@ One last thing, now that I know what it stands for and I believe that it may be 
 The seven realms diner. 
 
 Because I have a feeling that this has just begun.
-
-[All parts](https://www.reddit.com/user/Practical-Way8041/comments/1ocdy74/the_seven_realms_diner_series/)
