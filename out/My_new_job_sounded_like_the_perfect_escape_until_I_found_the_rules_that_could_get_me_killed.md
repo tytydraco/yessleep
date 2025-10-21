@@ -6,11 +6,11 @@ For a guy who wanted to evaporate, this felt tailor-made.
 
 The helicopter that dropped me off treated me like garbage. The pilot’s eyes didn't hold pity; they looked at me like a piece of meat already placed in the freezer. Lookout Tower #7: a rickety metal can perched on a mountain peak, groaning in the wind. It was so high, I had no intention of ever climbing down.
 
-The former lookout didn't leave much. But carved into the desk, deep enough to almost punch through the wood, were two words: YOU ARE NOT ALONE.
+The former lookout didn't leave much. But carved into the desk, deep enough to almost punch through the wood, were four words: YOU ARE NOT ALONE.
 
 I thought it was about the recruitment company’s lies. Then I pulled out the empty drawer and found the crumpled, sweat-stained piece of paper.
 
-\*\* The Seven Protocols of Lookout Tower #7 \*\*
+\*\* The Five Protocols of Lookout Tower #7 \*\*
 
 1. Every night at exactly 12:00 AM, the entrance and all windows must be locked. Draw the curtains. Be precise.
 2. Never respond to any cries for help. No matter how desperate they sound, they are not human.
