@@ -1,4 +1,4 @@
-[Part 2.](https://www.reddit.com/r/nosleep/comments/1o0ztay/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[Part 2.](https://www.reddit.com/r/nosleep/comments/1o0ztay/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) [Part 4.](https://www.reddit.com/r/nosleep/comments/1oc6dqh/every_night_a_strange_flight_of_stairs_appears_in/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
 I remember moving on endless spiraling stairs. I felt like I would be walking on them forever. Part of me was not sure if it was a dream or reality. Maybe I had been walking on them this whole time, and everything else I thought had happened was really the dream.
 
