@@ -352,4 +352,4 @@ I feel like I owe them that much, after Lucas died helping me.
 
 Any advice would be appreciated.
 
-Maybe that way, one day I’ll stop feeling this guilt. 
+Maybe that way, one day [I’ll stop feeling this guilt. ](https://www.reddit.com/r/nosleep/comments/1ocdzun/i_almost_became_a_human_sacrifice_after_my_night/)

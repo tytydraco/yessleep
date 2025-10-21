@@ -486,7 +486,7 @@ There’s still hope for me.
 
 Because something sprouted in my backyard yesterday.
 
-A beautiful, bountiful tree, with leaves the color of the sun. Leaves that’ll remain radiant through the bitter chill of winter. Five feet of rich, vascular bark that wasn’t there twenty-four hours ago.
+A beautiful, bountiful tree, with leaves the color of the sun. Leaves that’ll remain radiant through the bitter chill of winter. Twelve feet of rich, vascular bark that wasn’t there twenty-four hours ago.
 
 I traced the roots down the cellar stairs. The floor is unfinished: just cold, hard earth.
 
