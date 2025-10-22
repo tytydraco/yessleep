@@ -31,7 +31,7 @@ But there’s something off about it. The drive feels shorter every time, like t
 I’ve delivered for them five times now. It’s always the same: code, bag, silent pickup. No workers. No other drivers. No addresses I recognize.
 
 I asked around at a few restaurants, and no one’s ever heard of the place.  
- When I tried to bring it up to one of my regulars, a grad student who orders takeout every Tuesday and Thursday, he just froze and said, *“Don’t talk about that place.”* Then he shut the door.
+When I tried to bring it up to one of my regulars, a grad student who orders takeout every Tuesday and Thursday, he just froze and said, *“Don’t talk about that place.”* Then he shut the door.
 
 I can’t stop thinking about that smell. It’s faint, but I swear it’s in my car now, even when I haven’t driven all day.
 
@@ -47,3 +47,4 @@ I’ll update again later this week. I’ve got midterms to study for, but somet
 
 If anyone’s heard of Fresh Meats or knows why these orders don’t show up in my history, please tell me.
 
+Edit: Here is [Part 2](https://www.reddit.com/r/nosleep/comments/1odd587/im_a_grubhub_driver_and_i_keep_getting_orders/)
