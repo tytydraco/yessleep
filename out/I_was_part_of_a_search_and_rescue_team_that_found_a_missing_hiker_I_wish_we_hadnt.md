@@ -240,7 +240,7 @@ That’s when I decided to type this out on the satellite phone. The connection�
 
 I have no doubt there will be another full moon tonight. And when it rises, I’ll change—just like Kevin did.
 
-What keeps gnawing at me isn’t the *if*, but the *how*. Will I still be in here, reveling in the carnage I cause? Or will I be shoved into the dark, locked in the passenger seat, forced to watch through someone else’s eyes as I become nothing but hunger and teeth and claws?
+What keeps gnawing at me isn’t the *if*, but the *how*. Will I still be in here, reveling in the carnage I cause? Or will I be shoved into the dark, locked in the passenger seat, forced to watch through the beast’s eyes as I become nothing but hunger and teeth and claws?
 
 The waiting is worse than dying.
 

@@ -24,15 +24,15 @@ We found it in the third week of July, during a brutal heat wave that made the a
 
 "Nah, that’s boring. We need something new." Chester stopped and pointed. "What’s that?"
 
-I squinted. Through the foliage I saw a darker shadow, something that didn’t fit the natural pattern of trunks and branches.
+I squinted. Through the foliage, I saw a darker shadow, something that didn’t fit the natural pattern of trunks and branches.
 
-Through the dense foliage, I could make out what looked like a darker shadow among the trees, something that didn't quite fit the natural pattern of trunks and branches.
+"Beats me," I replied. "Let's check it out."
 
 We shoved through brush, scratched by thorns and wrapped in spider webs. Chester led the way, while I followed and complained about the bugs.
 
 "Quit whining," he called. "You want to find something cool or not?"
 
-In the hillside we found a depression about fifteen feet across, and at its center the mouth of a cave, half-covered by a rusted iron grate. Time and weather had rusted most of it away, leaving gaps just big enough for nosy teenagers to squeeze through
+In the hillside we found a depression about fifteen feet across, and at its center the mouth of a cave, half-covered by an old iron grate. Time and weather had rusted most of it away, leaving gaps just big enough for nosy teenagers to squeeze through
 
 "Holy crap," Chester breathed, the first time I’d ever heard him sound impressed. "John, look at this."
 
