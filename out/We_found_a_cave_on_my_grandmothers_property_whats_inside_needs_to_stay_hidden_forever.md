@@ -26,7 +26,7 @@ We found it in the third week of July, during a brutal heat wave that made the a
 
 I squinted. Through the foliage I saw a darker shadow, something that didn’t fit the natural pattern of trunks and branches.
 
-I squinted where he was pointing. Through the dense foliage, I could make out what looked like a darker shadow among the trees, something that didn't quite fit the natural pattern of trunks and branches.
+Through the dense foliage, I could make out what looked like a darker shadow among the trees, something that didn't quite fit the natural pattern of trunks and branches.
 
 We shoved through brush, scratched by thorns and wrapped in spider webs. Chester led the way, while I followed and complained about the bugs.
 
