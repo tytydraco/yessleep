@@ -94,10 +94,10 @@ Usually on Fridays, I’ll do something nice like grab breakfast for both of us 
 
 7:30 came and went. 8am came and went. 9am came and went. Nothing.
 
-“What gives? I thought you said that the WiFi was out by the time you got home. I would’ve been at the office, but now nothing has happened.”
+“What gives? I thought you said that the WiFi was out by the time you got home. I would’ve been at the office by now, but nothing has happened.”
 
 I was as dumbfounded as she was. 
 
 By the end of the day on Friday, nothing strange had happened. The same went for Saturday and Sunday.
 
-Ashley worked from home today, but will be back in the office tomorrow. I have a sick feeling that the messages will start up again tomorrow when she heads back into the office. 
+Ashley worked from home today, but will be back in the office tomorrow. I have a sick feeling that the messages will start up again once I'm alone in the house. 
