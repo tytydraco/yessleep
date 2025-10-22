@@ -176,7 +176,7 @@ It reached with its new hands and gripped Kevin’s human upper and lower jaws. 
 
 It stood there with its head bowed, supporting itself on its knuckles like a primate, breathing slowly. Deep and steady.
 
-Charles and I pressed ourselves flat against the far wall, every muscle frozen, terror etched deep into our faces. I prayed, desperately, that it would leave through the door, vanish into the black woods outside, joining whatever other horrors roamed the nigh. Then it lifted its head to face us. 
+I prayed, desperately, that it would leave through the door, vanish into the black woods outside, joining whatever other horrors roamed the nigh. Then it lifted its head to face us. 
 
 Time turned to ooze.
 
