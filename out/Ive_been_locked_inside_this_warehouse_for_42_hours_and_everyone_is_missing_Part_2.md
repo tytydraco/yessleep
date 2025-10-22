@@ -89,7 +89,7 @@ Nothing.
 
 I glanced back towards the racking, neck twisting uncomfortably as I weighed up my options. I didn't want to die here… but an intense sense of needing to know what was up there pushed against a more logical mind. If the forklift still worked after my crash course directly into the door I could use the forks to bring the pallet down. If I didn't like what I saw I could always drive the box into the racking and hopefully that will be enough to kill whatever it is. 
 
-It didn't take long to reverse the now dented vehicle and align it with the box that was currently still and quiet. The suspense only growing as the mast of the reach slowly crept higher and higher. My free foot tapped against the floor in rapid succession in an attempt to calm my fraying nerves. My mind was reeling with the possibilities of what I was about to find and no matter how many times my thoughts spiralled I had no idea what I was about to find. 
+It didn't take long to reverse the now dented vehicle and align it with the box that was currently still and quiet. The suspense only growing as the mast of the reach slowly crept higher and higher. My free foot tapped against the floor in rapid succession in an attempt to calm my fraying nerves. My mind was reeling with the possibilities of what I was about to find.
 
 The forks were mere inches from the underside of the pallet now. Hovering just in front of the box. I allowed the mast of the truck to extend until it was sitting atop the metal slates. 
 
