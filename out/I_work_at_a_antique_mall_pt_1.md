@@ -1,5 +1,5 @@
 
-     My names Daniel, As the post states, I work at an antique mall in my town. It’s a slow job, the store has 7 aisles each one about 3 yards long per floor the store has two Floors open to customers and a basement for employees only it has antiques that are damaged by past customers.
+     My names Daniel, As the post states, I work at an antique mall in my town. It’s a slow job, the store has 7 aisles each one about 6 meters long per floor the store has two Floors open to customers and a basement for employees only it has antiques that are damaged by past customers.
      Each of us employs are assigned to monitor an aisle I work on the second floor on the third aisle. This aisle is called nostalgia, cheesy but the owners named each aisle with some sort of title instead of just a number. 
      Most of our customers are older folks or history buff nerds so we don’t get too many rude customers. 
 Why I’m posting this is because one of the antiques we have for sale in my aisle. My aisle is a category of toys, train models, action figures, comics, dolls, a lot of dolls. when you first walk into the aisle the items are from the 90s the further you walk down the older the items become. The oldest items being from 1910.
