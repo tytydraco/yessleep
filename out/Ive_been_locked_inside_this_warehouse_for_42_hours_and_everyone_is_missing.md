@@ -17,7 +17,7 @@ Normally within ten to twenty minutes of my arrival other members of staff would
 
 The one shitty heater the company provided us smelt as though it was ready to catch fire at any moment and yet we would all huddle round it desperately whenever we got the chance. So even the temperature hadn't seemed strange at the time. I can feel it now though… how it's slowly creeping under my skin and nesting in my bones. 
 
-It's unnatural and I’m concerned about how much colder it’s going to get the longer I’m trapped here. 
+I’m concerned about how much colder it’s going to get the longer I’m trapped here. 
 
 After I had deactivated the alarm and made my first cup of coffee for the day I made my way toward the door, the large windows overseeing the warehouse loomed in my peripheral, which always did a great job at freaking me the fuck out. You see, the lights for the warehouse itself are automated and will only come on when it senses movement, so whenever I make my way toward the door in the mornings I refuse to look through those damn windows. Call it an overactive imagination or watching too many horror films in my spare time but I didn't like looking into a pit of darkness especially when no one else was in the building.  An irrational part of my mind would always supply that someone could be watching me on the other side of the glass. Stupid right? Now I kind of wish there was. I haven't seen a single soul in 42 hours which is fucking insane. 
 
