@@ -33,9 +33,9 @@ After doing my makeup, I grab my coat, open the front door, and carried her quie
 
 My phone vibrates. I smile at the movement because I know exactly who it is.
 
-Meet you at the usual place babe?
+‘Meet you at the usual place babe?’
 
-Absolutely :D
+‘Absolutely :D’
 
 The street feels alive in a way the house never does. Cars hum in the distance, a dog barks somewhere behind a fence, and the sound of my shoes on the pavement feels light. I catch a rhythm in the tapping, I almost want to match it, then shake my head. It passes.
 
