@@ -155,7 +155,7 @@ I sat at the dining room table of my darkened apartment, illuminated by the YouT
 
 I grabbed a chef’s knife from my kitchen.
 
-I listened to my new collaboration song from [Bear Ghost and Playboy Manbaby](https://www.youtube.com/watch?v=1FULfvaP-7I) to hype me up.
+I listened to my new collaboration song from Bear Ghost and Playboy Manbaby to hype me up.
 
 I was gonna do it. I was gonna take a life. *His* life, I resolved with trembling hands.
 
