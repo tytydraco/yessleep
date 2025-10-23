@@ -5,7 +5,7 @@ Completely and utterly alone.
 I'm writing this solely because I don’t know what else to do. I’m Hoping someone is still out there, no… needing there to be someone out there to tell me this is some kind of fucked up joke or that maybe I’m in the midst of some kind of breakdown. Anything to help me understand. 
 
 
-Let me explain from the beginning, maybe recounting the last two days will help me get a better grasp on the reality I'm facing.  The funny thing is, it started exactly the same as every other day. Same monotonous routine; wake up at 5:10 each morning, adorn my high vis and steel toe boots, catch the 6:10 train only to find myself at the locked gates of my place of work not even forty minutes after rolling out of bed.
+Let me explain from the beginning, maybe recounting the last two days will help me get a better grasp on the reality I'm facing.  The funny thing is, it started exactly the same as every other day. Same monotonous routine; wake up at 5:10 each morning, adorn my high vis and steel toe boots, catch the 6:10 train only to find myself at the locked gates of my place of work not even forty minutes after leaving my house. 
 
 Same route, same times and even the same faces passed me by on my commute. It had been dark out, a little cold and a little damp but everything was… normal… 
 
