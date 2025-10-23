@@ -344,7 +344,7 @@ It looked strong and healthy.
 
 When I saw a cockroach stuck in the ooze, tethered to his roots by a few golden fibers, I began to develop a new theory. 
 
-For days, it kept running in place. A masterclass in futility, spinning its jagged legs in place, on, and on, and on.
+For days, it kept running. A masterclass in futility, spinning its jagged legs in place, on, and on, and on.
 
 And yet, it never died. 
 
