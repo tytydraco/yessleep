@@ -1,10 +1,15 @@
 When my grandfather passed away in early 2020, I inherited his cabin in the forests of southern Norway. He was a carpenter by trade and built it himself in the 1960s as a weekend retreat. I spent many summers there as a child, so when my parents initially wanted to put the cabin up for sale, I insisted on keeping it. Reluctantly, they passed it on to me. 
 
-The first strange incident I can recall happened about 3 years ago, in early 2022. The sun sets early in the winter here, so I arrived at the cabin in the afternoon, shortly after sunset. I strapped on my headlamp and started unpacking my car. The cabin sits in a clearing about fifty meters from the gravel patch I call a parking lot. The wind suddenly died down, and the usual rustle of leaves and distant bird calls vanished, leaving behind an emptiness that felt unnerving. 
+The first strange incident I can recall happened about 3 years ago, in early 2022. The sun sets early in the winter here, so I arrived at the cabin in the afternoon, shortly after sunset. I strapped on my headlamp and started unpacking my car. Just as I had opened the boot, the wind suddenly died down. The usual rustle of leaves and distant bird calls vanished, leaving behind an emptiness that felt unnerving. 
 
 You don’t realize how loud the forest really is until you experience a true silence. I looked around, slowly scanning the treeline with my headlamp.  
 
-The forest became darker by the minute. Eventually, I decided to switch off my headlamp so it wouldn’t act as a beacon revealing my location. Growing up, I’d learned that when the forest falls quiet, it often indicates that a predator is nearby. I eased my car’s boot shut and crept towards the driver’s side door, figuring that if something really was out there, I’d be safer inside my car. 
+The forest became darker by the minute. Eventually, I decided to switch off my headlamp so it wouldn’t act as a beacon revealing my location. Growing up, I’d learned that when the forest falls quiet, it often indicates that a predator is nearby. 
+
+I realized I only had two options, either remain by the car or make my way over to the cabin and quietly unlock the door.
+The cabin sits in a clearing about fifty meters from the gravel patch I call a parking lot.
+
+I eased my car’s boot shut and crept toward the driver’s side door, figuring that if something really was out there, I’d be safer inside my car. 
 
 The sound of the door opening echoed between the trees. A moment later, the familiar background noise faded back into existence as if nothing had happened.  
 
