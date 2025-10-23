@@ -6,7 +6,7 @@ My apartment building was almost 80 years old, and I have become accustomed to w
 
 I figured someone must have just stuck something on my door, or something was covering up the peephole. I started to grab the handle, but figured I would look into it when I left for groceries that morning.
 
-If the knock was so important, they would have done it more than once. 
+If the knock was so important, they would have done it more than once.
 
 I did some dishes, wiped down my small kitchen counter, and was finally ready for the grocery store. I grabbed my door handle.
 
@@ -40,12 +40,12 @@ The eye was squeezing itself out of the peephole. The pupil, almost like a preda
 
 When I got back, the entire eye seemed to have squeezed through and was now bulging out from the door like a small deflated balloon, still staring at me.
 
-When I focus on it, the only part of the eye that moves is the pupil. I can see it swiveling around my small living room, studying every inch of space, surely looking for a weak spot. Or maybe it's lulling me to sleep, preparing to strike.  
+When I focus on it, the only part of the eye that moves is the pupil. I can see it swiveling around my small living room, studying every inch of space, surely looking for a weak spot. Or maybe it's lulling me to sleep, preparing to strike.
 
 My WIFI still won’t connect, so I don’t know if anyone will ever be able to read this. I’ve been screaming for help for the past hour, but no one's coming. My phone is still disconnected, so I really have one option left.
 
-I decided I won’t go willingly. 
+I decided I won’t go willingly.
 
-I grabbed my tennis racket. 
+I grabbed my tennis racket.
 
-I’m going to find out if this thing bleeds.
+I’m going to find out if this thing [bleeds](https://www.reddit.com/r/ZJcortez/).
