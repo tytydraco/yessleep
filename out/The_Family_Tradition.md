@@ -1,85 +1,75 @@
-      A quilt hangs on the far wall of the sitting room within my family manor. It takes up almost the entire wall, a seemingly endless amalgamation of fabric. I used to stare slack jawed at it for hours as a child, hanging over the loveseat starry eyed until my mother called me for dinner. Its mix-matched patches and clumsy needle work mesmerized me beyond explanation. 
+I never liked the cold. Every year I dreaded our lengthy visit to our great-grandfather’s cabin in the Appalachians. Tom used to love telling people how I’d stay in the rusty, creaky bed for hours - sometimes pretending I was in some asylum, strapped to the bed for all of eternity. We were all too young to realize what our parents were doing - dressed in long, blood-red robes, covered in ritualistic writings, chanting in ancient tongue. To be frank, neither my younger sister, Kelly, nor I remember much of that.
 
-    When my eldest brother turned eighteen, I was introduced to the family tradition. 
+But Tom. Tom was the only one old enough to remember what happened in those god forsaken mountains. He disappeared a week ago. The police said that this type of case is normal. 
 
-    My sisters and I watched from afar as my parents explained the details to him. 
+“Disappearances like this one often turn out to be misunderstandings, he’ll turn up soon”
 
-    “You’ll need these,” My mother explained, handing him an ornate pair of golden scissors, “Get the fabric in any way you want, but the scissors are customary.” 
+But they didn’t know Tom like we did.
 
-    “Alright, now what do you have to do again?” My father asked him. 
+Two days later, his car was found. Dumped and idling on Black Hollow Road close to the cabin. Of course, the cabin had long since been boarded shut. Old crime scene tape scattered all around the desolate property. 
 
-    “Go out and get the fabric, cut my piece of cloth, and then sew it into the quilt at midnight,” My brother recited dutifully. 
+After the incident Tom had made us swear that no matter what happens we would never return. Yet here we were. 
 
-    “That’s right,” My father smiled, ruffling his hair, “Better be off then. Aunt Joy is bringing her chicken pot pie, so you don’t want to be late.”  
+Kelly looked at me with a look I can only describe as unnerving. We were both feeling something. It started as a mere itch at the very back of our minds - now a sense of impending doom. Like every damn thing inside that cabin was about to jump at us and tear us apart. 
+Primal, instinctive fear. 
 
-    As the years went by, I witnessed cousins and siblings complete the tradition in envy. I wanted to be a part of it. I wanted to put a piece of myself into the quilt. The thing I’d admired for so long. I practiced sewing every night. I thought about what my piece of fabric would look like.  I spent days staring up at it and yearned for the day I turned eighteen. 
+“He’s not in there, you know that right?” I asked Kelly. Maybe I was hoping she would agree and suggest we turn back. “Well, he sure was. I love Tom to hell - and if that’s where we have to drag him back from then so be it. I’m not going back home a chicken”.
 
-    Inevitably, I did. 
+She was right. We hadn’t come this far to chicken out. 
 
-    I nearly bounced up and down on the balls of my feet as my parents explained the details of the tradition to me. Of course, I already knew every word by heart.  
+I gathered courage, quickly counting down from three. I pushed the wooden door open - trying to keep the eerie thoughts of what had once taken place here suppressed. A foul smell of sod, metal - and something else I could not name - hung in the air. The cabin had been decaying ever since it had been abandoned. 
+The place brought back flashes of memory I didn’t know I had. The soothing voices of my parents, flashing red and blue lights, being carried out of the cabin screaming and crying. 
 
-    “Remember, what do you have to do again?” My father asked. 
+The cabin was mostly empty. Most of the furniture had been taken to a site and burned by the police. Despite the decay and lack of furniture, Kelly and I could both locate the room by memory. We were both hesitant to enter, and I stopped, drying my sweaty palms in my sweater before pulling on the doorknob. I turned the doorknob, and the heavy, wooden door creaked open. 
 
-    “Go out and get the fabric, cut my piece of cloth with the scissors, and then sew it into the quilt at midnight.” 
+Incredulously, the room stood just as it was left all those years ago. An antique lantern stood on the desk, flashing dimly as the last drops of oil slowly evaporated. Probably from Tom. The beds were still there. The beds we were made to lie on that fateful night. 
 
-    “Perfect,” My mother said, planting a kiss on my forehead, “Good luck sweetheart.” 
+That night was meant to be our last. But our dad had swapped out the poison with sedatives - a sliver of doubt still left in his deranged mind. He had tucked us in and put us to sleep like any other night, kissing our foreheads goodbye one by one. He stood in the doorframe for a bit, contemplating, before ultimately closing the door and locking it behind him.
 
-    I went over the plan as I started my car. What fabric I wanted, where I would get it, etc. If everything went smoothly, I should be home with more than an hour to spare. 
+What our dad forgot to account for was the fact that Tom being larger also meant that he would require a bigger dose to be sedated. For the entirety of the incident, Tom was paralyzed but coherent. What he experienced that night he would never come to tell. But something led him back here.
 
-    I wanted something dark, something smooth, and something lightweight so I wouldn’t have to strain myself carrying it when I brought it home. 
+“I don’t know exactly what we were hoping to accomplish by coming here” I said. “The police already scoured the place”. 
 
-    After two hours of driving around to different places in the city, I finally found exactly what I was looking for. I loaded up the fabric into my trunk and made it home with an hour to spare, just as I had predicted. 
+I knelt, studying the carpet. Amongst the dust and dirt that time had brought, there were faint traces of strange, iridescent powder. I picked up a pinch, smearing it between my fingers. Probably some fancy forensics powder. Strangely, the powder seemed to have a magnetic effect, forming an intricate pattern on my fingertips. 
 
-    “Oh my…It’s stunning.” 
+“Have a look at this” Kelly said, standing atop of one of the beds. Although she was the youngest of the three of us, she was the smarter one - always seeing the bigger picture. I got up on the bed beside her and looked down on the carpet. A faint pattern shimmered in the retreating rays of the sunset. Forensics powder my ass.
 
-    “Probably the best one yet, don’t you think?” 
+The substance was moving, like we had started some old machine which had not been running for years. Forming an endless string of numbers, symbols and sigils. 
 
-    “Definitely better than my piece.” 
+“What the FUCK” Kelly exclaimed. The fire within the lantern flickered violently and the floorboards began to shake. The window broke and Kelly screamed. I was at a loss for words, completely frozen by fear.
 
-    I glowed under my family’s praise as I carried my fabric through the hallway and into the sitting room, where it would stay until midnight. 
+And then, as quickly as it had begun it all ceased. A horrible silence fell over the room. Kelly was frozen as well, tears running down her cheeks. I slowly descended to the floor; afraid it was going to swallow me whole. 
 
-    My party was perfect. I hurt myself laughing and ate myself sick. My family had decorated the entire house in streamers and balloons that were my favorite colors. The cake was my favorite flavor. I wished for nothing that night when I blew out the candles. I was getting everything I wanted. 
+“We need to get out of here" I stammered. Kelly nodded. The door, which had been slammed shut during the violent shaking, was stuck. I pulled a couple of times but to no avail. 
 
-    When it neared midnight, everyone cleared off the table. I retrieved my fabric from the sitting room and my parents and siblings helped pin it down to the table for me. 
+“Fuck, FUCK” Kelly cried. 
 
-    “Ready to complete your special day?” My father smiled. 
+I started ramming the door, luckily dilapidated. It gave in with a loud crack of the wooden boards and rusty hinges, followed by a hollow thump of the door hitting the floor. 
+The sight that we were met with was that of our worst nightmares. 
 
-    I had never been more ready for anything in my entire life. 
+The previously empty hall was now completely restored as it had been left, furniture and all. A faint chanting could be heard coming from afar. I looked back at Kelly. She was hugging herself, clawing her nails so hard into her arms it drew blood. I was shivering, but not from cold. Kelly took my hand, and we made our way through the hallway and into the large dining room.
 
-    I drew the scissors from my pocket and for a moment, I stared at the carvings that decorated it.
+It got dark fast. The room was dimly lit by candlelight. I glanced around the room, memories flooding. Taken out of context, the place was quite nice - cozy like an old gold miner’s cabin. The same substance from before was seeping through the cracks of the floorboards. Like sand filling an hourglass. 
 
- I traced the edges of it with my fingertip, testing its sharpness. 
+The chanting did not come from inside the cabin, but rather somewhere in the surrounding forest. I had not given it much thought until now, but it was getting closer. Ever so slowly. I looked out the window. A faint shimmer of light could be seen in the distance - it looked like torches. 
 
-    I breathed in. Out. 
+Kelly sat down at one of the dining tables, her head sinking down between her shoulders in a sob. Desperation filling the air. Was this the same fate Tom had met?
 
-    And plunged the scissors into the edge of the squirming child’s stomach. 
+I got down on all fours, frantically trying to disrupt the patterns forming on the ground but to no avail. They simply formed again within seconds. The chanting was loud, filling my head like a fever dream. 
 
-    Cutting through the material was easier than expected. The scissors were old, but they remained wicked sharp. 
+Kelly had stopped sobbing. Defeatedly, she looked out the window at the many silhouettes. There was no light outside anymore, yet they were now clearly visible from the light emitted from the cabin. The chanting - the words - grew louder. 
+Whoever they were out there, they were not human - at least not anymore. Now coming from just outside the window. 
 
-    I took the sock out of the child’s mouth. I wanted to hear it scream. 
+Kelly was slumped over in the chair. A small, empty glass in her hand. Everything blurred - my head pounding. My body was no longer mine. 
 
-    I tried to savor every moment of it. 
-    
-    I memorized the feeling of snip snip snipping through cloth. 
+A sudden wave of nausea hit me. 
 
-    I slid its charm bracelet off of its wrist and put it on mine. 
+Pain drowned out the chanting outside. 
 
-    I snipped a chunk of curly hair off of its head to keep in my scrapbook. 
+I looked down - a small, empty glass in my hand.
 
-    I looked into its eyes as the light faded out of them. 
+Just like that night. 
 
-    I licked the blood off of the scissors when I was finished, not caring if I cut my tongue. 
+Maybe we were never meant to leave.
 
-    I helped myself to the blood on its chest too.
-
-    I hugged my square of cloth to my body, stroking the unblemished surface. 
-
-    I thought of all the different ways I could use the excess fabric. 
-
-    A coat out of the fabric. A necklace out of the teeth. Eyes for breakfast the next morning. 
-
-    I grinned ear to ear as I sewed my piece of cloth onto the quilt. 
-
-    The darkness of the fabric stood out just as I had planned.
-
-    I had finally fulfilled the tradition. My special day was everything I had ever dreamed of.
+I feel so cold
