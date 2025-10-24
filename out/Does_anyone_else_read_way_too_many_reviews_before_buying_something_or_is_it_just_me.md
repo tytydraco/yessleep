@@ -44,7 +44,7 @@ So, I go on Home Depot's website and look at paint (exciting, I know) and I'm th
 
 Alright, well, HomeDepotCustomer sounds like a bit of an asshole, but I think I'll go with this one. I order it and... what the fuck? A week? It's going to take a week? Thats some bullshit, but whatever, I guess. In the meantime, maybe I'll go on Etsy and get some cute new earrings too. I mean, I can't let my apartment's soon-to-be prettiness show me up.
 
-Again, I hear the clicking of the toaster. "Click, click, click, click." I go to the kitchen and... it's plugged in? And it's hot, almost unbearably so. How the hell is that possible? Something is fucking weird here. I could've sworn that I unplugged it. I need to return this shit tomorrow. Regardless, I go back to my room and hop on Etsy.
+Again, I hear the clicking of the old toaster. "Click, click, click, click." I go to the kitchen and... it's plugged in? And it's hot, almost unbearably so. How the hell is that possible? Something is fucking weird here. I could've sworn that I unplugged it. I need to return this shit tomorrow. Regardless, I go back to my room and hop on Etsy.
 
 After only a few minutes, I find the CUTEST little silver snake earrings. I mean, they aren't everyone's cup of tea, but apparently I like reptiles in mine. 
 
@@ -74,8 +74,8 @@ What the fuck? What the fuck, what the fuck, what the fuck? Who the hell is this
 
 I go to the original review and click on Jeremy M.'s profile. They now have a profile picture... and it's me, sleeping in bed. But the worst part is the bio.
 
-"1122 Forest Dr, Apt 6B, Owensboro, KY 42301. 10/23/2025 @9:50 PM"
+"1122 Forest Dr, Apt 6B, Owensboro, KY 42301. 10/23/2025 @8:50 PM"
 
-It's 9:49 PM.
+It's 8:49 PM.
 
 
