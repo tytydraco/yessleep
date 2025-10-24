@@ -1,4 +1,4 @@
-Like the title states, anytime I buy something, I ALWAYS read the reviews first. It's the only way to know if it's any good. 
+Like the title states, anytime I buy something, I ALWAYS read the reviews beforehand. It's the only way to know if it's any good. 
 
 But as the enshittification of the internet progresses, these reviews are becoming less and less helpful. I mean, how honest are they going to be for a product named, "RIIA Bio-Collagen Real Deep Mask, Hydrogel Overnight Mask, Korean Skincare, Stocking Stuffers for Girlfriend and Wife"? Like, 0%. They're all botted to hell.
 
@@ -60,7 +60,7 @@ Now, I bet you'll guess what's coming next... *cue dramatic music* the reviews!
  
 I look through my recent purchases on every website and the same name keeps popping up: Jeremy M. Even with the second toaster I bought, he reviewed that.
 
-"Great toaster, especially if your first one is on the fritz!! The clicking drives me NUTS!" - Jeremy M.
+"Great toaster, especially if the earlier one is on the fritz!! The clicking drives me NUTS!" - Jeremy M.
 
 This has to be some sort of fucked up coincidence. Out of total paranoia, I start looking up random items: paper towel holders, vacuums, baby gates.
 
