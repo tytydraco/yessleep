@@ -1,0 +1,27 @@
+I grew up spending almost every weekend on the family farm. A few years back, I heard my uncle talking about the money the federal government gave him to keep it a farm. Typical farm, acres and acres of crops. Small creek running through. Farm animals, chickens, cows, sheep. Great memories.  
+
+A couple years ago my uncle passes and the government gets the property. He passed without a will. There was no family besides me for the farm to pass to. I would drive past it once a month to see it and remember. 
+
+Six months go by and I get a call from a lawyer. If I pay $1, and promise to keep the farm in the family, I could have it, no taxes, only utilities. I loved the farm, knew very little about working it but I dropped a single on his desk. He said he needed some time to process the paperwork. But I could move in tomorrow. 
+
+This is great. I have a hybrid job that I only have to be in the office twice a week, as long as I get the projects done on time the rest of the week is mine. I didn't have a hole lot to move. So two car trips from my parents house ( both were gone a few years now ). The farm still had all my uncles furnishings. I cleaned everything top to bottom. I found some official paperwork. Letterhead, embossing, the whole nine yards. It read... ' Deliverys every Thursday. Dog will be provided, and replaced as needed. DO NOT BE HOME DURING DELIVERY. P. S. Your swamp is off limits to everyone. Taxes paid for providing this vital service. Stipend deposited directly to bank to cover living expenses. Sincerely blah blah blah. Office of blah blah. United States of America.
+
+Well the next day was Thursday, that my usual day to actually go into work so... guess I will work late. Thursday morning I leave before sun up, and dont return till dark. There is a letter in the mailbox. Strange I haven't changed my address yet. It was hand written no postage. I open it... from the lawyer. Meet me/us Saturday to sign paperwork. And gave an address about ten minutes away. 
+
+Two vehicles were in the lot a BMW I assume belonged to the lawyer, and a silver SUV with reflective tint windows. The lawyer handed me the standard paperwork. There were a few things I had to do. Introduce myself to law enforcement. Go to the bank for finalizing accounts. The lawyer left and two gentlemen in dark blue pin stripe suits come in and sit down with a small folder.
+
+The fist paper they show me was the same one I found in the house. They explain that my farm as long as it stays in the family will forever be a government protected property. I asked why. No answer. I was told this farm was in my family for many generations. And that we have been employed by the government to keep the farm for their use. No need for crops, or livestock. Just keep it... occupied. 
+
+They got very quiet. They didn't say more. They didn't answer any questions. They handed me a paper to sign. It was just like the one I had found except it asked ' Do you accept?' I signed.
+
+There has been nothing unusual... until Thansgiving. A Thursday. I had no family to go to. No friend invites to join them. I slept in and awoke to the sound of a truck. It looked like a bank truck. It went past the house. Towards the swamp area. It stopped out of sight. But I could hear it turn off. There was the sounds of locks being undone. Then this bone chilling growl. The truck came back to the house before stopping and the workers got out and relocked the door on the back. They turned around and left.
+
+I was curious but I agreed the swamp was off limits. Normal day off routine. Until I hear footsteps coming toward the house. I look out the windows and the chills go through me. I saw something that terrified me. But I can't describe it. Even now trying to recall it. I can only remember being Hella scared. I can't remember the rest of the day. 
+
+I did manage to find a gf. A local girl who knew of my uncle and of my family. She also knew stories about the property. Like it was a drop off for criptids and SCPs that were " captured " . She understood the Thursday rule and the swamp rule. She also knew how to work a farm. We dated for two years, her teaching me how to be a farmer. I asked her to marry me, she did say yes. 
+
+One Thursday we came home to a dog. A mutt, curled up on our doorstep. It was happy to see us. It woke me up once that first night. I let him out and he ran to the barn, I followed. He found a full food dish and bags on bags of dog food. I let him finish and we walked back to the house together. I noticed a letter in the mailbox. It explained the dog, yes he was already house broken. All his shots. And instruction to let him out first thing in the morning, and bring him in... if he wants to. Most nights he stayed with us. But some nights he wouldn't come in at all.
+
+One Thursday my wife was sick and didn't go to work. When I got home she had a story. Same bank truck, metal locks, heading to the swamp. The dog never made a sound. Them coming back to the house then locking the back door and leaving. But what she saw later. The sun was setting. The dog growls. That is when she peaked out a windows and saw a smallish creature, with abnormally long limbs. And it tried to bark back at the dog. She could make out an almost humanoid head but with pointy teeth. It moved on all fours. 
+
+From then on, even if we are sick, we still leave the house EVERY Thursday. 
