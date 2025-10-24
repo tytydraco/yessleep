@@ -440,3 +440,6 @@ Happy Sleuthing.
 Punch. 
 
 
+Ashton's final piece of advice
+
+https://www.reddit.com/r/nosleep/s/Gs5pIeDhP8
