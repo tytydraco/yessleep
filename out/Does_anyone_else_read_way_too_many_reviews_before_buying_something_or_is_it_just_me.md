@@ -10,7 +10,7 @@ First order of business is getting a toaster. Yes, a toaster. Call me weird, but
 
 I look on Amazon and find the first cheap toaster with somewhat decent reviews. 4.3 stars with 8k reviews isn't bad. Let's see what people are saying.
 
-"Great toaster if you need something basic. $25 bucks and it works." - Doug MacArthur
+"Great toaster if you need something basic. $25 bucks and it works." - Doug M.
 
 "it toasts lol" - Secret_Broil
 
@@ -74,8 +74,28 @@ What the fuck? What the fuck, what the fuck, what the fuck? Who the hell is this
 
 I go to the original review and click on Jeremy M.'s profile. They now have a profile picture... and it's me, sleeping in bed. But the worst part is the bio.
 
-"1122 Forest Dr, Apt 6B, Owensboro, KY 42301. 10/23/2025 @8:50 PM"
+It was my address and today's date, followed by the time: 8:50 PM.
 
 It's 8:49 PM.
 
+Before I can run, my closet door creaks open. Before me, there's a man that I've never seen before.
 
+I stop. I'm paralyzed with fear while this creep just... stares at me. Clearly, he's disturbed, but he does absolutely fuck-all.
+
+I slowly inch my way towards the door until suddenly, I feel a yank on my wrist.
+
+"Jess, it's almost time - don't you want to know what happens?"
+
+I look over at the clock. Slowly, it ticks to 8:50 PM.
+
+I rip my arm away and bolt towards the front exit. I open it, slam it behind me, and start running as quickly as I can.
+
+Now after a mile or so and no trace of "Jeremy M.", I call the police. They come and search my apartment, but as you'd expect, nothing. Not even a trace. 
+
+They didn't seem to care. Who knows if they even checked the cameras. What's the point of the police if they just show up to shoot the shit with each other? Useless.
+
+Anyways, I stayed with my parents for the next few nights. Soon after, my older brother moved in with me. Convenient for him since he's now closer to his job, not convenient for me because he brought a bunch of junk with him.
+
+Y'know, it's been a while since the incident and things have returned to normalcy for the most part... other than the other day. Someone left a note taped to my door. Curious, I pulled it off and opened it. My heart dropped.
+
+"Wow! Beautiful apartment! And the guest policy is very gracious. Five stars!" - Jeremy M.
