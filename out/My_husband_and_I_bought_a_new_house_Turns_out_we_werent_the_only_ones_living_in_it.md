@@ -56,7 +56,7 @@ My skin prickled. I turned in my chair, glancing at the hallway. Nothing but sha
 
 Ryan cleared his throat. “Eliza, you and your brother have been watching too much cartoons. It’s getting late. Eat your dinner.”
 
-She nodded, not even making an effort to argue. I noticed her shoulders stiffen as she lowered her gaze to her plate as if it was a bad thing. 
+She nodded, not even making an effort to argue. I noticed her shoulders stiffen as she lowered her gaze to her plate as if it was a bad thing.
 
 Suddenly, Joseph started to smile and giggle at the hallway behind me, waving at something unseen.
 
@@ -100,7 +100,7 @@ Ryan chuckled, "Ok, Jane," He said, kissing me on my forehead, "I think it's tim
 
 Ryan smiled faintly, though there was a trace of tired affection in his eyes. "I get it, it's a new place, everything feels different. But we're safe ok? Pretty soon the twins will be enrolled in kindergarten and i'll have a job to support the family. Just the house settling."
 
-I nodded my head, wanting to say more, but I didn't have enough energy to argue.  
+I nodded my head, wanting to say more, but I didn't have enough energy to argue.
 
 He kissed me once more, and we both said our goodnights and went to sleep. But I couldn't close my eyes at all. Somewhere downstairs there was something dragging along the kitchen floor, scraping against the wood. I must've been the only one to hear it because the noise came around the corner when Ryan fell asleep. I told myself that it was the house settling like he said, but it felt like a lie.
 
@@ -116,7 +116,7 @@ I read the message, my eyes widening.
 
 **You're dead. If you don't get out of our house soon, you'll never hear the end of it.**
 
-My pulse quickened, "What?" I whispered to myself, re-reading it for clarification. 
+My pulse quickened, "What?" I whispered to myself, re-reading it for clarification.
 
 I had no clue what the message meant, and whether it was a joke or not. Ryan and I were the official owners of the home now, and no one else was living in it other than us and the kids...right?
 
@@ -203,7 +203,7 @@ I froze for half a heartbeat, staring at him. Ryan never panicked. He was calm t
 
 "Now, Jane."
 
-The tone in his voice snapped me into motion, and hurried over to Eliza on the top bunk and reached for Noah on the bottom. My pulse thundered in my ears. the air felt colder by the second--even with my robe on--heavy with something I couldn't name.
+The tone in his voice snapped me into motion, and I hurried over to Eliza on the top bunk and reached for Noah on the bottom. My pulse thundered in my ears. the air felt colder by the second--even with my robe on--heavy with something I couldn't name.
 
 I wrapped the twins’ blankets around them, cradling them both as best I could, then grabbed my phone from the nightstand in me and Ryan's bedroom and hurried downstairs.
 
@@ -241,9 +241,11 @@ The creak came again--closer this time.
 
 I turned my head, breath caught in my throat. At the top of the steep steps, were the three demonic figures from earlier. Their faces were blank with no expression and they looked pale, washed out almost, like old recordings of people from the 1900s; color constantly fading off their clothes.
 
-The figures came closer, bloodthirsty for more. “Ryan,” I whispered, clutching the twins tighter, who whimpered with far.
+The figures came closer, bloodthirsty for more. “Ryan,” I whispered, clutching the twins tighter, who whimpered with fear.
 
-He looked up--and froze. “Jane,” he breathed, “let's get to the car.”
+He looked up--and froze. “Jane,” he breathed, “When I say go, you go." 
+
+I nodded, my heart racing. 
 
 The figures started down the stairs as if going with our plan. Slow at first, then faster--each step echoing like a crack of thunder.
 
@@ -260,7 +262,7 @@ The figures started to run forward at an impossible speed all of them on all fou
 
 “Step on it!” I cried.
 
-He turned the key. The engine sputtered once--then roared to life. The SUV shot backward down the gravel drive as the figures lurched forward, their movements jerky and wrong, like puppets with broken strings.
+He turned the key. The engine sputtered once--then roared to life. The SUV shot backward down the gravel drive way as the figures lurched forward, their movements jerky and wrong, like puppets with broken strings.
 
 For a moment, I thought they’d follow us down the road. But as soon as the tires hit the street, the shapes stopped--frozen at the edge of the property, standing in the glare of the headlights.
 
