@@ -136,4 +136,5 @@ And my already dwindling sense of safety was slipping through my fingers yet aga
 
 So now here we are. 42 hours in and I have no idea what to do. The wifi keeps dipping in and out. So I don’t know if this will upload at all. 
 
-…. I don't even know if there is anyone out there. 
+…. I don't even know if there is anyone out there. [I’ve been locked inside this warehouse for 42 hours and everyone is missing. 
+(part 2)](https://www.reddit.com/r/nosleep/s/uCqyFeN5Ze)
