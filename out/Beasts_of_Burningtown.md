@@ -104,3 +104,5 @@ They hold me back while it happens. They rip his skin off slowly, starting with 
 “Tell… Shelby.” They crack his spine as they make their way up his body, morphing in and out of being creatures with discernible, animal-like qualities  and being one transcendent cheese grater for Landon’s body.
 
 This is all my fault. I’m so sorry. I should’ve known. I should’ve known. God knows I should’ve known.
+
+[Update](https://www.reddit.com/r/creepcast/comments/1ofwge8/beasts_of_burningtown_2/)
