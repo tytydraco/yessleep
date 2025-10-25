@@ -54,13 +54,13 @@ Noah craned his neck to look, frowning. “There’s no one there, Liza.”
 
 My skin prickled. I turned in my chair, glancing at the hallway. Nothing but shadows. Just the faint light from the chandelier pooling against the wall.
 
-Ryan cleared his throat. “Eliza, maybe you’re seeing things. It’s late. Eat your dinner.”
+Ryan cleared his throat. “Eliza, you and your brother have been watching too much cartoons. It’s getting late. Eat your dinner.”
 
-She nodded, but I noticed her shoulders stiffen as she lowered her gaze to her plate.
+She nodded, not even making an effort to argue. I noticed her shoulders stiffen as she lowered her gaze to her plate as if it was a bad thing. 
 
 Suddenly, Joseph started to smile and giggle at the hallway behind me, waving at something unseen.
 
-I scooped him up from his high chair, my stomach twisting. "Who are you laughing at, huh?" I asked him, half-expecting an answer. His bright grin faltered, slipping away so suddenly it sent chills down my spine. He was still glancing at the hallway, barely paying attention to his mashed carrots.
+I scooped him up from his high chair, my stomach twisting. "Who are you laughing at, huh?" I asked him, half-expecting an answer. His bright grin faltered, slipping away so suddenly it sent chills down my spine. He was still glancing at the hall, barely paying attention to his mashed carrots.
 
 I forced a laugh, putting him back in his chair, I was going to cut through another bite of pasta, but the back of my neck tingled.
 
@@ -86,7 +86,7 @@ He turned to look at me, the easy smile on his face fading. His blue eyes soften
 
 "But, what Jane?" He asked gently, his voice low but laced with concern.
 
-I swallowed hard, trying to steady my voice, "I just...can't shake the feeling that we're not alone here. Everytime I step into a new room, it feels as if I'm intruding or interuppting something. I always have a sense that I'm being watched or there's something in the room with me."
+I swallowed hard, trying to steady my voice, "Call me crazy, but, I just...can't shake the feeling that we're not alone here. Everytime I step into a new room, it feels as if I'm intruding or interuppting something. I always have a sense that I'm being watched or there's something in the room with me."
 
 Ryan stayed quiet, his expression unreadable, so I went on, words tumbling out faster now. “And it’s not just me. The kids have noticed things too. At dinner, Eliza said she saw a man down the hall--making faces at her. She thought it was funny, but when I looked… there was nothing there. And Joseph--he was giggling, staring at the same spot. I swear, for a second, I saw something move. Just a dark shape.”
 
@@ -98,13 +98,17 @@ Ryan chuckled, "Ok, Jane," He said, kissing me on my forehead, "I think it's tim
 
 "I haven't been on edge," I shot back, though what he said was true. I crossed my arms trying to sound confident, "It's called trusting your gut feeling."
 
-Ryan smiled faintly, though there was a trace of tired affection in his eyes. "I get it, it's a new place, everything feels different. But we're safe ok? It's just the house setting. We'll get used to it." He kissed me once more, and we both said our goodnights and went to sleep. But I couldn't close my eyes at all. Somewhere downstairs there was something dragging along the kitchen floor, scraping against the wood. I must've been the only one to hear it because the noise came when Ryan fell asleep. I told myself that it was the house settling, but it felt like a lie.
+Ryan smiled faintly, though there was a trace of tired affection in his eyes. "I get it, it's a new place, everything feels different. But we're safe ok? Pretty soon the twins will be enrolled in kindergarten and i'll have a job to support the family. Just the house settling."
+
+I nodded my head, wanting to say more, but I didn't have enough energy to argue.  
+
+He kissed me once more, and we both said our goodnights and went to sleep. But I couldn't close my eyes at all. Somewhere downstairs there was something dragging along the kitchen floor, scraping against the wood. I must've been the only one to hear it because the noise came around the corner when Ryan fell asleep. I told myself that it was the house settling like he said, but it felt like a lie.
 
 \--------------------------------------------------------------------------------------------------------------------
 
-When I opened my eyes again, the room was dark. My phone screen blinked beside me, reading **3:10am**\*\*\*.\*\*\*
+When I opened my eyes again, the room was dark. My phone screen blinked beside me, reading **3:10am**.
 
-*Must've fallen asleep at some point in the night*, I wondered, but didn't think much of it. I closed my eyes to drift back to sleep, but they were already watery from a yawn. I picked up my phone from the nightstand and noticed I got a message that was sent at three on the dot by an unknown number.
+*Must've fallen asleep at some point in the night*, I wondered, but didn't think much of it. I closed my eyes to drift back to sleep, but they were already watery from a yawn. I picked up my phone from the nightstand and noticed I got a brand new message that was sent at three on the dot by an unknown number.
 
 I unlocked my phone and clicked into iMessages. The number had the area code for Washington, which was where we were currently residing from California, so that meant this person was definitely here.
 
@@ -112,7 +116,7 @@ I read the message, my eyes widening.
 
 **You're dead. If you don't get out of our house soon, you'll never hear the end of it.**
 
-My pulse quickened, "What?" I whispered to myself.
+My pulse quickened, "What?" I whispered to myself, re-reading it for clarification. 
 
 I had no clue what the message meant, and whether it was a joke or not. Ryan and I were the official owners of the home now, and no one else was living in it other than us and the kids...right?
 
@@ -120,7 +124,7 @@ As if knowing I'd just seen the message, the entity responded.
 
 **I know you're reading this, Jane Wilder. Get out of our house now or we'll make you leave.**
 
-Goosebumps covered my skin, as I kept staring at the message like I was suffering from a seizure. I was completely frozen in shock and worry. At that moment, there was a shrill scream down the hall. It sounded like one of a little girl's. It wasn't Eliza's, that's for sure. It sounded child-like and demonic and distorted. Footsteps followed after. They came in a pair, one sounding like high heels hitting the floor, and one sounding like regular shoes slapping against the wood. They walked slowly and I heard the twins' and Joseph's room door open for a few seconds, and then shut. My heart pounded, as I frantically reached for the baby monitor on the nightstand.
+Goosebumps covered my skin under the warm sheets, as I kept staring at the message like I was suffering from a seizure. I was completely frozen in shock and worry. At that moment, there was a shrill scream down the hall. It sounded like one of a little girl's. It wasn't Eliza's, that's for sure. It sounded child-like and demonic and distorted. Footsteps followed after. They came in a pair, one sounding like high heels hitting the floor, and one sounding like regular shoes slapping against the wood. They walked slowly and I heard the twins' and Joseph's room door open for a few seconds, and then shut. My heart pounded, as I frantically reached for the baby monitor on the nightstand.
 
 It had gotten turned off at some point in the night, which didn't normally happen. I shook it vigorously hoping it turn on. Then, the screen flickered showing the feed of the kids sleeping. The twins were safe and sound on their bunkbeds, and Joseph was asleep in his crib.
 
@@ -142,9 +146,9 @@ Then, all at once, the screen started to glitch--static erupting again before th
 
 They weren't human anymore.
 
-Their limbs had stretched, faces blurring into something distorted and hollow. The little girl's hair stood up straight like she was going to be electrocuted, her eyes seemed to melt, dripping away until her face was left looking empty. Her head snapped backwards at an impossible angle, as her legs bent and reshaped into those of a goat's, her skin tightening against bone as if her flesh was being sucked away, like a vaccum picking up crackers.
+Their limbs had stretched, faces blurring into something distorted and hollow. The little girl's hair stood up straight like she was going to be electrocuted, her eyes seeming to melt, dripping away until her face was left looking empty. Her head snapped backwards at an impossible angle, as her legs bent and reshaped into those of a goat's, her skin tightening against bone as if her flesh was being sucked away, like a vaccum picking up crackers.
 
-The woman's eyes fluttered rapidly, widening with every blink until they bulged, rimmed with blood-red veins. Her skin blackened, charred like burnt paper, while beside her, the man grew taller--taller still--his head nearly brushing the ceiling. His face smoothed into nothingness: no nose or ears, beady eyes and a line too thin for a mouth. Horns split through his skull, sharp and glistening in the dim light. The group's fingers elongated next, stretching like strands of wax, curling into long, spidery talons.
+The woman's eyes fluttered rapidly, and rolled around in fast circles, widening with every blink until they bulged, rimmed with blood-red veins. Her skin blackened, charred like burnt paper, her hair frying to a crisp and disappearing like dust, while beside her, the man grew taller--taller still--his head nearly brushing the ceiling. His face smoothed into nothingness: no nose or ears, beady black eyes and a line too thin for a mouth. Horns split through his skull, sharp and glistening in the dim light. The group's fingers elongated next, stretching like strands of wax, curling into long, spidery talons.
 
 The woman opened her mouth and revealed a long, crimson red tongue, dripping viscous liquid that looked far too much like blood.
 
@@ -154,7 +158,7 @@ My breath caught in my throat. The screen flickered again, and for a split secon
 
 He stirred, groaning softly. “Jane… what’s wrong?”
 
-“Wake up,” I hissed, thrusting the baby monitor toward him. “Look. Look at this.”
+“W-wake up,” I hissed, thrusting the baby monitor toward him. “Look. Look at this.”
 
 Ryan sat up, rubbing his eyes. “What is it now?”
 
@@ -174,11 +178,11 @@ Then I whispered, my voice barely there, "That...came from his room."
 
 Ryan's face went pale. He was already out of bed before I could breathe another word.
 
-Ryan pulled on a shirt and sweatpants reached for the door first, his feet barely thudding softly against the hardwood floor. I followed close behind, my heart hammering in my chest so loud, I thought he could hear it. He pushed the door open.
+Ryan pulled on a shirt and his pair of sweatpants reached for the door first, his feet barely thudding softly against the hardwood floor. I followed close behind, my heart hammering in my chest so loud, I thought he could hear it. He pushed the door open.
 
 The room was still. The dim night light glowed softly in the corner, casting a warm orange glow over Joseph's crib and toys scattered all over the floor. Joseph was fast asleep as if nothing had happened. Eliza and Noah were curled up in their beds, untouched and breathing evenly. Everything looked normal. Too normal. The only sound was the faint hum of the baby monitor still on the dresser, its green light blinking steadily.
 
-Ryan took a step inside, his voice low and rough. “Joseph?”
+Ryan took a few steps inside, his voice low and rough. “Joseph?”
 
 No answer. Just the soft rhythm of his breathing.
 
