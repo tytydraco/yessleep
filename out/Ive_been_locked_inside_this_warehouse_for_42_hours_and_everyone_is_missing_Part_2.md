@@ -141,3 +141,6 @@ At least I’m not alone anymore.
 
 [I’ve been locked inside this warehouse for 42 hours and everyone is missing (part1)
 ](https://www.reddit.com/r/nosleep/s/lU1lIZgLih)
+
+[I’ve been locked inside this warehouse for 42 hours and everyone is missing. 
+(part 3)](https://www.reddit.com/r/nosleep/s/FvMIYa5svd)
