@@ -8,7 +8,7 @@ To preface this, I just moved into my first apartment last week. It's a bit scar
 
 First order of business is getting a toaster. Yes, a toaster. Call me weird, but I love toast. I've been eating it almost every day for breakfast since I was a kid (any toast aficionado knows that the best way is butter only, no jam or jelly or anything weird like Marmite.) So, yes, a toaster will be my first treat of many.
 
-I look on Amazon and find the first cheap toaster with somewhat decent reviews. 4.3 stars with 8k reviews isn't bad. Let's see what people are saying.
+I start looking on Amazon and, almost immediately, find a cheap toaster with somewhat decent reviews. 4.3 stars with 8k reviews isn't bad. Let's see what people are saying.
 
 "Great toaster if you need something basic. $25 bucks and it works." - Doug M.
 
@@ -46,9 +46,13 @@ Alright, well, HomeDepotCustomer sounds like a bit of an asshole, but I think I'
 
 Again, I hear the clicking of the old toaster. "Click, click, click, click." I go to the kitchen and... it's plugged in? And it's hot, almost unbearably so. How the hell is that possible? Something is fucking weird here. I could've sworn that I unplugged it. I need to return this shit tomorrow. Regardless, I go back to my room and hop on Etsy.
 
-After only a few minutes, I find the CUTEST little silver snake earrings. I mean, they aren't everyone's cup of tea, but apparently I like reptiles in mine. 
+After only a few minutes, I find the most ADORABLE little silver snake earrings. I mean, they aren't everyone's cup of tea, but apparently I like reptiles in mine. 
 
-Now, I bet you'll guess what's coming next... *cue dramatic music* the reviews!
+Now, I bet you'll guess what's coming next... 
+
+*cue drumroll* 
+
+the reviews!
 
 "Got them for a friend's bday. She loved them." - Kyrsten
 
