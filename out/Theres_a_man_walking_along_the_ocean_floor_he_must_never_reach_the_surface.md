@@ -76,7 +76,7 @@ The discussion about what to do boiled down to watching the live feed in Shifts 
 
 
 
-I watched the light grow slightly for about an hour, it went from being the size of a dime to a nickel, but I still couldn’t make out any new details from it. I tried to stay away to watch further, but boredom is an effective sleep aid.
+I watched the light grow slightly for about an hour, it went from being the size of a dime to a nickel, but I still couldn’t make out any new details from it. I tried to stay awake to watch further, but boredom is an effective sleep aid.
 
 
 

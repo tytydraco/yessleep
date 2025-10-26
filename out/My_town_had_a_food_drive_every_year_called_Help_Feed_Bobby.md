@@ -212,7 +212,7 @@ I don’t think my dad ever figured out that I was there with him that night, bu
 
 ​
 
-The next year, he did not volunteer to assist with “Help Feed Billy”, in fact, he had gotten a promotion at work, and we had to move away because of it.
+The next year, he did not volunteer to assist with “Help Feed Bobby”, in fact, he had gotten a promotion at work, and we had to move away because of it.
 
 ​
 
