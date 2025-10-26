@@ -76,5 +76,4 @@ Ricketts shook his head softly. "You are cured now." He nodded again towards the
 
 Ricketts stopped and remained motionless. A small button near the ceiling I hadn't noticed before suddenly glowed green. Ricketts's smile was almost audible as he gave a deep, ceremonial bow and exited the containment room.
 
-My entire focus was just to get as far away from my black-stained clothes as soon as possible. In that moment, though, my true priority should have been to do everything in my power to kill the newly reformed O'Bryon before it was too late.
-
+My entire focus was just to get as far away from my black-stained clothes as soon as possible. In that moment, though, my true priority should have been to do everything in my power to kill the newly reformed O'Bryon before it was too [late](https://www.reddit.com/r/ZJcortez/).
