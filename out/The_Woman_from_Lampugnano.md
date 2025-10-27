@@ -1,8 +1,3 @@
-# **The Woman from Lampugnano**  
-*Posted in r/nosleep*  
-
----
-
 I work in an emergency room just outside Milan.  
 Night shifts are quiet until they aren’t -- until someone walks in carrying the kind of story that sticks to your mind like static.  
 

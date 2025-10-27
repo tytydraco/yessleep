@@ -26,7 +26,7 @@ After seeing his face, I immediately remembered who Nelson was. We knew each oth
 
 “It’s okay, please continue.”
 
-“Well, there was no response when we knocked, so we tried the door, and it was open. We found him sitting in a chair in front of the TV. When we approached him, we found him dead. He had an outward-facing hole in his chest—it looked like something had burst out of it from the inside. On his lap, among various… parts of him, we found an object.”
+“Well, there was no response when we knocked, so we tried the door, and it was open. We found him sitting in a chair in front of the TV. When we approached him, we found him dead. He had an outward-facing hole in his chest. It looked like something had burst out of it from the inside. On his lap, among various… parts of him, we found an object.”
 
 “Okay… what was the object?”
 
@@ -40,7 +40,7 @@ After I agreed to the idea, Nelson handed over some printed photos. Sure enough,
 
 I couldn’t believe what I was seeing. To me, this seemed closer to a murder than a freak occurrence. While various thoughts were racing through my mind, Nelson cut in,
 
-“I know it’s hard to believe, but like I said, your father is the fifth case of this happening. The reason we know it’s not murder? Well—with the second case, a man named Andrew Morris—it happened right in front of a prison guard. His chest burst open.”
+“I know it’s hard to believe, but like I said, your father is the fifth case of this happening. The reason we know it’s not murder? Well, with the second case, a man named Andrew Morris, it happened right in front of a prison guard. His chest burst open.”
 
 “A mallet came out of his chest?” I asked.
 
@@ -52,13 +52,13 @@ I couldn’t believe what I was seeing. To me, this seemed closer to a murder th
 
 “I’m sorry, Nelson, but I have no idea what you’re talking about.”
 
-“I just told you about Andrew Morris, yeah? What came out of his chest wasn’t a mallet—it was an unmarked bottle of whiskey. It had no label. He was a known drunk. We put him away for ten years for driving drunk and killing a man. Always had low participation in his rehabilitation circles, too. Bastard finished serving his sentence, and two weeks later crashed into a tree. At that time, his license was already revoked, but he didn’t care. He went right back to confinement after that. A patrolling prison guard saw him die in his cell. Andrew was only the second case, but the other four cases weren’t all too different.
+“I just told you about Andrew Morris, yeah? What came out of his chest wasn’t a mallet. It was an unmarked bottle of whiskey. It had no label. He was a known drunk. We put him away for ten years for driving drunk and killing a man. Always had low participation in his rehabilitation circles, too. Bastard finished serving his sentence, and two weeks later crashed into a tree. At that time, his license was already revoked, but he didn’t care. He went right back to confinement after that. A patrolling prison guard saw him die in his cell. Andrew was only the second case, but the other four cases weren’t all too different.
 
 First was Richard White. Found dead in his car in front of Nancy’s Bar. Hole in his chest. What came out of his chest was a tube of lipstick. With news of his death spreading around town, a few women came out and spoke against him. It turned out he was part of a sex trafficking ring that spread across the entire Midwest. He was out of town a lot on ‘business.’
 
 Victim #3: Maury Clements. You remember him from school, right? Found dead in his apartment. Hole in his chest. And what came out of his chest? A kids’ fashion doll with no clothes. I’m sure you can imagine what we dug up on him after.
 
-The fourth victim, Glenn Morales—found dead in the park. Hole in his chest. Dozens of syringes found scattered on the floor next to him. We’re still mid-investigation, but the syringes made us suspect he played a key role in the rise of drug-related homeless deaths around the area.
+The fourth victim, Glenn Morales. Found dead in the park. Hole in his chest. Dozens of syringes found scattered on the floor next to him. We’re still mid-investigation, but the syringes made us suspect he played a key role in the rise of drug-related homeless deaths around the area.
 
 Then, most recently, was your father. Do you see where I’m going with this?”
 
@@ -66,7 +66,7 @@ Everything Nelson told me sounded absurd. I couldn’t believe what Nelson was t
 
 “So, what?” I inquired. “These people did bad things, so their chests exploded? Is that what you want me to believe, Nelson?”
 
-“Yes and no. I’m a man who considers himself to be grounded in reality. I don’t believe this to be some supernatural occurrence. I have to believe there’s a logical reason behind these deaths. I don’t have the answer yet. But the townspeople—they believe it. Just ask around and you’ll see. Everyone is on edge. People are lining up at the confessional booth, admitting their wrongdoings. People are apologizing to each other. Everyone is scared. If you ask me, it’s backwards and creepy. I don’t know if this is the act of some vigilante taking justice into his own hands or what, but it’s making this town act crazy.”
+“Yes and no. I’m a man who considers himself to be grounded in reality. I don’t believe this to be some supernatural occurrence. I have to believe there’s a logical reason behind these deaths. I don’t have the answer yet. But the townspeople, they believe it. Just ask around and you’ll see. Everyone is on edge. People are lining up at the confessional booth, admitting their wrongdoings. People are apologizing to each other. Everyone is scared. If you ask me, it’s backwards and creepy. I don’t know if this is the act of some vigilante taking justice into his own hands or what, but it’s making this town act crazy.”
 
 Nelson escorted me out of his office and back into the lobby of the police station. Thoughts raced through my head. The last two hours felt like a whirlwind, tossing me between reality and fiction. I didn’t know what to believe, but I also didn’t care. This doesn’t affect me. I’m no longer a resident of this town. I’m no longer my father’s son. That life was left behind, and I have a new one now.
 
@@ -76,7 +76,7 @@ As Nelson returned to his office, an officer in the lobby opened the front door 
 
 “...What?” I replied, caught off guard.
 
-“None of them owned up to it. They either felt no remorse or refused to admit what they’d done. Call it God, or call it the universe. I don’t know. But denying the things that you’ve done—lying to yourself—that’s the quickest way to a road of suffering. And feeling no remorse—that’s the quickest way to lose your humanity.”
+“None of them owned up to it. They either felt no remorse or refused to admit what they’d done. Call it God, or call it the universe. I don’t know. But denying the things that you’ve done— lying to yourself—that’s the quickest way to a road of suffering. And feeling no remorse, that’s the quickest way to lose your humanity.”
 
 I walked out of the station, thinking about what he said. As I prepared for the drive to my father’s apartment to sort out his belongings, I decided to try calling my wife again. After a day like today, talking to her and my son was all that I wanted. It went straight to voicemail. I thought to myself I would try again later.
 
