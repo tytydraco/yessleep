@@ -1,8 +1,8 @@
 My dad used to work for the military “supply-chain repair,” or something like that. His projects were assigned all around the country, which meant my family had to move around a lot. I basically grew up eating at highway diners and late-night buffets, living in motels, small two-bedroom apartments, and if we were lucky, a rental house with a big kitchen area.
 
-His assignments always took two to three weeks. The only cities where we stayed for more than a month were New Orleans and Salem. Salem was his last job … after that, he quit. That same day he told us he was a mess. I’m not sure what happened on that last job, but something got to him. We left town during the night and kept driving for days, stopping to sleep in the shadiest motels. I’m not sure Dad ever slept. Every night, when I woke up, he was frozen, sitting still at the edge of his bed, looking at the door… waiting for something.
+His assignments always took two to three weeks. The only cities where we stayed for more than a month were New Orleans and a small town near Massachusetts. That last job … after that, he quit. That same day he told us he was a mess. I’m not sure what happened on that last job, but something got to him. We left town during the night and kept driving for days, stopping to sleep in the shadiest motels. I’m not sure Dad ever slept. Every night, when I woke up, he was frozen, sitting still at the edge of his bed, looking at the door… waiting for something.
 
-Two months later we arrived in El Paso, Texas.  
+Two months later we settled in a border town in Texas.  
 Six months later my mom left.  
 Nothing ever came.
 
@@ -12,7 +12,7 @@ I’m still home-schooled, learning over the weekends and getting ready to prese
 
 Dad found a job at a “vulcanizadora” (a tire repair shop, for you gringos). He leaves me alone every day from 8 a.m. to 6 p.m. That’s when I use his computer he doesn’t know I’ve figured out his password. The books I use to study are old; the youngest one is from the 1980s, so I always have to double check things online.
 
-Texan nights during October are normally mild, especially in a border town like ours, but last night it was freezing. I woke up at around 2 a.m., shaking. I could see my own breath and hear the windows cracking from the cold.
+Texan nights during October are normally mild, especially in towns near the border, but last night it was freezing. I woke up at around 2 a.m., shaking. I could see my own breath and hear the windows cracking from the cold.
 
 Something was off.
 
@@ -36,15 +36,17 @@ Something was sitting there. Naked. Head covered with a bag.
 On a wooden chair.
 
 The bag looked directly at me. I could feel the eyes analyzing me. It expelled a shriek:  
-**“Tiiiii… Tiiii… TRRRRRR!”**  
-  
+**“Tiiiii… Tiiii… TRRRRRR!”**
+
 Its body started to twitch, its limbs shortening, its frame twisting. I could hear bones cracking,the creature screaming in pain. Ten minutes passed. I just stood there, unable to move, unable to look away.
 
 Then… its body started changing. Becoming like mine. The birthmark on my right shoulder. The moles in the shape of the constellation my mother used to point out. They appeared. On its shoulder.
 
 Everything became mine. Even the private parts.
 
-I ran. Upstairs. Slamming the basement door with all my strength. The hinges were loose, and the door fell halfway. I didn’t care. I ran to my room and locked myself in.
+I stumbled backward, tripping on a tire. The chair screeched across the floor then it lunged. Its weight hit my chest, knocking me onto the concrete. Its hand (or my hand) gripped my jaw and pulled. I screamed as something cracked inside my mouth. When I crawled away, there was blood on the floor. And one of my molars. The creature sat back down in the chair and went still again. For what felt like hours, I couldn’t move. I just stared.
+
+When I finally reacted, I ran. Upstairs. Slamming the basement door with all my strength. The hinges were loose, and the door fell halfway. I didn’t care. I ran to my room and locked myself in.
 
 Hours later, another *BANG!* echoed from downstairs. I rushed down again. The basement door had completely fallen. Must have been the loose hinges, right?
 
