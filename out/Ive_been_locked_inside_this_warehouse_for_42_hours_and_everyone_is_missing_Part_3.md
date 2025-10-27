@@ -152,3 +152,5 @@ What little hope I had left has been snuffed from me. I just want this to fuckin
 
  [I’ve been locked inside this warehouse for 42 hours and everyone is missing. 
 (part 2)](https://www.reddit.com/r/nosleep/s/SSRPZPAFlJ)
+
+[I’ve been locked inside this warehouse for 42 hours and everyone is missing (part 4)](https://www.reddit.com/r/nosleep/s/EetBNrkK8Q)
