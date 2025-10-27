@@ -258,7 +258,7 @@ Another step. Then another.
 
 
 
-Then a shout. Sharp, furious, loud*.*
+Then a shout. Sharp, furious, loud.
 
 
 
